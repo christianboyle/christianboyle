@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000591083282-axz0vv-t50x50.jpg">](https://soundcloud.com/spinninrecords/sam-feldt-post-malone-feat-rani-vize-remix-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
 
-**Artist**: Spinnin' Records 
+**Artist**: PHZES 
 
-**Track**: Sam Feldt - Post Malone (feat .RANI) [VIZE Remix] [OUT NOW]
+**Track**: PHZED & Confused Mix 04 - July 4th Mix
 
-Last updated at 7/17/2020, 10:18:02 AM
+Last updated at 7/17/2020, 10:19:02 AM
