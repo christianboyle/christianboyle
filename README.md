@@ -6,4 +6,4 @@
 
 **Track**: Karol G & Nicki Minaj - Tusa (Frankk Project Remix)
 
-Last updated at 7/17/2020, 10:01:02 AM
+Last updated at 7/17/2020, 10:02:02 AM
