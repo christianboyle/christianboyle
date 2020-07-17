@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mj7dx4ZYdeCyCo6E-NAt1iw-t50x50.jpg">](https://soundcloud.com/iamawakend/save-me-feat-levi-blue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
 
-**Artist**: AWAKEND 
+**Artist**: PHZES 
 
-**Track**: Save Me (feat. Levi Blue)
+**Track**: PHZED & Confused Mix 04 - July 4th Mix
 
-Last updated at 7/17/2020, 10:16:02 AM
+Last updated at 7/17/2020, 10:17:02 AM
