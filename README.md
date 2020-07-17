@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-il-est-temps?in=casualgabberz/sets/aamourocean-parmi-les-mortels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzX5t76hXoCaFTxV-4zeSig-t50x50.jpg">](https://soundcloud.com/itsosins/ego-death-osins-remix)
 
-**Artist**: CASUAL GABBERZ 
+**Artist**: Osins 
 
-**Track**: aamourocean - Il est Temps
+**Track**: EGO DEATH (OSINS REMIX)
 
-Last updated at 7/17/2020, 10:49:02 AM
+Last updated at 7/17/2020, 10:50:02 AM
