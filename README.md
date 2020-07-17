@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://soundcloud.com/hotelgarudamusic/rush-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Fx51HwhuGqjGvZJ-luufRA-t50x50.jpg">](https://soundcloud.com/scummysunny/sometimesmaster)
 
-**Artist**: HOTEL GARUDA 
+**Artist**: Peter $un 
 
-**Track**: Rush
+**Track**: Sometimes
 
-Last updated at 7/17/2020, 7:37:02 AM
+Last updated at 7/17/2020, 7:38:02 AM
