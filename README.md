@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000638427643-ev8cyy-t50x50.jpg">](https://soundcloud.com/noteethtina/thats-hot?in=saxurn/sets/tester2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKuMywJenEzJbpKk-YYkRnQ-t50x50.jpg">](https://soundcloud.com/landisofficial/guilty-conscience-landis-remix?in=saxurn/sets/tester2/)
 
-**Artist**: noteethtina 
+**Artist**: Landis 
 
-**Track**: Ayesha Erotica - That's Hot
+**Track**: Guilty Conscience (Landis Remix)
 
-Last updated at 7/17/2020, 7:56:02 AM
+Last updated at 7/17/2020, 7:57:02 AM
