@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKuMywJenEzJbpKk-YYkRnQ-t50x50.jpg">](https://soundcloud.com/landisofficial/guilty-conscience-landis-remix?in=saxurn/sets/tester2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4J4zo1ubnYuMooY-z71Egg-t50x50.jpg">](https://soundcloud.com/b3lladesu/glue-remix?in=saxurn/sets/tester2/)
 
-**Artist**: Landis 
+**Artist**: B3LLA 
 
-**Track**: Guilty Conscience (Landis Remix)
+**Track**: BKAYE - Glue (B3LLA Remix)
 
-Last updated at 7/17/2020, 7:58:02 AM
+Last updated at 7/17/2020, 7:59:02 AM
