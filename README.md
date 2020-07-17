@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8eq8DGt1wdzpLUIY-9eDOtw-t50x50.jpg">](https://soundcloud.com/below_the_surface/xavage-trey-songz-feat-tre-savels?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iwsnsn0s9zbxVHNv-Zy2nYw-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/nightcore-whore-mix-gaslighter-dixie-chicks?in=saxurn/sets/virii)
 
-**Artist**: Below 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: XAVAGE - Trey Songz (feat. Tre Savels)[FUXWITHIT PREMIERE]
+**Track**: [NIGHTCØRE WHØRE Mix] gaslighter - dixie chicks
 
-Last updated at 7/17/2020, 9:11:02 AM
+Last updated at 7/17/2020, 9:12:02 AM
