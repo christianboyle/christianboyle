@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9T3f1vqUwUjRQh1T-3Z5ZCA-t50x50.jpg">](https://soundcloud.com/beauzworld/walking-in-the-dark-feat-enjia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WBW7hrDxct04KLc-UOiX6w-t50x50.jpg">](https://soundcloud.com/besomorph/idgaf)
 
-**Artist**: BEAUZ 
+**Artist**: Besomorph 
 
-**Track**: 夜途 (Walking In The Dark) feat. EnjiA
+**Track**: Besomorph & Silent Child - IDGAF
 
-Last updated at 7/17/2020, 10:36:02 AM
+Last updated at 7/17/2020, 10:37:02 AM
