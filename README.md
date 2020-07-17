@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-sYc7nd9JAARlBZ0z-snyTMQ-t50x50.jpg">](https://soundcloud.com/637godwin/gucci-belt-prod-young-taylor?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRyn7auHDfUr9NUU-6KThow-t50x50.jpg">](https://soundcloud.com/squidiotic/remember-me?in=saxurn/sets/tester/)
 
-**Artist**: 637godwin 
+**Artist**: SQUID 
 
-**Track**: Gucci Belt prod. Young Taylor
+**Track**: REMEMBER ME
 
-Last updated at 7/17/2020, 8:47:02 AM
+Last updated at 7/17/2020, 8:48:02 AM
