@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BrN4vePzyg753ll8-KfuKZw-t50x50.jpg">](https://soundcloud.com/blvdmusic/blvd-full-send-carbin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HvfCSpNtr2ot-0-t50x50.png">](https://soundcloud.com/morganpage/morgan-page-mark-sixma-our)
 
-**Artist**: BLVD. 
+**Artist**: Morgan Page 
 
-**Track**: BLVD. - Full Send (Carbin Remix)
+**Track**: Morgan Page & Mark Sixma - Our Song
 
-Last updated at 7/17/2020, 3:01:02 PM
+Last updated at 7/17/2020, 3:52:02 PM
