@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vcevL03c4YCbz3jM-IPV6Sw-t50x50.jpg">](https://soundcloud.com/tropixofficial/fourfiveseconds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3SNl1rSt8BIZ4wz-XBxvEA-t50x50.jpg">](https://soundcloud.com/mazaremusic/seven-lions-feat-tyler-graves-only-now-mazare-remix-1)
 
-**Artist**: Tropix 
+**Artist**: Mazare 
 
-**Track**: Tropix & Wyle (ft. Joey Burbs) - FourFiveSeconds
+**Track**: Seven Lions (feat. Tyler Graves) - Only Now (Mazare Remix)
 
-Last updated at 7/17/2020, 12:11:02 PM
+Last updated at 7/17/2020, 12:12:02 PM
