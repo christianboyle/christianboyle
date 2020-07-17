@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on Spotify
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdokvWmO2fjJat8k-G2WZeQ-t50x50.jpg">](https://soundcloud.com/afterpeakmusicgroup/amp017)
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d000048514c33ac3e054156eee41a0199">](https://open.spotify.com/album/6DDLcNQXmKpWTW195gkI0d)
 
-**Artist**: Afterpeak 
+**Artist**: Cautious Clay 
 
-**Track**: Tones and I - Dance Monkey (Yonexx & CRÈME Cover)
+**Track**: Erase
 
-Last updated at 7/17/2020, 12:05:02 PM
+Last updated at 7/17/2020, 12:07:02 PM
