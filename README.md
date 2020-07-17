@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JoteZKtlL8PPJDEM-rDKrxg-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-mix/nightcore-whore-remix-heading-home-alan-walker-ruben?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zmdXjkM6FVI-0-t50x50.png">](https://soundcloud.com/droeloemusic/broken-bricks-madnap-remix?in=saxurn/sets/tester/)
 
-**Artist**: I AM REMIX NIGHTCØRE WHØRE 
+**Artist**: DROELOE 
 
-**Track**: heading home [NIGHTCØRE WHØRE Remix] alan walker & ruben
+**Track**: Broken Bricks (Madnap Remix)
 
-Last updated at 7/17/2020, 8:53:02 AM
+Last updated at 7/17/2020, 8:54:02 AM
