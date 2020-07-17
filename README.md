@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Fx51HwhuGqjGvZJ-luufRA-t50x50.jpg">](https://soundcloud.com/scummysunny/sometimesmaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J49PjJJg49QKIdmO-nXDRtA-t50x50.jpg">](https://soundcloud.com/samwoohoo/trapstar)
 
-**Artist**: Peter $un 
+**Artist**: S A M U 
 
-**Track**: Sometimes
+**Track**: TRAPSTAR
 
-Last updated at 7/17/2020, 7:41:02 AM
+Last updated at 7/17/2020, 7:42:02 AM
