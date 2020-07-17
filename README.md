@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWWHL1cl7TSs8pNm-XjnPjA-t50x50.jpg">](https://soundcloud.com/awe/luvit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wgqatn64k8gzLb37-yqM1Lw-t50x50.jpg">](https://soundcloud.com/theimage/believe-in-me-1)
 
-**Artist**: AWE 
+**Artist**: The Image 
 
-**Track**: Luvit
+**Track**: Believe In Me
 
-Last updated at 7/17/2020, 4:04:02 PM
+Last updated at 7/17/2020, 4:05:02 PM
