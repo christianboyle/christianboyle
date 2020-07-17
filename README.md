@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8Sqhd45wJVNISK6-VeN0QQ-t50x50.jpg">](https://soundcloud.com/murderclubmixarchive/murder-club-lewis-grant-live-set-51720)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evvY2sU8fZzyfNKo-kRTObg-t50x50.jpg">](https://soundcloud.com/murderclubmusik/murder-club-goodies-box-may)
 
-**Artist**: MURDER CLUB MIX ARCHIVE 
+**Artist**: MURDER CLUB 
 
-**Track**: MURDER CLUB LEWIS GRANT LIVE SET (5/17/20)
+**Track**: MURDER CLUB GOODIES BOX MAY 2020 (YUMMY, FIREFLIES, NEVER MEANT)
 
-Last updated at 7/17/2020, 1:21:02 PM
+Last updated at 7/17/2020, 1:22:02 PM
