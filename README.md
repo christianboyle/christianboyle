@@ -1,9 +1,9 @@
-## Currently Playing on Spotify
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d00004851d6240136d70e9b44bac45765">](https://open.spotify.com/album/4UJtK2bKAAJfaowBva1tPF)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wHfOKP5VimehZCm-zlNLSA-t50x50.jpg">](https://soundcloud.com/landisofficial/influence-it)
 
-**Artist**: Yellow Days 
+**Artist**: Landis 
 
-**Track**: Just When
+**Track**: Influence It
 
-Last updated at 7/17/2020, 12:08:02 PM
+Last updated at 7/17/2020, 12:09:02 PM
