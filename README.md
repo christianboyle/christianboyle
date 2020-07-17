@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000677646505-hrtf81-t50x50.jpg">](https://soundcloud.com/discoveryteam/karol-g-nicki-minaj-tusa-frankk-project-remix?in=saxurn/sets/dancing-landscapes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586463099-m8pdju-t50x50.jpg">](https://soundcloud.com/user-732482285/otto-knows-million-voices-eternal-flip?in=saxurn/sets/dancing-landscapes)
 
-**Artist**: Discovery Team 
+**Artist**: Eternal's Vault 
 
-**Track**: Karol G & Nicki Minaj - Tusa (Frankk Project Remix)
+**Track**: Otto Knows - Million Voices (Eternal Flip)
 
-Last updated at 7/17/2020, 10:02:02 AM
+Last updated at 7/17/2020, 10:03:02 AM
