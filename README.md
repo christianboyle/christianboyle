@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vXzpI8UpQorhg4sq-aldQsw-t50x50.jpg">](https://soundcloud.com/mikesrevenge/svdden-death-behemoth-mikes-revenge-remix?in=saxurn/sets/tester2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t50x50.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/tester2/)
 
-**Artist**: Mikes Revenge 
+**Artist**: texas baby nxc 
 
-**Track**: Svdden Death - Behemoth (Mikes Revenge Remix)
+**Track**: rmr - rascal (texas baby rmx)
 
-Last updated at 7/17/2020, 8:14:02 AM
+Last updated at 7/17/2020, 8:15:02 AM
