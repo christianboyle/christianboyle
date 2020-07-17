@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qqmazcBBSpme4KtQ-ysubFw-t50x50.jpg">](https://soundcloud.com/offtamber/insomnia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yATGLDLX2r5To5nJ-zJhU6A-t50x50.jpg">](https://soundcloud.com/thisisfrequency/4ura-dianna-butterflies)
 
-**Artist**: OFFTAMBER 
+**Artist**: Frequency 
 
-**Track**: Montell2099 - Insomnia (OFFTAMBER Remix)
+**Track**: 4URA & Dianna - Butterflies
 
-Last updated at 7/17/2020, 2:24:03 PM
+Last updated at 7/17/2020, 2:25:02 PM
