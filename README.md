@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463878312-j9utun-t50x50.jpg">](https://soundcloud.com/swailesmoor/nalin-and-kane-cruising-darren-styles-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iXOrClkcrWMOb8sl-LzH3Dg-t50x50.jpg">](https://soundcloud.com/bennymayne/danny-devito-freestyle)
 
-**Artist**: swailesmoor 
+**Artist**: benny mayne 
 
-**Track**: Nalin and Kane | Cruising (Darren Styles Remix)
+**Track**: danny devito (freestyle)
 
-Last updated at 7/17/2020, 2:36:02 PM
+Last updated at 7/17/2020, 2:37:02 PM
