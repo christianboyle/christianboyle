@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000504257301-awbsng-t50x50.jpg">](https://soundcloud.com/hippihollywood/chappell-roan?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-sYc7nd9JAARlBZ0z-snyTMQ-t50x50.jpg">](https://soundcloud.com/637godwin/gucci-belt-prod-young-taylor?in=saxurn/sets/tester/)
 
-**Artist**: HippiHollywood 
+**Artist**: 637godwin 
 
-**Track**: Chappell Roan - Good Hurt (Alezay & HippiHollywood Remix)
+**Track**: Gucci Belt prod. Young Taylor
 
-Last updated at 7/17/2020, 8:44:02 AM
+Last updated at 7/17/2020, 8:45:02 AM
