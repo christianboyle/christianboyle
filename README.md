@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzX5t76hXoCaFTxV-4zeSig-t50x50.jpg">](https://soundcloud.com/itsosins/ego-death-osins-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdokvWmO2fjJat8k-G2WZeQ-t50x50.jpg">](https://soundcloud.com/afterpeakmusicgroup/amp017)
 
-**Artist**: Osins 
+**Artist**: Afterpeak 
 
-**Track**: EGO DEATH (OSINS REMIX)
+**Track**: Tones and I - Dance Monkey (Yonexx & CRÈME Cover)
 
-Last updated at 7/17/2020, 10:50:02 AM
+Last updated at 7/17/2020, 12:05:02 PM
