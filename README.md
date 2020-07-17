@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQInfnDCmbeLtyyF-B8C78w-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-angel-eyes?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aRSydcCusVwUixt-hMBj0Q-t50x50.jpg">](https://soundcloud.com/yitakulxiv/jaded?in=saxurn/sets/tester/)
 
-**Artist**: Sublab 
+**Artist**: yitaku 
 
-**Track**: ANGEL EYES
+**Track**: Jaded
 
-Last updated at 7/17/2020, 9:03:02 AM
+Last updated at 7/17/2020, 9:04:02 AM
