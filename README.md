@@ -1,8 +1,3 @@
-{CURRENT_PLAYING_SOURCE}<br>
-{CURRENT_PLAYING_NAME}<br>
-{CURRENT_PLAYING_ARTISTS}<br>
-{CURRENT_PLAYING_ALBUM}<br>
-{CURRENT_PLAYING_RELEASED}<br>
-{CURRENT_PLAYING_ALBUM_SRC}<br>
-{CURRENT_PLAYING_URL}<br>
-{CURRENT_PLAYING_LAST_UPDATED}
+<p align="center">
+  <img src="https://github.com/christianboyle/christianboyle/raw/master/j.gif">
+</p>
