@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6aWUqJBz42YSB1B-PHRtdw-t50x50.jpg">](https://soundcloud.com/inrotationrecs/hidden-face-anxiety?in=inrotationrecs/sets/hidden-face-anxiety-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-il-est-temps?in=casualgabberz/sets/aamourocean-parmi-les-mortels)
 
-**Artist**: IN / ROTATION 
+**Artist**: CASUAL GABBERZ 
 
-**Track**: Hidden Face - Anxiety
+**Track**: aamourocean - Il est Temps
 
-Last updated at 7/17/2020, 10:48:02 AM
+Last updated at 7/17/2020, 10:49:02 AM
