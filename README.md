@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zmdXjkM6FVI-0-t50x50.png">](https://soundcloud.com/droeloemusic/broken-bricks-madnap-remix?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH6SyICLFooM-0-t50x50.jpg">](https://soundcloud.com/partyfavormusic/party-favor-once-more-feat?in=saxurn/sets/tester/)
 
-**Artist**: DROELOE 
+**Artist**: PARTY FAVOR 
 
-**Track**: Broken Bricks (Madnap Remix)
+**Track**: Party Favor - ONCE MORE (feat. Georgia Ku)
 
-Last updated at 7/17/2020, 8:56:02 AM
+Last updated at 7/17/2020, 8:57:02 AM
