@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3agysBPQej9OjNzy-Bnt3sg-t50x50.jpg">](https://soundcloud.com/vrg_music/blvk-sheep-wonksta-vrg-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNW2stJBE04shrJC-vRiYSw-t50x50.jpg">](https://soundcloud.com/thebronzewhale/devilish)
 
-**Artist**: VRG 
+**Artist**: Bronze Whale 
 
-**Track**: BLVK SHEEP - WONKSTA (VRG REMIX)
+**Track**: Bronze Whale x Poles - Devilish
 
-Last updated at 7/17/2020, 10:44:02 AM
+Last updated at 7/17/2020, 10:46:02 AM
