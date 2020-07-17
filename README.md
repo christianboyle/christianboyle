@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iwsnsn0s9zbxVHNv-Zy2nYw-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/nightcore-whore-mix-gaslighter-dixie-chicks?in=saxurn/sets/virii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXyZf8VgDwxHy5r0-QzAx5Q-t50x50.jpg">](https://soundcloud.com/jupitamusic/s-o-u-n-d-s-back-around?in=saxurn/sets/virii)
 
-**Artist**: I AM ROCK NIGHTCØRE WHØRE 
+**Artist**: Jupita | No Copyright Music 
 
-**Track**: [NIGHTCØRE WHØRE Mix] gaslighter - dixie chicks
+**Track**: S O U N D S - Back Around
 
-Last updated at 7/17/2020, 9:14:02 AM
+Last updated at 7/17/2020, 9:15:02 AM
