@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JAobKwWP63ZY-0-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/hardcore?in=saxurn/sets/virii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFFw8nBjMfGzyKb0-qTNCVw-t50x50.jpg">](https://soundcloud.com/above_the_surface/only-child-busy-fingers?in=saxurn/sets/virii)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: Above 
 
-**Track**: Hardcore
+**Track**: only child - Busy Fingers
 
-Last updated at 7/17/2020, 9:26:02 AM
+Last updated at 7/17/2020, 9:27:02 AM
