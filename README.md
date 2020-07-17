@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z2bOxk23UXLsHJb3-AlL8zg-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-mix/thinking-about-you-nightcore-whore-remix-r3hab-winona-oak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3agysBPQej9OjNzy-Bnt3sg-t50x50.jpg">](https://soundcloud.com/vrg_music/blvk-sheep-wonksta-vrg-remix-1)
 
-**Artist**: I AM REMIX NIGHTCØRE WHØRE 
+**Artist**: VRG 
 
-**Track**: thinking about you [NIGHTCØRE WHØRE Remix] r3hab & winona oak
+**Track**: BLVK SHEEP - WONKSTA (VRG REMIX)
 
-Last updated at 7/17/2020, 10:41:02 AM
+Last updated at 7/17/2020, 10:42:02 AM
