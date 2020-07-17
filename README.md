@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evvY2sU8fZzyfNKo-kRTObg-t50x50.jpg">](https://soundcloud.com/murderclubmusik/murder-club-goodies-box-may)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6rS7tsdlAcEMyoxL-yIFH6g-t50x50.jpg">](https://soundcloud.com/murderclubmusik/iyaz-replay-faux-gecs-murder-club-remix)
 
 **Artist**: MURDER CLUB 
 
-**Track**: MURDER CLUB GOODIES BOX MAY 2020 (YUMMY, FIREFLIES, NEVER MEANT)
+**Track**: IYAZ - REPLAY (FAUX-GECS MURDER CLUB REMIX)
 
-Last updated at 7/17/2020, 1:25:02 PM
+Last updated at 7/17/2020, 1:26:02 PM
