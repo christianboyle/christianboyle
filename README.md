@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t50x50.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cozXBagPYc5g6yEQ-l8iHrg-t50x50.jpg">](https://soundcloud.com/futuregenerationofficial/smle-rival-up-in-flames-ft-neoni)
 
-**Artist**: Gen1910 
+**Artist**: Future Generation 
 
-**Track**: Current Value - Dark Rain
+**Track**: SMLE & Rival - Up In Flames (with Neoni)
 
-Last updated at 7/17/2020, 4:12:02 PM
+Last updated at 7/18/2020, 7:02:02 AM
