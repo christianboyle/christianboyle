@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJRNB3ILK14NgrSl-6VNdOw-t50x50.jpg">](https://soundcloud.com/talegatemusic/filmore-other-girl-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p6cRLKIpbLuNzWot-SmIHJw-t50x50.jpg">](https://soundcloud.com/wakaan/g-rex-tvboo-dweller-edmcom-premiere)
 
-**Artist**: talegate 
+**Artist**: Wakaan 
 
-**Track**: Filmore - Other Girl (talegate remix)
+**Track**: G-REX, TVBOO - Dweller [EDM.com Premiere]
 
-Last updated at 7/18/2020, 3:44:02 PM
+Last updated at 7/18/2020, 4:27:02 PM
