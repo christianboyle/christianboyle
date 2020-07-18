@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D0NyKX7YM6EU4V7h-D1ag0w-t50x50.jpg">](https://soundcloud.com/darkvitto/darkvitto-folky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Vk8wxzjygbZl77f-wFPmrQ-t50x50.jpg">](https://soundcloud.com/ghostdragonofficial/openformatmix1)
 
-**Artist**: DarkVitto 
+**Artist**: GhostDragon 
 
-**Track**: DarkVitto - FOLKY
+**Track**: highschool prom type beat [open format mix]
 
-Last updated at 7/18/2020, 1:11:02 PM
+Last updated at 7/18/2020, 1:12:02 PM
