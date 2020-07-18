@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CUKayzT3WPvydyKi-LZEUew-t50x50.png">](https://soundcloud.com/samplifire/slander-kompany-broken-ft-fknsyd-samplifire-remix?in=slanderofficial/sets/slander-kompany-broken-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3SNl1rSt8BIZ4wz-XBxvEA-t50x50.jpg">](https://soundcloud.com/mazaremusic/seven-lions-feat-tyler-graves-only-now-mazare-remix-1)
 
-**Artist**: Samplifire 
+**Artist**: Mazare 
 
-**Track**: Slander & Kompany - Broken Ft. fknsyd (Samplifire Remix)
+**Track**: Seven Lions (feat. Tyler Graves) - Only Now (Mazare Remix)
 
-Last updated at 7/18/2020, 1:39:03 PM
+Last updated at 7/18/2020, 1:40:02 PM
