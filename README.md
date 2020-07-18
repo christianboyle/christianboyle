@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4TzqHDtGapQ2fwWW-uvAj7A-t50x50.jpg">](https://soundcloud.com/moshemechant/get-that-w-2hunna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q00foNTaVUI4oglt-IAzxaw-t50x50.jpg">](https://soundcloud.com/brick-bandits-sxsw-2011/rated-r-theme-nightmarez-dj-tameil)
 
-**Artist**: MOSHÉ 
+**Artist**: Dj TaMeiL 
 
-**Track**: GET THAT W 2HUNNA
+**Track**: Rated R Theme (Nightmarez)- Dj Tameil
 
-Last updated at 7/18/2020, 1:43:02 PM
+Last updated at 7/18/2020, 1:44:02 PM
