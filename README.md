@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000590443394-oouxqw-t50x50.jpg">](https://soundcloud.com/flite/rl-grime-core-flite-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yEfrHqjL1dmDKiq-N6pqNw-t50x50.jpg">](https://soundcloud.com/insxnebeats/distant)
 
-**Artist**: Flite 
+**Artist**: insxne 
 
-**Track**: RL Grime - Core (Flite Bootleg)
+**Track**: Distant
 
-Last updated at 7/18/2020, 4:29:02 PM
+Last updated at 7/18/2020, 4:30:02 PM
