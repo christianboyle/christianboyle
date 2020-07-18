@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p6cRLKIpbLuNzWot-SmIHJw-t50x50.jpg">](https://soundcloud.com/wakaan/g-rex-tvboo-dweller-edmcom-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-34zs7k2z3S3cPElI-fQREJQ-t50x50.jpg">](https://soundcloud.com/mau5trap/keetz-espresso?in=keetzbeatz/sets/shade-ep)
 
-**Artist**: Wakaan 
+**Artist**: mau5trap 
 
-**Track**: G-REX, TVBOO - Dweller [EDM.com Premiere]
+**Track**: KEETZ - Espresso
 
-Last updated at 7/18/2020, 4:27:02 PM
+Last updated at 7/18/2020, 4:28:02 PM
