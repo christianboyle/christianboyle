@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZJm2mxt5HM9aXSq-Vyn6vQ-t50x50.jpg">](https://soundcloud.com/psychocybinrecords/sassabrassjuice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eo6gcxYipbQlaaoG-qzW3qg-t50x50.jpg">](https://soundcloud.com/riotten/wanna-go)
 
-**Artist**: Psychocybin Records 
+**Artist**: RIOT TEN 
 
-**Track**: Sassabrass - Juice
+**Track**: Riot Ten & Charly Jordan - Wanna Go (Original Mix)
 
-Last updated at 7/18/2020, 10:52:02 AM
+Last updated at 7/18/2020, 10:53:02 AM
