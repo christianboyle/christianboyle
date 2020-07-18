@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zuqvzVs2x2pf19W-E9aZlw-t50x50.jpg">](https://soundcloud.com/future-house-cloud/believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ltSFte1FX3Mbj1w3-l7Tnqw-t50x50.jpg">](https://soundcloud.com/whaleisland/aint-nobody-straight-in-la)
 
-**Artist**: Future House Cloud 
+**Artist**: Whale Island 
 
-**Track**: Mariline - Believe
+**Track**: Ain't Nobody Straight In LA
 
-Last updated at 7/18/2020, 7:05:02 AM
+Last updated at 7/18/2020, 7:06:02 AM
