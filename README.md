@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0pHfApCiEa8tBfTp-pIeeCw-t50x50.jpg">](https://soundcloud.com/hegemon/cakelife-all-i-see-feat-jon-spirit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CUKayzT3WPvydyKi-LZEUew-t50x50.png">](https://soundcloud.com/samplifire/slander-kompany-broken-ft-fknsyd-samplifire-remix?in=slanderofficial/sets/slander-kompany-broken-remixes)
 
-**Artist**: Hegemon Select 
+**Artist**: Samplifire 
 
-**Track**: CakeLife - All I See (feat. Jon Spirit)
+**Track**: Slander & Kompany - Broken Ft. fknsyd (Samplifire Remix)
 
-Last updated at 7/18/2020, 1:38:02 PM
+Last updated at 7/18/2020, 1:39:03 PM
