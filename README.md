@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjJnQgH3kqNOwt6S-mV6xEw-t50x50.jpg">](https://soundcloud.com/darby_music/dontsayursorryrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N9Z3QP9z6Q8tmicE-xYGOwg-t50x50.jpg">](https://soundcloud.com/equitycollective/falling)
 
-**Artist**: Darby 
+**Artist**: Equity 
 
-**Track**: Ellis - Don't Say Ur Sorry ft. Maribelle (Darby Remix)
+**Track**: enesai & ubi - falling
 
-Last updated at 7/18/2020, 3:03:02 PM
+Last updated at 7/18/2020, 3:04:02 PM
