@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyYgRjUVjxzA3V8n-yr1ybg-t50x50.jpg">](https://soundcloud.com/flamingoflamingoflamingo/flawed-mangoes-will-jay-fatal-flaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFJrlhPC6msI1YdZ-BODuFg-t50x50.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-9-feat-fairlane)
 
-**Artist**: Flawed Mangoes 
+**Artist**: Syence Experiments 
 
-**Track**: Flawed Mangoes & Will Jay - Fatal Flaw
+**Track**: Syence Lab: Volume 9 (feat. Fairlane)
 
-Last updated at 7/18/2020, 10:58:02 AM
+Last updated at 7/18/2020, 10:59:02 AM
