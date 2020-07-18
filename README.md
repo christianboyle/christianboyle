@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DmzBMk0IGy0yM4ti-IlvWDQ-t50x50.jpg">](https://soundcloud.com/trapnchill/eyezic-stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zDI5y9Rn15tP5Rs0-B5WZAw-t50x50.jpg">](https://soundcloud.com/novalotusmusic/astral-insight-poseidon)
 
-**Artist**: Trap N Chill 
+**Artist**: Nova Lotus Music 
 
-**Track**: Eyezic - Stay
+**Track**: Astral Insight - Poseidon
 
-Last updated at 7/18/2020, 7:12:02 AM
+Last updated at 7/18/2020, 7:13:02 AM
