@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ltSFte1FX3Mbj1w3-l7Tnqw-t50x50.jpg">](https://soundcloud.com/whaleisland/aint-nobody-straight-in-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNsoZ7UtCuoz3pSA-INgalQ-t50x50.jpg">](https://soundcloud.com/wonderlust/elephants-everywhere-cant-stay)
 
-**Artist**: Whale Island 
+**Artist**: Hegemon: Wonderlust 
 
-**Track**: Ain't Nobody Straight In LA
+**Track**: Elephants Everywhere - Can't Stay
 
-Last updated at 7/18/2020, 7:06:02 AM
+Last updated at 7/18/2020, 7:07:02 AM
