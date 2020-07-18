@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eo6gcxYipbQlaaoG-qzW3qg-t50x50.jpg">](https://soundcloud.com/riotten/wanna-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyYgRjUVjxzA3V8n-yr1ybg-t50x50.jpg">](https://soundcloud.com/flamingoflamingoflamingo/flawed-mangoes-will-jay-fatal-flaw)
 
-**Artist**: RIOT TEN 
+**Artist**: Flawed Mangoes 
 
-**Track**: Riot Ten & Charly Jordan - Wanna Go (Original Mix)
+**Track**: Flawed Mangoes & Will Jay - Fatal Flaw
 
-Last updated at 7/18/2020, 10:54:02 AM
+Last updated at 7/18/2020, 10:55:02 AM
