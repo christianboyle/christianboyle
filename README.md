@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glvOYePglOk67flB-yxrn4A-t50x50.jpg">](https://soundcloud.com/slimezmusic/annihilation?in=slimezmusic/sets/annihilation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZJm2mxt5HM9aXSq-Vyn6vQ-t50x50.jpg">](https://soundcloud.com/psychocybinrecords/sassabrassjuice)
 
-**Artist**: Slimez 
+**Artist**: Psychocybin Records 
 
-**Track**: Annihilation
+**Track**: Sassabrass - Juice
 
-Last updated at 7/18/2020, 7:22:02 AM
+Last updated at 7/18/2020, 10:49:02 AM
