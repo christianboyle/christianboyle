@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJRNB3ILK14NgrSl-6VNdOw-t50x50.jpg">](https://soundcloud.com/talegatemusic/filmore-other-girl-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wTnVXy5SP7ab000e-rD9xDQ-t50x50.jpg">](https://soundcloud.com/sablevalley/the-people)
 
-**Artist**: talegate 
+**Artist**: SABLE VALLEY 
 
-**Track**: Filmore - Other Girl (talegate remix)
+**Track**: 1991 - The People
 
-Last updated at 7/18/2020, 3:22:02 PM
+Last updated at 7/18/2020, 3:23:02 PM
