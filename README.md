@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C5P0iqU8EWYT8rTl-5SHZRg-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3heveRrVHLnExom-NDGf4g-t50x50.jpg">](https://soundcloud.com/rusuitor/lowderz-cityboyz-drop-that)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: [ SUITOR ] 
 
-**Track**: Roxal - Heaven (feat. KAIYS)
+**Track**: Lowderz & CityBoyz - Drop That [ FREE DOWNLOAD ]
 
-Last updated at 7/18/2020, 1:15:02 PM
+Last updated at 7/18/2020, 1:35:02 PM
