@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zof7rtFczPfgvBS3-U6MOqg-t50x50.jpg">](https://soundcloud.com/6xis/ko-luca)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glvOYePglOk67flB-yxrn4A-t50x50.jpg">](https://soundcloud.com/slimezmusic/annihilation?in=slimezmusic/sets/annihilation)
 
-**Artist**: xis 
+**Artist**: Slimez 
 
-**Track**: ko + luca
+**Track**: Annihilation
 
-Last updated at 7/18/2020, 7:20:02 AM
+Last updated at 7/18/2020, 7:21:02 AM
