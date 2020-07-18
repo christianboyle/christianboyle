@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2O50Wh6ipxj9sZI9-tPSG0w-t50x50.jpg">](https://soundcloud.com/tofuumusic/hoffey-love-is-wild-tofu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D0NyKX7YM6EU4V7h-D1ag0w-t50x50.jpg">](https://soundcloud.com/darkvitto/darkvitto-folky)
 
-**Artist**: tofû 
+**Artist**: DarkVitto 
 
-**Track**: HOFFEY - Love Is Wild (tofû Remix)
+**Track**: DarkVitto - FOLKY
 
-Last updated at 7/18/2020, 1:10:02 PM
+Last updated at 7/18/2020, 1:11:02 PM
