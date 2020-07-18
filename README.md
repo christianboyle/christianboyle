@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3heveRrVHLnExom-NDGf4g-t50x50.jpg">](https://soundcloud.com/rusuitor/lowderz-cityboyz-drop-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAmRGSZZ4N8j-0-t50x50.jpg">](https://soundcloud.com/lucydaydream/trouble-1)
 
-**Artist**: [ SUITOR ] 
+**Artist**: Lucy Daydream 
 
-**Track**: Lowderz & CityBoyz - Drop That [ FREE DOWNLOAD ]
+**Track**: Trouble
 
-Last updated at 7/18/2020, 1:36:02 PM
+Last updated at 7/18/2020, 1:37:02 PM
