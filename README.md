@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzPcNlDkOFn0eaA3-hrpm3A-t50x50.jpg">](https://soundcloud.com/imanumusic/bloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DmzBMk0IGy0yM4ti-IlvWDQ-t50x50.jpg">](https://soundcloud.com/trapnchill/eyezic-stay)
 
-**Artist**: IMANU 
+**Artist**: Trap N Chill 
 
-**Track**: Bloom
+**Track**: Eyezic - Stay
 
-Last updated at 7/18/2020, 7:09:02 AM
+Last updated at 7/18/2020, 7:10:02 AM
