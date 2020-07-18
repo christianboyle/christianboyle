@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WJhsTqZFu9ow1A2q-jIeyUw-t50x50.jpg">](https://soundcloud.com/tripzyleary/generation-z-album-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewYoeQ7B8CdU7Y98-GhutkA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/noise)
 
-**Artist**: Tripzy Leary 👽 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Generation Z (Album Mix)
+**Track**: VulKan - Noise
 
-Last updated at 7/18/2020, 6:49:02 PM
+Last updated at 7/18/2020, 6:50:02 PM
