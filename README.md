@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658095775-vhg3hx-t50x50.jpg">](https://soundcloud.com/oaf1/smile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000665034100-na7ri1-t50x50.jpg">](https://soundcloud.com/oaf1/wrong)
 
 **Artist**: oaf1 
 
-**Track**: its hard :/
+**Track**: doing it wrong w/ @dreamcache
 
-Last updated at 7/19/2020, 3:29:59 PM
+Last updated at 7/19/2020, 3:30:59 PM
