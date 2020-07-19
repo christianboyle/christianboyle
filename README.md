@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0YqxgLNlHNRsMDHa-6Hvu4A-t50x50.jpg">](https://soundcloud.com/xxxxzomb/lunar-glow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3HQNdwB4aioxqYe-0GG7KQ-t50x50.jpg">](https://soundcloud.com/oaf1/cigarette)
 
-**Artist**: ZØMB 
+**Artist**: oaf1 
 
-**Track**: Lunar Glow 🌙
+**Track**: cigarette
 
-Last updated at 7/19/2020, 3:24:59 PM
+Last updated at 7/19/2020, 3:25:59 PM
