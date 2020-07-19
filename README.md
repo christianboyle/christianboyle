@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAKYIWh2fU8LGjbl-IyZW9A-t50x50.jpg">](https://soundcloud.com/nurkomusic/trivecta-feat-fagin-leave-it-all-behind-nurko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WWjqMMlXOy8LfLer-4fPhyw-t50x50.jpg">](https://soundcloud.com/cloudymane/pop-it-drop-it-forthcoming-neon-nights-ep)
 
-**Artist**: NURKO💧 
+**Artist**: cloudymane 
 
-**Track**: Trivecta feat. Fagin - Leave It All Behind (NURKO Remix)
+**Track**: POP IT, DROP IT! [FORTHCOMING NEON NIGHTS E.P]
 
-Last updated at 7/19/2020, 3:14:59 PM
+Last updated at 7/19/2020, 3:15:59 PM
