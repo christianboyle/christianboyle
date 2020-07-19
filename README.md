@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UT5zXDxjxkKBGkr-fIIVYw-t50x50.jpg">](https://soundcloud.com/lilxyu/ok-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GHTjxHbvREan187C-lBwhbA-t50x50.jpg">](https://soundcloud.com/kidtrashpop/musictriedtoplayme)
 
-**Artist**: lil yu 
+**Artist**: KID TRASH 
 
-**Track**: ! ok !
+**Track**: The Music Tried To Play Me (prod. Mag)
 
-Last updated at 7/19/2020, 3:33:59 PM
+Last updated at 7/19/2020, 3:34:59 PM
