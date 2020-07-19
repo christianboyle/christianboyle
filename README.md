@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kgm9DVGfGWqV6jHK-MNGJbg-t50x50.jpg">](https://soundcloud.com/thisisclouds/stronghold?in=thisisclouds/sets/arkiv3-onslaught-ash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmRCEzRqmyPJdhYG-yjj0Xg-t50x50.jpg">](https://soundcloud.com/thisisclouds/hardline-nordwest-to-georgskreuz?in=thisisclouds/sets/arkiv3-onslaught-ash)
 
 **Artist**: Clouds 
 
-**Track**: Stronghold
+**Track**: Hardline «Nordwest To Georgskreuz»
 
-Last updated at 7/18/2020, 8:00:02 PM
+Last updated at 7/18/2020, 8:01:02 PM
