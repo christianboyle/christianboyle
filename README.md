@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3agysBPQej9OjNzy-Bnt3sg-t50x50.jpg">](https://soundcloud.com/vrg_music/blvk-sheep-wonksta-vrg-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jFYHmuekjELLnFEX-DTpK2g-t50x50.jpg">](https://soundcloud.com/apprel/velvet)
 
-**Artist**: VRG 
+**Artist**: Apprel 
 
-**Track**: BLVK SHEEP - WONKSTA (VRG REMIX)
+**Track**: velvet
 
-Last updated at 7/19/2020, 2:58:59 PM
+Last updated at 7/19/2020, 2:59:59 PM
