@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmRCEzRqmyPJdhYG-yjj0Xg-t50x50.jpg">](https://soundcloud.com/thisisclouds/hardline-nordwest-to-georgskreuz?in=thisisclouds/sets/arkiv3-onslaught-ash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9PhGdZ5pgUi5KIj-2AMLvA-t50x50.jpg">](https://soundcloud.com/thisisclouds/line-tyrant?in=thisisclouds/sets/arkiv3-onslaught-ash)
 
 **Artist**: Clouds 
 
-**Track**: Hardline «Nordwest To Georgskreuz»
+**Track**: Line Tyrant
 
-Last updated at 7/18/2020, 8:06:02 PM
+Last updated at 7/18/2020, 8:07:02 PM
