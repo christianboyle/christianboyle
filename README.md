@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2efLwvgbHpSMxs9-VPTyUw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/omen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Dx4bHvRv5EnbziL-2fEoVA-t50x50.jpg">](https://soundcloud.com/michael_mason/party4u)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: michael mason 
 
-**Track**: Duckworthsound x DatBoy - Omen
+**Track**: Charli XCX - Party 4 U (Michael Mason Remix)
 
-Last updated at 7/19/2020, 7:47:02 AM
+Last updated at 7/19/2020, 7:48:02 AM
