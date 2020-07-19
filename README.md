@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2O50Wh6ipxj9sZI9-tPSG0w-t50x50.jpg">](https://soundcloud.com/tofuumusic/hoffey-love-is-wild-tofu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YysC4JdktEJl31sC-w1KrSw-t50x50.jpg">](https://soundcloud.com/megalodon/hearing-shit)
 
-**Artist**: tofû 
+**Artist**: MEGALODON 
 
-**Track**: HOFFEY - Love Is Wild (tofû Remix)
+**Track**: Hearing Shit
 
-Last updated at 7/19/2020, 3:07:59 PM
+Last updated at 7/19/2020, 3:08:59 PM
