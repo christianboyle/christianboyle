@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UajU0rCD1ADcLidT-5RSXbQ-t50x50.jpg">](https://soundcloud.com/musichighcourt/dawave-deluded-souls?in=musichighcourt/sets/dawave-back-up-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AJXyY8YZQEYjd3qH-sTJT0Q-t50x50.jpg">](https://soundcloud.com/presentlylifted/gallium-iris)
 
-**Artist**: Music High Court (MHC) 
+**Artist**: Presently Lifted 
 
-**Track**: DaWave - Deluded Souls [MHC Release]
+**Track**: Gallium - Iris
 
-Last updated at 7/19/2020, 2:56:59 PM
+Last updated at 7/19/2020, 2:57:59 PM
