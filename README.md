@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-833WJ0nGmkzhKf3q-pi2NOw-t50x50.jpg">](https://soundcloud.com/zealaus/amf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UajU0rCD1ADcLidT-5RSXbQ-t50x50.jpg">](https://soundcloud.com/musichighcourt/dawave-deluded-souls?in=musichighcourt/sets/dawave-back-up-ep)
 
-**Artist**: Zeal 
+**Artist**: Music High Court (MHC) 
 
-**Track**: Madeon - All My Friends (Zeal Edit)
+**Track**: DaWave - Deluded Souls [MHC Release]
 
-Last updated at 7/19/2020, 2:55:59 PM
+Last updated at 7/19/2020, 2:56:59 PM
