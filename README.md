@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UsAfT9Vu61MFmYnu-NmQbNA-t50x50.jpg">](https://soundcloud.com/smashthehouse/shyghy-find-home-ft-akacia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbkiw5OcJpWq4w1C-OXz9Sg-t50x50.jpg">](https://soundcloud.com/ttapecut/tengaah-remix-cylriel-remix)
 
-**Artist**: Smash The House 
+**Artist**: tapecut 
 
-**Track**: ShyGhy - Find Home (ft. Akacia)
+**Track**: tengaah Remix (Cylriel remix)
 
-Last updated at 7/19/2020, 2:52:59 PM
+Last updated at 7/19/2020, 2:53:59 PM
