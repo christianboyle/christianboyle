@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9mJS3BWBsgHlKwI-MgN2nw-t50x50.jpg">](https://soundcloud.com/thisisclouds/clouds-hydro?in=thisisclouds/sets/arkiv3-onslaught-ash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kgm9DVGfGWqV6jHK-MNGJbg-t50x50.jpg">](https://soundcloud.com/thisisclouds/stronghold?in=thisisclouds/sets/arkiv3-onslaught-ash)
 
 **Artist**: Clouds 
 
-**Track**: Hydro
+**Track**: Stronghold
 
-Last updated at 7/18/2020, 7:55:02 PM
+Last updated at 7/18/2020, 7:56:02 PM
