@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3HQNdwB4aioxqYe-0GG7KQ-t50x50.jpg">](https://soundcloud.com/oaf1/cigarette)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMzzXD1YdgL6Lp4-a5IyAw-t50x50.jpg">](https://soundcloud.com/oaf1/think)
 
 **Artist**: oaf1 
 
-**Track**: cigarette
+**Track**: think abt it w/ppgcasper
 
-Last updated at 7/19/2020, 3:25:59 PM
+Last updated at 7/19/2020, 3:26:59 PM
