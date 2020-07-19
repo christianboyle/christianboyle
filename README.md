@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0I6we1TircqyyBx-6pBZPA-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf227)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uFzdsNEN8XQh6vu1-Pu42Cw-t50x50.jpg">](https://soundcloud.com/1spongy/expressions)
 
-**Artist**: Strange Fruits 
+**Artist**: King Spongy 
 
-**Track**: Koosen - Unforgettable
+**Track**: EXPRESSIONS
 
-Last updated at 7/19/2020, 2:06:59 PM
+Last updated at 7/19/2020, 2:07:59 PM
