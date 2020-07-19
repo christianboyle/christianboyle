@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjaqxYQovPspQJSF-kuX0xQ-t50x50.jpg">](https://soundcloud.com/svnsetwaves/deepshoq-aquatic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KImvfEVVDM17c0g3-9iwnUQ-t50x50.jpg">](https://soundcloud.com/trapicalmusic/likeiwould)
 
-**Artist**: SVNSET WAVES 
+**Artist**: Trapical Music 
 
-**Track**: Deep Shoq - Aquatic
+**Track**: ZAYN - Like I Would (Nakhu Remix)
 
-Last updated at 7/19/2020, 10:22:59 AM
+Last updated at 7/19/2020, 10:23:59 AM
