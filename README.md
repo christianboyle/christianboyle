@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C5P0iqU8EWYT8rTl-5SHZRg-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KImvfEVVDM17c0g3-9iwnUQ-t50x50.jpg">](https://soundcloud.com/trapicalmusic/likeiwould)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Trapical Music 
 
-**Track**: Roxal - Heaven (feat. KAIYS)
+**Track**: ZAYN - Like I Would (Nakhu Remix)
 
-Last updated at 7/19/2020, 3:01:59 PM
+Last updated at 7/19/2020, 3:02:59 PM
