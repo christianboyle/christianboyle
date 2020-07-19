@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1u0yiGRwCngEzlk-XoxgYg-t50x50.jpg">](https://soundcloud.com/thisisclouds/rustkammer-tooled?in=thisisclouds/sets/arkiv3-onslaught-ash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2efLwvgbHpSMxs9-VPTyUw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/omen)
 
-**Artist**: Clouds 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Rüstkammer «Tooled»
+**Track**: Duckworthsound x DatBoy - Omen
 
-Last updated at 7/18/2020, 8:15:02 PM
+Last updated at 7/19/2020, 7:47:02 AM
