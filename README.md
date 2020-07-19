@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ADAPJBzph9uon1b8-RM94gw-t50x50.jpg">](https://soundcloud.com/thisisclouds/raptors-seizure-squadron?in=thisisclouds/sets/arkiv3-onslaught-ash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BjRrQxV0AU4QA0S7-XYmhQA-t50x50.jpg">](https://soundcloud.com/thisisclouds/lifted?in=thisisclouds/sets/arkiv3-onslaught-ash)
 
 **Artist**: Clouds 
 
-**Track**: Raptors «Seizure Squadron»
+**Track**: Lifted
 
-Last updated at 7/18/2020, 7:44:02 PM
+Last updated at 7/18/2020, 7:45:02 PM
