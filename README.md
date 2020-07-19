@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KImvfEVVDM17c0g3-9iwnUQ-t50x50.jpg">](https://soundcloud.com/trapicalmusic/likeiwould)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p6cRLKIpbLuNzWot-SmIHJw-t50x50.jpg">](https://soundcloud.com/wakaan/g-rex-tvboo-dweller-edmcom-premiere)
 
-**Artist**: Trapical Music 
+**Artist**: Wakaan 
 
-**Track**: ZAYN - Like I Would (Nakhu Remix)
+**Track**: G-REX, TVBOO - Dweller [EDM.com Premiere]
 
-Last updated at 7/19/2020, 3:02:59 PM
+Last updated at 7/19/2020, 3:03:59 PM
