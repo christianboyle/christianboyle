@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WWjqMMlXOy8LfLer-4fPhyw-t50x50.jpg">](https://soundcloud.com/cloudymane/pop-it-drop-it-forthcoming-neon-nights-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fqwsjg0WqXT2nJyo-WHmGuw-t50x50.jpg">](https://soundcloud.com/xxxxzomb/hypersonic)
 
-**Artist**: cloudymane 
+**Artist**: ZØMB 
 
-**Track**: POP IT, DROP IT! [FORTHCOMING NEON NIGHTS E.P]
+**Track**: Hypersonic
 
-Last updated at 7/19/2020, 3:16:59 PM
+Last updated at 7/19/2020, 3:17:59 PM
