@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UsAfT9Vu61MFmYnu-NmQbNA-t50x50.jpg">](https://soundcloud.com/smashthehouse/shyghy-find-home-ft-akacia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjaqxYQovPspQJSF-kuX0xQ-t50x50.jpg">](https://soundcloud.com/svnsetwaves/deepshoq-aquatic)
 
-**Artist**: Smash The House 
+**Artist**: SVNSET WAVES 
 
-**Track**: ShyGhy - Find Home (ft. Akacia)
+**Track**: Deep Shoq - Aquatic
 
-Last updated at 7/19/2020, 7:50:02 AM
+Last updated at 7/19/2020, 10:22:59 AM
