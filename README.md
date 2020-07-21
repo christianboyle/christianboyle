@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-91K7vezfgf44rviG-udUgYw-t50x50.jpg">](https://soundcloud.com/hypernightlive/hypermix04-hyleo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cPnciyewBKxT9bHs-H1rCzw-t50x50.jpg">](https://soundcloud.com/welofi/ftrmnk-sunshine-avenue)
 
-**Artist**: hypernight 
+**Artist**: welofi 
 
-**Track**: HYPERMIX04: HYLEO
+**Track**: Ftrmnk - Sunshine Avenue [Welofi]
 
-Last updated at 7/21/2020, 1:55:59 PM
+Last updated at 7/21/2020, 1:56:59 PM
