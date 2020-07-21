@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pa7ZE0goNlmxPX0z-xTJl0g-t50x50.jpg">](https://soundcloud.com/nitepunk/shibui?in=nitepunk/sets/red-turbulence-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiLXnNpei6sHRfFo-r7KYmw-t50x50.jpg">](https://soundcloud.com/grazcore/live-on-communityplayground-2)
 
-**Artist**: Nitepunk 
+**Artist**: GRAZ 
 
-**Track**: Shibui [UKF premiere]
+**Track**: Graz - Live on commUNITY*PLAYground 2 [07.17.20]
 
-Last updated at 7/20/2020, 10:06:59 PM
+Last updated at 7/20/2020, 10:07:59 PM
