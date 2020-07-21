@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiLXnNpei6sHRfFo-r7KYmw-t50x50.jpg">](https://soundcloud.com/grazcore/live-on-communityplayground-2)
 
-**Artist**: GRAVEDGR 
+**Artist**: GRAZ 
 
-**Track**: MARIA (GRAVEDGR VIP)
+**Track**: Graz - Live on commUNITY*PLAYground 2 [07.17.20]
 
-Last updated at 7/21/2020, 4:13:59 PM
+Last updated at 7/21/2020, 4:14:59 PM
