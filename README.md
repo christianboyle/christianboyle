@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWpxqDea4JUHWSOj-SDEC0Q-t50x50.jpg">](https://soundcloud.com/bleuclair/makeyoumine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkgiPR15xr2Ei0qd-FsB7jQ-t50x50.jpg">](https://soundcloud.com/phzes-vip/zack-martino-feat-lenii-crave-u-phzes-remix)
 
-**Artist**: Bleu Clair 
+**Artist**: PHZES VIP 
 
-**Track**: Bleu Clair & Ytram - Make You Mine (feat. RA)
+**Track**: Zack Martino Feat. Lenii - Crave U (PHZES Remix)
 
-Last updated at 7/20/2020, 3:28:59 PM
+Last updated at 7/20/2020, 9:58:59 PM
