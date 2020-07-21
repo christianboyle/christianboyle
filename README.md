@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yr8vsgspWxdRegdK-lnV0AA-t50x50.jpg">](https://soundcloud.com/officialyula/somethingmore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymDgUKnnqnnvPmuD-Jv6O0g-t50x50.jpg">](https://soundcloud.com/user-602371465/eurocentral-w-nevaeh)
 
-**Artist**: YULA 
+**Artist**: ETHORN 
 
-**Track**: Something More
+**Track**: EUROCENTRAL w/ NEVAEH
 
-Last updated at 7/21/2020, 12:18:59 PM
+Last updated at 7/21/2020, 1:47:59 PM
