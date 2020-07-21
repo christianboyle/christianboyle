@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqxPCzZgZSjqmdXB-BgKbPg-t50x50.jpg">](https://soundcloud.com/rusuitor/evoxx-gustavo-koch-dont-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJ2tbWk7BXleZpI2-5T0U1w-t50x50.jpg">](https://soundcloud.com/motar-ecu/motar-cybertr0n-flappy-flute-free-dl)
 
-**Artist**: [ SUITOR ] 
+**Artist**: MOTAR #WOBBLYGNG 
 
-**Track**: Evoxx & Gustavo Koch - Don't You [ FREE DOWNLOAD ]
+**Track**: MOTAR & CYBERTR0N - FLAPPY FLUTE (CLIP)(FREE DL)
 
-Last updated at 7/21/2020, 1:52:59 PM
+Last updated at 7/21/2020, 1:53:59 PM
