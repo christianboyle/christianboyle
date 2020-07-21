@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cPnciyewBKxT9bHs-H1rCzw-t50x50.jpg">](https://soundcloud.com/welofi/ftrmnk-sunshine-avenue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
 
-**Artist**: welofi 
+**Artist**: GRAVEDGR 
 
-**Track**: Ftrmnk - Sunshine Avenue [Welofi]
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 7/21/2020, 1:56:59 PM
+Last updated at 7/21/2020, 1:57:59 PM
