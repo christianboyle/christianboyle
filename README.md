@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiLXnNpei6sHRfFo-r7KYmw-t50x50.jpg">](https://soundcloud.com/grazcore/live-on-communityplayground-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WdWgwXSjYmywwAuq-k1O3ng-t50x50.jpg">](https://soundcloud.com/shewassilver/back-to-me-featuring-glasscat-alternative-version)
 
-**Artist**: GRAZ 
+**Artist**: SHE WAS SILVER 
 
-**Track**: Graz - Live on commUNITY*PLAYground 2 [07.17.20]
+**Track**: back to me (featuring glasscat) (alternative version)
 
-Last updated at 7/21/2020, 4:35:59 PM
+Last updated at 7/21/2020, 9:47:59 PM
