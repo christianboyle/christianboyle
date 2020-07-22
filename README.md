@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nel7wzSyTHUofNRc-Hp8Vfw-t50x50.jpg">](https://soundcloud.com/slflssmusic/slflss-presents-15-minute-feels-vol-04)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LDXdID9R13y9GFsH-8uzBkg-t50x50.jpg">](https://soundcloud.com/goldroom/goldroom-moontower-guess-im-jaded-1)
 
-**Artist**: SLFLSS 
+**Artist**: Goldroom 
 
-**Track**: SLFLSS Presents: 15 Minute Feels Vol. 4
+**Track**: Goldroom & Moontower - Guess I’m Jaded
 
-Last updated at 7/22/2020, 8:24:59 AM
+Last updated at 7/22/2020, 8:25:59 AM
