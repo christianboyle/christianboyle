@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dJuyicpMzTArXCQG-oYFPFQ-t50x50.jpg">](https://soundcloud.com/dreamcache/5stars)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NmlOEijxi20i89kN-1SVkqQ-t50x50.jpg">](https://soundcloud.com/icy-9-productions/capoxxo-perfect-ft-oaf1-dreamcache-dxsh)
 
-**Artist**: dreamcache 
+**Artist**: icy#9 
 
-**Track**: 5stars *PROD. CHARGE + 5V*
+**Track**: capoxxo ~ perfect ft. oaf1 & dreamcache [+ dxsh] VIDEO IN DESCRIPTION
 
-Last updated at 07/22/2020 13:27
+Last updated at 07/22/2020 13:30
