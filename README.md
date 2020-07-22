@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuCrvy7H1QRzuTcF-M3pYMg-t50x50.jpg">](https://soundcloud.com/1glaive/sticks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWWHL1cl7TSs8pNm-XjnPjA-t50x50.jpg">](https://soundcloud.com/awe/luvit)
 
-**Artist**: glaive 
+**Artist**: AWE 
 
-**Track**: sticks (p. heartdept)
+**Track**: Luvit
 
-Last updated at 7/22/2020, 9:19:59 AM
+Last updated at 7/22/2020, 9:20:59 AM
