@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LDXdID9R13y9GFsH-8uzBkg-t50x50.jpg">](https://soundcloud.com/goldroom/goldroom-moontower-guess-im-jaded-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vfoVh6jEsuSkpev-xoXG4A-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cid-presents-night-service-only-radio-episode-075)
 
-**Artist**: Goldroom 
+**Artist**: Night Service Only 
 
-**Track**: Goldroom & Moontower - Guess I’m Jaded
+**Track**: CID Presents: Night Service Only Radio: Episode 075
 
-Last updated at 7/22/2020, 8:28:59 AM
+Last updated at 7/22/2020, 8:29:59 AM
