@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bkX7L2qyvmxSzkMi-S3pB6A-t50x50.jpg">](https://soundcloud.com/beatlabradio/eastghost-exclusive-mix-beat-lab-radio-300)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jJVIGK6LYDziFDJ-6cjhxA-t50x50.jpg">](https://soundcloud.com/retrocanon/digital-foundations-w-burtdogg?in=retrocanon/sets/keygens)
 
-**Artist**: Beat Lab Radio 
+**Artist**: retrocanon 
 
-**Track**: EASTGHOST - Exclusive Mix - Beat Lab Radio 300
+**Track**: Digital Foundations w/ BurtDogg
 
-Last updated at 7/21/2020, 10:07:59 PM
+Last updated at 7/21/2020, 10:09:00 PM
