@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TF2rufzVhh47kneC-1EewTQ-t50x50.jpg">](https://soundcloud.com/teardropdigital/oaf1-fuck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Pww1NgVjNyMSx73-cxSx8A-t50x50.jpg">](https://soundcloud.com/i9bonsai/globabee)
 
-**Artist**: teardrop digital💧 
+**Artist**: i9bonsai 
 
-**Track**: oaf1 - fuck it  ima  die    :  p
+**Track**: globabee,, glo glo [prod. boka]
 
-Last updated at 07/22/2020 13:35
+Last updated at 07/22/2020 13:38
