@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxm4McakPxUdukbH-lDPUGg-t50x50.jpg">](https://soundcloud.com/bbnomula/astrology-prod-lentra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMzzXD1YdgL6Lp4-a5IyAw-t50x50.jpg">](https://soundcloud.com/oaf1/think)
 
-**Artist**: bbno$ 
+**Artist**: oaf1 
 
-**Track**: astrology (prod. lentra)
+**Track**: think abt it w/ppgcasper
 
-Last updated at 7/22/2020, 1:17:24 PM
+Last updated at 07/22/2020 13:25
