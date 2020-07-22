@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t50x50.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
 
-**Artist**: Gen1910 
+**Artist**: GRAVEDGR 
 
-**Track**: Current Value - Dark Rain
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 7/22/2020, 9:28:59 AM
+Last updated at 7/22/2020, 12:34:30 PM
