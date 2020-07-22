@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Pww1NgVjNyMSx73-cxSx8A-t50x50.jpg">](https://soundcloud.com/i9bonsai/globabee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
 
-**Artist**: i9bonsai 
+**Artist**: GRAVEDGR 
 
-**Track**: globabee,, glo glo [prod. boka]
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 07/22/2020 13:38
+Last updated at 07/22/2020 13:40
