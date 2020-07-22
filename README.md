@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vfoVh6jEsuSkpev-xoXG4A-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cid-presents-night-service-only-radio-episode-075)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxm4McakPxUdukbH-lDPUGg-t50x50.jpg">](https://soundcloud.com/bbnomula/astrology-prod-lentra)
 
-**Artist**: Night Service Only 
+**Artist**: bbno$ 
 
-**Track**: CID Presents: Night Service Only Radio: Episode 075
+**Track**: astrology (prod. lentra)
 
-Last updated at 7/22/2020, 8:33:59 AM
+Last updated at 7/22/2020, 8:44:59 AM
