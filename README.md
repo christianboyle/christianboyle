@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShS0zzqy0SZ8ywQy-nt8sFg-t50x50.jpg">](https://soundcloud.com/rynx/hold-on-so-dope-remix?in=itssodope/sets/hold-on-so-dope-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9KhOUJX0twaBydgn-JgzoDQ-t50x50.jpg">](https://soundcloud.com/anthonysceam/youregonnaloveme)
 
-**Artist**: Rynx 
+**Artist**: Anthony Sceam 
 
-**Track**: Hold On (So Dope Remix)
+**Track**: Eliminate - You're Gonna Love Me Ft. Leah Culver (Anthony Sceam Remix)
 
-Last updated at 7/21/2020, 9:50:59 PM
+Last updated at 7/21/2020, 9:51:59 PM
