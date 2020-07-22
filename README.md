@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jJVIGK6LYDziFDJ-6cjhxA-t50x50.jpg">](https://soundcloud.com/retrocanon/bonus-track-code-tears-w?in=retrocanon/sets/keygens)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YQOFt4AB2Brx-0-t50x50.jpg">](https://soundcloud.com/notdava/asos-1)
 
-**Artist**: retrocanon 
+**Artist**: Dava 
 
-**Track**: (Bonus Track) Code Tears w/ Outby16
+**Track**: ASOS
 
-Last updated at 7/21/2020, 10:26:59 PM
+Last updated at 7/22/2020, 8:18:59 AM
