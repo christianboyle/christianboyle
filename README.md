@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9KhOUJX0twaBydgn-JgzoDQ-t50x50.jpg">](https://soundcloud.com/anthonysceam/youregonnaloveme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bkX7L2qyvmxSzkMi-S3pB6A-t50x50.jpg">](https://soundcloud.com/beatlabradio/eastghost-exclusive-mix-beat-lab-radio-300)
 
-**Artist**: Anthony Sceam 
+**Artist**: Beat Lab Radio 
 
-**Track**: Eliminate - You're Gonna Love Me Ft. Leah Culver (Anthony Sceam Remix)
+**Track**: EASTGHOST - Exclusive Mix - Beat Lab Radio 300
 
-Last updated at 7/21/2020, 9:51:59 PM
+Last updated at 7/21/2020, 9:52:59 PM
