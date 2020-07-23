@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000557764290-8jkqmz-t50x50.jpg">](https://soundcloud.com/edm-family-remixes/ed-sheeran-justin-bieber-i-dont-care-shad-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYSlhkL6QpQTMQPp-9S06zw-t50x50.jpg">](https://soundcloud.com/bankrolhayden/rich-bitch)
 
-**Artist**: EDM FAMILY Remixes 
+**Artist**: BANKROL HAYDEN 
 
-**Track**: Ed Sheeran & Justin Bieber - I Don't Care (Shad Remix) [FREE DOWNLOAD]
+**Track**: Rich Bitch
 
-Last updated at 07/23/2020 14:54
+Last updated at 07/23/2020 14:58
