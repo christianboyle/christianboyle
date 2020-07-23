@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1rMDdMXk4g1SggL-g54Yzg-t50x50.jpg">](https://soundcloud.com/soaverecords/the-nghbrs-phzes-if-i-stay?in=phzes/sets/the-nghbrs-phzes-if-i-stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zGGXYy9pdF943Aku-7fjqMg-t50x50.jpg">](https://soundcloud.com/phzes/telykast-cappa-come-back-phzes-remix-1)
 
-**Artist**: Soave 
+**Artist**: PHZES 
 
-**Track**: The NGHBRS & PHZES - If I Stay
+**Track**: TELYKast & Cappa - Come Back (PHZES Remix)
 
-Last updated at 07/23/2020 17:21
+Last updated at 07/23/2020 17:23
