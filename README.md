@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cso3RRgSQZe5b5Dv-rixpeg-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/cabin-fever-anti-nightcore-whore-mix-jaden-smith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BjZ5sruL5o9Aesst-vBI11w-t50x50.jpg">](https://soundcloud.com/ekkomane/ekko-the-silent-angel-cries-clip-limited)
 
-**Artist**: I AM ROCK NIGHTCØRE WHØRE 
+**Artist**: ekko 
 
-**Track**: Cabin Fever [Anti-NIGHTCØRE WHØRE MIX] Jaden Smith
+**Track**: ekko - the silent angel cries (clip) (limited)
 
-Last updated at 07/23/2020 09:35
+Last updated at 07/23/2020 09:36
