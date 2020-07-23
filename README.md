@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6RNVBWTtlZ0xgEp-GzPLqA-t50x50.jpg">](https://soundcloud.com/harriscole/heyseptember)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5uBf3fqqIC29ztL7-0CkkTQ-t50x50.jpg">](https://soundcloud.com/tepno/sippin-on-feelings-francis-vi-remix)
 
-**Artist**: harris cole 
+**Artist**: Tep No 
 
-**Track**: hey, september
+**Track**: Sippin' On Feelings (Francis VI Remix)
 
-Last updated at 07/23/2020 11:24
+Last updated at 07/23/2020 13:41
