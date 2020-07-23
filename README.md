@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KXni2QChvfW5lzey-oA3aYQ-t50x50.jpg">](https://soundcloud.com/itsmsft/chimes-msft-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxQWHJV8NOts-0-t50x50.jpg">](https://soundcloud.com/charlixcx/detonate)
 
-**Artist**: msft. 
+**Artist**: charlixcx 
 
-**Track**: hudson mohawke - chimes (msft remix)
+**Track**: detonate
 
-Last updated at 07/23/2020 14:26
+Last updated at 07/23/2020 14:29
