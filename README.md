@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000077339258-a3v8k6-t50x50.jpg">](https://soundcloud.com/monstercat/aero-chord-surface)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B7H2y6rMO9AOaLgu-5N2OkA-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/time-to-talk-time-to-talk-ft-georgia-michel-ncs-release)
 
-**Artist**: Monstercat 
+**Artist**: NCS 
 
-**Track**: Aero Chord - Surface
+**Track**: Time To Talk - Time To Talk Ft. Georgia Michel [NCS Release]
 
-Last updated at 07/23/2020 11:21
+Last updated at 07/23/2020 11:22
