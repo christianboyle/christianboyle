@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYSlhkL6QpQTMQPp-9S06zw-t50x50.jpg">](https://soundcloud.com/bankrolhayden/rich-bitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t50x50.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix)
 
-**Artist**: BANKROL HAYDEN 
+**Artist**: FGSN 
 
-**Track**: Rich Bitch
+**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
 
-Last updated at 07/23/2020 14:58
+Last updated at 07/23/2020 15:00
