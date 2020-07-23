@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCMRMLRXRRyoUC0V-huzZag-t50x50.jpg">](https://soundcloud.com/djbrisk/brisk-x-s3rl-live-2nd-may-2020-twitch-worldexclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxm4McakPxUdukbH-lDPUGg-t50x50.jpg">](https://soundcloud.com/bbnomula/astrology-prod-lentra)
 
-**Artist**: djbrisk 
+**Artist**: bbno$ 
 
-**Track**: Brisk x S3RL live, 2nd May 2020 #Twitch #WorldExclusive
+**Track**: astrology (prod. lentra)
 
-Last updated at 07/22/2020 15:47
+Last updated at 07/22/2020 20:14
