@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qATbsQdsACh4JSQy-hgvFJg-t50x50.jpg">](https://soundcloud.com/hypasonic-1/hypasonic-true-love-never-dies-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyF9QUzYoy673TrR-RutmKw-t50x50.jpg">](https://soundcloud.com/eatermusic/more-you-know)
 
-**Artist**: SQUAD-E 
+**Artist**: Eater 
 
-**Track**: HYPASONIC True Love Never Dies (master)
+**Track**: Eater - More You Know
 
-Last updated at 07/22/2020 20:52
+Last updated at 07/22/2020 20:55
