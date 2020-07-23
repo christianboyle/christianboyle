@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000077339258-a3v8k6-t50x50.jpg">](https://soundcloud.com/monstercat/aero-chord-surface)
 
-**Artist**: BLVD. 
+**Artist**: Monstercat 
 
-**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
+**Track**: Aero Chord - Surface
 
-Last updated at 07/23/2020 11:20
+Last updated at 07/23/2020 11:21
