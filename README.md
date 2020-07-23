@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShS0zzqy0SZ8ywQy-nt8sFg-t50x50.jpg">](https://soundcloud.com/rynx/hold-on-so-dope-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
 
-**Artist**: Rynx 
+**Artist**: PHZES 
 
-**Track**: Hold On (So Dope Remix)
+**Track**: PHZED & Confused Mix 04 - July 4th Mix
 
-Last updated at 07/23/2020 15:46
+Last updated at 07/23/2020 15:51
