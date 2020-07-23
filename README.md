@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cygBznATFrcvJM7u-6R0ygA-t50x50.jpg">](https://soundcloud.com/akiramusicau/riot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
 
-**Artist**: AKIRA [AU] 
+**Artist**: BLVD. 
 
-**Track**: RIOT
+**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
 
-Last updated at 07/23/2020 11:15
+Last updated at 07/23/2020 11:20
