@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zGGXYy9pdF943Aku-7fjqMg-t50x50.jpg">](https://soundcloud.com/phzes/telykast-cappa-come-back-phzes-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwDGJ6EKiOSNZChx-nAqNIA-t50x50.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-7-feat-phzes)
 
-**Artist**: PHZES 
+**Artist**: Syence Experiments 
 
-**Track**: TELYKast & Cappa - Come Back (PHZES Remix)
+**Track**: Syence Lab: Volume 7 (feat. PHZES)
 
-Last updated at 07/23/2020 17:23
+Last updated at 07/23/2020 17:27
