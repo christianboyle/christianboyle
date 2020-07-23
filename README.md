@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BjZ5sruL5o9Aesst-vBI11w-t50x50.jpg">](https://soundcloud.com/ekkomane/ekko-the-silent-angel-cries-clip-limited)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000191075096-kgmyj2-t50x50.jpg">](https://soundcloud.com/gen1910/black-sun-empire-eraser)
 
-**Artist**: ekko 
+**Artist**: Gen1910 
 
-**Track**: ekko - the silent angel cries (clip) (limited)
+**Track**: Black Sun Empire - Eraser
 
-Last updated at 07/23/2020 09:36
+Last updated at 07/23/2020 09:37
