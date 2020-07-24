@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1LqQnY2blWoBnNPy-gv8Pxg-t50x50.jpg">](https://soundcloud.com/terminalunderground/alliwant?in=terminalunderground/sets/membersonlyvol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MM3A8YHVYkP0rOnA-SYQM7w-t50x50.jpg">](https://soundcloud.com/bitbird/duskus-no-im-not-yes-i-am?in=bitbird/sets/duskus-rising)
 
-**Artist**: Terminal Underground 
+**Artist**: bitbird 
 
-**Track**: Dave Summit - All I Want
+**Track**: Duskus - No I’m Not, Yes I Am
 
-Last updated at 07/24/2020 13:58
+Last updated at 07/24/2020 14:19
