@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MM3A8YHVYkP0rOnA-SYQM7w-t50x50.jpg">](https://soundcloud.com/bitbird/duskus-subtact-infinity?in=bitbird/sets/duskus-rising)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePoowKTBjdkgC9aB-y9toTg-t50x50.jpg">](https://soundcloud.com/embrz/echoes-1)
 
-**Artist**: bitbird 
+**Artist**: EMBRZ 
 
-**Track**: Duskus & Subtact - Infinity
+**Track**: Echoes
 
-Last updated at 07/24/2020 14:28
+Last updated at 07/24/2020 14:32
