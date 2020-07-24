@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h51rzROMoOevubH0-XPCAhw-t50x50.jpg">](https://soundcloud.com/phzes/phzes-confused-mix-03-quarantine-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFJrlhPC6msI1YdZ-BODuFg-t50x50.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-9-feat-fairlane)
 
-**Artist**: PHZES 
+**Artist**: Syence Experiments 
 
-**Track**: PHZED & Confused Mix 03 - Quarantine Mix
+**Track**: Syence Lab: Volume 9 (feat. Fairlane)
 
-Last updated at 07/24/2020 15:11
+Last updated at 07/24/2020 15:38
