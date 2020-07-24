@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTzhY1Nuz4iCBaKi-8ybpFg-t50x50.jpg">](https://soundcloud.com/ayyofree/yonoh-sounds-noize-1?in=ayyofree/sets/yonoh-sounds-noize-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUDQ5ul4gDmfkyRP-IZ8hJw-t50x50.jpg">](https://soundcloud.com/goldchildmusic/looney-bin-w-episcool)
 
-**Artist**: AY YO FREE! 
+**Artist**: golden child 
 
-**Track**: Yonoh - Sounds & Noize
+**Track**: looney bin w/ episcool (THANKS FOR 5K!!)
 
-Last updated at 07/24/2020 13:42
+Last updated at 07/24/2020 13:47
