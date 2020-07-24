@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imH1zbPrpEhulb9U-E5Vpzg-t50x50.jpg">](https://soundcloud.com/slowmagic/somewhere-feat-woven-in-hiatus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNW2stJBE04shrJC-vRiYSw-t50x50.jpg">](https://soundcloud.com/thebronzewhale/devilish)
 
-**Artist**: Slow Magic 
+**Artist**: Bronze Whale 
 
-**Track**: Somewhere (feat. Woven In Hiatus)
+**Track**: Bronze Whale x Poles - Devilish
 
-Last updated at 07/24/2020 15:03
+Last updated at 07/24/2020 15:07
