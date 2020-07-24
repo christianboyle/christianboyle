@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRM9tGZhLymCvTiq-KX4QFw-t50x50.jpg">](https://soundcloud.com/slowroastrecs/2-rebel-xavage-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODdXSGTjX0RgjuEB-GXyviQ-t50x50.jpg">](https://soundcloud.com/garziotr/sawulastweek-prod-kid-greer)
 
-**Artist**: Slow Roast Records 
+**Artist**: GARZI 
 
-**Track**: 2¢ - Rebel (XAVAGE Remix)
+**Track**: sawulastweek (prod. kid greer)
 
-Last updated at 07/24/2020 14:44
+Last updated at 07/24/2020 14:47
