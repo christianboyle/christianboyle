@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODdXSGTjX0RgjuEB-GXyviQ-t50x50.jpg">](https://soundcloud.com/garziotr/sawulastweek-prod-kid-greer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Ga2waOOvbSZ0t-xb5JrA-t50x50.jpg">](https://soundcloud.com/bitbird/khamsin-about-us-ft-kidwaste-and-manu-dia)
 
-**Artist**: GARZI 
+**Artist**: bitbird 
 
-**Track**: sawulastweek (prod. kid greer)
+**Track**: Khamsin - About Us (ft. Kidswaste and Manu Dia)
 
-Last updated at 07/24/2020 14:47
+Last updated at 07/24/2020 14:48
