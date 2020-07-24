@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXyL23Bdbtr1sZ2X-szWzhA-t50x50.jpg">](https://soundcloud.com/traptownrecords/red-pill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SK9vScfKOGwZjIUV-2cUZjg-t50x50.jpg">](https://soundcloud.com/kafuwaves/red-coffee-1)
 
-**Artist**: Trap Town Records 
+**Artist**: Ka Fu 
 
-**Track**: LUVIC, Kini Solana - Red Pill
+**Track**: Red Coffee
 
-Last updated at 07/24/2020 07:42
+Last updated at 07/24/2020 07:43
