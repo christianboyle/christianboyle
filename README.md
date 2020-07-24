@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5dnWTtcvmtvMT33U-xyzPoA-t50x50.jpg">](https://soundcloud.com/madnap/loveisawake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rb7qGqJXHsSMxoAP-F511BQ-t50x50.jpg">](https://soundcloud.com/covexmusic/cant-make-u-change)
 
-**Artist**: Madnap 
+**Artist**: COVEX 
 
-**Track**: Love Is Awake (ft. Late Night Alumni)
+**Track**: Can't Make U Change (with 92 Attika)
 
-Last updated at 07/24/2020 14:56
+Last updated at 07/24/2020 14:59
