@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAmRGSZZ4N8j-0-t50x50.jpg">](https://soundcloud.com/lucydaydream/trouble-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h51rzROMoOevubH0-XPCAhw-t50x50.jpg">](https://soundcloud.com/phzes/phzes-confused-mix-03-quarantine-mix)
 
-**Artist**: Lucy Daydream 
+**Artist**: PHZES 
 
-**Track**: Trouble
+**Track**: PHZED & Confused Mix 03 - Quarantine Mix
 
-Last updated at 07/24/2020 15:10
+Last updated at 07/24/2020 15:11
