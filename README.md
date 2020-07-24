@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5dnWTtcvmtvMT33U-xyzPoA-t50x50.jpg">](https://soundcloud.com/madnap/loveisawake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn6izW792f1p3HnA-EKfrxQ-t50x50.jpg">](https://soundcloud.com/itsrlstne/iytslmk)
 
-**Artist**: Madnap 
+**Artist**: rlstne (jeyre) 
 
-**Track**: Love Is Awake (ft. Late Night Alumni)
+**Track**: the 1975 - if youre too shy (jeyre remix)
 
-Last updated at 07/24/2020 14:36
+Last updated at 07/24/2020 14:40
