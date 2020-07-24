@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNW2stJBE04shrJC-vRiYSw-t50x50.jpg">](https://soundcloud.com/thebronzewhale/devilish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAmRGSZZ4N8j-0-t50x50.jpg">](https://soundcloud.com/lucydaydream/trouble-1)
 
-**Artist**: Bronze Whale 
+**Artist**: Lucy Daydream 
 
-**Track**: Bronze Whale x Poles - Devilish
+**Track**: Trouble
 
-Last updated at 07/24/2020 15:07
+Last updated at 07/24/2020 15:10
