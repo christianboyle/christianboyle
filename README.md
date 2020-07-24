@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rb7qGqJXHsSMxoAP-F511BQ-t50x50.jpg">](https://soundcloud.com/covexmusic/cant-make-u-change)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imH1zbPrpEhulb9U-E5Vpzg-t50x50.jpg">](https://soundcloud.com/slowmagic/somewhere-feat-woven-in-hiatus)
 
-**Artist**: COVEX 
+**Artist**: Slow Magic 
 
-**Track**: Can't Make U Change (with 92 Attika)
+**Track**: Somewhere (feat. Woven In Hiatus)
 
-Last updated at 07/24/2020 14:59
+Last updated at 07/24/2020 15:03
