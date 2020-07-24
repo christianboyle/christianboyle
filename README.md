@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9zXvFAuWz7ayrO1-cLGHxg-t50x50.jpg">](https://soundcloud.com/seal-network/017takeontheworld?in=seal-playlists/sets/somero-take-on-the-world-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Ga2waOOvbSZ0t-xb5JrA-t50x50.jpg">](https://soundcloud.com/bitbird/khamsin-about-us-ft-kidwaste-and-manu-dia)
 
-**Artist**: Seal Network 
+**Artist**: bitbird 
 
-**Track**: Somero - Take On The World
+**Track**: Khamsin - About Us (ft. Kidswaste and Manu Dia)
 
-Last updated at 07/24/2020 13:18
+Last updated at 07/24/2020 13:20
