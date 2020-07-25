@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4IHkDYyXqcCTGqF-3FxvVw-t50x50.jpg">](https://soundcloud.com/eaterextras/minesweepa-fake-id-eater-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xK5t0NvcnzuThRBQ-GAiDig-t50x50.jpg">](https://soundcloud.com/ssteev/intro-wdowntime)
 
-**Artist**: Eater Extras 
+**Artist**: $teev 
 
-**Track**: Minesweepa - Fake ID (Eater Bootleg)
+**Track**: Intro w/downtime
 
-Last updated at 07/25/2020 16:10
+Last updated at 07/25/2020 16:11
