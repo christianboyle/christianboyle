@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nfhzl40drVx407CV-3yBhQQ-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-434-feat-m-project)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cLBDozsxqmqawSVt-IGNtog-t50x50.jpg">](https://soundcloud.com/offmenutrecords/decent-damage-swaggin)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: OFF ME NUT RECORDS 
 
-**Track**: KTRA Episode 434 feat. M-Project
+**Track**: Decent Damage - Swaggin'
 
-Last updated at 07/25/2020 09:16
+Last updated at 07/25/2020 09:37
