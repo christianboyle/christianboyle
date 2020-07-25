@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cLBDozsxqmqawSVt-IGNtog-t50x50.jpg">](https://soundcloud.com/offmenutrecords/decent-damage-swaggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GYJxBEnGarxjZVgS-hGw7Ew-t50x50.jpg">](https://soundcloud.com/offmenutrecords/dr-oscillator-the-danks-preview)
 
 **Artist**: OFF ME NUT RECORDS 
 
-**Track**: Decent Damage - Swaggin'
+**Track**: Dr Oscillator - The Danks (Preview)
 
-Last updated at 07/25/2020 09:37
+Last updated at 07/25/2020 09:40
