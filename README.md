@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8ruL7zyDV9vmzX8-485fTg-t50x50.png">](https://soundcloud.com/rinsefm/hixxy120520)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000145963939-323fpe-t50x50.jpg">](https://soundcloud.com/offmenutrecords/dave-skywalker-the-track-with-the-long-note?in=offmenutrecords/sets/dave-skywalker-everybody-has)
 
-**Artist**: Rinse FM 
+**Artist**: OFF ME NUT RECORDS 
 
-**Track**: Hixxy with Dave Skywalker & Alex Prospect - 12 May 2020
+**Track**: Dave Skywalker - The Track With The Long Note
 
-Last updated at 07/25/2020 13:43
+Last updated at 07/25/2020 13:44
