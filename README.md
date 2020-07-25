@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xK5t0NvcnzuThRBQ-GAiDig-t50x50.jpg">](https://soundcloud.com/ssteev/intro-wdowntime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lzy1WHRTKW531MiB-X078Tw-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf231)
 
-**Artist**: $teev 
+**Artist**: Strange Fruits 
 
-**Track**: Intro w/downtime
+**Track**: Avocuddle - Baby I'm Yours
 
-Last updated at 07/25/2020 16:11
+Last updated at 07/25/2020 16:12
