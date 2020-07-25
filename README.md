@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lzy1WHRTKW531MiB-X078Tw-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf231)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIXQbPlrBgNa5isk-UG2dUg-t50x50.jpg">](https://soundcloud.com/gothjafar/heav3n)
 
-**Artist**: Strange Fruits 
+**Artist**: ༺goth jafar༻ 
 
-**Track**: Avocuddle - Baby I'm Yours
+**Track**: heav3n suspended: the re-up
 
-Last updated at 07/25/2020 16:12
+Last updated at 07/25/2020 16:13
