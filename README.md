@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000145963943-0tq64t-t50x50.jpg">](https://soundcloud.com/offmenutrecords/dave-skywalker-send-for-ali?in=offmenutrecords/sets/dave-skywalker-everybody-has)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8ruL7zyDV9vmzX8-485fTg-t50x50.png">](https://soundcloud.com/rinsefm/hixxy120520)
 
-**Artist**: OFF ME NUT RECORDS 
+**Artist**: Rinse FM 
 
-**Track**: Dave Skywalker - Send For Ali
+**Track**: Hixxy with Dave Skywalker & Alex Prospect - 12 May 2020
 
-Last updated at 07/25/2020 13:40
+Last updated at 07/25/2020 13:43
