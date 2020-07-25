@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1UhbUfoN0zUT49Pz-Jz3xeA-t50x50.jpg">](https://soundcloud.com/auggievelarde/inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4IHkDYyXqcCTGqF-3FxvVw-t50x50.jpg">](https://soundcloud.com/eaterextras/minesweepa-fake-id-eater-bootleg)
 
-**Artist**: Auggie Velarde 
+**Artist**: Eater Extras 
 
-**Track**: Inside
+**Track**: Minesweepa - Fake ID (Eater Bootleg)
 
-Last updated at 07/25/2020 16:09
+Last updated at 07/25/2020 16:10
