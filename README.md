@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b0jVmLvjUyR7LLHo-fVtfWg-t50x50.jpg">](https://soundcloud.com/nationalhypeservice/dr-cryptic-x-sekt-87-off-me?in=nationalhypeservice/sets/nhs-thursdays-010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170333560-o6hom9-t50x50.jpg">](https://soundcloud.com/offmenutrecords/phatworld-gamey-pranga?in=offmenutrecords/sets/spinnin-out-album)
 
-**Artist**: National Hype Service 
+**Artist**: OFF ME NUT RECORDS 
 
-**Track**: Dr Cryptic X Sekt - 87 - Off Me Nut Takeover
+**Track**: Phatworld - Gamey Pranga
 
-Last updated at 07/25/2020 09:48
+Last updated at 07/25/2020 10:24
