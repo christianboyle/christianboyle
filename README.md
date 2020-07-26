@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsrVwN4QaOiBeFIp-LvdHNg-t50x50.jpg">](https://soundcloud.com/pendarr/c20-pendarr-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ZmUCU76p3n917kT-vO86Dg-t50x50.jpg">](https://soundcloud.com/shadowsareforever/ivoryghost-obscure)
 
-**Artist**: Pendarr 
+**Artist**: Ivoryghost 
 
-**Track**: c2.0 (Pendarr Edit) - Charli XCX
+**Track**: Ivoryghost - Obscure
 
-Last updated at 07/26/2020 07:44
+Last updated at 07/26/2020 12:40
