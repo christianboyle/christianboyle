@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsrVwN4QaOiBeFIp-LvdHNg-t50x50.jpg">](https://soundcloud.com/pendarr/c20-pendarr-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641598097-bi1d5c-t50x50.jpg">](https://soundcloud.com/linusfromthestars/evangeline?in=linusfromthestars/sets/hopeless-dreamer)
 
-**Artist**: Pendarr 
+**Artist**: Linus from the Stars 
 
-**Track**: c2.0 (Pendarr Edit) - Charli XCX
+**Track**: Evangeline
 
-Last updated at 07/26/2020 07:42
+Last updated at 07/26/2020 07:43
