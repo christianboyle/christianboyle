@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1l3gEm97oXwUFvSZ-iyzlyQ-t50x50.jpg">](https://soundcloud.com/saymynameofficial/saymyname-alright-ft-yung-pinch?in=saymynameofficial/sets/elevated-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tTXJSJrDEHIxlKLs-FaCklQ-t50x50.jpg">](https://soundcloud.com/grahammalice/chimera08)
 
-**Artist**: SAYMYNAME 
+**Artist**: Graham Malice 
 
-**Track**: SAYMYNAME - Alright (Ft. Yung Pinch)
+**Track**: CHIMERA08 ft. Devy Stonez
 
-Last updated at 07/26/2020 07:15
+Last updated at 07/26/2020 07:16
