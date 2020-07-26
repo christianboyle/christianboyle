@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ZmUCU76p3n917kT-vO86Dg-t50x50.jpg">](https://soundcloud.com/shadowsareforever/ivoryghost-obscure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s8p0eNTejO2bOiq2-Qh508w-t50x50.jpg">](https://soundcloud.com/kastra-bootlegs/summer-2020-bootleg-pack)
 
-**Artist**: Ivoryghost 
+**Artist**: Kastra [Bootlegs] 
 
-**Track**: Ivoryghost - Obscure
+**Track**: Kastra - Summer 2020 Bootleg Pack [35 Edits / Mashups]
 
-Last updated at 07/26/2020 12:40
+Last updated at 07/26/2020 12:41
