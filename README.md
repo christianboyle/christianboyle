@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0LrttehFDUKKN1GM-HuZBjA-t50x50.jpg">](https://soundcloud.com/m-project_suzumoto/4-m-project-if-i-could)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DJkvksgRoBDqtPOo-VZy5dw-t50x50.jpg">](https://soundcloud.com/jakazid/dance-track)
 
-**Artist**: M-Project 
+**Artist**: JAKAZiD 
 
-**Track**: 4* & M-Project - If I Could
+**Track**: JAKAZiD - Dance Track [F/C HPTG Music]
 
-Last updated at 07/26/2020 07:37
+Last updated at 07/26/2020 07:38
