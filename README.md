@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-00QN6CAlWAhWZICR-ppbXXA-t50x50.jpg">](https://soundcloud.com/futuregenerationradio/fgradio014)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0UIwivYWWOzTrI7y-ySDQIw-t50x50.jpg">](https://soundcloud.com/noirsurblancrecords/bellorum-it-goes?in=noirsurblancrecords/sets/blanc-sur-noir-vol-3)
 
-**Artist**: Future Generation Radio 
+**Artist**: noir sur blanc 
 
-**Track**: Future Generation Radio #014
+**Track**: Bellorum - It Goes
 
-Last updated at 07/26/2020 07:25
+Last updated at 07/26/2020 07:35
