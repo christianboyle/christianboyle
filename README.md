@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cbap54CBQsoXGtr-pn5ztQ-t50x50.jpg">](https://soundcloud.com/funkycraig/funky-craig-asian-vibes-2020-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
 
-**Artist**: Funky Craig 
+**Artist**: BLVD. 
 
-**Track**: AsianVibes 2020
+**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
 
-Last updated at 07/27/2020 12:24
+Last updated at 07/27/2020 17:23
