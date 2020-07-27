@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KImvfEVVDM17c0g3-9iwnUQ-t50x50.jpg">](https://soundcloud.com/trapicalmusic/likeiwould)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o42hngqUz4VOAsZk-jU517A-t50x50.jpg">](https://soundcloud.com/shardem/alonewithyou)
 
-**Artist**: Trapical Music 
+**Artist**: shardem 
 
-**Track**: ZAYN - Like I Would (Nakhu Remix)
+**Track**: alonewithyou
 
-Last updated at 07/27/2020 07:59
+Last updated at 07/27/2020 08:00
