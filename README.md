@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxm4McakPxUdukbH-lDPUGg-t50x50.jpg">](https://soundcloud.com/bbnomula/astrology-prod-lentra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
 
-**Artist**: bbno$ 
+**Artist**: GRAVEDGR 
 
-**Track**: astrology (prod. lentra)
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 07/27/2020 10:38
+Last updated at 07/27/2020 10:40
