@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU118zHqwMMteZSn-9TArGg-t50x50.jpg">](https://soundcloud.com/gmafiarecords/kuks-cash?in=gmafiarepost/sets/kuks-cash-original-mix-g-mafia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWDPTzOmRtBJG0oN-X7wqiA-t50x50.jpg">](https://soundcloud.com/user-427490605-898057522/trinity)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Lucio 
 
-**Track**: KuKs - Cash (Original Mix) [G-MAFIA RECORDS]
+**Track**: Trinity
 
-Last updated at 07/27/2020 08:01
+Last updated at 07/27/2020 08:02
