@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pfRTPZiUVOyjU1m-7w9ufA-t50x50.jpg">](https://soundcloud.com/ghastly/stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GScVJeELrXKpYqx-bV4NVw-t50x50.jpg">](https://soundcloud.com/officialsoundtrooper/soundtrooper-power)
 
-**Artist**: GHASTLY 
+**Artist**: SoundTrooper 
 
-**Track**: Stay (ft. Micah Martin)
+**Track**: SoundTrooper - Power
 
-Last updated at 07/27/2020 07:36
+Last updated at 07/27/2020 07:37
