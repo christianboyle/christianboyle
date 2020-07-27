@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GScVJeELrXKpYqx-bV4NVw-t50x50.jpg">](https://soundcloud.com/officialsoundtrooper/soundtrooper-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4LcCqfaRch7ZLi7-EL8Csg-t50x50.jpg">](https://soundcloud.com/blckmagic/aagentah-host-immunis)
 
-**Artist**: SoundTrooper 
+**Artist**: blck. 
 
-**Track**: SoundTrooper - Power
+**Track**: Aagentah & HØST - Immunis
 
-Last updated at 07/27/2020 07:37
+Last updated at 07/27/2020 07:40
