@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msASRByzxLDlZsSz-5J5rgw-t50x50.jpg">](https://soundcloud.com/piecsa/keepmecompany)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
 
-**Artist**: PIECSA 
+**Artist**: PHZES 
 
-**Track**: ⭐️⭐️KEEPMECOMPANY🦦🦦? (Prod. Halfblown)
+**Track**: PHZED & Confused Mix 04 - July 4th Mix
 
-Last updated at 07/27/2020 08:06
+Last updated at 07/27/2020 08:08
