@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o42hngqUz4VOAsZk-jU517A-t50x50.jpg">](https://soundcloud.com/shardem/alonewithyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU118zHqwMMteZSn-9TArGg-t50x50.jpg">](https://soundcloud.com/gmafiarecords/kuks-cash?in=gmafiarepost/sets/kuks-cash-original-mix-g-mafia)
 
-**Artist**: shardem 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: alonewithyou
+**Track**: KuKs - Cash (Original Mix) [G-MAFIA RECORDS]
 
-Last updated at 07/27/2020 08:00
+Last updated at 07/27/2020 08:01
