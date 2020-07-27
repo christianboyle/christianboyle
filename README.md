@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4LcCqfaRch7ZLi7-EL8Csg-t50x50.jpg">](https://soundcloud.com/blckmagic/aagentah-host-immunis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIOCDKsoSsaI7t5m-0xjxdg-t50x50.jpg">](https://soundcloud.com/dropcentral/sabotaje?in=rubendelmoral/sets/sabotaje-ep)
 
-**Artist**: blck. 
+**Artist**: Drop Central 💧 
 
-**Track**: Aagentah & HØST - Immunis
+**Track**: Ruben Del Moral - Sabotaje
 
-Last updated at 07/27/2020 07:40
+Last updated at 07/27/2020 07:43
