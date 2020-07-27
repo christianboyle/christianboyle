@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3heveRrVHLnExom-NDGf4g-t50x50.jpg">](https://soundcloud.com/rusuitor/lowderz-cityboyz-drop-that?in=ruboost/sets/lowderz-cityboyz-drop-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zo20UlXypm1xXvUC-YPbfDA-t50x50.jpg">](https://soundcloud.com/confession/keeld-bourlingue-badjokes)
 
-**Artist**: [ SUITOR ] 
+**Artist**: CONFESSION 
 
-**Track**: Lowderz & CityBoyz - Drop That [ FREE DOWNLOAD ]
+**Track**: Keeld - Bourlingue (BADJOKES Remix)
 
-Last updated at 07/27/2020 07:50
+Last updated at 07/27/2020 07:54
