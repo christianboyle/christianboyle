@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EILqnxrzsd8lpGLa-pgakrA-t50x50.jpg">](https://soundcloud.com/gudfellaofficial/gudfella-virtual-playground-set)
 
-**Artist**: PHZES 
+**Artist**: GUDFELLA 
 
-**Track**: PHZED & Confused Mix 04 - July 4th Mix
+**Track**: GUDFELLA VIRTUAL PLAYGROUND SET
 
-Last updated at 07/27/2020 08:08
+Last updated at 07/27/2020 08:47
