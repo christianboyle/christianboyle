@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2ZR1nSvsUblKGZh-85we0Q-t50x50.jpg">](https://soundcloud.com/sinkorswimrecord/zendlo-with-me-feat-taylor-ravenna-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msASRByzxLDlZsSz-5J5rgw-t50x50.jpg">](https://soundcloud.com/piecsa/keepmecompany)
 
-**Artist**: Sink or Swim 
+**Artist**: PIECSA 
 
-**Track**: Zendlo - With Me (feat. Taylor Ravenna) [OUT NOW]
+**Track**: ⭐️⭐️KEEPMECOMPANY🦦🦦? (Prod. Halfblown)
 
-Last updated at 07/27/2020 08:05
+Last updated at 07/27/2020 08:06
