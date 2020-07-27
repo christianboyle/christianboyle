@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWDPTzOmRtBJG0oN-X7wqiA-t50x50.jpg">](https://soundcloud.com/user-427490605-898057522/trinity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQ5xZg2O6V7gPzuF-2sOUTA-t50x50.jpg">](https://soundcloud.com/tigerdrool/tiger)
 
-**Artist**: Lucio 
+**Artist**: Tiger Drool 
 
-**Track**: Trinity
+**Track**: TIGER
 
-Last updated at 07/27/2020 08:02
+Last updated at 07/27/2020 08:04
