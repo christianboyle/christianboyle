@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000594548295-q47h9u-t50x50.jpg">](https://soundcloud.com/cyberiasystem/human-mechanical-pulse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580661924-kuz7z3-t50x50.jpg">](https://soundcloud.com/artbyform/foxsky-raptor-strike)
 
-**Artist**: 𝐶𝑌𝐵𝐸𝑅𝐼𝐴𝑆𝑌𝑆𝑇𝐸𝑀 
+**Artist**: FORM 
 
-**Track**: Human - Mechanical Pulse (Cyberiasystem Edit)
+**Track**: foxsky - RAPTOR STRIKE
 
-Last updated at 07/28/2020 10:52
+Last updated at 07/28/2020 10:55
