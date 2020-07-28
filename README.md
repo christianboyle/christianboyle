@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdCMApy48Xz0YbxD-w7IW5A-t50x50.jpg">](https://soundcloud.com/louieott/louie_set_nsw2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUIiP8jXtiidWpSW-j48ALA-t50x50.jpg">](https://soundcloud.com/juulthief/run-the-juuls-2-remastered?in=owl-animations/sets/nonstopworld-2)
 
-**Artist**: LOUIE OTTER 
+**Artist**: JUULTHIEF 
 
-**Track**: LOUIE TANUKI ᶠⁱˡˡⁱⁱⁿᵍ ⁱⁿ ᶠᵒʳ LOUIE OTTER @ NONSTOPWORLD 2 (JULY 18, 2020)
+**Track**: RUN THE JUULS 2 JUUL THIEF B2B BURGLAR BOYFRIEND #NONSTOPWORLD2
 
-Last updated at 07/28/2020 15:53
+Last updated at 07/28/2020 15:54
