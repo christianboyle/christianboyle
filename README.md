@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
 
-**Artist**: BLVD. 
+**Artist**: STRIDER 
 
-**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
+**Track**: NONSTOPWORLD 2 - STRIDER
 
-Last updated at 07/27/2020 17:23
+Last updated at 07/28/2020 10:05
