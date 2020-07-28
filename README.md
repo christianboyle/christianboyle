@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XU30vqwgWRBEXG3Z-28SJGw-t50x50.jpg">](https://soundcloud.com/slangdogs/versacepills-slangdogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
 
-**Artist**: Slang Dogs 
+**Artist**: STRIDER 
 
-**Track**: Badrapper - Versace Pills (Slang Dogs Remix)
+**Track**: NONSTOPWORLD 2 - STRIDER
 
-Last updated at 07/28/2020 15:10
+Last updated at 07/28/2020 15:16
