@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000643195558-fre4r8-t50x50.jpg">](https://soundcloud.com/jerseykurabu/trendyempyrean-tears-bootleg-noguchii-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578531141-knczlx-t50x50.jpg">](https://soundcloud.com/phritzmusic/100-gecs-gec-2-u-phritz-remix)
 
-**Artist**: ジャージー倶楽部 
+**Artist**: phritz 
 
-**Track**: TRENDY(EMPYREAN TEARS BOOTLEG) [noguchii Edit]
+**Track**: 100 gecs - gec 2 Ü (phritz remix)
 
-Last updated at 07/28/2020 10:45
+Last updated at 07/28/2020 10:47
