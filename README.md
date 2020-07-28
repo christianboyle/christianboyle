@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdST8MBzNclSMiOm-yzSXtw-t50x50.jpg">](https://soundcloud.com/filthsun/ffffaith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T15vztAVHjFWrivj-8QDyUA-t50x50.jpg">](https://soundcloud.com/bennymayne/down-in-flames-2)
 
-**Artist**: filthsun. 
+**Artist**: benny mayne 
 
-**Track**: FFFFAITH
+**Track**: DOWN IN FLAMES
 
-Last updated at 07/28/2020 15:06
+Last updated at 07/28/2020 15:07
