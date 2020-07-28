@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578531141-knczlx-t50x50.jpg">](https://soundcloud.com/phritzmusic/100-gecs-gec-2-u-phritz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000594548295-q47h9u-t50x50.jpg">](https://soundcloud.com/cyberiasystem/human-mechanical-pulse)
 
-**Artist**: phritz 
+**Artist**: 𝐶𝑌𝐵𝐸𝑅𝐼𝐴𝑆𝑌𝑆𝑇𝐸𝑀 
 
-**Track**: 100 gecs - gec 2 Ü (phritz remix)
+**Track**: Human - Mechanical Pulse (Cyberiasystem Edit)
 
-Last updated at 07/28/2020 10:47
+Last updated at 07/28/2020 10:52
