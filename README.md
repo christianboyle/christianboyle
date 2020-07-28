@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izjSXC2mCcdQ3iuS-175Jjg-t50x50.jpg">](https://soundcloud.com/kanamau/nonstopworld-2-this-is-fucking-austria?in=owl-animations/sets/nonstopworld-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUIiP8jXtiidWpSW-j48ALA-t50x50.jpg">](https://soundcloud.com/juulthief/run-the-juuls-2-remastered?in=owl-animations/sets/nonstopworld-2)
 
-**Artist**: Kana Mau 
+**Artist**: JUULTHIEF 
 
-**Track**: Nonstopworld 2 - This is fucking Austria
+**Track**: RUN THE JUULS 2 JUUL THIEF B2B BURGLAR BOYFRIEND #NONSTOPWORLD2
 
-Last updated at 07/28/2020 16:54
+Last updated at 07/28/2020 16:55
