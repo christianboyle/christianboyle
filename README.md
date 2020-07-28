@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUIiP8jXtiidWpSW-j48ALA-t50x50.jpg">](https://soundcloud.com/juulthief/run-the-juuls-2-remastered?in=owl-animations/sets/nonstopworld-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2nF9K2t3JaU9COz-YHy6dQ-t50x50.jpg">](https://soundcloud.com/tekfox/my-happy-place?in=owl-animations/sets/nonstopworld-2)
 
-**Artist**: JUULTHIEF 
+**Artist**: tekfox 
 
-**Track**: RUN THE JUULS 2 JUUL THIEF B2B BURGLAR BOYFRIEND #NONSTOPWORLD2
+**Track**: My Happy Place
 
-Last updated at 07/28/2020 15:54
+Last updated at 07/28/2020 16:12
