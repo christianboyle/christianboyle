@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNsoZ7UtCuoz3pSA-INgalQ-t50x50.jpg">](https://soundcloud.com/wonderlust/elephants-everywhere-cant-stay?in=wonderlust/sets/elephants-everywhere-cant-stay-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XU30vqwgWRBEXG3Z-28SJGw-t50x50.jpg">](https://soundcloud.com/slangdogs/versacepills-slangdogs-remix)
 
-**Artist**: Hegemon: Wonderlust 
+**Artist**: Slang Dogs 
 
-**Track**: Elephants Everywhere - Can't Stay
+**Track**: Badrapper - Versace Pills (Slang Dogs Remix)
 
-Last updated at 07/28/2020 15:08
+Last updated at 07/28/2020 15:10
