@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdCMApy48Xz0YbxD-w7IW5A-t50x50.jpg">](https://soundcloud.com/louieott/louie_set_nsw2)
 
-**Artist**: STRIDER 
+**Artist**: LOUIE OTTER 
 
-**Track**: NONSTOPWORLD 2 - STRIDER
+**Track**: LOUIE TANUKI ᶠⁱˡˡⁱⁱⁿᵍ ⁱⁿ ᶠᵒʳ LOUIE OTTER @ NONSTOPWORLD 2 (JULY 18, 2020)
 
-Last updated at 07/28/2020 15:16
+Last updated at 07/28/2020 15:53
