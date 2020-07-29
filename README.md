@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEBiFPnayS8PTZfg-jRDzFQ-t50x50.jpg">](https://soundcloud.com/ntrecordings/diemetic-in-the-pit-original-mix)
 
-**Artist**: NON STOP NXC® 
+**Artist**: No Tomorrow Recordings 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: Diemetic - In The Pit (Original Mix)
 
-Last updated at 07/29/2020 11:11
+Last updated at 07/29/2020 11:14
