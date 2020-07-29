@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUIiP8jXtiidWpSW-j48ALA-t50x50.jpg">](https://soundcloud.com/juulthief/run-the-juuls-2-remastered?in=owl-animations/sets/nonstopworld-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider?in=owl-animations/sets/nonstopworld-2)
 
-**Artist**: JUULTHIEF 
+**Artist**: STRIDER 
 
-**Track**: RUN THE JUULS 2 JUUL THIEF B2B BURGLAR BOYFRIEND #NONSTOPWORLD2
+**Track**: NONSTOPWORLD 2 - STRIDER
 
-Last updated at 07/29/2020 09:17
+Last updated at 07/29/2020 09:36
