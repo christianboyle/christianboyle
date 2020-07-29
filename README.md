@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mF6TV3Wu9SPg36W0-yuHKuQ-t50x50.jpg">](https://soundcloud.com/officialmedasin/hypercolor-vol-1-demo)
 
-**Artist**: headasin 
+**Artist**: medasin 
 
-**Track**: carti flip
+**Track**: Hypercolor Vol. 1 (Splice)
 
-Last updated at 07/29/2020 15:27
+Last updated at 07/29/2020 15:29
