@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4trf0HkVkLbiRCDm-CyJCMQ-t50x50.jpg">](https://soundcloud.com/rocketpengwin/doctor)
 
-**Artist**: NON STOP NXC® 
+**Artist**: ROCKET PENGWIN 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: Doctor
 
-Last updated at 07/29/2020 12:28
+Last updated at 07/29/2020 14:51
