@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000548378940-3ly1t4-t50x50.jpg">](https://soundcloud.com/abelationmusic/perish-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
 
-**Artist**: Abelation 
+**Artist**: headasin 
 
-**Track**: Perish
+**Track**: carti flip
 
-Last updated at 07/29/2020 15:25
+Last updated at 07/29/2020 15:27
