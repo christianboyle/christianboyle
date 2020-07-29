@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxNw0xEZJPAHLyUb-M9pe6Q-t50x50.jpg">](https://soundcloud.com/gawmmusic/gawm-silence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxtP34RCkAPmwla2-LTAfIQ-t50x50.jpg">](https://soundcloud.com/willnotfear/will-not-fear-lil-sheeps-yung-blood-feat-jp-sokodomo-viceversa-untell)
 
-**Artist**: GAWM 
+**Artist**: Will Not Fear 
 
-**Track**: GAWM - Silence
+**Track**: Will Not Fear - Lil Sheep's Yung Blood (Feat. JP, sokodomo, viceversa, Untell)
 
-Last updated at 07/29/2020 08:34
+Last updated at 07/29/2020 08:35
