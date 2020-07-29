@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000620010048-nnx16m-t50x50.jpg">](https://soundcloud.com/beverlyhillsmom/turbo-beats-for-my-turbocharged-countach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEBiFPnayS8PTZfg-jRDzFQ-t50x50.jpg">](https://soundcloud.com/ntrecordings/diemetic-in-the-pit-original-mix)
 
-**Artist**: beverly hills mom 
+**Artist**: No Tomorrow Recordings 
 
-**Track**: turbo beats for my turbocharged countach
+**Track**: Diemetic - In The Pit (Original Mix)
 
-Last updated at 07/28/2020 19:57
+Last updated at 07/28/2020 19:58
