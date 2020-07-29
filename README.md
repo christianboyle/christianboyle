@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider?in=owl-animations/sets/nonstopworld-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egXoWLrLEbyRwwDq-suTlow-t50x50.jpg">](https://soundcloud.com/veyote/sdm-nsw2?in=owl-animations/sets/nonstopworld-2)
 
-**Artist**: STRIDER 
+**Artist**: Veyote 
 
-**Track**: NONSTOPWORLD 2 - STRIDER
+**Track**: Swedish Dog Mafia LIVE at #NONSTOPWORLD 2020
 
-Last updated at 07/29/2020 09:36
+Last updated at 07/29/2020 09:54
