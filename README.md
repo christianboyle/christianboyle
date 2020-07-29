@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8ATlRTXEnRQ8jO0-3wv4Vg-t50x50.jpg">](https://soundcloud.com/wasteurself/wasteurself-robot-feelings-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cczSKRtORLMtkAR-yWYYDw-t50x50.jpg">](https://soundcloud.com/ryyzn/tell-me)
 
-**Artist**: wasteurself 
+**Artist**: RYYZN 
 
-**Track**: Wasteurself - Robot Feelings
+**Track**: Tell Me
 
-Last updated at 07/29/2020 09:01
+Last updated at 07/29/2020 09:02
