@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000728566066-cos2c5-t50x50.jpg">](https://soundcloud.com/therealcarlwheezer/snippet-right-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536740797-v155hc-t50x50.jpg">](https://soundcloud.com/thook/yo-dj)
 
-**Artist**: Carl Wheezer 
+**Artist**: thook 
 
-**Track**: [SNIPPET] Right There! (Prod. Valorr)
+**Track**: YO DJ
 
-Last updated at 07/29/2020 15:23
+Last updated at 07/29/2020 15:24
