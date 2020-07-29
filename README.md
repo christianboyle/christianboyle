@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekTPlNnHnx8LDatw-YmFXrw-t50x50.jpg">](https://soundcloud.com/decadon/the-don-feat-atarii-1?in=decadon/sets/thedonep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/treasure-u?in=beauzworld/sets/beauzworld-vol-1)
 
-**Artist**: DECADON 
+**Artist**: BEAUZ 
 
-**Track**: The Don Feat. Atarii
+**Track**: BEAUZ, BSY, JSY - Treasure U ft. Sarah de Warren
 
-Last updated at 07/28/2020 19:50
+Last updated at 07/28/2020 19:52
