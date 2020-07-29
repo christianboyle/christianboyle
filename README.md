@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEBiFPnayS8PTZfg-jRDzFQ-t50x50.jpg">](https://soundcloud.com/ntrecordings/diemetic-in-the-pit-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CNLgmQtKfwra3EWs-aZNxPw-t50x50.jpg">](https://soundcloud.com/sadsatan_music/lil-peep-save-that-shit-sadsatan-cover)
 
-**Artist**: No Tomorrow Recordings 
+**Artist**: 𝖘𝖆𝖉𝖘𝖆𝖙𝖆𝖓 
 
-**Track**: Diemetic - In The Pit (Original Mix)
+**Track**: 𝔩𝔦𝔩 𝔭𝔢𝔢𝔭 - 𝔰𝔞𝔳𝔢 𝔱𝔥𝔞𝔱 𝔰𝔥𝔦𝔱 (𝔰𝔞𝔡𝔰𝔞𝔱𝔞𝔫 𝔠𝔬𝔳𝔢𝔯)
 
-Last updated at 07/28/2020 19:58
+Last updated at 07/28/2020 19:59
