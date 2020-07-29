@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CNLgmQtKfwra3EWs-aZNxPw-t50x50.jpg">](https://soundcloud.com/sadsatan_music/lil-peep-save-that-shit-sadsatan-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000620010048-nnx16m-t50x50.jpg">](https://soundcloud.com/beverlyhillsmom/i-bet-you-thought-youd-seen-the-last-of-me)
 
-**Artist**: 𝖘𝖆𝖉𝖘𝖆𝖙𝖆𝖓 
+**Artist**: beverly hills mom 
 
-**Track**: 𝔩𝔦𝔩 𝔭𝔢𝔢𝔭 - 𝔰𝔞𝔳𝔢 𝔱𝔥𝔞𝔱 𝔰𝔥𝔦𝔱 (𝔰𝔞𝔡𝔰𝔞𝔱𝔞𝔫 𝔠𝔬𝔳𝔢𝔯)
+**Track**: surprise bitch. I bet you thought you’d seen the last of me
 
-Last updated at 07/29/2020 10:16
+Last updated at 07/29/2020 10:19
