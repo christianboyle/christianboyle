@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4trf0HkVkLbiRCDm-CyJCMQ-t50x50.jpg">](https://soundcloud.com/rocketpengwin/doctor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: ROCKET PENGWIN 
+**Artist**: medasin 
 
-**Track**: Doctor
+**Track**: Africa
 
-Last updated at 07/29/2020 14:51
+Last updated at 07/29/2020 14:52
