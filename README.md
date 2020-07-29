@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: NON STOP NXC® 
+**Artist**: medasin 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: Africa
 
-Last updated at 07/29/2020 15:56
+Last updated at 07/29/2020 15:59
