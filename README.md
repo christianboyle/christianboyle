@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCa3Zsi2SrXE9p6Z-508L4Q-t50x50.jpg">](https://soundcloud.com/slowmagic/closer-2-u-feat-manila-killa?in=movingcastle/sets/slow-magic-closer-2-u)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Slow Magic 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: Closer 2 U (feat. Manila Killa)
 
-Last updated at 07/29/2020 16:57
+Last updated at 07/29/2020 17:25
