@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIOnvQTf8kawZjtL-Mn4uvQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc145)
 
-**Artist**: PHZES 
+**Artist**: NON STOP NXC® 
 
-**Track**: PHZED & Confused Mix 04 - July 4th Mix
+**Track**: NXC145 - Future is Offline - #SELFIE
 
-Last updated at 07/29/2020 10:42
+Last updated at 07/29/2020 11:06
