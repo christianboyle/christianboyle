@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxtP34RCkAPmwla2-LTAfIQ-t50x50.jpg">](https://soundcloud.com/willnotfear/will-not-fear-lil-sheeps-yung-blood-feat-jp-sokodomo-viceversa-untell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MTcq9wNcOMVXYucz-I2T3WQ-t50x50.jpg">](https://soundcloud.com/knowhy/quix-gunning-for-you-knowhy-remix)
 
-**Artist**: Will Not Fear 
+**Artist**: KNO/WHY 
 
-**Track**: Will Not Fear - Lil Sheep's Yung Blood (Feat. JP, sokodomo, viceversa, Untell)
+**Track**: Quix - Gunning For You (KNO/WHY Remix)
 
-Last updated at 07/29/2020 08:35
+Last updated at 07/29/2020 08:51
