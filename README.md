@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cy6XO9mREO98qySC-aND4zQ-t50x50.jpg">](https://soundcloud.com/talegatemusic/austin-burke-desert-child-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LO2tkn0mmz6dyucV-qxlSLg-t50x50.jpg">](https://soundcloud.com/prodnoyse/melatonin)
 
-**Artist**: talegate 
+**Artist**: noyse. 
 
-**Track**: Austin Burke - Desert Child (talegate remix)
+**Track**: melatonin
 
-Last updated at 07/28/2020 17:03
+Last updated at 07/28/2020 19:43
