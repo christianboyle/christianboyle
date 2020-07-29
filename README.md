@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCa3Zsi2SrXE9p6Z-508L4Q-t50x50.jpg">](https://soundcloud.com/slowmagic/closer-2-u-feat-manila-killa?in=movingcastle/sets/slow-magic-closer-2-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: Slow Magic 
+**Artist**: medasin 
 
-**Track**: Closer 2 U (feat. Manila Killa)
+**Track**: Africa
 
-Last updated at 07/29/2020 16:50
+Last updated at 07/29/2020 16:51
