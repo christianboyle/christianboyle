@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vSlXfX39aqQ0eBW5-lX7ljg-t50x50.jpg">](https://soundcloud.com/bardzmusic/lie-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn6izW792f1p3HnA-EKfrxQ-t50x50.jpg">](https://soundcloud.com/itsrlstne/iytslmk)
 
-**Artist**: BARDZ 
+**Artist**: rlstne (jeyre) 
 
-**Track**: Lie To You
+**Track**: the 1975 - if youre too shy (jeyre remix)
 
-Last updated at 07/30/2020 12:40
+Last updated at 07/30/2020 12:43
