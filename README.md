@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0drSMJz0waT29CLf-XXr1Fg-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-435-feat-mike-steventon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: medasin 
 
-**Track**: KTRA Episode 435 feat. Mike Steventon
+**Track**: Africa
 
-Last updated at 07/30/2020 12:32
+Last updated at 07/30/2020 12:33
