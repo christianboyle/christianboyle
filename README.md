@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqRdumNDMv6pUzUB-WLGeCA-t50x50.jpg">](https://soundcloud.com/complexion/tfbs247)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0drSMJz0waT29CLf-XXr1Fg-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-435-feat-mike-steventon)
 
-**Artist**: Complexion 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: The Future Beats Show Episode 247
+**Track**: KTRA Episode 435 feat. Mike Steventon
 
-Last updated at 07/30/2020 12:31
+Last updated at 07/30/2020 12:32
