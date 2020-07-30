@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn6izW792f1p3HnA-EKfrxQ-t50x50.jpg">](https://soundcloud.com/itsrlstne/iytslmk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000606283575-f00bqh-t50x50.jpg">](https://soundcloud.com/bennymayne/hurt-me-3)
 
-**Artist**: rlstne (jeyre) 
+**Artist**: benny mayne 
 
-**Track**: the 1975 - if youre too shy (jeyre remix)
+**Track**: HURT ME
 
-Last updated at 07/30/2020 12:43
+Last updated at 07/30/2020 12:47
