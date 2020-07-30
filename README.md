@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000606283575-f00bqh-t50x50.jpg">](https://soundcloud.com/bennymayne/hurt-me-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCa3Zsi2SrXE9p6Z-508L4Q-t50x50.jpg">](https://soundcloud.com/slowmagic/closer-2-u-feat-manila-killa?in=movingcastle/sets/slow-magic-closer-2-u)
 
-**Artist**: benny mayne 
+**Artist**: Slow Magic 
 
-**Track**: HURT ME
+**Track**: Closer 2 U (feat. Manila Killa)
 
-Last updated at 07/30/2020 12:47
+Last updated at 07/30/2020 12:48
