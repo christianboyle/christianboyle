@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yLdG760a54N6zag-KtsngQ-t50x50.jpg">](https://soundcloud.com/trikeri/fifth-gate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn1KbvGxzxdAvEzR-yVehaQ-t50x50.jpg">](https://soundcloud.com/bandoum/order?in=bandoum/sets/yes)
 
-**Artist**: Trikeri 
+**Artist**: bandoum 
 
-**Track**: Fifth Gate
+**Track**: bandoum - order [13] • [spotify in description]
 
-Last updated at 07/30/2020 08:41
+Last updated at 07/30/2020 08:42
