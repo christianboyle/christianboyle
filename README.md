@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000595040385-gjp09t-t50x50.jpg">](https://soundcloud.com/bandoum/tea?in=bandoum/sets/yes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yG2AxgcLrK3SWoLN-g7cGsg-t50x50.jpg">](https://soundcloud.com/trejohnson/i-am-first-draft)
 
-**Artist**: bandoum 
+**Artist**: Gasser 
 
-**Track**: bandoum - tea [11]
+**Track**: I AM [Prod. YBE Based Jules]
 
-Last updated at 07/30/2020 08:46
+Last updated at 07/30/2020 08:48
