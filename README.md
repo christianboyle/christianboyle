@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imH1zbPrpEhulb9U-E5Vpzg-t50x50.jpg">](https://soundcloud.com/slowmagic/somewhere-feat-woven-in-hiatus?in=movingcastle/sets/slow-magic-closer-2-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000564263714-ruoxfd-t50x50.jpg">](https://soundcloud.com/therealpressplay2/wokeuplate)
 
-**Artist**: Slow Magic 
+**Artist**: Press Play (mixes & bootlegs) 
 
-**Track**: Somewhere (feat. Woven In Hiatus)
+**Track**: Woke Up Late (Press Play Bootleg)
 
-Last updated at 07/30/2020 12:51
+Last updated at 07/30/2020 16:08
