@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qnQX9tDBtqWuvX3q-fcn3cg-t50x50.jpg">](https://soundcloud.com/letslinkmusic/what-ya-got-4-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tCNaTCM3u0AOzyS-ChYL6A-t50x50.jpg">](https://soundcloud.com/user-633836593/twisted-melons-vol-1)
 
-**Artist**: LINK 
+**Artist**: KUU 
 
-**Track**: WHAT YA GOT 4 ME [LINK bootleg]
+**Track**: Twisted Melons Mix Vol. 1
 
-Last updated at 07/31/2020 08:04
+Last updated at 07/31/2020 08:05
