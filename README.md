@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuwlpJe5UJP1CEo2-7Y8JhQ-t50x50.jpg">](https://soundcloud.com/ezzyland/supermassive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XlzlRAzICLRk0WxG-zjfn7Q-t50x50.jpg">](https://soundcloud.com/gateraudio/ochre)
 
-**Artist**: ezzyℒand. 
+**Artist**: Gater 
 
-**Track**: SUPERMASSIVE
+**Track**: Gater & Thorjn - Ochre
 
-Last updated at 07/31/2020 15:25
+Last updated at 07/31/2020 15:30
