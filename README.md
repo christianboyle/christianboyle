@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qnQX9tDBtqWuvX3q-fcn3cg-t50x50.jpg">](https://soundcloud.com/letslinkmusic/what-ya-got-4-me)
 
-**Artist**: NON STOP NXC® 
+**Artist**: LINK 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: WHAT YA GOT 4 ME [LINK bootleg]
 
-Last updated at 07/30/2020 17:15
+Last updated at 07/31/2020 08:04
