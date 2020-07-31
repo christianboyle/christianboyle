@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fd0raEsWLENOBrEo-nR5tGg-t50x50.jpg">](https://soundcloud.com/beyourselfmusic/max-vermeulen-love-is-a-battle?in=maxvermeulen/sets/max-vermeulen-love-is-a-battle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIoXji3guoufoqys-UsyqYw-t50x50.jpg">](https://soundcloud.com/obskuresound/whzly-konnekt?in=obskuresound/sets/whzly-multi-genre-opera-ep)
 
-**Artist**: Be Yourself Music 
+**Artist**: Obskure 
 
-**Track**: Max Vermeulen - Love Is A Battle [Be Yourself Music]
+**Track**: WHZLY - Konnekt
 
-Last updated at 07/31/2020 08:14
+Last updated at 07/31/2020 08:15
