@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ue9nkCGrRIous393-3HYItA-t50x50.jpg">](https://soundcloud.com/below_the_surface/oh-gee-pop-the-trunk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnNVGqxln2mnxBdr-XNHz5A-t50x50.jpg">](https://soundcloud.com/synesuk/synmix059-almogfx?in=almogfx/sets/synes-mix)
 
-**Artist**: Below 
+**Artist**: SYNES 
 
-**Track**: oh! gee - Pop The Trunk
+**Track**: SYNMIX059: Almogfx
 
-Last updated at 07/31/2020 10:01
+Last updated at 07/31/2020 10:05
