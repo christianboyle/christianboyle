@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCa3Zsi2SrXE9p6Z-508L4Q-t50x50.jpg">](https://soundcloud.com/slowmagic/closer-2-u-feat-manila-killa?in=movingcastle/sets/slow-magic-closer-2-u)
 
-**Artist**: STRIDER 
+**Artist**: Slow Magic 
 
-**Track**: NONSTOPWORLD 2 - STRIDER
+**Track**: Closer 2 U (feat. Manila Killa)
 
-Last updated at 07/31/2020 11:13
+Last updated at 07/31/2020 13:29
