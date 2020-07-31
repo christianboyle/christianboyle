@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XlzlRAzICLRk0WxG-zjfn7Q-t50x50.jpg">](https://soundcloud.com/gateraudio/ochre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGLSiEqd23jg0WVT-40zaOg-t50x50.jpg">](https://soundcloud.com/futurevibes/revival)
 
-**Artist**: Gater 
+**Artist**: Future Vibes 
 
-**Track**: Gater & Thorjn - Ochre
+**Track**: drajie - revival
 
-Last updated at 07/31/2020 15:30
+Last updated at 07/31/2020 15:34
