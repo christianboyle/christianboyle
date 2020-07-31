@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imH1zbPrpEhulb9U-E5Vpzg-t50x50.jpg">](https://soundcloud.com/slowmagic/somewhere-feat-woven-in-hiatus?in=movingcastle/sets/slow-magic-closer-2-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VycdR77ogv1ar8Kg-pXzytg-t50x50.jpg">](https://soundcloud.com/crapface/8d-audio-mix)
 
-**Artist**: Slow Magic 
+**Artist**: CRAPFACE 
 
-**Track**: Somewhere (feat. Woven In Hiatus)
+**Track**: 8d audio mix
 
-Last updated at 07/31/2020 13:32
+Last updated at 07/31/2020 15:01
