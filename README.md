@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn1KbvGxzxdAvEzR-yVehaQ-t50x50.jpg">](https://soundcloud.com/bandoum/order)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UfZDDSiSBGvGpVlM-N4WkSg-t50x50.jpg">](https://soundcloud.com/bloomchild/heres-lost-gone)
 
-**Artist**: bandoum 
+**Artist**: Bloom Child 
 
-**Track**: bandoum - order [13] • [spotify in description]
+**Track**: Heres - Lost Gone
 
-Last updated at 07/31/2020 15:08
+Last updated at 07/31/2020 15:11
