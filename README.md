@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zk8rDwDzlS7gJ7KB-HyDRZg-t50x50.jpg">](https://soundcloud.com/bainbridgeofficial/rvd-bainbridge-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fd0raEsWLENOBrEo-nR5tGg-t50x50.jpg">](https://soundcloud.com/beyourselfmusic/max-vermeulen-love-is-a-battle)
 
-**Artist**: BAINBRIDGE 
+**Artist**: Be Yourself Music 
 
-**Track**: 12th Planet - RVD Ft. Mikey Ceaser (BAINBRIDGE Remix)
+**Track**: Max Vermeulen - Love Is A Battle [Be Yourself Music]
 
-Last updated at 07/31/2020 08:19
+Last updated at 07/31/2020 08:23
