@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JCLe92xwRwAAK07-NQGtOA-t50x50.jpg">](https://soundcloud.com/jkuch/core)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuwlpJe5UJP1CEo2-7Y8JhQ-t50x50.jpg">](https://soundcloud.com/ezzyland/supermassive)
 
-**Artist**: JKuch 
+**Artist**: ezzyℒand. 
 
-**Track**: Core
+**Track**: SUPERMASSIVE
 
-Last updated at 07/31/2020 15:21
+Last updated at 07/31/2020 15:25
