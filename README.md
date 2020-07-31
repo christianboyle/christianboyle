@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIoXji3guoufoqys-UsyqYw-t50x50.jpg">](https://soundcloud.com/obskuresound/whzly-konnekt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qnQX9tDBtqWuvX3q-fcn3cg-t50x50.jpg">](https://soundcloud.com/letslinkmusic/what-ya-got-4-me)
 
-**Artist**: Obskure 
+**Artist**: LINK 
 
-**Track**: WHZLY - Konnekt
+**Track**: WHAT YA GOT 4 ME [LINK bootleg]
 
-Last updated at 07/31/2020 10:38
+Last updated at 07/31/2020 10:41
