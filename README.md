@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVOxYouTl0BtcBMf-duI8Ig-t50x50.jpg">](https://soundcloud.com/goodsociety/apogee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6SjnEHUmRS0m3ri-OtFBTw-t50x50.jpg">](https://soundcloud.com/granthergenroeder/dawn)
 
-**Artist**: Good Society 
+**Artist**: GR∆NT 
 
-**Track**: Mackwood - Apogee
+**Track**: mnstrm. & GR∆NT - DAWN
 
-Last updated at 07/31/2020 15:14
+Last updated at 07/31/2020 15:17
