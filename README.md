@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXCezvwJnnPJ0gqX-ZlA3uw-t50x50.jpg">](https://soundcloud.com/catvlyst/gutterpunk-ft-angry-tableflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIoXji3guoufoqys-UsyqYw-t50x50.jpg">](https://soundcloud.com/obskuresound/whzly-konnekt)
 
-**Artist**: CATVLYST 
+**Artist**: Obskure 
 
-**Track**: Ｇｕｔｔｅｒｐｕｎｋ ｆｔ． Ａｎｇｒｙ Ｔａｂｌｅｆｌｉｐ
+**Track**: WHZLY - Konnekt
 
-Last updated at 07/31/2020 10:34
+Last updated at 07/31/2020 10:38
