@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Eh5JeTOviJJVXZK-T0Zzzg-t50x50.jpg">](https://soundcloud.com/betterdayoriginals/rode-afterparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zk8rDwDzlS7gJ7KB-HyDRZg-t50x50.jpg">](https://soundcloud.com/bainbridgeofficial/rvd-bainbridge-remix)
 
-**Artist**: Better Day 
+**Artist**: BAINBRIDGE 
 
-**Track**: Röde - Afterparty (Original Mix)
+**Track**: 12th Planet - RVD Ft. Mikey Ceaser (BAINBRIDGE Remix)
 
-Last updated at 07/31/2020 08:17
+Last updated at 07/31/2020 08:19
