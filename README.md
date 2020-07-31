@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVydBMzjUR7sBzNQ-I589Cw-t50x50.jpg">](https://soundcloud.com/sidekickmusic/sidekick-like-this-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dqpGweqFcqyM31NJ-lAzTiQ-t50x50.jpg">](https://soundcloud.com/lizdek/embassy)
 
-**Artist**: Sidekick 
+**Artist**: Lizdek 
 
-**Track**: Sidekick - Like This
+**Track**: Embassy
 
-Last updated at 07/31/2020 08:08
+Last updated at 07/31/2020 08:11
