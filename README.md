@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RoCm05DTshtd4ct0-eya4zw-t50x50.jpg">](https://soundcloud.com/yatesmusics/little-gun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXCezvwJnnPJ0gqX-ZlA3uw-t50x50.jpg">](https://soundcloud.com/catvlyst/gutterpunk-ft-angry-tableflip)
 
-**Artist**: Yates 
+**Artist**: CATVLYST 
 
-**Track**: Little Gun
+**Track**: Ｇｕｔｔｅｒｐｕｎｋ ｆｔ． Ａｎｇｒｙ Ｔａｂｌｅｆｌｉｐ
 
-Last updated at 07/31/2020 10:32
+Last updated at 07/31/2020 10:34
