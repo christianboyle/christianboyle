@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ukXHPq7sf6K8bzZ-dTDdtA-t50x50.jpg">](https://soundcloud.com/yungldn/holographic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WqYLJgzpLzt16Js1-kxdjkg-t50x50.jpg">](https://soundcloud.com/roadwrx/time94-silver-grime)
 
-**Artist**: yung_ldn 
+**Artist**: ROADWRX 
 
-**Track**: Jato - Holographic
+**Track**: Time94 - Silver Grime
 
-Last updated at 08/02/2020 15:14
+Last updated at 08/02/2020 15:17
