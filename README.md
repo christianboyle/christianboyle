@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6S5LfDuHJe0Z-0-t50x50.jpg">](https://soundcloud.com/sqz-me/eight-bit-anthem-vip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EtdYbeNaFbbqSt4w-KBuyYA-t50x50.jpg">](https://soundcloud.com/takotomago/bloodsweattears)
 
-**Artist**: SQZ ME 
+**Artist**: TAKO TOMAGO 
 
-**Track**: Eight Bit Anthem Vip
+**Track**: BloodSweatTears
 
-Last updated at 08/02/2020 15:40
+Last updated at 08/02/2020 15:43
