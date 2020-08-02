@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628964737-jiaxi0-t50x50.jpg">](https://soundcloud.com/sudoverse/the-key)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6S5LfDuHJe0Z-0-t50x50.jpg">](https://soundcloud.com/sqz-me/eight-bit-anthem-vip-1)
 
-**Artist**: ＳＵＤＯＶＥＲＳＥ 
+**Artist**: SQZ ME 
 
-**Track**: The Key
+**Track**: Eight Bit Anthem Vip
 
-Last updated at 08/02/2020 15:36
+Last updated at 08/02/2020 15:40
