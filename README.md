@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580661837-f2szx9-t50x50.jpg">](https://soundcloud.com/artbyform/knyvez-tape?in=knyvez/sets/singles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aEKqk9dvsmh91zO-R14lRw-t50x50.jpg">](https://soundcloud.com/virtual-riot/spicy-riddim-drums-vol-1-out-now-on-splice)
 
-**Artist**: FORM 
+**Artist**: Virtual Riot 
 
-**Track**: knyvez - tape
+**Track**: Spicy Riddim Drums Vol. 1 (OUT NOW ON SPLICE!)
 
-Last updated at 07/31/2020 15:40
+Last updated at 08/02/2020 13:58
