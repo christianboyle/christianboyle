@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660523918-ftswpe-t50x50.jpg">](https://soundcloud.com/danlrk/freestyler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMyLQMjybyuXBPhV-izjysQ-t50x50.jpg">](https://soundcloud.com/the-games-we-play/phorme-cryosauna-dream-relay-tgwp-premiere)
 
-**Artist**: Dan Larkin 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Bomfunk MC's - Freestyler (Dan Larkin Remix)
+**Track**: Phorme & CRYOSAUNA - Dream Relay [TGWP Premiere]
 
-Last updated at 08/02/2020 16:01
+Last updated at 08/02/2020 16:05
