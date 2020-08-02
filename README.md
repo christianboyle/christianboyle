@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1KaodsfAkvZoJrsP-IbhYxA-t50x50.jpg">](https://soundcloud.com/ghastly/ghastly-beyond-wonderland-the-gorge-virtual-rave-a-thon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
 
-**Artist**: GHASTLY 
+**Artist**: Opal Fruits 
 
-**Track**: GHASTLY - Beyond Wonderland The Gorge Virtual Rave-A-Thon
+**Track**: OFMIX - 019 [counsel pop]
 
-Last updated at 08/02/2020 14:03
+Last updated at 08/02/2020 14:04
