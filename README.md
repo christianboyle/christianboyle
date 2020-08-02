@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OshMP6jsoZAUEByB-MCb47g-t50x50.jpg">](https://soundcloud.com/user-586389948/bruised)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
 
-**Artist**: Pale Outsider 
+**Artist**: Opal Fruits 
 
-**Track**: Bruised
+**Track**: OFMIX - 019 [counsel pop]
 
-Last updated at 08/02/2020 16:32
+Last updated at 08/02/2020 18:02
