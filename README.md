@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytGbi0z7SSNjtlx8-OtbtNA-t50x50.jpg">](https://soundcloud.com/terminalunderground/operator?in=terminalunderground/sets/membersonlyvol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7nNYyEcaFM6Cnwi-FVzV1A-t50x50.jpg">](https://soundcloud.com/idstayawaytoo/svengali)
 
-**Artist**: Terminal Underground 
+**Artist**: IDSTAYAWAYTOO 
 
-**Track**: MASTERIA - Operator Feat. Johnny Malek
+**Track**: SVENGALI
 
-Last updated at 08/03/2020 12:23
+Last updated at 08/03/2020 12:24
