@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQIuKLzzBaEWCXlE-ZCN6xw-t50x50.jpg">](https://soundcloud.com/familyreunionco/vinyl-cuts-radio-the-cocoon-ep-3-friz-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytGbi0z7SSNjtlx8-OtbtNA-t50x50.jpg">](https://soundcloud.com/terminalunderground/operator?in=terminalunderground/sets/membersonlyvol1)
 
-**Artist**: Family Reunion 
+**Artist**: Terminal Underground 
 
-**Track**: Vinyl Cuts Radio: The Cocoon ~ Ep. 3 ~ Friz Guest Mix
+**Track**: MASTERIA - Operator Feat. Johnny Malek
 
-Last updated at 08/03/2020 11:55
+Last updated at 08/03/2020 12:23
