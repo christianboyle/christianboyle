@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mXbMUJvndzdXg6aA-3457WA-t50x50.jpg">](https://soundcloud.com/sknej/gutter-hype-2016-prod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzUunz2dZxwvmvbo-T5zEIQ-t50x50.jpg">](https://soundcloud.com/nadiaproducer/jamie-xx-idontknow-nadia-remix)
 
-**Artist**: offen doubt 
+**Artist**: Nadia 
 
-**Track**: Gutter Hype 2016 (prod. smrtdeath)
+**Track**: Jamie xx - Idontknow (Nadia Rework)
 
-Last updated at 08/03/2020 10:02
+Last updated at 08/03/2020 10:03
