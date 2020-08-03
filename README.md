@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9sx4d8NKZZwzFRJ6-1CwDnA-t50x50.jpg">](https://soundcloud.com/vveirdmusic/glow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tvorKyiqEs7t-0-t50x50.jpg">](https://soundcloud.com/itsmaxleone/malleable)
 
-**Artist**: vveird 
+**Artist**: MAX LEONE 
 
-**Track**: Glow
+**Track**: Malleable
 
-Last updated at 08/03/2020 09:01
+Last updated at 08/03/2020 09:17
