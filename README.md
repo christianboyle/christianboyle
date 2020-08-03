@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udRVl2RNwEwANvoo-9zsj4w-t50x50.jpg">](https://soundcloud.com/ehnnetwork/masterbangg-srome-forever-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0ZKjRoF2wxJw0yj-AlneBA-t50x50.jpg">](https://soundcloud.com/sho_fish/sho-fish-bootleg)
 
-**Artist**: EDMHouseNetwork 
+**Artist**: Sho_Fish 
 
-**Track**: MasterBangg & SRome - Forever
+**Track**: あおい、ひなた - 色違いの翼(Sho Fish Bootleg)
 
-Last updated at 08/03/2020 09:43
+Last updated at 08/03/2020 09:46
