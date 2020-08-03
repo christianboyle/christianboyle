@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFEVjcd4VzRXCznA-GugEKg-t50x50.jpg">](https://soundcloud.com/tynanofficial/kaskade-skrillex-lick-it-tynan-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttLoueW55bViTfn9-slRs2w-t50x50.jpg">](https://soundcloud.com/benzi/redrover)
 
-**Artist**: TYNAN 
+**Artist**: BENZI 
 
-**Track**: Kaskade & Skrillex - Lick It (TYNAN Flip)
+**Track**: BENZI & sad alex - Red Rover
 
-Last updated at 08/03/2020 09:49
+Last updated at 08/03/2020 09:52
