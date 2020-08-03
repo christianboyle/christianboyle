@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tvorKyiqEs7t-0-t50x50.jpg">](https://soundcloud.com/itsmaxleone/malleable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GM2ahAiDkziJiYZm-hLgR1A-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/hao-all-alone)
 
-**Artist**: MAX LEONE 
+**Artist**: High Caliber Records 
 
-**Track**: Malleable
+**Track**: HAO - All Alone
 
-Last updated at 08/03/2020 09:17
+Last updated at 08/03/2020 09:22
