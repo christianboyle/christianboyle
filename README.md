@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJ8tjjYHllvaBP8j-jLpSpw-t50x50.jpg">](https://soundcloud.com/djngine/vibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9sx4d8NKZZwzFRJ6-1CwDnA-t50x50.jpg">](https://soundcloud.com/vveirdmusic/glow)
 
-**Artist**: N-Gine 
+**Artist**: vveird 
 
-**Track**: Vibe
+**Track**: Glow
 
-Last updated at 08/03/2020 09:00
+Last updated at 08/03/2020 09:01
