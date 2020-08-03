@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8rnLse8KfrzpEYM-bzHckA-t50x50.jpg">](https://soundcloud.com/imanumusic/come-forward)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1hPBw6Ty9RqAEzuQ-y8HVJQ-t50x50.jpg">](https://soundcloud.com/nightmoderecs/syn-voices)
 
-**Artist**: IMANU 
+**Artist**: NIGHT MODE 
 
-**Track**: Come Forward
+**Track**: SYN - Voices ft. Josh Rubin
 
-Last updated at 08/03/2020 11:44
+Last updated at 08/03/2020 11:45
