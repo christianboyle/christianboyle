@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCKpGZK0wPwiLcFL-4ErqIg-t50x50.jpg">](https://soundcloud.com/juuku/betical-control-ft-tequisha-juuku-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbU5gY8eTr4CZqcv-lewzJw-t50x50.jpg">](https://soundcloud.com/v4g-channel/starstorm)
 
-**Artist**: juuku 
+**Artist**: Hijack Records 
 
-**Track**: betical - control ft. tequisha (juuku flip)
+**Track**: pìccolo - StarStorm
 
-Last updated at 08/03/2020 10:04
+Last updated at 08/03/2020 10:07
