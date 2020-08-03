@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttLoueW55bViTfn9-slRs2w-t50x50.jpg">](https://soundcloud.com/benzi/redrover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIzgrWVMoN0wmEzR-Y2zHRw-t50x50.jpg">](https://soundcloud.com/simplifyrecs/slyder-fade-away)
 
-**Artist**: BENZI 
+**Artist**: Simplify. 
 
-**Track**: BENZI & sad alex - Red Rover
+**Track**: SlYder - Fade Away
 
-Last updated at 08/03/2020 09:52
+Last updated at 08/03/2020 09:53
