@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GM2ahAiDkziJiYZm-hLgR1A-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/hao-all-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b5bip8GpyS7RHiCo-zujv9g-t50x50.jpg">](https://soundcloud.com/3lau/3lau-shaun-frank-at-night-feat-grabbitz-alrt-remix-1)
 
-**Artist**: High Caliber Records 
+**Artist**: 3LAU 
 
-**Track**: HAO - All Alone
+**Track**: 3LAU & Shaun Frank - At Night Feat. Grabbitz (ALRT Remix)
 
-Last updated at 08/03/2020 09:22
+Last updated at 08/03/2020 09:23
