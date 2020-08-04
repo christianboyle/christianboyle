@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nD2F4h6LXacNo8yD-4X8cLg-t50x50.jpg">](https://soundcloud.com/layer_one/feat-ja-mezz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31SMrbZ2G3VfwVVx-yooWpA-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cid-presents-night-service-only-radio-episode-077)
 
-**Artist**: layer_one 
+**Artist**: Night Service Only 
 
-**Track**: 축복이야 재채기야 (feat. Ja Mezz)
+**Track**: CID Presents: Night Service Only Radio: Episode 077
 
-Last updated at 08/04/2020 08:26
+Last updated at 08/04/2020 08:27
