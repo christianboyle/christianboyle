@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BYOfkJ6dEgYQxgMO-ivHlxw-t50x50.jpg">](https://soundcloud.com/ifuckedyoauntie/lilhb1-want-you-bad-feat-brokenclarkprod-16preme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000216757206-85he4i-t50x50.jpg">](https://soundcloud.com/lilaaron911/escalade)
 
-**Artist**: LilHeartbreak(IG:@lil.hb1) 
+**Artist**: lil aaron 
 
-**Track**: @lil.hb1 - want you bad (ft. @brokenclark)[prod. 16preme]
+**Track**: ESCALADE - lil aaron & blackbear
 
-Last updated at 08/03/2020 20:42
+Last updated at 08/03/2020 20:44
