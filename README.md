@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500695647-bw83ei-t50x50.jpg">](https://soundcloud.com/dovescry/five)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rC4zxnQLOLXN-0-t50x50.png">](https://soundcloud.com/smrtdeath/just-be-around)
 
-**Artist**: døves 
+**Artist**: smrtdeath 
 
-**Track**: five
+**Track**: Just Be Around
 
-Last updated at 08/03/2020 20:29
+Last updated at 08/03/2020 20:30
