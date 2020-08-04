@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000106759041-yjn0lg-t50x50.jpg">](https://soundcloud.com/nightcorey/she-belongs-2-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000105531267-681zam-t50x50.jpg">](https://soundcloud.com/nightcorey/make-me-go)
 
 **Artist**: nightcorey 
 
-**Track**: She Belongs 2 Me
+**Track**: Make Me Go
 
-Last updated at 08/03/2020 21:39
+Last updated at 08/03/2020 21:42
