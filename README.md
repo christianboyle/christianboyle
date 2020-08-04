@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nQhr29hr7wOTiODX-xw5Dig-t50x50.jpg">](https://soundcloud.com/gangstahouserec/benny-bubblez-pharmacy?in=gangstahouserec/sets/benny-bubblez-pharmacy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZ5P8WxlukLkQYhQ-12sB8A-t50x50.jpg">](https://soundcloud.com/nightcorey/charli-xcx-forever-nightcorey-remix)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: nightcorey 
 
-**Track**: Benny Bubblez - Pharmacy (Original Mix)[GANGSTA HOUSE RECORDS]
+**Track**: Charli XCX 'Forever' (nightcorey remix)
 
-Last updated at 08/03/2020 21:28
+Last updated at 08/03/2020 21:30
