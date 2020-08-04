@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000426571776-qrpnuz-t50x50.jpg">](https://soundcloud.com/lilaaron911/studded-gucci-belt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z4qYgIhhG9iGlO-Kycp9Q-t50x50.jpg">](https://soundcloud.com/grazcore/live-nekomimi-meltdown)
 
-**Artist**: lil aaron 
+**Artist**: GRAZ 
 
-**Track**: STUDDED GUCCI BELT [Prod. Y2K] *New 2018*
+**Track**: Graz - Live @ Nekomimi Meltdown [06.22.19]
 
-Last updated at 08/04/2020 14:06
+Last updated at 08/04/2020 14:08
