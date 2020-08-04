@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLs17F5qKS40LxzU-vefShg-t50x50.jpg">](https://soundcloud.com/goshfather/got-money-ft-neelam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkDnpi4Qu6jyZ7iI-A6DSEA-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-jpop/hoy-nightcore-whore-mix-residente)
 
-**Artist**: goshfather 
+**Artist**: I AM J/K-POP NIGHTCØRE WHØRE 
 
-**Track**: Got Money ft. Neelam
+**Track**: Hoy [NIGHTCØRE WHØRE MIX] Residente
 
-Last updated at 08/03/2020 12:25
+Last updated at 08/03/2020 20:22
