@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000575673878-y5be6e-t50x50.jpg">](https://soundcloud.com/nightcorey/boyfriend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000575676347-kefa6o-t50x50.jpg">](https://soundcloud.com/nightcorey/wild)
 
 **Artist**: nightcorey 
 
-**Track**: boyfriend
+**Track**: WILD
 
-Last updated at 08/03/2020 21:34
+Last updated at 08/03/2020 21:38
