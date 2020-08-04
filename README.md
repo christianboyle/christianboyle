@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qO7IFX8bKpBX2kLa-djzK6Q-t50x50.jpg">](https://soundcloud.com/adamenoise/singularity-punch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000236838307-ht44x0-t50x50.jpg">](https://soundcloud.com/lilaaron911/hot-topic)
 
-**Artist**: Adame 
+**Artist**: lil aaron 
 
-**Track**: Singularity Punch
+**Track**: HOT TOPIC [PROD. Y2K]
 
-Last updated at 08/04/2020 14:03
+Last updated at 08/04/2020 14:04
