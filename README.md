@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125263551-nfxihk-t50x50.jpg">](https://soundcloud.com/nightcorey/stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000114659939-me8399-t50x50.jpg">](https://soundcloud.com/nightcorey/capsule-glider-nightcorey-remix)
 
 **Artist**: nightcorey 
 
-**Track**: Stay
+**Track**: Capsule - Glider (nightcorey remix)
 
-Last updated at 08/03/2020 21:45
+Last updated at 08/03/2020 21:48
