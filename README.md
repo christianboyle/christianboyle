@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z4qYgIhhG9iGlO-Kycp9Q-t50x50.jpg">](https://soundcloud.com/grazcore/live-nekomimi-meltdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCrFIOVmD8kD3qLE-x4s1lg-t50x50.jpg">](https://soundcloud.com/bodykitbeats/loyalrmx)
 
-**Artist**: GRAZ 
+**Artist**: bodykit 
 
-**Track**: Graz - Live @ Nekomimi Meltdown [06.22.19]
+**Track**: ODESZA - Loyal (Bodykit & scsc Remix)
 
-Last updated at 08/04/2020 10:02
+Last updated at 08/04/2020 13:29
