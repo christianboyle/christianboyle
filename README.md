@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628598368-rtfl6k-t50x50.jpg">](https://soundcloud.com/bbnomula/bad-thoughts-prod-y2k?in=bbnomula/sets/i-dont-care-at-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IxLuEbGkzjzZ-0-t50x50.png">](https://soundcloud.com/smrtdeath/back-with-me)
 
-**Artist**: bbno$ 
+**Artist**: smrtdeath 
 
-**Track**: bad thoughts prod. Y2K (OFFICIAL MUSIC VIDEO IN DESCRIPTION)
+**Track**: Back With Me
 
-Last updated at 08/03/2020 20:34
+Last updated at 08/03/2020 20:37
