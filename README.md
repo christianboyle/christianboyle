@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31SMrbZ2G3VfwVVx-yooWpA-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cid-presents-night-service-only-radio-episode-077)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyzPUzK12rfba7o4-Q4DFTg-t50x50.jpg">](https://soundcloud.com/maxstyler/max-styler-safe-inside-mix)
 
-**Artist**: Night Service Only 
+**Artist**: Max Styler 
 
-**Track**: CID Presents: Night Service Only Radio: Episode 077
+**Track**: Max Styler - Safe Inside Mix
 
-Last updated at 08/04/2020 08:27
+Last updated at 08/04/2020 08:40
