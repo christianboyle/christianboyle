@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439448100-r6npd6-t50x50.jpg">](https://soundcloud.com/smrtdeath/ice-out-my-bones-prod-audioopera-video-in-description?in=smrtdeath/sets/well-be-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BYOfkJ6dEgYQxgMO-ivHlxw-t50x50.jpg">](https://soundcloud.com/ifuckedyoauntie/lilhb1-want-you-bad-feat-brokenclarkprod-16preme)
 
-**Artist**: smrtdeath 
+**Artist**: LilHeartbreak(IG:@lil.hb1) 
 
-**Track**: ice out my bones (prod. audioopera) *video in description*
+**Track**: @lil.hb1 - want you bad (ft. @brokenclark)[prod. 16preme]
 
-Last updated at 08/03/2020 20:38
+Last updated at 08/03/2020 20:42
