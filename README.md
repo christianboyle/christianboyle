@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qS07Pvb1DwXwW1dq-HjWEbQ-t50x50.jpg">](https://soundcloud.com/idstayawaytoo/numb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000608144011-3gw7q1-t50x50.jpg">](https://soundcloud.com/lilpeepersboi/lil-peep-i-feel-like-im-still-alive)
 
-**Artist**: IDSTAYAWAYTOO 
+**Artist**: ✩LiL PEEP✩ 
 
-**Track**: NUMB
+**Track**: Lil Peep - I Feel Like I'm Still Alive
 
-Last updated at 08/03/2020 20:24
+Last updated at 08/03/2020 20:25
