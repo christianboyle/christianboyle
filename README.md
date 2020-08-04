@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IxLuEbGkzjzZ-0-t50x50.png">](https://soundcloud.com/smrtdeath/back-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439448100-r6npd6-t50x50.jpg">](https://soundcloud.com/smrtdeath/ice-out-my-bones-prod-audioopera-video-in-description?in=smrtdeath/sets/well-be-alright-1)
 
 **Artist**: smrtdeath 
 
-**Track**: Back With Me
+**Track**: ice out my bones (prod. audioopera) *video in description*
 
-Last updated at 08/03/2020 20:37
+Last updated at 08/03/2020 20:38
