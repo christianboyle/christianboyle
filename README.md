@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxGyTbLGN3sFfajn-TYE5Cg-t50x50.jpg">](https://soundcloud.com/litlbird1122/the-vaticination-ft-ninocence?in=litlbird1122/sets/the-vaticination-ep-drops-7-28)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gM4nmDy83i34NUMD-VzTspA-t50x50.jpg">](https://soundcloud.com/kingchainmusic/the-weeknd-faith-kingchain-remix)
 
-**Artist**: LITLBIRD 
+**Artist**: KINGCHAIN 
 
-**Track**: THE VATICINATION ft Ninocence
+**Track**: The Weeknd – Faith (KINGCHAIN Remix)
 
-Last updated at 08/03/2020 21:17
+Last updated at 08/03/2020 21:22
