@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAjze5k22xiPR24o-F2FZzg-t50x50.jpg">](https://soundcloud.com/a-money227/a-money-only-fans)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywvdsXGTPyuBJOm1-QVyZZQ-t50x50.jpg">](https://soundcloud.com/milkncooks/amber-ryann-milk-n-cooks-bnw-pt2)
 
-**Artist**: A Moneyy 
+**Artist**: Milk N Cooks 
 
-**Track**: A MONEY ONLY FANS
+**Track**: Amber Ryann & Milk N Cooks - BNW Pt2
 
-Last updated at 08/05/2020 09:57
+Last updated at 08/05/2020 09:59
