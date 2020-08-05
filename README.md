@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olsSEjcDJwwrVKq-TKDcBQ-t50x50.jpg">](https://soundcloud.com/simplifyrecs/cabuizee-miki-taka-wave-feat-noelle-bonus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000560048043-y8l1yr-t50x50.jpg">](https://soundcloud.com/la-couleur-de-la-culotte1/vons-keep-on-la-couleur-records)
 
-**Artist**: Simplify. 
+**Artist**: La Couleur Records 
 
-**Track**: Cabuizee & Miki Taka - WAVE (feat. Noelle Bonus)
+**Track**: Vons - Keep On
 
-Last updated at 08/05/2020 09:41
+Last updated at 08/05/2020 09:42
