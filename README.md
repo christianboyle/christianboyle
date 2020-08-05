@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7yfNEo0cN2J1rO5x-RRyrpA-t50x50.jpg">](https://soundcloud.com/khaosforgottenbleeps/deathanddesireflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uglx7pUyEknqBlEo-TiLwhQ-t50x50.jpg">](https://soundcloud.com/iamperto/clarityflip)
 
-**Artist**: Khaos Forgotten Bleeps 
+**Artist**: Perto 
 
-**Track**: Knife Party - Death & Desire (Khaos Flip)
+**Track**: Kim Petras - Clarity (Perto Flip)
 
-Last updated at 08/05/2020 17:04
+Last updated at 08/05/2020 18:20
