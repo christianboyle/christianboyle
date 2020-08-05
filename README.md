@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z4qYgIhhG9iGlO-Kycp9Q-t50x50.jpg">](https://soundcloud.com/grazcore/live-nekomimi-meltdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000105531267-681zam-t50x50.jpg">](https://soundcloud.com/nightcorey/make-me-go)
 
-**Artist**: GRAZ 
+**Artist**: nightcorey 
 
-**Track**: Graz - Live @ Nekomimi Meltdown [06.22.19]
+**Track**: Make Me Go
 
-Last updated at 08/05/2020 18:25
+Last updated at 08/05/2020 18:33
