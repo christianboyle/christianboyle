@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz6CdpcEtxvpMCt7-tWmoNA-t50x50.jpg">](https://soundcloud.com/slumberjack/surrender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykk00qpPmOoza8gJ-JkscKg-t50x50.jpg">](https://soundcloud.com/mattmajormusic/vibe)
 
-**Artist**: SLUMBERJACK 
+**Artist**: Matt Major☄️ 
 
-**Track**: SURRENDER
+**Track**: Matt Major - VIBE
 
-Last updated at 08/05/2020 09:52
+Last updated at 08/05/2020 09:53
