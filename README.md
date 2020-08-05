@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tt8R2f7BqV0VS9wV-HQhEUQ-t50x50.png">](https://soundcloud.com/actualmooncore/everythingiwanted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WavtBeNQJf58n6Gg-qYMpTA-t50x50.jpg">](https://soundcloud.com/iamhiguys/bts)
 
-**Artist**: Mooncore (Director's Cut) 
+**Artist**: HiGuys 
 
-**Track**: Billie Eilish - Everything I Wanted (Mooncore Remix) [Electrostep Network EXCLUSIVE]
+**Track**: Best Thing Smokin' Feat. Scott Conille
 
-Last updated at 08/05/2020 10:00
+Last updated at 08/05/2020 10:04
