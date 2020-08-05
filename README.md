@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z4qYgIhhG9iGlO-Kycp9Q-t50x50.jpg">](https://soundcloud.com/grazcore/live-nekomimi-meltdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olsSEjcDJwwrVKq-TKDcBQ-t50x50.jpg">](https://soundcloud.com/simplifyrecs/cabuizee-miki-taka-wave-feat-noelle-bonus)
 
-**Artist**: GRAZ 
+**Artist**: Simplify. 
 
-**Track**: Graz - Live @ Nekomimi Meltdown [06.22.19]
+**Track**: Cabuizee & Miki Taka - WAVE (feat. Noelle Bonus)
 
-Last updated at 08/04/2020 14:08
+Last updated at 08/05/2020 09:41
