@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000626933842-r2l4ac-t50x50.jpg">](https://soundcloud.com/kanskaart/lalala-kahoot-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXFdsY1HElmwsYTc-qF7KBQ-t50x50.jpg">](https://soundcloud.com/kanskaart/eminem-crab-god-2)
 
 **Artist**: Kanskaart 
 
-**Track**: Lalala Kahoot Remix
+**Track**: Eminem - Crab God 2
 
-Last updated at 08/06/2020 09:57
+Last updated at 08/06/2020 09:58
