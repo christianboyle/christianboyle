@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygH818qlmzCH2yCk-8Zgznw-t50x50.jpg">](https://soundcloud.com/bijou/benjamins?in=bijou/sets/diamond-city)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X07IzVgZgpJN8rlZ-aFwIcg-t50x50.jpg">](https://soundcloud.com/oneseventy/technikore-tick-tock-radio-edit)
 
-**Artist**: BIJOU 
+**Artist**: OneSeventy 
 
-**Track**: Benjamins (feat. Wifisfuneral)
+**Track**: Technikore - Tick Tock (Radio Edit)
 
-Last updated at 08/06/2020 08:48
+Last updated at 08/06/2020 08:49
