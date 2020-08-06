@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKfEIiHE1hD3vz92-z4vPyw-t50x50.jpg">](https://soundcloud.com/myopicsounds/daze?in=myopicsounds/sets/mixtape-vol-2-myopicworld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hrprmu9kVDCjPEDV-mMssZA-t50x50.jpg">](https://soundcloud.com/followotg/afraid-of-the-dark-louder)
 
-**Artist**: MYOPIC SOUNDS 
+**Artist**: One True God 
 
-**Track**: TaDa - Daze
+**Track**: One True God & Tzafu - Afraid Of The Dark
 
-Last updated at 08/06/2020 08:46
+Last updated at 08/06/2020 08:47
