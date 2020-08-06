@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xoxrcqhPx54vxzxY-YE0bBA-t50x50.jpg">](https://soundcloud.com/oneseventy/j-trax-cant-go-home-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-giD7TBFcztnRDXUe-mXAvFA-t50x50.jpg">](https://soundcloud.com/oneseventy/technikore-jts-worlds-collide-game-remix-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: J - Trax - Can't Go Home (Radio Edit)
+**Track**: Technikore & JTS - Worlds Collide (Game Remix) (Radio Edit)
 
-Last updated at 08/06/2020 08:50
+Last updated at 08/06/2020 08:51
