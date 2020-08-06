@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
 
-**Artist**: Opal Fruits 
+**Artist**: headasin 
 
-**Track**: OFMIX - 019 [counsel pop]
+**Track**: carti flip
 
-Last updated at 08/05/2020 18:59
+Last updated at 08/05/2020 19:09
