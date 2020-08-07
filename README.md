@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeqay5rgcl4UH4eQ-sWqzzA-t50x50.jpg">](https://soundcloud.com/klubfillermusic/kff16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
 
-**Artist**: Klubfiller 
+**Artist**: talegate 
 
-**Track**: Klubfiller & Friends Podcast 16 - Initi8 & Cheeze Guest Mixes
+**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
 
-Last updated at 08/07/2020 10:06
+Last updated at 08/07/2020 10:14
