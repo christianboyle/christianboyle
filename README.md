@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfMMWPxdpCd080Qz-gbUthA-t50x50.jpg">](https://soundcloud.com/killparis/its-true-1)
 
-**Artist**: Lowly. 
+**Artist**: Kill Paris 
 
-**Track**: Egzod - Ride The Wave
+**Track**: It's True
 
-Last updated at 08/07/2020 15:37
+Last updated at 08/07/2020 15:40
