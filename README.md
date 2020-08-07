@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000557425023-j88eyz-t50x50.jpg">](https://soundcloud.com/blondenxc/nbs03)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yffeu7wBmM3yzisz-dXXWJw-t50x50.jpg">](https://soundcloud.com/bonniexclydeofficial/love-is-killing-me-1)
 
-**Artist**: BLONDENXC 
+**Artist**: BONNIE X CLYDE 
 
-**Track**: NOT_BRUNETTE_SERIES_O3
+**Track**: LOVE IS KILLING ME
 
-Last updated at 08/07/2020 16:13
+Last updated at 08/07/2020 16:16
