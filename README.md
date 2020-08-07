@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yffeu7wBmM3yzisz-dXXWJw-t50x50.jpg">](https://soundcloud.com/bonniexclydeofficial/love-is-killing-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f1F1AgcDO00F-0-t50x50.jpg">](https://soundcloud.com/krewella/krewella-yellow-claw-rewind)
 
-**Artist**: BONNIE X CLYDE 
+**Artist**: Krewella 
 
-**Track**: LOVE IS KILLING ME
+**Track**: Krewella, Yellow Claw - Rewind
 
-Last updated at 08/07/2020 16:16
+Last updated at 08/07/2020 16:17
