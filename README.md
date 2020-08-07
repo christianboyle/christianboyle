@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPDK07f8xXUiFlCC-4uoq5w-t50x50.jpg">](https://soundcloud.com/hyperion-edm/morning-snow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vu7hA0Pz0meV97ZI-5r6CRw-t50x50.jpg">](https://soundcloud.com/simplifyrecs/twomuch-cold-blood)
 
-**Artist**: Hyperion 
+**Artist**: Simplify. 
 
-**Track**: Morning Snow
+**Track**: TwoMuch - Cold Blood
 
-Last updated at 08/07/2020 16:03
+Last updated at 08/07/2020 16:04
