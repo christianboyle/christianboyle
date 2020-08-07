@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vo8SWhckoaNW0E5i-nETRWQ-t50x50.jpg">](https://soundcloud.com/iameugene/eugene-era-1?in=ayzlynn/sets/ayzlynn-selects-100k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPCFkwkeuCLn8vzm-YPQ1mQ-t50x50.jpg">](https://soundcloud.com/jadudala/elestu-overcast-jadu145)
 
-**Artist**: eugene 
+**Artist**: Jadū Dala 
 
-**Track**: eugene - era
+**Track**: Elestu - Overcast (JADŪ145) *WORLD DEBUT*
 
-Last updated at 08/07/2020 09:54
+Last updated at 08/07/2020 09:55
