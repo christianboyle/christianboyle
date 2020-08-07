@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXFdsY1HElmwsYTc-qF7KBQ-t50x50.jpg">](https://soundcloud.com/kanskaart/eminem-crab-god-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rTTQnwJitZqsRLHG-VP1Imw-t50x50.jpg">](https://soundcloud.com/wonderlust/mages-in-this-life?in=wonderlust/sets/mages-in-this-life-1)
 
-**Artist**: Kanskaart 
+**Artist**: Hegemon: Wonderlust 
 
-**Track**: Eminem - Crab God 2
+**Track**: Mages - In This Life
 
-Last updated at 08/06/2020 09:58
+Last updated at 08/07/2020 09:37
