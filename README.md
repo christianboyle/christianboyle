@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCQCOxbjEmWW2xeT-7tYUHQ-t50x50.jpg">](https://soundcloud.com/trastler/wayfarer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
 
-**Artist**: Trastler 
+**Artist**: Lowly. 
 
-**Track**: Wayfarer
+**Track**: Egzod - Ride The Wave
 
-Last updated at 08/07/2020 15:36
+Last updated at 08/07/2020 15:37
