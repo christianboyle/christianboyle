@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7yfNEo0cN2J1rO5x-RRyrpA-t50x50.jpg">](https://soundcloud.com/khaosforgottenbleeps/deathanddesireflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
 
-**Artist**: Khaos Forgotten Bleeps 
+**Artist**: talegate 
 
-**Track**: Knife Party - Death & Desire (Khaos Flip)
+**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
 
-Last updated at 08/07/2020 09:59
+Last updated at 08/07/2020 10:00
