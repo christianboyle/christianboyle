@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPCFkwkeuCLn8vzm-YPQ1mQ-t50x50.jpg">](https://soundcloud.com/jadudala/elestu-overcast-jadu145)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s98k4ozfHrhTaXBi-mEvR4Q-t50x50.jpg">](https://soundcloud.com/trapicalmusic/shouldhavesaidit)
 
-**Artist**: Jadū Dala 
+**Artist**: Trapical Music 
 
-**Track**: Elestu - Overcast (JADŪ145) *WORLD DEBUT*
+**Track**: Camila Cabello - Should've Said It (SVRRIC & Yonexx Remix)
 
-Last updated at 08/07/2020 09:55
+Last updated at 08/07/2020 09:56
