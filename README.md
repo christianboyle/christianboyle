@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
 
-**Artist**: talegate 
+**Artist**: BLVD. 
 
-**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
+**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
 
-Last updated at 08/07/2020 10:00
+Last updated at 08/07/2020 10:01
