@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f1F1AgcDO00F-0-t50x50.jpg">](https://soundcloud.com/krewella/krewella-yellow-claw-rewind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
 
-**Artist**: Krewella 
+**Artist**: talegate 
 
-**Track**: Krewella, Yellow Claw - Rewind
+**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
 
-Last updated at 08/07/2020 16:17
+Last updated at 08/07/2020 16:18
