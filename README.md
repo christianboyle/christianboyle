@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DC7W1eHkM7CmWVBQ-lzu2RQ-t50x50.jpg">](https://soundcloud.com/phuturecollective/lizdek-scarlett)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SZJpPxlBt14sUf7-y5zZLg-t50x50.jpg">](https://soundcloud.com/caliosmusic/sidewinder)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Calios 
 
-**Track**: Lizdek - Scarlett
+**Track**: Sidewinder
 
-Last updated at 08/07/2020 19:14
+Last updated at 08/07/2020 19:17
