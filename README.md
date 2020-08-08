@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzUExm9bWf3fcN4a-ZIiKNw-t50x50.jpg">](https://soundcloud.com/vaance/all-or-nothing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DC7W1eHkM7CmWVBQ-lzu2RQ-t50x50.jpg">](https://soundcloud.com/phuturecollective/lizdek-scarlett)
 
-**Artist**: VAANCE 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: All Or Nothing (with Meggie York)
+**Track**: Lizdek - Scarlett
 
-Last updated at 08/07/2020 19:13
+Last updated at 08/07/2020 19:14
