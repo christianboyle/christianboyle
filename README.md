@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZDjLja8QasAga6b-gu9WEQ-t50x50.jpg">](https://soundcloud.com/quaczar702/quaczar-2shay-gangsta-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TkAFsqKuKcjz46co-qIRHaw-t50x50.jpg">](https://soundcloud.com/samfoxxdnb/billie-eilish-ocean-eyes-sam-foxx-bootleg-free-download)
 
-**Artist**: QuaCzar 
+**Artist**: Sam Foxx 
 
-**Track**: QuaCzar & 2Shay- Gangsta Shit
+**Track**: Billie Eilish - Ocean Eyes (Sam Foxx Bootleg) FREE DOWNLOAD
 
-Last updated at 08/07/2020 19:18
+Last updated at 08/07/2020 19:19
