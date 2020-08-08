@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-853UcLzucmc6xh8P-EqB7QQ-t50x50.jpg">](https://soundcloud.com/trivectamusic/trivecta-nurko-you-can-be-my-light-feat-monika-santucci)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSoM1oyMtqMQGfu6-3UpLtA-t50x50.jpg">](https://soundcloud.com/rederickmusic/one-world-one-people-808-day-mix)
 
-**Artist**: Trivecta 
+**Artist**: Rederick 
 
-**Track**: Trivecta & Nurko - You Can Be My Light (feat. Monika Santucci)
+**Track**: One World, One People [808 Day Mix]
 
-Last updated at 08/08/2020 13:11
+Last updated at 08/08/2020 13:12
