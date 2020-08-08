@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SZJpPxlBt14sUf7-y5zZLg-t50x50.jpg">](https://soundcloud.com/caliosmusic/sidewinder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCUMapyXU6hB78H8-qJeT4g-t50x50.jpg">](https://soundcloud.com/ekalimusic/ekali-back-to-you-feat-kiiara-codeko-remix)
 
-**Artist**: Calios 
+**Artist**: EKALI 
 
-**Track**: Sidewinder
+**Track**: Ekali - Back To You feat.  Kiiara (Codeko Remix)
 
-Last updated at 08/07/2020 19:52
+Last updated at 08/07/2020 20:38
