@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flqn1WlzbBD9Mav7-7WzRbw-t50x50.jpg">](https://soundcloud.com/uiceheidd/come-go-ft-marshmello?in=uiceheidd/sets/legends-never-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: Juice WRLD 
+**Artist**: Loote 
 
-**Track**: Come & Go Ft. Marshmello
+**Track**: Somebody Else
 
-Last updated at 08/07/2020 19:38
+Last updated at 08/07/2020 19:39
