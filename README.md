@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71qjf6BkswLjhdOf-s9XzPA-t50x50.jpg">](https://soundcloud.com/jasemoney/summon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPPRzltpkz3OEACi-s6qY8Q-t50x50.jpg">](https://soundcloud.com/naffar-music/drdisrespect-alleyways-naffar-remix-1)
 
-**Artist**: Jase Money 
+**Artist**: Naffar ツ 
 
-**Track**: 🅢🅤🅜🅜🅞🅝 市民
+**Track**: DrDisrespect - Alleyways (Naffar Remix)
 
-Last updated at 08/08/2020 15:18
+Last updated at 08/08/2020 15:20
