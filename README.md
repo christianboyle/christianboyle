@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oz8oQRn6gOMSUNZc-4bec7w-t50x50.jpg">](https://soundcloud.com/enforcerecords/worthit?in=vaance/sets/worth-it-feat-meggie-york)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585996116-4o6cr3-t50x50.jpg">](https://soundcloud.com/rickienolls/san-holo-brighter-days-ft-bipolar-sunshine-rickie-nolls-remix-1)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: RIcKIE NoLLS 
 
-**Track**: Vaance - Worth It (feat. Meggie York)
+**Track**: San Holo - Brighter Days Ft. Bipolar Sunshine (Rickie Nolls Remix)
 
-Last updated at 08/07/2020 19:36
+Last updated at 08/07/2020 19:37
