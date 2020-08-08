@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9P7lcvAAB7KcIgfc-dfAehA-t50x50.jpg">](https://soundcloud.com/tadasounds/flosstradamus-x-dj-sliink-crowd-ctrl-tada-flip?in=particaartistgroup/sets/trap2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzeOo6fLiD9IswnM-oA1tkw-t50x50.jpg">](https://soundcloud.com/raucous-music/tom-richman-dro-montana-raucous-flip-1?in=particaartistgroup/sets/trap2)
 
-**Artist**: TaDa 
+**Artist**: Raucous 
 
-**Track**: Flosstradamus x DJ SLIINK - CROWD CTRL (TaDa Flip)
+**Track**: Tom Richman - Dro Montana (Raucous Flip)
 
-Last updated at 08/08/2020 13:57
+Last updated at 08/08/2020 13:58
