@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GrjUoae6FaQnzotB-gknhzg-t50x50.jpg">](https://soundcloud.com/gurfmusic/highergurf?in=particaartistgroup/sets/trap2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qIT2cLtyaM7908G2-5PhWhA-t50x50.jpg">](https://soundcloud.com/musical-freedom/codeko-chance)
 
-**Artist**: GURF 
+**Artist**: Musical Freedom 
 
-**Track**: TNGHT - Higher Ground [Gurf Flip]
+**Track**: Codeko - Chance
 
-Last updated at 08/08/2020 14:08
+Last updated at 08/08/2020 14:10
