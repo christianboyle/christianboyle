@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ID6lq3iJrCUYfsxM-siyCUA-t50x50.jpg">](https://soundcloud.com/schaaka/flosstradamus-roll-up-schaaka-flip?in=particaartistgroup/sets/trap2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GrjUoae6FaQnzotB-gknhzg-t50x50.jpg">](https://soundcloud.com/gurfmusic/highergurf?in=particaartistgroup/sets/trap2)
 
-**Artist**: schaaka 
+**Artist**: GURF 
 
-**Track**: Flosstradamus - Roll Up [schaaka Flip]
+**Track**: TNGHT - Higher Ground [Gurf Flip]
 
-Last updated at 08/08/2020 14:06
+Last updated at 08/08/2020 14:08
