@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76vGyQqERSySKimI-yxECwg-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/ebonhour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBumBsZ8XAaKdzws-ghREdA-t50x50.jpg">](https://soundcloud.com/shyghyofficial/sirens-1)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: ShyGhy 
 
-**Track**: Yakob - Ebon Hour
+**Track**: Sirens
 
-Last updated at 08/08/2020 14:12
+Last updated at 08/08/2020 14:14
