@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPPRzltpkz3OEACi-s6qY8Q-t50x50.jpg">](https://soundcloud.com/naffar-music/drdisrespect-alleyways-naffar-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lwd7zMmRCgwRqglw-conjqQ-t50x50.jpg">](https://soundcloud.com/sappy94/devil-in-disguise?in=sappy94/sets/last-tracc)
 
-**Artist**: Naffar ツ 
+**Artist**: Sappy 
 
-**Track**: DrDisrespect - Alleyways (Naffar Remix)
+**Track**: Devil In Disguise
 
-Last updated at 08/08/2020 15:20
+Last updated at 08/08/2020 15:23
