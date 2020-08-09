@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udE1vIe7TDDQZvuK-ZBGwzA-t50x50.jpg">](https://soundcloud.com/bitbird/rootkit-promise-me-ft-noe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oboMgqRyvdu1OApn-ollfew-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf198)
 
-**Artist**: bitbird 
+**Artist**: Strange Fruits 
 
-**Track**: Rootkit - Promise Me (ft. Noé)
+**Track**: Green Bull - Girls Just Wanna Have Fun
 
-Last updated at 08/09/2020 07:17
+Last updated at 08/09/2020 07:20
