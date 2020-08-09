@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t50x50.jpg">](https://soundcloud.com/fish_narc/wildfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4J4zo1ubnYuMooY-z71Egg-t50x50.jpg">](https://soundcloud.com/b3lladesu/glue-remix)
 
-**Artist**: fish narc 
+**Artist**: B3LLA 
 
-**Track**: WiLDFiRE
+**Track**: BKAYE - Glue (B3LLA Remix)
 
-Last updated at 08/09/2020 07:11
+Last updated at 08/09/2020 07:14
