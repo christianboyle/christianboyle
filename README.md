@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxQWHJV8NOts-0-t50x50.jpg">](https://soundcloud.com/charlixcx/detonate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f9t5n2nb8Mmd-0-t50x50.jpg">](https://soundcloud.com/charlixcx/visions)
 
 **Artist**: charlixcx 
 
-**Track**: detonate
+**Track**: visions
 
-Last updated at 08/09/2020 06:29
+Last updated at 08/09/2020 06:32
