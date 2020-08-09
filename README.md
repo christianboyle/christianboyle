@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z2GUAWLnW80SM98z-O0HANQ-t50x50.jpg">](https://soundcloud.com/chilltrapnetwork/nobody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OW9YtL2NixYWQBKA-0ZOuMQ-t50x50.jpg">](https://soundcloud.com/djefx/tokyoremix)
 
-**Artist**: Chill Trap Records 
+**Artist**: djefx 
 
-**Track**: Alex Byrne - Nobody Perfect [Chill Trap Release]
+**Track**: 3LAU - Tokyo (The Hotel Lobby & EFX Remix)
 
-Last updated at 08/09/2020 07:23
+Last updated at 08/09/2020 07:26
