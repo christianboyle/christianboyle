@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J8QZ416xmRH1lZMH-lTyygQ-t50x50.jpg">](https://soundcloud.com/edmfamilyextras/regard-ride-it-switchblade-hlx-remix-free-download?in=edm-family-ultra-2018/sets/regard-ride-it-switchblade-hlx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HIxT4WVmdeOX4Tky-DQzQWw-t50x50.jpg">](https://soundcloud.com/riotten/like-this)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: RIOT TEN 
 
-**Track**: Regard - Ride It (SwitchBlade & HLX Remix) [FREE DOWNLOAD]
+**Track**: Riot Ten - Like This
 
-Last updated at 08/08/2020 20:00
+Last updated at 08/08/2020 20:01
