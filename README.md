@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClX634RKkv6xopt7-Luacrg-t50x50.jpg">](https://soundcloud.com/dndrecs/wenzday-lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fztmJfUf8LA5hLAe-UdyV5A-t50x50.jpg">](https://soundcloud.com/letslinkmusic/age-of-love)
 
-**Artist**: DND RECS 
+**Artist**: LINK 
 
-**Track**: Wenzday - Lost
+**Track**: AGE OF LOVE
 
-Last updated at 08/09/2020 06:15
+Last updated at 08/09/2020 06:19
