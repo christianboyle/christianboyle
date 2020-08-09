@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y45gGVGjmemqqkQn-aKqJmw-t50x50.jpg">](https://soundcloud.com/immnnt/miasma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KXni2QChvfW5lzey-oA3aYQ-t50x50.jpg">](https://soundcloud.com/itsmsft/chimes-msft-remix)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: msft. 
 
-**Track**: The Øbsidian - Miasma
+**Track**: hudson mohawke - chimes (msft remix)
 
-Last updated at 08/09/2020 06:22
+Last updated at 08/09/2020 06:26
