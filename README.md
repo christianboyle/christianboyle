@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPDK07f8xXUiFlCC-4uoq5w-t50x50.jpg">](https://soundcloud.com/hyperion-edm/morning-snow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
 
-**Artist**: Hyperion 
+**Artist**: Lowly. 
 
-**Track**: Morning Snow
+**Track**: Egzod - Ride The Wave
 
-Last updated at 08/08/2020 20:02
+Last updated at 08/08/2020 20:03
