@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4J4zo1ubnYuMooY-z71Egg-t50x50.jpg">](https://soundcloud.com/b3lladesu/glue-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udE1vIe7TDDQZvuK-ZBGwzA-t50x50.jpg">](https://soundcloud.com/bitbird/rootkit-promise-me-ft-noe)
 
-**Artist**: B3LLA 
+**Artist**: bitbird 
 
-**Track**: BKAYE - Glue (B3LLA Remix)
+**Track**: Rootkit - Promise Me (ft. Noé)
 
-Last updated at 08/09/2020 07:14
+Last updated at 08/09/2020 07:17
