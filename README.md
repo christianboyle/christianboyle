@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxm4McakPxUdukbH-lDPUGg-t50x50.jpg">](https://soundcloud.com/bbnomula/astrology-prod-lentra)
 
-**Artist**: PHZES 
+**Artist**: bbno$ 
 
-**Track**: PHZED & Confused Mix 04 - July 4th Mix
+**Track**: astrology (prod. lentra)
 
-Last updated at 08/08/2020 23:58
+Last updated at 08/09/2020 00:40
