@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: Lowly. 
+**Artist**: Loote 
 
-**Track**: Egzod - Ride The Wave
+**Track**: Somebody Else
 
-Last updated at 08/08/2020 20:03
+Last updated at 08/08/2020 20:23
