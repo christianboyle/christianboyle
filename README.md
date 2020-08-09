@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t50x50.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qATbsQdsACh4JSQy-hgvFJg-t50x50.jpg">](https://soundcloud.com/hypasonic-1/hypasonic-true-love-never-dies-master)
 
-**Artist**: Gen1910 
+**Artist**: SQUAD-E 
 
-**Track**: Current Value - Dark Rain
+**Track**: HYPASONIC True Love Never Dies (master)
 
-Last updated at 08/09/2020 01:20
+Last updated at 08/09/2020 01:25
