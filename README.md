@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f1AgkYNLsMOwCy1A-DmJz6w-t50x50.jpg">](https://soundcloud.com/gmafiarecords/huish-boss?in=gmafiamixes/sets/huish-boss-original-mix-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ld3TWYvVblHkuwyr-0hRvlA-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/whatsreal)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Tribal Trap 
 
-**Track**: Huish - Boss (Original Mix) [G-MAFIA RECORDS]
+**Track**: Swisha T & E.P.O - What's Real
 
-Last updated at 08/10/2020 10:15
+Last updated at 08/10/2020 10:18
