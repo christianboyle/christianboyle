@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y2QcZOzCCnwzyY4f-wzYzvA-t50x50.jpg">](https://soundcloud.com/embrz/letting-go-x-novo-amor-anchor-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s07EwZJmL2TpN5uX-TtBwRA-t50x50.jpg">](https://soundcloud.com/ayyofree/mrmr-falling)
 
-**Artist**: EMBRZ 
+**Artist**: AY YO FREE! 
 
-**Track**: Letting Go x Novo Amor - Anchor
+**Track**: MR.MR. - Falling
 
-Last updated at 08/10/2020 08:30
+Last updated at 08/10/2020 08:31
