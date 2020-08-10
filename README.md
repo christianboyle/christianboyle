@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XKq3LtYXyFFrAvu6-Pbcz2g-t50x50.jpg">](https://soundcloud.com/musical-freedom/codeko-musical-freedom-radio-residency-august)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiDS1uM48YkKHb3q-Wrk5QQ-t50x50.jpg">](https://soundcloud.com/kimmercore/kami-act-up-kimmercore-remix)
 
-**Artist**: Musical Freedom 
+**Artist**: Kimmercore 
 
-**Track**: Codeko – Musical Freedom Radio Residency [August]
+**Track**: Kami - Act Up (Kimmercore Remix)
 
-Last updated at 08/10/2020 12:49
+Last updated at 08/10/2020 14:33
