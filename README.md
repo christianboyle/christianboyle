@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N6LyYqmIDfbvRlSH-DhluCg-t50x50.jpg">](https://soundcloud.com/traptownrecords/something-in-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: Trap Town Records 
+**Artist**: medasin 
 
-**Track**: Unluce - Something In My Mind
+**Track**: Africa
 
-Last updated at 08/10/2020 14:35
+Last updated at 08/10/2020 14:36
