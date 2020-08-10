@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMzApV4qRJ63Bl0I-nwX7tQ-t50x50.jpg">](https://soundcloud.com/sekai-collective/ghostmemory-hyperdrive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N6LyYqmIDfbvRlSH-DhluCg-t50x50.jpg">](https://soundcloud.com/traptownrecords/something-in-my-mind)
 
-**Artist**: Sekai Collective 
+**Artist**: Trap Town Records 
 
-**Track**: ghostmemory - Hyperdrive
+**Track**: Unluce - Something In My Mind
 
-Last updated at 08/10/2020 14:34
+Last updated at 08/10/2020 14:35
