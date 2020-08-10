@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660416917-dwhbfc-t50x50.jpg">](https://soundcloud.com/resonata/timesink)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pGHxSCGMIgyvRHO6-6QwHaQ-t50x50.jpg">](https://soundcloud.com/yonvolt/trample)
 
-**Artist**: resonata_ 
+**Artist**: yonvolt 
 
-**Track**: LORN - TIMESINK (Resonata Flip)
+**Track**: Trample
 
-Last updated at 08/10/2020 10:41
+Last updated at 08/10/2020 10:42
