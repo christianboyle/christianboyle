@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZyNuPeGGYroWZ5F-SYpeow-t50x50.jpg">](https://soundcloud.com/edmstationnetwork/embedz-apollo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-grZm8hMJilnLfqD7-3hN5lw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/thecalling)
 
-**Artist**: EDM Station Network 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Embedz - Apollo
+**Track**: Morillo - The Calling
 
-Last updated at 08/10/2020 10:33
+Last updated at 08/10/2020 10:36
