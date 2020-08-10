@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RT7bFt1mxOIWKKX3-qBkZvA-t50x50.jpg">](https://soundcloud.com/prodeater/mozart-on-me-prod-eater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUgzK3ZHVyCU0NsG-usNsaw-t50x50.jpg">](https://soundcloud.com/electric-station-label/okreglucky-s-c-r-e-a-m)
 
-**Artist**: PROD. EATER 
+**Artist**: EDM label |Electric Station Label| 
 
-**Track**: MO'ZART - ON ME  (PROD. EATER)
+**Track**: OkregLucky - S C R E A M
 
-Last updated at 08/10/2020 08:48
+Last updated at 08/10/2020 08:50
