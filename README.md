@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YqJYVzTjHJH7Lnp-kN4tIA-t50x50.jpg">](https://soundcloud.com/traptownrecords/alfan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZyNuPeGGYroWZ5F-SYpeow-t50x50.jpg">](https://soundcloud.com/edmstationnetwork/embedz-apollo)
 
-**Artist**: Trap Town Records 
+**Artist**: EDM Station Network 
 
-**Track**: 24Bit, HRSH - Alfan
+**Track**: Embedz - Apollo
 
-Last updated at 08/10/2020 10:29
+Last updated at 08/10/2020 10:33
