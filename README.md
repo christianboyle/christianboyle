@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y2QcZOzCCnwzyY4f-wzYzvA-t50x50.jpg">](https://soundcloud.com/embrz/letting-go-x-novo-amor-anchor-1)
 
-**Artist**: Lowly. 
+**Artist**: EMBRZ 
 
-**Track**: Egzod - Ride The Wave
+**Track**: Letting Go x Novo Amor - Anchor
 
-Last updated at 08/09/2020 08:27
+Last updated at 08/10/2020 08:30
