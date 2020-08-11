@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
 
-**Artist**: Lowly. 
+**Artist**: bitbird 
 
-**Track**: Egzod - Ride The Wave
+**Track**: Former Hero - Friends Now
 
-Last updated at 08/10/2020 17:13
+Last updated at 08/11/2020 07:41
