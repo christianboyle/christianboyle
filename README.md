@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DMgmkkn4TgtOkd7K-Y7nXmg-t50x50.jpg">](https://soundcloud.com/robgassermusic/youregonnaloveme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XG6QUD1kKiRT3eQC-qFFHUw-t50x50.jpg">](https://soundcloud.com/stratosunion/millennial-trash-x-kid-trevor-fade-out)
 
-**Artist**: rob gasser 
+**Artist**: Stratos Union 
 
-**Track**: Eliminate ft. Leah Culver - You're Gonna Love Me (Rob Gasser Remix)
+**Track**: Millennial Trash & Kid Trevor - Fade Out
 
-Last updated at 08/11/2020 07:56
+Last updated at 08/11/2020 07:59
