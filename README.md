@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtyJK1PyfqSElJF5-mIkh6g-t50x50.jpg">](https://soundcloud.com/monstercat/julian-calor-by-my-side)
 
-**Artist**: talegate 
+**Artist**: Monstercat 
 
-**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
+**Track**: Julian Calor - By My Side
 
-Last updated at 08/11/2020 11:01
+Last updated at 08/11/2020 11:04
