@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XG6QUD1kKiRT3eQC-qFFHUw-t50x50.jpg">](https://soundcloud.com/stratosunion/millennial-trash-x-kid-trevor-fade-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtyJK1PyfqSElJF5-mIkh6g-t50x50.jpg">](https://soundcloud.com/monstercat/julian-calor-by-my-side)
 
-**Artist**: Stratos Union 
+**Artist**: Monstercat 
 
-**Track**: Millennial Trash & Kid Trevor - Fade Out
+**Track**: Julian Calor - By My Side
 
-Last updated at 08/11/2020 07:59
+Last updated at 08/11/2020 08:56
