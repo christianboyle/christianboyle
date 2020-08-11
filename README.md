@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sPx30eU6oyIXZ1y-FYYp2Q-t50x50.jpg">](https://soundcloud.com/ellisofficial/speakfrancais)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
 
-**Artist**: ellis 
+**Artist**: bitbird 
 
-**Track**: speak français (feat. NOËP)
+**Track**: Former Hero - Friends Now
 
-Last updated at 08/11/2020 10:27
+Last updated at 08/11/2020 10:28
