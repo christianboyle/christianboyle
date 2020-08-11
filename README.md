@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NIiKRXy1ZfQx19Zu-QAcNqA-t50x50.jpg">](https://soundcloud.com/kastello_music/samplifire-duality-kastello-hovxnes-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4Eaua4ntttR-0-t50x50.jpg">](https://soundcloud.com/surfmesa/somewhere-feat-gus-dapperton)
 
-**Artist**: Kastello 
+**Artist**: Surf Mesa 
 
-**Track**: Samplifire - Duality (Kastello & HOVXNES Remix)
+**Track**: Somewhere (feat. Gus Dapperton)
 
-Last updated at 08/11/2020 07:42
+Last updated at 08/11/2020 07:43
