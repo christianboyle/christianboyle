@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z4qYgIhhG9iGlO-Kycp9Q-t50x50.jpg">](https://soundcloud.com/grazcore/live-nekomimi-meltdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtyJK1PyfqSElJF5-mIkh6g-t50x50.jpg">](https://soundcloud.com/monstercat/julian-calor-by-my-side)
 
-**Artist**: GRAZ 
+**Artist**: Monstercat 
 
-**Track**: Graz - Live @ Nekomimi Meltdown [06.22.19]
+**Track**: Julian Calor - By My Side
 
-Last updated at 08/11/2020 11:55
+Last updated at 08/11/2020 12:49
