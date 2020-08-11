@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kglF3gVQnxUqOgqy-ieVDMQ-t50x50.jpg">](https://soundcloud.com/draz_music/formula-foxsky-x-draz-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DMgmkkn4TgtOkd7K-Y7nXmg-t50x50.jpg">](https://soundcloud.com/robgassermusic/youregonnaloveme)
 
-**Artist**: draz 
+**Artist**: rob gasser 
 
-**Track**: RL Grime & Juelz - Formula (Foxsky x Draz Bootleg)
+**Track**: Eliminate ft. Leah Culver - You're Gonna Love Me (Rob Gasser Remix)
 
-Last updated at 08/11/2020 07:54
+Last updated at 08/11/2020 07:56
