@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8I5piHSyRKHhvzJ-dC8d4w-t50x50.jpg">](https://soundcloud.com/xotixmusic/eprom-old-school-deconstruction-xotix-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuFT5CiuEet5Ev1r-63rKFA-t50x50.jpg">](https://soundcloud.com/tokyo_tears/lost)
 
-**Artist**: Xotix 
+**Artist**: Tokyo tears 
 
-**Track**: Eprom- Old School Deconstruction (Xotix Flip)
+**Track**: Lost
 
-Last updated at 08/11/2020 20:49
+Last updated at 08/11/2020 20:53
