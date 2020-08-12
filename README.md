@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSZ94EnVqrTtiwzb-2Nw2ZA-t50x50.jpg">](https://soundcloud.com/goodsociety/fromtheheart?in=goodsociety/sets/inflectionpoint)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GYvB0sthzk1At8v7-YYPArw-t50x50.jpg">](https://soundcloud.com/excision/lockdown-madreckless-remix)
 
-**Artist**: Good Society 
+**Artist**: Excision 
 
-**Track**: Myles Jaeger - FROM THE HEART
+**Track**: Excision X Wooli - Lockdown (MadReckless Remix)
 
-Last updated at 08/12/2020 04:46
+Last updated at 08/12/2020 04:49
