@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBWVGwC0zzxp1hLa-gjyyhg-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cid-presents-night-service-only-radio-episode-078)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZqImKueb389ahg8g-pUz1ng-t50x50.jpg">](https://soundcloud.com/safaridotexe/crucian-carp-let-go)
 
-**Artist**: Night Service Only 
+**Artist**: Safari.exe 
 
-**Track**: CID Presents: Night Service Only Radio: Episode 078
+**Track**: Crucian Carp - Let Go
 
-Last updated at 08/12/2020 01:25
+Last updated at 08/12/2020 02:24
