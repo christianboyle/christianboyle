@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cO5sdVf14PTbzCRC-nGAAgQ-t50x50.jpg">](https://soundcloud.com/paul-gannon-2nd-account/marshmello-juice-wrld-come-go-paul-gannon-bootleg-pitched-for-soundcloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrkzshZlKWRodCBV-ZMFBLg-t50x50.jpg">](https://soundcloud.com/esydiamusic/ngyn-x-nitsua-solitude)
 
-**Artist**: Paul Gannon 
+**Artist**: Esydia 
 
-**Track**: Marshmello & Juice WRLD - Come & Go (Paul Gannon Bootleg) [Free Download]
+**Track**: NGYN x nitsua. - solitude
 
-Last updated at 08/11/2020 17:36
+Last updated at 08/11/2020 20:48
