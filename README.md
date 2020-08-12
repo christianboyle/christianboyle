@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rcSTduYMqTQNzsbC-hzRyxg-t50x50.jpg">](https://soundcloud.com/officialjero/we-do-coke-35-jero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000805592641-eu9auz-t50x50.jpg">](https://soundcloud.com/beatdownbass/habibi)
 
-**Artist**: JERO 
+**Artist**: Beatdown Bass 
 
-**Track**: WE DO COKE #35 - (JERO)
+**Track**: Noahphella- Habibi [Beatdown Bass X The Goodphellas]
 
-Last updated at 08/11/2020 22:49
+Last updated at 08/11/2020 23:44
