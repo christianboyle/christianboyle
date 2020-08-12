@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvlb8q4D4O8BkZcb-4wbICg-t50x50.jpg">](https://soundcloud.com/chronaofficial/come-go-chrona-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zL1ptd5dTyLTWT3k-COFXZw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/neverbroke)
 
-**Artist**: Chrona 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Come & Go (Chrona Remix) - Juice Wrld, Marshmello [Trap / Festival Bass]
+**Track**: Flawx & HaMiX - Never Broke
 
-Last updated at 08/12/2020 09:25
+Last updated at 08/12/2020 09:26
