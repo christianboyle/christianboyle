@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCTgu8zAgUZ1zqG1-gW1k0w-t50x50.jpg">](https://soundcloud.com/kompanymusic/feel-it-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4Eaua4ntttR-0-t50x50.jpg">](https://soundcloud.com/surfmesa/somewhere-feat-gus-dapperton)
 
-**Artist**: Kompany 
+**Artist**: Surf Mesa 
 
-**Track**: Feel It All
+**Track**: Somewhere (feat. Gus Dapperton)
 
-Last updated at 08/12/2020 05:29
+Last updated at 08/12/2020 05:34
