@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqD1xGuYsX07HQfe-8GEKnQ-t50x50.jpg">](https://soundcloud.com/iamsolafide/said-the-sky-kwesi-all-i-got-solafide-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1IwYp0yY8ZK5891-XytfmQ-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-highs-lows-ft-t-boogie)
 
-**Artist**: SOLAFIDE 
+**Artist**: Tre Oh Fie 
 
-**Track**: Said The Sky & Kwesi - All I Got (SOLAFIDE Remix)
+**Track**: Tre Oh Fie - Highs & Lows (ft. T Boogie)
 
-Last updated at 08/12/2020 06:25
+Last updated at 08/12/2020 06:30
