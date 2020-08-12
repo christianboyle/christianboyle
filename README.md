@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSoM1oyMtqMQGfu6-3UpLtA-t50x50.jpg">](https://soundcloud.com/rederickmusic/one-world-one-people-808-day-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCsldpyyMQIw0JWn-zR5DPQ-t50x50.jpg">](https://soundcloud.com/tsouwhat/mental)
 
-**Artist**: Rederick 
+**Artist**: tsou 
 
-**Track**: One World, One People [808 Day Mix]
+**Track**: mental
 
-Last updated at 08/12/2020 06:35
+Last updated at 08/12/2020 07:07
