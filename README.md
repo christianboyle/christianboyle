@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nXmyxtj7AQsP3EI-DwF4eA-t50x50.jpg">](https://soundcloud.com/slangdogs/love-me-sd-x-veepot?in=veepot/sets/eliminate-youre-gonna-love-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlMlOiGZ5Kv44M6E-lmRlvw-t50x50.jpg">](https://soundcloud.com/mattmajormusic/san-holo-idk-anything-revibe)
 
-**Artist**: Slang Dogs 
+**Artist**: Matt Major☄️ 
 
-**Track**: Eliminate - You're Gonna Love Me (Ft. Leah Culver) (Slang Dogs x Veepot Remix)
+**Track**: San Holo - Idk Anything (Matt Major ReVibe✨)
 
-Last updated at 08/12/2020 05:06
+Last updated at 08/12/2020 05:09
