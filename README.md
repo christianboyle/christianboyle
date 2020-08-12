@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f1AgkYNLsMOwCy1A-DmJz6w-t50x50.jpg">](https://soundcloud.com/gmafiarecords/huish-boss?in=gmafiarepost/sets/huish-boss-original-mix-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lln6RRZWQ2DniCAP-OHCs9w-t50x50.jpg">](https://soundcloud.com/bassrush/tek-genesis-eterna?in=bassrush/sets/the-prophecy-vol-2)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Bassrush 
 
-**Track**: Huish - Boss (Original Mix) [G-MAFIA RECORDS]
+**Track**: Tek Genesis - Eterna
 
-Last updated at 08/12/2020 07:25
+Last updated at 08/12/2020 07:28
