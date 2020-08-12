@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWMqvllSixWFVXjz-W9V2Ow-t50x50.jpg">](https://soundcloud.com/dubscribe_produkt/lockdown-dubscribe-remix1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-grZm8hMJilnLfqD7-3hN5lw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/thecalling)
 
-**Artist**: Dubscribe🐈 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Excision & Wooli - Lockdown (Dubscribe Remix) [Free Download]
+**Track**: Morillo - The Calling
 
-Last updated at 08/11/2020 21:56
+Last updated at 08/11/2020 22:00
