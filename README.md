@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sqHI2emkBzqsQkP-ihZhhQ-t50x50.jpg">](https://soundcloud.com/niteboi6/tabletten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSoM1oyMtqMQGfu6-3UpLtA-t50x50.jpg">](https://soundcloud.com/rederickmusic/one-world-one-people-808-day-mix)
 
-**Artist**: niteboi✨🌙 
+**Artist**: Rederick 
 
-**Track**: tabletten
+**Track**: One World, One People [808 Day Mix]
 
-Last updated at 08/12/2020 06:32
+Last updated at 08/12/2020 06:35
