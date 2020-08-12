@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OHjJYwg0yMEJGEtX-YN6cQA-t50x50.jpg">](https://soundcloud.com/iammeswank/mr-carmack-birth-control-me-swank-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsymyscliqFrNQTq-EjAmlA-t50x50.jpg">](https://soundcloud.com/morphrecord/demons)
 
-**Artist**: M.E. SWANK 
+**Artist**: Morph Records 
 
-**Track**: MR. CARMACK - BIRTH CONTROL [M.E. SWANK FLIP]
+**Track**: BassBears - Demons | Morph Release
 
-Last updated at 08/12/2020 08:43
+Last updated at 08/12/2020 08:44
