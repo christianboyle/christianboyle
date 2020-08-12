@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuFT5CiuEet5Ev1r-63rKFA-t50x50.jpg">](https://soundcloud.com/tokyo_tears/lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOi3RyAuQeApYUE1-pb6koQ-t50x50.jpg">](https://soundcloud.com/ehnnetwork/bw-kosta-mahrad-parsa-flashback?in=djkostamusic/sets/bw-kosta-mahrad-parsa)
 
-**Artist**: Tokyo tears 
+**Artist**: EDMHouseNetwork 
 
-**Track**: Lost
+**Track**: BW, KOSTA, Mahrad Parsa - Flashback
 
-Last updated at 08/11/2020 20:53
+Last updated at 08/11/2020 20:56
