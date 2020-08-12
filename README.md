@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWQi5RNnwR1z6QJH-QAyA9Q-t50x50.jpg">](https://soundcloud.com/playmerecords/svble-shvdw?in=playmerecords/sets/recess-ep-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
 
-**Artist**: Play Me Records 
+**Artist**: talegate 
 
-**Track**: SVBLE - SHVDW
+**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
 
-Last updated at 08/12/2020 00:03
+Last updated at 08/12/2020 00:06
