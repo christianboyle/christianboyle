@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AryglTStT1Io2ccT-23d5rA-t50x50.jpg">](https://soundcloud.com/gmafiarecords/ottoo-all-night?in=gmafiarepost/sets/ottoo-all-night-original-mix-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2P5cWlC14DRJkqr-7fCuoA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/holymane-lose-ya-mind)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Contre Jour 
 
-**Track**: OTTOO - All Night (Original  Mix) [G-MAFIA RECORDS]
+**Track**: HOLYMANE - LOSE YA MIND
 
-Last updated at 08/12/2020 00:45
+Last updated at 08/12/2020 00:51
