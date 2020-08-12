@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kXJRTD5W5uSUJSiQ-AfDFAg-t50x50.jpg">](https://soundcloud.com/complexion/tfbs249)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbpzpHkvi0Ht9tj1-jndNfQ-t50x50.jpg">](https://soundcloud.com/novalotusmusic/need-you)
 
-**Artist**: Complexion 
+**Artist**: Nova Lotus Music 
 
-**Track**: The Future Beats Show Epsiode 249
+**Track**: Kerys + Eighti8 - Need You
 
-Last updated at 08/12/2020 02:27
+Last updated at 08/12/2020 04:24
