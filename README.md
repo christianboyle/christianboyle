@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOaTDAbzJY281MTq-P7I3RQ-t50x50.jpg">](https://soundcloud.com/obiimp3/trust-feat-gaby-g-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWMqvllSixWFVXjz-W9V2Ow-t50x50.jpg">](https://soundcloud.com/dubscribe_produkt/lockdown-dubscribe-remix1)
 
-**Artist**: Obii 
+**Artist**: Dubscribe🐈 
 
-**Track**: TRUST [FEAT. Gaby G]
+**Track**: Excision & Wooli - Lockdown (Dubscribe Remix) [Free Download]
 
-Last updated at 08/11/2020 21:54
+Last updated at 08/11/2020 21:56
