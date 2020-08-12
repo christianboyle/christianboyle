@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOi3RyAuQeApYUE1-pb6koQ-t50x50.jpg">](https://soundcloud.com/ehnnetwork/bw-kosta-mahrad-parsa-flashback?in=bwmussic/sets/bw-kosta-mahrad-parsa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QuYx5OgZy11fAidI-rKSgdw-t50x50.jpg">](https://soundcloud.com/tambatofficial/seven-lions-haliene-whats-done-is-done-tambat-remix-2)
 
-**Artist**: EDMHouseNetwork 
+**Artist**: TAMBAT 
 
-**Track**: BW, KOSTA, Mahrad Parsa - Flashback
+**Track**: Seven Lions & HALIENE - What's Done Is Done (TAMBAT Remix)
 
-Last updated at 08/12/2020 00:09
+Last updated at 08/12/2020 00:13
