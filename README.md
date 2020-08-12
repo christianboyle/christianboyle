@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SItgGDrpfdtYD1wL-M9ei8Q-t50x50.jpg">](https://soundcloud.com/kohla-music/kohla-flyynn-riding-low)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rcSTduYMqTQNzsbC-hzRyxg-t50x50.jpg">](https://soundcloud.com/officialjero/we-do-coke-35-jero)
 
-**Artist**: KOHLA 
+**Artist**: JERO 
 
-**Track**: KOHLA & FLYYNN - RIDING LOW
+**Track**: WE DO COKE #35 - (JERO)
 
-Last updated at 08/11/2020 22:47
+Last updated at 08/11/2020 22:49
