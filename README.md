@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eO2jVHZ02C9WIPvH-fbdgFg-t50x50.jpg">](https://soundcloud.com/kcamp427/06-lemonade-ft-true-story-gee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
 
-**Artist**: K Camp 
+**Artist**: bitbird 
 
-**Track**: Rare Sound, True Story Gee - Lemonade
+**Track**: Former Hero - Friends Now
 
-Last updated at 08/11/2020 22:06
+Last updated at 08/11/2020 22:08
