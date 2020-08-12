@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tbAlwMvQb4Q39Yo5-zRAotw-t50x50.jpg">](https://soundcloud.com/elevatd/elevatd-zoo-feat-jbank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsXRDrxPMz4gnnBo-hezMRw-t50x50.jpg">](https://soundcloud.com/jvna/safehouse)
 
-**Artist**: ELEVATD 
+**Artist**: JVNA 
 
-**Track**: ELEVATD - ZOO FEAT. JBANK$
+**Track**: Safehouse
 
-Last updated at 08/12/2020 07:53
+Last updated at 08/12/2020 07:54
