@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-umZp1nNOicACznEV-8D4yAw-t50x50.jpg">](https://soundcloud.com/32stitches/wake-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iHzU0e0FsDakz0RV-SHJzDA-t50x50.jpg">](https://soundcloud.com/playmerecords/diiiva-in-the-dark-feat-monika-santucci?in=playmerecords/sets/recess-ep-2)
 
-**Artist**: 32Stitches 
+**Artist**: Play Me Records 
 
-**Track**: 32Stitches - Wake Me Up When September Ends (Feat. Myah Marie)
+**Track**: DIIIVA - In The Dark (feat. Monika Santucci)
 
-Last updated at 08/11/2020 23:48
+Last updated at 08/11/2020 23:51
