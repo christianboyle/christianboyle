@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QuYx5OgZy11fAidI-rKSgdw-t50x50.jpg">](https://soundcloud.com/tambatofficial/seven-lions-haliene-whats-done-is-done-tambat-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRyc3XFy5z66xacK-y6tcMQ-t50x50.jpg">](https://soundcloud.com/shyghyofficial/manic-1?in=shyghyofficial/sets/reflections-ep)
 
-**Artist**: TAMBAT 
+**Artist**: ShyGhy 
 
-**Track**: Seven Lions & HALIENE - What's Done Is Done (TAMBAT Remix)
+**Track**: Manic
 
-Last updated at 08/12/2020 00:13
+Last updated at 08/12/2020 00:19
