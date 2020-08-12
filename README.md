@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbpzpHkvi0Ht9tj1-jndNfQ-t50x50.jpg">](https://soundcloud.com/novalotusmusic/need-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9u5nSRLe822yzOY-FT43og-t50x50.jpg">](https://soundcloud.com/goldish_music/masego-kings-rant-dipped-by-goldish)
 
-**Artist**: Nova Lotus Music 
+**Artist**: Gold·ish 
 
-**Track**: Kerys + Eighti8 - Need You
+**Track**: Masego - King's Rant (Dipped by Gold•ish)
 
-Last updated at 08/12/2020 04:24
+Last updated at 08/12/2020 04:27
