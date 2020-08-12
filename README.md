@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oz7T1cWxu0ntf9Iw-01BqtA-t50x50.jpg">](https://soundcloud.com/coupprojekt/xynia-nothing-without-you-coupz002?in=coupprojekt/sets/coupz002-xynia-never-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bbbOtbTb5qHAKUFJ-gguynA-t50x50.jpg">](https://soundcloud.com/lucalush/savetheday)
 
-**Artist**: COUP 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: Xynia - Nothing Without You [COUPZ002]
+**Track**: 𝙎𝘼𝙑𝙀 𝙏𝙃𝙀 𝘿𝘼𝙔
 
-Last updated at 08/12/2020 07:38
+Last updated at 08/12/2020 07:39
