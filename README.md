@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zL1ptd5dTyLTWT3k-COFXZw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/neverbroke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtyJK1PyfqSElJF5-mIkh6g-t50x50.jpg">](https://soundcloud.com/monstercat/julian-calor-by-my-side)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Monstercat 
 
-**Track**: Flawx & HaMiX - Never Broke
+**Track**: Julian Calor - By My Side
 
-Last updated at 08/12/2020 11:46
+Last updated at 08/12/2020 11:59
