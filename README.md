@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8XoJsNg3kbFrf0N-BkSXWQ-t50x50.jpg">](https://soundcloud.com/wicked_records/espioth-signal-flare-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvlb8q4D4O8BkZcb-4wbICg-t50x50.jpg">](https://soundcloud.com/chronaofficial/come-go-chrona-remix)
 
-**Artist**: Wicked Records 
+**Artist**: Chrona 
 
-**Track**: ESPIOTH - SIGNAL FLARE (ORIGINAL MIX)
+**Track**: Come & Go (Chrona Remix) - Juice Wrld, Marshmello [Trap / Festival Bass]
 
-Last updated at 08/12/2020 07:16
+Last updated at 08/12/2020 07:19
