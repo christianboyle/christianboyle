@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjl9anyxcLBm5WCj-tMutKg-t50x50.jpg">](https://soundcloud.com/carbin-official/dj-khaled-popstar-feat-drakecarbin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuFT5CiuEet5Ev1r-63rKFA-t50x50.jpg">](https://soundcloud.com/tokyo_tears/lost)
 
-**Artist**: CARBIN 
+**Artist**: Tokyo tears 
 
-**Track**: DJ KHALED - POPSTAR (FEAT. DRAKE)[CARBIN REMIX]
+**Track**: Lost
 
-Last updated at 08/13/2020 07:08
+Last updated at 08/13/2020 07:09
