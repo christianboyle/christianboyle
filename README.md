@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyypbqQ6aptu8MDS-zc3TSQ-t50x50.jpg">](https://soundcloud.com/rusuitor/hugo-doche-lotten-money)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wATJ1eCviYIpO9Uf-Aj0gfQ-t50x50.jpg">](https://soundcloud.com/harrier-music/open-up)
 
-**Artist**: [ SUITOR ] 
+**Artist**: Harrier Music 
 
-**Track**: Hugo Doche & Lotten - Money [ FREE DOWNLOAD ]
+**Track**: Harrier, DOP3 MC, $oviet Kid - Open Up [FREE DOWNLOAD]
 
-Last updated at 08/14/2020 10:42
+Last updated at 08/14/2020 10:45
