@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/swoopin)
 
-**Artist**: Opal Fruits 
+**Artist**: SABLE VALLEY 
 
-**Track**: OFMIX - 019 [counsel pop]
+**Track**: Baauer - Swoopin (RL Grime Edit)
 
-Last updated at 08/14/2020 12:11
+Last updated at 08/14/2020 15:18
