@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V1K4M7u8ouvrpie2-bXOiYw-t50x50.jpg">](https://soundcloud.com/m3nacemusic/disciple-super-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gHaIvzPx5gqmFPMr-wC5ugA-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf238)
 
-**Artist**: M3NACE 
+**Artist**: Strange Fruits 
 
-**Track**: DISCIPLE SUPER REMIX
+**Track**: Formal Chicken - Sunflower
 
-Last updated at 08/14/2020 08:57
+Last updated at 08/14/2020 08:58
