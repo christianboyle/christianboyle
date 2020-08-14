@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4Eaua4ntttR-0-t50x50.jpg">](https://soundcloud.com/surfmesa/somewhere-feat-gus-dapperton)
 
-**Artist**: Good Vibes Only 
+**Artist**: Surf Mesa 
 
-**Track**: Elahu - OP #GV085
+**Track**: Somewhere (feat. Gus Dapperton)
 
-Last updated at 08/14/2020 09:58
+Last updated at 08/14/2020 10:00
