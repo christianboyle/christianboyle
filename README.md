@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERwlk8hhobGcD6mh-aMMgzA-t50x50.jpg">](https://soundcloud.com/sosumi-records/sunday-noise-al-sharif-kane-sonder-loving-ft-john-thacker-free-download?in=discoveryteam/sets/discovery-featured-loving-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/gems)
 
-**Artist**: Sosumi Records 
+**Artist**: SABLE VALLEY 
 
-**Track**: Sunday Noise, AL Sharif & Kane Sonder - Loving (Ft. John Thacker) [FREE DOWNLOAD]
+**Track**: Knock2 - GEMS
 
-Last updated at 08/14/2020 15:21
+Last updated at 08/14/2020 15:22
