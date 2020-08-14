@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nXmyxtj7AQsP3EI-DwF4eA-t50x50.jpg">](https://soundcloud.com/slangdogs/love-me-sd-x-veepot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toF7aD6IsxNMpP0R-D65yiw-t50x50.jpg">](https://soundcloud.com/xotixmusic/kumarion-want-it-xotix-remix)
 
-**Artist**: Slang Dogs 
+**Artist**: Xotix 
 
-**Track**: Eliminate - You're Gonna Love Me (Ft. Leah Culver) (Slang Dogs x Veepot Remix)
+**Track**: Kumarion - Want It (Xotix Remix)
 
-Last updated at 08/14/2020 09:07
+Last updated at 08/14/2020 09:10
