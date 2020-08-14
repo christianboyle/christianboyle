@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Pm3aoLzaeIWTQAf-rezmEQ-t50x50.jpg">](https://soundcloud.com/ashezmusic/flip-the-script)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
 
-**Artist**: ASHEZ 
+**Artist**: Good Vibes Only 
 
-**Track**: Flip The Script
+**Track**: Elahu - OP #GV085
 
-Last updated at 08/14/2020 09:54
+Last updated at 08/14/2020 09:58
