@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmcidN96zCyyNJBt-ezwDZg-t50x50.jpg">](https://soundcloud.com/killparis/why-we-feel-this-way?in=killparis/sets/house-with-a-pool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIWie952YhWSzFA8-9Pjc0Q-t50x50.jpg">](https://soundcloud.com/killparis/gimme-your-lovin-1?in=killparis/sets/house-with-a-pool)
 
 **Artist**: Kill Paris 
 
-**Track**: Why We Feel This Way
+**Track**: Gimme Your Lovin'
 
-Last updated at 08/14/2020 09:30
+Last updated at 08/14/2020 09:33
