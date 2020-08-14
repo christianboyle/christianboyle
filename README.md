@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRK05YKEvqy3qODE-VPBy4Q-t50x50.jpg">](https://soundcloud.com/innersus/episcool-x-super-future-x-wreckno-get-it-movin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykf37PhBqytGrKIf-VbB7nQ-t50x50.jpg">](https://soundcloud.com/morflorecords/mfr0016)
 
-**Artist**: SUS COLLECTIVE 
+**Artist**: MorFlo Records 
 
-**Track**: Super Future x episcool x Wreckno - Get It Movin'
+**Track**: SuperAve. - CHROME [MFR0016]
 
-Last updated at 08/14/2020 08:38
+Last updated at 08/14/2020 08:42
