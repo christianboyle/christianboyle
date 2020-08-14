@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toF7aD6IsxNMpP0R-D65yiw-t50x50.jpg">](https://soundcloud.com/xotixmusic/kumarion-want-it-xotix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfMMWPxdpCd080Qz-gbUthA-t50x50.jpg">](https://soundcloud.com/killparis/its-true-1?in=killparis/sets/house-with-a-pool)
 
-**Artist**: Xotix 
+**Artist**: Kill Paris 
 
-**Track**: Kumarion - Want It (Xotix Remix)
+**Track**: It's True
 
-Last updated at 08/14/2020 09:10
+Last updated at 08/14/2020 09:14
