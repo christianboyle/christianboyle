@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIhYAsLmc4jSZaRF-r5Z6TQ-t50x50.jpg">](https://soundcloud.com/below_the_surface/gurf-thrpy-back1time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NSIjjtcoRKVqLpp-UZro8Q-t50x50.jpg">](https://soundcloud.com/prodbysomni/shivalry-neku-oc)
 
-**Artist**: Below 
+**Artist**: IN$OMNIAK 
 
-**Track**: Gurf x THRPY - BACK1TIME
+**Track**: Shivalry (neku oc)
 
-Last updated at 08/14/2020 10:07
+Last updated at 08/14/2020 10:10
