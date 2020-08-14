@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mbg5HOkBZJxSbW8n-Itq4qg-t50x50.png">](https://soundcloud.com/weekendworkout/weekend-workout-234)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcMOS1DjaG5F-0-t50x50.jpg">](https://soundcloud.com/iamannemarie/to-be-young-feat-doja-cat-1)
 
-**Artist**: Weekend Workout 
+**Artist**: Anne-Marie 
 
-**Track**: Weekend Workout 234: Hotel Garuda Guest Mix
+**Track**: To Be Young (feat. Doja Cat) (Felix Cartal Remix)
 
-Last updated at 08/14/2020 16:36
+Last updated at 08/14/2020 16:52
