@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4Eaua4ntttR-0-t50x50.jpg">](https://soundcloud.com/surfmesa/somewhere-feat-gus-dapperton)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fAIETKvAKRPZ5zXW-1XJLVA-t50x50.jpg">](https://soundcloud.com/a40ounce/wasteurself-x-ion-losing-sux?in=wasteurself/sets/a-40oz-collective-wasteurself)
 
-**Artist**: Surf Mesa 
+**Artist**: a 40oz Collective 
 
-**Track**: Somewhere (feat. Gus Dapperton)
+**Track**: wasteurself X ION - Losing Sux
 
-Last updated at 08/14/2020 10:00
+Last updated at 08/14/2020 10:03
