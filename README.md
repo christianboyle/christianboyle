@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wATJ1eCviYIpO9Uf-Aj0gfQ-t50x50.jpg">](https://soundcloud.com/harrier-music/open-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRK05YKEvqy3qODE-VPBy4Q-t50x50.jpg">](https://soundcloud.com/innersus/episcool-x-super-future-x-wreckno-get-it-movin)
 
-**Artist**: Harrier Music 
+**Artist**: SUS COLLECTIVE 
 
-**Track**: Harrier, DOP3 MC, $oviet Kid - Open Up [FREE DOWNLOAD]
+**Track**: Super Future x episcool x Wreckno - Get It Movin'
 
-Last updated at 08/14/2020 10:45
+Last updated at 08/14/2020 10:47
