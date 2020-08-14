@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NTa71jQHsCpP8wv5-0FMQCA-t50x50.jpg">](https://soundcloud.com/visionary_radio/guest-mix-027-oh-gee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRK05YKEvqy3qODE-VPBy4Q-t50x50.jpg">](https://soundcloud.com/innersus/episcool-x-super-future-x-wreckno-get-it-movin)
 
-**Artist**: Visionary Laboratory 
+**Artist**: SUS COLLECTIVE 
 
-**Track**: Guest Mix 027: oh! gee
+**Track**: Super Future x episcool x Wreckno - Get It Movin'
 
-Last updated at 08/13/2020 08:30
+Last updated at 08/14/2020 08:38
