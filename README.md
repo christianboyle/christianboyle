@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlyzi0fPu0grl3ij-iB6sZQ-t50x50.jpg">](https://soundcloud.com/hysteriarecords/subshock-evangelos-vs-rehk-free-your-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCKILzHrQWqmjF0d-zV20eg-t50x50.jpg">](https://soundcloud.com/type3-bootlegs/las-ketchup-the-ketchup-song-type3-edition)
 
-**Artist**: Hysteria Records 
+**Artist**: TYPE3 VIP 
 
-**Track**: Subshock & Evangelos vs REHK - Free Your Mind
+**Track**: Las Ketchup - The Ketchup Song [TYPE3 Edition]
 
-Last updated at 08/14/2020 09:00
+Last updated at 08/14/2020 09:04
