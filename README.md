@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sqHI2emkBzqsQkP-ihZhhQ-t50x50.jpg">](https://soundcloud.com/niteboi6/tabletten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmrY593jy10KWfPB-CmEB6g-t50x50.jpg">](https://soundcloud.com/magicallyedm/thelight)
 
-**Artist**: niteboi✨🌙 
+**Artist**: Magically 
 
-**Track**: tabletten
+**Track**: NDsounds - The Light [Magically Release]
 
-Last updated at 08/14/2020 10:32
+Last updated at 08/14/2020 10:35
