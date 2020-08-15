@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDqyXgvAn5zfh290-XhJOCA-t50x50.jpg">](https://soundcloud.com/gunfightmusic/fully-loaded-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7eAr40LcRY72zzX-IxLE7g-t50x50.jpg">](https://soundcloud.com/lucillecroft/control)
 
-**Artist**: GunFight 
+**Artist**: Lucille Croft 
 
-**Track**: Fully Loaded Vol 9
+**Track**: Control
 
-Last updated at 08/15/2020 13:59
+Last updated at 08/15/2020 14:08
