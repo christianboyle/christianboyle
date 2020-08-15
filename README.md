@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRK05YKEvqy3qODE-VPBy4Q-t50x50.jpg">](https://soundcloud.com/innersus/episcool-x-super-future-x-wreckno-get-it-movin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zL1ptd5dTyLTWT3k-COFXZw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/neverbroke)
 
-**Artist**: SUS COLLECTIVE 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Super Future x episcool x Wreckno - Get It Movin'
+**Track**: Flawx & HaMiX - Never Broke
 
-Last updated at 08/15/2020 08:34
+Last updated at 08/15/2020 08:37
