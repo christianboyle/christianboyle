@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcMOS1DjaG5F-0-t50x50.jpg">](https://soundcloud.com/iamannemarie/to-be-young-feat-doja-cat-1)
 
-**Artist**: bitbird 
+**Artist**: Anne-Marie 
 
-**Track**: Former Hero - Friends Now
+**Track**: To Be Young (feat. Doja Cat) (Felix Cartal Remix)
 
-Last updated at 08/14/2020 17:06
+Last updated at 08/15/2020 08:30
