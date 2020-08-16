@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nXmyxtj7AQsP3EI-DwF4eA-t50x50.jpg">](https://soundcloud.com/slangdogs/love-me-sd-x-veepot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/gems)
 
-**Artist**: Slang Dogs 
+**Artist**: SABLE VALLEY 
 
-**Track**: Eliminate - You're Gonna Love Me (Ft. Leah Culver) (Slang Dogs x Veepot Remix)
+**Track**: Knock2 - GEMS
 
-Last updated at 08/16/2020 10:15
+Last updated at 08/16/2020 10:18
