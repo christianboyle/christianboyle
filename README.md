@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLSeFseGr67azMI9-srbj1A-t50x50.jpg">](https://soundcloud.com/craymakmusic/another-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9nYRqJMU3Fakp3D-750fnA-t50x50.jpg">](https://soundcloud.com/subcarbon/notixx-deception)
 
-**Artist**: CRaymak 
+**Artist**: SubCarbon Records 
 
-**Track**: Another Day
+**Track**: Notixx - Deception
 
-Last updated at 08/16/2020 09:47
+Last updated at 08/16/2020 09:48
