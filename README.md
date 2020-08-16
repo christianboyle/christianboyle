@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhoL3UM4nvka0kwf-TimWgQ-t50x50.jpg">](https://soundcloud.com/partyfavormusic/actup-feat-jahmed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLSeFseGr67azMI9-srbj1A-t50x50.jpg">](https://soundcloud.com/craymakmusic/another-day)
 
-**Artist**: PARTY FAVOR 
+**Artist**: CRaymak 
 
-**Track**: ACTUP (feat. JAHMED)
+**Track**: Another Day
 
-Last updated at 08/16/2020 09:46
+Last updated at 08/16/2020 09:47
