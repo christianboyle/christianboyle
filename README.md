@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9nYRqJMU3Fakp3D-750fnA-t50x50.jpg">](https://soundcloud.com/subcarbon/notixx-deception)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfMMWPxdpCd080Qz-gbUthA-t50x50.jpg">](https://soundcloud.com/killparis/its-true-1?in=killparis/sets/house-with-a-pool)
 
-**Artist**: SubCarbon Records 
+**Artist**: Kill Paris 
 
-**Track**: Notixx - Deception
+**Track**: It's True
 
-Last updated at 08/16/2020 09:48
+Last updated at 08/16/2020 09:49
