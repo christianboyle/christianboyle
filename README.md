@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgZKwpOFjyTcicPy-FwjQ5w-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/rvkit-toasted-ft-binx-mcr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRn85v5Nyc6RUIvk-PSbalA-t50x50.jpg">](https://soundcloud.com/weirdnxc/dj-fingerblast-fake-drivers-license?in=weirdnxc/sets/act-4)
 
-**Artist**: more creativity records 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: RVKIT - Toasted Ft. Binx.
+**Track**: 01 - DJ FINGERBLAST - FAKE DRIVERS LICENSE
 
-Last updated at 08/16/2020 09:20
+Last updated at 08/16/2020 09:21
