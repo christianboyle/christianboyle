@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/gems)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBxbYnKTbaq30CDo-9E9XwA-t50x50.jpg">](https://soundcloud.com/officialeyezlow/indigo)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Eyez Low 
 
-**Track**: Knock2 - GEMS
+**Track**: INDiGO
 
-Last updated at 08/16/2020 10:18
+Last updated at 08/16/2020 10:22
