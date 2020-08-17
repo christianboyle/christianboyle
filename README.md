@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s98k4ozfHrhTaXBi-mEvR4Q-t50x50.jpg">](https://soundcloud.com/trapicalmusic/shouldhavesaidit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tA4cSScOhFwmF1MJ-6C1Dpw-t50x50.jpg">](https://soundcloud.com/snavs/wayuu)
 
-**Artist**: Trapical Music 
+**Artist**: Snavs 
 
-**Track**: Camila Cabello - Should've Said It (SVRRIC & Yonexx Remix)
+**Track**: Wayu
 
-Last updated at 08/16/2020 20:21
+Last updated at 08/16/2020 20:24
