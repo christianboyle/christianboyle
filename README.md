@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRK05YKEvqy3qODE-VPBy4Q-t50x50.jpg">](https://soundcloud.com/innersus/episcool-x-super-future-x-wreckno-get-it-movin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: SUS COLLECTIVE 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: Super Future x episcool x Wreckno - Get It Movin'
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/17/2020 10:25
+Last updated at 08/17/2020 10:26
