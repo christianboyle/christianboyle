@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tA4cSScOhFwmF1MJ-6C1Dpw-t50x50.jpg">](https://soundcloud.com/snavs/wayuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CldVR7TyVwgVTcRD-huweSA-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-amba-shepherd-smells-like-teen-spirit)
 
-**Artist**: Snavs 
+**Artist**: R3HAB 
 
-**Track**: Wayu
+**Track**: R3HAB & Amba Shepherd - Smells Like Teen Spirit
 
-Last updated at 08/17/2020 07:49
+Last updated at 08/17/2020 07:52
