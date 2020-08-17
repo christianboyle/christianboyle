@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wT3vSz7I1zUGkH5X-X3Ki2A-t50x50.jpg">](https://soundcloud.com/mynameisbulma/gc-2-u-rough-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: BULMA 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: 100 Gecs - Gec to ü (Bulma Rmx)
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/17/2020 09:44
+Last updated at 08/17/2020 09:45
