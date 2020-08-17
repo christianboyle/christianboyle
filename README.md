@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBUluhsf4ccRmZzy-jAYNIw-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/nightcore-whore-mix-cant-sleep-anna-burch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJtkp88MnjzdMyI9-xBceyg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/tiga-hudson-mohawke-love-minus-zero)
 
-**Artist**: I AM ROCK NIGHTCØRE WHØRE 
+**Artist**: Hudson Mohawke 
 
-**Track**: [NIGHTCØRE WHØRE Mix] can't sleep - anna burch
+**Track**: Tiga & Hudson Mohawke - Love Minus Zero
 
-Last updated at 08/16/2020 21:20
+Last updated at 08/16/2020 21:21
