@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000034145878-akncu8-t50x50.jpg">](https://soundcloud.com/dwntwnmusic/stood-me-up?in=dwntwnmusic/sets/the-red-room-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9AtoC8k9Epjb-0-t50x50.jpg">](https://soundcloud.com/fish_narc/out?in=fish_narc/sets/wildfire-87541594)
 
-**Artist**: DWNTWN 
+**Artist**: fish narc 
 
-**Track**: Stood Me Up
+**Track**: OUT
 
-Last updated at 08/17/2020 14:48
+Last updated at 08/17/2020 14:51
