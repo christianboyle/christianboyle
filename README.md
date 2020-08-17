@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BUZylMPT1Qg4aAns-YIYVqw-t50x50.jpg">](https://soundcloud.com/waterspirit/water-spirit-b2b-cavan-brady-live-lavapalooza-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000629575075-ezbga1-t50x50.jpg">](https://soundcloud.com/lighghtmusic/gettin-jiggy-with-it?in=lighghtmusic/sets/trax-and-loosies-etc)
 
-**Artist**: Water Spirit 
+**Artist**: Lighght 
 
-**Track**: WATER SPIRIT B2B CAVAN BRADY LIVE @ LAVAPALOOZA 2020
+**Track**: Gettin Jiggy With It
 
-Last updated at 08/16/2020 20:41
+Last updated at 08/16/2020 20:42
