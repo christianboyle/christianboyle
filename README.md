@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aoE3z9jDcBF2yf5p-f62P6Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/righteous?in=uiceheidd/sets/legends-never-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/blood-on-my-jeans?in=uiceheidd/sets/legends-never-die)
 
 **Artist**: Juice WRLD 
 
-**Track**: Righteous
+**Track**: Blood On My Jeans
 
-Last updated at 08/17/2020 13:44
+Last updated at 08/17/2020 13:48
