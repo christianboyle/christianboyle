@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/stay-home?in=beauzworld/sets/beauzworld-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjpOcmUuGi4RwT8A-VIhyPg-t50x50.jpg">](https://soundcloud.com/bitbird/duskus-rising?in=bitbird/sets/duskus-rising)
 
-**Artist**: BEAUZ 
+**Artist**: bitbird 
 
-**Track**: BEAUZ, BSY, JSY - #STAYHOME (This Coronavirus)
+**Track**: Duskus - Rising
 
-Last updated at 08/17/2020 13:07
+Last updated at 08/17/2020 13:10
