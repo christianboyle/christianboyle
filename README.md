@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvjUNCW3zHIsLH16-XSJ8rg-t50x50.jpg">](https://soundcloud.com/fltchrr/e-i-e-i-o?in=fltchrr/sets/100-gecs-lavapalooza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BUZylMPT1Qg4aAns-YIYVqw-t50x50.jpg">](https://soundcloud.com/waterspirit/water-spirit-b2b-cavan-brady-live-lavapalooza-2020)
 
-**Artist**: fltchr 
+**Artist**: Water Spirit 
 
-**Track**: e.i.e.i.o
+**Track**: WATER SPIRIT B2B CAVAN BRADY LIVE @ LAVAPALOOZA 2020
 
-Last updated at 08/16/2020 20:40
+Last updated at 08/16/2020 20:41
