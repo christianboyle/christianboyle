@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFR6Fv3gNiYK-0-t50x50.jpg">](https://soundcloud.com/fish_narc/cleanup?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dy9ztsZQHiy2-0-t50x50.jpg">](https://soundcloud.com/fish_narc/boredom?in=fish_narc/sets/wildfire-87541594)
 
 **Artist**: fish narc 
 
-**Track**: CLEANUP
+**Track**: BOREDOM
 
-Last updated at 08/17/2020 12:16
+Last updated at 08/17/2020 12:18
