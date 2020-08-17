@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/ngru?in=beauzworld/sets/beauzworld-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/well-be-alright?in=beauzworld/sets/beauzworld-vol-1)
 
 **Artist**: BEAUZ 
 
-**Track**: BEAUZ, SIIGHTS - Never Gonna Regret U
+**Track**: BEAUZ, BSY, JSY - We'll Be Alright
 
-Last updated at 08/17/2020 13:01
+Last updated at 08/17/2020 13:05
