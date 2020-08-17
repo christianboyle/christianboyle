@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000666832333-xflb63-t50x50.jpg">](https://soundcloud.com/iwilldiehere/niteboi-never-no-one-iwilldiehere-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hY8Z39wiGtKRzrB7-iiTwOw-t50x50.jpg">](https://soundcloud.com/drajie/silver)
 
-**Artist**: iwilldiehere 
+**Artist**: drajie 
 
-**Track**: niteboi✨🌙 - never, no one (iwilldiehere remix)
+**Track**: silver
 
-Last updated at 08/16/2020 20:13
+Last updated at 08/16/2020 20:16
