@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m74P9e3tps2qsYkz-2ovW9Q-t50x50.jpg">](https://soundcloud.com/trapicalmusic/betterdays)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZb0BaKGSCbRYNvS-2Ip0gQ-t50x50.jpg">](https://soundcloud.com/punknboi/busy-hands-countin-bread-up)
 
-**Artist**: Trapical Music 
+**Artist**: Punk'n Boi 
 
-**Track**: OneRepublic - Better Days (jøno & Finnet Remix)
+**Track**: Busy Hands Countin Bread Up
 
-Last updated at 08/16/2020 19:57
+Last updated at 08/16/2020 19:58
