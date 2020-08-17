@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/juice-wrld-speaks-from-heaven?in=uiceheidd/sets/legends-never-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-knDxH2DsQMh8O66z-fpAKOA-t50x50.jpg">](https://soundcloud.com/sublabmusic/future-nostalgia?in=sublabmusic/sets/jump-through-hyper-reality-ep)
 
-**Artist**: Juice WRLD 
+**Artist**: Sublab 
 
-**Track**: Juice WRLD Speaks From Heaven (Outro)
+**Track**: Sublab - Future Nostalgia
 
-Last updated at 08/17/2020 14:29
+Last updated at 08/17/2020 14:30
