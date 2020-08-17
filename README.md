@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyajqS5L1jKzgkzs-ie6lwg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/dipitlow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: Hudson Mohawke 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: DipItLow
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/16/2020 21:17
+Last updated at 08/16/2020 21:18
