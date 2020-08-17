@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y17Fli8bEBQQAOgu-qSmuPA-t50x50.jpg">](https://soundcloud.com/inf1n1temusic/sitdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLs17F5qKS40LxzU-vefShg-t50x50.jpg">](https://soundcloud.com/goshfather/got-money-ft-neelam)
 
-**Artist**: INF1N1TE 
+**Artist**: goshfather 
 
-**Track**: INF1N1TE & KONUS - SIT DOWN
+**Track**: Got Money ft. Neelam
 
-Last updated at 08/17/2020 07:44
+Last updated at 08/17/2020 07:45
