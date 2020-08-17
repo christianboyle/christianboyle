@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZW80PXKSyO7N2Zi-5W1yhA-t50x50.jpg">](https://soundcloud.com/benbeal/smoke-spot-prod-byj-illsugivideo-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m74P9e3tps2qsYkz-2ovW9Q-t50x50.jpg">](https://soundcloud.com/trapicalmusic/betterdays)
 
-**Artist**: BEN BEAL 
+**Artist**: Trapical Music 
 
-**Track**: Smoke Spot (Prod. byJ & Illsugi)(VIDEO OUT NOW)
+**Track**: OneRepublic - Better Days (jøno & Finnet Remix)
 
-Last updated at 08/16/2020 19:56
+Last updated at 08/16/2020 19:57
