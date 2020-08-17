@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000629575075-ezbga1-t50x50.jpg">](https://soundcloud.com/lighghtmusic/gettin-jiggy-with-it?in=lighghtmusic/sets/trax-and-loosies-etc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1svgk3P18x4XUdIP-zh76Sw-t50x50.jpg">](https://soundcloud.com/lighghtmusic/lighght-lavapalooza)
 
 **Artist**: Lighght 
 
-**Track**: Gettin Jiggy With It
+**Track**: Lighght @ Lavapalooza
 
-Last updated at 08/16/2020 20:42
+Last updated at 08/16/2020 20:43
