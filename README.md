@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azjEjBAlRFBPsx4G-KDDyHQ-t50x50.jpg">](https://soundcloud.com/presentlylifted/pandoh-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pzi2ZueK8hSfNz6-YoS6nA-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf240)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: Strange Fruits 
 
-**Track**: PANDOH - Forever
+**Track**: Koosen - Rewind
 
-Last updated at 08/16/2020 20:05
+Last updated at 08/16/2020 20:08
