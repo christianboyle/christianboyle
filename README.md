@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JaBX6o8CAeUqlQcr-F5k9zA-t50x50.jpg">](https://soundcloud.com/callmegrant/distraction-feat-nevve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azjEjBAlRFBPsx4G-KDDyHQ-t50x50.jpg">](https://soundcloud.com/presentlylifted/pandoh-forever)
 
-**Artist**: Grant 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Distraction (Feat. Nevve)
+**Track**: PANDOH - Forever
 
-Last updated at 08/16/2020 20:03
+Last updated at 08/16/2020 20:05
