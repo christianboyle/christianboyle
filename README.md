@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy4HvycXNGfvfkQG-HXfQDw-t50x50.jpg">](https://soundcloud.com/stayloosemusic/just-a-feeling-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y17Fli8bEBQQAOgu-qSmuPA-t50x50.jpg">](https://soundcloud.com/inf1n1temusic/sitdown)
 
-**Artist**: StayLoose | StéLouse 
+**Artist**: INF1N1TE 
 
-**Track**: Just A Feeling
+**Track**: INF1N1TE & KONUS - SIT DOWN
 
-Last updated at 08/16/2020 21:24
+Last updated at 08/17/2020 07:44
