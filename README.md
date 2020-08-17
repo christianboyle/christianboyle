@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4fiwa8utkl8vZux-VBRPFA-t50x50.jpg">](https://soundcloud.com/160club/s-045)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000519086028-ij47rz-t50x50.jpg">](https://soundcloud.com/160club/s043)
 
 **Artist**: 160 CLUB 
 
-**Track**: THE CHAINSMOKERS - CLOSER (MURDER CLUB BOOTLEG)
+**Track**: DOUGAL & GAMMER, LYCK - MAKE IT IF WE TRY (DEVON BOOTLEG)
 
-Last updated at 08/17/2020 07:59
+Last updated at 08/17/2020 08:00
