@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2sYgyYEQ33pe2NVD-zIEs2Q-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/you-nightcore-whore-mix-lany)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyHiH2oXB2cygZAC-yp5z4Q-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/lie-nightcore-whore-mix-sasha-sloan)
 
 **Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: you! [NIGHTCØRE WHØRE REMIX] LANY
+**Track**: Lie [NIGHTCØRE WHØRE MIX] Sasha Sloan
 
-Last updated at 08/17/2020 08:30
+Last updated at 08/17/2020 08:34
