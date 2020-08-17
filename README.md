@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pzi2ZueK8hSfNz6-YoS6nA-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf240)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000616627144-b60lpi-t50x50.jpg">](https://soundcloud.com/iwilldiehere/lost)
 
-**Artist**: Strange Fruits 
+**Artist**: iwilldiehere 
 
-**Track**: Koosen - Rewind
+**Track**: lost
 
-Last updated at 08/16/2020 20:08
+Last updated at 08/16/2020 20:11
