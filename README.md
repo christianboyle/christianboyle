@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-il-est-temps?in=casualgabberz/sets/aamourocean-parmi-les-mortels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/anxiety-intro?in=uiceheidd/sets/legends-never-die)
 
-**Artist**: CASUAL GABBERZ 
+**Artist**: Juice WRLD 
 
-**Track**: aamourocean - Il est Temps
+**Track**: Anxiety (Intro)
 
-Last updated at 08/17/2020 13:31
+Last updated at 08/17/2020 13:34
