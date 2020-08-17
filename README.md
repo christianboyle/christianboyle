@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gykYyg9jG2QgXzOC-1ywExQ-t50x50.jpg">](https://soundcloud.com/actuation/rockstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s98k4ozfHrhTaXBi-mEvR4Q-t50x50.jpg">](https://soundcloud.com/trapicalmusic/shouldhavesaidit)
 
-**Artist**: Actuation 
+**Artist**: Trapical Music 
 
-**Track**: Player1 - Rockstar
+**Track**: Camila Cabello - Should've Said It (SVRRIC & Yonexx Remix)
 
-Last updated at 08/16/2020 20:18
+Last updated at 08/16/2020 20:21
