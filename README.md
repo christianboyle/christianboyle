@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000519086028-ij47rz-t50x50.jpg">](https://soundcloud.com/160club/s043)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: 160 CLUB 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: DOUGAL & GAMMER, LYCK - MAKE IT IF WE TRY (DEVON BOOTLEG)
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/17/2020 08:00
+Last updated at 08/17/2020 08:03
