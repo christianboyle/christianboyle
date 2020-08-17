@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1svgk3P18x4XUdIP-zh76Sw-t50x50.jpg">](https://soundcloud.com/lighghtmusic/lighght-lavapalooza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000620885422-h36u38-t50x50.jpg">](https://soundcloud.com/tnght/dollaz)
 
-**Artist**: Lighght 
+**Artist**: TNGHT 
 
-**Track**: Lighght @ Lavapalooza
+**Track**: Dollaz
 
-Last updated at 08/16/2020 20:43
+Last updated at 08/16/2020 21:12
