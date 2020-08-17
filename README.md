@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hY8Z39wiGtKRzrB7-iiTwOw-t50x50.jpg">](https://soundcloud.com/drajie/silver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gykYyg9jG2QgXzOC-1ywExQ-t50x50.jpg">](https://soundcloud.com/actuation/rockstar)
 
-**Artist**: drajie 
+**Artist**: Actuation 
 
-**Track**: silver
+**Track**: Player1 - Rockstar
 
-Last updated at 08/16/2020 20:16
+Last updated at 08/16/2020 20:18
