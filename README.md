@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhoL3UM4nvka0kwf-TimWgQ-t50x50.jpg">](https://soundcloud.com/partyfavormusic/actup-feat-jahmed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2wpyyR9hO0wrtzm-Vebhpw-t50x50.jpg">](https://soundcloud.com/iamgangus/gangus-whodis-knight-rider-freestyle)
 
-**Artist**: PARTY FAVOR 
+**Artist**: Gangus 
 
-**Track**: ACTUP (feat. JAHMED)
+**Track**: Gangus & Whodis - Knight Rider freestyle
 
-Last updated at 08/18/2020 07:48
+Last updated at 08/18/2020 07:50
