@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJtkp88MnjzdMyI9-xBceyg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/tiga-hudson-mohawke-love-minus-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
 
-**Artist**: Hudson Mohawke 
+**Artist**: Lowly. 
 
-**Track**: Tiga & Hudson Mohawke - Love Minus Zero
+**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
 
-Last updated at 08/18/2020 12:10
+Last updated at 08/18/2020 15:17
