@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbfbYb1UHpopJijr-WDy5cw-t50x50.jpg">](https://soundcloud.com/ice-underlord/breathing-iceunderlord-melddown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Lowly. 
 
-**Track**: BREATHING- ICEUNDERLORD (MELDDOWN)
+**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
 
-Last updated at 08/18/2020 11:15
+Last updated at 08/18/2020 12:04
