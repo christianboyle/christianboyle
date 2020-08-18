@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rzenyySoiQBH3W7-r77dzA-t50x50.jpg">](https://soundcloud.com/ilian-tape/itx018-pessimist-atyeo)
 
-**Artist**: Lowly. 
+**Artist**: ILIAN TAPE 
 
-**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
+**Track**: ITX018 PESSIMIST - ATYEO
 
-Last updated at 08/18/2020 08:00
+Last updated at 08/18/2020 08:30
