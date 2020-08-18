@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIWie952YhWSzFA8-9Pjc0Q-t50x50.jpg">](https://soundcloud.com/killparis/woo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhoL3UM4nvka0kwf-TimWgQ-t50x50.jpg">](https://soundcloud.com/partyfavormusic/actup-feat-jahmed)
 
-**Artist**: Kill Paris 
+**Artist**: PARTY FAVOR 
 
-**Track**: WOO!
+**Track**: ACTUP (feat. JAHMED)
 
-Last updated at 08/18/2020 07:47
+Last updated at 08/18/2020 07:48
