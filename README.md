@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2wpyyR9hO0wrtzm-Vebhpw-t50x50.jpg">](https://soundcloud.com/iamgangus/gangus-whodis-knight-rider-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yS30xlNzX8a9VvPW-KXkH1A-t50x50.jpg">](https://soundcloud.com/harrier-music/fighters-ft-flawx)
 
-**Artist**: Gangus 
+**Artist**: Harrier Music 
 
-**Track**: Gangus & Whodis - Knight Rider freestyle
+**Track**: Harrier x Flawx - Fighters [FREE DOWNLOAD]
 
-Last updated at 08/18/2020 07:50
+Last updated at 08/18/2020 07:52
