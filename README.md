@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SZJpPxlBt14sUf7-y5zZLg-t50x50.jpg">](https://soundcloud.com/caliosmusic/sidewinder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V0AyxYBtuBbjizVs-VWziqQ-t50x50.jpg">](https://soundcloud.com/craliasmixes/uk-screw-mini-mix-vol-1)
 
-**Artist**: Calios 
+**Artist**: cralias alt 
 
-**Track**: Sidewinder
+**Track**: UK SCREW MINI MIX VOL 1
 
-Last updated at 08/17/2020 16:40
+Last updated at 08/18/2020 07:36
