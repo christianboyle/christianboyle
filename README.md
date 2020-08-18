@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V0AyxYBtuBbjizVs-VWziqQ-t50x50.jpg">](https://soundcloud.com/craliasmixes/uk-screw-mini-mix-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nngyWG6D9FEM0a58-AqpqEg-t50x50.jpg">](https://soundcloud.com/grazcore/wap-flip)
 
-**Artist**: cralias alt 
+**Artist**: GRAZ 
 
-**Track**: UK SCREW MINI MIX VOL 1
+**Track**: C4RD1 B - W4P (GRAZ FLIP)
 
-Last updated at 08/18/2020 07:36
+Last updated at 08/18/2020 07:37
