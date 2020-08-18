@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ka8WqmuWFZc7zay1-TvcyWQ-t50x50.jpg">](https://soundcloud.com/elderbass/intergalactic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIWie952YhWSzFA8-9Pjc0Q-t50x50.jpg">](https://soundcloud.com/killparis/woo)
 
-**Artist**: ELDERBASS 
+**Artist**: Kill Paris 
 
-**Track**: BEASTIE BOYS - INTERGALACTIC (ELDERBASS REMIX)
+**Track**: WOO!
 
-Last updated at 08/18/2020 07:46
+Last updated at 08/18/2020 07:47
