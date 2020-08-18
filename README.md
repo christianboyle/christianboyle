@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rzenyySoiQBH3W7-r77dzA-t50x50.jpg">](https://soundcloud.com/ilian-tape/itx018-pessimist-atyeo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: ILIAN TAPE 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: ITX018 PESSIMIST - ATYEO
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/18/2020 08:30
+Last updated at 08/18/2020 08:50
