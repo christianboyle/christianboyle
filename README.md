@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yS30xlNzX8a9VvPW-KXkH1A-t50x50.jpg">](https://soundcloud.com/harrier-music/fighters-ft-flawx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGWWLXYmBFMM6Ubg-lI9SKw-t50x50.jpg">](https://soundcloud.com/photontide/power-pilotkid)
 
-**Artist**: Harrier Music 
+**Artist**: Photon Tide 
 
-**Track**: Harrier x Flawx - Fighters [FREE DOWNLOAD]
+**Track**: Power! (pilotkid)
 
-Last updated at 08/18/2020 07:52
+Last updated at 08/18/2020 07:53
