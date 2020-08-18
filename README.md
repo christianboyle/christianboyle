@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEU2CJM1JRzZn4Au-tUwmwg-t50x50.jpg">](https://soundcloud.com/itsleemz/leemz-bib-bring-it-back?in=itsleemz/sets/b-i-b-bring-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0e87dy55K5OHdJvv-jy8zbw-t50x50.jpg">](https://soundcloud.com/tipsyrecords/chancetorun)
 
-**Artist**: Leemz 
+**Artist**: Tipsy Records 
 
-**Track**: Leemz - B.I.B (Bring It Back)
+**Track**: Toby Rose - Chance To Run
 
-Last updated at 08/18/2020 07:55
+Last updated at 08/18/2020 07:57
