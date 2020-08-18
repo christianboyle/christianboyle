@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGWWLXYmBFMM6Ubg-lI9SKw-t50x50.jpg">](https://soundcloud.com/photontide/power-pilotkid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEU2CJM1JRzZn4Au-tUwmwg-t50x50.jpg">](https://soundcloud.com/itsleemz/leemz-bib-bring-it-back?in=itsleemz/sets/b-i-b-bring-it-back)
 
-**Artist**: Photon Tide 
+**Artist**: Leemz 
 
-**Track**: Power! (pilotkid)
+**Track**: Leemz - B.I.B (Bring It Back)
 
-Last updated at 08/18/2020 07:53
+Last updated at 08/18/2020 07:55
