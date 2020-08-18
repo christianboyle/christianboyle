@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5B5wxORTkTlklyWd-8uAHeQ-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-synchronice-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZW80PXKSyO7N2Zi-5W1yhA-t50x50.jpg">](https://soundcloud.com/benbeal/smoke-spot-prod-byj-illsugivideo-out-now)
 
-**Artist**: Lowly. 
+**Artist**: BEN BEAL 
 
-**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Synchronice Remix]
+**Track**: Smoke Spot (Prod. byJ & Illsugi)(VIDEO OUT NOW)
 
-Last updated at 08/18/2020 07:40
+Last updated at 08/18/2020 07:41
