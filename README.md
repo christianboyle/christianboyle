@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000409191843-nbtdhp-t50x50.jpg">](https://soundcloud.com/flukenukes/shoot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
 
-**Artist**: Fluke Nukes 
+**Artist**: smrtdeath 
 
-**Track**: Shoot
+**Track**: Waterfall
 
-Last updated at 08/19/2020 09:21
+Last updated at 08/19/2020 09:23
