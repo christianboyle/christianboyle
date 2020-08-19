@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000409191843-nbtdhp-t50x50.jpg">](https://soundcloud.com/flukenukes/shoot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WygidvQ72StT4ZMM-UBNtIg-t50x50.jpg">](https://soundcloud.com/festivaltrap/dead-limbo)
 
-**Artist**: Fluke Nukes 
+**Artist**: FESTIVAL TRAP 
 
-**Track**: Shoot
+**Track**: Dead - Limbo
 
-Last updated at 08/19/2020 11:08
+Last updated at 08/19/2020 12:59
