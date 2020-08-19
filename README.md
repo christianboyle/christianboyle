@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jF7I1BWnBYUN05O1-qzcf1g-t50x50.jpg">](https://soundcloud.com/aintnochilljay1/will-you-rememer-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KveFqNW5eK8vT3UJ-8QFdIg-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-sweet-dreams)
 
-**Artist**: AintNoChillJay 
+**Artist**: Tre Oh Fie 
 
-**Track**: Will You Rememer Me (SoFloJookRemix)
+**Track**: Tre Oh Fie - Sweet Dreams
 
-Last updated at 08/19/2020 13:24
+Last updated at 08/19/2020 13:25
