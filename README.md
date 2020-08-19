@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p7tbKxrHVDcLllyy-X09GpA-t50x50.jpg">](https://soundcloud.com/shadowbandit/lil-texas-secret-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xp2jvqzHuud7-0-t50x50.jpg">](https://soundcloud.com/theknocks/colors-robokid-remix)
 
-**Artist**: Tektronix 
+**Artist**: The Knocks 
 
-**Track**: LIL Texas - Secret Sky
+**Track**: Colors (Robokid Remix)
 
-Last updated at 08/18/2020 21:43
+Last updated at 08/18/2020 21:44
