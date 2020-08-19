@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVJYOqGXfl4i-0-t50x50.jpg">](https://soundcloud.com/lilpoppa/murder-victim-feat-g-herbo?in=lilpoppa/sets/almost-normal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsksyKcGeBd6-0-t50x50.jpg">](https://soundcloud.com/lilmosey/so-fast?in=lilmosey/sets/certified-hitmaker-1)
 
-**Artist**: Thatboypoppa(Lil Poppa) 
+**Artist**: Lil Mosey 
 
-**Track**: Murder Victim (feat. G Herbo) (Remix)
+**Track**: So Fast
 
-Last updated at 08/18/2020 21:45
+Last updated at 08/18/2020 21:46
