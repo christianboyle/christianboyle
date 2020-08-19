@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzzErnJMJNoissTb-esaZPg-t50x50.jpg">](https://soundcloud.com/lockboxmusic/lockbox-atmosphere-ft-brennan-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyf7BLj8ocZxfwyP-JsdPfg-t50x50.jpg">](https://soundcloud.com/flux-pavilion/flux-pavilion-sink-your-teeth-in-feat-drowsy)
 
-**Artist**: LOCKBOX 
+**Artist**: Flux Pavilion 
 
-**Track**: Lockbox - Atmosphere Ft. Brennan
+**Track**: Sink Your Teeth In feat. Drowsy
 
-Last updated at 08/18/2020 20:06
+Last updated at 08/18/2020 20:07
