@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsksyKcGeBd6-0-t50x50.jpg">](https://soundcloud.com/lilmosey/so-fast?in=lilmosey/sets/certified-hitmaker-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZV8Rj9pUNCoK-0-t50x50.jpg">](https://soundcloud.com/machinegunkelly/i-think-im-okay-with-yungblud)
 
-**Artist**: Lil Mosey 
+**Artist**: machinegunkelly 
 
-**Track**: So Fast
+**Track**: I Think I'm OKAY (with YUNGBLUD & Travis Barker)
 
-Last updated at 08/18/2020 21:46
+Last updated at 08/18/2020 21:47
