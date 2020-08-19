@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xp2jvqzHuud7-0-t50x50.jpg">](https://soundcloud.com/theknocks/colors-robokid-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVJYOqGXfl4i-0-t50x50.jpg">](https://soundcloud.com/lilpoppa/murder-victim-feat-g-herbo?in=lilpoppa/sets/almost-normal-1)
 
-**Artist**: The Knocks 
+**Artist**: Thatboypoppa(Lil Poppa) 
 
-**Track**: Colors (Robokid Remix)
+**Track**: Murder Victim (feat. G Herbo) (Remix)
 
-Last updated at 08/18/2020 21:44
+Last updated at 08/18/2020 21:45
