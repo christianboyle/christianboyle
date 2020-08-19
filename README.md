@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJtkp88MnjzdMyI9-xBceyg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/tiga-hudson-mohawke-love-minus-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KveFqNW5eK8vT3UJ-8QFdIg-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-sweet-dreams)
 
-**Artist**: Hudson Mohawke 
+**Artist**: Tre Oh Fie 
 
-**Track**: Tiga & Hudson Mohawke - Love Minus Zero
+**Track**: Tre Oh Fie - Sweet Dreams
 
-Last updated at 08/19/2020 16:01
+Last updated at 08/19/2020 16:02
