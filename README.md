@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MPQfSNsG8euinP0g-z3ffPQ-t50x50.jpg">](https://soundcloud.com/parv0/5-balloon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
 
-**Artist**: Parv0 
+**Artist**: Circus Records Official 
 
-**Track**: $5 Balloon
+**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
 
-Last updated at 08/18/2020 19:59
+Last updated at 08/18/2020 20:00
