@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjW3Kc92U5hSqEYk-5FygyA-t50x50.jpg">](https://soundcloud.com/unlikepluto/unlike-pluto-regret-roulette)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lsHfY5QnhTpq8z9-hgBT5A-t50x50.jpg">](https://soundcloud.com/updog/updog-3000)
 
-**Artist**: Unlike Pluto 
+**Artist**: updog 
 
-**Track**: Unlike Pluto - Regret Roulette
+**Track**: updog - 3000
 
-Last updated at 08/19/2020 13:11
+Last updated at 08/19/2020 13:17
