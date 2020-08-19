@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyUfLKsqTsj2sOsA-mRyA9A-t50x50.jpg">](https://soundcloud.com/circusrecords/flux-pavilion-x-feed-me-survive-feat-meesh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OKaY1k9UA9qz-0-t50x50.jpg">](https://soundcloud.com/memba/strider)
 
-**Artist**: Circus Records Official 
+**Artist**: MEMBA 
 
-**Track**: Flux Pavilion x Feed Me - Survive feat. meesh
+**Track**: Strider
 
-Last updated at 08/18/2020 20:08
+Last updated at 08/18/2020 20:09
