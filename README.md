@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OKaY1k9UA9qz-0-t50x50.jpg">](https://soundcloud.com/memba/strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000608745463-tgwaco-t50x50.jpg">](https://soundcloud.com/vera-hotsauce/on-u?in=vera-hotsauce/sets/blue-pill)
 
-**Artist**: MEMBA 
+**Artist**: Vera Hotsauce 
 
-**Track**: Strider
+**Track**: On U
 
-Last updated at 08/18/2020 20:09
+Last updated at 08/18/2020 20:10
