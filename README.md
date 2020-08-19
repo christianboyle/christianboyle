@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJtkp88MnjzdMyI9-xBceyg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/tiga-hudson-mohawke-love-minus-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
 
-**Artist**: Hudson Mohawke 
+**Artist**: smrtdeath 
 
-**Track**: Tiga & Hudson Mohawke - Love Minus Zero
+**Track**: Waterfall
 
-Last updated at 08/19/2020 16:25
+Last updated at 08/19/2020 16:31
