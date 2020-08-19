@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: bitbird 
+**Artist**: Loote 
 
-**Track**: Former Hero - Friends Now
+**Track**: Somebody Else
 
-Last updated at 08/19/2020 08:28
+Last updated at 08/19/2020 08:31
