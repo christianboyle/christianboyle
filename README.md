@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uglx7pUyEknqBlEo-TiLwhQ-t50x50.jpg">](https://soundcloud.com/iamperto/clarityflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000348448089-515jrc-t50x50.jpg">](https://soundcloud.com/djrestylemusic/2-brothers-on-the-4th-floor-never-alone-re-style-remix)
 
-**Artist**: Perto 
+**Artist**: Re-Style 
 
-**Track**: Kim Petras - Clarity (Perto Flip)
+**Track**: 2 Brothers On The 4th Floor - Never Alone (Re-Style Remix)
 
-Last updated at 08/19/2020 10:39
+Last updated at 08/19/2020 10:40
