@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
 
-**Artist**: Lowly. 
+**Artist**: I AM ROCK NIGHTCØRE WHØRE 
 
-**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
+**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
 
-Last updated at 08/19/2020 08:00
+Last updated at 08/19/2020 08:03
