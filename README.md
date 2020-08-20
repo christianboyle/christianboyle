@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
 
-**Artist**: Lowly. 
+**Artist**: talegate 
 
-**Track**: Egzod - Ride The Wave
+**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
 
-Last updated at 08/20/2020 09:43
+Last updated at 08/20/2020 09:46
