@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZ5P8WxlukLkQYhQ-12sB8A-t50x50.jpg">](https://soundcloud.com/nightcorey/charli-xcx-forever-nightcorey-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KveFqNW5eK8vT3UJ-8QFdIg-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-sweet-dreams)
 
-**Artist**: nightcorey 
+**Artist**: Tre Oh Fie 
 
-**Track**: Charli XCX 'Forever' (nightcorey remix)
+**Track**: Tre Oh Fie - Sweet Dreams
 
-Last updated at 08/19/2020 21:34
+Last updated at 08/20/2020 07:41
