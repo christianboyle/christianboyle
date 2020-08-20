@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0trdrDqAyCKSSA1D-xzOPrA-t50x50.jpg">](https://soundcloud.com/oneseventy/dougal-x-technikore-x-jts-two-hearts-radio-edit)
 
-**Artist**: Loote 
+**Artist**: OneSeventy 
 
-**Track**: Somebody Else
+**Track**: Dougal x Technikore x JTS - Two Hearts (Radio Edit)
 
-Last updated at 08/19/2020 21:19
+Last updated at 08/19/2020 21:20
