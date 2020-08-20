@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nO8aJuop9lR6OoEB-uIBSzA-t50x50.jpg">](https://soundcloud.com/lilprettyxox/youresocrazy)
 
-**Artist**: smrtdeath 
+**Artist**: prettyheartbreak 
 
-**Track**: Waterfall
+**Track**: You're. SO. CraZy (VIDEO IN DESCRIPTION)
 
-Last updated at 08/19/2020 20:14
+Last updated at 08/19/2020 20:17
