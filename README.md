@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy4HvycXNGfvfkQG-HXfQDw-t50x50.jpg">](https://soundcloud.com/stayloosemusic/just-a-feeling-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: StayLoose | StéLouse 
+**Artist**: Loote 
 
-**Track**: Just A Feeling
+**Track**: Somebody Else
 
-Last updated at 08/19/2020 21:16
+Last updated at 08/19/2020 21:19
