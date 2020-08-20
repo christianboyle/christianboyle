@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzpKfsuwuxTB-0-t50x50.png">](https://soundcloud.com/coldhart/tammy-and-the-t-rex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
 
-**Artist**: Cold Hart 
+**Artist**: Circus Records Official 
 
-**Track**: Tammy and the T-Rex
+**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
 
-Last updated at 08/19/2020 20:19
+Last updated at 08/19/2020 20:22
