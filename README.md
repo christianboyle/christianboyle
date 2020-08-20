@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KveFqNW5eK8vT3UJ-8QFdIg-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-sweet-dreams)
 
-**Artist**: bitbird 
+**Artist**: Tre Oh Fie 
 
-**Track**: Former Hero - Friends Now
+**Track**: Tre Oh Fie - Sweet Dreams
 
-Last updated at 08/19/2020 20:45
+Last updated at 08/19/2020 20:46
