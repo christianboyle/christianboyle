@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KveFqNW5eK8vT3UJ-8QFdIg-t50x50.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-sweet-dreams)
 
-**Artist**: smrtdeath 
+**Artist**: Tre Oh Fie 
 
-**Track**: Waterfall
+**Track**: Tre Oh Fie - Sweet Dreams
 
-Last updated at 08/19/2020 16:49
+Last updated at 08/19/2020 20:02
