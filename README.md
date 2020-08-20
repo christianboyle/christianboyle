@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNu3K3JkfuSbAKxO-LQzZNg-t50x50.jpg">](https://soundcloud.com/epromofficial/fleshnet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQ8o3BZr9VrqBlS5-eJpyNA-t50x50.jpg">](https://soundcloud.com/quixofficial/chicane)
 
-**Artist**: EPROM 
+**Artist**: QUIX 
 
-**Track**: FleshNet
+**Track**: QUIX & Juelz - Chicane
 
-Last updated at 08/20/2020 16:40
+Last updated at 08/20/2020 16:41
