@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ld7TWIGgVGiA3now-r2KCgQ-t50x50.jpg">](https://soundcloud.com/weirdnxc/alexis-back2u)
 
-**Artist**: I AM ROCK NIGHTCØRE WHØRE 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
+**Track**: 05 - ALEXiS - BACK2U
 
-Last updated at 08/19/2020 20:29
+Last updated at 08/19/2020 20:32
