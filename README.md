@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000348448089-515jrc-t50x50.jpg">](https://soundcloud.com/djrestylemusic/2-brothers-on-the-4th-floor-never-alone-re-style-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
 
-**Artist**: Re-Style 
+**Artist**: smrtdeath 
 
-**Track**: 2 Brothers On The 4th Floor - Never Alone (Re-Style Remix)
+**Track**: Waterfall
 
-Last updated at 08/20/2020 07:44
+Last updated at 08/20/2020 08:35
