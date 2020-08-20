@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyZ0VUUGktwcxJf6-ZNwa6Q-t50x50.jpg">](https://soundcloud.com/bsterthegawd/livewithout?in=bsterthegawd/sets/madlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnD16RN7wdHMzs2Y-QOCOPg-t50x50.jpg">](https://soundcloud.com/obsessedforever/static-dress-adaptive-taste)
 
-**Artist**: bsterthegawd 
+**Artist**: FOREVER OBSESSED 
 
-**Track**: livewithout
+**Track**: STATIC DRESS - ADAPTIVE TASTE
 
-Last updated at 08/20/2020 16:54
+Last updated at 08/20/2020 16:55
