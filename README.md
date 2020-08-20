@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8ISbidsWCtNxKDZ-yco77Q-t50x50.jpg">](https://soundcloud.com/crystalcollective/theascent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNu3K3JkfuSbAKxO-LQzZNg-t50x50.jpg">](https://soundcloud.com/epromofficial/fleshnet)
 
-**Artist**: Crystal Collective 
+**Artist**: EPROM 
 
-**Track**: Ice Wolf - The Ascent
+**Track**: FleshNet
 
-Last updated at 08/20/2020 16:39
+Last updated at 08/20/2020 16:40
