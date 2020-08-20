@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7BPkPjsEinbs1VIW-RwHETw-t50x50.jpg">](https://soundcloud.com/deerockmusic/get-up-its-gameday-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4oyqxgDbgysDKc9-bDcp2w-t50x50.jpg">](https://soundcloud.com/kumocollective/autumn-feels)
 
-**Artist**: Deerock 
+**Artist**: KUMO Collective 
 
-**Track**: Get Up Its Gameday 5
+**Track**: Absalon - Autumn Feels
 
-Last updated at 08/20/2020 16:52
+Last updated at 08/20/2020 16:53
