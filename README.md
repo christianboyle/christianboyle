@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4oyqxgDbgysDKc9-bDcp2w-t50x50.jpg">](https://soundcloud.com/kumocollective/autumn-feels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyZ0VUUGktwcxJf6-ZNwa6Q-t50x50.jpg">](https://soundcloud.com/bsterthegawd/livewithout?in=bsterthegawd/sets/madlove)
 
-**Artist**: KUMO Collective 
+**Artist**: bsterthegawd 
 
-**Track**: Absalon - Autumn Feels
+**Track**: livewithout
 
-Last updated at 08/20/2020 16:53
+Last updated at 08/20/2020 16:54
