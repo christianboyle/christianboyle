@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbfbYb1UHpopJijr-WDy5cw-t50x50.jpg">](https://soundcloud.com/ice-underlord/breathing-iceunderlord-melddown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Noc.V 
 
-**Track**: BREATHING- ICEUNDERLORD (MELDDOWN)
+**Track**: DeBisco & Noc.V - Boys Of Summer
 
-Last updated at 08/21/2020 15:23
+Last updated at 08/21/2020 16:12
