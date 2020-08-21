@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000348448089-515jrc-t50x50.jpg">](https://soundcloud.com/djrestylemusic/2-brothers-on-the-4th-floor-never-alone-re-style-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z3JOCKCOrcp4GD5t-3qKdOw-t50x50.jpg">](https://soundcloud.com/signal49762/yoasobi-yoru-ni-kakeru-signal-bootleg-remix)
 
-**Artist**: Re-Style 
+**Artist**: Signal (Second 2 ) 
 
-**Track**: 2 Brothers On The 4th Floor - Never Alone (Re-Style Remix)
+**Track**: YOASOBI - 夜に駆ける 「Yoru Ni Kakeru」 ( Signal Bootleg Remix )
 
-Last updated at 08/20/2020 20:17
+Last updated at 08/21/2020 07:31
