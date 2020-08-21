@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy4HvycXNGfvfkQG-HXfQDw-t50x50.jpg">](https://soundcloud.com/stayloosemusic/just-a-feeling-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ld7TWIGgVGiA3now-r2KCgQ-t50x50.jpg">](https://soundcloud.com/weirdnxc/alexis-back2u)
 
-**Artist**: StayLoose | StéLouse 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Just A Feeling
+**Track**: 05 - ALEXiS - BACK2U
 
-Last updated at 08/21/2020 15:00
+Last updated at 08/21/2020 15:03
