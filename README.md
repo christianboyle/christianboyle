@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GchBJ6XyJPlOrf3q-b9Lw4g-t50x50.jpg">](https://soundcloud.com/lovestephenhenry/told-you-so-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cSPA2nYyVw5JBo5k-A2WWDg-t50x50.jpg">](https://soundcloud.com/pouya-kevin/pouya-who-am-i-to-blame)
 
-**Artist**: Stephen Henry 
+**Artist**: Pouya . 
 
-**Track**: Told You So
+**Track**: Pouya - Who Am I To Blame?
 
-Last updated at 08/21/2020 07:40
+Last updated at 08/21/2020 07:41
