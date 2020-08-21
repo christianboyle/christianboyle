@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNu3K3JkfuSbAKxO-LQzZNg-t50x50.jpg">](https://soundcloud.com/epromofficial/fleshnet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
 
-**Artist**: EPROM 
+**Artist**: Noc.V 
 
-**Track**: FleshNet
+**Track**: DeBisco & Noc.V - Boys Of Summer
 
-Last updated at 08/21/2020 14:21
+Last updated at 08/21/2020 14:23
