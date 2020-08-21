@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uuX7McdWJKoyGJb9-uSRccg-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc146)
 
-**Artist**: bitbird 
+**Artist**: NON STOP NXC® 
 
-**Track**: Former Hero - Friends Now
+**Track**: NXC146 - tanner bananer - wormhole (slappy remix)
 
-Last updated at 08/20/2020 19:58
+Last updated at 08/20/2020 20:00
