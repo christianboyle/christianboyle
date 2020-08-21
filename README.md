@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZKQpvzLJpmfcJ2q-RI1M4A-t50x50.jpg">](https://soundcloud.com/moseqar/moseqar-say-something-instrumentalout-on-spotify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/jakazid-dance-track?in=hptgmusic/sets/ravekick-004-overglow)
 
-**Artist**: Moseqar 
+**Artist**: HPTG Music 
 
-**Track**: Moseqar - Say Something (Instrumental)out on Spotify
+**Track**: JAKAZiD - Dance Track
 
-Last updated at 08/21/2020 07:34
+Last updated at 08/21/2020 07:35
