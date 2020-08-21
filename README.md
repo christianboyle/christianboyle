@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhoL3UM4nvka0kwf-TimWgQ-t50x50.jpg">](https://soundcloud.com/partyfavormusic/actup-feat-jahmed)
 
-**Artist**: Noc.V 
+**Artist**: PARTY FAVOR 
 
-**Track**: DeBisco & Noc.V - Boys Of Summer
+**Track**: ACTUP (feat. JAHMED)
 
-Last updated at 08/21/2020 14:01
+Last updated at 08/21/2020 14:20
