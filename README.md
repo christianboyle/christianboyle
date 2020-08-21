@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCUGb2p0xEvVgZkk-Qndr5w-t50x50.jpg">](https://soundcloud.com/circusrecords/jessica-audiffred-x-walshy-fire-stupid-love-feat-nia-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wy3OeOLvBz3g1CZN-85OweA-t50x50.jpg">](https://soundcloud.com/extantmusic/extant-armada)
 
-**Artist**: Circus Records Official 
+**Artist**: Extant 
 
-**Track**: Jessica Audiffred x Walshy Fire - Stupid Love Feat. Nia V
+**Track**: Extant - Armada
 
-Last updated at 08/21/2020 13:53
+Last updated at 08/21/2020 13:54
