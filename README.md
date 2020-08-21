@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OLG0TyWkPg1g4n9l-TKpsUg-t50x50.jpg">](https://soundcloud.com/welcome-recs/hellbound-afterlife?in=itshellbound/sets/afterlife)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
 
-**Artist**: Welcome Records 
+**Artist**: Noc.V 
 
-**Track**: HELLBOUND! - Afterlife
+**Track**: DeBisco & Noc.V - Boys Of Summer
 
-Last updated at 08/21/2020 14:00
+Last updated at 08/21/2020 14:01
