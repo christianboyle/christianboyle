@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cSPA2nYyVw5JBo5k-A2WWDg-t50x50.jpg">](https://soundcloud.com/pouya-kevin/pouya-who-am-i-to-blame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csho7SSHXFQ32bXn-6k1hpQ-t50x50.jpg">](https://soundcloud.com/pouya-kevin/pouya-boobie-muddy-waters)
 
 **Artist**: Pouya . 
 
-**Track**: Pouya - Who Am I To Blame?
+**Track**: Pouya & Boobie - Muddy Waters
 
-Last updated at 08/21/2020 07:41
+Last updated at 08/21/2020 07:43
