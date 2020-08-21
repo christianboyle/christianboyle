@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNu3K3JkfuSbAKxO-LQzZNg-t50x50.jpg">](https://soundcloud.com/epromofficial/fleshnet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uuX7McdWJKoyGJb9-uSRccg-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc146)
 
-**Artist**: EPROM 
+**Artist**: NON STOP NXC® 
 
-**Track**: FleshNet
+**Track**: NXC146 - tanner bananer - wormhole (slappy remix)
 
-Last updated at 08/21/2020 07:58
+Last updated at 08/21/2020 08:00
