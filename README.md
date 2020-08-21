@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IylTE5Ka8EPrKzTv-zD1qPA-t50x50.jpg">](https://soundcloud.com/spinninrecords/ac-slater-x-curbi-navigator-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXJTU0bzEynedMip-cJIpsQ-t50x50.jpg">](https://soundcloud.com/cryjaxx/youneedyouacoustic?in=cryjaxxtoo/sets/youneedyouremixep)
 
-**Artist**: Spinnin' Records 
+**Artist**: CryJaxx 
 
-**Track**: AC Slater x Curbi - Navigator [OUT NOW]
+**Track**: CryJaxx - You Need You (feat. Rosendale) (Acoustic Version)
 
-Last updated at 08/21/2020 07:38
+Last updated at 08/21/2020 07:39
