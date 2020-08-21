@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660416917-dwhbfc-t50x50.jpg">](https://soundcloud.com/resonata/timesink)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uuX7McdWJKoyGJb9-uSRccg-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc146)
 
-**Artist**: resonata_ 
+**Artist**: NON STOP NXC® 
 
-**Track**: LORN - TIMESINK (Resonata Flip)
+**Track**: NXC146 - tanner bananer - wormhole (slappy remix)
 
-Last updated at 08/21/2020 08:57
+Last updated at 08/21/2020 10:09
