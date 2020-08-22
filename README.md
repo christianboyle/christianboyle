@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFoc5zS5nB9P9OPy-d5Pjpg-t50x50.jpg">](https://soundcloud.com/hi_muira/chlorine-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4LcCqfaRch7ZLi7-EL8Csg-t50x50.jpg">](https://soundcloud.com/blckmagic/aagentah-host-immunis?in=blckmagic/sets/immunis-track-next-week-also)
 
-**Artist**: MUIRA, 
+**Artist**: blck. 
 
-**Track**: Chlorine
+**Track**: Aagentah & HØST - Immunis
 
-Last updated at 08/22/2020 12:33
+Last updated at 08/22/2020 12:34
