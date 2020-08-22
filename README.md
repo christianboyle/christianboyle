@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXAbP8MclBdto1O6-trSxkw-t50x50.jpg">](https://soundcloud.com/latejune/dust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
 
-**Artist**: Late June 
+**Artist**: Noc.V 
 
-**Track**: Dust
+**Track**: DeBisco & Noc.V - Boys Of Summer [FREE DOWNLOAD]
 
-Last updated at 08/22/2020 12:40
+Last updated at 08/22/2020 12:41
