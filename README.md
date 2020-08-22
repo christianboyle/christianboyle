@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liYNZfGid5UWRxZm-rjg1FQ-t50x50.jpg">](https://soundcloud.com/twinscale/lets-pretend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4vvHE4j4PFT8mdn1-PTyDjQ-t50x50.jpg">](https://soundcloud.com/wakaan/tvboo-runnit-swervin-feat-dexter-fizz-headbang-society-premiere)
 
-**Artist**: TWINSCALE 
+**Artist**: Wakaan 
 
-**Track**: Let's Pretend
+**Track**: TVBOO, Runnit - Swervin' feat. Dexter Fizz [Headbang Society Premiere]
 
-Last updated at 08/22/2020 12:29
+Last updated at 08/22/2020 12:31
