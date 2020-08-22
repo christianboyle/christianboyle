@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D6uL3dKXozcvgScb-1GvW7g-t50x50.jpg">](https://soundcloud.com/blckmagic/dakha-troe?in=blckmagic/sets/immunis-track-next-week-also)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXAbP8MclBdto1O6-trSxkw-t50x50.jpg">](https://soundcloud.com/latejune/dust)
 
-**Artist**: blck. 
+**Artist**: Late June 
 
-**Track**: da'kha - troe
+**Track**: Dust
 
-Last updated at 08/22/2020 12:39
+Last updated at 08/22/2020 12:40
