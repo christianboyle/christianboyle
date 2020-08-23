@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIv6ygJPSyLuKHR-EtrgLQ-t50x50.jpg">](https://soundcloud.com/basscon/texcore-x-harlecore-dreaming)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEU2CJM1JRzZn4Au-tUwmwg-t50x50.jpg">](https://soundcloud.com/itsleemz/leemz-bib-bring-it-back?in=itsleemz/sets/new-music-next-week)
 
-**Artist**: BASSCON 
+**Artist**: Leemz 
 
-**Track**: Texcore x Harlecore - Dreaming
+**Track**: Leemz - B.I.B (Bring It Back)
 
-Last updated at 08/22/2020 21:40
+Last updated at 08/22/2020 21:41
