@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q1eHQhZ14Zuz-0-t50x50.jpg">](https://soundcloud.com/secret-service-862007284/panini-dababy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIv6ygJPSyLuKHR-EtrgLQ-t50x50.jpg">](https://soundcloud.com/basscon/texcore-x-harlecore-dreaming)
 
-**Artist**: Lil Nas X 
+**Artist**: BASSCON 
 
-**Track**: Panini (DaBaby Remix)
+**Track**: Texcore x Harlecore - Dreaming
 
-Last updated at 08/22/2020 21:39
+Last updated at 08/22/2020 21:40
