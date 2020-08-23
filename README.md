@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000438163581-quiswv-t50x50.jpg">](https://soundcloud.com/there_it_is_music/there-it-is-tempo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f16inzSh8sSGSlk0-T9BJ5g-t50x50.jpg">](https://soundcloud.com/mobilepro/dynamite)
 
-**Artist**: [There It Is] 
+**Artist**: MOBILE PRO 
 
-**Track**: [There It Is] - Tempo
+**Track**: DYNAMITE
 
-Last updated at 08/23/2020 08:28
+Last updated at 08/23/2020 10:13
