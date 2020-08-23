@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJ1cba7dF6ZFBgLz-Od3PhA-t50x50.jpg">](https://soundcloud.com/anjunabeats/jason-ross-for-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lOQtXoriq0R3Lq8S-Yvvumg-t50x50.jpg">](https://soundcloud.com/anjunabeats/ilan-bluestone-presents-20-years-ofanjunabeats)
 
 **Artist**: Anjunabeats 
 
-**Track**: Jason Ross - For Love
+**Track**: ilan Bluestone Presents: 20 Years Of Anjunabeats (Continuous Mix)
 
-Last updated at 08/23/2020 15:27
+Last updated at 08/23/2020 15:28
