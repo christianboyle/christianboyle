@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSDjR63F63a8Gt3b-y2PaAA-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/neonnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f16inzSh8sSGSlk0-T9BJ5g-t50x50.jpg">](https://soundcloud.com/mobilepro/dynamite)
 
-**Artist**: Tribal Trap 
+**Artist**: MOBILE PRO 
 
-**Track**: Almogfx - Neon Night
+**Track**: DYNAMITE
 
-Last updated at 08/22/2020 21:31
+Last updated at 08/22/2020 21:32
