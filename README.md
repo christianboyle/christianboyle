@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f16inzSh8sSGSlk0-T9BJ5g-t50x50.jpg">](https://soundcloud.com/mobilepro/dynamite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000809991817-g63a7h-t50x50.jpg">](https://soundcloud.com/terrorhythm/plastician-wave-machine)
 
-**Artist**: MOBILE PRO 
+**Artist**: terrorhythm 
 
-**Track**: DYNAMITE
+**Track**: Plastician - Wave Machine
 
-Last updated at 08/22/2020 21:32
+Last updated at 08/22/2020 21:35
