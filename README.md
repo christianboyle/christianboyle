@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lOQtXoriq0R3Lq8S-Yvvumg-t50x50.jpg">](https://soundcloud.com/anjunabeats/ilan-bluestone-presents-20-years-ofanjunabeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000807817762-foa176-t50x50.jpg">](https://soundcloud.com/anjunabeats/anjunabeats-worldwide-688-with)
 
 **Artist**: Anjunabeats 
 
-**Track**: ilan Bluestone Presents: 20 Years Of Anjunabeats (Continuous Mix)
+**Track**: Anjunabeats Worldwide 688 with gardenstate
 
-Last updated at 08/23/2020 15:28
+Last updated at 08/23/2020 15:29
