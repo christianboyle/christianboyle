@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEU2CJM1JRzZn4Au-tUwmwg-t50x50.jpg">](https://soundcloud.com/itsleemz/leemz-bib-bring-it-back?in=itsleemz/sets/new-music-next-week)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hTT28px2hVegIHAL-NH7nFA-t50x50.jpg">](https://soundcloud.com/nurkomusic/nurko-feat-rory-better-off-lonely-1)
 
-**Artist**: Leemz 
+**Artist**: NURKO💧 
 
-**Track**: Leemz - B.I.B (Bring It Back)
+**Track**: Nurko feat. RØRY - Better Off Lonely
 
-Last updated at 08/22/2020 21:41
+Last updated at 08/22/2020 21:42
