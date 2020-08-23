@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUtXnjxy5jMZJy5u-VjT2CQ-t50x50.jpg">](https://soundcloud.com/soviet_kid/ruki-oulja-boy-crank-that-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDqyXgvAn5zfh290-XhJOCA-t50x50.jpg">](https://soundcloud.com/gunfightmusic/fully-loaded-vol-9)
 
-**Artist**: $OViET KiD 
+**Artist**: GunFight 
 
-**Track**: RU$Ki $OULJA BOY [Crank that RMX]
+**Track**: Fully Loaded Vol 9
 
-Last updated at 08/22/2020 21:27
+Last updated at 08/22/2020 21:28
