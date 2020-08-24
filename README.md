@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZs7UF1q60axDnHm-rK3gLg-t50x50.jpg">](https://soundcloud.com/iamthearchitekt/architekt-mechvnize-hot-steppers-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeF06Lp3RVFgJWGP-Q28m1w-t50x50.jpg">](https://soundcloud.com/triplesickzmusic/triplesickz-x-n377-nightmare-sonata)
 
-**Artist**: Architekt 
+**Artist**: TRIPLESICKZ 
 
-**Track**: Architekt & Mechvnize - Hot Steppers (VIP)
+**Track**: TRIPLESICKZ X N377 - NIGHTMARE SONATA
 
-Last updated at 08/24/2020 00:10
+Last updated at 08/24/2020 00:13
