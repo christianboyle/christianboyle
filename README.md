@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7DEsiYrIBAllBxF-75KUlQ-t50x50.jpg">](https://soundcloud.com/winwel/voodoo-chambers-voodoo-chambers-winwel-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wATJ1eCviYIpO9Uf-Aj0gfQ-t50x50.jpg">](https://soundcloud.com/harrier-music/open-up)
 
-**Artist**: WinWel 
+**Artist**: Harrier Music 
 
-**Track**: Voodoo Chambers - Voodoo Chambers (WinWel Remix)
+**Track**: Harrier, DOP3 MC, $oviet Kid - Open Up [FREE DOWNLOAD]
 
-Last updated at 08/24/2020 00:32
+Last updated at 08/24/2020 00:35
