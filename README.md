@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEBiFPnayS8PTZfg-jRDzFQ-t50x50.jpg">](https://soundcloud.com/ntrecordings/diemetic-in-the-pit-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIOoWHLwupZNEBov-ksCgPg-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/benasis-be-with-u)
 
-**Artist**: No Tomorrow Recordings 
+**Artist**: High Caliber Records 
 
-**Track**: Diemetic - In The Pit (Original Mix)
+**Track**: Benasis - Be With U
 
-Last updated at 08/23/2020 22:24
+Last updated at 08/23/2020 22:27
