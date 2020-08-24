@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t8e0Qs64S6FLigUe-N2jiPw-t50x50.jpg">](https://soundcloud.com/cutegirlsdoingcutethings/daydream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhYZV4CExzjkXYAr-ypeoTg-t50x50.jpg">](https://soundcloud.com/raveculturemusic/darren-styles-x-stonebank-skank-in-the-rave)
 
-**Artist**: cute girls doing cute things 
+**Artist**: Rave Culture 
 
-**Track**: Daydream
+**Track**: Darren Styles x Stonebank - Skank In The Rave
 
-Last updated at 08/24/2020 08:46
+Last updated at 08/24/2020 08:47
