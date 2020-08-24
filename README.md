@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OhpIgseyLy64tfvj-0sRatQ-t50x50.jpg">](https://soundcloud.com/protaxia/breaking-benjamin-the-diary-of-jane-protaxia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZs7UF1q60axDnHm-rK3gLg-t50x50.jpg">](https://soundcloud.com/iamthearchitekt/architekt-mechvnize-hot-steppers-vip)
 
-**Artist**: protaxia 
+**Artist**: Architekt 
 
-**Track**: Breaking Benjamin - The Diary of Jane (Protaxia Remix)
+**Track**: Architekt & Mechvnize - Hot Steppers (VIP)
 
-Last updated at 08/24/2020 00:07
+Last updated at 08/24/2020 00:10
