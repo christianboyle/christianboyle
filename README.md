@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeF06Lp3RVFgJWGP-Q28m1w-t50x50.jpg">](https://soundcloud.com/triplesickzmusic/triplesickz-x-n377-nightmare-sonata)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AkfSQvcSrhbNLLQ2-eGJVjA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/dawave)
 
-**Artist**: TRIPLESICKZ 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: TRIPLESICKZ X N377 - NIGHTMARE SONATA
+**Track**: CHATOOR - Sandman (DaWave Remix)
 
-Last updated at 08/24/2020 00:13
+Last updated at 08/24/2020 00:19
