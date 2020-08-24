@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bz3YD4PtborCWDbV-bkPRRQ-t50x50.jpg">](https://soundcloud.com/groupchatrecordings/teknicolor-x-kaku-haus-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-joET1DZeqcWuCGCw-vaNBhA-t50x50.jpg">](https://soundcloud.com/slimecinema/stoopy)
 
-**Artist**: Group Chat 
+**Artist**: Slime Cinema 
 
-**Track**: Teknicolor x Kaku - Haus (Original Mix)
+**Track**: Stoopy
 
-Last updated at 08/23/2020 23:49
+Last updated at 08/23/2020 23:51
