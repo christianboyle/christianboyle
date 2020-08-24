@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4q7KrmXJhmRRtnHn-9YsyBg-t50x50.jpg">](https://soundcloud.com/lynxxofficial/outsider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R0NnAAVuYaDSyNvG-NY8DMg-t50x50.jpg">](https://soundcloud.com/itsgallium/sachi-1)
 
-**Artist**: LYNXX 
+**Artist**: GALLIUM 
 
-**Track**: Outsider
+**Track**: Sachi
 
-Last updated at 08/23/2020 23:39
+Last updated at 08/23/2020 23:43
