@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yJVSNe2VePB-0-t50x50.jpg">](https://soundcloud.com/philgoodsmusic/everythings-good-slow-magic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000570843482-9oxsuy-t50x50.jpg">](https://soundcloud.com/1001tracklists/slow-magic-spotlight)
 
-**Artist**: PHIL GOOD 
+**Artist**: 1001Tracklists 
 
-**Track**: Everything's Good (Slow Magic Remix)
+**Track**: Slow Magic - 1001Tracklists Spotlight Mix
 
-Last updated at 08/24/2020 08:54
+Last updated at 08/24/2020 08:55
