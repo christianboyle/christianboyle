@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFoc5zS5nB9P9OPy-d5Pjpg-t50x50.jpg">](https://soundcloud.com/hi_muira/chlorine-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoPT2rcpLxooDTPp-12n6Wg-t50x50.jpg">](https://soundcloud.com/thegoodphellas/drop-tonix-x-psygma-requiem)
 
-**Artist**: MUIRA, 
+**Artist**: The Goodphellas 
 
-**Track**: Chlorine
+**Track**: Drop Tonix X Psygma - Requiem
 
-Last updated at 08/24/2020 00:25
+Last updated at 08/24/2020 00:28
