@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTxYo9oBL7PSU2WU-OGJvDA-t50x50.jpg">](https://soundcloud.com/blaize323/blaize-x-big-n-slim-drip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6xEQmh9H83PvP2O-YBeDXQ-t50x50.png">](https://soundcloud.com/mooncoreofficial/canyouhearthem)
 
-**Artist**: BLAIZE 
+**Artist**: Mooncore 
 
-**Track**: BLAIZE X BIG N SLIM - DRIP
+**Track**: Mooncore - Can You Hear Them [Electrostep Network EXCLUSIVE]
 
-Last updated at 08/23/2020 23:06
+Last updated at 08/23/2020 23:10
