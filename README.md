@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIv6ygJPSyLuKHR-EtrgLQ-t50x50.jpg">](https://soundcloud.com/basscon/texcore-x-harlecore-dreaming)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUUosYaKWSegSZPO-7ryDgA-t50x50.jpg">](https://soundcloud.com/nocv/boys-of-summer)
 
-**Artist**: BASSCON 
+**Artist**: Noc.V 
 
-**Track**: Texcore x Harlecore - Dreaming
+**Track**: DeBisco & Noc.V - Boys Of Summer [FREE DOWNLOAD]
 
-Last updated at 08/24/2020 11:08
+Last updated at 08/24/2020 11:11
