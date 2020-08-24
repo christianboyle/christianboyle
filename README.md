@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wATJ1eCviYIpO9Uf-Aj0gfQ-t50x50.jpg">](https://soundcloud.com/harrier-music/open-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbpzpHkvi0Ht9tj1-jndNfQ-t50x50.jpg">](https://soundcloud.com/novalotusmusic/need-you)
 
-**Artist**: Harrier Music 
+**Artist**: Nova Lotus Music 
 
-**Track**: Harrier, DOP3 MC, $oviet Kid - Open Up [FREE DOWNLOAD]
+**Track**: Kerys + Eighti8 - Need You
 
-Last updated at 08/24/2020 00:35
+Last updated at 08/24/2020 00:39
