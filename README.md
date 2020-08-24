@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIOoWHLwupZNEBov-ksCgPg-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/benasis-og-hittas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
 
-**Artist**: High Caliber Records 
+**Artist**: Good Vibes Only 
 
-**Track**: Benasis - OG Hittas
+**Track**: Elahu - OP #GV085
 
-Last updated at 08/24/2020 00:52
+Last updated at 08/24/2020 00:56
