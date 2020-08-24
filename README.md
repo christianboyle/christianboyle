@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000715930231-al0pg3-t50x50.jpg">](https://soundcloud.com/anjunabeats/anjunabeats-worldwide-670-with?in=anjunabeats/sets/anjunabeats-worldwide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1BOayOzVenhAUwQ-NjXH2Q-t50x50.jpg">](https://soundcloud.com/crystalforever/friends)
 
-**Artist**: Anjunabeats 
+**Artist**: crystal0 
 
-**Track**: Anjunabeats Worldwide 670 with Trance Wax
+**Track**: Friends
 
-Last updated at 08/23/2020 20:33
+Last updated at 08/23/2020 20:34
