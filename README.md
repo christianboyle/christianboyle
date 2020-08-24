@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SZJpPxlBt14sUf7-y5zZLg-t50x50.jpg">](https://soundcloud.com/caliosmusic/sidewinder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFIhY7SiCnZRbPGZ-40H13A-t50x50.jpg">](https://soundcloud.com/dukeandjones/playboi-carti-x-gypsy-woman-duke-jones-edit)
 
-**Artist**: Calios 
+**Artist**: Duke & Jones 
 
-**Track**: Sidewinder
+**Track**: Playboi Carti X Gypsy Woman [Duke & Jones Edit]
 
-Last updated at 08/24/2020 12:28
+Last updated at 08/24/2020 14:42
