@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AkfSQvcSrhbNLLQ2-eGJVjA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/dawave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfqBsMKExEerskP7-KMLEMQ-t50x50.jpg">](https://soundcloud.com/itscustome/alien-boy-vip)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: CUSTOME 
 
-**Track**: CHATOOR - Sandman (DaWave Remix)
+**Track**: Oliver Tree - Alien Boy (CUSTOME Re-Remix)
 
-Last updated at 08/24/2020 00:19
+Last updated at 08/24/2020 00:22
