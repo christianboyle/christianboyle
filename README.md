@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5MdmYczY8J3q8iW-CvoK5A-t50x50.jpg">](https://soundcloud.com/jstcuz/needed-you-the-most-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz2HHa0ezC6qxa1a-1te3VA-t50x50.jpg">](https://soundcloud.com/enosofficial/ye-bruv-final-mastered-1)
 
-**Artist**: JST CUZ 
+**Artist**: ENöS 
 
-**Track**: Needed You The Most
+**Track**: YE BRUV (CLICK "BUY"/FREE DOWNLOAD)
 
-Last updated at 08/23/2020 23:32
+Last updated at 08/23/2020 23:36
