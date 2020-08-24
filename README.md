@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfqBsMKExEerskP7-KMLEMQ-t50x50.jpg">](https://soundcloud.com/itscustome/alien-boy-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hP3lDNo6461KcZqQ-z8Swwg-t50x50.jpg">](https://soundcloud.com/blaqoutdubstep/chicken-soup-blaqout)
 
-**Artist**: CUSTOME 
+**Artist**: BLAQOUT 👹 
 
-**Track**: Oliver Tree - Alien Boy (CUSTOME Re-Remix)
+**Track**: Skrillex & Habstrakt - Chicken Soup (Blaqout Flip)(Free Download)
 
-Last updated at 08/23/2020 20:39
+Last updated at 08/23/2020 20:42
