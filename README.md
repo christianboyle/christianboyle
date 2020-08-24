@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-89VhkLEq95mtIUdl-uu1H8w-t50x50.jpg">](https://soundcloud.com/nikademismusic/kanye-power-nikademis-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Don1It1TB6s1hL2-v9fAIg-t50x50.jpg">](https://soundcloud.com/dropcentral/sofresh)
 
-**Artist**: Nikademis 
+**Artist**: Drop Central 💧 
 
-**Track**: Kanye West - Power (Nikademis Flip)
+**Track**: Kavi x Jeff Molner - So Fresh
 
-Last updated at 08/23/2020 22:34
+Last updated at 08/23/2020 22:37
