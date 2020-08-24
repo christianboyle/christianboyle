@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AkfSQvcSrhbNLLQ2-eGJVjA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/dekay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-la52dhDoGq2RjxyR-xIeOxg-t50x50.jpg">](https://soundcloud.com/saint-baek/gta-red-lips-saint-miller-x-skrillex-remix)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Saint Miller 
 
-**Track**: CHATOOR - Sandman (DËKAY Remix)
+**Track**: GTA - Red Lips (Saint Miller x Skrillex Remix)
 
-Last updated at 08/23/2020 22:58
+Last updated at 08/23/2020 23:01
