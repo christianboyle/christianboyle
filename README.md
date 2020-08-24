@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R0NnAAVuYaDSyNvG-NY8DMg-t50x50.jpg">](https://soundcloud.com/itsgallium/sachi-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qCDTkuOpDw5DRpSS-rRe0xw-t50x50.jpg">](https://soundcloud.com/5oh8music/leave-like-this)
 
-**Artist**: GALLIUM 
+**Artist**: 5oh8 
 
-**Track**: Sachi
+**Track**: Leave Like This
 
-Last updated at 08/23/2020 23:43
+Last updated at 08/23/2020 23:46
