@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4puuJrycuYUW70dM-42jTlw-t50x50.jpg">](https://soundcloud.com/fresh22stuff/reverse-ritual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5MdmYczY8J3q8iW-CvoK5A-t50x50.jpg">](https://soundcloud.com/jstcuz/africa-ft-kysara-marie)
 
-**Artist**: FRESH STUFF 
+**Artist**: JST CUZ 
 
-**Track**: REVERSE RITUAL
+**Track**: Down to Africa Ft Kysara Marie
 
-Last updated at 08/23/2020 23:18
+Last updated at 08/23/2020 23:21
