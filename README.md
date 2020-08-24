@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Don1It1TB6s1hL2-v9fAIg-t50x50.jpg">](https://soundcloud.com/dropcentral/sofresh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FI1HPJzHyJzZ23Yw-WaYQUg-t50x50.png">](https://soundcloud.com/electrostepnetwork/lunaticvip)
 
-**Artist**: Drop Central 💧 
+**Artist**: Electrostep Network 
 
-**Track**: Kavi x Jeff Molner - So Fresh
+**Track**: Jezabel - Lunatic (VIP) [Electrostep Network EXCLUSIVE]
 
-Last updated at 08/23/2020 22:37
+Last updated at 08/23/2020 22:42
