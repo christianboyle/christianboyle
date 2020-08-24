@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-la52dhDoGq2RjxyR-xIeOxg-t50x50.jpg">](https://soundcloud.com/saint-baek/gta-red-lips-saint-miller-x-skrillex-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s1yLZuxBHHzeStoz-MCe8DA-t50x50.jpg">](https://soundcloud.com/kaiporamusic/ib4e-mastered)
 
-**Artist**: Saint Miller 
+**Artist**: K A I P O R A 
 
-**Track**: GTA - Red Lips (Saint Miller x Skrillex Remix)
+**Track**: ib4e
 
-Last updated at 08/23/2020 23:01
+Last updated at 08/23/2020 23:04
