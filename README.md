@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IpYzCEZEGzhwEvfs-z8iGUg-t50x50.jpg">](https://soundcloud.com/humanerrorcollective/glty-slow-burn-ft-hherb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w0oYzqGuyzyDIWRW-eZfrXA-t50x50.jpg">](https://soundcloud.com/ayyofree/oldone-pull-the-trigger?in=ayyofree/sets/oldone-pull-the-trigger)
 
-**Artist**: Human Error// 
+**Artist**: AY YO FREE! 
 
-**Track**: GLTY - Slow Burn Ft. Hherb
+**Track**: OLDONE - PULL THE TRIGGER
 
-Last updated at 08/24/2020 07:17
+Last updated at 08/24/2020 07:21
