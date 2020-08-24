@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz2HHa0ezC6qxa1a-1te3VA-t50x50.jpg">](https://soundcloud.com/enosofficial/ye-bruv-final-mastered-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4q7KrmXJhmRRtnHn-9YsyBg-t50x50.jpg">](https://soundcloud.com/lynxxofficial/outsider)
 
-**Artist**: ENöS 
+**Artist**: LYNXX 
 
-**Track**: YE BRUV (CLICK "BUY"/FREE DOWNLOAD)
+**Track**: Outsider
 
-Last updated at 08/23/2020 23:36
+Last updated at 08/23/2020 23:39
