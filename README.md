@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000162697862-7jbhtb-t50x50.jpg">](https://soundcloud.com/atikmusic/atik-get-love-cymatics-jawz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000761174908-qfcaev-t50x50.jpg">](https://soundcloud.com/brooklynfire/there-it-is-rave-or-die)
 
-**Artist**: Atik 👻 
+**Artist**: Brooklyn Fire 
 
-**Track**: Atik - Get Love (Cymatics JAWZ Contest Popular Vote Winner)
+**Track**: There It Is - Rave or Die
 
-Last updated at 08/23/2020 20:50
+Last updated at 08/23/2020 20:51
