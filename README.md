@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfqBsMKExEerskP7-KMLEMQ-t50x50.jpg">](https://soundcloud.com/itscustome/alien-boy-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFoc5zS5nB9P9OPy-d5Pjpg-t50x50.jpg">](https://soundcloud.com/hi_muira/chlorine-2)
 
-**Artist**: CUSTOME 
+**Artist**: MUIRA, 
 
-**Track**: Oliver Tree - Alien Boy (CUSTOME Re-Remix)
+**Track**: Chlorine
 
-Last updated at 08/24/2020 00:22
+Last updated at 08/24/2020 00:25
