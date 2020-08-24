@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5MdmYczY8J3q8iW-CvoK5A-t50x50.jpg">](https://soundcloud.com/jstcuz/africa-ft-kysara-marie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bENEqPz4sDOOOBrg-ZbGkPA-t50x50.jpg">](https://soundcloud.com/popsiklmusic/frostbite)
 
-**Artist**: JST CUZ 
+**Artist**: POPSIKL 
 
-**Track**: Down to Africa Ft Kysara Marie
+**Track**: FROSTBITE
 
-Last updated at 08/23/2020 23:21
+Last updated at 08/23/2020 23:24
