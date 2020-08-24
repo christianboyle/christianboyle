@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGpL54z0HycW1YyA-eqyqZw-t50x50.jpg">](https://soundcloud.com/ohfashojairu/vrg-came-in-this-jairu-flip-final-mstr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AkfSQvcSrhbNLLQ2-eGJVjA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/dekay)
 
-**Artist**: JAÎRU 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: VRG- CAME IN THIS (JAÎRU FLIP)
+**Track**: CHATOOR - Sandman (DËKAY Remix)
 
-Last updated at 08/23/2020 22:56
+Last updated at 08/23/2020 22:58
