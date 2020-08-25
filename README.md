@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t50x50.jpg">](https://soundcloud.com/fish_narc/wildfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OH9tk3A9er2HLIUO-nYUv9w-t50x50.jpg">](https://soundcloud.com/there_it_is_music/there-it-is-pyramid-scheme-vol-1-live-dj-set)
 
-**Artist**: fish narc 
+**Artist**: [There It Is] 
 
-**Track**: WiLDFiRE
+**Track**: There It Is - Pyramid Scheme Vol. 1 [LIVE DJ SET]
 
-Last updated at 08/24/2020 20:38
+Last updated at 08/25/2020 08:05
