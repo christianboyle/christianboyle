@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ktAgmovYxDSnfjC-qOIJNg-t50x50.jpg">](https://soundcloud.com/manap00l/dragula)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MsfmfsYd0ylE6nt-u6hAEA-t50x50.jpg">](https://soundcloud.com/electrobro/wererocksolid)
 
-**Artist**: MANAPOOL 
+**Artist**: electrobro 
 
-**Track**: D/R/A/G/U/L/A
+**Track**: we're rock solid
 
-Last updated at 08/24/2020 19:49
+Last updated at 08/24/2020 19:50
