@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyzJSGFwOzEMyxsz-ERHo3g-t50x50.jpg">](https://soundcloud.com/frazevault/timbaland-ft-justin-timberlake-carry-out-fraze-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Po2621ntp2kbCuQb-ffVjtw-t50x50.jpg">](https://soundcloud.com/hethenmusic/swear)
 
-**Artist**: Fraze's Vault 
+**Artist**: HETHEN 
 
-**Track**: Timbaland ft. Justin Timberlake - Carry Out (Fraze Remix)
+**Track**: HETHEN - Swear [FREE DL]
 
-Last updated at 08/24/2020 19:51
+Last updated at 08/24/2020 19:52
