@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hm7wOYrpx94if8yR-vBy3uw-t50x50.jpg">](https://soundcloud.com/embrz/sound-4-u-x-be-mine-ft-amy-rose-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpQLv6DRcQ7nWiVi-Poyk7g-t50x50.jpg">](https://soundcloud.com/divididmusic/eyes-closed?in=tomfinster/sets/blind-ep)
 
-**Artist**: EMBRZ 
+**Artist**: DIVIDID 
 
-**Track**: Sound 4 U x Be Mine ft. Amy Rose
+**Track**: Tom Finster - Eyes Closed ft. Echo Map
 
-Last updated at 08/24/2020 19:53
+Last updated at 08/24/2020 19:54
