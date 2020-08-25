@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uTMHJaYliY7jMZWy-Sqphhw-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/saltwater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ikI1cDyDk67cyDGG-P95XLA-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf242)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Strange Fruits 
 
-**Track**: Drinkurwater - Saltwater
+**Track**: Formal Chicken - POPSTAR
 
-Last updated at 08/25/2020 09:08
+Last updated at 08/25/2020 09:11
