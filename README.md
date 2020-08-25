@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b1hWe3X3u6haQXvn-Tho2lA-t50x50.jpg">](https://soundcloud.com/ongun-savas/shaman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ktAgmovYxDSnfjC-qOIJNg-t50x50.jpg">](https://soundcloud.com/manap00l/dragula)
 
-**Artist**: SAVAS 
+**Artist**: MANAPOOL 
 
-**Track**: SAVAS - Shaman
+**Track**: D/R/A/G/U/L/A
 
-Last updated at 08/24/2020 19:48
+Last updated at 08/24/2020 19:49
