@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpQLv6DRcQ7nWiVi-Poyk7g-t50x50.jpg">](https://soundcloud.com/divididmusic/eyes-closed?in=tomfinster/sets/blind-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t50x50.jpg">](https://soundcloud.com/fish_narc/wildfire)
 
-**Artist**: DIVIDID 
+**Artist**: fish narc 
 
-**Track**: Tom Finster - Eyes Closed ft. Echo Map
+**Track**: WiLDFiRE
 
-Last updated at 08/24/2020 19:54
+Last updated at 08/24/2020 20:38
