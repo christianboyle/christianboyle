@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D04ilBNX3zh9bIDB-BzpzlA-t50x50.jpg">](https://soundcloud.com/commonground001/grounded-001-geist?in=commonground001/sets/grounded-mix-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hm7wOYrpx94if8yR-vBy3uw-t50x50.jpg">](https://soundcloud.com/embrz/sound-4-u-x-be-mine-ft-amy-rose-1)
 
-**Artist**: Common Ground 
+**Artist**: EMBRZ 
 
-**Track**: GROUNDED 001 : GEIST
+**Track**: Sound 4 U x Be Mine ft. Amy Rose
 
-Last updated at 08/26/2020 11:26
+Last updated at 08/26/2020 11:28
