@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tw9UqehFlt3bnm7V-XQXnlg-t50x50.jpg">](https://soundcloud.com/syn6syn/way-u-lie-syn-fast-drum-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4mJjkZaJPQQhVKt-WFTTHw-t50x50.jpg">](https://soundcloud.com/djmag/fresh-kicks-134-syn)
 
-**Artist**: Syn 
+**Artist**: djmag 
 
-**Track**: Way U Lie (Syn 'Fast Drum' Remix)
+**Track**: Fresh Kicks 134: Syn
 
-Last updated at 08/25/2020 19:59
+Last updated at 08/25/2020 20:00
