@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XISGBHnqMQR-0-t50x50.jpg">](https://soundcloud.com/disclosuremusic/ecstasy?in=disclosuremusic/sets/ecstasy-340029882)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMQspf3RtTHCZIwz-QEluzA-t50x50.jpg">](https://soundcloud.com/commonground001/grounded-008-syn)
 
-**Artist**: Disclosure 
+**Artist**: Common Ground 
 
-**Track**: Ecstasy
+**Track**: GROUNDED 008: SYN
 
-Last updated at 08/25/2020 19:56
+Last updated at 08/25/2020 19:57
