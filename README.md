@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360590541-bqkvod-t50x50.jpg">](https://soundcloud.com/daithimusic/02-in-my-darkest-moments-feat?in=commonground001/sets/forbidden-fruit-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-phqKBXH5UEelQHQJ-lAOutw-t50x50.jpg">](https://soundcloud.com/commonground001/grounded-006-high-fidelity?in=commonground001/sets/grounded-mix-series)
 
-**Artist**: Daithi 
+**Artist**: Common Ground 
 
-**Track**: 02 In My Darkest Moments (Feat. The Sei)
+**Track**: GROUNDED 006: HIGH FIDELITY
 
-Last updated at 08/26/2020 11:05
+Last updated at 08/26/2020 11:06
