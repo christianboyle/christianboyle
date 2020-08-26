@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMQspf3RtTHCZIwz-QEluzA-t50x50.jpg">](https://soundcloud.com/commonground001/grounded-008-syn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tw9UqehFlt3bnm7V-XQXnlg-t50x50.jpg">](https://soundcloud.com/syn6syn/way-u-lie-syn-fast-drum-remix)
 
-**Artist**: Common Ground 
+**Artist**: Syn 
 
-**Track**: GROUNDED 008: SYN
+**Track**: Way U Lie (Syn 'Fast Drum' Remix)
 
-Last updated at 08/25/2020 19:57
+Last updated at 08/25/2020 19:59
