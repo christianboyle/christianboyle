@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0x6MLmX1phdWOBX-TpXydQ-t50x50.jpg">](https://soundcloud.com/researchlabel/ellen-research-podcast-013)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMQspf3RtTHCZIwz-QEluzA-t50x50.jpg">](https://soundcloud.com/commonground001/grounded-008-syn)
 
-**Artist**: Researchlabel 
+**Artist**: Common Ground 
 
-**Track**: Research Podcast #013 | Ellen
+**Track**: GROUNDED 008: SYN
 
-Last updated at 08/26/2020 09:23
+Last updated at 08/26/2020 10:49
