@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hm7wOYrpx94if8yR-vBy3uw-t50x50.jpg">](https://soundcloud.com/embrz/sound-4-u-x-be-mine-ft-amy-rose-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rfr4nwnLuyhX-0-t50x50.jpg">](https://soundcloud.com/super-duper-music/we-had-everything-1?in=super-duper-music/sets/we-had-everything-pasadena)
 
-**Artist**: EMBRZ 
+**Artist**: Super Duper 
 
-**Track**: Sound 4 U x Be Mine ft. Amy Rose
+**Track**: We Had Everything
 
-Last updated at 08/26/2020 11:28
+Last updated at 08/27/2020 19:27
