@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-il-est-temps)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TFz6zz56nVbFp3ur-LcSvkA-t50x50.jpg">](https://soundcloud.com/putivuelta/6-missdevana-cmon)
 
-**Artist**: CASUAL GABBERZ 
+**Artist**: ⛓️ Putivuelta ⛓️ 
 
-**Track**: aamourocean - Il est Temps
+**Track**: 6. Missdevana - C'mon
 
-Last updated at 08/27/2020 21:03
+Last updated at 08/27/2020 21:06
