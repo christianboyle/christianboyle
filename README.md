@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nkytLFzfOf0Jqg39-K2zcCw-t50x50.jpg">](https://soundcloud.com/wearetar/cnamha-wasted-chattel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-il-est-temps)
 
-**Artist**: TAR 
+**Artist**: CASUAL GABBERZ 
 
-**Track**: CNÁMHA - Wasted Chattel
+**Track**: aamourocean - Il est Temps
 
-Last updated at 08/27/2020 21:02
+Last updated at 08/27/2020 21:03
