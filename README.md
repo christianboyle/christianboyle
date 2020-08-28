@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MjjdzxuNDTmldk32-gXGAwA-t50x50.jpg">](https://soundcloud.com/matrodamusic/maximonoremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PgtPh5yoLYLt-0-t50x50.png">](https://soundcloud.com/ithinkimcrashin/delilah?in=ithinkimcrashin/sets/akrasia-2)
 
-**Artist**: MATRODA 
+**Artist**: Stephen 
 
-**Track**: Matroda - The Movement (Maximono Remix)
+**Track**: Delilah
 
-Last updated at 08/27/2020 19:34
+Last updated at 08/27/2020 19:35
