@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyDTO6cgprYYnujL-Agg39Q-t50x50.jpg">](https://soundcloud.com/drevm/dusty-trees-1?in=drevm/sets/dusty-trees-sleepless-nights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAs3zqedxhP0y3hm-nMwQwA-t50x50.jpg">](https://soundcloud.com/olmosmusic/cheers-to-leaving-you?in=olmosmusic/sets/cheers-to-leaving-you-ep)
 
-**Artist**: DREVM 
+**Artist**: olmos 
 
-**Track**: Dusty Trees
+**Track**: Cheers, To Leaving You
 
-Last updated at 08/29/2020 15:12
+Last updated at 08/29/2020 15:13
