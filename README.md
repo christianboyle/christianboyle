@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAs3zqedxhP0y3hm-nMwQwA-t50x50.jpg">](https://soundcloud.com/olmosmusic/cheers-to-leaving-you?in=olmosmusic/sets/cheers-to-leaving-you-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nLybb9kwfI4NrPOB-koe5Mw-t50x50.jpg">](https://soundcloud.com/aviella-winder/aviella-sawyr-lean)
 
-**Artist**: olmos 
+**Artist**: Aviella 
 
-**Track**: Cheers, To Leaving You
+**Track**: Aviella & Sawyr - Lean
 
-Last updated at 08/29/2020 15:13
+Last updated at 08/29/2020 15:14
