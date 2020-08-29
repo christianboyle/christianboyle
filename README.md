@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trmQSuHOThzyswNn-O3p9PA-t50x50.jpg">](https://soundcloud.com/gefangenintrance/git-podcast-session-michael-dietze-into-the-mix?in=billjobs/sets/guiltypleasures-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIENEftuIlpVMYXA-1tcDHg-t50x50.jpg">](https://soundcloud.com/enhanced/tritonal-someone-to-love-you-morgan-page-remix)
 
-**Artist**: Gefangen Intrance 
+**Artist**: Enhanced 
 
-**Track**: GIT Podcast Session # Michael Dietze Into The Mix
+**Track**: Tritonal - Someone To Love You (Morgan Page Remix)
 
-Last updated at 08/28/2020 13:12
+Last updated at 08/29/2020 07:16
