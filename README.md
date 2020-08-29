@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01Mx398PKTW7JCdf-cmObYA-t50x50.jpg">](https://soundcloud.com/syenceexperiments/a-boogie-wit-da-hoodie-drowning-feat-kodak-black-syence-experiment-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmrY593jy10KWfPB-CmEB6g-t50x50.jpg">](https://soundcloud.com/magicallyedm/thelight)
 
-**Artist**: Syence Experiments 
+**Artist**: Magically 
 
-**Track**: A Boogie wit da Hoodie - Drowning (feat. Kodak Black) [Syence Experiment]
+**Track**: NDsounds - The Light [Magically Release]
 
-Last updated at 08/29/2020 13:50
+Last updated at 08/29/2020 15:11
