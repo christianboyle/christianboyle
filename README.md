@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygueTtyg1bNcKL6l-AlgxDg-t50x50.jpg">](https://soundcloud.com/datafruits/trash-panda-qc-08262020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0G2GPFVTci8anHp-5kslVA-t50x50.jpg">](https://soundcloud.com/talegatemusic/chris-bandi-man-enough-now-talegate-remix)
 
-**Artist**: datafruits 
+**Artist**: talegate 
 
-**Track**: Trash Panda QC - 08262020
+**Track**: Chris Bandi - Man Enough Now (talegate remix)
 
-Last updated at 08/29/2020 08:18
+Last updated at 08/29/2020 08:22
