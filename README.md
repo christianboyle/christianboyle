@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Don1It1TB6s1hL2-v9fAIg-t50x50.jpg">](https://soundcloud.com/dropcentral/sofresh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3W5UvDGgkzsejrV-HD1QfA-t50x50.jpg">](https://soundcloud.com/billyisterrible/brunchtime)
 
-**Artist**: Drop Central 💧 
+**Artist**: Billy Marchiafava 
 
-**Track**: Kavi x Jeff Molner - So Fresh
+**Track**: Brunchtime ft. Lil Kapow (Prod. ANH)
 
-Last updated at 08/29/2020 08:15
+Last updated at 08/29/2020 08:16
