@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avkchijDxhdAz0EW-KmN9kg-t50x50.jpg">](https://soundcloud.com/pushcollective/push-radio-039-ft-kurei)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbVcLCGLyCQK3oZD-ifgQew-t50x50.jpg">](https://soundcloud.com/particaartistgroup/vendetta)
 
-**Artist**: Push Collective 
+**Artist**: Partica Artist Group 
 
-**Track**: PUSH Radio 039 Ft Kurei
+**Track**: Robu & golden child - Vendetta
 
-Last updated at 08/30/2020 08:22
+Last updated at 08/30/2020 09:34
