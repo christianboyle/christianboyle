@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000387052260-9y3ife-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc118)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000490161849-0jwzs4-t50x50.jpg">](https://soundcloud.com/xtreme2themax/flux-pavilion-bass-cannon-djx-bass-ganon-flip)
 
-**Artist**: NON STOP NXC® 
+**Artist**: djX 
 
-**Track**: NXC118 - Dull Machine - Freak
+**Track**: FLUX PAVILION - BASS CANNON (djX BASS GANON FLIP)
 
-Last updated at 08/29/2020 15:19
+Last updated at 08/29/2020 21:54
