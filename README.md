@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8b1pUQQCj2Wiwax-CDY3IA-t50x50.jpg">](https://soundcloud.com/har2nok/frichmo-ft-deamon?in=har2nok/sets/nokturnal-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhXSjoqt5DQyZCYK-MynEqA-t50x50.png">](https://soundcloud.com/teammerks/laugh-now-cry-later-merks-t-marq-remix)
 
-**Artist**: Har2Nok佰 
+**Artist**: DJ Merks 
 
-**Track**: Frichmo (Ft. Deamon)
+**Track**: Laugh Now Cry Later (Merks & T Marq Remix)
 
-Last updated at 08/30/2020 13:10
+Last updated at 08/30/2020 13:11
