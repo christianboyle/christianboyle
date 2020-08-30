@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5hA4XSPkg1jJWRv-npiqKw-t50x50.jpg">](https://soundcloud.com/deadcrxw/astronomia-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXMQJWuXWLYvbAp8-BKbvRg-t50x50.jpg">](https://soundcloud.com/floots_toots/yellow-claw-dj-turn-it-up-trap-2-reboot?in=particaartistgroup/sets/trap2)
 
-**Artist**: Deadcrow 
+**Artist**: floot 
 
-**Track**: ASTRONOMIA
+**Track**: Yellow Claw - DJ Turn It Up (Trap 2 reFLOOT)
 
-Last updated at 08/30/2020 13:12
+Last updated at 08/30/2020 13:16
