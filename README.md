@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycnZ04xzcopMkocf-m8OYyg-t50x50.jpg">](https://soundcloud.com/dobrel/got-2-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUidy4ubHcAfLrUb-kB9FcQ-t50x50.jpg">](https://soundcloud.com/kompanymusic/save-you-kompany-remix)
 
-**Artist**: DOBREL 
+**Artist**: Kompany 
 
-**Track**: GOT 2 LOVE
+**Track**: Riot Ten & Whales - Save You (feat. Megan Stokes) [Kompany Remix]
 
-Last updated at 08/30/2020 12:43
+Last updated at 08/30/2020 12:44
