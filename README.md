@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAZwyBQz1pp1SfED-g6FaqA-t50x50.jpg">](https://soundcloud.com/shelfnunny/claws-shelf-nunny-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycnZ04xzcopMkocf-m8OYyg-t50x50.jpg">](https://soundcloud.com/dobrel/got-2-love)
 
-**Artist**: SHELF NUNNY 
+**Artist**: DOBREL 
 
-**Track**: Claws (shelf nunny rmx)
+**Track**: GOT 2 LOVE
 
-Last updated at 08/30/2020 12:42
+Last updated at 08/30/2020 12:43
