@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXDv9gbKg8Vmd9Qi-MPwyyw-t50x50.jpg">](https://soundcloud.com/heyzmsc/just-friends-ft-taylor-ravenna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8b1pUQQCj2Wiwax-CDY3IA-t50x50.jpg">](https://soundcloud.com/har2nok/frichmo-ft-deamon?in=har2nok/sets/nokturnal-vol-1)
 
-**Artist**: HEYZ 
+**Artist**: Har2Nok佰 
 
-**Track**: Just Friends (ft. Taylor Ravenna) [Deadbeats]
+**Track**: Frichmo (Ft. Deamon)
 
-Last updated at 08/30/2020 12:45
+Last updated at 08/30/2020 13:10
