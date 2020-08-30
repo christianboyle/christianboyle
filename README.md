@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhXSjoqt5DQyZCYK-MynEqA-t50x50.png">](https://soundcloud.com/teammerks/laugh-now-cry-later-merks-t-marq-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5hA4XSPkg1jJWRv-npiqKw-t50x50.jpg">](https://soundcloud.com/deadcrxw/astronomia-1)
 
-**Artist**: DJ Merks 
+**Artist**: Deadcrow 
 
-**Track**: Laugh Now Cry Later (Merks & T Marq Remix)
+**Track**: ASTRONOMIA
 
-Last updated at 08/30/2020 13:11
+Last updated at 08/30/2020 13:12
