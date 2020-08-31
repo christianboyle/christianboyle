@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrpOBsgT2A6YPYBh-2tzYRw-t50x50.jpg">](https://soundcloud.com/inf1n1temusic/watchout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: INF1N1TE 
+**Artist**: WE ARE FURY 
 
-**Track**: INF1N1TE & KONUS - WATCH OUT
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 08/31/2020 11:44
+Last updated at 08/31/2020 11:45
