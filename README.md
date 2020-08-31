@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f16inzSh8sSGSlk0-T9BJ5g-t50x50.jpg">](https://soundcloud.com/mobilepro/dynamite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: MOBILE PRO 
+**Artist**: WE ARE FURY 
 
-**Track**: DYNAMITE
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 08/30/2020 16:06
+Last updated at 08/31/2020 10:00
