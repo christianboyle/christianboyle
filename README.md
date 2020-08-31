@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0G2GPFVTci8anHp-5kslVA-t50x50.jpg">](https://soundcloud.com/talegatemusic/chris-bandi-man-enough-now-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1hvTLSCsIglebDy-n3Czqg-t50x50.jpg">](https://soundcloud.com/sam-segan/vibe-remix)
 
-**Artist**: talegate 
+**Artist**: Segan 
 
-**Track**: Chris Bandi - Man Enough Now (talegate remix)
+**Track**: Oliverse - My Vibe (Segan Remix)
 
-Last updated at 08/31/2020 11:51
+Last updated at 08/31/2020 15:49
