@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBUXsyeA3kXTfYgc-0PsQ8w-t50x50.jpg">](https://soundcloud.com/nightcorewh0re-rock/follow-anti-nightcore-whore-remix-kito-zhu-jeremih)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeeoIPcJ40zN8Z3x-2qZk4g-t50x50.jpg">](https://soundcloud.com/recallrecords/ighl-vip)
 
-**Artist**: I AM ROCK NIGHTCØRE WHØRE 
+**Artist**: Recall Records 
 
-**Track**: Follow [ANTI-NIGHTCØRE WHØRE REMIX] Kito, ZHU & Jeremih
+**Track**: Stuftkrust & Sad Meal - Intergalactic Hyperloop (That's So Sad VIP)
 
-Last updated at 08/31/2020 11:13
+Last updated at 08/31/2020 11:42
