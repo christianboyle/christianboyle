@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1hvTLSCsIglebDy-n3Czqg-t50x50.jpg">](https://soundcloud.com/sam-segan/vibe-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bovuvyc8ROhVfHvB-ohmzuA-t50x50.jpg">](https://soundcloud.com/ltebele/summer-boy-lt-master-final-1)
 
-**Artist**: Segan 
+**Artist**: Leo Tebele 
 
-**Track**: Oliverse - My Vibe (Segan Remix)
+**Track**: Summer Boy - Leo Tebele feat. Aishah
 
-Last updated at 08/31/2020 15:49
+Last updated at 08/31/2020 15:50
