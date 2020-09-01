@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000652073212-w5w2ei-t50x50.jpg">](https://soundcloud.com/xxxxzomb/summers-fall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: ZØMB 
+**Artist**: WE ARE FURY 
 
-**Track**: Summer's Fall
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/01/2020 09:27
+Last updated at 09/01/2020 09:28
