@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000819238912-tlb4rr-t50x50.jpg">](https://soundcloud.com/buygore/borgore-wodd-sweet-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAYepi3cqWzCH883-bOqPAQ-t50x50.jpg">](https://soundcloud.com/90sk1d/street-thing)
 
-**Artist**: Buygore 
+**Artist**: 90sK1D 
 
-**Track**: Borgore, WODD - Sweet Dreams
+**Track**: street thing
 
-Last updated at 09/01/2020 09:22
+Last updated at 09/01/2020 09:23
