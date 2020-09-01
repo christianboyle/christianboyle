@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/man-of-the-year)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flqn1WlzbBD9Mav7-7WzRbw-t50x50.jpg">](https://soundcloud.com/uiceheidd/come-go-ft-marshmello)
 
 **Artist**: Juice WRLD 
 
-**Track**: Man Of The Year
+**Track**: Come & Go Ft. Marshmello
 
-Last updated at 08/31/2020 20:46
+Last updated at 08/31/2020 20:47
