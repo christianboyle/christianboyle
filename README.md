@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAYepi3cqWzCH883-bOqPAQ-t50x50.jpg">](https://soundcloud.com/90sk1d/street-thing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWHtesMxMV0zubFy-QwfiKg-t50x50.jpg">](https://soundcloud.com/futuregenerationofficial/jim-yosef-elle-vee-live-my-life?in=tncrecordings/sets/jim-yosef-elle-vee-live-my)
 
-**Artist**: 90sK1D 
+**Artist**: Future Generation 
 
-**Track**: street thing
+**Track**: Jim Yosef & Elle Vee - Live My Life
 
-Last updated at 09/01/2020 09:23
+Last updated at 09/01/2020 09:24
