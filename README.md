@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000387052260-9y3ife-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc118)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: NON STOP NXC® 
+**Artist**: WE ARE FURY 
 
-**Track**: NXC118 - Dull Machine - Freak
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 08/31/2020 16:37
+Last updated at 08/31/2020 19:41
