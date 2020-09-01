@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flqn1WlzbBD9Mav7-7WzRbw-t50x50.jpg">](https://soundcloud.com/uiceheidd/come-go-ft-marshmello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMIUEV2x9NbZlz9p-kXu1JQ-t50x50.jpg">](https://soundcloud.com/curtainss/1vootifullfast?in=curtainss/sets/blink-1-16)
 
-**Artist**: Juice WRLD 
+**Artist**: Curtains (@moonnstones) 
 
-**Track**: Come & Go Ft. Marshmello
+**Track**: vootifull
 
-Last updated at 08/31/2020 20:47
+Last updated at 08/31/2020 20:48
