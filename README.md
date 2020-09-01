@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ADomYY6XmczcKHPH-P5lFGw-t50x50.jpg">](https://soundcloud.com/hyperpopcollective/ahjui-chaos-theory?in=hyperpopcollective/sets/ahju-i-truth-has-an-expiration)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhKqUzHWz9PI27GV-YTP4Ag-t50x50.jpg">](https://soundcloud.com/lowlypalace/paapi-muzik-starlight)
 
-**Artist**: HYPERPOP 
+**Artist**: Lowly. 
 
-**Track**: AHJU$I - CHAOS THEORY
+**Track**: Paapi Muzik - Starlight
 
-Last updated at 09/01/2020 09:18
+Last updated at 09/01/2020 09:19
