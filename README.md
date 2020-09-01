@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhKqUzHWz9PI27GV-YTP4Ag-t50x50.jpg">](https://soundcloud.com/lowlypalace/paapi-muzik-starlight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhjkBy66CE2AlhU9-8E5RZA-t50x50.jpg">](https://soundcloud.com/hermanitolabel/etc-etc-desamor-feat-zairah)
 
-**Artist**: Lowly. 
+**Artist**: Hermanito 
 
-**Track**: Paapi Muzik - Starlight
+**Track**: ETC!ETC!, Desamor Feat. Zairah - Frikisola
 
-Last updated at 09/01/2020 09:19
+Last updated at 09/01/2020 09:20
