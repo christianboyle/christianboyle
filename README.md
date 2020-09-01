@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJtkp88MnjzdMyI9-xBceyg-t50x50.jpg">](https://soundcloud.com/hudsonmohawke/tiga-hudson-mohawke-love-minus-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcMOS1DjaG5F-0-t50x50.jpg">](https://soundcloud.com/iamannemarie/to-be-young-feat-doja-cat-1)
 
-**Artist**: Hudson Mohawke 
+**Artist**: Anne-Marie 
 
-**Track**: Tiga & Hudson Mohawke - Love Minus Zero
+**Track**: To Be Young (feat. Doja Cat) (Felix Cartal Remix)
 
-Last updated at 09/01/2020 08:32
+Last updated at 09/01/2020 08:33
