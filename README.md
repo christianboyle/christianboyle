@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKTd6pZgkXc7yUw-kspizQ-t50x50.jpg">](https://soundcloud.com/feuille-vierge/lalzin-hot-boy?in=lalzin/sets/hot-boy-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ADomYY6XmczcKHPH-P5lFGw-t50x50.jpg">](https://soundcloud.com/hyperpopcollective/ahjui-wicked-problems-1?in=hyperpopcollective/sets/ahju-i-truth-has-an-expiration)
 
-**Artist**: Feuille Vierge 
+**Artist**: HYPERPOP 
 
-**Track**: LALZIN - Hot Boy
+**Track**: AHJU$I - WICKED PROBLEMS
 
-Last updated at 09/01/2020 09:14
+Last updated at 09/01/2020 09:17
