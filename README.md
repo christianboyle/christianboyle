@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWHtesMxMV0zubFy-QwfiKg-t50x50.jpg">](https://soundcloud.com/futuregenerationofficial/jim-yosef-elle-vee-live-my-life?in=tncrecordings/sets/jim-yosef-elle-vee-live-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000652073212-w5w2ei-t50x50.jpg">](https://soundcloud.com/xxxxzomb/summers-fall)
 
-**Artist**: Future Generation 
+**Artist**: ZØMB 
 
-**Track**: Jim Yosef & Elle Vee - Live My Life
+**Track**: Summer's Fall
 
-Last updated at 09/01/2020 09:24
+Last updated at 09/01/2020 09:27
