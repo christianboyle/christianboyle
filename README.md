@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeeoIPcJ40zN8Z3x-2qZk4g-t50x50.jpg">](https://soundcloud.com/recallrecords/ighl-future-twist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKTd6pZgkXc7yUw-kspizQ-t50x50.jpg">](https://soundcloud.com/feuille-vierge/lalzin-hot-boy?in=lalzin/sets/hot-boy-ep-1)
 
-**Artist**: Recall Records 
+**Artist**: Feuille Vierge 
 
-**Track**: Stuftkrust & Sad Meal - Intergalactic Hyperloop (Future Twist Remix)
+**Track**: LALZIN - Hot Boy
 
-Last updated at 09/01/2020 09:12
+Last updated at 09/01/2020 09:14
