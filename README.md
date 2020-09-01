@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000582585161-8dqnjm-t50x50.jpg">](https://soundcloud.com/liltecca/ransomwrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Lil Tecca ✰ 
+**Artist**: WE ARE FURY 
 
-**Track**: Lil Tecca feat. Juice WRLD - Ransom
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/01/2020 07:43
+Last updated at 09/01/2020 07:45
