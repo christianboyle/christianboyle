@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Circus Records Official 
+**Artist**: WE ARE FURY 
 
-**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/01/2020 14:43
+Last updated at 09/01/2020 16:09
