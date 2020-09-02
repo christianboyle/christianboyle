@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bawBy4bDGy4NfYB1-CHAqjA-t50x50.jpg">](https://soundcloud.com/iamshylow/part-of-me?in=weareplusplus/sets/best-electronic-music-august-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RKJhEayzXO6oaKT8-QxYF6w-t50x50.jpg">](https://soundcloud.com/cuddly-cactus/ccr003?in=seal-playlists/sets/charizmatic-elle-vee-never)
 
-**Artist**: Shylow 
+**Artist**: Cuddly Cactus 
 
-**Track**: Part Of Me
+**Track**: CHARIZMATIC & Elle Vee - Never Really Gone (Resensed Remix)
 
-Last updated at 09/01/2020 19:21
+Last updated at 09/01/2020 19:22
