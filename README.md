@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttI6ujDCPgILlzgS-vXVyoA-t50x50.jpg">](https://soundcloud.com/cyb3rpvnk/fafaq-x-rebmoe-off-the-walls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0QYk8dLk8zKuFCF-qf2p4w-t50x50.jpg">](https://soundcloud.com/lowlypalace/highsociety-dark)
 
-**Artist**: CYB3RPVNK 
+**Artist**: Lowly. 
 
-**Track**: Fafaq x RebMoe - Off The Walls
+**Track**: HIGHSOCIETY - DARK
 
-Last updated at 09/02/2020 08:03
+Last updated at 09/02/2020 08:05
