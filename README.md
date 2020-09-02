@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000110998935-u9rym7-t50x50.jpg">](https://soundcloud.com/erickmorillo/erick-morillo-radio-1-essential-mix-master-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMIUEV2x9NbZlz9p-kXu1JQ-t50x50.jpg">](https://soundcloud.com/curtainss/1vootifullfast?in=curtainss/sets/blink-1-16)
 
-**Artist**: Erick Morillo 
+**Artist**: Curtains (@moonnstones) 
 
-**Track**: Erick Morillo - Radio 1 Essential Mix Master Series
+**Track**: vootifull
 
-Last updated at 09/02/2020 08:34
+Last updated at 09/02/2020 08:38
