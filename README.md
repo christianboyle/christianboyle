@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSDjR63F63a8Gt3b-y2PaAA-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/nightfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S1JsyEAC3oZxv2zJ-y0yrSg-t50x50.jpg">](https://soundcloud.com/isaacpalmerofficial/egodeathisaacpalmerremix)
 
-**Artist**: Tribal Trap 
+**Artist**: Isaac Palmer 
 
-**Track**: Førget. & Arael - Nightfall
+**Track**: Ty Dolla $ign x FKA twigs x Skrillex - Ego Death (Isaac Palmer Remix)
 
-Last updated at 09/02/2020 08:21
+Last updated at 09/02/2020 08:23
