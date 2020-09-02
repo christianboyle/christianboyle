@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U64yDDObcmZq9zXF-VNc9iQ-t50x50.jpg">](https://soundcloud.com/disciple/crysomemorevip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Disciple ♛ ♜ ♞ 
+**Artist**: WE ARE FURY 
 
-**Track**: Virtual Riot - Cry Some More VIP
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/02/2020 16:12
+Last updated at 09/02/2020 16:14
