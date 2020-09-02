@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Good Vibes Only 
+**Artist**: WE ARE FURY 
 
-**Track**: Elahu - OP #GV085
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/01/2020 20:42
+Last updated at 09/01/2020 20:43
