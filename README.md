@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Tqku1tF8CxDkbKt-u5lC3Q-t50x50.jpg">](https://soundcloud.com/proximity/niiko-x-swae-the-answer-feat-nafsica?in=weareplusplus/sets/best-electronic-music-august-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bawBy4bDGy4NfYB1-CHAqjA-t50x50.jpg">](https://soundcloud.com/iamshylow/part-of-me?in=weareplusplus/sets/best-electronic-music-august-1)
 
-**Artist**: Proximity 
+**Artist**: Shylow 
 
-**Track**: Niiko X SWAE - The Answer (Feat. Nafsica)
+**Track**: Part Of Me
 
-Last updated at 09/01/2020 19:20
+Last updated at 09/01/2020 19:21
