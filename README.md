@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93UumxlpOrabNV1K-5RQdDg-t50x50.jpg">](https://soundcloud.com/notoriouschris/lucille-croft-control-notorious-chris-remix-1)
 
-**Artist**: WE ARE FURY 
+**Artist**: Notorious CHRIS 
 
-**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
+**Track**: Lucille Croft - Control [Notorious CHRIS Flip]
 
-Last updated at 09/01/2020 17:05
+Last updated at 09/01/2020 19:04
