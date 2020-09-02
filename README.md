@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paOqkXO4OIrETzyw-nF0sRg-t50x50.jpg">](https://soundcloud.com/straimofficial/aurora?in=straimofficial/sets/wakinghours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUj2K9KPSABzLH4G-5EgpPw-t50x50.jpg">](https://soundcloud.com/enforcerecords/touchingme)
 
-**Artist**: Straim 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: Aurora
+**Track**: Ducka Shan - Touching Me
 
-Last updated at 09/02/2020 15:53
+Last updated at 09/02/2020 15:54
