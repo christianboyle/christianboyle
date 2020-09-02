@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOFTtS5nkrCwaqFy-PkHUQQ-t50x50.jpg">](https://soundcloud.com/root94/abducted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeeoIPcJ40zN8Z3x-2qZk4g-t50x50.jpg">](https://soundcloud.com/recallrecords/ighl-future-twist)
 
-**Artist**: root 
+**Artist**: Recall Records 
 
-**Track**: Abducted
+**Track**: Stuftkrust & Sad Meal - Intergalactic Hyperloop (Future Twist Remix)
 
-Last updated at 09/02/2020 08:12
+Last updated at 09/02/2020 08:15
