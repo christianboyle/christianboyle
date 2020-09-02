@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeeoIPcJ40zN8Z3x-2qZk4g-t50x50.jpg">](https://soundcloud.com/recallrecords/ighl-future-twist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGWF47UjyUtvyx6T-fw0LSQ-t50x50.jpg">](https://soundcloud.com/officialtrapparty/alex-motynga-x-julian-slink-chasing-stars-1)
 
-**Artist**: Recall Records 
+**Artist**: Trap Party 
 
-**Track**: Stuftkrust & Sad Meal - Intergalactic Hyperloop (Future Twist Remix)
+**Track**: Alex Motynga x Julian Slink - Chasing Stars
 
-Last updated at 09/02/2020 08:15
+Last updated at 09/02/2020 08:16
