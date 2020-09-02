@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glRBeJrn8ga9C6Np-bi7mBA-t50x50.jpg">](https://soundcloud.com/e_tank/lady-gaga-born-this-way-e-tank-xerum-remix2020-ver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U64yDDObcmZq9zXF-VNc9iQ-t50x50.jpg">](https://soundcloud.com/disciple/crysomemorevip)
 
-**Artist**: E*Tank 
+**Artist**: Disciple ♛ ♜ ♞ 
 
-**Track**: Lady Gaga - Born This Way (E*Tank & Xerum Remix)2020 ver.
+**Track**: Virtual Riot - Cry Some More VIP
 
-Last updated at 09/02/2020 16:05
+Last updated at 09/02/2020 16:12
