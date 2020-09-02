@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGWF47UjyUtvyx6T-fw0LSQ-t50x50.jpg">](https://soundcloud.com/officialtrapparty/alex-motynga-x-julian-slink-chasing-stars-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000652073212-w5w2ei-t50x50.jpg">](https://soundcloud.com/xxxxzomb/summers-fall)
 
-**Artist**: Trap Party 
+**Artist**: ZØMB 
 
-**Track**: Alex Motynga x Julian Slink - Chasing Stars
+**Track**: Summer's Fall
 
-Last updated at 09/02/2020 08:16
+Last updated at 09/02/2020 08:18
