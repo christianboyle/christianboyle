@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9AtoC8k9Epjb-0-t50x50.jpg">](https://soundcloud.com/fish_narc/out?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: fish narc 
+**Artist**: WE ARE FURY 
 
-**Track**: OUT
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/02/2020 10:01
+Last updated at 09/02/2020 10:03
