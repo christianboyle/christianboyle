@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMIUEV2x9NbZlz9p-kXu1JQ-t50x50.jpg">](https://soundcloud.com/curtainss/3c-u-nvr-da-demo?in=curtainss/sets/blink-1-16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rfr4nwnLuyhX-0-t50x50.jpg">](https://soundcloud.com/super-duper-music/we-had-everything-1?in=super-duper-music/sets/we-had-everything-pasadena)
 
-**Artist**: Curtains (@moonnstones) 
+**Artist**: Super Duper 
 
-**Track**: c u nvr
+**Track**: We Had Everything
 
-Last updated at 09/02/2020 08:43
+Last updated at 09/02/2020 08:45
