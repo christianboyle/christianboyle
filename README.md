@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k4fvtjM8MZTG-0-t50x50.jpg">](https://soundcloud.com/super-duper-music/pasadena-1?in=super-duper-music/sets/we-had-everything-pasadena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: Super Duper 
+**Artist**: smrtdeath 
 
-**Track**: Pasadena
+**Track**: better off (prod. audioopera)
 
-Last updated at 09/02/2020 08:49
+Last updated at 09/02/2020 08:52
