@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IMqQEODcO0rNy7yn-TB00Ww-t50x50.jpg">](https://soundcloud.com/edmidentity/edmid-summer-sessions-2020-water-spirit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: EDM Identity 
+**Artist**: WE ARE FURY 
 
-**Track**: EDMID Summer Sessions 2020 || Water Spirit
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/03/2020 08:01
+Last updated at 09/03/2020 08:06
