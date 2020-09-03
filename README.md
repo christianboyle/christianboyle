@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000113974173-rn910m-t50x50.jpg">](https://soundcloud.com/unidisc-music/the-system-dont-disturb-this-groove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIv6ygJPSyLuKHR-EtrgLQ-t50x50.jpg">](https://soundcloud.com/basscon/texcore-x-harlecore-dreaming)
 
-**Artist**: Unidisc Music 
+**Artist**: BASSCON 
 
-**Track**: The System - Don't Disturb This Groove
+**Track**: Texcore x Harlecore - Dreaming
 
-Last updated at 09/03/2020 08:56
+Last updated at 09/03/2020 11:35
