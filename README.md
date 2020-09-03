@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000328905624-dmals2-t50x50.jpg">](https://soundcloud.com/alliknowispain/game-of-fate-prod-nick-mira)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000349522605-hcr8fi-t50x50.jpg">](https://soundcloud.com/lilzubin/last-time-prod-foxwedding)
 
-**Artist**: thuey 
+**Artist**: lil zubin 
 
-**Track**: game of fate (prod. nick mira)
+**Track**: zubin, cold hart, horse head - last time [prod. foxwedding]
 
-Last updated at 09/03/2020 17:09
+Last updated at 09/03/2020 17:13
