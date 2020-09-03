@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCcXDKiFXfyWzX2Z-Jy3utA-t50x50.jpg">](https://soundcloud.com/officialtrapparty/latu-tai-ramen-sidestep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTNo4zuzG0sHmdn5-BYO31Q-t50x50.jpg">](https://soundcloud.com/djsterfry/midas)
 
-**Artist**: Trap Party 
+**Artist**: Sterfry 
 
-**Track**: LATU. & Tai Ramen - Sidestep
+**Track**: midas 🎷
 
-Last updated at 09/03/2020 15:39
+Last updated at 09/03/2020 15:40
