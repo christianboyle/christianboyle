@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371416359-24i1uv-t50x50.jpg">](https://soundcloud.com/hudsonalexander/catchme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000393128610-3c0vyg-t50x50.jpg">](https://soundcloud.com/lilroze/sweet-dreams-feat-smrtdeath)
 
-**Artist**: hudson alexander💙 
+**Artist**: roses. 
 
-**Track**: smrtdeath x hudson alexander - catch me (feat. teddybear)
+**Track**: sweet dreams (feat. smrtdeath) [prod. oxy & BiLL$]
 
-Last updated at 09/03/2020 17:03
+Last updated at 09/03/2020 17:06
