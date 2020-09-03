@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTNo4zuzG0sHmdn5-BYO31Q-t50x50.jpg">](https://soundcloud.com/djsterfry/midas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: Sterfry 
+**Artist**: smrtdeath 
 
-**Track**: midas 🎷
+**Track**: better off (prod. audioopera)
 
-Last updated at 09/03/2020 15:40
+Last updated at 09/03/2020 15:42
