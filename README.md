@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000391535799-1y68j9-t50x50.jpg">](https://soundcloud.com/little-sethany/bottled-up-prod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334877613-2qz4sx-t50x50.jpg">](https://soundcloud.com/blisstoopretty/snow)
 
-**Artist**: sethany 
+**Artist**: blisstoopretty✰ 
 
-**Track**: bottled up (prod. 4evr)
+**Track**: snow (prod.domyno)
 
-Last updated at 09/03/2020 16:57
+Last updated at 09/03/2020 16:59
