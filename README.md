@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQ2AXrenI4a2jclO-jWTZlQ-t50x50.jpg">](https://soundcloud.com/trip-squad-tones/too-much-prod-ofey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IMqQEODcO0rNy7yn-TB00Ww-t50x50.jpg">](https://soundcloud.com/edmidentity/edmid-summer-sessions-2020-water-spirit)
 
-**Artist**: Tripsquadtone$ 
+**Artist**: EDM Identity 
 
-**Track**: Too Much (prod. Ofey)
+**Track**: EDMID Summer Sessions 2020 || Water Spirit
 
-Last updated at 09/03/2020 08:00
+Last updated at 09/03/2020 08:01
