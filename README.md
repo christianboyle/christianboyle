@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360981747-87r655-t50x50.jpg">](https://soundcloud.com/sowet69/smrtdeath-everything-sowet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244294396-icd6dh-t50x50.jpg">](https://soundcloud.com/greatwhiteclark/right-now-featsmrtdeath-prod-artiztik-beatz)
 
-**Artist**: SOWET 
+**Artist**: Great White Clark 
 
-**Track**: SMRTDEATH - Everything [SOWET UNPLUGGED]
+**Track**: Right Now Feat.smrtdeath
 
-Last updated at 09/03/2020 16:39
+Last updated at 09/03/2020 16:41
