@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000202865652-x8ew7q-t50x50.jpg">](https://soundcloud.com/alliknowispain/you-did-this-feat-lil-narnia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000214789793-ce4fx5-t50x50.jpg">](https://soundcloud.com/simplyunsocial/precautions-are-for-the-weak-living-feat-smrtdeath-prod-haruhi)
 
-**Artist**: thuey 
+**Artist**: Simply Unsocial Studios 
 
-**Track**: LIL NARNIA - i'm sorry (feat. lil thuey) [prod. charlie shuffler]
+**Track**: Precautions are for the Weak & Living w/poloralphmacchio (feat. SMRTDEATH) (prod. haruhi)
 
-Last updated at 09/03/2020 16:51
+Last updated at 09/03/2020 16:54
