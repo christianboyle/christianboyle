@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000214789793-ce4fx5-t50x50.jpg">](https://soundcloud.com/simplyunsocial/precautions-are-for-the-weak-living-feat-smrtdeath-prod-haruhi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000391535799-1y68j9-t50x50.jpg">](https://soundcloud.com/little-sethany/bottled-up-prod-4evr)
 
-**Artist**: Simply Unsocial Studios 
+**Artist**: sethany 
 
-**Track**: Precautions are for the Weak & Living w/poloralphmacchio (feat. SMRTDEATH) (prod. haruhi)
+**Track**: bottled up (prod. 4evr)
 
-Last updated at 09/03/2020 16:54
+Last updated at 09/03/2020 16:57
