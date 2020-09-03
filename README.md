@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244294396-icd6dh-t50x50.jpg">](https://soundcloud.com/greatwhiteclark/right-now-featsmrtdeath-prod-artiztik-beatz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000470750274-6ouc4o-t50x50.jpg">](https://soundcloud.com/undergroundunderdogs/smrtdeath-you-could-bust-out-my-heart-if-you-want-to)
 
-**Artist**: Great White Clark 
+**Artist**: Underground Underdogs 
 
-**Track**: Right Now Feat.smrtdeath
+**Track**: smrtdeath - you could bust out my heart if you want to (prod. yung flex)
 
-Last updated at 09/03/2020 16:41
+Last updated at 09/03/2020 16:46
