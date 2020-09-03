@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxGVqBUWSOryaQNq-wsxN1Q-t50x50.jpg">](https://soundcloud.com/movingcastle/liz-laguna-nights-sonniku-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Moving Castle 
+**Artist**: WE ARE FURY 
 
-**Track**: LIZ - Laguna Nights (SONIKKU Remix)
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/02/2020 16:28
+Last updated at 09/02/2020 19:45
