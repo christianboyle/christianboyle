@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsX00WOtWgaK-0-t50x50.jpg">](https://soundcloud.com/diplo/diplo-mmxx-xii-feat-rhye?in=diplo/sets/mmxx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8WBDO6rprJvQUJQ-qac98Q-t50x50.jpg">](https://soundcloud.com/warecollective/ctaam-overdose)
 
-**Artist**: Diplo 
+**Artist**: WARE 
 
-**Track**: Diplo - MMXX – XII (feat. Rhye)
+**Track**: C.T.A.A.M. - Overdose
 
-Last updated at 09/04/2020 15:36
+Last updated at 09/04/2020 15:40
