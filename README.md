@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FdIkmt5ZH5F0DgUO-6Ymyow-t50x50.jpg">](https://soundcloud.com/callmeacelegit/stubborn?in=seal-playlists/sets/call-me-ace-stubborn-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9RpsO2VXyOCBJlJt-HI1v7w-t50x50.jpg">](https://soundcloud.com/malaamusic/hell-with-koos)
 
-**Artist**: Call Me Ace 
+**Artist**: MALAA 
 
-**Track**: Stubborn (Prod. J-Dot Music)
+**Track**: Hell (with Koos)
 
-Last updated at 09/04/2020 14:56
+Last updated at 09/04/2020 14:57
