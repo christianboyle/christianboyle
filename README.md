@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKYvirZ43mgmLyMz-FRgryQ-t50x50.jpg">](https://soundcloud.com/rave_alert/5-xtrick-no-reason-to-panic-angy-kore-gabriel-padrevita-remix?in=rave_alert/sets/rave07-x-trick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-doUBd2ekkIGMdxe8-JIX1cA-t50x50.jpg">](https://soundcloud.com/crusaderave/hxist-sin-burning-month-special-free-download)
 
-**Artist**: Rave Alert 
+**Artist**: 𝕮𝖗𝖚𝖘𝖆𝖉𝖊 
 
-**Track**: X&trick - No Reason To Panic (Angy Kore, Gabriel Padrevita Remix)
+**Track**: HXIST - SIN † Burning Month Special † FREE DOWNLOAD
 
-Last updated at 09/04/2020 12:34
+Last updated at 09/04/2020 12:40
