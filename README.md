@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8WBDO6rprJvQUJQ-qac98Q-t50x50.jpg">](https://soundcloud.com/warecollective/ctaam-overdose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aeNqh6e6i9wszd5D-FUDH2g-t50x50.jpg">](https://soundcloud.com/dankhaishroom/dawsons-deep-dark-dangerous-creek)
 
-**Artist**: WARE 
+**Artist**: Dankhai Shroom 
 
-**Track**: C.T.A.A.M. - Overdose
+**Track**: dawson's deep dark & dangerous creek
 
-Last updated at 09/04/2020 15:40
+Last updated at 09/04/2020 15:43
