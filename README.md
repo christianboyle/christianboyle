@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqlsvqierARi9qFg-j4XrGw-t50x50.jpg">](https://soundcloud.com/wakaan/pigeon-hole-worldwide-magnetic-magazine-premiere?in=pigeon_hole/sets/ph-bugs-ep-wakaan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpycbkBbzVeMbPYd-kjQ2Yw-t50x50.jpg">](https://soundcloud.com/itsatrip/ymmwina-remix)
 
-**Artist**: Wakaan 
+**Artist**: ATRIP 
 
-**Track**: Pigeon Hole - Worldwide [Magnetic Magazine Premiere]
+**Track**: Grimes - You'll Miss Me When I'm Not Around (ATRIP Remix)
 
-Last updated at 09/04/2020 16:04
+Last updated at 09/04/2020 16:07
