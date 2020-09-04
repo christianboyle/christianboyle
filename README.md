@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459114009-g0u9ck-t50x50.jpg">](https://soundcloud.com/smrtdeath/hold-me-down?in=smrtdeath/sets/well-be-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360981747-87r655-t50x50.jpg">](https://soundcloud.com/sowet69/smrtdeath-everything-sowet)
 
-**Artist**: smrtdeath 
+**Artist**: SOWET 
 
-**Track**: hold me down (prod. audioopera)
+**Track**: SMRTDEATH - Everything [SOWET UNPLUGGED]
 
-Last updated at 09/04/2020 08:48
+Last updated at 09/04/2020 08:50
