@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOdFzrvZxHsGiQHN-Ehmq7A-t50x50.jpg">](https://soundcloud.com/blameconnor/blame-connor-x-ray-pandora-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmM1UzktNWXbqZcP-i6klaQ-t50x50.jpg">](https://soundcloud.com/doctorpcircus/doctor-p-od-feat-koolkid)
 
-**Artist**: Blame Connor 
+**Artist**: Doctor P 
 
-**Track**: Blame Connor & X-Ray - Pandora
+**Track**: OD feat. Koolkid
 
-Last updated at 09/04/2020 15:46
+Last updated at 09/04/2020 15:49
