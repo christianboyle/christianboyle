@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592460264-dcfzvu-t50x50.jpg">](https://soundcloud.com/rave_alert/axyom-la-faille?in=rave_alert/sets/rave02-axyom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkJOtqDAEUPf9Ww2-pOKilw-t50x50.jpg">](https://soundcloud.com/rave_alert/dyen-strawberry?in=rave_alert/sets/the-definition-of-neorave)
 
 **Artist**: Rave Alert 
 
-**Track**: Axyom - La Faille (RAVE02)
+**Track**: DYEN - Strawberry (RAVE06)
 
-Last updated at 09/04/2020 14:28
+Last updated at 09/04/2020 14:29
