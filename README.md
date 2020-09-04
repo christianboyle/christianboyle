@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aeNqh6e6i9wszd5D-FUDH2g-t50x50.jpg">](https://soundcloud.com/dankhaishroom/dawsons-deep-dark-dangerous-creek)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOdFzrvZxHsGiQHN-Ehmq7A-t50x50.jpg">](https://soundcloud.com/blameconnor/blame-connor-x-ray-pandora-1)
 
-**Artist**: Dankhai Shroom 
+**Artist**: Blame Connor 
 
-**Track**: dawson's deep dark & dangerous creek
+**Track**: Blame Connor & X-Ray - Pandora
 
-Last updated at 09/04/2020 15:43
+Last updated at 09/04/2020 15:46
