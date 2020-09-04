@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHYcxjCSV0y7jy6F-0g57zA-t50x50.jpg">](https://soundcloud.com/traktor-records/drop-it-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aw9urOzserRqMMYT-pgU6BA-t50x50.jpg">](https://soundcloud.com/heofficials/hearty-n-everythings-resistance-masterextended-mix)
 
-**Artist**: aUtOdiDakT 
+**Artist**: Hearty 'N Everythings 
 
-**Track**: Drop It Again
+**Track**: Hearty 'N Everythings - Resistance (Extended Mix)
 
-Last updated at 09/04/2020 14:48
+Last updated at 09/04/2020 14:50
