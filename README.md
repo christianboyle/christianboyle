@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aw9urOzserRqMMYT-pgU6BA-t50x50.jpg">](https://soundcloud.com/heofficials/hearty-n-everythings-resistance-masterextended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gr11FHjcuVp7RedX-lepEJA-t50x50.jpg">](https://soundcloud.com/futurevibes/lightspeed)
 
-**Artist**: Hearty 'N Everythings 
+**Artist**: Future Vibes 
 
-**Track**: Hearty 'N Everythings - Resistance (Extended Mix)
+**Track**: Sykotix - LIGHTSPEED
 
-Last updated at 09/04/2020 14:50
+Last updated at 09/04/2020 14:51
