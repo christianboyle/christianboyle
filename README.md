@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-doUBd2ekkIGMdxe8-JIX1cA-t50x50.jpg">](https://soundcloud.com/crusaderave/hxist-sin-burning-month-special-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EBN9AP4ZwzxJ9LXD-ae83yw-t50x50.jpg">](https://soundcloud.com/tetraedrerecords/vendex-opus-tenebrarum-tr030)
 
-**Artist**: 𝕮𝖗𝖚𝖘𝖆𝖉𝖊 
+**Artist**: Tétraèdre Records 
 
-**Track**: HXIST - SIN † Burning Month Special † FREE DOWNLOAD
+**Track**: VENDEX - Opus Tenebrarum [TR030] (Act.I)
 
-Last updated at 09/04/2020 12:40
+Last updated at 09/04/2020 12:47
