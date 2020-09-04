@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9RpsO2VXyOCBJlJt-HI1v7w-t50x50.jpg">](https://soundcloud.com/malaamusic/hell-with-koos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M2ZxxtZ0Xtss-0-t50x50.jpg">](https://soundcloud.com/diplo/diplo-mmxx-i?in=diplo/sets/mmxx)
 
-**Artist**: MALAA 
+**Artist**: Diplo 
 
-**Track**: Hell (with Koos)
+**Track**: Diplo - MMXX – I
 
-Last updated at 09/04/2020 14:57
+Last updated at 09/04/2020 14:59
