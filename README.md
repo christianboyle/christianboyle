@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4DFmS74Rjqiys7F-haVRGA-t50x50.jpg">](https://soundcloud.com/goodnightmoon99/forecast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FdIkmt5ZH5F0DgUO-6Ymyow-t50x50.jpg">](https://soundcloud.com/callmeacelegit/stubborn?in=seal-playlists/sets/call-me-ace-stubborn-5)
 
-**Artist**: Goodnightmoon 
+**Artist**: Call Me Ace 
 
-**Track**: Forecast
+**Track**: Stubborn (Prod. J-Dot Music)
 
-Last updated at 09/04/2020 14:55
+Last updated at 09/04/2020 14:56
