@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpycbkBbzVeMbPYd-kjQ2Yw-t50x50.jpg">](https://soundcloud.com/itsatrip/ymmwina-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuMzgrVNfGJhflzV-AM1j5Q-t50x50.jpg">](https://soundcloud.com/incursionrecs/minor-antichrist)
 
-**Artist**: ATRIP 
+**Artist**: Incursion Recordings 
 
-**Track**: Grimes - You'll Miss Me When I'm Not Around (ATRIP Remix)
+**Track**: Minør - Antichrist
 
-Last updated at 09/04/2020 16:07
+Last updated at 09/04/2020 16:08
