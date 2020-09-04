@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chgHcktX79DYzLED-0ys1Jg-t50x50.jpg">](https://soundcloud.com/deorro/cuando)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzmT0i6TQdAzz6A3-0QfSHg-t50x50.jpg">](https://soundcloud.com/avamax/whos-laughing-now-coastr-remix)
 
-**Artist**: Deorro 
+**Artist**: AVA MAX 
 
-**Track**: Deorro & Los Dutis - Cuando
+**Track**: Who's Laughing Now (COASTR. Remix)
 
-Last updated at 09/04/2020 18:01
+Last updated at 09/04/2020 18:05
