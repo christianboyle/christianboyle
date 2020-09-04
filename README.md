@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnfAYr6XY9DgdfTZ-ihOgyQ-t50x50.jpg">](https://soundcloud.com/garziotr/garzi-stains)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000408446154-mg6c50-t50x50.jpg">](https://soundcloud.com/djorochimarunojutsu/snakebeat-ft-eidolon?in=eidolonnnn/sets/snakebeat)
 
-**Artist**: GARZI 
+**Artist**: Dj OROCHIMARU 
 
-**Track**: GARZI - STAINS
+**Track**: SNAKEbeat ft. EIDOLON
 
-Last updated at 09/04/2020 14:53
+Last updated at 09/04/2020 14:54
