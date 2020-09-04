@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249675431-lrg5wd-t50x50.jpg">](https://soundcloud.com/smrtdeath/crying-to-cocorosie-new-england-boy?in=smrtdeath/sets/sethany-the-strange-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzARjsO9wM19ocXX-3h6lqA-t50x50.jpg">](https://soundcloud.com/dirtysnatcha/take-you-higher)
 
-**Artist**: smrtdeath 
+**Artist**: DirtySnatcha 
 
-**Track**: crying to cocorosie (prod new england boy)
+**Track**: DirtySnatcha - Take You Higher
 
-Last updated at 09/04/2020 08:58
+Last updated at 09/04/2020 09:28
