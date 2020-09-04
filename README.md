@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xlOBsDzrF5yzcg3K-VCLdpg-t50x50.jpg">](https://soundcloud.com/svddendeath/bloodonme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-InvC4AMlSjMqW1ex-mfRhXg-t50x50.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-11-feat-covex)
 
-**Artist**: SVDDEN DEATH 
+**Artist**: Syence Experiments 
 
-**Track**: SVDDEN DEATH & SLANDER - BLOOD ON ME
+**Track**: Syence Lab: Volume 11 (feat. Covex)
 
-Last updated at 09/04/2020 18:08
+Last updated at 09/04/2020 18:11
