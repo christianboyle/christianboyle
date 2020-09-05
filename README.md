@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUj2K9KPSABzLH4G-5EgpPw-t50x50.jpg">](https://soundcloud.com/enforcerecords/touchingme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tjt8WXXydhgqvsS5-96tUzw-t50x50.jpg">](https://soundcloud.com/phuturecollective/xtals-detachment)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Ducka Shan - Touching Me
+**Track**: XTALS - DETACHMENT
 
-Last updated at 09/04/2020 19:21
+Last updated at 09/04/2020 19:24
