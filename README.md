@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uq1F8ye18ZUcDNDw-3G7siQ-t50x50.jpg">](https://soundcloud.com/neras/diluvia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sDBXaIL1Wqxertas-ztQz1A-t50x50.jpg">](https://soundcloud.com/palettes/new-feeling)
 
-**Artist**: neras 
+**Artist**: Palettes 
 
-**Track**: Diluvia
+**Track**: Mateo Mancuso - New Feeling
 
-Last updated at 09/04/2020 19:33
+Last updated at 09/04/2020 19:38
