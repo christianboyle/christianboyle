@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnfHXUZnXQptCrRX-QP3nZA-t50x50.jpg">](https://soundcloud.com/gravedgrmusic/camefromhell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: GRAVEDGR 
+**Artist**: WE ARE FURY 
 
-**Track**: GRAVEDGR - CAME FROM HELL (ft. HEKLER & Natalie 2V)
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/04/2020 19:15
+Last updated at 09/04/2020 19:19
