@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUj2K9KPSABzLH4G-5EgpPw-t50x50.jpg">](https://soundcloud.com/enforcerecords/touchingme)
 
-**Artist**: WE ARE FURY 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
+**Track**: Ducka Shan - Touching Me
 
-Last updated at 09/04/2020 19:19
+Last updated at 09/04/2020 19:21
