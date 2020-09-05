@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0G2GPFVTci8anHp-5kslVA-t50x50.jpg">](https://soundcloud.com/talegatemusic/chris-bandi-man-enough-now-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyLvuveNJKPztGz-mn319w-t50x50.jpg">](https://soundcloud.com/lowlypalace/egzod-ride-the-wave?in=egzod/sets/ride-the-wave)
 
-**Artist**: talegate 
+**Artist**: Lowly. 
 
-**Track**: Chris Bandi - Man Enough Now (talegate remix)
+**Track**: Egzod - Ride The Wave
 
-Last updated at 09/04/2020 19:43
+Last updated at 09/04/2020 19:46
