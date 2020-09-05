@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VO7eJy8hCo1oBFsb-2cMzug-t50x50.jpg">](https://soundcloud.com/jvnkbeatz/all-in-jvnk-remix-nitti-gritti-feat-jimmy-levy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bawBy4bDGy4NfYB1-CHAqjA-t50x50.jpg">](https://soundcloud.com/iamshylow/part-of-me)
 
-**Artist**: JVNK 
+**Artist**: Shylow 
 
-**Track**: All In (JVNK REMIX) - Nitti Gritti Feat. Jimmy Levy
+**Track**: Part Of Me
 
-Last updated at 09/05/2020 13:31
+Last updated at 09/05/2020 13:32
