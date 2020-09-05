@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cv1Oo6dyYFh9Lzoa-cjEQ1A-t50x50.jpg">](https://soundcloud.com/kayzo-music/wait)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: KAYZO 
+**Artist**: smrtdeath 
 
-**Track**: KAYZO & REAPER - WAIT w Qoiet
+**Track**: better off (prod. audioopera)
 
-Last updated at 09/05/2020 13:41
+Last updated at 09/05/2020 15:24
