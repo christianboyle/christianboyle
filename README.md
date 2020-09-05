@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tjt8WXXydhgqvsS5-96tUzw-t50x50.jpg">](https://soundcloud.com/phuturecollective/xtals-detachment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HB3uU4xuwzISRhvS-vdP78w-t50x50.jpg">](https://soundcloud.com/sunivega/violet)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: suni vega 
 
-**Track**: XTALS - DETACHMENT
+**Track**: VIOLET
 
-Last updated at 09/04/2020 19:24
+Last updated at 09/04/2020 19:27
