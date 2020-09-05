@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R47VjjfdFKjK04f3-L3S6pg-t50x50.jpg">](https://soundcloud.com/sktchyppl/bad-reputation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
 
-**Artist**: sktchy ppl 
+**Artist**: Lil Koi! 
 
-**Track**: bad reputation (stone cold)
+**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
 
-Last updated at 09/05/2020 15:59
+Last updated at 09/05/2020 16:00
