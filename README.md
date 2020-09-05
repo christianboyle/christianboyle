@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYgcO1kpKzXU01El-Ub8IzA-t50x50.jpg">](https://soundcloud.com/ogee-t/cold-air)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7px6DpysFCLSBaOM-KAbzEw-t50x50.jpg">](https://soundcloud.com/ezzyland/uusolost)
 
-**Artist**: OGee-T 
+**Artist**: ezzyℒand. 
 
-**Track**: COLD AIR
+**Track**: UUSOLOST (prod. Dropped Out)
 
-Last updated at 09/05/2020 13:26
+Last updated at 09/05/2020 13:30
