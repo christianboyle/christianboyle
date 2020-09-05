@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459114009-g0u9ck-t50x50.jpg">](https://soundcloud.com/smrtdeath/hold-me-down?in=smrtdeath/sets/well-be-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QN2y93G0Dbt5-0-t50x50.jpg">](https://soundcloud.com/fish_narc/snowflake?in=fish_narc/sets/wildfire-87541594)
 
-**Artist**: smrtdeath 
+**Artist**: fish narc 
 
-**Track**: hold me down (prod. audioopera)
+**Track**: SNOWFLAKE
 
-Last updated at 09/05/2020 15:52
+Last updated at 09/05/2020 15:55
