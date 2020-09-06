@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRnu4HFj5rWN7jY4-DUApJA-t50x50.jpg">](https://soundcloud.com/icy-9-productions/5v-faded-nosgov-jason22k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tz6rokZNAhX2etHA-bCVULw-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/ur-a-goner-shinju)
 
-**Artist**: icy#9 
+**Artist**: Lil Koi! 
 
-**Track**: 5v ~  Faded (+ nosgov, jason22k)
+**Track**: ur a goner [+ shinju, odece]
 
-Last updated at 09/05/2020 20:29
+Last updated at 09/05/2020 21:21
