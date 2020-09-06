@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ADAF4ELorG69sjn0-AvcB9w-t50x50.jpg">](https://soundcloud.com/goodvibesonly/dust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMK3IFwBOb3Ey2SG-wdZg5A-t50x50.jpg">](https://soundcloud.com/officialjackel/dabombsquad?in=officialjackel/sets/mixs)
 
-**Artist**: Good Vibes Only 
+**Artist**: 👑𝙅𝙖𝙘𝙠𝙀𝙇♕ 
 
-**Track**: mnstrm. - Dust
+**Track**: DA BOMB SQUAD TAKEOVER w/ JackEL [Live DJ Set]
 
-Last updated at 09/06/2020 08:12
+Last updated at 09/06/2020 08:13
