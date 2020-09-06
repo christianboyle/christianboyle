@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmzsAeNBoJGHURQh-eFzXUg-t50x50.jpg">](https://soundcloud.com/alrtmusic/everything-is-nrg-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2rwEtBZKceckzy9D-y0byXg-t50x50.jpg">](https://soundcloud.com/govibeats/forgot-my-way-remix?in=govibeats/sets/forgot-my-way)
 
-**Artist**: ALRT 
+**Artist**: GOVI 
 
-**Track**: Everything is NRG Vol. 3
+**Track**: FORGOT MY WAY (Remix)
 
-Last updated at 09/06/2020 07:26
+Last updated at 09/06/2020 08:10
