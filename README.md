@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJshpzmr7nTOFrNO-RluvcA-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/aos-angerzone-bad-sensation?in=hardcoreunderground/sets/hardcore-underground-8-preview-clips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmzsAeNBoJGHURQh-eFzXUg-t50x50.jpg">](https://soundcloud.com/alrtmusic/everything-is-nrg-vol-3)
 
-**Artist**: Hardcore Underground 
+**Artist**: ALRT 
 
-**Track**: AoS & Angerzone - Bad Sensation ('HU8' Promo Clip - OUT NOW)
+**Track**: Everything is NRG Vol. 3
 
-Last updated at 09/06/2020 07:25
+Last updated at 09/06/2020 07:26
