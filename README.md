@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMK3IFwBOb3Ey2SG-wdZg5A-t50x50.jpg">](https://soundcloud.com/officialjackel/dabombsquad?in=officialjackel/sets/mixs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MsfmfsYd0ylE6nt-u6hAEA-t50x50.jpg">](https://soundcloud.com/electrobro/wererocksolid)
 
-**Artist**: 👑𝙅𝙖𝙘𝙠𝙀𝙇♕ 
+**Artist**: electrobro 
 
-**Track**: DA BOMB SQUAD TAKEOVER w/ JackEL [Live DJ Set]
+**Track**: we're rock solid
 
-Last updated at 09/06/2020 08:13
+Last updated at 09/06/2020 08:22
