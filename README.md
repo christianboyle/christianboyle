@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CfmlAtTKzeMglg1b-pE6CRA-t50x50.jpg">](https://soundcloud.com/itsriske-vip/breaking-me-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJshpzmr7nTOFrNO-RluvcA-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/aos-angerzone-bad-sensation?in=hardcoreunderground/sets/hardcore-underground-8-preview-clips)
 
-**Artist**: Risk-E (VIP) 
+**Artist**: Hardcore Underground 
 
-**Track**: Topic & Robert Miles ft. A7S - Breaking Me (Risk-E & Celo Flip) [FREE DOWNLOAD]
+**Track**: AoS & Angerzone - Bad Sensation ('HU8' Promo Clip - OUT NOW)
 
-Last updated at 09/06/2020 07:24
+Last updated at 09/06/2020 07:25
