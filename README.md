@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Lil Koi! 
+**Artist**: WE ARE FURY 
 
-**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/06/2020 08:32
+Last updated at 09/06/2020 08:35
