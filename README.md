@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000194526019-qhduuc-t50x50.jpg">](https://soundcloud.com/fourlore/before-i-sleep-ft-of-methodist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK0GGrYBGP40cwSp-wqzIKw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-dancing-on-the-moon-ft-luke-burr)
 
-**Artist**: flore 
+**Artist**: NCS 
 
-**Track**: before i sleep // ft. of methodist
+**Track**: Unknown Brain - Dancing On The Moon (ft. Luke Burr) [NCS Release]
 
-Last updated at 09/06/2020 08:28
+Last updated at 09/06/2020 08:29
