@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK0GGrYBGP40cwSp-wqzIKw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-dancing-on-the-moon-ft-luke-burr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfZzCTuF5PMZkER5-FdM5RQ-t50x50.jpg">](https://soundcloud.com/poly-armour/poly-armour-amnesty?in=poly-armour/sets/animal-ep)
 
-**Artist**: NCS 
+**Artist**: Poly Armour 
 
-**Track**: Unknown Brain - Dancing On The Moon (ft. Luke Burr) [NCS Release]
+**Track**: Poly Armour - Amnesty
 
-Last updated at 09/05/2020 21:23
+Last updated at 09/05/2020 21:27
