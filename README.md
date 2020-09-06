@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRnu4HFj5rWN7jY4-DUApJA-t50x50.jpg">](https://soundcloud.com/icy-9-productions/5v-faded-nosgov-jason22k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
 
-**Artist**: icy#9 
+**Artist**: Lil Koi! 
 
-**Track**: 5v ~  Faded (+ nosgov, jason22k)
+**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
 
-Last updated at 09/05/2020 20:25
+Last updated at 09/05/2020 20:26
