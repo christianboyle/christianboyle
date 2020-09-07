@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000304980939-xukglr-t50x50.jpg">](https://soundcloud.com/koni_music/noother)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBfW3MUc8ErK-0-t50x50.jpg">](https://soundcloud.com/lootemusic/your-side-of-the-bed)
 
-**Artist**: Koni 
+**Artist**: Loote 
 
-**Track**: Koni - No Other
+**Track**: Your Side Of The Bed
 
-Last updated at 09/07/2020 17:21
+Last updated at 09/07/2020 17:24
