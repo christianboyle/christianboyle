@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000355503603-eb584f-t50x50.jpg">](https://soundcloud.com/djclockworkdj/boutdat-made-by-arnold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317644047-7jv3er-t50x50.jpg">](https://soundcloud.com/wildcardsmusic/lost-time)
 
-**Artist**: CLOCKWORKDJ 
+**Artist**: Wild Cards 
 
-**Track**: BOUTDAT Ft. Kingjet (Prod By Arnold)
+**Track**: Lost Time
 
-Last updated at 09/07/2020 18:15
+Last updated at 09/07/2020 18:18
