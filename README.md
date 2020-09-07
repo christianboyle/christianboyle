@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-parmi-les-mortels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4LcCqfaRch7ZLi7-EL8Csg-t50x50.jpg">](https://soundcloud.com/blckmagic/aagentah-host-immunis)
 
-**Artist**: CASUAL GABBERZ 
+**Artist**: blck. 
 
-**Track**: aamourocean - Parmi les Mortels
+**Track**: Aagentah & HØST - Immunis
 
-Last updated at 09/06/2020 21:44
+Last updated at 09/07/2020 09:23
