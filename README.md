@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tjt8WXXydhgqvsS5-96tUzw-t50x50.jpg">](https://soundcloud.com/phuturecollective/capshun-sage?in=capshun/sets/sage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7DfWyCSS8iScWD-P7Muhw-t50x50.jpg">](https://soundcloud.com/glowrecords/all-of-my-love)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Glow Records 
 
-**Track**: capshun - Sage
+**Track**: Godoy & Maylon - All Of My Love (Radio Mix)
 
-Last updated at 09/07/2020 09:29
+Last updated at 09/07/2020 09:30
