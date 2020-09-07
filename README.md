@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEeshfo8z8Fbzojk-AHH4LQ-t50x50.jpg">](https://soundcloud.com/besomorph/virus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXZ2DLKEISjrG4Ai-IAwtRQ-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/nagarjuna?in=hybridtrapradio/sets/resilience)
 
-**Artist**: Besomorph 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Besomorph & Anthony Keyrouz - Virus (ft. Lunis)
+**Track**: STRX - Nagarjuna
 
-Last updated at 09/07/2020 09:24
+Last updated at 09/07/2020 09:25
