@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXZ2DLKEISjrG4Ai-IAwtRQ-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/nagarjuna?in=hybridtrapradio/sets/resilience)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMK3IFwBOb3Ey2SG-wdZg5A-t50x50.jpg">](https://soundcloud.com/officialjackel/dabombsquad)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: 👑𝙅𝙖𝙘𝙠𝙀𝙇♕ 
 
-**Track**: STRX - Nagarjuna
+**Track**: DA BOMB SQUAD TAKEOVER w/ JackEL [Live DJ Set]
 
-Last updated at 09/07/2020 09:25
+Last updated at 09/07/2020 09:26
