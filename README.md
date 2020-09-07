@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000359619099-mpsixh-t50x50.jpg">](https://soundcloud.com/neodreamsmusic/mix-mix-hardcore-vol-1-strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000338903520-04cvtb-t50x50.jpg">](https://soundcloud.com/otodayo/basky-tgiaf)
 
-**Artist**: Neo Dreams 
+**Artist**: OTODAYO Records 
 
-**Track**: MIX MIX HARDCORE VOL. 1 - STRIDER
+**Track**: Basky - TGIAF
 
-Last updated at 09/07/2020 17:44
+Last updated at 09/07/2020 18:00
