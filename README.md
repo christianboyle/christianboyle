@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000041063316-nm6clp-t50x50.jpg">](https://soundcloud.com/harryoradio/i-need-money-in-the-baank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000146392929-67ksk0-t50x50.jpg">](https://soundcloud.com/arnoldmod/wet-all-the-ways-arnold-remix)
 
-**Artist**: Aache 
+**Artist**: Arnold 
 
-**Track**: I Need Money in the Baank (Djemba Djemba x Lil Texas x Lil Scrappy)
+**Track**: Wet - All The Ways (Arnold Remix)
 
-Last updated at 09/07/2020 18:24
+Last updated at 09/07/2020 18:27
