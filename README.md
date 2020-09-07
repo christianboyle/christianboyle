@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244368925-c3yjgu-t50x50.jpg">](https://soundcloud.com/jay-cosmic/need-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000359619099-mpsixh-t50x50.jpg">](https://soundcloud.com/neodreamsmusic/mix-mix-hardcore-vol-1-strider)
 
-**Artist**: JAY COSMIC 
+**Artist**: Neo Dreams 
 
-**Track**: Ember Island - Need You (Jay Cosmic Remix)
+**Track**: MIX MIX HARDCORE VOL. 1 - STRIDER
 
-Last updated at 09/07/2020 17:40
+Last updated at 09/07/2020 17:44
