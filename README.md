@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000146392929-67ksk0-t50x50.jpg">](https://soundcloud.com/arnoldmod/wet-all-the-ways-arnold-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000088007721-9o2jks-t50x50.jpg">](https://soundcloud.com/dubbeldutch/pitchfork-moma-ps1-warm-up-mixes-8-dubbel-dutch)
 
-**Artist**: Arnold 
+**Artist**: dubbel dutch 
 
-**Track**: Wet - All The Ways (Arnold Remix)
+**Track**: Pitchfork // MoMA PS1 Warm Up Mixes #8: Dubbel Dutch
 
-Last updated at 09/07/2020 18:27
+Last updated at 09/07/2020 18:32
