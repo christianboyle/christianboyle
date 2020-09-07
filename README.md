@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7DfWyCSS8iScWD-P7Muhw-t50x50.jpg">](https://soundcloud.com/glowrecords/all-of-my-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WSPuPeVG25qsWNoc-N26QIw-t50x50.jpg">](https://soundcloud.com/glowrecords/fading-again)
 
 **Artist**: Glow Records 
 
-**Track**: Godoy & Maylon - All Of My Love (Radio Mix)
+**Track**: Holden Redd & Patrick Reed - Fading Again
 
-Last updated at 09/07/2020 09:30
+Last updated at 09/07/2020 09:32
