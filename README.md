@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000286083548-4aphp5-t50x50.jpg">](https://soundcloud.com/monstercat/jay-cosmic-ocean-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244368925-c3yjgu-t50x50.jpg">](https://soundcloud.com/jay-cosmic/need-you)
 
-**Artist**: Monstercat 
+**Artist**: JAY COSMIC 
 
-**Track**: Jay Cosmic & DESERT STAR - Ocean Eyes
+**Track**: Ember Island - Need You (Jay Cosmic Remix)
 
-Last updated at 09/07/2020 17:37
+Last updated at 09/07/2020 17:40
