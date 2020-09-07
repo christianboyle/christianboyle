@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000654099730-8jne2h-t50x50.jpg">](https://soundcloud.com/weirdnxc/dj-dogtreat-3scap3?in=weirdnxc/sets/weirdnxc-act-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7DfWyCSS8iScWD-P7Muhw-t50x50.jpg">](https://soundcloud.com/glowrecords/all-of-my-love)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Glow Records 
 
-**Track**: 04 - dj dogtreat - 3scap3
+**Track**: Godoy & Maylon - All Of My Love (Radio Mix)
 
-Last updated at 09/07/2020 09:33
+Last updated at 09/07/2020 09:34
