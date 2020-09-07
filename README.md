@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000358364784-uwx2ij-t50x50.jpg">](https://soundcloud.com/killparis/mija-falling-apart-again-kill-paris-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000358166073-sesmk8-t50x50.jpg">](https://soundcloud.com/luckyboytwelve/orange)
 
-**Artist**: Kill Paris 
+**Artist**: lucky twelve . 
 
-**Track**: Mija - Falling ApART (again) [Kill Paris Remix]
+**Track**: I See Foreign High Speed Fallin' I Dream in Orange I Dream (you can call it Orange if you'd like)
 
-Last updated at 09/07/2020 18:04
+Last updated at 09/07/2020 18:07
