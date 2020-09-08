@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000313133481-li7h4y-t50x50.jpg">](https://soundcloud.com/perth_ytho/all-that-i-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7DfWyCSS8iScWD-P7Muhw-t50x50.jpg">](https://soundcloud.com/glowrecords/all-of-my-love)
 
-**Artist**: Ytho. 
+**Artist**: Glow Records 
 
-**Track**: All That I Know
+**Track**: Godoy & Maylon - All Of My Love (Radio Mix)
 
-Last updated at 09/07/2020 21:26
+Last updated at 09/07/2020 21:27
