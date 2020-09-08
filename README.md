@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/stay-home?in=beauzworld/sets/beauzworld-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCe7vCmyRQ6g-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/fuck-you-bella-skit?in=uiceheidd/sets/goodbyegoodriddance)
 
-**Artist**: BEAUZ 
+**Artist**: Juice WRLD 
 
-**Track**: BEAUZ, BSY, JSY - #STAYHOME (This Coronavirus)
+**Track**: Intro
 
-Last updated at 09/08/2020 09:11
+Last updated at 09/08/2020 09:13
