@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAjbgB9yIIITCoyB-97ztxQ-t50x50.jpg">](https://soundcloud.com/stizzzy/nameless-progression-swine-ivory-x-stizzzy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEeshfo8z8Fbzojk-AHH4LQ-t50x50.jpg">](https://soundcloud.com/besomorph/virus)
 
-**Artist**: Stizzzy 
+**Artist**: Besomorph 
 
-**Track**: Nameless Progression. Swine Ivory X Stizzzy (Free DL)
+**Track**: Besomorph & Anthony Keyrouz - Virus (ft. Lunis)
 
-Last updated at 09/08/2020 09:43
+Last updated at 09/08/2020 09:44
