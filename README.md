@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjTcWZ6iD2cP6UIa-KLs6wg-t50x50.jpg">](https://soundcloud.com/stripess/beyonce-partition-stripess-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: stripess 
+**Artist**: smrtdeath 
 
-**Track**: beyonce - partition (stripess bootleg)
+**Track**: better off (prod. audioopera)
 
-Last updated at 09/08/2020 08:25
+Last updated at 09/08/2020 08:26
