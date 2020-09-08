@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCe7vCmyRQ6g-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/fuck-you-bella-skit?in=uiceheidd/sets/goodbyegoodriddance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdmd3eRwgFMM-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/all-girls-are-same-999-prod-nick-mira?in=uiceheidd/sets/goodbyegoodriddance)
 
 **Artist**: Juice WRLD 
 
-**Track**: Intro
+**Track**: All Girls Are The Same
 
-Last updated at 09/08/2020 09:13
+Last updated at 09/08/2020 09:14
