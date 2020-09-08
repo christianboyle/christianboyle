@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJshpzmr7nTOFrNO-RluvcA-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/aos-find-me-hu8-promo-clip-out?in=hardcoreunderground/sets/hardcore-underground-8-preview-clips)
 
-**Artist**: Lil Koi! 
+**Artist**: Hardcore Underground 
 
-**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
+**Track**: AoS - Find Me ('HU8' Promo Clip - OUT NOW)
 
-Last updated at 09/07/2020 21:31
+Last updated at 09/08/2020 07:58
