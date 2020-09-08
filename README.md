@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEeshfo8z8Fbzojk-AHH4LQ-t50x50.jpg">](https://soundcloud.com/besomorph/virus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t50x50.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
 
-**Artist**: Besomorph 
+**Artist**: NOT RAVE TOOLZ 
 
-**Track**: Besomorph & Anthony Keyrouz - Virus (ft. Lunis)
+**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
 
-Last updated at 09/08/2020 09:44
+Last updated at 09/08/2020 09:45
