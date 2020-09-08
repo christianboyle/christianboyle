@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9vBiCLXHoGsGtno-kOaKDQ-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-lxst-cxntury-x-ytho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000313133481-li7h4y-t50x50.jpg">](https://soundcloud.com/perth_ytho/all-that-i-know)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: Ytho. 
 
-**Track**: Exclusive Podcast by LXST CXNTURY & Ytho
+**Track**: All That I Know
 
-Last updated at 09/07/2020 21:25
+Last updated at 09/07/2020 21:26
