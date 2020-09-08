@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuLGrfZquX6d-0-t50x50.jpg">](https://soundcloud.com/fish_narc/you-asked-for-this-intro?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/treasure-u?in=beauzworld/sets/beauzworld-vol-1)
 
-**Artist**: fish narc 
+**Artist**: BEAUZ 
 
-**Track**: YOU ASKED FOR THIS
+**Track**: BEAUZ, BSY, JSY - Treasure U ft. Sarah de Warren
 
-Last updated at 09/08/2020 08:52
+Last updated at 09/08/2020 08:53
