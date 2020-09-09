@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000503622306-q6bbls-t50x50.jpg">](https://soundcloud.com/stantonwarriors/bbc-radio-1-quest-mix-2019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH8azFzMJhbYOplN-U2y43w-t50x50.jpg">](https://soundcloud.com/reginald_simpson/why_am_see_aye)
 
-**Artist**: Stanton Warriors 
+**Artist**: reginald simpson 
 
-**Track**: Stanton Warriors - BBC Radio 1 - Quest Mix 2019
+**Track**: Why Am See Aye w/ shwiLLy
 
-Last updated at 09/08/2020 20:56
+Last updated at 09/09/2020 08:19
