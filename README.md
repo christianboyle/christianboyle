@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Gunf8lEnbyWSvzN-kpHH2g-t50x50.jpg">](https://soundcloud.com/adultswimsingles/xavier-wulf-dont-touch-that-remote-prod-by-marcelo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000172688085-4p9pb2-t50x50.jpg">](https://soundcloud.com/g59/stopcallingusahorrorcore?in=g59/sets/radicalsuicide)
 
-**Artist**: Adult Swim Singles 
+**Artist**: $UICIDEBOY$ 
 
-**Track**: Xavier Wulf - "Don't Touch That Remote (prod. by Marcelo)"
+**Track**: $UICIDEBOY$ x GETTER - STOP CALLING US HORRORCORE
 
-Last updated at 09/09/2020 08:21
+Last updated at 09/09/2020 08:26
