@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7QUS56PsWQxBz0S-TQi9Og-t50x50.jpg">](https://soundcloud.com/invernessmusic/inverness-jack-newsome-i-remember)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CbIQRqYXmIt4sY7q-K1YxDQ-t50x50.jpg">](https://soundcloud.com/dedstark/dont-follow)
 
-**Artist**: inverness 
+**Artist**: DED STARK 
 
-**Track**: I Remember (w/ Jack Newsome)
+**Track**: DONT FOLLOW (PROD. DED STARK)
 
-Last updated at 09/08/2020 20:35
+Last updated at 09/08/2020 20:37
