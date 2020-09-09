@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH8azFzMJhbYOplN-U2y43w-t50x50.jpg">](https://soundcloud.com/reginald_simpson/why_am_see_aye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjM0Dvhn6D4Ir2Ex-xMwBzg-t50x50.jpg">](https://soundcloud.com/heybitethis/walkingonfire)
 
-**Artist**: reginald simpson 
+**Artist**: Bite This! 
 
-**Track**: Why Am See Aye w/ shwiLLy
+**Track**: Axel Boy & ZOOTAH - Walking On Fire
 
-Last updated at 09/09/2020 08:19
+Last updated at 09/09/2020 08:20
