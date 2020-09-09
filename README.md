@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKiEQXUoMRHjCt6i-355oKg-t50x50.jpg">](https://soundcloud.com/wtfsthatsound/shanghai-doom-escalador)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334654509-gb7tqo-t50x50.jpg">](https://soundcloud.com/punksmusic/tru-fonix-head-bop-feat-rell-2)
 
-**Artist**: Wtf’s That Sound 🛸 
+**Artist**: Punks Music 
 
-**Track**: Shanghai Doom - Escalador
+**Track**: Tru Fonix - Head Bop Feat. Rell Rock (Plump Djs Remix) - OUT NOW
 
-Last updated at 09/08/2020 20:54
+Last updated at 09/08/2020 20:55
