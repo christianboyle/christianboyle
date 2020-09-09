@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q5xvlz3eIIE2Ct0n-ZVps7Q-t50x50.jpg">](https://soundcloud.com/doctor-frenesy/dr-frenesy-the-portal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPW0qrPc4yXZZZsz-RGeeGg-t50x50.jpg">](https://soundcloud.com/sekai-collective/c-a-l-i-c-r-y-x-forerunner-iridescent)
 
-**Artist**: Dr Frenesy 
+**Artist**: Sekai Collective 
 
-**Track**: Dr Frenesy - The Portal
+**Track**: c a l i c r y  x  Forerunner - Iridescent
 
-Last updated at 09/08/2020 20:42
+Last updated at 09/08/2020 20:43
