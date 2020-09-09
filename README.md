@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVOcCN2akJq7CaAS-wAeqag-t50x50.jpg">](https://soundcloud.com/theuntz/yunis-x-rohaan-ajna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKiEQXUoMRHjCt6i-355oKg-t50x50.jpg">](https://soundcloud.com/wtfsthatsound/shanghai-doom-escalador)
 
-**Artist**: TheUntz.com 
+**Artist**: Wtf’s That Sound 🛸 
 
-**Track**: yunis x Rohaan - Ajna [PREMIERE]
+**Track**: Shanghai Doom - Escalador
 
-Last updated at 09/08/2020 20:53
+Last updated at 09/08/2020 20:54
