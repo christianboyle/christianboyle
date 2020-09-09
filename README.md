@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trsFgAD8WMxB-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/hurt-feat-deathbyromy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l86nfau3rslm-0-t50x50.jpg">](https://soundcloud.com/felixcartal/harmony)
 
-**Artist**: Lost Kings 
+**Artist**: FELIX CARTAL 
 
-**Track**: Hurt (feat. DeathByRomy)
+**Track**: Harmony
 
-Last updated at 09/08/2020 20:45
+Last updated at 09/08/2020 20:46
