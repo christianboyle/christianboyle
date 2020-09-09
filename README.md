@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xfpuq7g4Sgy70zyi-MJXffQ-t50x50.jpg">](https://soundcloud.com/future-house-cloud/missing-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KViwMBUmJtx86ccX-02wjTA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/stomp?in=hybridtrapradio/sets/stomp)
 
-**Artist**: Future House Cloud 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Kuyano & Terri B! - Missing You
+**Track**: Noktar - Stomp
 
-Last updated at 09/08/2020 20:40
+Last updated at 09/08/2020 20:41
