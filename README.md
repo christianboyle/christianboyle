@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQeCgC4OrL4yi6GD-veW6vA-t50x50.jpg">](https://soundcloud.com/phixel-but-funny/aphex-twin-bucephalus-bouncing-ball-lisa-adiso-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o3Q1GppT0ypQbBLy-ksj90g-t50x50.jpg">](https://soundcloud.com/bingoplayers/hysteria-radio-232)
 
-**Artist**: maedeighsonne 
+**Artist**: Bingo Players 
 
-**Track**: aphex twin - bucephalus bouncing ball (lisa adiso remix)
+**Track**: Hysteria Radio 232
 
-Last updated at 09/09/2020 15:45
+Last updated at 09/09/2020 15:46
