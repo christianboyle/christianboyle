@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000169697047-n9eqra-t50x50.jpg">](https://soundcloud.com/g59/memoirsofagorilla?in=g59/sets/radicalsuicide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-axYpTv6s7soCyz1I-s9Si3Q-t50x50.jpg">](https://soundcloud.com/pedicure-records/corinne-3?in=pedicure-records/sets/pd085-corinne-estrangement)
 
-**Artist**: $UICIDEBOY$ 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: $UICIDEBOY$ x GETTER - MEMOIRS OF A GORILLA
+**Track**: corinne - </3
 
-Last updated at 09/09/2020 08:35
+Last updated at 09/09/2020 08:37
