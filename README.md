@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dZOjh02UwTndsgyd-hDgq9A-t50x50.jpg">](https://soundcloud.com/grimxhollows/lil-aaron-dark-matter-grim-remix?in=arkadiaproject/sets/bass-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHYcxjCSV0y7jy6F-0g57zA-t50x50.jpg">](https://soundcloud.com/traktor-records/dat-sound?in=arkadiaproject/sets/bass-bangers)
 
-**Artist**: grim 
+**Artist**: aUtOdiDakT 
 
-**Track**: Lil Aaron - Dark Matter (Grim Remix)
+**Track**: Dat Sound
 
-Last updated at 09/08/2020 20:51
+Last updated at 09/08/2020 20:52
