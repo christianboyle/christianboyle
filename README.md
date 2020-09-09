@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01Mx398PKTW7JCdf-cmObYA-t50x50.jpg">](https://soundcloud.com/syenceexperiments/a-boogie-wit-da-hoodie-drowning-feat-kodak-black-syence-experiment-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trsFgAD8WMxB-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/hurt-feat-deathbyromy)
 
-**Artist**: Syence Experiments 
+**Artist**: Lost Kings 
 
-**Track**: A Boogie wit da Hoodie - Drowning (feat. Kodak Black) [Syence Experiment]
+**Track**: Hurt (feat. DeathByRomy)
 
-Last updated at 09/09/2020 11:42
+Last updated at 09/09/2020 14:41
