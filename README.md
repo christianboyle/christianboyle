@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cradFRXZitCs8Xuc-bKHynQ-t50x50.jpg">](https://soundcloud.com/subcarbon/computa-light-em-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7QUS56PsWQxBz0S-TQi9Og-t50x50.jpg">](https://soundcloud.com/invernessmusic/inverness-jack-newsome-i-remember)
 
-**Artist**: SubCarbon Records 
+**Artist**: inverness 
 
-**Track**: Computa - Light Em Up
+**Track**: I Remember (w/ Jack Newsome)
 
-Last updated at 09/08/2020 20:34
+Last updated at 09/08/2020 20:35
