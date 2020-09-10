@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trsFgAD8WMxB-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/hurt-feat-deathbyromy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SlCB66aFslRyuKDP-ya0sdA-t50x50.jpg">](https://soundcloud.com/dollarbearremixes/toxic-dollar-bear-remix-britney-spears)
 
-**Artist**: Lost Kings 
+**Artist**: Dollar Bear Remixes 
 
-**Track**: Hurt (feat. DeathByRomy)
+**Track**: Toxic (Dollar Bear Remix) - Britney Spears
 
-Last updated at 09/10/2020 09:21
+Last updated at 09/10/2020 09:22
