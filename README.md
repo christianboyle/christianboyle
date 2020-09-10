@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000630392137-a13vsw-t50x50.jpg">](https://soundcloud.com/avamax/freaking-me-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
 
-**Artist**: AVA MAX 
+**Artist**: Lil Koi! 
 
-**Track**: Freaking Me Out
+**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
 
-Last updated at 09/10/2020 12:53
+Last updated at 09/10/2020 14:32
