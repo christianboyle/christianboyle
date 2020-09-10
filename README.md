@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8aQbHDFBeXMoMHF8-qoyUxg-t50x50.jpg">](https://soundcloud.com/sublabmusic/ak-sublab-adore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g6NypDCj8WXXtoOX-vDdSVw-t50x50.jpg">](https://soundcloud.com/sibewest/sibewest-dark-souls)
 
-**Artist**: Sublab 
+**Artist**: Sibewest 
 
-**Track**: AK & Sublab - Adore
+**Track**: Sibewest - Dark Souls
 
-Last updated at 09/10/2020 09:25
+Last updated at 09/10/2020 09:26
