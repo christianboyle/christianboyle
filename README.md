@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g6NypDCj8WXXtoOX-vDdSVw-t50x50.jpg">](https://soundcloud.com/sibewest/sibewest-dark-souls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SlCB66aFslRyuKDP-ya0sdA-t50x50.jpg">](https://soundcloud.com/dollarbearremixes/toxic-dollar-bear-remix-britney-spears)
 
-**Artist**: Sibewest 
+**Artist**: Dollar Bear Remixes 
 
-**Track**: Sibewest - Dark Souls
+**Track**: Toxic (Dollar Bear Remix) - Britney Spears
 
-Last updated at 09/10/2020 09:26
+Last updated at 09/10/2020 09:28
