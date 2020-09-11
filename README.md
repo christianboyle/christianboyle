@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEuODxnPdiik0ezz-bz06jg-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-06-birthday-sets-birthday-sets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jZ89Z7igjbED65Ee-FrypKA-t50x50.jpg">](https://soundcloud.com/wearetar/oroboro-protein-android)
 
-**Artist**: PHZES 
+**Artist**: TAR 
 
-**Track**: PHZED & Confused Mix 06: Birthday Sets, Birthday Sets
+**Track**: Oroboro -"Protein Android"
 
-Last updated at 09/11/2020 16:19
+Last updated at 09/11/2020 16:20
