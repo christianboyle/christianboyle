@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bily5rXyXfrecB6i-yA5r2Q-t50x50.jpg">](https://soundcloud.com/blckmagic/mse-x-emilian-wonk-foreing-language?in=blckmagic/sets/foreign-language)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LShIrH7nIjWZ-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok)
 
-**Artist**: blck. 
+**Artist**: marshmello 
 
-**Track**: M.S.E X EMILIAN WONK - FOREING LANGUAGE
+**Track**: OK Not To Be OK
 
-Last updated at 09/10/2020 21:13
+Last updated at 09/10/2020 21:14
