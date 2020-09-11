@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
 
-**Artist**: WE ARE FURY 
+**Artist**: talegate 
 
-**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
+**Track**: Mitchell Tenpenny - Broken Up (talegate remix)
 
-Last updated at 09/11/2020 12:21
+Last updated at 09/11/2020 12:25
