@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUE4LAeprCI6admG-fUzKbA-t50x50.jpg">](https://soundcloud.com/juuku/san-holo-we-rise-juuku-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LShIrH7nIjWZ-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok)
 
-**Artist**: juuku 
+**Artist**: marshmello 
 
-**Track**: san holo - we rise (juuku flip)
+**Track**: OK Not To Be OK
 
-Last updated at 09/10/2020 21:24
+Last updated at 09/11/2020 08:02
