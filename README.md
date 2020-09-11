@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qyjjnkKthhseSyb-M4C0mA-t50x50.jpg">](https://soundcloud.com/traptownrecords/rockstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmQVRsHpviR7Hijz-wqxzNA-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/witchministry)
 
-**Artist**: Trap Town Records 
+**Artist**: Tribal Trap 
 
-**Track**: Beutos - Rockstar (feat. DoN)
+**Track**: MVGMVR - Witch Ministry
 
-Last updated at 09/10/2020 21:08
+Last updated at 09/10/2020 21:09
