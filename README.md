@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CazLvvuocA9NeXGc-SUahCQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-architect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHOxNbq7GQHZC902-P9I3xg-t50x50.jpg">](https://soundcloud.com/future-house-cloud/letsbewild)
 
-**Artist**: Sublab 
+**Artist**: Future House Cloud 
 
-**Track**: 💙 LOVE ARCHITECT 🌐
+**Track**: 2Hounds - Let's Be Wild
 
-Last updated at 09/10/2020 21:04
+Last updated at 09/10/2020 21:05
