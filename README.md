@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2oSzfYfWnjfpoRI-jzVuFw-t50x50.jpg">](https://soundcloud.com/kyris-official/dane-rumble-cruel-kyris-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
 
-**Artist**: Kyris 
+**Artist**: talegate 
 
-**Track**: Dane Rumble - Cruel (Kyris Remix)
+**Track**: Mitchell Tenpenny - Broken Up (talegate remix)
 
-Last updated at 09/11/2020 13:59
+Last updated at 09/11/2020 14:46
