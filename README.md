@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cradFRXZitCs8Xuc-bKHynQ-t50x50.jpg">](https://soundcloud.com/subcarbon/computa-runnin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5oZlSMGX8mSIQNz-1VduFg-t50x50.jpg">](https://soundcloud.com/followotg/no-names)
 
-**Artist**: SubCarbon Records 
+**Artist**: One True God 
 
-**Track**: Computa - Runnin
+**Track**: No Names
 
-Last updated at 09/12/2020 13:01
+Last updated at 09/12/2020 13:02
