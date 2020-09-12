@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5oZlSMGX8mSIQNz-1VduFg-t50x50.jpg">](https://soundcloud.com/followotg/no-names)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XLyhVWqOemPkp7Ri-BnKAQw-t50x50.jpg">](https://soundcloud.com/byenigmatic/nick-double-shut-it-down)
 
-**Artist**: One True God 
+**Artist**: Enigmatic 
 
-**Track**: No Names
+**Track**: Nick Double - Shut It Down
 
-Last updated at 09/12/2020 13:02
+Last updated at 09/12/2020 13:03
