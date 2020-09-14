@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/all-push-no-pull?in=sablevalley/sets/sable-valley-summer-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/realm?in=sablevalley/sets/sable-valley-summer-vol-1)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: Jon Casey - All Push, No Pull
+**Track**: Masayoshi Iimori - Realm
 
-Last updated at 09/14/2020 16:06
+Last updated at 09/14/2020 16:08
