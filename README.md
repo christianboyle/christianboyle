@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6qogf5NkbOIDwMV-SbXyyQ-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/sub-trauma-burn-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pHwYviRlzRaiuKGG-zYCGow-t50x50.jpg">](https://soundcloud.com/piratedrecords/saas-mcfoley)
 
-**Artist**: more creativity records 
+**Artist**: Pirated Records 
 
-**Track**: sub trauma - Burn Out
+**Track**: SAAS - Mcfoley
 
-Last updated at 09/14/2020 16:42
+Last updated at 09/14/2020 16:44
