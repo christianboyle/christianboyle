@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paOqkXO4OIrETzyw-nF0sRg-t50x50.jpg">](https://soundcloud.com/straimofficial/lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UdjoB8sfMxytwHMn-azIXHw-t50x50.jpg">](https://soundcloud.com/hobibeats/microscopes-mix-100-unreleased-unfinished-music)
 
-**Artist**: Straim 
+**Artist**: hobi 
 
-**Track**: Lost
+**Track**: Microscopes Mix「 100% Unreleased & Unfinished Music」
 
-Last updated at 09/14/2020 16:52
+Last updated at 09/14/2020 16:53
