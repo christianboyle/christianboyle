@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j5knBXiVRB008CzA-YrCmpQ-t50x50.jpg">](https://soundcloud.com/tahertg/bdayklips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
 
-**Artist**: taher 
+**Artist**: 󠀡󠀡BEN IS DYING 
 
-**Track**: ~~~Gemini Klips~~~ #MyBirthday
+**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
 
-Last updated at 09/14/2020 08:12
+Last updated at 09/14/2020 08:23
