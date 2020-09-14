@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MlaPjCjHlqe9ZtUv-W2y1bg-t50x50.jpg">](https://soundcloud.com/sablevalley/drive-by-city?in=sablevalley/sets/high-octane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1Sf5HovnPS1bMyf-3usVFw-t50x50.jpg">](https://soundcloud.com/sablevalley/defqon-bounce?in=sablevalley/sets/high-octane)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: Juelz & SSOS - Drive-by City
+**Track**: Juelz - Defqon Bounce
 
-Last updated at 09/14/2020 16:21
+Last updated at 09/14/2020 16:37
