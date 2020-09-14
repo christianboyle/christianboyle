@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDyBhQEo8DgQekQr-MHcLTQ-t50x50.jpg">](https://soundcloud.com/linusfromthestars/shipwrecked-on-the-moon?in=linusfromthestars/sets/brave-adventures)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218015112-t43mpf-t50x50.jpg">](https://soundcloud.com/nanobii/updown)
 
-**Artist**: Linus from the Stars 
+**Artist**: nanobii 
 
-**Track**: Shipwrecked on the Moon
+**Track**: UP&DOWN
 
-Last updated at 09/13/2020 20:53
+Last updated at 09/13/2020 20:54
