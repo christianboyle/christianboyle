@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bESiR7EZV8tgg0RM-HO80HQ-t50x50.jpg">](https://soundcloud.com/ddertbag/myworld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RerzAkcQX39FCiuG-W3GdVw-t50x50.jpg">](https://soundcloud.com/with3rx/april-comp-20-with3rx-1)
 
-**Artist**: ddertbAg✶✶✶✶ 
+**Artist**: with3r 
 
-**Track**: myworld
+**Track**: april comp '20 @with3rx
 
-Last updated at 09/14/2020 07:54
+Last updated at 09/14/2020 07:57
