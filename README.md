@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wcHydqNjzVcvx-EUyS8g-t50x50.jpg">](https://soundcloud.com/novalotusmusic/ok-kevin-lotis-tension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6qogf5NkbOIDwMV-SbXyyQ-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/sub-trauma-burn-out)
 
-**Artist**: Nova Lotus Music 
+**Artist**: more creativity records 
 
-**Track**: OK. Kevin + Lotis - Tension
+**Track**: sub trauma - Burn Out
 
-Last updated at 09/14/2020 16:40
+Last updated at 09/14/2020 16:42
