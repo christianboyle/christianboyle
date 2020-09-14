@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zSzJq6l9ESxjyyU-ozfnog-t50x50.jpg">](https://soundcloud.com/club_sirens/gasoiid-w1nngs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDyBhQEo8DgQekQr-MHcLTQ-t50x50.jpg">](https://soundcloud.com/linusfromthestars/shipwrecked-on-the-moon?in=linusfromthestars/sets/brave-adventures)
 
-**Artist**: SIRENS 
+**Artist**: Linus from the Stars 
 
-**Track**: Gasoiid – || W1NNGS ||
+**Track**: Shipwrecked on the Moon
 
-Last updated at 09/13/2020 20:52
+Last updated at 09/13/2020 20:53
