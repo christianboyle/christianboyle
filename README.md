@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJshpzmr7nTOFrNO-RluvcA-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/aos-claxton-epiphany-hu8-promo?in=hardcoreunderground/sets/hardcore-underground-8-preview-clips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
 
-**Artist**: Hardcore Underground 
+**Artist**: 󠀡󠀡BEN IS DYING 
 
-**Track**: AoS & Claxton - Epiphany ('HU8' Promo Clip - OUT NOW)
+**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
 
-Last updated at 09/13/2020 20:57
+Last updated at 09/13/2020 20:59
