@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1Sf5HovnPS1bMyf-3usVFw-t50x50.jpg">](https://soundcloud.com/sablevalley/defqon-bounce?in=sablevalley/sets/high-octane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qt6yrDQMJxqhmit1-cNx7rA-t50x50.jpg">](https://soundcloud.com/theblndr/with-you?in=theblndr/sets/demon-slayer)
 
-**Artist**: SABLE VALLEY 
+**Artist**: BLNDR 
 
-**Track**: Juelz - Defqon Bounce
+**Track**: Haise - With You
 
-Last updated at 09/14/2020 16:37
+Last updated at 09/14/2020 16:38
