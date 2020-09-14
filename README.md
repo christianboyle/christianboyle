@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygjIYx0Z4pivr7GB-769rBA-t50x50.jpg">](https://soundcloud.com/ajsimons/newlight)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: Aj simons 
 
-**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
+**Track**: new light (prod. umru)
 
-Last updated at 09/14/2020 08:23
+Last updated at 09/14/2020 08:33
