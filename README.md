@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92JB5VzNKcA57o4v-Td2UTg-t50x50.jpg">](https://soundcloud.com/pisssindividual/summer-snippets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-teTDOzDlFOOsSayC-BIzZ6A-t50x50.jpg">](https://soundcloud.com/shinjinv/june-2020)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: shinjin 
 
-**Track**: July 2020 (w/ @shinjinv)
+**Track**: June 2020
 
-Last updated at 09/13/2020 21:02
+Last updated at 09/13/2020 21:03
