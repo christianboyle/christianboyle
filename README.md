@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480571455-jjcke9-t50x50.jpg">](https://soundcloud.com/flukenukes/ratatat)
 
-**Artist**: onlytom ♴ 
+**Artist**: Fluke Nukes 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: Ratatat
 
-Last updated at 09/14/2020 08:35
+Last updated at 09/14/2020 08:38
