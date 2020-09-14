@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PiFvidqZCFZBw7XM-iQ1I7g-t50x50.jpg">](https://soundcloud.com/electronyze-me/monodie-forheast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgBWlPi4krIm4DDU-V5Hwyw-t50x50.jpg">](https://soundcloud.com/matrodamusic/oddmobremix)
 
-**Artist**: Electronyze Me 
+**Artist**: MATRODA 
 
-**Track**: MONODIE - Forheast
+**Track**: Matroda - D.A.N.C.I.N.G (Odd Mob Remix)
 
-Last updated at 09/14/2020 11:53
+Last updated at 09/14/2020 11:54
