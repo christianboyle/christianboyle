@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OQRhUw7yqyWrzS5J-iMmRjQ-t50x50.jpg">](https://soundcloud.com/stratusbass/if-you-only-knew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygjIYx0Z4pivr7GB-769rBA-t50x50.jpg">](https://soundcloud.com/ajsimons/newlight)
 
-**Artist**: Stratus 
+**Artist**: Aj simons 
 
-**Track**: Stratus - If You Only Knew
+**Track**: new light (prod. umru)
 
-Last updated at 09/13/2020 20:48
+Last updated at 09/13/2020 20:49
