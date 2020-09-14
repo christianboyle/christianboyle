@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8qguMVNM3CAsWS4-lyG3bg-t50x50.jpg">](https://soundcloud.com/kumocollective/summetrelease)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wcHydqNjzVcvx-EUyS8g-t50x50.jpg">](https://soundcloud.com/novalotusmusic/ok-kevin-lotis-tension)
 
-**Artist**: KUMO Collective 
+**Artist**: Nova Lotus Music 
 
-**Track**: summet - having fun yet?
+**Track**: OK. Kevin + Lotis - Tension
 
-Last updated at 09/14/2020 16:39
+Last updated at 09/14/2020 16:40
