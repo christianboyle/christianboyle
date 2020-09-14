@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Je7zM0SxoUqMYPda-u1aVeg-t50x50.jpg">](https://soundcloud.com/ajsimons/adorable?in=ajsimons/sets/you-live-in-my-eyes)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: Aj simons 
 
-**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
+**Track**: Adorable (prod. mikey enwright)
 
-Last updated at 09/13/2020 20:59
+Last updated at 09/13/2020 21:00
