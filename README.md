@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RQYD2MFUNN9H-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/ill-be-fine?in=uiceheidd/sets/goodbyegoodriddance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xn7kSDdoxUlt-0-t50x50.jpg">](https://soundcloud.com/futureisnow/jet-lag-feat-young-scooter?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
-**Artist**: Juice WRLD 
+**Artist**: Future 
 
-**Track**: I'll Be Fine
+**Track**: Jet Lag (feat. Young Scooter)
 
-Last updated at 09/15/2020 09:55
+Last updated at 09/15/2020 09:59
