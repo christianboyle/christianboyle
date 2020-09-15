@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592728275-ila7iu-t50x50.jpg">](https://soundcloud.com/hptgmusic/glad-i-met-you-feat?in=hptgmusic/sets/ravekick-003-vinylization)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463073598-y1kkrj-t50x50.jpg">](https://soundcloud.com/tweekacore/luv-u-more-tweekacore-x-gammer-flip)
 
-**Artist**: HPTG Music 
+**Artist**: Tweekacore 
 
-**Track**: Vau Boy - Glad I Met You (feat. viewtifulday)
+**Track**: Paul Elstak - Luv U More (Tweekacore x Gammer Flip)
 
-Last updated at 09/14/2020 21:24
+Last updated at 09/14/2020 21:26
