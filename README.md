@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1iaBWWV6AWP-0-t50x50.jpg">](https://soundcloud.com/futureisnow/oxy-feat-lil-wayne?in=futureisnow/sets/future-juice-wrld-present-wrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3kOqp97W7KhO-0-t50x50.jpg">](https://soundcloud.com/futureisnow/different-feat-yung-bans?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
 **Artist**: Future 
 
-**Track**: Oxy (feat. Lil Wayne)
+**Track**: Different (feat. Yung Bans)
 
-Last updated at 09/15/2020 14:16
+Last updated at 09/15/2020 14:19
