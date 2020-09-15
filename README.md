@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhK36un4SCWlHToY-kOKWbQ-t50x50.jpg">](https://soundcloud.com/user-24173741/juice-wrld-the-kid-laroi-go-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xn7kSDdoxUlt-0-t50x50.jpg">](https://soundcloud.com/futureisnow/jet-lag-feat-young-scooter?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
-**Artist**: No Vanity 999 
+**Artist**: Future 
 
-**Track**: juice wrld & the kid laroi - Go Go Go
+**Track**: Jet Lag (feat. Young Scooter)
 
-Last updated at 09/15/2020 10:17
+Last updated at 09/15/2020 10:20
