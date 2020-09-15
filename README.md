@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzbA5WnKvv6klEwh-bTPLqQ-t50x50.jpg">](https://soundcloud.com/debiscomix3/debisco-pea_txt-friends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlGjIfs05ZnpLDB1-POg7CA-t50x50.jpg">](https://soundcloud.com/hotcaller/damn-hotcaller-x-nexy)
 
-**Artist**: DeBisco DeBisco Revolution 3rd Mix 
+**Artist**: Hotcaller 
 
-**Track**: DeBisco @ pea_txt & Friends (09-12-20)
+**Track**: DAMN - HOTCALLER x NEXY
 
-Last updated at 09/14/2020 20:58
+Last updated at 09/14/2020 21:13
