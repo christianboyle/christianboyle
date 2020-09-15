@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/stay-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhK36un4SCWlHToY-kOKWbQ-t50x50.jpg">](https://soundcloud.com/user-24173741/juice-wrld-the-kid-laroi-go-go)
 
-**Artist**: Juice WRLD 
+**Artist**: No Vanity 999 
 
-**Track**: Stay High
+**Track**: juice wrld & the kid laroi - Go Go Go
 
-Last updated at 09/15/2020 10:15
+Last updated at 09/15/2020 10:17
