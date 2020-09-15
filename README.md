@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lwd7zMmRCgwRqglw-conjqQ-t50x50.jpg">](https://soundcloud.com/sappy94/devil-in-disguise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000571543862-odqndi-t50x50.jpg">](https://soundcloud.com/ether-lotus/hermit-purple-w-dethexe)
 
-**Artist**: Sappy 
+**Artist**: Ethereal Lotus 
 
-**Track**: Devil In Disguise
+**Track**: hermit purple w/ deth.exe
 
-Last updated at 09/14/2020 21:15
+Last updated at 09/14/2020 21:16
