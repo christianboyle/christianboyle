@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZZWtEMBy3Vvs-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/long-gone?in=uiceheidd/sets/goodbyegoodriddance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmgoTYGU370w-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/end-of-the-road?in=uiceheidd/sets/goodbyegoodriddance)
 
 **Artist**: Juice WRLD 
 
-**Track**: Long Gone
+**Track**: End Of The Road
 
-Last updated at 09/15/2020 09:49
+Last updated at 09/15/2020 09:52
