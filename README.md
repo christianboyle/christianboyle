@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: SABLE VALLEY 
 
-**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
+**Track**: Carpainter - Time Of Rage
 
-Last updated at 09/14/2020 19:49
+Last updated at 09/14/2020 20:38
