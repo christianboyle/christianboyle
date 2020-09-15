@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuLGrfZquX6d-0-t50x50.jpg">](https://soundcloud.com/fish_narc/you-asked-for-this-intro?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/man-of-the-year?in=uiceheidd/sets/legends-never-die)
 
-**Artist**: fish narc 
+**Artist**: Juice WRLD 
 
-**Track**: YOU ASKED FOR THIS
+**Track**: Man Of The Year
 
-Last updated at 09/15/2020 09:05
+Last updated at 09/15/2020 09:06
