@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzbA5WnKvv6klEwh-bTPLqQ-t50x50.jpg">](https://soundcloud.com/debiscomix3/debisco-pea_txt-friends)
 
-**Artist**: HPTG Music 
+**Artist**: DeBisco DeBisco Revolution 3rd Mix 
 
-**Track**: Hotchkiss - Need You Now
+**Track**: DeBisco @ pea_txt & Friends (09-12-20)
 
-Last updated at 09/14/2020 20:56
+Last updated at 09/14/2020 20:58
