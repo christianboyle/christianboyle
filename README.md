@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlGjIfs05ZnpLDB1-POg7CA-t50x50.jpg">](https://soundcloud.com/hotcaller/damn-hotcaller-x-nexy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0eQvmNrSgyAidzPt-1lzjoQ-t50x50.jpg">](https://soundcloud.com/albyloud/competition)
 
-**Artist**: Hotcaller 
+**Artist**: ALBY LOUD 
 
-**Track**: DAMN - HOTCALLER x NEXY
+**Track**: ALBY LOUD - COMPETITION [FREE DOWNLOAD]
 
-Last updated at 09/14/2020 21:13
+Last updated at 09/14/2020 21:14
