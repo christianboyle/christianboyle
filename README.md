@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/man-of-the-year?in=uiceheidd/sets/legends-never-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdmd3eRwgFMM-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/all-girls-are-same-999-prod-nick-mira?in=uiceheidd/sets/goodbyegoodriddance)
 
 **Artist**: Juice WRLD 
 
-**Track**: Man Of The Year
+**Track**: All Girls Are The Same
 
-Last updated at 09/15/2020 09:06
+Last updated at 09/15/2020 09:08
