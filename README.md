@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4seuvnCh8YPrUMED-S520FA-t50x50.jpg">](https://soundcloud.com/opholus/ioscop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wK31ix4jl0SGP6cO-HyjBSg-t50x50.jpg">](https://soundcloud.com/ilian-tape/it045-surgeon-europa-code)
 
-**Artist**: Opholus 
+**Artist**: ILIAN TAPE 
 
-**Track**: Ioscop
+**Track**: IT045 SURGEON - EUROPA CODE
 
-Last updated at 09/16/2020 10:10
+Last updated at 09/16/2020 10:11
