@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463073112-l8aqns-t50x50.jpg">](https://soundcloud.com/tweekacore/back-forth-tweekacore-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
 
-**Artist**: Tweekacore 
+**Artist**: SABLE VALLEY 
 
-**Track**: Brisk & Brown - Back & Forth (Tweekacore Remix)
+**Track**: Carpainter - Time Of Rage
 
-Last updated at 09/16/2020 13:04
+Last updated at 09/16/2020 13:14
