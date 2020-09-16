@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnrTwre1M9KvPODa-IwEM3w-t50x50.jpg">](https://soundcloud.com/starkbot/vortex-positive?in=starkbot/sets/pulsar-2020hz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: starkey 
+**Artist**: Lil Pump 
 
-**Track**: Vortex Positive
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/16/2020 13:02
+Last updated at 09/16/2020 13:03
