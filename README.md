@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fP264ZOJpyknX6ug-B50Fdw-t50x50.jpg">](https://soundcloud.com/holymolemusic/codes-astronomar-how-we-do-tombz-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
 
-**Artist**: Holy Molé! 
+**Artist**: SABLE VALLEY 
 
-**Track**: Codes & Astronomar - How We Do (Tombz Remix)
+**Track**: Carpainter - Time Of Rage
 
-Last updated at 09/16/2020 17:12
+Last updated at 09/16/2020 17:16
