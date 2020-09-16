@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KoghcR3uPlI4-0-t50x50.jpg">](https://soundcloud.com/futureisnow/hard-work-pays-off?in=futureisnow/sets/future-juice-wrld-present-wrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xn7kSDdoxUlt-0-t50x50.jpg">](https://soundcloud.com/futureisnow/jet-lag-feat-young-scooter?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
 **Artist**: Future 
 
-**Track**: Hard Work Pays Off
+**Track**: Jet Lag (feat. Young Scooter)
 
-Last updated at 09/15/2020 15:11
+Last updated at 09/16/2020 08:17
