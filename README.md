@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgHCsaXqQoDzT0Eq-Kn3Mmw-t50x50.jpg">](https://soundcloud.com/itsleemz/obii-trust-ft-gaby-g-leemz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnrTwre1M9KvPODa-IwEM3w-t50x50.jpg">](https://soundcloud.com/starkbot/vortex-positive?in=starkbot/sets/pulsar-2020hz)
 
-**Artist**: Leemz 
+**Artist**: starkey 
 
-**Track**: Obii - Trust (Ft. Gaby G) (Leemz Remix)
+**Track**: Vortex Positive
 
-Last updated at 09/16/2020 13:01
+Last updated at 09/16/2020 13:02
