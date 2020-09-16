@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fP264ZOJpyknX6ug-B50Fdw-t50x50.jpg">](https://soundcloud.com/holymolemusic/codes-astronomar-how-we-do-tombz-remix-1)
 
-**Artist**: HPTG Music 
+**Artist**: Holy Molé! 
 
-**Track**: Hotchkiss - Need You Now
+**Track**: Codes & Astronomar - How We Do (Tombz Remix)
 
-Last updated at 09/16/2020 17:08
+Last updated at 09/16/2020 17:12
