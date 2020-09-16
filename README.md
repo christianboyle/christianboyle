@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: Circus Records Official 
+**Artist**: Lil Pump 
 
-**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/16/2020 16:22
+Last updated at 09/16/2020 16:58
