@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7pB2x8cOt4Ceyli-cXdJfA-t50x50.jpg">](https://soundcloud.com/bassrush/saka-terminus?in=soundslikesaka/sets/slipstream-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3PsPOjzOWk1ZKWW-zu1Sgg-t50x50.jpg">](https://soundcloud.com/safaridotexe/wynde-up-q-big-salami?in=safaridotexe/sets/wynde-up-q)
 
-**Artist**: Bassrush 
+**Artist**: Safari.exe 
 
-**Track**: Saka - Terminus
+**Track**: Wynde Up - Q (Big Salami)
 
-Last updated at 09/17/2020 02:53
+Last updated at 09/17/2020 02:57
