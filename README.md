@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEq4IPvebgX754wg-wgJ2nw-t50x50.jpg">](https://soundcloud.com/above_the_surface/chris-dogzout-sachita)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6U2B58VFLRVcwqje-mWzxlw-t50x50.jpg">](https://soundcloud.com/brednbutterrec/perk-pietrek-nucleya-vajantri)
 
-**Artist**: Above 
+**Artist**: brednbutter 
 
-**Track**: Chris Dogzout - Sachita
+**Track**: Perk Pietrek & Nucleya - Vajantri
 
-Last updated at 09/17/2020 06:10
+Last updated at 09/17/2020 06:14
