@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaqgQCINaORksGCy-yOE4xA-t50x50.jpg">](https://soundcloud.com/capshun/electric-hawk-fuxwithit-takeover-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1J3EDMryR0y31pX-lV4rQg-t50x50.jpg">](https://soundcloud.com/gldmusic/gld-mad-cause-im-right)
 
-**Artist**: capshun 
+**Artist**: GLD 
 
-**Track**: Electric Hawk/ FUXWITHIT Takeover Set
+**Track**: Mad, Cause I'm Right
 
-Last updated at 09/17/2020 07:40
+Last updated at 09/17/2020 08:21
