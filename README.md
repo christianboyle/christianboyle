@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sgt9zyOde96Y4QeP-BOzQvw-t50x50.jpg">](https://soundcloud.com/allwinslvp/fendi-1)
 
-**Artist**: onlytom ♴ 
+**Artist**: LVP 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: FENDI
 
-Last updated at 09/17/2020 11:34
+Last updated at 09/17/2020 13:55
