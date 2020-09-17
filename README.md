@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-haZxqdMIyTMIAyx1-v4z9dQ-t50x50.jpg">](https://soundcloud.com/huskibass/j1-alleyways-feat-dr-disrespect-huski-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Kf1eBUJb1xHKGmP-SvvIwA-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv087)
 
-**Artist**: HUSKI 
+**Artist**: Good Vibes Only 
 
-**Track**: J+1 - ALLEYWAYS (FEAT. DR. DISRESPECT) (HUSKI FLIP)
+**Track**: AVDNC - Nexus #GV087
 
-Last updated at 09/17/2020 08:22
+Last updated at 09/17/2020 08:23
