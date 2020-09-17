@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QYUoyy8gcqCzfNe-EK2GFg-t50x50.jpg">](https://soundcloud.com/videbeats/yoga-vide-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FqiwHGy26J4gXsL-a9WibQ-t50x50.jpg">](https://soundcloud.com/noguchii/pastel-sky)
 
-**Artist**: vide 
+**Artist**: noguchii 
 
-**Track**: yoga (vide flip)
+**Track**: Ferst & Zentra - Pastel Sky (feat. Rainy) [noguchii remix]
 
-Last updated at 09/17/2020 07:32
+Last updated at 09/17/2020 07:34
