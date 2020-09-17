@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpzuywNzVdUdwmGp-Y4ypdA-t50x50.jpg">](https://soundcloud.com/mysticalmobbing/split-generation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paOqkXO4OIrETzyw-nF0sRg-t50x50.jpg">](https://soundcloud.com/straimofficial/aurora)
 
-**Artist**: YVNG MY$TiCAL 
+**Artist**: Straim 
 
-**Track**: ~ ~ 分割世代 ~ ~ (stream)
+**Track**: Aurora
 
-Last updated at 09/17/2020 05:45
+Last updated at 09/17/2020 06:05
