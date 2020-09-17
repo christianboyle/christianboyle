@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amXQz6uJ4lpl6z2n-eyqp5Q-t50x50.jpg">](https://soundcloud.com/blvdmusic/ekali-ft-wafia-be-fine-blvd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZ9QsyYuYCxEimb2-zxwKBA-t50x50.jpg">](https://soundcloud.com/trzbts/look-at-her-now-31)
 
-**Artist**: BLVD. 
+**Artist**: TEARZ 
 
-**Track**: Ekali Ft. Wafia - Be Fine (BLVD. Remix)
+**Track**: H.E.R.
 
-Last updated at 09/17/2020 00:31
+Last updated at 09/17/2020 00:34
