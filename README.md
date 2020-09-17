@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sMQpVSMFB4m9MLeQ-qit9Cg-t50x50.jpg">](https://soundcloud.com/wormhole-music-group/wormcast-mix-series-volume-45-clozee-on-wormhole-wednesday-livestream-sessions-9920)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pFmJikyF9uSqGT3-CI7PEQ-t50x50.jpg">](https://soundcloud.com/bingoplayers/hysteria-radio-233)
 
-**Artist**: Wormhole Music Group 
+**Artist**: Bingo Players 
 
-**Track**: Wormcast Mix Series Volume 45 - CloZee on Wormhole Wednesday Livestream Sessions 9/9/20
+**Track**: Hysteria Radio 233
 
-Last updated at 09/17/2020 03:24
+Last updated at 09/17/2020 04:25
