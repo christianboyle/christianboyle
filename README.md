@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AiN1s8MCdP3iFdGA-WyX0lg-t50x50.jpg">](https://soundcloud.com/deskpopmusic/dynastic-1k-shards)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzyJY3SdJjhWaIVr-B7wc3w-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/egzod-wasiu-mutiny-ncs-release)
 
-**Artist**: DESKPOP 🌵🖥💛 
+**Artist**: NCS 
 
-**Track**: dynastic - 1k shards
+**Track**: Egzod & Wasiu - Mutiny [NCS Release]
 
-Last updated at 09/17/2020 14:03
+Last updated at 09/17/2020 14:06
