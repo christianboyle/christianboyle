@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8qguMVNM3CAsWS4-lyG3bg-t50x50.jpg">](https://soundcloud.com/kumocollective/summetrelease)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH3mjIIYjp5POeZ7-VNn4IQ-t50x50.jpg">](https://soundcloud.com/warecollective/another-system)
 
-**Artist**: KUMO Collective 
+**Artist**: WARE 
 
-**Track**: summet - having fun yet?
+**Track**: Viscount - Another System
 
-Last updated at 09/17/2020 13:59
+Last updated at 09/17/2020 14:00
