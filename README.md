@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paOqkXO4OIrETzyw-nF0sRg-t50x50.jpg">](https://soundcloud.com/straimofficial/aurora)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEHp7jphwCoh-0-t50x50.png">](https://soundcloud.com/smrtdeath/she-told-me-to-kill-myself)
 
-**Artist**: Straim 
+**Artist**: smrtdeath 
 
-**Track**: Aurora
+**Track**: She Told Me to Kill Myself
 
-Last updated at 09/17/2020 06:05
+Last updated at 09/17/2020 06:07
