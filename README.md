@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3PsPOjzOWk1ZKWW-zu1Sgg-t50x50.jpg">](https://soundcloud.com/safaridotexe/wynde-up-q2-gums?in=safaridotexe/sets/wynde-up-q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrGoqxiYxKwPyWdK-tKoGzQ-t50x50.jpg">](https://soundcloud.com/silencerecordss/catopuma-omg?in=silencerecordss/sets/catopuma-omg)
 
-**Artist**: Safari.exe 
+**Artist**: SILENCE! Records 
 
-**Track**: Wynde Up - Q2 (Gums)
+**Track**: Catopuma - OMG
 
-Last updated at 09/17/2020 03:01
+Last updated at 09/17/2020 03:04
