@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8qguMVNM3CAsWS4-lyG3bg-t50x50.jpg">](https://soundcloud.com/kumocollective/summetrelease)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
 
-**Artist**: KUMO Collective 
+**Artist**: talegate 
 
-**Track**: summet - having fun yet?
+**Track**: Mitchell Tenpenny - Broken Up (talegate remix)
 
-Last updated at 09/17/2020 03:18
+Last updated at 09/17/2020 03:21
