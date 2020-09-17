@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjnwPkJbDoGZipsa-6KMjHQ-t50x50.jpg">](https://soundcloud.com/yfrnco/two-feet-feat-pell-dana-williams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8qguMVNM3CAsWS4-lyG3bg-t50x50.jpg">](https://soundcloud.com/kumocollective/summetrelease)
 
-**Artist**: Young Franco 
+**Artist**: KUMO Collective 
 
-**Track**: Two Feet (feat. Pell & Dana Williams)
+**Track**: summet - having fun yet?
 
-Last updated at 09/17/2020 13:58
+Last updated at 09/17/2020 13:59
