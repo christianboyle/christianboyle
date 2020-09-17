@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUsCsv8pdr7FL5SA-guO2pQ-t50x50.jpg">](https://soundcloud.com/moneymoneysound/spend-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65REsD0TVgeARoTB-C9laMA-t50x50.jpg">](https://soundcloud.com/itsnaderi/naderi-hotboxindawip-1)
 
-**Artist**: Money Money 
+**Artist**: Naderi 
 
-**Track**: Spend It
+**Track**: NADERI - HOTBOXINDAWIP
 
-Last updated at 09/17/2020 00:50
+Last updated at 09/17/2020 00:55
