@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0u4a5UAcWGCbQz19-qN7dxw-t50x50.jpg">](https://soundcloud.com/vincent_official/her-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxhrSxIUPlTm2iVv-yHg0zg-t50x50.jpg">](https://soundcloud.com/wolfyysfine/natsukashii)
 
-**Artist**: Vincent 
+**Artist**: ✰ Wolfyy ✰ (@wolfyysfine) 
 
-**Track**: Lucky Mistake (Her 2.0)
+**Track**: ★Natsukashii★ +scøøb  [p. savestate]
 
-Last updated at 09/17/2020 00:21
+Last updated at 09/17/2020 00:24
