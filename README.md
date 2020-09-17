@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ehnP8lDdOWpCickY-7fUr2Q-t50x50.jpg">](https://soundcloud.com/omarcameup/midnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msfK4wGdgmlm-0-t50x50.png">](https://soundcloud.com/kasbomusic/staying-in-love-feat-nea)
 
-**Artist**: OmarCameUp 
+**Artist**: Kasbo 
 
-**Track**: Midnight w/ khoa
+**Track**: Staying In Love (feat. Nea)
 
-Last updated at 09/17/2020 06:31
+Last updated at 09/17/2020 06:33
