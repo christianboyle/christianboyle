@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6qogf5NkbOIDwMV-SbXyyQ-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/sub-trauma-burn-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lI2gb6cRC1sSBV7P-aVOvXw-t50x50.jpg">](https://soundcloud.com/electric_hawk/yawa-x-ragdolltk-deja-vu-the-nest-014)
 
-**Artist**: more creativity records 
+**Artist**: Electric Hawk 
 
-**Track**: sub trauma - Burn Out
+**Track**: YAWA. x RagdollTk - Deja Vu [THE NEST #014]
 
-Last updated at 09/17/2020 05:27
+Last updated at 09/17/2020 05:30
