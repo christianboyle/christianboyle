@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Z4arKzk12quEevc-RSaI8w-t50x50.jpg">](https://soundcloud.com/warecollective/kavari-powerarc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaQ4Ax6MmiDXE4d7-EjZQXQ-t50x50.jpg">](https://soundcloud.com/prodhilton/hilton-shinshin)
 
-**Artist**: WARE 
+**Artist**: Ħilton 
 
-**Track**: KAVARI - :'Power))Arc>
+**Track**: ShinShin
 
-Last updated at 09/16/2020 22:33
+Last updated at 09/16/2020 22:35
