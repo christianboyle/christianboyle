@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Iof0zuxFzaW95G-HfkBCA-t50x50.jpg">](https://soundcloud.com/romeinsilver/monochrome-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vzccPzqAy1QG0Q0-h0fAaA-t50x50.jpg">](https://soundcloud.com/odditiespacks/pump)
 
-**Artist**: Rome in Silver 
+**Artist**: Oddities 
 
-**Track**: MONOCHROME III
+**Track**: Pump It Up (Odd Mob Evil Edit)[FREE DL]
 
-Last updated at 09/16/2020 22:55
+Last updated at 09/16/2020 23:58
