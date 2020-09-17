@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZ9QsyYuYCxEimb2-zxwKBA-t50x50.jpg">](https://soundcloud.com/trzbts/look-at-her-now-31)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBDnMGOKkwEMwgIc-GKsdJw-t50x50.jpg">](https://soundcloud.com/obskuresound/jack-the-human-on-my-mind-feat-honeycomb)
 
-**Artist**: TEARZ 
+**Artist**: Obskure 
 
-**Track**: H.E.R.
+**Track**: JACK THE HUMAN - ON MY MIND (feat. HONEYCOMB)
 
-Last updated at 09/17/2020 00:34
+Last updated at 09/17/2020 00:38
