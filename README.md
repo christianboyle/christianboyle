@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLLsUhTJq27vcAhi-qWKWkA-t50x50.jpg">](https://soundcloud.com/dukeandjones/above-the-tide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgeVidzOXCwdcvOt-hedKrQ-t50x50.jpg">](https://soundcloud.com/voltra/luma-drive)
 
-**Artist**: Duke & Jones 
+**Artist**: voltra 
 
-**Track**: Above The Tide
+**Track**: LUMA DRIVE [FREE DL]
 
-Last updated at 09/17/2020 00:05
+Last updated at 09/17/2020 00:09
