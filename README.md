@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vLPPlEJQaJuTV7hJ-g07bpA-t50x50.jpg">](https://soundcloud.com/shhsecretsongs/04-rhoda-dillan-witherow-bus?in=shhsecretsongs/sets/rhoda-dillan-witherow-snowgarden-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ehnP8lDdOWpCickY-7fUr2Q-t50x50.jpg">](https://soundcloud.com/omarcameup/midnight)
 
-**Artist**: Secret Songs 
+**Artist**: OmarCameUp 
 
-**Track**: Rhoda & Dillan Witherow - Bus Rides
+**Track**: Midnight w/ khoa
 
-Last updated at 09/17/2020 06:28
+Last updated at 09/17/2020 06:31
