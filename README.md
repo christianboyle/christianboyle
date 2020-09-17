@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrGoqxiYxKwPyWdK-tKoGzQ-t50x50.jpg">](https://soundcloud.com/silencerecordss/catopuma-omg?in=silencerecordss/sets/catopuma-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gi8zRUYg9mmyJyvR-xHxzSg-t50x50.jpg">](https://soundcloud.com/trapicalmusic/thebaddest)
 
-**Artist**: SILENCE! Records 
+**Artist**: Trapical Music 
 
-**Track**: Catopuma - OMG
+**Track**: K/DA - THE BADDEST (Bento x Sincat x Wine Remix)
 
-Last updated at 09/17/2020 03:04
+Last updated at 09/17/2020 03:08
