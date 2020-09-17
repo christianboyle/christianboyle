@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXPmnDOozCnIbo8j-3itwUQ-t50x50.jpg">](https://soundcloud.com/dsjoe/ardtronix-915-w-dirty-south-joe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzyBZhIoDRwdLfiQ-6TnN6g-t50x50.jpg">](https://soundcloud.com/ganggangrecs/kazantzakis-siai)
 
-**Artist**: Dirty South Joe 
+**Artist**: Gang Gang Records 
 
-**Track**: ARDTRONIX 9/15 w Dirty South Joe
+**Track**: Kazantzakis - SIAI
 
-Last updated at 09/17/2020 00:56
+Last updated at 09/17/2020 02:25
