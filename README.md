@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzyJY3SdJjhWaIVr-B7wc3w-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/egzod-wasiu-mutiny-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000247711545-8g64ah-t50x50.jpg">](https://soundcloud.com/syrendjmusic/milkshake)
 
-**Artist**: NCS 
+**Artist**: Syren 
 
-**Track**: Egzod & Wasiu - Mutiny [NCS Release]
+**Track**: Milkshake (with Nadia Qualita) **FREE DL**
 
-Last updated at 09/17/2020 14:06
+Last updated at 09/17/2020 14:07
