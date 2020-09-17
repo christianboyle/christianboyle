@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH3mjIIYjp5POeZ7-VNn4IQ-t50x50.jpg">](https://soundcloud.com/warecollective/another-system)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNUpX5PliTEyedSS-UcnCRg-t50x50.jpg">](https://soundcloud.com/vyyl/smells-like-trap-spirit)
 
-**Artist**: WARE 
+**Artist**: VYYL 
 
-**Track**: Viscount - Another System
+**Track**: VYYL - Smells Like Trap Spirit
 
-Last updated at 09/17/2020 14:00
+Last updated at 09/17/2020 14:01
