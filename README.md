@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: talegate 
+**Artist**: Lil Pump 
 
-**Track**: Mitchell Tenpenny - Broken Up (talegate remix)
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/17/2020 09:56
+Last updated at 09/17/2020 11:09
