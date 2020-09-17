@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxhrSxIUPlTm2iVv-yHg0zg-t50x50.jpg">](https://soundcloud.com/wolfyysfine/natsukashii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNUpX5PliTEyedSS-UcnCRg-t50x50.jpg">](https://soundcloud.com/vyyl/smells-like-trap-spirit)
 
-**Artist**: ✰ Wolfyy ✰ (@wolfyysfine) 
+**Artist**: VYYL 
 
-**Track**: ★Natsukashii★ +scøøb  [p. savestate]
+**Track**: VYYL - Smells Like Trap Spirit
 
-Last updated at 09/17/2020 00:24
+Last updated at 09/17/2020 00:27
