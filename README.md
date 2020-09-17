@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S4T2oU8dGpaUzm8-fbet4g-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/epicalyx?in=hybridtrapradio/sets/epicalyx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjnwPkJbDoGZipsa-6KMjHQ-t50x50.jpg">](https://soundcloud.com/yfrnco/two-feet-feat-pell-dana-williams)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Young Franco 
 
-**Track**: Remeti - Epicalyx
+**Track**: Two Feet (feat. Pell & Dana Williams)
 
-Last updated at 09/17/2020 13:57
+Last updated at 09/17/2020 13:58
