@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CTLdEzgz2b9bOXqR-1fAYZQ-t50x50.jpg">](https://soundcloud.com/marcmadness/marc-madness-zen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dbH2inU6nd2b4p3j-i5rqow-t50x50.jpg">](https://soundcloud.com/guppi/boy-2)
 
-**Artist**: Marc  Madness 
+**Artist**: Guppi 
 
-**Track**: Marc Madness - Zen
+**Track**: Boy
 
-Last updated at 09/16/2020 22:43
+Last updated at 09/16/2020 22:47
