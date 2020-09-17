@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Kf1eBUJb1xHKGmP-SvvIwA-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv087)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: Good Vibes Only 
+**Artist**: Lil Pump 
 
-**Track**: AVDNC - Nexus #GV087
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/17/2020 08:23
+Last updated at 09/17/2020 08:24
