@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OwLGl8IxR0kxVkSk-F1VyOA-t50x50.png">](https://soundcloud.com/rinsefm/mallgrab160920)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rl5nnh5zknWcliAs-vCFCkw-t50x50.jpg">](https://soundcloud.com/preconceived-notions/arimyth-x-mr-serpent-coronado)
 
-**Artist**: Rinse FM 
+**Artist**: Preconceived Notions 
 
-**Track**: Mall Grab with Viers - 16 September 2020
+**Track**: Arimyth X Mr Serpent - Coronado
 
-Last updated at 09/16/2020 20:20
+Last updated at 09/16/2020 22:30
