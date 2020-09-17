@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZuVkmC4u7z3DkZi-FwLjDQ-t50x50.jpg">](https://soundcloud.com/sumthinsumthin/trauma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MNEgIDN15WkKpOOI-yPSS4Q-t50x50.jpg">](https://soundcloud.com/imaeneas/coordinate)
 
-**Artist**: sumthin sumthin 
+**Artist**: AENEΛS 
 
-**Track**: Trauma
+**Track**: coordinate
 
-Last updated at 09/17/2020 05:39
+Last updated at 09/17/2020 05:42
