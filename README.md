@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RufHnapKdZaWQutA-rqyAFw-t50x50.jpg">](https://soundcloud.com/dropcentral/alliseeisyou?in=hybridhouse/sets/alliseeisyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAU64zLIzgzmNZGS-yyOmZg-t50x50.jpg">](https://soundcloud.com/bassrush/saka-qingliu?in=soundslikesaka/sets/slipstream-ep)
 
-**Artist**: Drop Central 💧 
+**Artist**: Bassrush 
 
-**Track**: Yanisovic - All I See Is You
+**Track**: Saka - Qingliu
 
-Last updated at 09/17/2020 02:32
+Last updated at 09/17/2020 02:36
