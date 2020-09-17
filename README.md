@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgeVidzOXCwdcvOt-hedKrQ-t50x50.jpg">](https://soundcloud.com/voltra/luma-drive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzLCnGzMoGxcz1pG-ykp2eg-t50x50.jpg">](https://soundcloud.com/kinphonic/erotic-cafe-take-me-down)
 
-**Artist**: voltra 
+**Artist**: Kinphonic 
 
-**Track**: LUMA DRIVE [FREE DL]
+**Track**: Erotic Cafe' - Take Me Down
 
-Last updated at 09/17/2020 00:09
+Last updated at 09/17/2020 00:12
