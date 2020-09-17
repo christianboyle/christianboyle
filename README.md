@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MNEgIDN15WkKpOOI-yPSS4Q-t50x50.jpg">](https://soundcloud.com/imaeneas/coordinate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpzuywNzVdUdwmGp-Y4ypdA-t50x50.jpg">](https://soundcloud.com/mysticalmobbing/split-generation)
 
-**Artist**: AENEΛS 
+**Artist**: YVNG MY$TiCAL 
 
-**Track**: coordinate
+**Track**: ~ ~ 分割世代 ~ ~ (stream)
 
-Last updated at 09/17/2020 05:42
+Last updated at 09/17/2020 05:45
