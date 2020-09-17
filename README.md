@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNUpX5PliTEyedSS-UcnCRg-t50x50.jpg">](https://soundcloud.com/vyyl/smells-like-trap-spirit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amXQz6uJ4lpl6z2n-eyqp5Q-t50x50.jpg">](https://soundcloud.com/blvdmusic/ekali-ft-wafia-be-fine-blvd-remix)
 
-**Artist**: VYYL 
+**Artist**: BLVD. 
 
-**Track**: VYYL - Smells Like Trap Spirit
+**Track**: Ekali Ft. Wafia - Be Fine (BLVD. Remix)
 
-Last updated at 09/17/2020 00:27
+Last updated at 09/17/2020 00:31
