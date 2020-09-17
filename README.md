@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Lil Pump 
 
-**Track**: Carpainter - Time Of Rage
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/16/2020 17:16
+Last updated at 09/16/2020 20:16
