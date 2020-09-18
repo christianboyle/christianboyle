@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: HPTG Music 
+**Artist**: Monstercat 
 
-**Track**: Hotchkiss - Need You Now
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 09/17/2020 19:58
+Last updated at 09/17/2020 20:25
