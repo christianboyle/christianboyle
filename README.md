@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfMFPPnyWeRze0Oc-2yCdRw-t50x50.jpg">](https://soundcloud.com/grazcore/5kr1ll3x-w33k3nd5-graz-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: GRAZ 
+**Artist**: Monstercat 
 
-**Track**: 5kr1ll3x - w33k3nd5 (Graz Flip)
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 09/18/2020 09:09
+Last updated at 09/18/2020 09:13
