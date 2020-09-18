@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515702589-m9yypn-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc130)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000348448089-515jrc-t50x50.jpg">](https://soundcloud.com/djrestylemusic/2-brothers-on-the-4th-floor-never-alone-re-style-remix)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Re-Style 
 
-**Track**: NXC130 - kim petras + sophie - 1 2 3 dayz up (gyrofield flip)
+**Track**: 2 Brothers On The 4th Floor - Never Alone (Re-Style Remix)
 
-Last updated at 09/18/2020 14:40
+Last updated at 09/18/2020 16:53
