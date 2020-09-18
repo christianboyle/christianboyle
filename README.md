@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: Monstercat 
 
-**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 09/17/2020 21:05
+Last updated at 09/18/2020 08:07
