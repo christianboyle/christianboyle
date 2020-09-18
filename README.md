@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463073598-y1kkrj-t50x50.jpg">](https://soundcloud.com/tweekacore/luv-u-more-tweekacore-x-gammer-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
 
-**Artist**: Tweekacore 
+**Artist**: WE ARE FURY 
 
-**Track**: Paul Elstak - Luv U More (Tweekacore x Gammer Flip)
+**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
 
-Last updated at 09/18/2020 14:32
+Last updated at 09/18/2020 14:36
