@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfMFPPnyWeRze0Oc-2yCdRw-t50x50.jpg">](https://soundcloud.com/grazcore/5kr1ll3x-w33k3nd5-graz-flip)
 
-**Artist**: onlytom ♴ 
+**Artist**: GRAZ 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: 5kr1ll3x - w33k3nd5 (Graz Flip)
 
-Last updated at 09/18/2020 08:59
+Last updated at 09/18/2020 09:09
