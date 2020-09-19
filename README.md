@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfMFPPnyWeRze0Oc-2yCdRw-t50x50.jpg">](https://soundcloud.com/grazcore/5kr1ll3x-w33k3nd5-graz-flip)
 
-**Artist**: HPTG Music 
+**Artist**: GRAZ 
 
-**Track**: Hotchkiss - Need You Now
+**Track**: 5kr1ll3x - w33k3nd5 (Graz Flip)
 
-Last updated at 09/19/2020 11:58
+Last updated at 09/19/2020 17:07
