@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LShIrH7nIjWZ-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok)
 
-**Artist**: talegate 
+**Artist**: marshmello 
 
-**Track**: Mitchell Tenpenny - Broken Up (talegate remix)
+**Track**: OK Not To Be OK
 
-Last updated at 09/19/2020 09:58
+Last updated at 09/19/2020 10:02
