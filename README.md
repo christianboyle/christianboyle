@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: smrtdeath 
+**Artist**: Lil Pump 
 
-**Track**: Waterfall
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 09/18/2020 17:00
+Last updated at 09/18/2020 21:16
