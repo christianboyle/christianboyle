@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LShIrH7nIjWZ-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: marshmello 
+**Artist**: Monstercat 
 
-**Track**: OK Not To Be OK
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 09/19/2020 10:02
+Last updated at 09/19/2020 11:40
