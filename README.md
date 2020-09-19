@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Monstercat 
 
-**Track**: Carpainter - Time Of Rage
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 09/18/2020 21:31
+Last updated at 09/19/2020 08:25
