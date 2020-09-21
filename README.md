@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3nSsQRYcuLk3O4M-lLQv7Q-t50x50.jpg">](https://soundcloud.com/historyofhappyhardcore/saturday-seshions-happy-hardcore-vinyl-edition-4-hdsn-live-on-twitch-19920)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8MwbM5t399zGeJVQ-ua8tAA-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-just-enough-feat-baauer?in=hardfest/sets/holly-just-enough-amusement)
 
-**Artist**: History Of Happy Hardcore 
+**Artist**: HOLLY 
 
-**Track**: Saturday Seshions 'Happy Hardcore Vinyl Edition 4' - HDSN (Live On Twitch 19/9/20)
+**Track**: HOLLY - Just Enough (feat. Baauer)
 
-Last updated at 09/21/2020 15:09
+Last updated at 09/21/2020 15:46
