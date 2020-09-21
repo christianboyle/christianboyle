@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P7JGoXzDLfaIfM1j-UeK8sg-t50x50.jpg">](https://soundcloud.com/bethsawlts/in-sunshine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ttT9zqvlzyPBF2D-DDepqQ-t50x50.jpg">](https://soundcloud.com/sylvagus/data-hunter?in=side_fx/sets/side-fx-gaming-playlist)
 
-**Artist**: beth sawlts 
+**Artist**: Sylvagus 🐰 
 
-**Track**: In Sunshine
+**Track**: Data Hunter
 
-Last updated at 09/21/2020 16:34
+Last updated at 09/21/2020 16:38
