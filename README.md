@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tn4yq4pJzMN3Mai5-gTbAbw-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/krvken-drip?in=side_fx/sets/side-fx-gaming-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlGjIfs05ZnpLDB1-POg7CA-t50x50.jpg">](https://soundcloud.com/hotcaller/damn-hotcaller-x-nexy?in=side_fx/sets/side-fx-gaming-playlist)
 
-**Artist**: High Caliber Records 
+**Artist**: Hotcaller 
 
-**Track**: KRVKEN - Drip
+**Track**: DAMN - HOTCALLER x NEXY
 
-Last updated at 09/21/2020 16:41
+Last updated at 09/21/2020 16:44
