@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2tcFfXyzh8WzCZ3-JAVN1w-t50x50.jpg">](https://soundcloud.com/tape-b-official/flume-on-top-feat-tshirt-tape-b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-so9ip9qPQna8lzly-ADGylQ-t50x50.jpg">](https://soundcloud.com/davidshawty/david-shawty-pollari-melody-prod-yung-skrrt-hoodwtch)
 
-**Artist**: Tape B 
+**Artist**: david shawty 
 
-**Track**: Flume - On Top (feat. T.Shirt) (Tape B Remix)
+**Track**: david shawty & pollari - melody (prod. yung skrrt, hoodwtch)
 
-Last updated at 09/21/2020 16:28
+Last updated at 09/21/2020 16:31
