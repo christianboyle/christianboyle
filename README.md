@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-so9ip9qPQna8lzly-ADGylQ-t50x50.jpg">](https://soundcloud.com/davidshawty/david-shawty-pollari-melody-prod-yung-skrrt-hoodwtch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P7JGoXzDLfaIfM1j-UeK8sg-t50x50.jpg">](https://soundcloud.com/bethsawlts/in-sunshine)
 
-**Artist**: david shawty 
+**Artist**: beth sawlts 
 
-**Track**: david shawty & pollari - melody (prod. yung skrrt, hoodwtch)
+**Track**: In Sunshine
 
-Last updated at 09/21/2020 16:31
+Last updated at 09/21/2020 16:34
