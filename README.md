@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlGjIfs05ZnpLDB1-POg7CA-t50x50.jpg">](https://soundcloud.com/hotcaller/damn-hotcaller-x-nexy?in=side_fx/sets/side-fx-gaming-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q0DatfQJDrE0XXIo-Ed6i6w-t50x50.jpg">](https://soundcloud.com/dvs_mp3/dvs-mp3-player-vol23)
 
-**Artist**: Hotcaller 
+**Artist**: DVS 
 
-**Track**: DAMN - HOTCALLER x NEXY
+**Track**: DVS MP3 PLAYER 023 | 18.09.20
 
-Last updated at 09/21/2020 16:44
+Last updated at 09/21/2020 16:45
