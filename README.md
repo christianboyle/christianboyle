@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000594812481-8cawyo-t50x50.jpg">](https://soundcloud.com/judgebeats/judge-crushed-by-a-mallet)
 
-**Artist**: onlytom ♴ 
+**Artist**: JUDGE 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: JUDGE CRUSHED BY A MALLET
 
-Last updated at 09/22/2020 09:59
+Last updated at 09/22/2020 13:27
