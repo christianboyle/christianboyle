@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmj3IGp27MDz5UeR-Qj8nsg-t50x50.jpg">](https://soundcloud.com/toddhelder/marshmello-here-with-me-todd-helder-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyP5Z5R4VAlvbE92-7YaKvw-t50x50.jpg">](https://soundcloud.com/nightmoderecs/longstoryshort-lost-summer-ft-constance-1)
 
-**Artist**: Todd Helder 
+**Artist**: NIGHT MODE 
 
-**Track**: Marshmello - Here With Me (Todd Helder Remix)
+**Track**: longstoryshort - Lost Summer ft. Constance
 
-Last updated at 09/22/2020 13:28
+Last updated at 09/22/2020 13:30
