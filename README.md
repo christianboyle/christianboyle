@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QZC4gid4XVvKAPn-PE5VOw-t50x50.jpg">](https://soundcloud.com/nocv/reason)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfMFPPnyWeRze0Oc-2yCdRw-t50x50.jpg">](https://soundcloud.com/grazcore/5kr1ll3x-w33k3nd5-graz-flip)
 
-**Artist**: Noc.V 
+**Artist**: GRAZ 
 
-**Track**: Reason
+**Track**: 5kr1ll3x - w33k3nd5 (Graz Flip)
 
-Last updated at 09/22/2020 09:18
+Last updated at 09/22/2020 09:23
