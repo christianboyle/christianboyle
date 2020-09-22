@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q0DatfQJDrE0XXIo-Ed6i6w-t50x50.jpg">](https://soundcloud.com/dvs_mp3/dvs-mp3-player-vol23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUCR4r4RoI5fxIWl-tgRF4A-t50x50.jpg">](https://soundcloud.com/junkandjones/wapping-on-a-dream-duke-jones-edit?in=dukeandjones/sets/wapping-on-a-dream-free)
 
-**Artist**: DVS 
+**Artist**: Junk & Jones 
 
-**Track**: DVS MP3 PLAYER 023 | 18.09.20
+**Track**: WAPping On A Dream [Duke & Jones Edit]
 
-Last updated at 09/21/2020 16:45
+Last updated at 09/21/2020 19:47
