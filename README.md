@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtYOtXyfdV7g6EoG-MsEPFA-t50x50.jpg">](https://soundcloud.com/electricwavemusic/wavers-sample-pack-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993040-6xy6ts-t50x50.jpg">](https://soundcloud.com/lilaaron911/check-prod-dylan-brady?in=lilaaron911/sets/boyfriendz-smrtdeath-x-lil-aaron-x-lil-lotus)
 
-**Artist**: Electric Wave 
+**Artist**: lil aaron 
 
-**Track**: Wavers Sample Pack Vol.1
+**Track**: Check (Prod. Dylan Brady)
 
-Last updated at 09/22/2020 13:32
+Last updated at 09/22/2020 13:34
