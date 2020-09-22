@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNaAHAG8t4nF-0-t50x50.jpg">](https://soundcloud.com/officialmishaal/peddle-bike)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
 
-**Artist**: Mishaal 
+**Artist**: jakkyboí 
 
-**Track**: Peddle Bike
+**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
 
-Last updated at 09/22/2020 08:11
+Last updated at 09/22/2020 08:12
