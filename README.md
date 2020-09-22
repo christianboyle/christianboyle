@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q6L64TtIZfUyK9zA-8EOYJQ-t50x50.jpg">](https://soundcloud.com/imcurtiswaters/freckles)
 
-**Artist**: jakkyboí 
+**Artist**: Curtis Waters 
 
-**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
+**Track**: Freckles
 
-Last updated at 09/21/2020 20:29
+Last updated at 09/22/2020 08:09
