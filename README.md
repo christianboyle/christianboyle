@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFuz1dw3xs0oDl47-6pG9Kg-t50x50.jpg">](https://soundcloud.com/squired/tracer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpzLzJdZTIO06G1w-XkU2oQ-t50x50.jpg">](https://soundcloud.com/pinnaclecollective/b-lu)
 
-**Artist**: Squired 
+**Artist**: PINNACLE COLLECTIVE 
 
-**Track**: Tracer
+**Track**: BVRNOUT - Love U
 
-Last updated at 09/23/2020 10:06
+Last updated at 09/23/2020 10:10
