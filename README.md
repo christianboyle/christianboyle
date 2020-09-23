@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewUPFnDlhpYPM0nZ-XZMpzA-t50x50.jpg">](https://soundcloud.com/wearestereofox/misc-inc-amber)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvNpSK4vTKGeYTUi-BW6U3Q-t50x50.jpg">](https://soundcloud.com/zuubek/image)
 
-**Artist**: Stereofox.com 
+**Artist**: ZUUBEK 
 
-**Track**: misc.inc - Amber
+**Track**: Image
 
-Last updated at 09/23/2020 06:38
+Last updated at 09/23/2020 06:39
