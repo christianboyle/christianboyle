@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfMFPPnyWeRze0Oc-2yCdRw-t50x50.jpg">](https://soundcloud.com/grazcore/5kr1ll3x-w33k3nd5-graz-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
 
-**Artist**: GRAZ 
+**Artist**: lil aaron 
 
-**Track**: 5kr1ll3x - w33k3nd5 (Graz Flip)
+**Track**: QUIT (feat. Travis Barker)
 
-Last updated at 09/22/2020 21:19
+Last updated at 09/22/2020 21:20
