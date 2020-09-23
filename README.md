@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585307589-ihukqk-t50x50.jpg">](https://soundcloud.com/ygravy/yung-gravy-chief-keef-tampa-bay-bustdown-prod-by-y2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228497845-8dliw9-t50x50.jpg">](https://soundcloud.com/tudriox/xxxtentacion-look-at-me-y2k-edit)
 
-**Artist**: Yung Gravy 
+**Artist**: Ghost 
 
-**Track**: Yung Gravy & Chief Keef - Tampa Bay Bustdown (prod. by Y2K)
+**Track**: XXXTENTACION - Look At Me! (Y2K Remix)
 
-Last updated at 09/22/2020 20:58
+Last updated at 09/22/2020 21:00
