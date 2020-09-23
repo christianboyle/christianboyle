@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228497845-8dliw9-t50x50.jpg">](https://soundcloud.com/tudriox/xxxtentacion-look-at-me-y2k-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
 
-**Artist**: Ghost 
+**Artist**: lil aaron 
 
-**Track**: XXXTENTACION - Look At Me! (Y2K Remix)
+**Track**: QUIT (feat. Travis Barker)
 
-Last updated at 09/22/2020 21:00
+Last updated at 09/22/2020 21:01
