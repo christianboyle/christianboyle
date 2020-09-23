@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxZmKrF01RWXLWIA-zGf2Zw-t50x50.jpg">](https://soundcloud.com/sweaters/perfume-sweater-beats-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewUPFnDlhpYPM0nZ-XZMpzA-t50x50.jpg">](https://soundcloud.com/wearestereofox/misc-inc-amber)
 
-**Artist**: SWEATER BEATS 
+**Artist**: Stereofox.com 
 
-**Track**: Mehro - Perfume (Sweater Beats Remix)
+**Track**: misc.inc - Amber
 
-Last updated at 09/22/2020 21:31
+Last updated at 09/23/2020 06:38
