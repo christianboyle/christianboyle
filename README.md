@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220662598-dc044e-t50x50.jpg">](https://soundcloud.com/y2k2y/flex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585307589-ihukqk-t50x50.jpg">](https://soundcloud.com/ygravy/yung-gravy-chief-keef-tampa-bay-bustdown-prod-by-y2k)
 
-**Artist**: Y2K 
+**Artist**: Yung Gravy 
 
-**Track**: Lil Pump - Flex Like Ouu (Y2K Edit)
+**Track**: Yung Gravy & Chief Keef - Tampa Bay Bustdown (prod. by Y2K)
 
-Last updated at 09/22/2020 20:56
+Last updated at 09/22/2020 20:58
