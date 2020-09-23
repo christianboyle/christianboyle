@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpzLzJdZTIO06G1w-XkU2oQ-t50x50.jpg">](https://soundcloud.com/pinnaclecollective/b-lu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wE55Y2tcarpE-0-t50x50.png">](https://soundcloud.com/itsbeargrillz/bear-grillz-adventure-club-jt)
 
-**Artist**: PINNACLE COLLECTIVE 
+**Artist**: Bear Grillz 
 
-**Track**: BVRNOUT - Love U
+**Track**: Bear Grillz & Adventure Club & JT Roach - Where We Are
 
-Last updated at 09/23/2020 10:10
+Last updated at 09/23/2020 10:13
