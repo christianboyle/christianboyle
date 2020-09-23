@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUpy1G8xEqzsz5gF-7QX5rA-t50x50.jpg">](https://soundcloud.com/dropcentral/rats?in=hybridhouse/sets/rats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
 
-**Artist**: Drop Central 💧 
+**Artist**: lil aaron 
 
-**Track**: NEOX & Demski - Rats
+**Track**: QUIT (feat. Travis Barker)
 
-Last updated at 09/23/2020 12:28
+Last updated at 09/23/2020 12:29
