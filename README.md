@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRpDEyGMPdQZE8Zg-DGVAjw-t50x50.jpg">](https://soundcloud.com/nightserviceonly/cloverdale-krude-keep-dancing-out-now?in=nightserviceonly/sets/cloverdale-keep-dancing-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12Kn9vV9D146-0-t50x50.png">](https://soundcloud.com/hotelgarudamusic/leave-you)
 
-**Artist**: Night Service Only 
+**Artist**: HOTEL GARUDA 
 
-**Track**: Cloverdale & Krude - Keep Dancing [OUT NOW]
+**Track**: Leave You
 
-Last updated at 09/22/2020 20:52
+Last updated at 09/22/2020 20:53
