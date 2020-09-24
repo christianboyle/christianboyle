@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dA1iPwJEF1Mr-0-t50x50.jpg">](https://soundcloud.com/lilbootycall/do-or-die-feat-liana-banks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-197FAPUMcMW9dS8R-Foukxg-t50x50.jpg">](https://soundcloud.com/officialtrapparty/noctris-signal)
 
-**Artist**: ✿ lilbootycall ✿ 
+**Artist**: Trap Party 
 
-**Track**: Do or Die (feat. Liana Banks)
+**Track**: NØCTRIS - SIGNAL
 
-Last updated at 09/23/2020 20:54
+Last updated at 09/23/2020 20:55
