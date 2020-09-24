@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZ9QsyYuYCxEimb2-zxwKBA-t50x50.jpg">](https://soundcloud.com/trzbts/look-at-her-now-31)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5R6iEhPJ7V30Ybr-9uvSBA-t50x50.jpg">](https://soundcloud.com/trzbts/bleeding?in=trzbts/sets/tearz-beats)
 
 **Artist**: TEARZ 
 
-**Track**: H.E.R.
+**Track**: BLEEDING - feat. SEMATARY KID
 
-Last updated at 09/23/2020 20:52
+Last updated at 09/23/2020 20:53
