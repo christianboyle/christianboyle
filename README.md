@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8j0Tt6sArIzEzPVT-5d3ktg-t50x50.jpg">](https://soundcloud.com/prodnoyse/living-large)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3dvaruWNU25QLzCK-n8N0sA-t50x50.jpg">](https://soundcloud.com/lasoulofficial/flummox-feat-uncust?in=lasoulofficial/sets/flummox-ep)
 
-**Artist**: noyse. 
+**Artist**: La Soul 
 
-**Track**: LIVING LARGE
+**Track**: Flummox (Feat. UNCUST)
 
-Last updated at 09/24/2020 08:45
+Last updated at 09/24/2020 08:46
