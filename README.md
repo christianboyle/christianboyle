@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxZmKrF01RWXLWIA-zGf2Zw-t50x50.jpg">](https://soundcloud.com/sweaters/perfume-sweater-beats-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZjdboZvBqB0yR3CZ-5qmhkA-t50x50.jpg">](https://soundcloud.com/landisofficial/take-away-your-pain)
 
-**Artist**: SWEATER BEATS 
+**Artist**: Landis 
 
-**Track**: Mehro - Perfume (Sweater Beats Remix)
+**Track**: Take Away Your Pain
 
-Last updated at 09/24/2020 08:40
+Last updated at 09/24/2020 08:41
