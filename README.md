@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5R6iEhPJ7V30Ybr-9uvSBA-t50x50.jpg">](https://soundcloud.com/trzbts/bleeding?in=trzbts/sets/tearz-beats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dA1iPwJEF1Mr-0-t50x50.jpg">](https://soundcloud.com/lilbootycall/do-or-die-feat-liana-banks)
 
-**Artist**: TEARZ 
+**Artist**: ✿ lilbootycall ✿ 
 
-**Track**: BLEEDING - feat. SEMATARY KID
+**Track**: Do or Die (feat. Liana Banks)
 
-Last updated at 09/23/2020 20:53
+Last updated at 09/23/2020 20:54
