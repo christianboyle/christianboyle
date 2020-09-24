@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNzpIgHSql2rxxjX-JYoPNw-t50x50.jpg">](https://soundcloud.com/overeasyofficial/rose-mindtrix-ashley-mehtalost-atlas-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZ9QsyYuYCxEimb2-zxwKBA-t50x50.jpg">](https://soundcloud.com/trzbts/look-at-her-now-31)
 
-**Artist**: OVER EASY 
+**Artist**: TEARZ 
 
-**Track**: Rosé (with MiNDTRiX & Ashley Mehta)- Lost Atlas Remix
+**Track**: H.E.R.
 
-Last updated at 09/23/2020 20:51
+Last updated at 09/23/2020 20:52
