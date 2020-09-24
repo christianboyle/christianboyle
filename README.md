@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000183143802-fdxuu8-t50x50.jpg">](https://soundcloud.com/smpltnbeats/shoot-smpltn-shootleg-fluke-nukes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
 
-**Artist**: s m p l t n 
+**Artist**: jakkyboí 
 
-**Track**: shoot (smpltn shootleg)- fluke nukes
+**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
 
-Last updated at 09/23/2020 20:58
+Last updated at 09/23/2020 20:59
