@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNzpIgHSql2rxxjX-JYoPNw-t50x50.jpg">](https://soundcloud.com/overeasyofficial/rose-mindtrix-ashley-mehtalost-atlas-remix)
 
-**Artist**: lil aaron 
+**Artist**: OVER EASY 
 
-**Track**: QUIT (feat. Travis Barker)
+**Track**: Rosé (with MiNDTRiX & Ashley Mehta)- Lost Atlas Remix
 
-Last updated at 09/23/2020 12:29
+Last updated at 09/23/2020 20:51
