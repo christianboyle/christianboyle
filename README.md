@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/worlds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2ikUDITLssjqmxs-tEmnOQ-t50x50.jpg">](https://soundcloud.com/flummoxofficial/smoke)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Flummox 
 
-**Track**: Heimanu - Worlds
+**Track**: SMOKE
 
-Last updated at 09/23/2020 21:37
+Last updated at 09/24/2020 07:08
