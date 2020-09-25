@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr)
 
-**Artist**: onlytom ♴ 
+**Artist**: lil aaron 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: IDCIUDHMB (Prod. 4evr)
 
-Last updated at 09/25/2020 11:06
+Last updated at 09/25/2020 12:30
