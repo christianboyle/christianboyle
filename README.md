@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405562014-iw5rg7-t50x50.jpg">](https://soundcloud.com/jakkyboi/why-u-gotta-mean-so-much)
 
 **Artist**: jakkyboí 
 
-**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
+**Track**: Why u gotta mean so much? (VIDEO OUT NOW!)
 
-Last updated at 09/25/2020 12:33
+Last updated at 09/25/2020 12:35
