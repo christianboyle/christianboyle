@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573667619-fbgutb-t50x50.jpg">](https://soundcloud.com/kingtheta/king-theta-ft-jakkyboi-without-you)
 
-**Artist**: lil aaron 
+**Artist**: King Theta 
 
-**Track**: IDCIUDHMB (Prod. 4evr)
+**Track**: Without You (ft. jakkyboí)
 
-Last updated at 09/25/2020 15:38
+Last updated at 09/25/2020 16:26
