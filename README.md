@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBta6aHGAMU6-0-t50x50.png">](https://soundcloud.com/dorianelectra/edgelord-feat-rebecca-black)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573667619-fbgutb-t50x50.jpg">](https://soundcloud.com/kingtheta/king-theta-ft-jakkyboi-without-you)
 
-**Artist**: DORIAN ELECTRA 
+**Artist**: King Theta 
 
-**Track**: Edgelord (feat. Rebecca Black)
+**Track**: Without You (ft. jakkyboí)
 
-Last updated at 09/25/2020 12:44
+Last updated at 09/25/2020 12:45
