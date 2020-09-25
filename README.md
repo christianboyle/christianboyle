@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000314918634-r5n40r-t50x50.jpg">](https://soundcloud.com/grimyboi/carousel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr?in=lilaaron911/sets/boyfriendz-smrtdeath-x-lil-aaron-x-lil-lotus)
 
-**Artist**: GRIMYBOI 
+**Artist**: lil aaron 
 
-**Track**: CAROUSEL (prod. GRIMYBOI)
+**Track**: IDCIUDHMB (Prod. 4evr)
 
-Last updated at 09/25/2020 12:42
+Last updated at 09/25/2020 12:43
