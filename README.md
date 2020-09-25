@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr?in=lilaaron911/sets/boyfriendz-smrtdeath-x-lil-aaron-x-lil-lotus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBta6aHGAMU6-0-t50x50.png">](https://soundcloud.com/dorianelectra/edgelord-feat-rebecca-black)
 
-**Artist**: lil aaron 
+**Artist**: DORIAN ELECTRA 
 
-**Track**: IDCIUDHMB (Prod. 4evr)
+**Track**: Edgelord (feat. Rebecca Black)
 
-Last updated at 09/25/2020 12:43
+Last updated at 09/25/2020 12:44
