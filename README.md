@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573985976-ptv712-t50x50.jpg">](https://soundcloud.com/jakkyboi/i-dont-wanna-think-about-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573667619-fbgutb-t50x50.jpg">](https://soundcloud.com/kingtheta/king-theta-ft-jakkyboi-without-you)
 
-**Artist**: jakkyboí 
+**Artist**: King Theta 
 
-**Track**: i don't wanna think about it
+**Track**: Without You (ft. jakkyboí)
 
-Last updated at 09/25/2020 12:38
+Last updated at 09/25/2020 12:39
