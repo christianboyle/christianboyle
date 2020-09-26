@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000245922126-z8prmc-t50x50.jpg">](https://soundcloud.com/nothingnowheremusic/hopes-up-ftdashboard-confessional)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: nothing,nowhere. 
+**Artist**: King Theta 
 
-**Track**: hopes up (ft. dashboard confessional)
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/25/2020 21:33
+Last updated at 09/25/2020 21:34
