@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573667619-fbgutb-t50x50.jpg">](https://soundcloud.com/kingtheta/king-theta-ft-jakkyboi-without-you)
 
-**Artist**: Monstercat 
+**Artist**: King Theta 
 
-**Track**: Stonebank & EMEL - Healing Me
+**Track**: Without You (ft. jakkyboí)
 
-Last updated at 09/25/2020 16:49
+Last updated at 09/25/2020 21:18
