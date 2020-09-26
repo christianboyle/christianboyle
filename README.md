@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour?in=kingtheta/sets/getting-over-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196580-9hu077-t50x50.jpg">](https://soundcloud.com/kingtheta/get-over-it?in=kingtheta/sets/getting-over-it)
 
 **Artist**: King Theta 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: Getting Over It
 
-Last updated at 09/25/2020 21:24
+Last updated at 09/25/2020 21:26
