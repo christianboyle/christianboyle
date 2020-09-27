@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/worlds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: SABLE VALLEY 
+**Artist**: King Theta 
 
-**Track**: Heimanu - Worlds
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/27/2020 11:19
+Last updated at 09/27/2020 14:37
