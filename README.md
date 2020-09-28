@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj?in=girldust/sets/drugmusic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wITxcSjVM1DbYszX-bsOFyA-t50x50.jpg">](https://soundcloud.com/brashbeats/alaflow-galactic-original-mix)
 
-**Artist**: Lil Koi! 
+**Artist**: BRASH BEATS 
 
-**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
+**Track**: ALAFLOW - Galactic (Original Mix)
 
-Last updated at 09/28/2020 07:59
+Last updated at 09/28/2020 08:00
