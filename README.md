@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QZC4gid4XVvKAPn-PE5VOw-t50x50.jpg">](https://soundcloud.com/nocv/reason)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj?in=girldust/sets/drugmusic)
 
-**Artist**: Noc.V 
+**Artist**: Lil Koi! 
 
-**Track**: Reason
+**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
 
-Last updated at 09/27/2020 15:03
+Last updated at 09/28/2020 07:59
