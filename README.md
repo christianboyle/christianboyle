@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnQSiiOK4bSiuTL3-qYIkNQ-t50x50.jpg">](https://soundcloud.com/traptownrecords/mantra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-481bBsybBrLZzGeU-iUpjSw-t50x50.jpg">](https://soundcloud.com/future-house-cloud/miss_you)
 
-**Artist**: Trap Town Records 
+**Artist**: Future House Cloud 
 
-**Track**: Murdbrain, Level 8 - Mantra
+**Track**: Blaze U - Miss You
 
-Last updated at 09/28/2020 08:02
+Last updated at 09/28/2020 08:03
