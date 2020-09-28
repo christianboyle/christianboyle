@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405562014-iw5rg7-t50x50.jpg">](https://soundcloud.com/jakkyboi/why-u-gotta-mean-so-much)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYyoIZfTgldBHBw9-sQlUNg-t50x50.jpg">](https://soundcloud.com/eldia0001/dazegxd-crush-on-u-ft-miku?in=dazegxd/sets/xakyn_ep-via-eldia)
 
-**Artist**: jakkyboí 
+**Artist**: eldia 
 
-**Track**: Why u gotta mean so much? (VIDEO OUT NOW!)
+**Track**: dazegxd - crush on u (ft. Miku, Tayparadox & Evalina)
 
-Last updated at 09/28/2020 12:19
+Last updated at 09/28/2020 14:44
