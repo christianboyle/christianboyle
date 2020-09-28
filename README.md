@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMhNx6fgcX8GWEW9-qPzKfQ-t50x50.jpg">](https://soundcloud.com/araxia/lovr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196580-9hu077-t50x50.jpg">](https://soundcloud.com/kingtheta/get-over-it?in=kingtheta/sets/getting-over-it)
 
-**Artist**: raxia 
+**Artist**: King Theta 
 
-**Track**: Lov-r (braincoat+rax)
+**Track**: Getting Over It
 
-Last updated at 09/28/2020 14:54
+Last updated at 09/28/2020 14:55
