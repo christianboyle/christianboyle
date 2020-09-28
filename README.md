@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000476712129-3yk7p4-t50x50.jpg">](https://soundcloud.com/soundislimitless/r-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dn1HNRu8okQwzKEY-9UFbfQ-t50x50.jpg">](https://soundcloud.com/alltrapnation/data_haven-digital-volition?in=alltrapnation/sets/midnight2077)
 
-**Artist**: LMTLESS 
+**Artist**: Trap Nation 
 
-**Track**: LMTLESS Radio #1
+**Track**: Data_haven - Digital Volition
 
-Last updated at 09/28/2020 08:39
+Last updated at 09/28/2020 08:40
