@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463073598-y1kkrj-t50x50.jpg">](https://soundcloud.com/tweekacore/luv-u-more-tweekacore-x-gammer-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: Tweekacore 
+**Artist**: King Theta 
 
-**Track**: Paul Elstak - Luv U More (Tweekacore x Gammer Flip)
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/28/2020 10:00
+Last updated at 09/28/2020 10:02
