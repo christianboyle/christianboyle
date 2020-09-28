@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2CmAM1ByCg1ePZr-iehMxg-t50x50.jpg">](https://soundcloud.com/lexim_music/take-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: LEXIM 
+**Artist**: King Theta 
 
-**Track**: LEXIM - Take it Back (Ft. Izabel)
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/28/2020 08:55
+Last updated at 09/28/2020 08:56
