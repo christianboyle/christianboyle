@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dn1HNRu8okQwzKEY-9UFbfQ-t50x50.jpg">](https://soundcloud.com/alltrapnation/data_haven-digital-volition?in=alltrapnation/sets/midnight2077)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2CmAM1ByCg1ePZr-iehMxg-t50x50.jpg">](https://soundcloud.com/lexim_music/take-it-back)
 
-**Artist**: Trap Nation 
+**Artist**: LEXIM 
 
-**Track**: Data_haven - Digital Volition
+**Track**: LEXIM - Take it Back (Ft. Izabel)
 
-Last updated at 09/28/2020 08:40
+Last updated at 09/28/2020 08:55
