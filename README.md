@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour?in=kingtheta/sets/getting-over-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196280-446vy8-t50x50.jpg">](https://soundcloud.com/kingtheta/debt-of-my-youth?in=kingtheta/sets/getting-over-it)
 
 **Artist**: King Theta 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: Debt of My Youth
 
-Last updated at 09/28/2020 09:08
+Last updated at 09/28/2020 09:11
