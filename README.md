@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423959466-5z1w4r-t50x50.jpg">](https://soundcloud.com/oneseventy/darren-styles-satellite-technikore-jts-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573667619-fbgutb-t50x50.jpg">](https://soundcloud.com/kingtheta/king-theta-ft-jakkyboi-without-you)
 
-**Artist**: OneSeventy 
+**Artist**: King Theta 
 
-**Track**: Darren Styles - Satellite (Technikore & JTS Remix) [FREE DOWNLOAD]
+**Track**: Without You (ft. jakkyboí)
 
-Last updated at 09/28/2020 11:40
+Last updated at 09/28/2020 12:16
