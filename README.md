@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wITxcSjVM1DbYszX-bsOFyA-t50x50.jpg">](https://soundcloud.com/brashbeats/alaflow-galactic-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnQSiiOK4bSiuTL3-qYIkNQ-t50x50.jpg">](https://soundcloud.com/traptownrecords/mantra)
 
-**Artist**: BRASH BEATS 
+**Artist**: Trap Town Records 
 
-**Track**: ALAFLOW - Galactic (Original Mix)
+**Track**: Murdbrain, Level 8 - Mantra
 
-Last updated at 09/28/2020 08:00
+Last updated at 09/28/2020 08:02
