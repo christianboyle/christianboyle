@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196580-9hu077-t50x50.jpg">](https://soundcloud.com/kingtheta/get-over-it?in=kingtheta/sets/getting-over-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3hVb8iuuKheFtKN-CZVtGw-t50x50.jpg">](https://soundcloud.com/bitbird/sofasound-you-been-on-my-mind-ft-falcxne?in=sofasound-beats/sets/you-been-on-my-mind-ft-falcxne)
 
-**Artist**: King Theta 
+**Artist**: bitbird 
 
-**Track**: Getting Over It
+**Track**: Sofasound - You Been On My Mind (ft. falcxne)
 
-Last updated at 09/28/2020 14:55
+Last updated at 09/28/2020 21:01
