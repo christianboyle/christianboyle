@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuCrvy7H1QRzuTcF-M3pYMg-t50x50.jpg">](https://soundcloud.com/1glaive/sticks)
 
-**Artist**: STRIDER 
+**Artist**: glaive 
 
-**Track**: NONSTOPWORLD 2 - STRIDER
+**Track**: sticks (p. heartdept)
 
-Last updated at 09/29/2020 16:41
+Last updated at 09/29/2020 16:50
