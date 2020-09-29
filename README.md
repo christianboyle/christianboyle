@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gi8zRUYg9mmyJyvR-xHxzSg-t50x50.jpg">](https://soundcloud.com/trapicalmusic/thebaddest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FRPHmVGx4jLaEWpT-qyBeYA-t50x50.jpg">](https://soundcloud.com/bdhbt/eazybaked-bandzzz-bd-hbt-remix-1)
 
-**Artist**: Trapical Music 
+**Artist**: bd hbt 
 
-**Track**: K/DA - THE BADDEST (Bento x Sincat x Wine Remix)
+**Track**: EAZYBAKED - Bandzzz (bd hbt Remix)
 
-Last updated at 09/28/2020 21:07
+Last updated at 09/28/2020 21:10
