@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FRPHmVGx4jLaEWpT-qyBeYA-t50x50.jpg">](https://soundcloud.com/bdhbt/eazybaked-bandzzz-bd-hbt-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TwfklJC9HDEbM36-g7Ezgw-t50x50.jpg">](https://soundcloud.com/discipleroundtable/gabsisrevenge?in=discipleroundtable/sets/nomoreheroezep)
 
-**Artist**: bd hbt 
+**Artist**: Disciple Round Table 
 
-**Track**: EAZYBAKED - Bandzzz (bd hbt Remix)
+**Track**: NVADRZ - Gabsi's Revenge [FREE DOWNLOAD]
 
-Last updated at 09/28/2020 21:10
+Last updated at 09/28/2020 21:12
