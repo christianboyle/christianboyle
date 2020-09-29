@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TwfklJC9HDEbM36-g7Ezgw-t50x50.jpg">](https://soundcloud.com/nvadrz/maribordeathvalley?in=discipleroundtable/sets/nomoreheroezep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2BjFUQNXjm1YqzCj-W0gg9A-t50x50.jpg">](https://soundcloud.com/discipleroundtable/hellbent?in=discipleroundtable/sets/nomoreheroezep)
 
-**Artist**: NVADRZ 
+**Artist**: Disciple Round Table 
 
-**Track**: Maribor Death Valley
+**Track**: NVADRZ - Hellbent
 
-Last updated at 09/28/2020 21:15
+Last updated at 09/28/2020 21:18
