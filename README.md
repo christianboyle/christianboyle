@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPXzWl2OyoOH-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
 
-**Artist**: smrtdeath 
+**Artist**: headasin 
 
-**Track**: Headed To My Funeral
+**Track**: carti flip
 
-Last updated at 09/29/2020 14:40
+Last updated at 09/29/2020 16:10
