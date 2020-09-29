@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2BjFUQNXjm1YqzCj-W0gg9A-t50x50.jpg">](https://soundcloud.com/discipleroundtable/easyscapegoats?in=discipleroundtable/sets/nomoreheroezep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90U1e5AjyaO5BHLD-zqIO3Q-t50x50.jpg">](https://soundcloud.com/sinphonyrecs/timmy-trumpet-sub-zero-project-project-x)
 
-**Artist**: Disciple Round Table 
+**Artist**: sinphonyrecs 
 
-**Track**: NVADRZ & ALIAS - Easy Scapegoats
+**Track**: Timmy Trumpet & Sub Zero Project - Project X
 
-Last updated at 09/29/2020 07:38
+Last updated at 09/29/2020 07:39
