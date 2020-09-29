@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
 
-**Artist**: Opal Fruits 
+**Artist**: smrtdeath 
 
-**Track**: OFMIX - 019 [counsel pop]
+**Track**: Waterfall
 
-Last updated at 09/29/2020 12:16
+Last updated at 09/29/2020 13:23
