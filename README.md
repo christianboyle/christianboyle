@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Wy8zIt91HjufH5t-853dlA-t50x50.jpg">](https://soundcloud.com/sunivega/glass-jin-winter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gi8zRUYg9mmyJyvR-xHxzSg-t50x50.jpg">](https://soundcloud.com/trapicalmusic/thebaddest)
 
-**Artist**: suni vega 
+**Artist**: Trapical Music 
 
-**Track**: JIN WINTER - GLASS (prod. suni vega)
+**Track**: K/DA - THE BADDEST (Bento x Sincat x Wine Remix)
 
-Last updated at 09/28/2020 21:05
+Last updated at 09/28/2020 21:07
