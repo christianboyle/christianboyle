@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2T05dGAf7uQS3Uyy-Wd08xg-t50x50.jpg">](https://soundcloud.com/majesticfamilyrecordings/ira-ange-feat-qosmos-let-it-fly-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HQZYtZ25uvN9ue4H-INyPAw-t50x50.jpg">](https://soundcloud.com/skuddofficial/skudd-octane-1)
 
-**Artist**: Majestic Family 
+**Artist**: SKUDD 
 
-**Track**: Ira Ange Feat. Qosmos  - Let It Fly (Original Mix)
+**Track**: Octane
 
-Last updated at 09/29/2020 08:18
+Last updated at 09/29/2020 08:19
