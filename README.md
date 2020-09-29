@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ELmwqjT9kMsGFhE-MTJXxw-t50x50.jpg">](https://soundcloud.com/talegatemusic/gryffin-chris-lane-hold-you-tonight-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0trdrDqAyCKSSA1D-xzOPrA-t50x50.jpg">](https://soundcloud.com/oneseventy/dougal-x-technikore-x-jts-two-hearts-radio-edit)
 
-**Artist**: talegate 
+**Artist**: OneSeventy 
 
-**Track**: Gryffin & Chris Lane - Hold You Tonight (talegate remix)
+**Track**: Dougal x Technikore x JTS - Two Hearts (Radio Edit)
 
-Last updated at 09/29/2020 14:09
+Last updated at 09/29/2020 14:12
