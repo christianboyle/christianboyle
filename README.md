@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zDqkLPK5QsxgRJf-fw5DYA-t50x50.jpg">](https://soundcloud.com/hybridtrapmusic/throne?in=freakyofficial/sets/throne-w-stoutty-hybrid-trap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gi8zRUYg9mmyJyvR-xHxzSg-t50x50.jpg">](https://soundcloud.com/trapicalmusic/thebaddest)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Trapical Music 
 
-**Track**: FREAKY & Stoutty - THRONE
+**Track**: K/DA - THE BADDEST (Bento x Sincat x Wine Remix)
 
-Last updated at 09/30/2020 07:51
+Last updated at 09/30/2020 07:52
