@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n16hOpK8oaxqBnE2-bsEYeQ-t50x50.jpg">](https://soundcloud.com/sikdope/show-me-love-sd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTtXBk2Qudh2QQFT-02bqKQ-t50x50.jpg">](https://soundcloud.com/musicluxholm/wauwnw)
 
-**Artist**: Sikdope 
+**Artist**: Lux Holm 
 
-**Track**: Show Me Love
+**Track**: Lux Holm - who are u when nobody's watching
 
-Last updated at 09/30/2020 08:00
+Last updated at 09/30/2020 08:03
