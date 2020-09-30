@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnpP2LHt7O7XldBQ-4JSqkg-t50x50.jpg">](https://soundcloud.com/embrz/safe-ft-wilo-wilde-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CtyUzPc68b4YJRjf-m6XYYA-t50x50.jpg">](https://soundcloud.com/jaycenamour/tictok)
 
-**Artist**: EMBRZ 
+**Artist**: Jaycen A'mour 
 
-**Track**: Safe ft. wilo wilde
+**Track**: Jaycen A'mour - Tic Tok
 
-Last updated at 09/30/2020 08:06
+Last updated at 09/30/2020 08:10
