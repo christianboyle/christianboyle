@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000200999754-uoogm3-t50x50.jpg">](https://soundcloud.com/kyris-official/dj-snake-ft-justin-bieber-let-me-love-you-killerx-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: Kyris 
+**Artist**: King Theta 
 
-**Track**: Dj Snake Ft. Justin Bieber - Let Me Love You (Killerx Remake) [FREE ABLETON PROJECT FILE]
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/30/2020 10:17
+Last updated at 09/30/2020 11:54
