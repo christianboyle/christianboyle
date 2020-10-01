@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GTTHTYJQkDDqFZBF-wf3sKg-t50x50.jpg">](https://soundcloud.com/imtheobsidian/drugmetal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chofGETWuWCCCvvV-V3dyNw-t50x50.jpg">](https://soundcloud.com/cgagency/cgradio-sessions-50-highsociety)
 
-**Artist**: The Øbsidian 
+**Artist**: CGAgency 
 
-**Track**: Drug Metal
+**Track**: CGRadio Sessions 50 - HIGHSOCIETY
 
-Last updated at 10/01/2020 07:57
+Last updated at 10/01/2020 08:00
