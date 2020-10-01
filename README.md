@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5XFtrPcBPyW5-0-t50x50.png">](https://soundcloud.com/biggigantic/big-gigantic-featuring-trella?in=weareplusplus/sets/best-electronic-music-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZ7q9rVe9w3O7xE0-M0aWLg-t50x50.jpg">](https://soundcloud.com/patlok/freefall-w-thandi-phoenix-brux)
 
-**Artist**: Big Gigantic 
+**Artist**: Pat Lok 駱哲彦 
 
-**Track**: Big Gigantic featuring Trella - Moonlight (Daniel Allan Remix)
+**Track**: Pat Lok - Freefall w/ Thandi Phoenix (BRUX Remix)
 
-Last updated at 10/01/2020 17:15
+Last updated at 10/01/2020 17:16
