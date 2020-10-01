@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5hA4XSPkg1jJWRv-npiqKw-t50x50.jpg">](https://soundcloud.com/deadcrxw/astronomia-1)
 
-**Artist**: smrtdeath 
+**Artist**: Deadcrow 
 
-**Track**: better off (prod. audioopera)
+**Track**: ASTRONOMIA
 
-Last updated at 10/01/2020 17:08
+Last updated at 10/01/2020 17:11
