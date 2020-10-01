@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6xDWJTQ9M86OQu83-lhf4oQ-t50x50.jpg">](https://soundcloud.com/2clcbbi/mr-yhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cob3grBa7D50uyrz-eyzGxw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/jpb-long-night-feat-marvin-divine-ncs-release)
 
-**Artist**: lc sidecloud 
+**Artist**: NCS 
 
-**Track**: mr yhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+**Track**: JPB - LONG NIGHT (feat. Marvin Divine) [NCS Release]
 
-Last updated at 10/01/2020 17:19
+Last updated at 10/01/2020 17:20
