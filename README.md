@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDWzYQyiVOot6Q67-95z33g-t50x50.jpg">](https://soundcloud.com/ne-sm/youre-going-to-be-okay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZBHdm1Y0tDPdLrCz-pANbog-t50x50.jpg">](https://soundcloud.com/kowta/data-transfer-1)
 
-**Artist**: Neoplasm 
+**Artist**: KOWTA 
 
-**Track**: Himera - You're Going To Be Okay
+**Track**: Data Transfer
 
-Last updated at 10/01/2020 17:12
+Last updated at 10/01/2020 17:13
