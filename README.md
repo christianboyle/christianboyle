@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196580-9hu077-t50x50.jpg">](https://soundcloud.com/kingtheta/get-over-it?in=kingtheta/sets/getting-over-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196505-k1sa5b-t50x50.jpg">](https://soundcloud.com/kingtheta/closure-ft-t-shan?in=kingtheta/sets/getting-over-it)
 
 **Artist**: King Theta 
 
-**Track**: Getting Over It
+**Track**: Closure ft. T Shan
 
-Last updated at 10/01/2020 08:58
+Last updated at 10/01/2020 09:00
