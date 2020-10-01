@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nE9bbTol6hjmd4Ic-21LZkg-t50x50.jpg">](https://soundcloud.com/bignslim/big-n-slim-x-madreckless-reign-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh6IvE0sryGav9AK-FZaabw-t50x50.jpg">](https://soundcloud.com/tydosongs/awakening)
 
-**Artist**: BIG N SLIM 
+**Artist**: Tydo 
 
-**Track**: Big N Slim X Madreckless - Reign
+**Track**: Awakening
 
-Last updated at 10/01/2020 07:49
+Last updated at 10/01/2020 07:50
