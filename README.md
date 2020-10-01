@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZ7q9rVe9w3O7xE0-M0aWLg-t50x50.jpg">](https://soundcloud.com/patlok/freefall-w-thandi-phoenix-brux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZVB5gLNHyQ1NFVy-SfQS6Q-t50x50.jpg">](https://soundcloud.com/trekkie-trax/andrew-bombtrack-feat-peavis-saint-vega)
 
-**Artist**: Pat Lok 駱哲彦 
+**Artist**: TREKKIE TRAX 
 
-**Track**: Pat Lok - Freefall w/ Thandi Phoenix (BRUX Remix)
+**Track**: andrew - Bombtrack (feat. なかむらみなみ, Peavis & Saint Vega)
 
-Last updated at 10/01/2020 17:16
+Last updated at 10/01/2020 17:17
