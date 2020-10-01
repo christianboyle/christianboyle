@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: lil aaron 
+**Artist**: smrtdeath 
 
-**Track**: QUIT (feat. Travis Barker)
+**Track**: better off (prod. audioopera)
 
-Last updated at 09/30/2020 20:57
+Last updated at 09/30/2020 20:59
