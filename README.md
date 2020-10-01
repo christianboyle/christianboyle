@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596921738-scy56w-t50x50.jpg">](https://soundcloud.com/nothanksmusic/wasabi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GTTHTYJQkDDqFZBF-wf3sKg-t50x50.jpg">](https://soundcloud.com/imtheobsidian/drugmetal)
 
-**Artist**: No Thanks 
+**Artist**: The Øbsidian 
 
-**Track**: Party Favor & Salvatore Ganacci - Wasabi (No Thanks Remix)
+**Track**: Drug Metal
 
-Last updated at 10/01/2020 07:55
+Last updated at 10/01/2020 07:57
