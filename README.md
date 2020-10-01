@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcwjyuuKyJM3x0nc-JhW0fQ-t50x50.jpg">](https://soundcloud.com/ayaz-me/wdy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596921738-scy56w-t50x50.jpg">](https://soundcloud.com/nothanksmusic/wasabi)
 
-**Artist**: xyaz 
+**Artist**: No Thanks 
 
-**Track**: wdy w/ maxx☿
+**Track**: Party Favor & Salvatore Ganacci - Wasabi (No Thanks Remix)
 
-Last updated at 10/01/2020 07:53
+Last updated at 10/01/2020 07:55
