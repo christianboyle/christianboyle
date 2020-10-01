@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QVmmK3eUPCPc-0-t50x50.jpg">](https://soundcloud.com/tyzobloom/bedroom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: Tyzo Bloom 
+**Artist**: King Theta 
 
-**Track**: BEDROOM
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 09/30/2020 15:53
+Last updated at 09/30/2020 20:47
