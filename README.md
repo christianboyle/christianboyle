@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265992980-915r41-t50x50.jpg">](https://soundcloud.com/lilaaron911/painless-prod-seann-bowe?in=lilaaron911/sets/boyfriendz-smrtdeath-x-lil-aaron-x-lil-lotus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265992962-ntyt1j-t50x50.jpg">](https://soundcloud.com/lilaaron911/punk-rock-boy-prod-4evr?in=lilaaron911/sets/boyfriendz-smrtdeath-x-lil-aaron-x-lil-lotus)
 
 **Artist**: lil aaron 
 
-**Track**: Painless (Prod. Seann Bowe)
+**Track**: Punk Rock Boy (Prod. 4evr)
 
-Last updated at 10/01/2020 09:31
+Last updated at 10/01/2020 09:34
