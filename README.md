@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chofGETWuWCCCvvV-V3dyNw-t50x50.jpg">](https://soundcloud.com/cgagency/cgradio-sessions-50-highsociety)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hZNPt6LJJvViz9gi-9eyoFg-t50x50.jpg">](https://soundcloud.com/cloudnightcor3/b0y-t0y)
 
-**Artist**: CGAgency 
+**Artist**: SKY☁️NXC 
 
-**Track**: CGRadio Sessions 50 - HIGHSOCIETY
+**Track**: B0Y T0Y
 
-Last updated at 10/01/2020 08:00
+Last updated at 10/01/2020 08:35
