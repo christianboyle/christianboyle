@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5M0f4Xh4BRgTIwvP-v9zRag-t50x50.jpg">](https://soundcloud.com/skyfou/money-trees-prod-grimyboi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxsJWDKz9zazBsZi-z8KO5g-t50x50.jpg">](https://soundcloud.com/kavverhouzer/verhouze-party-mixtape-005)
 
-**Artist**: SsappyY 
+**Artist**: KAV VERHOUZER 
 
-**Track**: Money Trees (prod. GRIMYBOI)
+**Track**: VERHOUZE PARTY MIXTAPE 005 (recorded live) [YouTube video of live set in description]
 
-Last updated at 10/01/2020 08:39
+Last updated at 10/01/2020 08:40
