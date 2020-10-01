@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hZNPt6LJJvViz9gi-9eyoFg-t50x50.jpg">](https://soundcloud.com/cloudnightcor3/b0y-t0y)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F4yHXEeNdtzzKJ2W-1YgriA-t50x50.jpg">](https://soundcloud.com/particaartistgroup/anthem)
 
-**Artist**: SKY☁️NXC 
+**Artist**: Partica Artist Group 
 
-**Track**: B0Y T0Y
+**Track**: Lasse - Anthem
 
-Last updated at 10/01/2020 08:35
+Last updated at 10/01/2020 08:36
