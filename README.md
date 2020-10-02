@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zw5rwPCpVBqd-0-t50x50.png">](https://soundcloud.com/smrtdeath/she-told-me-to-kill-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQKLb9bDwJFc6aLb-ODOzlw-t50x50.jpg">](https://soundcloud.com/skypierr/violence-1)
 
-**Artist**: smrtdeath 
+**Artist**: skypierr 
 
-**Track**: She Told Me to Kill Myself
+**Track**: VIOLENCE
 
-Last updated at 10/02/2020 11:23
+Last updated at 10/02/2020 13:48
