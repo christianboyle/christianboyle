@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P9Ej9nzhNNlHfO2O-hyRtOw-t50x50.jpg">](https://soundcloud.com/blvdmusic/blvd-switch-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000670401313-vd3jmp-t50x50.jpg">](https://soundcloud.com/yungbooshi/leanin)
 
-**Artist**: BLVD. 
+**Artist**: BOOSHI 
 
-**Track**: BLVD. - Switch It
+**Track**: Leanin
 
-Last updated at 10/01/2020 21:54
+Last updated at 10/01/2020 21:55
