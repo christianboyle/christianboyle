@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QVmmK3eUPCPc-0-t50x50.jpg">](https://soundcloud.com/tyzobloom/bedroom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QZC4gid4XVvKAPn-PE5VOw-t50x50.jpg">](https://soundcloud.com/nocv/reason)
 
-**Artist**: Tyzo Bloom 
+**Artist**: Noc.V 
 
-**Track**: BEDROOM
+**Track**: Reason
 
-Last updated at 10/02/2020 14:18
+Last updated at 10/02/2020 14:21
