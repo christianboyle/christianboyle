@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463073598-y1kkrj-t50x50.jpg">](https://soundcloud.com/tweekacore/luv-u-more-tweekacore-x-gammer-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
 
-**Artist**: Tweekacore 
+**Artist**: HPTG Music 
 
-**Track**: Paul Elstak - Luv U More (Tweekacore x Gammer Flip)
+**Track**: Hotchkiss - Need You Now
 
-Last updated at 10/02/2020 09:59
+Last updated at 10/02/2020 10:03
