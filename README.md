@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oy2pvtFv4E7QicQ3-GvPyZg-t50x50.jpg">](https://soundcloud.com/grrl-music/grrl-60-min-secret-sky-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N9myTNwOpmzylRev-yV3OPw-t50x50.jpg">](https://soundcloud.com/m3nacemusic/land-of-the-lost-vol-2?in=m3nacemusic/sets/land-of-the-lost-vol-2)
 
-**Artist**: 𝑮𝑹𝑹𝑳 
+**Artist**: M3NACE 
 
-**Track**: GRRL Secret Sky Set
+**Track**: LAND OF THE LOST VOL. 2
 
-Last updated at 10/01/2020 22:00
+Last updated at 10/02/2020 08:01
