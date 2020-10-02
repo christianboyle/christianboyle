@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/worlds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
 
-**Artist**: SABLE VALLEY 
+**Artist**: 󠀡󠀡BEN IS DYING 
 
-**Track**: Heimanu - Worlds
+**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
 
-Last updated at 10/02/2020 10:12
+Last updated at 10/02/2020 10:17
