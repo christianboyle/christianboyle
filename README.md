@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xx5plMMiMG7BQ5bL-A7DKDg-t50x50.jpg">](https://soundcloud.com/subsidia/kompany-make-it-hot?in=kompanymusic/sets/make-it-hot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5L7hjPKbyo83oEwX-W0xzPw-t50x50.jpg">](https://soundcloud.com/enforcerecords/halflife)
 
-**Artist**: Subsidia 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: Kompany - Make It Hot
+**Track**: I See Colors & Skyler Cocco - Half Life
 
-Last updated at 10/02/2020 13:59
+Last updated at 10/02/2020 14:00
