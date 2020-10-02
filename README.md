@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592535363-cf1v2a-t50x50.jpg">](https://soundcloud.com/aokamura/la1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oy2pvtFv4E7QicQ3-GvPyZg-t50x50.jpg">](https://soundcloud.com/grrl-music/grrl-60-min-secret-sky-mix)
 
-**Artist**: AObeats 
+**Artist**: 𝑮𝑹𝑹𝑳 
 
-**Track**: LA ft. Ravenna Golden
+**Track**: GRRL Secret Sky Set
 
-Last updated at 10/01/2020 21:59
+Last updated at 10/01/2020 22:00
