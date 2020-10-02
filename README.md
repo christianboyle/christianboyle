@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000481716570-9q4pwt-t50x50.jpg">](https://soundcloud.com/030303recs/intercell-030303-djs-25012019-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: 030303RECORDS 
+**Artist**: King Theta 
 
-**Track**: 03030 dj's live @ Intercell Acidnight 25.01.2019
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 10/02/2020 09:06
+Last updated at 10/02/2020 09:17
