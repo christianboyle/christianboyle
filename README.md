@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zw5rwPCpVBqd-0-t50x50.png">](https://soundcloud.com/smrtdeath/she-told-me-to-kill-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxZmKrF01RWXLWIA-zGf2Zw-t50x50.jpg">](https://soundcloud.com/sweaters/perfume-sweater-beats-remix-1)
 
-**Artist**: smrtdeath 
+**Artist**: SWEATER BEATS 
 
-**Track**: She Told Me to Kill Myself
+**Track**: Mehro - Perfume (Sweater Beats Remix)
 
-Last updated at 10/02/2020 09:36
+Last updated at 10/02/2020 09:39
