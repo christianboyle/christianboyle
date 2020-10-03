@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000242379606-e5zhk9-t50x50.jpg">](https://soundcloud.com/cgilly-1/guilty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-McKztKectBQuz5jy-upZJNA-t50x50.jpg">](https://soundcloud.com/emengydeep/elazion-robbie-rosen-wild-and-free-radio-mix?in=side_fx/sets/future-vibes)
 
-**Artist**: Chloe Gilligan 
+**Artist**: emengy deep 
 
-**Track**: Guilty
+**Track**: Elazion & Robbie Rosen - Wild and Free (Radio Mix)
 
-Last updated at 10/02/2020 20:27
+Last updated at 10/02/2020 20:28
