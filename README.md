@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dn1HNRu8okQwzKEY-9UFbfQ-t50x50.jpg">](https://soundcloud.com/alltrapnation/hyperforms-sbu-heartbeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QiInE5nZJ4VSgKR-SQLdNg-t50x50.jpg">](https://soundcloud.com/cgilly-1/go-1)
 
-**Artist**: Trap Nation 
+**Artist**: Chloe Gilligan 
 
-**Track**: hyperforms & SBU - Heartbeat
+**Track**: Go
 
-Last updated at 10/02/2020 20:24
+Last updated at 10/02/2020 20:25
