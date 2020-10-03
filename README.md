@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVmTk7D20td1-0-t50x50.jpg">](https://soundcloud.com/tyzobloom/tv-feat-pom-pom-squad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeupYcpQDle4Eopf-D1o2YA-t50x50.jpg">](https://soundcloud.com/kayzo-music/blindside)
 
-**Artist**: Tyzo Bloom 
+**Artist**: KAYZO 
 
-**Track**: TV (feat. Pom Pom Squad)
+**Track**: KAYZO X PIXEL TERROR - BLINDSIDE
 
-Last updated at 10/02/2020 20:33
+Last updated at 10/03/2020 14:53
