@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CazLvvuocA9NeXGc-SUahCQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-architect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9HCgqZSKU7D8SAK-u5Z64A-t50x50.jpg">](https://soundcloud.com/plukomusic/redux)
 
-**Artist**: Sublab 
+**Artist**: pluko 
 
-**Track**: 💙 LOVE ARCHITECT 🌐
+**Track**: redux (w/ Chopsoe)
 
-Last updated at 10/02/2020 19:39
+Last updated at 10/02/2020 20:23
