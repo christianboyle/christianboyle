@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeupYcpQDle4Eopf-D1o2YA-t50x50.jpg">](https://soundcloud.com/kayzo-music/blindside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
 
-**Artist**: KAYZO 
+**Artist**: Milk N Cooks 
 
-**Track**: KAYZO X PIXEL TERROR - BLINDSIDE
+**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
 
-Last updated at 10/05/2020 16:46
+Last updated at 10/05/2020 17:45
