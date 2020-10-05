@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9HCgqZSKU7D8SAK-u5Z64A-t50x50.jpg">](https://soundcloud.com/plukomusic/redux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
 
-**Artist**: pluko 
+**Artist**: Milk N Cooks 
 
-**Track**: redux (w/ Chopsoe)
+**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
 
-Last updated at 10/05/2020 08:59
+Last updated at 10/05/2020 09:00
