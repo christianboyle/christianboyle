@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcldielWzoNPSitz-50kKmA-t50x50.jpg">](https://soundcloud.com/beweirdbeoriginal/watch-me-burn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMY6WNr13NDO-0-t50x50.jpg">](https://soundcloud.com/lilzubin/perfect-hell)
 
-**Artist**: BWBO 
+**Artist**: lil zubin 
 
-**Track**: NeoQor feat. Evangeline - Watch Me Burn (Radio Edit)
+**Track**: Perfect Hell
 
-Last updated at 10/03/2020 14:56
+Last updated at 10/04/2020 20:43
