@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
 
-**Artist**: lil aaron 
+**Artist**: Milk N Cooks 
 
-**Track**: QUIT (feat. Travis Barker)
+**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
 
-Last updated at 10/05/2020 09:25
+Last updated at 10/05/2020 09:29
