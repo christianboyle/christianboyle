@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMY6WNr13NDO-0-t50x50.jpg">](https://soundcloud.com/lilzubin/perfect-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t50x50.jpg">](https://soundcloud.com/uiceheidd/wishing-well?in=supremepr-records/sets/top-hiphop)
 
-**Artist**: lil zubin 
+**Artist**: Juice WRLD 
 
-**Track**: Perfect Hell
+**Track**: Wishing Well
 
-Last updated at 10/04/2020 20:43
+Last updated at 10/04/2020 20:44
