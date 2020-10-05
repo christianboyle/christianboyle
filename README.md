@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbfbYb1UHpopJijr-WDy5cw-t50x50.jpg">](https://soundcloud.com/ice-underlord/breathing-iceunderlord-melddown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t50x50.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Loote 
 
-**Track**: BREATHING- ICEUNDERLORD (MELDDOWN)
+**Track**: Somebody Else
 
-Last updated at 10/05/2020 10:55
+Last updated at 10/05/2020 10:58
