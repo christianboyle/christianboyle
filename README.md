@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qO7IFX8bKpBX2kLa-djzK6Q-t50x50.jpg">](https://soundcloud.com/adamenoise/singularity-punch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000105531267-681zam-t50x50.jpg">](https://soundcloud.com/nightcorey/make-me-go)
 
-**Artist**: Adame 
+**Artist**: nightcorey 
 
-**Track**: Singularity Punch
+**Track**: Make Me Go
 
-Last updated at 10/05/2020 11:34
+Last updated at 10/05/2020 11:37
