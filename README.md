@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000077891382-0cm3ut-t50x50.jpg">](https://soundcloud.com/djbranstone/stadiums)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N57rGgTZcLzGKbad-rvOWHw-t50x50.jpg">](https://soundcloud.com/bsterthegawd/element)
 
-**Artist**: Rx Brainstorm 
+**Artist**: bsterthegawd 
 
-**Track**: Stadiums
+**Track**: ELEMENT
 
-Last updated at 10/04/2020 20:48
+Last updated at 10/04/2020 20:49
