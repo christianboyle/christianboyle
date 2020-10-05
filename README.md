@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtyJK1PyfqSElJF5-mIkh6g-t50x50.jpg">](https://soundcloud.com/monstercat/julian-calor-by-my-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
 
-**Artist**: Monstercat 
+**Artist**: bitbird 
 
-**Track**: Julian Calor - By My Side
+**Track**: Former Hero - Friends Now
 
-Last updated at 10/05/2020 10:45
+Last updated at 10/05/2020 10:48
