@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
 
-**Artist**: Opal Fruits 
+**Artist**: Milk N Cooks 
 
-**Track**: OFMIX - 019 [counsel pop]
+**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
 
-Last updated at 10/05/2020 12:02
+Last updated at 10/05/2020 15:43
