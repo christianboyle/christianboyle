@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qCX82xtzyIIyXwGN-vL0ezQ-t50x50.jpg">](https://soundcloud.com/faroutofficial/far-out-focus-feat-heather-sommer-1)
 
-**Artist**: King Theta 
+**Artist**: Far Out 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: Far Out - Focus (feat. Heather Sommer)
 
-Last updated at 10/05/2020 17:59
+Last updated at 10/05/2020 20:15
