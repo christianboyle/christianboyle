@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000584559788-y6zhpz-t50x50.jpg">](https://soundcloud.com/avi8music/all-that-matters-official-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556812069-sqil3z-t50x50.jpg">](https://soundcloud.com/avi8music/tim-berg-seek-bromance-avi8-remix-final-master)
 
 **Artist**: Avi8 
 
-**Track**: All That Matters (Official Audio)
+**Track**: Tim Berg - Seek Bromance (Avi8 Remix) (Official Audio)
 
-Last updated at 10/06/2020 14:36
+Last updated at 10/06/2020 14:40
