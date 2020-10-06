@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaSu3cyJ24iPKFfw-TvyzGQ-t50x50.jpg">](https://soundcloud.com/kggn/idc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoRxi9PDEPfoGnKK-UI2CJQ-t50x50.jpg">](https://soundcloud.com/kurtains/scream)
 
-**Artist**: kuru 
+**Artist**: kurtains 
 
-**Track**: don't care +kurtains (wifi)
+**Track**: scream
 
-Last updated at 10/05/2020 20:24
+Last updated at 10/05/2020 20:25
