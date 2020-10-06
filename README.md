@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z1aMEtmUzZve-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok-duke-jones?in=dukeandjones/sets/ok-not-to-be-ok-duke-jones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dlNtj1y7lCs2tU1I-bIjmAA-t50x50.jpg">](https://soundcloud.com/novalotusmusic/perylian-solar-system-motions?in=novalotusmusic/sets/perylian-multiverse)
 
-**Artist**: marshmello 
+**Artist**: Nova Lotus Music 
 
-**Track**: OK Not To Be OK (Duke & Jones Remix)
+**Track**: Perylian - Solar System Motions
 
-Last updated at 10/05/2020 20:17
+Last updated at 10/05/2020 20:18
