@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000657212860-bo0vl0-t50x50.jpg">](https://soundcloud.com/avi8music/homestead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000605632705-x8z5jn-t50x50.jpg">](https://soundcloud.com/avi8music/movin-forward)
 
 **Artist**: Avi8 
 
-**Track**: Homestead
+**Track**: Movin' Forward
 
-Last updated at 10/06/2020 14:25
+Last updated at 10/06/2020 14:29
