@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586699985-9yzq2h-t50x50.jpg">](https://soundcloud.com/hardstyle/avi8-all-that-matters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000584559788-y6zhpz-t50x50.jpg">](https://soundcloud.com/avi8music/all-that-matters-official-audio)
 
-**Artist**: Hardstyle 
+**Artist**: Avi8 
 
-**Track**: Avi8 - All That Matters
+**Track**: All That Matters (Official Audio)
 
-Last updated at 10/06/2020 14:32
+Last updated at 10/06/2020 14:36
