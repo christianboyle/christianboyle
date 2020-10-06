@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555680661-q1x46e-t50x50.jpg">](https://soundcloud.com/avi8music/keeping-the-rave-alive-guestmix-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555254304-s11lx1-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-377-feat-avi8)
 
-**Artist**: Avi8 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Keeping The Rave Alive Guestmix - Avi8
+**Track**: KTRA Episode 377 feat. Avi8
 
-Last updated at 10/06/2020 15:27
+Last updated at 10/06/2020 15:47
