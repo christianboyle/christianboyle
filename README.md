@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ojcousxDMpqZR6XG-UPpKaQ-t50x50.jpg">](https://soundcloud.com/masif-saturdays/ep019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czz5cLjq5iH9HGvy-hcBphQ-t50x50.jpg">](https://soundcloud.com/gearbox-digital/gbe109)
 
-**Artist**: Masif Saturdays 
+**Artist**: Gearbox Digital 
 
-**Track**: Masif Podcast Episode 019 Featuring Avi8, Pulsar, Scar, Decim8 x Paranoiz
+**Track**: Avi8 - Closer [GBE109]
 
-Last updated at 10/06/2020 09:15
+Last updated at 10/06/2020 11:06
