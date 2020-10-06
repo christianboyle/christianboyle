@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wcHydqNjzVcvx-EUyS8g-t50x50.jpg">](https://soundcloud.com/novalotusmusic/ok-kevin-lotis-tension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpPWGiahj9lz-0-t50x50.jpg">](https://soundcloud.com/louisthechild/keep-moving)
 
-**Artist**: Nova Lotus Music 
+**Artist**: Louis The Child 
 
-**Track**: OK. Kevin + Lotis - Tension
+**Track**: Keep Moving
 
-Last updated at 10/05/2020 20:19
+Last updated at 10/05/2020 20:20
