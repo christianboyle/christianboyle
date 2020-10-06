@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-94phlUC2QXWH92ZQ-Yutdhw-t50x50.jpg">](https://soundcloud.com/mechasonic/funny)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoRxi9PDEPfoGnKK-UI2CJQ-t50x50.jpg">](https://soundcloud.com/kurtains/scream)
 
-**Artist**: Mechasonic 
+**Artist**: kurtains 
 
-**Track**: funny
+**Track**: scream
 
-Last updated at 10/05/2020 20:22
+Last updated at 10/05/2020 20:23
