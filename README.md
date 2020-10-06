@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czz5cLjq5iH9HGvy-hcBphQ-t50x50.jpg">](https://soundcloud.com/gearbox-digital/gbe109)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mCWvReN9S0URoiw8-Ruamzw-t50x50.jpg">](https://soundcloud.com/avi8music/open-your-eyes-official-audio)
 
-**Artist**: Gearbox Digital 
+**Artist**: Avi8 
 
-**Track**: Avi8 - Closer [GBE109]
+**Track**: Open Your Eyes (Official Audio)
 
-Last updated at 10/06/2020 11:06
+Last updated at 10/06/2020 11:10
