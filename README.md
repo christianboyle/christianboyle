@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzekETSkPfjZB13x-fZtXyw-t50x50.jpg">](https://soundcloud.com/bitbirdradio/former-hero-presents-bitbird-radio-076)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/badside)
 
-**Artist**: bitbird radio 
+**Artist**: lil aaron 
 
-**Track**: Former Hero Presents: bitbird radio #076
+**Track**: BADSIDE
 
-Last updated at 10/07/2020 10:40
+Last updated at 10/07/2020 14:13
