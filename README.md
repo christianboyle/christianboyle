@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2XA4u6oA4vOQUvX-zG0xDQ-t50x50.jpg">](https://soundcloud.com/jakkyboi/hit-me-when-ur-sorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580240295-z00fbz-t50x50.jpg">](https://soundcloud.com/belisgo/killbill)
 
-**Artist**: jakkyboí 
+**Artist**: belis ✩ 
 
-**Track**: hit me when ur sorry
+**Track**: KILL BILL (prod judge)
 
-Last updated at 10/07/2020 14:16
+Last updated at 10/07/2020 14:18
