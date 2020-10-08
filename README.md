@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wC9oawyriudW-0-t50x50.jpg">](https://soundcloud.com/charlixcx/pink-diamond?in=charlixcx/sets/how-im-feeling-now-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEqiZClSKiu0-0-t50x50.jpg">](https://soundcloud.com/charlixcx/forever?in=charlixcx/sets/how-im-feeling-now-1)
 
 **Artist**: charlixcx 
 
-**Track**: pink diamond
+**Track**: forever
 
-Last updated at 10/08/2020 08:45
+Last updated at 10/08/2020 08:47
