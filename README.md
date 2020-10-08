@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2q3y75eDtSO3nNC-vn9LrA-t50x50.jpg">](https://soundcloud.com/bringyourknapsack/outofthecity?in=bringyourknapsack/sets/buzz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E41zZ3iDLJNU5kty-Q1Oqdw-t50x50.jpg">](https://soundcloud.com/pixelord/bfg)
 
-**Artist**: knapsack 
+**Artist**: Pixelord 
 
-**Track**: out of the city
+**Track**: BFG
 
-Last updated at 10/08/2020 08:40
+Last updated at 10/08/2020 08:41
