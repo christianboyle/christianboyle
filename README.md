@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMhAIzeI6H2MChHU-lnNVRA-t50x50.jpg">](https://soundcloud.com/tripp_st/sermon-mix-itsnotacult)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2q3y75eDtSO3nNC-vn9LrA-t50x50.jpg">](https://soundcloud.com/bringyourknapsack/outofthecity?in=bringyourknapsack/sets/buzz)
 
-**Artist**: Tripp St. 
+**Artist**: knapsack 
 
-**Track**: Sermon Mix
+**Track**: out of the city
 
-Last updated at 10/08/2020 08:39
+Last updated at 10/08/2020 08:40
