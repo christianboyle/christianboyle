@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000457055691-c9qwxj-t50x50.jpg">](https://soundcloud.com/kodak-black/moshpit-feat-juice-wrld-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJyspya5AmQB-0-t50x50.jpg">](https://soundcloud.com/tm88/slayerr-feat-lil-uzi-vert)
 
-**Artist**: Kodak Black 
+**Artist**: TM88 
 
-**Track**: MoshPit (Feat. Juice WRLD)
+**Track**: TM88 - Slayerr (feat. Lil Uzi Vert)
 
-Last updated at 10/09/2020 10:48
+Last updated at 10/09/2020 10:50
