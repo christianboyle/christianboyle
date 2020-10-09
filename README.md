@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FUNkj7xMdJOEymVb-cMKiDg-t50x50.jpg">](https://soundcloud.com/nightcore4totalsluts/rude-boy?in=nightcore4totalsluts/sets/fallen-shrine-sluts-4-tha-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FUNkj7xMdJOEymVb-cMKiDg-t50x50.jpg">](https://soundcloud.com/nightcore4totalsluts/sweat?in=nightcore4totalsluts/sets/fallen-shrine-sluts-4-tha-summer)
 
 **Artist**: nightcore4totalsluts 
 
-**Track**: Fallen Shrine - RUDE BOY
+**Track**: Fallen Shrine - SWEAT
 
-Last updated at 10/08/2020 21:21
+Last updated at 10/08/2020 21:23
