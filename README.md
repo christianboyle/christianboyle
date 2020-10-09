@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zs3uffbyXm4ZzYQt-L0WQVg-t50x50.jpg">](https://soundcloud.com/stubbornlove/waited-for-the-son-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvfX9XPIdyGnVNcR-n1K32w-t50x50.jpg">](https://soundcloud.com/chinaboiiarsenee/aorus)
 
-**Artist**: Stubborn Love 
+**Artist**: ChinaBoiiArsenee 
 
-**Track**: Serkan Demirel ft. Francesca- Waiting For The Sun(Stubborn Love Remix)
+**Track**: Aorus
 
-Last updated at 10/08/2020 20:37
+Last updated at 10/08/2020 20:38
