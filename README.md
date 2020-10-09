@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3otQVaWE17s8Wpq-RoHFfg-t50x50.jpg">](https://soundcloud.com/legoshi/comfort)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tBH6g9GDFbYRtmV-5UVxgg-t50x50.jpg">](https://soundcloud.com/daviddann/david-dann-you-and-me)
 
-**Artist**: legoshi 
+**Artist**: david dann 
 
-**Track**: comfort ft. pandi
+**Track**: You & Me feat. NICOLAS
 
-Last updated at 10/08/2020 20:41
+Last updated at 10/08/2020 20:43
