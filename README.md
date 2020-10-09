@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7XSGE1MAZvi-0-t50x50.jpg">](https://soundcloud.com/futureisnow/astronauts?in=futureisnow/sets/future-juice-wrld-present-wrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000457055691-c9qwxj-t50x50.jpg">](https://soundcloud.com/kodak-black/moshpit-feat-juice-wrld-2)
 
-**Artist**: Future 
+**Artist**: Kodak Black 
 
-**Track**: Astronauts
+**Track**: MoshPit (Feat. Juice WRLD)
 
-Last updated at 10/09/2020 10:36
+Last updated at 10/09/2020 10:40
