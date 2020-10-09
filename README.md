@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FUNkj7xMdJOEymVb-cMKiDg-t50x50.jpg">](https://soundcloud.com/nightcore4totalsluts/ice-feelings?in=nightcore4totalsluts/sets/fallen-shrine-sluts-4-tha-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qkmmkyrsrZwLzXUs-s59ehA-t50x50.jpg">](https://soundcloud.com/fallenshrine/yes-i-do-the-cleaning-short)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Fallen Shrine 
 
-**Track**: Fallen Shrine - Ice Feelings
+**Track**: YES I do the cleaning - Short
 
-Last updated at 10/08/2020 21:30
+Last updated at 10/08/2020 21:33
