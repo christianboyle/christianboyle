@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/badside)
 
-**Artist**: King Theta 
+**Artist**: lil aaron 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: BADSIDE
 
-Last updated at 10/09/2020 13:05
+Last updated at 10/09/2020 14:27
