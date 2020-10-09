@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmdrp1QerLLrqHJy-5FW6bA-t50x50.jpg">](https://soundcloud.com/neverglowmusic/lady-gaga-stupid-love-neverglow-x-damaged-goods-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MSE4abhcAmBncTVn-mIHJaQ-t50x50.jpg">](https://soundcloud.com/speedstrmusic/speedstr-in-the-car)
 
-**Artist**: NEVERGLOW 🌿 
+**Artist**: SpeedStr 
 
-**Track**: Lady Gaga - Stupid Love (NEVERGLOW X Damaged Goods Remix) (FREE DOWNLOAD)
+**Track**: SpeedStr - In The Car
 
-Last updated at 10/08/2020 21:02
+Last updated at 10/08/2020 21:03
