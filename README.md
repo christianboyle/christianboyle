@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tF0kHpz1I5NO2nAI-wUqgRw-t50x50.png">](https://soundcloud.com/nxcnation/ntn16?in=fallenshrine/sets/fallen-shrine-like-a-b-tch-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyFdYE2k2yopWrJy-OFJz9A-t50x50.jpg">](https://soundcloud.com/fallenshrine/no-good)
 
-**Artist**: nxc nation 
+**Artist**: Fallen Shrine 
 
-**Track**: Fallen Shrine - LIKE A B!TCH [ntn16]
+**Track**: no good
 
-Last updated at 10/08/2020 21:04
+Last updated at 10/08/2020 21:05
