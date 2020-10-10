@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7XSGE1MAZvi-0-t50x50.jpg">](https://soundcloud.com/futureisnow/astronauts?in=futureisnow/sets/future-juice-wrld-present-wrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oGIcPMmqdkSk-0-t50x50.jpg">](https://soundcloud.com/futureisnow/fine-china?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
 **Artist**: Future 
 
-**Track**: Astronauts
+**Track**: Fine China
 
-Last updated at 10/10/2020 16:00
+Last updated at 10/10/2020 18:51
