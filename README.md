@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000426819585-g1p92h-t50x50.jpg">](https://soundcloud.com/lobsta-b/call-me-maybe-lobsta-bs-vengabounce-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZ7q9rVe9w3O7xE0-M0aWLg-t50x50.jpg">](https://soundcloud.com/patlok/freefall-w-thandi-phoenix-brux)
 
-**Artist**: LOBSTA B 
+**Artist**: Pat Lok 駱哲彦 
 
-**Track**: CALL ME MAYBE (LOBSTA B'S VENGABOUNCE REMIX)
+**Track**: Freefall w/ Thandi Phoenix (BRUX Remix)
 
-Last updated at 10/09/2020 21:34
+Last updated at 10/09/2020 21:36
