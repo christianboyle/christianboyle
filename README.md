@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RHqCT4OWcRsz6Rs-GuFNgg-t50x50.jpg">](https://soundcloud.com/stizzzy/wasted-w-blondd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000426819585-g1p92h-t50x50.jpg">](https://soundcloud.com/lobsta-b/call-me-maybe-lobsta-bs-vengabounce-remix-free-dl)
 
-**Artist**: Stizzzy 
+**Artist**: LOBSTA B 
 
-**Track**: WASTED w/ blondd
+**Track**: CALL ME MAYBE (LOBSTA B'S VENGABOUNCE REMIX)
 
-Last updated at 10/09/2020 21:33
+Last updated at 10/09/2020 21:34
