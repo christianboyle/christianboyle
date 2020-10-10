@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlvS3li9Hu5hGXyC-cgjY3A-t50x50.jpg">](https://soundcloud.com/gldmusic/gld-i-loved-you-now-i-have-trust-issues-feat-grand-khai?in=gldmusic/sets/this-isnt-just-a-phase-mom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B18GWO3KvAIsxqJl-CXtPDg-t50x50.jpg">](https://soundcloud.com/theanbuu/likesheknow)
 
-**Artist**: GLD 
+**Artist**: anbuu 
 
-**Track**: I Loved You (Now I Have Trust Issues) Feat. Grand Khai
+**Track**: likesheknow
 
-Last updated at 10/09/2020 21:29
+Last updated at 10/09/2020 21:30
