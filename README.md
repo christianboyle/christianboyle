@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GWhfL0RAi7YsNBF-qHQjLA-t50x50.jpg">](https://soundcloud.com/iamcastelle/supercool-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RHqCT4OWcRsz6Rs-GuFNgg-t50x50.jpg">](https://soundcloud.com/stizzzy/wasted-w-blondd)
 
-**Artist**: Castelle 
+**Artist**: Stizzzy 
 
-**Track**: Supercool
+**Track**: WASTED w/ blondd
 
-Last updated at 10/09/2020 21:32
+Last updated at 10/09/2020 21:33
