@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555680661-q1x46e-t50x50.jpg">](https://soundcloud.com/avi8music/keeping-the-rave-alive-guestmix-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/badside)
 
-**Artist**: Avi8 
+**Artist**: lil aaron 
 
-**Track**: Keeping The Rave Alive Guestmix - Avi8
+**Track**: BADSIDE
 
-Last updated at 10/09/2020 14:30
+Last updated at 10/09/2020 21:26
