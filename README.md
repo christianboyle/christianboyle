@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000457514214-z7w0ha-t50x50.jpg">](https://soundcloud.com/lobsta-b/skepta-thats-not-me-lobsta-bs-dizzee-donk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xn7kSDdoxUlt-0-t50x50.jpg">](https://soundcloud.com/futureisnow/jet-lag-feat-young-scooter?in=futureisnow/sets/future-juice-wrld-present-wrld)
 
-**Artist**: LOBSTA B 
+**Artist**: Future 
 
-**Track**: SKEPTA - THAT'S NOT ME (LOBSTA B'S DIZZEE DONK REMIX)[FREE DL]
+**Track**: Jet Lag (feat. Young Scooter)
 
-Last updated at 10/09/2020 21:37
+Last updated at 10/10/2020 15:48
