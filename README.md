@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/badside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSzvdhxir6QQDCjP-Zdtl3Q-t50x50.jpg">](https://soundcloud.com/sapientdream/slushii-sapientdream-in-her)
 
-**Artist**: lil aaron 
+**Artist**: sapientdream 
 
-**Track**: BADSIDE
+**Track**: Slushii & sapientdream - In Her Eyes
 
-Last updated at 10/09/2020 21:26
+Last updated at 10/09/2020 21:27
