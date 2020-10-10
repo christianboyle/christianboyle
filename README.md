@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmrIRvBX3yOxb7Im-GCvvdw-t50x50.jpg">](https://soundcloud.com/electricwavemusic/mattsh-crush)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlvS3li9Hu5hGXyC-cgjY3A-t50x50.jpg">](https://soundcloud.com/gldmusic/gld-i-loved-you-now-i-have-trust-issues-feat-grand-khai?in=gldmusic/sets/this-isnt-just-a-phase-mom)
 
-**Artist**: Electric Wave 
+**Artist**: GLD 
 
-**Track**: MaTTsh - Crush
+**Track**: I Loved You (Now I Have Trust Issues) Feat. Grand Khai
 
-Last updated at 10/09/2020 21:28
+Last updated at 10/09/2020 21:29
