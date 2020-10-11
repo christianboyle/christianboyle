@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000113719015-iono8k-t50x50.jpg">](https://soundcloud.com/wearegalantis/peanut-butter-jelly?in=saxurn/sets/dancing-babies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117364231-pzpajz-t50x50.jpg">](https://soundcloud.com/s-xbeats/voodoo-feat-gia-out-june-21st?in=saxurn/sets/dancing-babies)
 
-**Artist**: Galantis 
+**Artist**: S-X 
 
-**Track**: Galantis - Peanut Butter Jelly
+**Track**: Voodoo (feat. Gia)
 
-Last updated at 10/10/2020 20:21
+Last updated at 10/10/2020 20:24
