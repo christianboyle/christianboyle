@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000145486723-h9ufxg-t50x50.jpg">](https://soundcloud.com/youngbombs/rozes-burn-wild-young-bombs-remix?in=saxurn/sets/unplayable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t50x50.jpg">](https://soundcloud.com/snakedrocks/paul-stanley?in=saxurn/sets/unplayable)
 
-**Artist**: YOUNG BOMBS 
+**Artist**: SNAKED 
 
-**Track**: ROZES - Burn Wild (Young Bombs Remix)
+**Track**: PAUL STANLEY [Nest HQ Premiere]
 
-Last updated at 10/10/2020 21:07
+Last updated at 10/10/2020 21:29
