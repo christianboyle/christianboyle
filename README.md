@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228668182-mza1e2-t50x50.jpg">](https://soundcloud.com/uiceheidd/lost-her?in=uiceheidd/sets/juicewrld-the-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000090159286-q1zkon-t50x50.jpg">](https://soundcloud.com/soulection/10a-the-one?in=soulection/sets/stussy-x-soulection-compilation)
 
-**Artist**: Juice WRLD 
+**Artist**: SOULECTION 
 
-**Track**: lost her [prod. sidepce]
+**Track**: 10A - The One
 
-Last updated at 10/10/2020 19:53
+Last updated at 10/10/2020 19:55
