@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000147061459-sahez2-t50x50.jpg">](https://soundcloud.com/snakedrocks/rocker-bitch?in=snakedrocks/sets/year-of-the-snake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t50x50.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
 
 **Artist**: SNAKED 
 
-**Track**: ROCKER BITCH
+**Track**: PAUL STANLEY [Nest HQ Premiere]
 
-Last updated at 10/10/2020 21:32
+Last updated at 10/10/2020 21:33
