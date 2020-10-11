@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KoghcR3uPlI4-0-t50x50.jpg">](https://soundcloud.com/futureisnow/hard-work-pays-off?in=futureisnow/sets/future-juice-wrld-present-wrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhK36un4SCWlHToY-kOKWbQ-t50x50.jpg">](https://soundcloud.com/user-24173741/juice-wrld-the-kid-laroi-go-go)
 
-**Artist**: Future 
+**Artist**: No Vanity 999 
 
-**Track**: Hard Work Pays Off
+**Track**: juice wrld & the kid laroi - Go Go Go
 
-Last updated at 10/10/2020 19:29
+Last updated at 10/10/2020 19:33
