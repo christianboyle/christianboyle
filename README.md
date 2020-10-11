@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000176655295-ofgy4o-t50x50.jpg">](https://soundcloud.com/snakedrocks/jersey-legends-free-dl?in=snakedrocks/sets/remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000147061459-sahez2-t50x50.jpg">](https://soundcloud.com/snakedrocks/rocker-bitch?in=snakedrocks/sets/year-of-the-snake)
 
 **Artist**: SNAKED 
 
-**Track**: BON JOVI - LIVIN' ON A PRAYER (SNAKED REMIX) (FREE DL)
+**Track**: ROCKER BITCH
 
-Last updated at 10/10/2020 21:31
+Last updated at 10/10/2020 21:32
