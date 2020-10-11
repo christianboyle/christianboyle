@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cc480otqKwFBcsH7-mGIOUQ-t50x50.jpg">](https://soundcloud.com/youngieszn/flex-xxxtentacion-feat-dababy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-W2MUzXaZswMxiDuq-axIwwg-t50x50.jpg">](https://soundcloud.com/xanadu1600/ptsd-but-no-gherbo-or-chance)
 
-**Artist**: TheKidYoungie 
+**Artist**: xanadu 
 
-**Track**: Flex! - XXXTENTACION feat. DaBaby, Lil Pump, Blueface & NLE Choppa
+**Track**: PTSD but no gherbo or chance cause they got carried by uzi and juice
 
-Last updated at 10/10/2020 19:39
+Last updated at 10/10/2020 19:42
