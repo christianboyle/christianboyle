@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000089854325-qcifiw-t50x50.jpg">](https://soundcloud.com/shhsecretsongs/swick-lewis-cancut-wishes-ft-tkay-maidza?in=saxurn/sets/55-c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-p76bINEO6JluKgXQ-TWhm9A-t50x50.jpg">](https://soundcloud.com/purity-ring/grammy-soulja-boy-and-ester?in=saxurn/sets/55-c)
 
-**Artist**: Secret Songs 
+**Artist**: PURITY RING 
 
-**Track**: Swick & Lewis Cancut - Wishes (ft. Tkay Maidza)
+**Track**: Grammy (Soulja Boy and Ester Dean COVER)
 
-Last updated at 10/10/2020 20:03
+Last updated at 10/10/2020 20:07
