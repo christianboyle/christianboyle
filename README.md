@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000100366280-9esje8-t50x50.jpg">](https://soundcloud.com/luckyme/advent-16?in=saxurn/sets/55-c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xY6glLXt6z6S-0-t50x50.jpg">](https://soundcloud.com/djshadow/six-days-machinedrum-remix?in=saxurn/sets/55-c)
 
-**Artist**: LuckyMe Records 
+**Artist**: DJ Shadow 
 
-**Track**: A. G. Cook - Beautiful (Rustie Edit)
+**Track**: Six Days (Machinedrum Remix)
 
-Last updated at 10/10/2020 20:13
+Last updated at 10/10/2020 20:17
