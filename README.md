@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOdDmaCKPg4JgnF9-e5w1ug-t50x50.jpg">](https://soundcloud.com/aloonmusic/should-have-let-u-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3hnAhh070EHV497-KlCA4g-t50x50.jpg">](https://soundcloud.com/spinnin-deep/nivlac-heart-of-glass-feat-lorin-logue-out-now)
 
-**Artist**: aloon 
+**Artist**: Spinnin' Deep 
 
-**Track**: should have let u know
+**Track**: Nivlac - Heart Of Glass (feat. Lorin Logue) [OUT NOW]
 
-Last updated at 10/12/2020 07:46
+Last updated at 10/12/2020 07:47
