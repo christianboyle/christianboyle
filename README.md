@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000487731876-n5cfwy-t50x50.jpg">](https://soundcloud.com/user-586552550/time-machine-warm-up-mix-by-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1)
 
-**Artist**: D2B_Official 
+**Artist**: smrtdeath 
 
-**Track**: TIME MACHINE WARM UP MIX BY AVI8
+**Track**: got em mad (prod taxpurposes)
 
-Last updated at 10/12/2020 09:52
+Last updated at 10/12/2020 13:40
