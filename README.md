@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DlbAs9i2eUxLV4n-qMgSiA-t50x50.jpg">](https://soundcloud.com/tommyice/honest-prod-jkei-rossgossage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoRxi9PDEPfoGnKK-UI2CJQ-t50x50.jpg">](https://soundcloud.com/kurtains/scream)
 
-**Artist**: ☆ tommy ice ☆ 
+**Artist**: kurtains 
 
-**Track**: tommy ice - honest (prod. jkei & rossgossage)
+**Track**: scream
 
-Last updated at 10/12/2020 09:47
+Last updated at 10/12/2020 09:48
