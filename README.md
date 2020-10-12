@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244714050-ix659q-t50x50.jpg">](https://soundcloud.com/smrtdeath/let-it-bleed?in=smrtdeath/sets/sethany-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713469-tkp7go-t50x50.jpg">](https://soundcloud.com/smrtdeath/holographic-w-lord-narf-prod?in=smrtdeath/sets/sethany-1)
 
 **Artist**: smrtdeath 
 
-**Track**: let it bleed (prod taxpurposes) *video in description*
+**Track**: holographic w/ lord narf (prod lederrick)
 
-Last updated at 10/12/2020 09:36
+Last updated at 10/12/2020 09:39
