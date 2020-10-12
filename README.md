@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbVcLCGLyCQK3oZD-ifgQew-t50x50.jpg">](https://soundcloud.com/particaartistgroup/vendetta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmlfCUQMHKnGw9k8-a8myEA-t50x50.jpg">](https://soundcloud.com/viperactive/viperactive-problems-ft-zerarri)
 
-**Artist**: Partica Artist Group 
+**Artist**: Viperactive 
 
-**Track**: Robu & golden child - Vendetta
+**Track**: PROBLEMS (FT. ZERARRI)
 
-Last updated at 10/12/2020 07:48
+Last updated at 10/12/2020 07:49
