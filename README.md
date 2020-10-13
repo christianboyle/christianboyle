@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcMOS1DjaG5F-0-t50x50.jpg">](https://soundcloud.com/iamannemarie/to-be-young-feat-doja-cat-1)
 
-**Artist**: Lowly. 
+**Artist**: Anne-Marie 
 
-**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
+**Track**: To Be Young (feat. Doja Cat) (Felix Cartal Remix)
 
-Last updated at 10/13/2020 09:48
+Last updated at 10/13/2020 09:51
