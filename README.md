@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zn1KbvGxzxdAvEzR-yVehaQ-t50x50.jpg">](https://soundcloud.com/bandoum/order)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
 
-**Artist**: bandoum 
+**Artist**: headasin 
 
-**Track**: bandoum - order [13] • [spotify in description]
+**Track**: carti flip
 
-Last updated at 10/13/2020 12:13
+Last updated at 10/13/2020 12:14
