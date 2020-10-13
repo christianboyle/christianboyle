@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNOFif2IF9OcZulY-jduzHA-t50x50.jpg">](https://soundcloud.com/bitbird/former-hero-friends-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660416917-dwhbfc-t50x50.jpg">](https://soundcloud.com/resonata/timesink)
 
-**Artist**: bitbird 
+**Artist**: resonata_ 
 
-**Track**: Former Hero - Friends Now
+**Track**: LORN - TIMESINK (Resonata Flip)
 
-Last updated at 10/13/2020 10:12
+Last updated at 10/13/2020 10:16
