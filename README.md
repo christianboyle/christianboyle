@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxZmKrF01RWXLWIA-zGf2Zw-t50x50.jpg">](https://soundcloud.com/sweaters/perfume-sweater-beats-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QZC4gid4XVvKAPn-PE5VOw-t50x50.jpg">](https://soundcloud.com/nocv/reason)
 
-**Artist**: SWEATER BEATS 
+**Artist**: Noc.V 
 
-**Track**: Mehro - Perfume (Sweater Beats Remix)
+**Track**: Reason
 
-Last updated at 10/13/2020 09:21
+Last updated at 10/13/2020 09:23
