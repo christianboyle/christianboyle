@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mb1yDyAsRzhtcjrC-s7AJyQ-t50x50.jpg">](https://soundcloud.com/sidechainsclub/jamesjamesjames-rhinoplasty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
 
-**Artist**: SIDECHAINS 
+**Artist**: Opal Fruits 
 
-**Track**: Jamesjamesjames - Rhinoplasty
+**Track**: OFMIX - 019 [counsel pop]
 
-Last updated at 10/13/2020 11:35
+Last updated at 10/13/2020 11:39
