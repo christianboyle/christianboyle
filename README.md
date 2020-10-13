@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zw5rwPCpVBqd-0-t50x50.png">](https://soundcloud.com/smrtdeath/she-told-me-to-kill-myself)
 
-**Artist**: jakkyboí 
+**Artist**: smrtdeath 
 
-**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
+**Track**: She Told Me to Kill Myself
 
-Last updated at 10/13/2020 09:18
+Last updated at 10/13/2020 09:20
