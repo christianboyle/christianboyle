@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
 
-**Artist**: NON STOP NXC® 
+**Artist**: SMOKEASAC 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: Leave You Behind
 
-Last updated at 10/13/2020 12:29
+Last updated at 10/13/2020 14:19
