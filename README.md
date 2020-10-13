@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000105531267-681zam-t50x50.jpg">](https://soundcloud.com/nightcorey/make-me-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZ5P8WxlukLkQYhQ-12sB8A-t50x50.jpg">](https://soundcloud.com/nightcorey/charli-xcx-forever-nightcorey-remix)
 
 **Artist**: nightcorey 
 
-**Track**: Make Me Go
+**Track**: Charli XCX 'Forever' (nightcorey remix)
 
-Last updated at 10/13/2020 11:14
+Last updated at 10/13/2020 11:17
