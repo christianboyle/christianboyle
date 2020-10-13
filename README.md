@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000499679307-g1mbo9-t50x50.jpg">](https://soundcloud.com/smokeasac/losing-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qy9QEezRMbaV-0-t50x50.jpg">](https://soundcloud.com/smokeasac/one-bad-day-1)
 
 **Artist**: SMOKEASAC 
 
-**Track**: Losing My Mind
+**Track**: One Bad Day
 
-Last updated at 10/13/2020 14:32
+Last updated at 10/13/2020 15:30
