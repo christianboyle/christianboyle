@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCUMapyXU6hB78H8-qJeT4g-t50x50.jpg">](https://soundcloud.com/ekalimusic/ekali-back-to-you-feat-kiiara-codeko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RgimONARcasOMldh-ob0uUQ-t50x50.jpg">](https://soundcloud.com/formerhero/charli-xcx-seven-years-former-hero-remix)
 
-**Artist**: EKALI 
+**Artist**: former hero 
 
-**Track**: Ekali - Back To You feat.  Kiiara (Codeko Remix)
+**Track**: charli xcx - seven years (former hero remix)
 
-Last updated at 10/13/2020 10:35
+Last updated at 10/13/2020 10:54
