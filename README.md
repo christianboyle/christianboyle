@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000495887286-86usbh-t50x50.jpg">](https://soundcloud.com/agkush404/high-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbrLRlG6d7CAKmvL-e55AUA-t50x50.jpg">](https://soundcloud.com/pedicure-records/03-crapface-gasoline?in=pedicure-records/sets/pc-noise-x-pedicure-records)
 
-**Artist**: A. G. Kush 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: High Up
+**Track**: 03. CRAPFACE - Gasoline
 
-Last updated at 10/14/2020 09:43
+Last updated at 10/14/2020 09:44
