@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tz4kDziZhvfWKtVI-wGdglQ-t50x50.jpg">](https://soundcloud.com/jayceeoh/henry-fong-knock2-whats-the-move-feat-general-degree-jayceeoh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFAv1GuM2INXKDKW-fs1JCg-t50x50.jpg">](https://soundcloud.com/frizofficial/feeling-the-rhythm)
 
-**Artist**: Jayceeoh 
+**Artist**: Friz 
 
-**Track**: Henry Fong & Knock2 - What's the Move (feat. General Degree) [Jayceeoh Remix]
+**Track**: Friz - Feeling The Rhythm
 
-Last updated at 10/14/2020 16:42
+Last updated at 10/14/2020 16:43
