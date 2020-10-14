@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TmYFlVymrKxaIbqW-a9tU0Q-t50x50.jpg">](https://soundcloud.com/millia-rage/millia-rage-half-loiner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HydITPnXHKSVGcVY-euAYGQ-t50x50.jpg">](https://soundcloud.com/pedicure-records/03-underd0g-aftershock)
 
-**Artist**: millia rage 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: millia rage – half-loiner
+**Track**: 03. underd0g - aftershock
 
-Last updated at 10/14/2020 12:29
+Last updated at 10/14/2020 14:04
