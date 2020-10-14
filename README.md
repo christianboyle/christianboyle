@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFAv1GuM2INXKDKW-fs1JCg-t50x50.jpg">](https://soundcloud.com/frizofficial/feeling-the-rhythm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
 
-**Artist**: Friz 
+**Artist**: SMOKEASAC 
 
-**Track**: Friz - Feeling The Rhythm
+**Track**: Leave You Behind
 
-Last updated at 10/14/2020 16:43
+Last updated at 10/14/2020 16:44
