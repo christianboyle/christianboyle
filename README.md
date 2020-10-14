@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MjH1l0yMFI5R1zzS-6Pifxg-t50x50.jpg">](https://soundcloud.com/subtronics/kompany-x-subtronics-wicked-witch-1?in=kompanymusic/sets/kompany-x-subtronics-wicked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueBN5OPBuJiKrW6Z-RXgyuA-t50x50.jpg">](https://soundcloud.com/itschristracy/poser-prod-naawoj-x-curtains)
 
-**Artist**: Subtronics 
+**Artist**: ChrisTracy! 
 
-**Track**: Kompany x Subtronics - Wicked Witch
+**Track**: POSER! (Prod. Naawoj x Curtains)
 
-Last updated at 10/14/2020 12:24
+Last updated at 10/14/2020 12:28
