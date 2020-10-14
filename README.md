@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
 
-**Artist**: lil aaron 
+**Artist**: jakkyboí 
 
-**Track**: IDCIUDHMB (Prod. 4evr)
+**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
 
-Last updated at 10/14/2020 10:28
+Last updated at 10/14/2020 10:31
