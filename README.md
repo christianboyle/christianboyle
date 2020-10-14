@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562537002-k14tjh-t50x50.jpg">](https://soundcloud.com/m-project_suzumoto/crowd-rocka?in=jakazid/sets/original-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000209197584-eazt21-t50x50.jpg">](https://soundcloud.com/djmountainbike/s00ner0rlater)
 
-**Artist**: M-Project 
+**Artist**: ⠀⠀⠀⠀dj mountain bike⠀⠀⠀⠀⠀⠀♋ 
 
-**Track**: M-Project & JAKAZiD - Crowd Rocka
+**Track**: ⠀⠀⠀
 
-Last updated at 10/14/2020 09:31
+Last updated at 10/14/2020 09:32
