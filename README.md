@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517196448-h16ghn-t50x50.jpg">](https://soundcloud.com/kingtheta/trailblazer)
 
 **Artist**: King Theta 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: Trailblazer
 
-Last updated at 10/14/2020 15:14
+Last updated at 10/14/2020 15:17
