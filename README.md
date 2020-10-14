@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000383014533-2p5tdn-t50x50.jpg">](https://soundcloud.com/mixmag-1/premiere-dj-lag-3-step-culo)
 
-**Artist**: onlytom ♴ 
+**Artist**: Mixmag 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: Premiere: DJ Lag '3 Step Culo'
 
-Last updated at 10/14/2020 11:13
+Last updated at 10/14/2020 12:07
