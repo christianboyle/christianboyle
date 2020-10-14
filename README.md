@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-unrFxZerO3XFPszS-W45d6Q-t50x50.jpg">](https://soundcloud.com/gateraudio/alert-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tz4kDziZhvfWKtVI-wGdglQ-t50x50.jpg">](https://soundcloud.com/jayceeoh/henry-fong-knock2-whats-the-move-feat-general-degree-jayceeoh-remix)
 
-**Artist**: Gater 
+**Artist**: Jayceeoh 
 
-**Track**: bandoum - alert (Gater & Thorjn Remix)
+**Track**: Henry Fong & Knock2 - What's the Move (feat. General Degree) [Jayceeoh Remix]
 
-Last updated at 10/14/2020 16:40
+Last updated at 10/14/2020 16:42
