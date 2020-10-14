@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xiy7M7vh0N9SKdV4-y5aMxw-t50x50.jpg">](https://soundcloud.com/mmxvmusic/dj-snake-zomboy-quiet-storm-teknicolor-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Flocmet7ZzOBJTYN-G51SrQ-t50x50.jpg">](https://soundcloud.com/wearefrontier/fr102)
 
-**Artist**: MMXVAC 
+**Artist**: FRONTIER by AC 
 
-**Track**: DJ Snake & Zomboy - Quiet Storm (Teknicolor Flip)
+**Track**: drajie — chaos
 
-Last updated at 10/14/2020 06:37
+Last updated at 10/14/2020 06:38
