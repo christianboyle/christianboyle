@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HydITPnXHKSVGcVY-euAYGQ-t50x50.jpg">](https://soundcloud.com/pedicure-records/03-underd0g-aftershock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qy9QEezRMbaV-0-t50x50.jpg">](https://soundcloud.com/smokeasac/one-bad-day-1)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: SMOKEASAC 
 
-**Track**: 03. underd0g - aftershock
+**Track**: One Bad Day
 
-Last updated at 10/14/2020 09:45
+Last updated at 10/14/2020 09:48
