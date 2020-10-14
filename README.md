@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iz86nrhwq4gO-0-t50x50.jpg">](https://soundcloud.com/yehme2/eyes-closed-yehme2-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKFXtnmnSoiKxbn7-5ucDzg-t50x50.jpg">](https://soundcloud.com/laviermusic/assurance)
 
-**Artist**: YehMe2 
+**Artist**: Lavier 
 
-**Track**: Ted When, YehMe2 - Eyes Closed (YehMe2 Remix)
+**Track**: Assurance
 
-Last updated at 10/14/2020 06:40
+Last updated at 10/14/2020 07:17
