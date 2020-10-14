@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueBN5OPBuJiKrW6Z-RXgyuA-t50x50.jpg">](https://soundcloud.com/itschristracy/poser-prod-naawoj-x-curtains)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TmYFlVymrKxaIbqW-a9tU0Q-t50x50.jpg">](https://soundcloud.com/millia-rage/millia-rage-half-loiner)
 
-**Artist**: ChrisTracy! 
+**Artist**: millia rage 
 
-**Track**: POSER! (Prod. Naawoj x Curtains)
+**Track**: millia rage – half-loiner
 
-Last updated at 10/14/2020 12:28
+Last updated at 10/14/2020 12:29
