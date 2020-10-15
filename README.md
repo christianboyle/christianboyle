@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nREUxhTV6K51hmyh-2tPgGQ-t50x50.jpg">](https://soundcloud.com/trax-magazine/premiere-otta-silence-is-oppression-possession-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t50x50.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
 
-**Artist**: TRAX MAGAZINE 
+**Artist**: Astrophonica 
 
-**Track**: Premiere : ØTTA - Silence is Oppression [Possession Records]
+**Track**: Astrophonica Podcast 03 - Sully
 
-Last updated at 10/15/2020 07:58
+Last updated at 10/15/2020 07:59
