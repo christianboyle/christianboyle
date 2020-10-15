@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBWM9Gajoczlpm9J-S1jBlQ-t50x50.jpg">](https://soundcloud.com/whoskid/sicko-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qy9QEezRMbaV-0-t50x50.jpg">](https://soundcloud.com/smokeasac/one-bad-day-1)
 
-**Artist**: k?d 
+**Artist**: SMOKEASAC 
 
-**Track**: Travis Scott x Skrillex - Sicko Mode (k?d DJ Tool)
+**Track**: One Bad Day
 
-Last updated at 10/15/2020 09:04
+Last updated at 10/15/2020 09:06
