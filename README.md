@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4J15fZKwQIobbwx-GjPwHg-t50x50.jpg">](https://soundcloud.com/gldmusic/kai-wachi-x-dylan-matthew-run-gld-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xx5plMMiMG7BQ5bL-A7DKDg-t50x50.jpg">](https://soundcloud.com/subsidia/stuca-eugene-anvil)
 
-**Artist**: GLD 
+**Artist**: Subsidia 
 
-**Track**: Kai Wachi x Dylan Matthew - Run (GLD Remix)
+**Track**: STUCA & Eugene - Anvil
 
-Last updated at 10/15/2020 07:47
+Last updated at 10/15/2020 07:48
