@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0JcuD3Y9rso-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/oops-im-sorry-feat-gashi-ty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4J15fZKwQIobbwx-GjPwHg-t50x50.jpg">](https://soundcloud.com/gldmusic/kai-wachi-x-dylan-matthew-run-gld-remix)
 
-**Artist**: Lost Kings 
+**Artist**: GLD 
 
-**Track**: Oops (I'm Sorry) [feat. GASHI & Ty Dolla $ign]
+**Track**: Kai Wachi x Dylan Matthew - Run (GLD Remix)
 
-Last updated at 10/15/2020 07:34
+Last updated at 10/15/2020 07:47
