@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
 
-**Artist**: SMOKEASAC 
+**Artist**: Milk N Cooks 
 
-**Track**: Leave You Behind
+**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
 
-Last updated at 10/15/2020 09:09
+Last updated at 10/15/2020 11:41
