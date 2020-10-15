@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7y461neoY4VzQku-vmq59g-t50x50.jpg">](https://soundcloud.com/bitbird/sofasound-dream-lover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqdMndY8kn9z01zt-Cj6MZg-t50x50.jpg">](https://soundcloud.com/pil-society/i-need)
 
-**Artist**: bitbird 
+**Artist**: PIL Society 
 
-**Track**: Sofasound - Dream Lover
+**Track**: Sasha Rome & Capshun - I Need
 
-Last updated at 10/15/2020 07:54
+Last updated at 10/15/2020 07:55
