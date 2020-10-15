@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QiInE5nZJ4VSgKR-SQLdNg-t50x50.jpg">](https://soundcloud.com/cgilly-1/go-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0JcuD3Y9rso-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/oops-im-sorry-feat-gashi-ty)
 
-**Artist**: Chloe Gilligan 
+**Artist**: Lost Kings 
 
-**Track**: Go
+**Track**: Oops (I'm Sorry) [feat. GASHI & Ty Dolla $ign]
 
-Last updated at 10/14/2020 16:56
+Last updated at 10/15/2020 07:34
