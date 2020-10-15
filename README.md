@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t50x50.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBWM9Gajoczlpm9J-S1jBlQ-t50x50.jpg">](https://soundcloud.com/whoskid/sicko-3)
 
-**Artist**: Astrophonica 
+**Artist**: k?d 
 
-**Track**: Astrophonica Podcast 03 - Sully
+**Track**: Travis Scott x Skrillex - Sicko Mode (k?d DJ Tool)
 
-Last updated at 10/15/2020 07:59
+Last updated at 10/15/2020 09:04
