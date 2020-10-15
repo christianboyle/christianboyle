@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xx5plMMiMG7BQ5bL-A7DKDg-t50x50.jpg">](https://soundcloud.com/subsidia/stuca-eugene-anvil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXlDgDDDgCgCLeau-yW3f2Q-t50x50.jpg">](https://soundcloud.com/blackwinterwells/ignored-feat-4am-kiryano-4am?in=blackwinterwells/sets/ocean)
 
-**Artist**: Subsidia 
+**Artist**: blackwinterwells 
 
-**Track**: STUCA & Eugene - Anvil
+**Track**: ignored feat. 4am, kiryano (4am)
 
-Last updated at 10/15/2020 07:48
+Last updated at 10/15/2020 07:49
