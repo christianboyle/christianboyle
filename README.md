@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxZmKrF01RWXLWIA-zGf2Zw-t50x50.jpg">](https://soundcloud.com/sweaters/perfume-sweater-beats-remix-1)
 
-**Artist**: jakkyboí 
+**Artist**: SWEATER BEATS 
 
-**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
+**Track**: Mehro - Perfume (Sweater Beats Remix)
 
-Last updated at 10/15/2020 12:13
+Last updated at 10/15/2020 12:15
