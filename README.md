@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWLS0Oz05k0AcgPh-vBazsQ-t50x50.jpg">](https://soundcloud.com/y97oiyyhtnyt/xxxtentacion-depression-obsession-remix-bydxxdly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SErxxl7N3s046ThF-z1kwig-t50x50.jpg">](https://soundcloud.com/klutchbass/american-idiot-klutch-remix)
 
-**Artist**: DXXDLY 
+**Artist**: Klutch 
 
-**Track**: XXXTENTACION - Depression & Obsession (REMIX) by.DXXDLY
+**Track**: Green Day - American Idiot (Klutch Remix)
 
-Last updated at 10/16/2020 15:18
+Last updated at 10/16/2020 15:19
