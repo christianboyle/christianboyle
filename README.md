@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676628347-cyzoli-t50x50.jpg">](https://soundcloud.com/eliozie/krylon?in=terrorreid/sets/hot-vodka-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zD3Cp34IhGpqkwq6-VtE0eA-t50x50.png">](https://soundcloud.com/eliozie/explode)
 
 **Artist**: ELIOZIE 
 
-**Track**: ELIOZIE & TERROR REID - KRYLON
+**Track**: ELIOZIE & REDZED - EXPLODE
 
-Last updated at 10/16/2020 08:58
+Last updated at 10/16/2020 09:43
