@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLP1Sju0WYd0H6HC-LgnnTg-t50x50.jpg">](https://soundcloud.com/benzi/comeandgo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cvJmS0Dt1aJhgHNG-hCGfcg-t50x50.jpg">](https://soundcloud.com/drevm/stuntin)
 
-**Artist**: BENZI 
+**Artist**: DREVM 
 
-**Track**: Juice WRLD & Marshmello - Come & Go (TWINSICK & BENZI Remix)
+**Track**: stuntin'
 
-Last updated at 10/16/2020 15:14
+Last updated at 10/16/2020 15:15
