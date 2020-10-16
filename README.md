@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000337739520-ueek57-t50x50.jpg">](https://soundcloud.com/jackstaxmusic/diplo-feat-mo-get-it-right-jack-stax-x-luca-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
 
-**Artist**: Jack Stax 
+**Artist**: Good Vibes Only 
 
-**Track**: Diplo Feat. MØ - Get It Right (Jack Stax X Luca Bootleg)
+**Track**: Elahu - OP #GV085
 
-Last updated at 10/16/2020 15:07
+Last updated at 10/16/2020 15:10
