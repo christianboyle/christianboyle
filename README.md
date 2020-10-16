@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-noqOCjs4l4nf-0-t50x50.png">](https://soundcloud.com/kamakazeofficial/the-hero-and-the-rock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676628347-cyzoli-t50x50.jpg">](https://soundcloud.com/eliozie/krylon?in=terrorreid/sets/hot-vodka-1)
 
-**Artist**: Kamakaze 
+**Artist**: ELIOZIE 
 
-**Track**: The Hero and The Rock
+**Track**: ELIOZIE & TERROR REID - KRYLON
 
-Last updated at 10/16/2020 08:53
+Last updated at 10/16/2020 08:58
