@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Os4xM5ze2XK2-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/ok-not-to-be-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t50x50.jpg">](https://soundcloud.com/fish_narc/wildfire?in=saxurn/sets/tester2/)
 
-**Artist**: marshmello 
+**Artist**: fish narc 
 
-**Track**: OK Not To Be OK
+**Track**: WiLDFiRE
 
-Last updated at 10/16/2020 14:16
+Last updated at 10/16/2020 14:17
