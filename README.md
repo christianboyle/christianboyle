@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IT4Kpdxjzhlo9DzN-nGrwUQ-t50x50.jpg">](https://soundcloud.com/goodvibesonly/gv085)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hJBMDzA0YL3J5RNy-S1S1WQ-t50x50.jpg">](https://soundcloud.com/whethan/clouds?in=whethan/sets/fantasy)
 
-**Artist**: Good Vibes Only 
+**Artist**: Whethan 
 
-**Track**: Elahu - OP #GV085
+**Track**: Clouds (feat. The Wombats)
 
-Last updated at 10/16/2020 15:10
+Last updated at 10/16/2020 15:11
