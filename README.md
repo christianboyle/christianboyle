@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcldielWzoNPSitz-50kKmA-t50x50.jpg">](https://soundcloud.com/beweirdbeoriginal/watch-me-burn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
 
-**Artist**: BWBO 
+**Artist**: onlytom ♴ 
 
-**Track**: NeoQor feat. Evangeline - Watch Me Burn (Radio Edit)
+**Track**: onlytom for Hotel Radio Paris
 
-Last updated at 10/16/2020 11:22
+Last updated at 10/16/2020 11:27
