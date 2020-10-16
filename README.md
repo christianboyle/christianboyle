@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
 
-**Artist**: King Theta 
+**Artist**: TERROR REID 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: BURIED ALIVE FEAT. ELIOZIE
 
-Last updated at 10/16/2020 10:56
+Last updated at 10/16/2020 10:58
