@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t50x50.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/tester2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t50x50.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix?in=saxurn/sets/tester2/)
 
-**Artist**: texas baby 
+**Artist**: FGSN 
 
-**Track**: rmr - rascal (texas baby rmx)
+**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
 
-Last updated at 10/16/2020 14:58
+Last updated at 10/16/2020 15:02
