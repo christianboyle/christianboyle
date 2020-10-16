@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tycEMUntk9sgJ3Ar-8rGKhg-t50x50.jpg">](https://soundcloud.com/ramirez_187/04-gold-thangs-pinky-rangs-da-hooptie-feat-pouya-shakewell?in=ramirez_187/sets/tha-playa-manual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
 
-**Artist**: RAMIREZ. 
+**Artist**: TERROR REID 
 
-**Track**: Gold Thangs & Pinky Rangs [Da Hooptie] (feat. Pouya & Shakewell)
+**Track**: BURIED ALIVE FEAT. ELIOZIE
 
-Last updated at 10/16/2020 09:48
+Last updated at 10/16/2020 09:49
