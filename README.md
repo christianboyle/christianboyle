@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/badside)
 
-**Artist**: smrtdeath 
+**Artist**: lil aaron 
 
-**Track**: got em mad (prod taxpurposes)
+**Track**: BADSIDE
 
-Last updated at 10/15/2020 20:55
+Last updated at 10/15/2020 20:57
