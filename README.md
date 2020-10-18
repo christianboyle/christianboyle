@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shHlf9ZFqK85M6V9-6fzcxA-t50x50.jpg">](https://soundcloud.com/ravedicks/kinky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7OhE77ktx760xLHV-SHf0zA-t50x50.jpg">](https://soundcloud.com/m_dmusic/hiatus-vol-2)
 
-**Artist**: RAVEDICKS 
+**Artist**: MOD MUSIC 
 
-**Track**: Kinky
+**Track**: Hiatus Vol. 2
 
-Last updated at 10/17/2020 19:54
+Last updated at 10/17/2020 19:56
