@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7OhE77ktx760xLHV-SHf0zA-t50x50.jpg">](https://soundcloud.com/m_dmusic/hiatus-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bL9REpsfN5xbQn0W-7iHGag-t50x50.jpg">](https://soundcloud.com/thechainsmokers/nice-hair-073)
 
-**Artist**: MOD MUSIC 
+**Artist**: The Chainsmokers 
 
-**Track**: Hiatus Vol. 2
+**Track**: Nice Hair with The Chainsmokers 073 ft. Anabel Englund
 
-Last updated at 10/17/2020 19:56
+Last updated at 10/18/2020 13:39
