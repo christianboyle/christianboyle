@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HZWvNAvXTSsDfHJP-8nTmsg-t50x50.jpg">](https://soundcloud.com/riki-dosi/crazy-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CDb2HArQodxx7Vhr-CgFFQA-t50x50.jpg">](https://soundcloud.com/plukomusic/the-sound)
 
-**Artist**: Richard Green 
+**Artist**: pluko 
 
-**Track**: Crazy Love
+**Track**: the sound (w/ Moby Rich)
 
-Last updated at 10/17/2020 19:46
+Last updated at 10/17/2020 19:47
