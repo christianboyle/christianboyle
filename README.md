@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bL9REpsfN5xbQn0W-7iHGag-t50x50.jpg">](https://soundcloud.com/thechainsmokers/nice-hair-073)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-xFyDPLG9nQkVZnKc-2WJGOg-t50x50.jpg">](https://soundcloud.com/iamonlytom/42-seerightthroughtoyou-group-2020-10-16-213119)
 
-**Artist**: The Chainsmokers 
+**Artist**: onlytom 
 
-**Track**: Nice Hair with The Chainsmokers 073 ft. Anabel Englund
+**Track**: 42 - SEERIGHTTHROUGHTOYOU GROUP [2020 - 10 - 16 213119]
 
-Last updated at 10/18/2020 13:39
+Last updated at 10/19/2020 12:52
