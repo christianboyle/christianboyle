@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tj1m02A78YR30T5i-tdUhTA-t50x50.jpg">](https://soundcloud.com/thechainsmokers/nice-hair-074)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZsrb3EWk6jDtsla-qh1Jvw-t50x50.jpg">](https://soundcloud.com/deadbeatsrecords/173-deadbeats-radio-with-zeds-dead-binks-guestmix)
 
-**Artist**: The Chainsmokers 
+**Artist**: Deadbeats 
 
-**Track**: Nice Hair with The Chainsmokers 074 ft. KC Lights
+**Track**: #173 Deadbeats Radio with Zeds Dead // BINKS Guestmix
 
-Last updated at 10/19/2020 20:02
+Last updated at 10/19/2020 20:03
