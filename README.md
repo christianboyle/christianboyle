@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVi7anNHfVeaDgDO-fV0esw-t50x50.jpg">](https://soundcloud.com/shortfatty/okay-oh-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4J15fZKwQIobbwx-GjPwHg-t50x50.jpg">](https://soundcloud.com/gldmusic/kai-wachi-x-dylan-matthew-run-gld-remix)
 
-**Artist**: shortfatty 
+**Artist**: GLD 
 
-**Track**: okay, oh cool! [hatchback rmx]
+**Track**: KAI WACHI x DYLAN MATTHEW - RUN (GLD REMIX)
 
-Last updated at 10/19/2020 19:23
+Last updated at 10/19/2020 19:25
