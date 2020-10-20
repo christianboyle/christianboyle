@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMxKy8Ob1zcSZwZ7-gzbnww-t50x50.jpg">](https://soundcloud.com/zappbeats/circling-the-block)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzVyMSIv7uIpF3V1-RiumKw-t50x50.jpg">](https://soundcloud.com/fresh22stuff/mind-control)
 
-**Artist**: ZappBeats 
+**Artist**: FRESH STUFF 
 
-**Track**: CIRCLING THE BLOCK
+**Track**: MIND CONTROL
 
-Last updated at 10/19/2020 19:31
+Last updated at 10/19/2020 19:34
