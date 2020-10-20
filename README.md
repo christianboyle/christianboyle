@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ny6oeKWdUqfb-0-t50x50.jpg">](https://soundcloud.com/nickam/power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bkNrtw1G33uGT7eN-ccDFEw-t50x50.jpg">](https://soundcloud.com/eyezic-music/promise-fuxwithit-premiere)
 
-**Artist**: Nick AM 
+**Artist**: eyezic. 
 
-**Track**: Power
+**Track**: Promise [FUXWITHIT Premiere]
 
-Last updated at 10/20/2020 15:35
+Last updated at 10/20/2020 15:38
