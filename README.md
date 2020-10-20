@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K36OpnNaPkgRB88q-3P3paQ-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf257)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVi7anNHfVeaDgDO-fV0esw-t50x50.jpg">](https://soundcloud.com/shortfatty/okay-oh-cool)
 
-**Artist**: Strange Fruits 
+**Artist**: shortfatty 
 
-**Track**: Green Bull - Get Out My Head
+**Track**: okay, oh cool! [hatchback rmx]
 
-Last updated at 10/19/2020 19:49
+Last updated at 10/19/2020 19:51
