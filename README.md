@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-krEfQ1wycmmFPjQj-9SZREg-t50x50.jpg">](https://soundcloud.com/shanghaidoom/shanghai-doom-servant-of-god-electric-hawk-premiere?in=shanghaidoom/sets/shanghai-doom-rituals-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqhnyRJrmbeTGGfI-3QuLEQ-t50x50.jpg">](https://soundcloud.com/powerglove/brain-jack)
 
-**Artist**: Shanghai Doom 
+**Artist**: Power Glove 
 
-**Track**: Shanghai Doom - Servant Of God [Electric Hawk Premiere]
+**Track**: BRAIN JACK
 
-Last updated at 10/19/2020 19:58
+Last updated at 10/19/2020 19:59
