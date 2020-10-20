@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1)
 
-**Artist**: SMOKEASAC 
+**Artist**: smrtdeath 
 
-**Track**: Leave You Behind
+**Track**: got em mad (prod taxpurposes)
 
-Last updated at 10/20/2020 11:21
+Last updated at 10/20/2020 11:25
