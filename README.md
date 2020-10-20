@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ny6oeKWdUqfb-0-t50x50.jpg">](https://soundcloud.com/nickam/power)
 
-**Artist**: Milk N Cooks 
+**Artist**: Nick AM 
 
-**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
+**Track**: Power
 
-Last updated at 10/20/2020 11:27
+Last updated at 10/20/2020 15:35
