@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dxQJxqHoaQOZh2IF-6Zy2zw-t50x50.jpg">](https://soundcloud.com/enforcerecords/howdeepisyourlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flqn1WlzbBD9Mav7-7WzRbw-t50x50.jpg">](https://soundcloud.com/uiceheidd/come-go-ft-marshmello?in=uiceheidd/sets/legends-never-die)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: Juice WRLD 
 
-**Track**: Ducka Shan - How Deep Is Your Love (Feat. Calvin Biasi)
+**Track**: Come & Go Ft. Marshmello
 
-Last updated at 10/20/2020 15:49
+Last updated at 10/20/2020 15:50
