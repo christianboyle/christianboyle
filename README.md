@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzVyMSIv7uIpF3V1-RiumKw-t50x50.jpg">](https://soundcloud.com/fresh22stuff/mind-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wK5DJDt52ezwwKoI-ghR0JA-t50x50.jpg">](https://soundcloud.com/deorro/beso)
 
-**Artist**: FRESH STUFF 
+**Artist**: Deorro 
 
-**Track**: MIND CONTROL
+**Track**: Deorro - Beso
 
-Last updated at 10/19/2020 19:40
+Last updated at 10/19/2020 19:41
