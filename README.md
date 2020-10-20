@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vRvq4X7q9NSB0FNg-TRrk5A-t50x50.jpg">](https://soundcloud.com/rayvolpemusic/turbo-kid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nwh4KWqoWE3a3Xip-hm8Sgw-t50x50.jpg">](https://soundcloud.com/gldmusic/forever-in-the-friendzone)
 
-**Artist**: RAY VOLPE 🤖 
+**Artist**: GLD 
 
-**Track**: RAY VOLPE - TURBO KID
+**Track**: Forever (In The Friendzone)
 
-Last updated at 10/20/2020 15:46
+Last updated at 10/20/2020 15:48
