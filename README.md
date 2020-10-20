@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdmd3eRwgFMM-0-t50x50.jpg">](https://soundcloud.com/uiceheidd/all-girls-are-same-999-prod-nick-mira?in=uiceheidd/sets/goodbyegoodriddance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: Juice WRLD 
+**Artist**: Astrophonica 
 
-**Track**: All Girls Are The Same
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 10/20/2020 15:58
+Last updated at 10/20/2020 16:06
