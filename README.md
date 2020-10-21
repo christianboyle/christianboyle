@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mPirhyuF1emmjY3-J5rKpA-t50x50.jpg">](https://soundcloud.com/sheepshead-music/newtype-rhythms-119-special-guest-afruit?in=inverted-audio/sets/inverted-audio-x-newtype)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: Sheepshead 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: Newtype Rhythms #119 - Special Guest: A.Fruit
 
-Last updated at 10/21/2020 10:43
+Last updated at 10/21/2020 10:48
