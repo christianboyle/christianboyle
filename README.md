@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RmSB0K3GFIYkpb6u-pNBtVA-t50x50.jpg">](https://soundcloud.com/blazingbeatzz/akon-dont-matter-blazing-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1SMsEIVMVOIEmbN-vxgy1w-t50x50.jpg">](https://soundcloud.com/tokyoroseofficial/tokyo-rose-makeshft-genesis)
 
-**Artist**: BlazinG 
+**Artist**: TOKYO ROSE 
 
-**Track**: Akon - Don't Matter (BlazinG Edit)
+**Track**: TOKYO ROSE & MAKESHFT - Genesis
 
-Last updated at 10/21/2020 12:47
+Last updated at 10/21/2020 12:50
