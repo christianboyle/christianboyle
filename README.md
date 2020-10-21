@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RmSB0K3GFIYkpb6u-pNBtVA-t50x50.jpg">](https://soundcloud.com/blazingbeatzz/akon-dont-matter-blazing-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LN0POB2D6Swzmsnu-MGSkCg-t50x50.jpg">](https://soundcloud.com/airsh4d3/never-go-home)
 
-**Artist**: BlazinG 
+**Artist**: airshade 
 
-**Track**: Akon - Don't Matter (BlazinG Edit)
+**Track**: never go home
 
-Last updated at 10/21/2020 15:49
+Last updated at 10/21/2020 15:54
