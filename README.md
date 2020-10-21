@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-XswHeYZEvXIxtJuV-lfWw1w-t50x50.jpg">](https://soundcloud.com/toosii2xd/gang-unit)
 
-**Artist**: Lil Pump 
+**Artist**: 2x 
 
-**Track**: Lil Pump - Life Like Me (prod by Bighead)
+**Track**: gang unit
 
-Last updated at 10/21/2020 12:01
+Last updated at 10/21/2020 12:03
