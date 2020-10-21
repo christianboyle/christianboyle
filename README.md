@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqMnlayLN0Su6Ghj-dDAN6w-t50x50.jpg">](https://soundcloud.com/shardem/paradise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: shardem 
+**Artist**: Astrophonica 
 
-**Track**: Paradise
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 10/21/2020 15:57
+Last updated at 10/21/2020 16:00
