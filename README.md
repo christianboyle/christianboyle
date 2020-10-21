@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LN0POB2D6Swzmsnu-MGSkCg-t50x50.jpg">](https://soundcloud.com/airsh4d3/never-go-home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqMnlayLN0Su6Ghj-dDAN6w-t50x50.jpg">](https://soundcloud.com/shardem/paradise)
 
-**Artist**: airshade 
+**Artist**: shardem 
 
-**Track**: never go home
+**Track**: Paradise
 
-Last updated at 10/21/2020 15:54
+Last updated at 10/21/2020 15:57
