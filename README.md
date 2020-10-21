@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-XswHeYZEvXIxtJuV-lfWw1w-t50x50.jpg">](https://soundcloud.com/toosii2xd/gang-unit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4NcDefL5gY7SahAR-PDEj5A-t50x50.jpg">](https://soundcloud.com/21cambii/moonwalking-in-calabasas-cambii-remix)
 
-**Artist**: 2x 
+**Artist**: Cambii 
 
-**Track**: gang unit
+**Track**: Moonwalking In Calabasas (REMIX) - DDG x Blueface x Cambii
 
-Last updated at 10/21/2020 12:03
+Last updated at 10/21/2020 12:05
