@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHu96yArCRvtthE-otuulw-t50x50.jpg">](https://soundcloud.com/jakkyboi/dont-know-why-i-even-fing-liked-you-feat-smrtdeath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: jakkyboí 
+**Artist**: Astrophonica 
 
-**Track**: don't know why i even f***ing liked you (feat. Smrtdeath)
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 10/21/2020 10:19
+Last updated at 10/21/2020 10:36
