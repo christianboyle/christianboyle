@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1SMsEIVMVOIEmbN-vxgy1w-t50x50.jpg">](https://soundcloud.com/tokyoroseofficial/tokyo-rose-makeshft-genesis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bdKca5wGN93T6XD-q9GiJg-t50x50.jpg">](https://soundcloud.com/vowlmusic/pain)
 
-**Artist**: TOKYO ROSE 
+**Artist**: vowl. 
 
-**Track**: TOKYO ROSE & MAKESHFT - Genesis
+**Track**: pain
 
-Last updated at 10/21/2020 12:50
+Last updated at 10/21/2020 12:54
