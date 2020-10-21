@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mPirhyuF1emmjY3-J5rKpA-t50x50.jpg">](https://soundcloud.com/sheepshead-music/newtype-rhythms-119-special-guest-afruit?in=inverted-audio/sets/inverted-audio-x-newtype)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: Sheepshead 
+**Artist**: Lil Pump 
 
-**Track**: Newtype Rhythms #119 - Special Guest: A.Fruit
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 10/21/2020 10:48
+Last updated at 10/21/2020 12:01
