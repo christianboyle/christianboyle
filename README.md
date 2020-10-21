@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKuwO6Vz9r2zhAFo-8aqvjQ-t50x50.jpg">](https://soundcloud.com/esuniya/4-feel-like-summers2i8-remix?in=4_jpn_official/sets/summer-rain-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzEh6vOMTUGbNuGU-zzryfQ-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-another-day-out-now-on-streaming)
 
-**Artist**: S2i8(esuniya) 
+**Artist**: 4*(JPN) 
 
-**Track**: 4* - Feel Like Summer(S2i8 Remix)
+**Track**: 4* - Another Day [OUT NOW ON STREAMING］
 
-Last updated at 10/20/2020 19:09
+Last updated at 10/20/2020 19:10
