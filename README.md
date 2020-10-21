@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: smrtdeath 
+**Artist**: King Theta 
 
-**Track**: got em mad (prod taxpurposes)
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 10/21/2020 09:31
+Last updated at 10/21/2020 10:03
