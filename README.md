@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gUUnpzaMNczhTJJe-VOyYrg-t50x50.jpg">](https://soundcloud.com/hyperforms/lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gw9s21EeMQ751EKU-GH9WmQ-t50x50.jpg">](https://soundcloud.com/jockshit/trance)
 
-**Artist**: hyperforms 
+**Artist**: VARSITY 
 
-**Track**: Ellie Goulding - Lights (hyperforms Remix)
+**Track**: TRANCE  [prod. creaux] (jackie platinum + shane stokes + popstarbills)
 
-Last updated at 10/21/2020 19:56
+Last updated at 10/21/2020 19:57
