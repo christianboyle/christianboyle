@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2qPtoinuDGAcJyn-ITRZQQ-t50x50.jpg">](https://soundcloud.com/p4rkr/bad-idea-blackwinterwells)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u5AutOSb78o3wzmy-oOoUuQ-t50x50.jpg">](https://soundcloud.com/kingtheta/critical-mass)
 
-**Artist**: osquinn 
+**Artist**: King Theta 
 
-**Track**: bad idea w/ blackwinterwells
+**Track**: Critical Mass
 
-Last updated at 10/21/2020 20:53
+Last updated at 10/21/2020 20:54
