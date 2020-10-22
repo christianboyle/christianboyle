@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u5AutOSb78o3wzmy-oOoUuQ-t50x50.jpg">](https://soundcloud.com/kingtheta/critical-mass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660726736-hcm2x9-t50x50.jpg">](https://soundcloud.com/yungscuff/yung-scuff-x-jakkyboi-u-do-u)
 
-**Artist**: King Theta 
+**Artist**: Yung Scuff 
 
-**Track**: Critical Mass
+**Track**: 💙 yung scuff X jakkyboí 💖 - U DO U
 
-Last updated at 10/21/2020 20:54
+Last updated at 10/21/2020 20:55
