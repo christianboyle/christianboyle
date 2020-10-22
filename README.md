@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WD7vzyhUlkNBKI2i-kb2caw-t50x50.jpg">](https://soundcloud.com/bleu-welcomehere/remedy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JitJrtPA16vybVCo-7SCZNA-t50x50.jpg">](https://soundcloud.com/iamlick/lick-halloween-mix-dvo-volume-3)
 
-**Artist**: bleu 
+**Artist**: LICK 
 
-**Track**: remedy
+**Track**: LICK HALLOWEEN MIX | DVO VOLUME 3
 
-Last updated at 10/21/2020 20:00
+Last updated at 10/21/2020 20:01
