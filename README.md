@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/808-rock)
 
-**Artist**: TERROR REID 
+**Artist**: lil aaron 
 
-**Track**: BURIED ALIVE FEAT. ELIOZIE
+**Track**: 808 ROCK
 
-Last updated at 10/22/2020 08:42
+Last updated at 10/22/2020 08:45
