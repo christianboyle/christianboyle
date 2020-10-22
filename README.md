@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPHnOQp8KTGbwWLV-byy2qg-t50x50.jpg">](https://soundcloud.com/lilaaron911/808-rock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qy9QEezRMbaV-0-t50x50.jpg">](https://soundcloud.com/smokeasac/one-bad-day-1)
 
-**Artist**: lil aaron 
+**Artist**: SMOKEASAC 
 
-**Track**: 808 ROCK
+**Track**: One Bad Day
 
-Last updated at 10/22/2020 08:07
+Last updated at 10/22/2020 08:10
