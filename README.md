@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H124cfAnupPEKB5n-lHq4cA-t50x50.jpg">](https://soundcloud.com/trzbts/undercover-tearz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: TEARZ 
+**Artist**: Astrophonica 
 
-**Track**: UNDERCOVER - TEARZ REMIX
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 10/21/2020 21:22
+Last updated at 10/21/2020 21:23
