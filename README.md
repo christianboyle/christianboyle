@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzbkljAdcYcQ6chC-kvWF4A-t50x50.jpg">](https://soundcloud.com/yuki-pons/idk-how-2-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gw9s21EeMQ751EKU-GH9WmQ-t50x50.jpg">](https://soundcloud.com/jockshit/trance)
 
-**Artist**: shyburial 
+**Artist**: VARSITY 
 
-**Track**: idk how 2 feel
+**Track**: TRANCE  [prod. creaux] (jackie platinum + shane stokes + popstarbills)
 
-Last updated at 10/21/2020 20:50
+Last updated at 10/21/2020 20:51
