@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660726736-hcm2x9-t50x50.jpg">](https://soundcloud.com/yungscuff/yung-scuff-x-jakkyboi-u-do-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592924742-7b5gpm-t50x50.jpg">](https://soundcloud.com/drinkinaloefeelinshallow/most-wanted?in=drinkinaloefeelinshallow/sets/shthead)
 
-**Artist**: Yung Scuff 
+**Artist**: NASCAR ALOE 
 
-**Track**: 💙 yung scuff X jakkyboí 💖 - U DO U
+**Track**: most wanted
 
-Last updated at 10/21/2020 20:55
+Last updated at 10/21/2020 20:56
