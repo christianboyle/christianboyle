@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2XA4u6oA4vOQUvX-zG0xDQ-t50x50.jpg">](https://soundcloud.com/jakkyboi/hit-me-when-ur-sorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2qPtoinuDGAcJyn-ITRZQQ-t50x50.jpg">](https://soundcloud.com/p4rkr/bad-idea-blackwinterwells)
 
-**Artist**: jakkyboí 
+**Artist**: osquinn 
 
-**Track**: hit me when ur sorry
+**Track**: bad idea w/ blackwinterwells
 
-Last updated at 10/21/2020 20:52
+Last updated at 10/21/2020 20:53
