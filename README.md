@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489177885-2s58vl-t50x50.jpg">](https://soundcloud.com/lilaaron911/idrgaf?in=lilaaron911/sets/bfz2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000498141795-kjszfh-t50x50.jpg">](https://soundcloud.com/bradyamour/year-3000-cover)
 
-**Artist**: lil aaron 
+**Artist**: Brady Amour 
 
-**Track**: IDRGAF(BOYFRIENDZ)
+**Track**: Year 3000 (Cover)
 
-Last updated at 10/21/2020 20:58
+Last updated at 10/21/2020 20:59
