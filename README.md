@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gw9s21EeMQ751EKU-GH9WmQ-t50x50.jpg">](https://soundcloud.com/jockshit/trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yomelvkrsglUSrU-5UvF7A-t50x50.jpg">](https://soundcloud.com/theblndr/disruption)
 
-**Artist**: VARSITY 
+**Artist**: BLNDR 
 
-**Track**: TRANCE  [prod. creaux] (jackie platinum + shane stokes + popstarbills)
+**Track**: Straim - Disruption
 
-Last updated at 10/21/2020 19:57
+Last updated at 10/21/2020 19:58
