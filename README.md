@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592924742-7b5gpm-t50x50.jpg">](https://soundcloud.com/drinkinaloefeelinshallow/most-wanted?in=drinkinaloefeelinshallow/sets/shthead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVNzm3SGMwyttAG5-iTuncQ-t50x50.jpg">](https://soundcloud.com/tddybrr/ihatemyselfmorethanyouevercould)
 
-**Artist**: NASCAR ALOE 
+**Artist**: teddybear 
 
-**Track**: most wanted
+**Track**: i hate myself more than you ever could (Prod. Ricky Anthony, Hudson Alexander, Tülpa & Convenience)
 
-Last updated at 10/21/2020 20:56
+Last updated at 10/21/2020 20:57
