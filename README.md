@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000666842107-1i2i7f-t50x50.jpg">](https://soundcloud.com/smokeasac/insomnia-feat-travis-barker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
 
-**Artist**: SMOKEASAC 
+**Artist**: Contre Jour 
 
-**Track**: Insomnia Feat. Travis Barker
+**Track**: MENTHALO - NEED A HERO
 
-Last updated at 10/22/2020 20:31
+Last updated at 10/22/2020 20:32
