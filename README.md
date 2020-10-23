@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000426410124-tj7wy4-t50x50.jpg">](https://soundcloud.com/felix-palmqvist/theresnoway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
 
-**Artist**: Felix Palmqvist 
+**Artist**: Contre Jour 
 
-**Track**: Lauv - There's No Way (Felix Palmqvist & Oliver Torshall Remix)
+**Track**: MENTHALO - NEED A HERO
 
-Last updated at 10/23/2020 12:01
+Last updated at 10/23/2020 12:04
