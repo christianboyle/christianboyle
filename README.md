@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzWyhOIzrTu9h2k8-HjmSaQ-t50x50.jpg">](https://soundcloud.com/wandw/ww-x-axmo-ft-sonja-rave-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGH0JZi394kc26oE-6PIbzw-t50x50.jpg">](https://soundcloud.com/spinninrecords/lvndscape-turn-off-the-radio-feat-ozma-out-now)
 
-**Artist**: W&W 
+**Artist**: Spinnin' Records 
 
-**Track**: W&W X AXMO ft SONJA - Rave Love
+**Track**: LVNDSCAPE - Turn Off The Radio (feat. ØZMA) [OUT NOW]
 
-Last updated at 10/23/2020 09:44
+Last updated at 10/23/2020 09:45
