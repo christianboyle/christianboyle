@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vv4gkqqkAupxAzVN-NPyyMw-t50x50.jpg">](https://soundcloud.com/sleeveless-records/jalaya-sandman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000667919104-3mnckd-t50x50.jpg">](https://soundcloud.com/fabric/leftright-fabriclive-x-punks-music-promo-mix)
 
-**Artist**: Sleeveless Records 
+**Artist**: fabric 
 
-**Track**: Jalaya - Sandman [Headbang Society Premiere]
+**Track**: Left/Right FABRICLIVE x Punks Music Promo Mix
 
-Last updated at 10/23/2020 08:16
+Last updated at 10/23/2020 08:17
