@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JIpRqppzSqIdztLP-NPXbLA-t50x50.jpg">](https://soundcloud.com/whoisdvrko/somewhere-in-la-tony-arzadon-remix-extended-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWUJypuBGpwMt3aq-3z1tjQ-t50x50.jpg">](https://soundcloud.com/noirsurblancrecords/max-mash-prmd-my-mind)
 
-**Artist**: DVRKO 
+**Artist**: noir sur blanc 
 
-**Track**: Somewhere In LA - (Tony Arzadon Remix)
+**Track**: Max Mash & PRMD - My Mind
 
-Last updated at 10/23/2020 09:22
+Last updated at 10/23/2020 09:24
