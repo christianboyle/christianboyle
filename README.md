@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Zbnc2kQE9hQ-0-t50x50.jpg">](https://soundcloud.com/griffith-clawson/chasing-highs)
 
-**Artist**: Contre Jour 
+**Artist**: Griff Clawson 
 
-**Track**: MENTHALO - NEED A HERO
+**Track**: Chasing Highs
 
-Last updated at 10/22/2020 20:50
+Last updated at 10/22/2020 20:51
