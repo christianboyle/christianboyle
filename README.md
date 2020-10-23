@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000666842107-1i2i7f-t50x50.jpg">](https://soundcloud.com/smokeasac/insomnia-feat-travis-barker)
 
-**Artist**: lil aaron 
+**Artist**: SMOKEASAC 
 
-**Track**: IDCIUDHMB (Prod. 4evr)
+**Track**: Insomnia Feat. Travis Barker
 
-Last updated at 10/22/2020 09:21
+Last updated at 10/22/2020 20:31
