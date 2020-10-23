@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K36OpnNaPkgRB88q-3P3paQ-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf257)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NmZ13UTJUdqzMTmQ-ZwlPpQ-t50x50.jpg">](https://soundcloud.com/donnaysoldier/goodbye-amberleaf-yellow)
 
-**Artist**: Strange Fruits 
+**Artist**: Donnay Soldier 
 
-**Track**: Green Bull - Get Out My Head
+**Track**: Goodbye Amberleaf Yellow (We Miss You)
 
-Last updated at 10/23/2020 09:19
+Last updated at 10/23/2020 09:20
