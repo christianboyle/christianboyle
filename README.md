@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9AtoC8k9Epjb-0-t50x50.jpg">](https://soundcloud.com/fish_narc/out?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/treasure-u?in=beauzworld/sets/beauzworld-vol-1)
 
-**Artist**: fish narc 
+**Artist**: BEAUZ 
 
-**Track**: OUT
+**Track**: BEAUZ, BSY, JSY - Treasure U ft. Sarah de Warren
 
-Last updated at 10/23/2020 11:44
+Last updated at 10/23/2020 11:48
