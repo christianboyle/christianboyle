@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGH0JZi394kc26oE-6PIbzw-t50x50.jpg">](https://soundcloud.com/spinninrecords/lvndscape-turn-off-the-radio-feat-ozma-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-St7xLYqOHEuxGRbz-OC1RqQ-t50x50.jpg">](https://soundcloud.com/xhrismadeit/riot-ten-rail-breaker-xhris-remix-w-rack-medium-balanced)
 
-**Artist**: Spinnin' Records 
+**Artist**: XHRIS 
 
-**Track**: LVNDSCAPE - Turn Off The Radio (feat. ØZMA) [OUT NOW]
+**Track**: Riot Ten - Rail Breaker Ft. Rico Act (XHRIS FLIP)
 
-Last updated at 10/23/2020 09:45
+Last updated at 10/23/2020 10:07
