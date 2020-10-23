@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: Contre Jour 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: MENTHALO - NEED A HERO
 
-Last updated at 10/23/2020 10:17
+Last updated at 10/23/2020 10:22
