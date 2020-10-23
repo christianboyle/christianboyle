@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWUJypuBGpwMt3aq-3z1tjQ-t50x50.jpg">](https://soundcloud.com/noirsurblancrecords/max-mash-prmd-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLLsUhTJq27vcAhi-qWKWkA-t50x50.jpg">](https://soundcloud.com/dukeandjones/above-the-tide?in=dukeandjones/sets/above-the-tide-free-download-1)
 
-**Artist**: noir sur blanc 
+**Artist**: Duke & Jones 
 
-**Track**: Max Mash & PRMD - My Mind
+**Track**: Above The Tide
 
-Last updated at 10/23/2020 09:24
+Last updated at 10/23/2020 09:28
