@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
-**Artist**: Contre Jour 
+**Artist**: smrtdeath 
 
-**Track**: MENTHALO - NEED A HERO
+**Track**: better off (prod. audioopera)
 
-Last updated at 10/23/2020 10:22
+Last updated at 10/23/2020 10:48
