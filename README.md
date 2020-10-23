@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NmZ13UTJUdqzMTmQ-ZwlPpQ-t50x50.jpg">](https://soundcloud.com/donnaysoldier/goodbye-amberleaf-yellow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000192649042-op076r-t50x50.jpg">](https://soundcloud.com/weplayitlouder/tapecut-oimu)
 
-**Artist**: Donnay Soldier 
+**Artist**: Playitlouder 
 
-**Track**: Goodbye Amberleaf Yellow (We Miss You)
+**Track**: tapecut ⁃ oimu
 
-Last updated at 10/23/2020 09:20
+Last updated at 10/23/2020 09:21
