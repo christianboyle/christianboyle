@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-St7xLYqOHEuxGRbz-OC1RqQ-t50x50.jpg">](https://soundcloud.com/xhrismadeit/riot-ten-rail-breaker-xhris-remix-w-rack-medium-balanced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
 
-**Artist**: XHRIS 
+**Artist**: Contre Jour 
 
-**Track**: Riot Ten - Rail Breaker Ft. Rico Act (XHRIS FLIP)
+**Track**: MENTHALO - NEED A HERO
 
-Last updated at 10/23/2020 10:07
+Last updated at 10/23/2020 10:08
