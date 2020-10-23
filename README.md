@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000854792504-v7v3ke-t50x50.jpg">](https://soundcloud.com/skrillex/kliptown-empyrean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K36OpnNaPkgRB88q-3P3paQ-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf257)
 
-**Artist**: Skrillex 
+**Artist**: Strange Fruits 
 
-**Track**: Kliptown Empyrean
+**Track**: Green Bull - Get Out My Head
 
-Last updated at 10/23/2020 08:51
+Last updated at 10/23/2020 09:19
