@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GiYu374INsdN-0-t50x50.jpg">](https://soundcloud.com/fish_narc/new-medication?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1vUdQ2BEffa-0-t50x50.jpg">](https://soundcloud.com/fish_narc/haha?in=fish_narc/sets/wildfire-87541594)
 
 **Artist**: fish narc 
 
-**Track**: NEW MEDiCATiON
+**Track**: haha
 
-Last updated at 10/23/2020 11:22
+Last updated at 10/23/2020 11:25
