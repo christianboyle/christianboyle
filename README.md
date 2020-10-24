@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdJ1eiE1XxK2y3En-SERXYw-t50x50.jpg">](https://soundcloud.com/doubledrop23/hardcoretakeover-ep15-ft-scr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/ngru)
 
-**Artist**: double-drop 
+**Artist**: BEAUZ 
 
-**Track**: HardcoreTakeover Ep.15 Ft Sc@r
+**Track**: BEAUZ, SIIGHTS - Never Gonna Regret U
 
-Last updated at 10/24/2020 17:31
+Last updated at 10/24/2020 17:39
