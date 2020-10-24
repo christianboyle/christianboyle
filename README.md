@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000810806266-7ltt1i-t50x50.jpg">](https://soundcloud.com/scarreddigital-com/sd184-ganar-jdh-it-aint-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdJ1eiE1XxK2y3En-SERXYw-t50x50.jpg">](https://soundcloud.com/doubledrop23/hardcoretakeover-ep15-ft-scr)
 
-**Artist**: scarreddigital.com 
+**Artist**: double-drop 
 
-**Track**: SD184 : Ganar & JDH - It Aint Over. Release 16/9/2020
+**Track**: HardcoreTakeover Ep.15 Ft Sc@r
 
-Last updated at 10/24/2020 17:28
+Last updated at 10/24/2020 17:31
