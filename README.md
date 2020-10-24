@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QiInE5nZJ4VSgKR-SQLdNg-t50x50.jpg">](https://soundcloud.com/cgilly-1/go-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4SdzAkgNzy2CFCnx-FYz2gw-t50x50.jpg">](https://soundcloud.com/cravewav/shuriken?in=cravewav/sets/2020-ep)
 
-**Artist**: Chloe Gilligan 
+**Artist**: CRAVE 
 
-**Track**: Go
+**Track**: SHURIKEN
 
-Last updated at 10/23/2020 21:56
+Last updated at 10/24/2020 17:07
