@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hz294TxcgWm0NPMV-hU7FLw-t50x50.jpg">](https://soundcloud.com/surfmesa/bekind-surfmesa-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BrN4vePzyg753ll8-KfuKZw-t50x50.jpg">](https://soundcloud.com/blvdmusic/blvd-full-send-carbin-remix)
 
-**Artist**: Surf Mesa 
+**Artist**: BLVD. 
 
-**Track**: Marshmello x Halsey - Be Kind [Surf Mesa Remix]
+**Track**: BLVD. - Full Send (Carbin Remix)
 
-Last updated at 10/25/2020 05:13
+Last updated at 10/25/2020 05:16
