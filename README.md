@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000291783219-5uk1q0-t50x50.jpg">](https://soundcloud.com/hihelix/deluge?in=hihelix/sets/follow-me-on-audius-https)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231112665-fb4l1k-t50x50.jpg">](https://soundcloud.com/hihelix/diamonds?in=hihelix/sets/follow-me-on-audius-https)
 
 **Artist**: hélix 
 
-**Track**: DELUGE
+**Track**: DIAMONDS
 
-Last updated at 10/25/2020 13:17
+Last updated at 10/25/2020 13:20
