@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izh2peoKeRzpV7y9-Yj7SNg-t50x50.jpg">](https://soundcloud.com/avit69/twitterloser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUyvbT3zHtuWQI27-wxGUuQ-t50x50.jpg">](https://soundcloud.com/wermzer/somethingoutsidemywindow)
 
-**Artist**: AViT 
+**Artist**: Wermzer 
 
-**Track**: twitterloser (noki)
+**Track**: There's Something Outside My Window
 
-Last updated at 10/25/2020 11:42
+Last updated at 10/25/2020 11:44
