@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUyvbT3zHtuWQI27-wxGUuQ-t50x50.jpg">](https://soundcloud.com/wermzer/somethingoutsidemywindow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmzhX5kEjKCNK5SZ-rdBGuw-t50x50.jpg">](https://soundcloud.com/rave_alert/rave-edits-05-love-is-an-ocean-xtrick-edit?in=rave_alert/sets/rave-edits)
 
-**Artist**: Wermzer 
+**Artist**: Rave Alert 
 
-**Track**: There's Something Outside My Window
+**Track**: RAVE EDITS 05 - Love Is An Ocean (X&trick Edit)
 
-Last updated at 10/25/2020 11:44
+Last updated at 10/25/2020 11:47
