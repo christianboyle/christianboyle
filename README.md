@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000265993019-8xdff6-t50x50.jpg">](https://soundcloud.com/lilaaron911/idciudhmb-prod-4evr)
 
 **Artist**: lil aaron 
 
-**Track**: QUIT (feat. Travis Barker)
+**Track**: IDCIUDHMB (Prod. 4evr)
 
-Last updated at 10/24/2020 19:59
+Last updated at 10/24/2020 20:02
