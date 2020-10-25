@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZiFU3hhaVFequc96-7BaZVQ-t50x50.jpg">](https://soundcloud.com/xotixmusic/xotix-pray-for-riddim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000270517187-8dlwn8-t50x50.jpg">](https://soundcloud.com/cooltrainer/gator)
 
-**Artist**: Xotix 
+**Artist**: COOLTRAINER 
 
-**Track**: Virtual Riot- Pray For Riddim (Xotix Remix)
+**Track**: VICTOR NIGLIO - LOCUST (EGL REMIX)[GATOR EDIT]
 
-Last updated at 10/25/2020 14:01
+Last updated at 10/25/2020 14:02
