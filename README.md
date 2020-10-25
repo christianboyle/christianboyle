@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423959466-5z1w4r-t50x50.jpg">](https://soundcloud.com/oneseventy/darren-styles-satellite-technikore-jts-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hm7wOYrpx94if8yR-vBy3uw-t50x50.jpg">](https://soundcloud.com/embrz/sound-4-u-x-be-mine-ft-amy-rose-1)
 
-**Artist**: OneSeventy 
+**Artist**: EMBRZ 
 
-**Track**: Darren Styles - Satellite (Technikore & JTS Remix) [FREE DOWNLOAD]
+**Track**: Sound 4 U x Be Mine ft. Amy Rose
 
-Last updated at 10/24/2020 22:47
+Last updated at 10/24/2020 22:52
