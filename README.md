@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLyhwwmD92uj95zD-aj8VJA-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXFdsY1HElmwsYTc-qF7KBQ-t50x50.jpg">](https://soundcloud.com/kanskaart/eminem-crab-god-2)
 
-**Artist**: Opal Fruits 
+**Artist**: Kanskaart 
 
-**Track**: OFMIX - 019 [counsel pop]
+**Track**: Eminem - Crab God 2
 
-Last updated at 10/25/2020 01:16
+Last updated at 10/25/2020 01:45
