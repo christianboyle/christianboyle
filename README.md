@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tBH6g9GDFbYRtmV-5UVxgg-t50x50.jpg">](https://soundcloud.com/daviddann/david-dann-you-and-me)
 
-**Artist**: SURATI 
+**Artist**: david dann 
 
-**Track**: hello hello
+**Track**: You & Me feat. NICOLAS
 
-Last updated at 10/25/2020 09:58
+Last updated at 10/25/2020 10:05
