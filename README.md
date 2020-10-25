@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UwXNH7R814fk-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsdw3r6QmgXBbG42-kxyMRQ-t50x50.jpg">](https://soundcloud.com/alexanderjlewis/toxicremix)
 
-**Artist**: smrtdeath 
+**Artist**: Alexander Lewis 
 
-**Track**: Headed To My Funeral
+**Track**: Britney Spears - Toxic (Y2K & Alexander Lewis Remix)
 
-Last updated at 10/25/2020 01:07
+Last updated at 10/25/2020 01:10
