@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MNZQ5rNsgVaclzAo-BfxiJg-t50x50.jpg">](https://soundcloud.com/psychodiscorecs/fantom-freq-knightblock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NIp50hTBzYVt9WdV-3piRfw-t50x50.jpg">](https://soundcloud.com/djfitosilva/thefrog)
 
-**Artist**: Psycho Disco! 
+**Artist**: Fito Silva 
 
-**Track**: Fantom Freq & Knightblock - Troublemaker
+**Track**: Fito Silva - The Frog *FREE DL ON BUY*
 
-Last updated at 10/25/2020 10:28
+Last updated at 10/25/2020 10:33
