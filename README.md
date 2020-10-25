@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X8V9fsxJb4mYfSZG-XLHHlw-t50x50.jpg">](https://soundcloud.com/defflz/planetary)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
 
-**Artist**: serenity 
+**Artist**: SURATI 
 
-**Track**: planetary
+**Track**: hello hello
 
-Last updated at 10/25/2020 09:55
+Last updated at 10/25/2020 09:58
