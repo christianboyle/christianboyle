@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyRjAEpbGc4Odh5l-gmct7g-t50x50.jpg">](https://soundcloud.com/talegatemusic/filmore-other-girl-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuCrvy7H1QRzuTcF-M3pYMg-t50x50.jpg">](https://soundcloud.com/1glaive/sticks)
 
-**Artist**: Talegate 
+**Artist**: glaive 
 
-**Track**: Filmore - Other Girl (Talegate Remix)
+**Track**: sticks (p. heartdept)
 
-Last updated at 10/25/2020 04:00
+Last updated at 10/25/2020 04:03
