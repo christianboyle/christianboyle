@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc2t7UhfabbRdAgl-XYKk8A-t50x50.jpg">](https://soundcloud.com/crowsnest-3/code-pandorum-event-horizon-omas-remix?in=omasofficial/sets/code-pandorum-event-horizon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000270517187-8dlwn8-t50x50.jpg">](https://soundcloud.com/cooltrainer/gator)
 
-**Artist**: Crowsnest Audio 
+**Artist**: COOLTRAINER 
 
-**Track**: Code: Pandorum - Event Horizon (OMAS Remix)
+**Track**: VICTOR NIGLIO - LOCUST (EGL REMIX)[GATOR EDIT]
 
-Last updated at 10/25/2020 11:36
+Last updated at 10/25/2020 11:39
