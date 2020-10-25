@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485809716-h864ko-t50x50.jpg">](https://soundcloud.com/pure100/dream-hackers-hanael-slow-down-pure-100-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZiFU3hhaVFequc96-7BaZVQ-t50x50.jpg">](https://soundcloud.com/xotixmusic/xotix-pray-for-riddim)
 
-**Artist**: ❀ Pure 100% ❀ (ピ•ュ•ア) 
+**Artist**: Xotix 
 
-**Track**: Dream Hackers, Hanael - Slow Down (Pure 100% Remix)
+**Track**: Virtual Riot- Pray For Riddim (Xotix Remix)
 
-Last updated at 10/25/2020 11:16
+Last updated at 10/25/2020 11:20
