@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000348448089-515jrc-t50x50.jpg">](https://soundcloud.com/djrestylemusic/2-brothers-on-the-4th-floor-never-alone-re-style-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xp2jvqzHuud7-0-t50x50.jpg">](https://soundcloud.com/theknocks/colors-robokid-remix)
 
-**Artist**: Re-Style 
+**Artist**: The Knocks 
 
-**Track**: 2 Brothers On The 4th Floor - Never Alone (Re-Style Remix)
+**Track**: Colors (Robokid Remix)
 
-Last updated at 10/24/2020 23:25
+Last updated at 10/24/2020 23:29
