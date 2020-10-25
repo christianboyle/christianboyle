@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5y7MJNgyJKufzhIh-8SXUQQ-t50x50.jpg">](https://soundcloud.com/1sosiety/head-right-w-hollywood-savage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yFaWNwZQKPYKmAE-81DB0Q-t50x50.jpg">](https://soundcloud.com/midnghtofficial/slasher)
 
-**Artist**: Sosiety 
+**Artist**: midnght 
 
-**Track**: Head Right (w/ Hollywood Savage)
+**Track**: SLASHER
 
-Last updated at 10/25/2020 13:00
+Last updated at 10/25/2020 13:04
