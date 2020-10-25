@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231112665-fb4l1k-t50x50.jpg">](https://soundcloud.com/hihelix/diamonds?in=hihelix/sets/follow-me-on-audius-https)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2dUshr3cv5PjhMV5-rr7ApA-t50x50.jpg">](https://soundcloud.com/arcnorth/arc-north-stronger-ft-shaunt-wav)
 
-**Artist**: hélix 
+**Artist**: Arc North 
 
-**Track**: DIAMONDS
+**Track**: Arc North - Stronger (ft. Shaunt.wav)
 
-Last updated at 10/25/2020 13:20
+Last updated at 10/25/2020 13:28
