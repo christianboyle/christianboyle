@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2SSXKXBaqojuv1k-EyK54A-t50x50.jpg">](https://soundcloud.com/nightcartelcollective/lost-abyss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jSraJPdmtidqyd7Y-ISQCkQ-t50x50.jpg">](https://soundcloud.com/menlikz/p-i-n)
 
-**Artist**: night cartel 
+**Artist**: Menlik Zergabachew 
 
-**Track**: Lost Abyss
+**Track**: P.I.N.
 
-Last updated at 10/25/2020 12:27
+Last updated at 10/25/2020 12:44
