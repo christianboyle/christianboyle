@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405562014-iw5rg7-t50x50.jpg">](https://soundcloud.com/jakkyboi/why-u-gotta-mean-so-much)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker)
 
-**Artist**: jakkyboí 
+**Artist**: lil aaron 
 
-**Track**: Why u gotta mean so much? (VIDEO OUT NOW!)
+**Track**: QUIT (feat. Travis Barker)
 
-Last updated at 10/24/2020 19:57
+Last updated at 10/24/2020 19:59
