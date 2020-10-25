@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRM9tGZhLymCvTiq-KX4QFw-t50x50.jpg">](https://soundcloud.com/slowroastrecs/2-rebel-xavage-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLJntRkiQACal4jh-Ly15ug-t50x50.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-04-july-4th-mix)
 
-**Artist**: Slow Roast Records 
+**Artist**: PHZES 
 
-**Track**: 2¢ - Rebel (XAVAGE Remix)
+**Track**: PHZED & Confused Mix 04 - July 4th Mix
 
-Last updated at 10/25/2020 02:45
+Last updated at 10/25/2020 02:48
