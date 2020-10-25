@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyF9QUzYoy673TrR-RutmKw-t50x50.jpg">](https://soundcloud.com/eatermusic/more-you-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t50x50.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix)
 
-**Artist**: Eater 
+**Artist**: BLVD. 
 
-**Track**: Eater - More You Know
+**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
 
-Last updated at 10/25/2020 04:16
+Last updated at 10/25/2020 04:19
