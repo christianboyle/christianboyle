@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b55VBUGJSvNoPuU0-dyuDow-t50x50.jpg">](https://soundcloud.com/azureon/lo-va-you-could-fall-in-love-feat-solcal?in=azureon/sets/lo-va-you-could-fall-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xem7Rgks4hPyEZt4-isFh0w-t50x50.jpg">](https://soundcloud.com/arwv/red-comet-this-is-not-the-end-ft-constance)
 
-**Artist**: Azureon Select 
+**Artist**: ARWV 
 
-**Track**: LO-VA - You Could Fall In Love (feat. Solcal)
+**Track**: Red Comet - This Is Not The End ft. Constance
 
-Last updated at 10/25/2020 11:08
+Last updated at 10/25/2020 11:12
