@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6x6Ba2D5fGvogHK9-EROqGw-t50x50.jpg">](https://soundcloud.com/ultravibes/dream-of-me-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000095970605-5lf3qm-t50x50.jpg">](https://soundcloud.com/aamourocean/easybae)
 
-**Artist**: Ultravibes 
+**Artist**: aamourocean 
 
-**Track**: Dream Of Me (Radio Mix) *** OUT NOW
+**Track**: Easy Bae
 
-Last updated at 10/25/2020 05:25
+Last updated at 10/25/2020 05:28
