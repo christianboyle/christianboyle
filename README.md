@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t50x50.jpg">](https://soundcloud.com/casualgabberz/aamourocean-parmi-les-mortels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxGVqBUWSOryaQNq-wsxN1Q-t50x50.jpg">](https://soundcloud.com/movingcastle/liz-laguna-nights-sonniku-remix)
 
-**Artist**: CASUAL GABBERZ 
+**Artist**: Moving Castle 
 
-**Track**: aamourocean - Parmi les Mortels
+**Track**: LIZ - Laguna Nights (SONIKKU Remix)
 
-Last updated at 10/24/2020 22:37
+Last updated at 10/24/2020 22:42
