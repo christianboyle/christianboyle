@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cR7OYRxg4PAwQOFl-Ouzh5A-t50x50.jpg">](https://soundcloud.com/julienfromflorida/kanye-west-stronger-julien-from-florida-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bbzJhdEqqNGHApMy-dhhrMA-t50x50.jpg">](https://soundcloud.com/altitudesicknessmusic/over-u)
 
-**Artist**: 💛JULIEN FROM FLORIDA💛 
+**Artist**: Altitude Sickness 
 
-**Track**: Kanye West - Stronger (Julien From Florida Remix)+Free Remix Stems💛
+**Track**: Over U
 
-Last updated at 10/25/2020 12:47
+Last updated at 10/25/2020 12:50
