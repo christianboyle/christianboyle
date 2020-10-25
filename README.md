@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WkmfNgbABUeHXLHk-0QxnmA-t50x50.jpg">](https://soundcloud.com/future-house-cloud/hammer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzLCnGzMoGxcz1pG-ykp2eg-t50x50.jpg">](https://soundcloud.com/kinphonic/erotic-cafe-take-me-down)
 
-**Artist**: Future House Cloud 
+**Artist**: Kinphonic 
 
-**Track**: Brannco & Gustavo Fallavena - Hammer
+**Track**: Erotic Cafe' - Take Me Down
 
-Last updated at 10/25/2020 11:22
+Last updated at 10/25/2020 11:25
