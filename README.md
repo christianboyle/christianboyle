@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J49PjJJg49QKIdmO-nXDRtA-t50x50.jpg">](https://soundcloud.com/samwoohoo/trapstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-252WPXSdqr31tZM7-jM80rQ-t50x50.png">](https://soundcloud.com/shespellsdoom/flux)
 
-**Artist**: S A M U 
+**Artist**: SHE Spells Doom 
 
-**Track**: TRAPSTAR
+**Track**: Flux
 
-Last updated at 10/25/2020 05:02
+Last updated at 10/25/2020 05:05
