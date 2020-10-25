@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0trdrDqAyCKSSA1D-xzOPrA-t50x50.jpg">](https://soundcloud.com/oneseventy/dougal-x-technikore-x-jts-two-hearts-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X07IzVgZgpJN8rlZ-aFwIcg-t50x50.jpg">](https://soundcloud.com/oneseventy/technikore-tick-tock-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: Dougal x Technikore x JTS - Two Hearts (Radio Edit)
+**Track**: Technikore - Tick Tock (Radio Edit)
 
-Last updated at 10/25/2020 00:39
+Last updated at 10/25/2020 00:42
