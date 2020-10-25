@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7m7Qr3EriHKykjNL-bv1ZBA-t50x50.jpg">](https://soundcloud.com/hptgmusic/hotchkiss-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t50x50.jpg">](https://soundcloud.com/sablevalley/time-of-rage)
 
-**Artist**: HPTG Music 
+**Artist**: SABLE VALLEY 
 
-**Track**: Hotchkiss - Need You Now
+**Track**: Carpainter - Time Of Rage
 
-Last updated at 10/24/2020 20:32
+Last updated at 10/24/2020 20:37
