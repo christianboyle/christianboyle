@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4AozcQ5gAIB0jTc-6A1Xpg-t50x50.jpg">](https://soundcloud.com/nekubeatz/neku-x-scorpiioh-horrorland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tszrD3ri1SM2fqsp-qKwwCA-t50x50.jpg">](https://soundcloud.com/dropcentral/hello?in=dropcentral/sets/space)
 
-**Artist**: neku 
+**Artist**: Drop Central 💧 
 
-**Track**: NEKU X SCORPIIOH | HORRORLAND
+**Track**: Taraa - Hello Chewbacca
 
-Last updated at 10/25/2020 10:58
+Last updated at 10/25/2020 10:59
