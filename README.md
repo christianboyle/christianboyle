@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9ByPxKbesKP4bLZ-MwpKkQ-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf259)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Q5tC5Pd1vyUVYIi-M0q0cw-t50x50.jpg">](https://soundcloud.com/iamtalons/talons-knighted-1)
 
-**Artist**: Strange Fruits 
+**Artist**: TALONS 
 
-**Track**: Koosen - Mood
+**Track**: TALONS - KNIGHTED
 
-Last updated at 10/25/2020 09:52
+Last updated at 10/25/2020 09:54
