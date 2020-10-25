@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMzzXD1YdgL6Lp4-a5IyAw-t50x50.jpg">](https://soundcloud.com/oaf1/think)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlvS3li9Hu5hGXyC-cgjY3A-t50x50.jpg">](https://soundcloud.com/gldmusic/gld-i-loved-you-now-i-have-trust-issues-feat-grand-khai)
 
-**Artist**: oaf1 
+**Artist**: GLD 
 
-**Track**: think abt it w/ppgcasper
+**Track**: I Loved You (Now I Have Trust Issues) Feat. Grand Khai
 
-Last updated at 10/25/2020 03:35
+Last updated at 10/25/2020 03:37
