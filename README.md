@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5hD1IZ51QwTNPd0o-6Tohsw-t50x50.jpg">](https://soundcloud.com/tomatow/tomatow-rosendale-playground-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGVIyx0ajrytGyid-f5WSSg-t50x50.jpg">](https://soundcloud.com/talegatemusic/bexar-again-talegate-remix)
 
-**Artist**: Tomatow 
+**Artist**: Talegate 
 
-**Track**: Tomatow & Rosendale - Playground
+**Track**: BEXAR - Again (Talegate Remix)
 
-Last updated at 10/25/2020 10:06
+Last updated at 10/25/2020 10:07
