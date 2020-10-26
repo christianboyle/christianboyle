@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/ngru)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero)
 
-**Artist**: BEAUZ 
+**Artist**: Contre Jour 
 
-**Track**: BEAUZ, SIIGHTS - Never Gonna Regret U
+**Track**: MENTHALO - NEED A HERO
 
-Last updated at 10/26/2020 12:50
+Last updated at 10/26/2020 12:54
