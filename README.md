@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xem7Rgks4hPyEZt4-isFh0w-t50x50.jpg">](https://soundcloud.com/arwv/red-comet-this-is-not-the-end-ft-constance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LJWzmpbxTYpDem38-OAIBXA-t50x50.jpg">](https://soundcloud.com/hihelix/lust?in=hihelix/sets/follow-me-on-audius-https)
 
-**Artist**: ARWV 
+**Artist**: hélix 
 
-**Track**: Red Comet - This Is Not The End ft. Constance
+**Track**: LUST | HELIX SOUND KIT VOL. 3 OUT NOW!!!
 
-Last updated at 10/26/2020 09:28
+Last updated at 10/26/2020 09:30
