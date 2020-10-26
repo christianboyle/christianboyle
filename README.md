@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hUiahlnDHUTKo1Fr-0coU7Q-t50x50.jpg">](https://soundcloud.com/iamonlytom/himera-voicenote-onlytom-bootleg-w-iyaz-and-vanessa-carlton)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
 
-**Artist**: onlytom 
+**Artist**: TERROR REID 
 
-**Track**: himera - voicenote (onlytom bootleg) w IYAZ and VANESSA CARLTON
+**Track**: BURIED ALIVE FEAT. ELIOZIE
 
-Last updated at 10/26/2020 10:02
+Last updated at 10/26/2020 10:03
