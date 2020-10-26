@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
 
-**Artist**: Lil Pump 
+**Artist**: SURATI 
 
-**Track**: Lil Pump - Life Like Me (prod by Bighead)
+**Track**: hello hello
 
-Last updated at 10/26/2020 09:31
+Last updated at 10/26/2020 09:35
