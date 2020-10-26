@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zq6pLbz6N9Rh1eV8-yurqXA-t50x50.jpg">](https://soundcloud.com/kagwe/33hunnid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUDQlCDDvbMjjS4V-xNJOiw-t50x50.jpg">](https://soundcloud.com/radiojuicy1/deauxnuts-styn-slow-drive)
 
-**Artist**: KΛGWΣ 
+**Artist**: Radio Juicy 
 
-**Track**: 3300
+**Track**: Deauxnuts & Styn - Slow Drive
 
-Last updated at 10/25/2020 19:58
+Last updated at 10/26/2020 08:19
