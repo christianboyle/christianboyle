@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1etZvJDDbTAbctIT-Hpgf6Q-t50x50.jpg">](https://soundcloud.com/pisssindividual/cool-aj-simons-remix-mixed-125-bpmaj-simons-adorable-ben-is-dying-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
 
-**Artist**: 󠀡󠀡BEN IS DYING 
+**Artist**: SURATI 
 
-**Track**: Aj Simons - Adorable [BEN IS DYING REMIX]
+**Track**: hello hello
 
-Last updated at 10/26/2020 11:47
+Last updated at 10/26/2020 12:47
