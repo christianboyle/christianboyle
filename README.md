@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: TERROR REID 
+**Artist**: Astrophonica 
 
-**Track**: BURIED ALIVE FEAT. ELIOZIE
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 10/26/2020 13:14
+Last updated at 10/26/2020 13:25
