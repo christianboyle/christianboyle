@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LJWzmpbxTYpDem38-OAIBXA-t50x50.jpg">](https://soundcloud.com/hihelix/lust?in=hihelix/sets/follow-me-on-audius-https)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: hélix 
+**Artist**: Lil Pump 
 
-**Track**: LUST | HELIX SOUND KIT VOL. 3 OUT NOW!!!
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 10/26/2020 09:30
+Last updated at 10/26/2020 09:31
