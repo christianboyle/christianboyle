@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msb1I31emKz81i35-yBfY7g-t50x50.jpg">](https://soundcloud.com/kuur/khxlil-kuur-why-feat-august-ubeda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g5w1c67yiBTxlyq-noNrYQ-t50x50.jpg">](https://soundcloud.com/fernwehmadrid/fernweh-series-fallen-shrine-002)
 
-**Artist**: Kuur 
+**Artist**: 𝘍𝘌𝘙𝘕𝘞𝘌𝘏 
 
-**Track**: khxlil & Kuur - Why (feat. August Ubeda)
+**Track**: Fernweh Series: Fallen Shrine [002]
 
-Last updated at 10/27/2020 13:02
+Last updated at 10/27/2020 13:03
