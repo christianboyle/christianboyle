@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lctHDbvnTNHhnfBO-HJolxw-t50x50.jpg">](https://soundcloud.com/akiaura/nezhnostx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNKDCCV1kazKA9Ht-ZUmzXA-t50x50.jpg">](https://soundcloud.com/yungskrrt/otwn)
 
-**Artist**: akiaura 
+**Artist**: Yung Skrrt 
 
-**Track**: akiaura x STAHL - нежность
+**Track**: On The Worst Night // prod. AObeats, Yung Skrrt
 
-Last updated at 10/27/2020 14:36
+Last updated at 10/27/2020 14:38
