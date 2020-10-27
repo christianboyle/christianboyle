@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCyLt8JrR9Ok1qgp-ARbctQ-t50x50.jpg">](https://soundcloud.com/vindata/vindata-rave-the-vote-livestream-dj-set-recorded-10032020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msb1I31emKz81i35-yBfY7g-t50x50.jpg">](https://soundcloud.com/kuur/khxlil-kuur-why-feat-august-ubeda)
 
-**Artist**: Vindata 
+**Artist**: Kuur 
 
-**Track**: Vindata - Rave The Vote Livestream DJ Set (recorded 10.03.2020)
+**Track**: khxlil & Kuur - Why (feat. August Ubeda)
 
-Last updated at 10/26/2020 16:54
+Last updated at 10/27/2020 13:02
