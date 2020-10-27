@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S4KUkNy1UHGhf4DS-D0uJdg-t50x50.jpg">](https://soundcloud.com/a-trak/the-brothers-macklovitch-dj-set-oct-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GczbRBHozVQvYVU-KKz2JA-t50x50.jpg">](https://soundcloud.com/foolsgoldrecs/vacation?in=foolsgoldrecs/sets/proper-villains-nasty-nigel)
 
-**Artist**: A-Trak 
+**Artist**: Fool's Gold Records 
 
-**Track**: The Brothers Macklovitch DJ Set (Oct 2020)
+**Track**: Proper Villains & Nasty Nigel - Vacation
 
-Last updated at 10/27/2020 15:07
+Last updated at 10/27/2020 15:11
