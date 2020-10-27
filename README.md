@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzF7XLWbDaOCzfiY-oXC2rA-t50x50.jpg">](https://soundcloud.com/pincode8485/l33ch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msb1I31emKz81i35-yBfY7g-t50x50.jpg">](https://soundcloud.com/kuur/khxlil-kuur-why-feat-august-ubeda)
 
-**Artist**: 8485 
+**Artist**: Kuur 
 
-**Track**: L33CH!!!  +JOHNNASCUS (wubz)
+**Track**: khxlil & Kuur - Why (feat. August Ubeda)
 
-Last updated at 10/27/2020 15:48
+Last updated at 10/27/2020 15:50
