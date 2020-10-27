@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k74D3be7gHSkuxYR-J33tLA-t50x50.jpg">](https://soundcloud.com/sadsatan_music/giving-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tiIrIuOhPwFz6xT9-o6ahLA-t50x50.png">](https://soundcloud.com/sadkomusic/blossom)
 
-**Artist**: SadSatan 
+**Artist**: SVDKO 
 
-**Track**: Giving Up
+**Track**: Blossom
 
-Last updated at 10/27/2020 15:38
+Last updated at 10/27/2020 15:40
