@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Afrq1u705lv83gqM-atWdPg-t50x50.jpg">](https://soundcloud.com/bodykitbeats/loyalrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K0IuvRu6yEAc4gcu-rCt2GA-t50x50.jpg">](https://soundcloud.com/riddim-network/sisto-headbutt?in=riddim-network/sets/sisto-the-banished-ep)
 
-**Artist**: bodykit 
+**Artist**: Riddim Network 
 
-**Track**: loyal (bodykit & scsc Remix)
+**Track**: SISTO - HEADBUTT
 
-Last updated at 10/27/2020 14:50
+Last updated at 10/27/2020 14:53
