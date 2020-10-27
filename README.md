@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GczbRBHozVQvYVU-KKz2JA-t50x50.jpg">](https://soundcloud.com/foolsgoldrecs/vacation?in=foolsgoldrecs/sets/proper-villains-nasty-nigel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZv3hsbpGiRZzzNi-38OriQ-t50x50.jpg">](https://soundcloud.com/thriveordie/two-minds-half-option-mix?in=thriveordie/sets/shagia-m-two-minds-crush)
 
-**Artist**: Fool's Gold Records 
+**Artist**: THRIVE OR DIE 
 
-**Track**: Proper Villains & Nasty Nigel - Vacation
+**Track**: TWO MINDS (HALF OPTION MIX)
 
-Last updated at 10/27/2020 15:11
+Last updated at 10/27/2020 15:19
