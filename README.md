@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g5w1c67yiBTxlyq-noNrYQ-t50x50.jpg">](https://soundcloud.com/fernwehmadrid/fernweh-series-fallen-shrine-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QC3VfRINTRAk6s8-2Lm5Mw-t50x50.jpg">](https://soundcloud.com/loudkult/phzes-gabby-patrice-time-zones)
 
-**Artist**: 𝘍𝘌𝘙𝘕𝘞𝘌𝘏 
+**Artist**: LoudKult 
 
-**Track**: Fernweh Series: Fallen Shrine [002]
+**Track**: PHZES, Gabby Patrice - Time Zones
 
-Last updated at 10/27/2020 13:03
+Last updated at 10/27/2020 14:29
