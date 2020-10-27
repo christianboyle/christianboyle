@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZv3hsbpGiRZzzNi-38OriQ-t50x50.jpg">](https://soundcloud.com/thriveordie/two-minds-half-option-mix?in=thriveordie/sets/shagia-m-two-minds-crush)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zdEyQAB6KjoyK4P-NkLimg-t50x50.jpg">](https://soundcloud.com/dimmakrecords/draeden-crossfire-feat-garrett-raff)
 
-**Artist**: THRIVE OR DIE 
+**Artist**: Dim Mak Records 
 
-**Track**: TWO MINDS (HALF OPTION MIX)
+**Track**: Draeden - Crossfire (feat. Garrett Raff)
 
-Last updated at 10/27/2020 15:19
+Last updated at 10/27/2020 15:35
