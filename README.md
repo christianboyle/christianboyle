@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QN2y93G0Dbt5-0-t50x50.jpg">](https://soundcloud.com/fish_narc/snowflake?in=fish_narc/sets/wildfire-87541594)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqkxVjL5HJPJezsP-XdRc0Q-t50x50.jpg">](https://soundcloud.com/dovescry/ultraclub4k)
 
-**Artist**: fish narc 
+**Artist**: døves 
 
-**Track**: SNOWFLAKE
+**Track**: ULTRACLUB4K
 
-Last updated at 10/27/2020 20:52
+Last updated at 10/27/2020 20:54
