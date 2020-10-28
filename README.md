@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000270476333-krbc2s-t50x50.jpg">](https://soundcloud.com/coward2k/only-in-vain-prod-fantasy-camp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000282982556-o04d98-t50x50.jpg">](https://soundcloud.com/datsyuk/another-lonely-winter-night-ft)
 
-**Artist**: coward. 
+**Artist**: Datsyuk 
 
-**Track**: Only in Vain (prod. Fantasy Camp)
+**Track**: another lonely winter night ft. wicca phase springs eternal
 
-Last updated at 10/28/2020 07:14
+Last updated at 10/28/2020 07:17
