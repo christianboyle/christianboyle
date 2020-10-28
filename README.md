@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPShpdjQuU4n0Jkn-fAOf1A-t50x50.jpg">](https://soundcloud.com/loudkult/dubio-and-victor-perry-on-the-low)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W013RyWlh1Qq6xHM-vl6oEg-t50x50.jpg">](https://soundcloud.com/loudkult/brevis-feat-anuk-greece)
 
 **Artist**: LoudKult 
 
-**Track**: Dubio and Victor Perry - On The Low
+**Track**: BREVIS Feat Anuk - Greece
 
-Last updated at 10/28/2020 15:21
+Last updated at 10/28/2020 15:22
