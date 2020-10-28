@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QC3VfRINTRAk6s8-2Lm5Mw-t50x50.jpg">](https://soundcloud.com/loudkult/phzes-gabby-patrice-time-zones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEybE4nsINey9zcP-EeDFAQ-t50x50.jpg">](https://soundcloud.com/loudkult/toby-smash-find-a-way)
 
 **Artist**: LoudKult 
 
-**Track**: PHZES, Gabby Patrice - Time Zones
+**Track**: Toby Smash - Find A Way
 
-Last updated at 10/28/2020 15:32
+Last updated at 10/28/2020 16:35
