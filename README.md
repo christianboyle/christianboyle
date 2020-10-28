@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000328889787-1wrszz-t50x50.jpg">](https://soundcloud.com/gothboiclique/doves-wicca-phase-springs-eternal-horse-head-jon-simmons-why-did-we-ever-meet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000296734362-zcf24n-t50x50.jpg">](https://soundcloud.com/dovescry/looks-ft-wicca-phase-springs?in=dovescry/sets/looks-bw-beloved)
 
-**Artist**: GOTHBOICLIQUE 
+**Artist**: døves 
 
-**Track**: Døves, Wicca Phase Springs Eternal, Horse Head, Jon Simmons - Why Did We Ever Meet (prod. fish narc)
+**Track**: looks ft. wicca phase springs eternal
 
-Last updated at 10/27/2020 22:46
+Last updated at 10/27/2020 22:50
