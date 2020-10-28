@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000341040456-svdn60-t50x50.jpg">](https://soundcloud.com/girlmode/wicca-phase-springs-eternal-until-i-walk-through-the-flames)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000440021919-0zyzdb-t50x50.jpg">](https://soundcloud.com/creasedup/zubin-lotus-nedarb-just-a-memory)
 
-**Artist**: ‏‏‎ 
+**Artist**: SCREW MUNNY SUNNY 
 
-**Track**: walk thru flames
+**Track**: zubin + lotus + nedarb "just a memory"
 
-Last updated at 10/28/2020 05:09
+Last updated at 10/28/2020 05:13
