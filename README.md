@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000379393890-rxpura-t50x50.jpg">](https://soundcloud.com/dovescry/lovers-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zDMmYy2RnKXvhCj2-lY17tw-t50x50.jpg">](https://soundcloud.com/dovescry/woke)
 
 **Artist**: døves 
 
-**Track**: cremation lily x døves - lovers against the rocks (rmx)
+**Track**: woke
 
-Last updated at 10/28/2020 05:23
+Last updated at 10/28/2020 05:26
