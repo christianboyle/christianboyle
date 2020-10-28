@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123568391-kwg663-t50x50.jpg">](https://soundcloud.com/dovescry/d-ves-cry-springs-eternal-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000379393890-rxpura-t50x50.jpg">](https://soundcloud.com/dovescry/lovers-rmx)
 
 **Artist**: døves 
 
-**Track**: DØVES CRY SPRINGS ETERNAL - COOL FT. HORSE HEAD
+**Track**: cremation lily x døves - lovers against the rocks (rmx)
 
-Last updated at 10/28/2020 05:19
+Last updated at 10/28/2020 05:23
