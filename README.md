@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423531357-5ud4pk-t50x50.jpg">](https://soundcloud.com/dovescry/understanding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117594058-37gowq-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/castles-eternal-feat-jp-dream)
 
-**Artist**: døves 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: cremation lily x døves - understanding forever
+**Track**: CASTLES ETERNAL (FEAT. JP DREAM THUG) (PROD. DØVES)
 
-Last updated at 10/28/2020 05:43
+Last updated at 10/28/2020 05:47
