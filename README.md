@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000092561918-hucx0k-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/six-foot-ditch-prod-fantasy-camp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000107428497-aatx5j-t50x50.jpg">](https://soundcloud.com/horsehead1990/horse-head-stockholm-syndrome)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: HORSE HEAD 
 
-**Track**: SIX FOOT DITCH (PROD. FANTASY CAMP)
+**Track**: Stockholm Syndrome (feat. Wicca Phase Springs Eternal)
 
-Last updated at 10/28/2020 06:20
+Last updated at 10/28/2020 06:23
