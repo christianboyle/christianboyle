@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000088284457-4vpd0g-t50x50.jpg">](https://soundcloud.com/smokerscough/09-wicca-phase-passing-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423531357-5ud4pk-t50x50.jpg">](https://soundcloud.com/dovescry/understanding)
 
-**Artist**: Smokers Cough 
+**Artist**: døves 
 
-**Track**: Wicca Phase Springs Eternal - "Passing On" (Prod. Keyboard Kid)
+**Track**: cremation lily x døves - understanding forever
 
-Last updated at 10/28/2020 05:40
+Last updated at 10/28/2020 05:43
