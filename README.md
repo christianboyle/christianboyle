@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236835-icuuzg-t50x50.jpg">](https://soundcloud.com/gothboiclique/lil-tracy-horse-head-los-angeles-prod-horse-head?in=gothboiclique/sets/yeah-its-true)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236941-tlmges-t50x50.jpg">](https://soundcloud.com/gothboiclique/wicca-phase-springs-eternal-i-tether-prod-jayyeah-mike-xanax?in=gothboiclique/sets/yeah-its-true)
 
 **Artist**: GOTHBOICLIQUE 
 
-**Track**: Lil Tracy & Horse Head - Los Angeles (prod. Horse Head)
+**Track**: Wicca Phase Springs Eternal - I Tether (prod. Jayyeah & Mike Xanax)
 
-Last updated at 10/28/2020 02:59
+Last updated at 10/28/2020 03:01
