@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000084999024-jymzig-t50x50.jpg">](https://soundcloud.com/horsehead1990/horse-head-ghoste-mercedes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000122888242-dj7jrb-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/i-cant-remember-last-nightprod-mike-labyrinth)
 
-**Artist**: HORSE HEAD 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: Mercedes (feat. Ghoste)
+**Track**: I CANT REMEMBER LAST NIGHT...(PROD. MIKE LABYRINTH)
 
-Last updated at 10/28/2020 06:34
+Last updated at 10/28/2020 06:38
