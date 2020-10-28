@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236524-vr6m2h-t50x50.jpg">](https://soundcloud.com/gothboiclique/cold-hart-only-song-i-know-prod-yawns?in=gothboiclique/sets/yeah-its-true)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236774-mjjobh-t50x50.jpg">](https://soundcloud.com/gothboiclique/wicca-phase-springs-eternal-doves-horse-head-penelope-prod-doves?in=gothboiclique/sets/yeah-its-true)
 
 **Artist**: GOTHBOICLIQUE 
 
-**Track**: Cold Hart - Only Song I Know (prod. Yawns)
+**Track**: Wicca Phase Springs Eternal, døves & Horse Head - Penelope (prod. døves)
 
-Last updated at 10/28/2020 03:03
+Last updated at 10/28/2020 03:06
