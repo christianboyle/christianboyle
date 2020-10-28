@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580690967-sy5u9i-t50x50.jpg">](https://soundcloud.com/undergroundunderdogs/charlie-shuffler-mix?in=undergroundunderdogs/sets/mutt-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msb1I31emKz81i35-yBfY7g-t50x50.jpg">](https://soundcloud.com/kuur/khxlil-kuur-why-feat-august-ubeda)
 
-**Artist**: Underground Underdogs 
+**Artist**: Kuur 
 
-**Track**: Mutt Mix 003: Charlie Shuffler
+**Track**: khxlil & Kuur - Why (feat. August Ubeda)
 
-Last updated at 10/28/2020 11:00
+Last updated at 10/28/2020 12:07
