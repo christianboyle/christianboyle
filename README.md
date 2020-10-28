@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000440021919-0zyzdb-t50x50.jpg">](https://soundcloud.com/creasedup/zubin-lotus-nedarb-just-a-memory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123568502-44xrdm-t50x50.jpg">](https://soundcloud.com/dovescry/d-ves-cry-springs-eternal)
 
-**Artist**: SCREW MUNNY SUNNY 
+**Artist**: døves 
 
-**Track**: zubin + lotus + nedarb "just a memory"
+**Track**: DØVES CRY SPRINGS ETERNAL - CONTROL
 
-Last updated at 10/28/2020 05:13
+Last updated at 10/28/2020 05:16
