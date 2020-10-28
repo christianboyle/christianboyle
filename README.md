@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000651381280-f1c8av-t50x50.jpg">](https://soundcloud.com/ken_san-718114637/ken-sushi_sipslow2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000341040456-svdn60-t50x50.jpg">](https://soundcloud.com/girlmode/wicca-phase-springs-eternal-until-i-walk-through-the-flames)
 
-**Artist**: Ken Ku$hi 
+**Artist**: ‏‏‎ 
 
-**Track**: Sip Slow 2
+**Track**: walk thru flames
 
-Last updated at 10/28/2020 05:07
+Last updated at 10/28/2020 05:09
