@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073351545-vhjjvn-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/night-bae-feat-ned-russin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000146527709-rdww8o-t50x50.jpg">](https://soundcloud.com/coldhart/season-finale-prod-by-sadhe)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: Cold Hart 
 
-**Track**: NIGHT BAE (FEAT. NED RUSSIN)
+**Track**: 13.Season Finale prod by Sadhe
 
-Last updated at 10/28/2020 06:49
+Last updated at 10/28/2020 06:52
