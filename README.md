@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000204556793-1bil07-t50x50.jpg">](https://soundcloud.com/dovescry/medicine-ft-jpdreamthug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073351769-uaorul-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/neverget2heaven)
 
-**Artist**: døves 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: medicine ft. jpdreamthug
+**Track**: NEVERGET2HEAVEN
 
-Last updated at 10/28/2020 05:57
+Last updated at 10/28/2020 05:59
