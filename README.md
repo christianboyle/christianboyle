@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000112686622-djtxwl-t50x50.jpg">](https://soundcloud.com/dovescry/petite-sirah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596533-7fnqq4-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/gowithyrheart)
 
-**Artist**: døves 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: petite sirah
+**Track**: GO WITH YR HEART (FEAT. MACKNED) (PROD. DØVES) GOTHBOICLIQUE THRAXXHOUSE PASSIONATE GOD
 
-Last updated at 10/28/2020 04:44
+Last updated at 10/28/2020 04:48
