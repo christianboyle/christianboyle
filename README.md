@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000112892088-giwf5l-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/02-12k-miles-away-feat-cold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000089894685-h46791-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/h34v3n-n0w-c0ldh4rt-wicca-phase-springs-eternal)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: 12K MILES AWAY (FEAT. COLD HART) (PROD. JAYYEAH)
+**Track**: H34V3N N0W (C0LD♱H4RT ╪ WICCA PHASE SPRINGS ETERNAL)
 
-Last updated at 10/28/2020 06:14
+Last updated at 10/28/2020 06:17
