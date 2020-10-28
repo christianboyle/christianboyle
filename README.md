@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W013RyWlh1Qq6xHM-vl6oEg-t50x50.jpg">](https://soundcloud.com/loudkult/brevis-feat-anuk-greece)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8e2xBh3WEyrp5zV-LEUAFw-t50x50.jpg">](https://soundcloud.com/alexalexanderlive/lyin-eyes-master?in=alexalexanderlive/sets/helpless-ep)
 
-**Artist**: LoudKult 
+**Artist**: AlexAlexanderLive 
 
-**Track**: BREVIS Feat Anuk - Greece
+**Track**: Lyin' Eyes
 
-Last updated at 10/28/2020 15:22
+Last updated at 10/28/2020 15:23
