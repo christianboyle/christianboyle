@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596376-l5h4so-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/nightfall-prod-lederrick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000204556803-dirggm-t50x50.jpg">](https://soundcloud.com/dovescry/should-have-ft-wicca-phase-springs-eternal)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: døves 
 
-**Track**: NIGHTFALL (PROD. LEDERRICK)
+**Track**: should have ft. wicca phase springs eternal
 
-Last updated at 10/28/2020 06:25
+Last updated at 10/28/2020 06:29
