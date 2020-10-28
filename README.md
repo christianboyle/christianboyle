@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zDMmYy2RnKXvhCj2-lY17tw-t50x50.jpg">](https://soundcloud.com/dovescry/stop-the-car-acoustic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246788241-rguamk-t50x50.jpg">](https://soundcloud.com/lil_peep/lil-peep-feat-wicca-doves-avoid-eq)
 
-**Artist**: døves 
+**Artist**: ☆LiL PEEP☆ 
 
-**Track**: stop the car (acoustic)
+**Track**: Avoid - Lil Peep Ft. Wicca Phase Springs Eternal & Døves (prod. by smokeasac & IIVI)
 
-Last updated at 10/27/2020 23:14
+Last updated at 10/27/2020 23:18
