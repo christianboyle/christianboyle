@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117595295-kf3trj-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/no-control-prod-keyboard-kid?in=wiccaphasespringseternal/sets/abercrombie-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596376-l5h4so-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/nightfall-prod-lederrick?in=wiccaphasespringseternal/sets/abercrombie-me)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: NO CONTROL (PROD. KEYBOARD KID)
+**Track**: NIGHTFALL (PROD. LEDERRICK)
 
-Last updated at 10/28/2020 04:16
+Last updated at 10/28/2020 04:19
