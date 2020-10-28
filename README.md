@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000086061794-ww8pdc-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/maybe_today)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123568305-u3fxsp-t50x50.jpg">](https://soundcloud.com/dovescry/d-ves-cry-springs-eternal-1)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: døves 
 
-**Track**: MAYBE TODAY (GREAF ╪ WICCA PHASE SPRINGS ETERNAL)
+**Track**: DØVES CRY SPRINGS ETERNAL - SLEEPER FT. MACKNED
 
-Last updated at 10/28/2020 05:31
+Last updated at 10/28/2020 05:32
