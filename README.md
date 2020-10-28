@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596224-0982pn-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/other-times-i-dont-though-prod?in=wiccaphasespringseternal/sets/abercrombie-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117594058-37gowq-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/castles-eternal-feat-jp-dream?in=wiccaphasespringseternal/sets/abercrombie-me)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: OTHER TIMES I DON'T THOUGH (PROD. JOHN MADDEN)
+**Track**: CASTLES ETERNAL (FEAT. JP DREAM THUG) (PROD. DØVES)
 
-Last updated at 10/28/2020 04:26
+Last updated at 10/28/2020 04:29
