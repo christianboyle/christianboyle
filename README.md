@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000092561721-eqwkz6-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/back-to-you-prod-jayyeah-black-kray-talks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000270476333-krbc2s-t50x50.jpg">](https://soundcloud.com/coward2k/only-in-vain-prod-fantasy-camp)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: coward. 
 
-**Track**: BACK TO YOU (PROD. JAYYEAH) ***BLACK KRAY TALKS*** VIDEO IN DESCRIPTION
+**Track**: Only in Vain (prod. Fantasy Camp)
 
-Last updated at 10/28/2020 07:12
+Last updated at 10/28/2020 07:14
