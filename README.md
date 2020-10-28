@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrcSqJxyDWcQWJfa-ukBUrQ-t50x50.jpg">](https://soundcloud.com/loudkult/naule-closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2d6TuGV32QYstkdL-drhDWA-t50x50.jpg">](https://soundcloud.com/vibingdeep/naule-bluir-reason)
 
-**Artist**: LoudKult 
+**Artist**: VibingDeep. 
 
-**Track**: Naulé - Closer
+**Track**: Naulé & Bluir - Reason
 
-Last updated at 10/28/2020 16:45
+Last updated at 10/28/2020 16:46
