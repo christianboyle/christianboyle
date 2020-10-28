@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000146527709-rdww8o-t50x50.jpg">](https://soundcloud.com/coldhart/season-finale-prod-by-sadhe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500695665-oeb4pm-t50x50.jpg">](https://soundcloud.com/dovescry/three)
 
-**Artist**: Cold Hart 
+**Artist**: døves 
 
-**Track**: 13.Season Finale prod by Sadhe
+**Track**: three
 
-Last updated at 10/28/2020 06:52
+Last updated at 10/28/2020 06:56
