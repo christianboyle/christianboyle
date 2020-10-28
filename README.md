@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201448325-tdrbif-t50x50.jpg">](https://soundcloud.com/dovescry/used-ft-horse-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000200657430-ey6xdk-t50x50.jpg">](https://soundcloud.com/dovescry/rory)
 
 **Artist**: døves 
 
-**Track**: used ft. horse head
+**Track**: rory
 
-Last updated at 10/28/2020 00:03
+Last updated at 10/28/2020 00:06
