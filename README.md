@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqkxVjL5HJPJezsP-XdRc0Q-t50x50.jpg">](https://soundcloud.com/dovescry/ultraclub4k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P1L42K9GSUaGGhWb-z8l82A-t50x50.jpg">](https://soundcloud.com/dovescry/fly)
 
 **Artist**: døves 
 
-**Track**: ULTRACLUB4K
+**Track**: fly
 
-Last updated at 10/27/2020 20:54
+Last updated at 10/27/2020 21:51
