@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zDMmYy2RnKXvhCj2-lY17tw-t50x50.jpg">](https://soundcloud.com/dovescry/woke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123568537-l0yrxv-t50x50.jpg">](https://soundcloud.com/dovescry/d-ves-cry-springs-eternal-cry)
 
 **Artist**: døves 
 
-**Track**: woke
+**Track**: DØVES CRY SPRINGS ETERNAL - CRY
 
-Last updated at 10/28/2020 05:26
+Last updated at 10/28/2020 05:27
