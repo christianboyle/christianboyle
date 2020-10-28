@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000386499156-0b2kb3-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/nf020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrcSqJxyDWcQWJfa-ukBUrQ-t50x50.jpg">](https://soundcloud.com/loudkult/naule-closer)
 
-**Artist**: Strange Fruits 
+**Artist**: LoudKult 
 
-**Track**: Naulé - Falling 🍉
+**Track**: Naulé - Closer
 
-Last updated at 10/28/2020 16:44
+Last updated at 10/28/2020 16:45
