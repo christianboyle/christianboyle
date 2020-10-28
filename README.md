@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658768327-ikqcow-t50x50.jpg">](https://soundcloud.com/kirigayasgone/kirigayas-gothboiclique-gbc-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580690967-sy5u9i-t50x50.jpg">](https://soundcloud.com/undergroundunderdogs/charlie-shuffler-mix?in=undergroundunderdogs/sets/mutt-mix)
 
-**Artist**: [kirigaya's gone] 
+**Artist**: Underground Underdogs 
 
-**Track**: kirigaya's gothboiclique [gbc] mix
+**Track**: Mutt Mix 003: Charlie Shuffler
 
-Last updated at 10/28/2020 10:59
+Last updated at 10/28/2020 11:00
