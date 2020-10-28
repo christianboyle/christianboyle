@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596533-7fnqq4-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/gowithyrheart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000094187264-8mj0au-t50x50.jpg">](https://soundcloud.com/horsehead1990/horse-head-so-down-feat-cold-hart)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: HORSE HEAD 
 
-**Track**: GO WITH YR HEART (FEAT. MACKNED) (PROD. DØVES) GOTHBOICLIQUE THRAXXHOUSE PASSIONATE GOD
+**Track**: So Down (feat. Cold Hart)
 
-Last updated at 10/28/2020 04:58
+Last updated at 10/28/2020 05:04
