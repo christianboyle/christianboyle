@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zkBiBwHGppAB8LEm-wovuyA-t50x50.jpg">](https://soundcloud.com/ill-gates/mrbill-illgates-cabbatsu)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: ill.Gates 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: Mr.Bill & ill.Gates - Cabbatsu
 
-Last updated at 10/28/2020 12:24
+Last updated at 10/28/2020 14:23
