@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117594058-37gowq-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/castles-eternal-feat-jp-dream?in=wiccaphasespringseternal/sets/abercrombie-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117594031-itj5d9-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/crystals-are-in-fragments-prod?in=wiccaphasespringseternal/sets/abercrombie-me)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: CASTLES ETERNAL (FEAT. JP DREAM THUG) (PROD. DØVES)
+**Track**: CRYSTALS ARE IN FRAGMENTS (PROD. TOKYO GHOST)
 
-Last updated at 10/28/2020 04:29
+Last updated at 10/28/2020 04:32
