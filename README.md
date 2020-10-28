@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423531357-5ud4pk-t50x50.jpg">](https://soundcloud.com/dovescry/understanding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000379393890-rxpura-t50x50.jpg">](https://soundcloud.com/dovescry/lovers-rmx)
 
 **Artist**: døves 
 
-**Track**: cremation lily x døves - understanding forever
+**Track**: cremation lily x døves - lovers against the rocks (rmx)
 
-Last updated at 10/27/2020 22:40
+Last updated at 10/27/2020 22:43
