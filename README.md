@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QZC4gid4XVvKAPn-PE5VOw-t50x50.jpg">](https://soundcloud.com/nocv/reason)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
 
-**Artist**: Noc.V 
+**Artist**: Monstercat 
 
-**Track**: Reason
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 10/28/2020 18:27
+Last updated at 10/28/2020 18:31
