@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117595295-kf3trj-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/no-control-prod-keyboard-kid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073351674-1js2vm-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/naomi-bae)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: NO CONTROL (PROD. KEYBOARD KID)
+**Track**: MY NAOMI
 
-Last updated at 10/28/2020 06:41
+Last updated at 10/28/2020 06:44
