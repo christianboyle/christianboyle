@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000075636170-s93jhu-t50x50.jpg">](https://soundcloud.com/dovescry/hire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596533-7fnqq4-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/gowithyrheart)
 
-**Artist**: døves 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: hire (demo)
+**Track**: GO WITH YR HEART (FEAT. MACKNED) (PROD. DØVES) GOTHBOICLIQUE THRAXXHOUSE PASSIONATE GOD
 
-Last updated at 10/28/2020 04:54
+Last updated at 10/28/2020 04:58
