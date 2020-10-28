@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190397849-ihrbwt-t50x50.jpg">](https://soundcloud.com/existentialdread/real-existential-dread-hours-episode-05-w-wicca-phase-horse-head-of-gothboiclique)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236774-mjjobh-t50x50.jpg">](https://soundcloud.com/gothboiclique/wicca-phase-springs-eternal-doves-horse-head-penelope-prod-doves)
 
-**Artist**: REAL EXISTENTIAL DREAD HOURS (The Podcast) 
+**Artist**: GOTHBOICLIQUE 
 
-**Track**: Real Existential Dread Hours: Episode 05 w/ Wicca Phase & Horse Head of Gothboiclique
+**Track**: Wicca Phase Springs Eternal, døves & Horse Head - Penelope (prod. døves)
 
-Last updated at 10/28/2020 00:12
+Last updated at 10/28/2020 02:35
