@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JAobKwWP63ZY-0-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXAjT96OZOHo-0-t50x50.jpg">](https://soundcloud.com/lilzubin/nauseous-feat-what-so-not)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: lil zubin 
 
-**Track**: Hardcore
+**Track**: Nauseous (feat. What So Not)
 
-Last updated at 10/27/2020 20:46
+Last updated at 10/27/2020 20:48
