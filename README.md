@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246788241-rguamk-t50x50.jpg">](https://soundcloud.com/lil_peep/lil-peep-feat-wicca-doves-avoid-eq)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000209996743-h0zfyw-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/stop-torturing-me-prod-horse?in=wiccaphasespringseternal/sets/stop-torturing-me)
 
-**Artist**: ☆LiL PEEP☆ 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: Avoid - Lil Peep Ft. Wicca Phase Springs Eternal & Døves (prod. by smokeasac & IIVI)
+**Track**: STOP TORTURING ME (PROD. HORSE HEAD)
 
-Last updated at 10/27/2020 23:18
+Last updated at 10/27/2020 23:22
