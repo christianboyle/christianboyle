@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IdJIUAsCRjwGAgCe-kIe1lg-t50x50.jpg">](https://soundcloud.com/dravynmusic/synthetic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000439463766-trckjl-t50x50.jpg">](https://soundcloud.com/dvcore666/defeatistchan-x-deer-violence-courture-shock)
 
-**Artist**: Dravyn 
+**Artist**: DEER VIOLENCE 🦌🔪 
 
-**Track**: Synthetic
+**Track**: DEFEATISTCHAN x DEER VIOLENCE - couture shock
 
-Last updated at 10/28/2020 16:54
+Last updated at 10/28/2020 16:55
