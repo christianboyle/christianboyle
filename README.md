@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QC3VfRINTRAk6s8-2Lm5Mw-t50x50.jpg">](https://soundcloud.com/loudkult/phzes-gabby-patrice-time-zones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyqqNBx4YOlJjiYF-XGD0ag-t50x50.jpg">](https://soundcloud.com/loudkult/happi-imallryt-sorry-master)
 
 **Artist**: LoudKult 
 
-**Track**: PHZES, Gabby Patrice - Time Zones
+**Track**: Happi, Imallryt - Sorry
 
-Last updated at 10/28/2020 14:24
+Last updated at 10/28/2020 14:25
