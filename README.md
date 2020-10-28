@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000122888242-dj7jrb-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/i-cant-remember-last-nightprod-mike-labyrinth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117595295-kf3trj-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/no-control-prod-keyboard-kid)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: I CANT REMEMBER LAST NIGHT...(PROD. MIKE LABYRINTH)
+**Track**: NO CONTROL (PROD. KEYBOARD KID)
 
-Last updated at 10/28/2020 06:38
+Last updated at 10/28/2020 06:41
