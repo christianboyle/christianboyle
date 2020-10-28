@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236774-mjjobh-t50x50.jpg">](https://soundcloud.com/gothboiclique/wicca-phase-springs-eternal-doves-horse-head-penelope-prod-doves?in=gothboiclique/sets/yeah-its-true)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173236729-nppfpz-t50x50.jpg">](https://soundcloud.com/gothboiclique/lil-tracy-cold-hart-she-fell-asleep-prod-fleance?in=gothboiclique/sets/yeah-its-true)
 
 **Artist**: GOTHBOICLIQUE 
 
-**Track**: Wicca Phase Springs Eternal, døves & Horse Head - Penelope (prod. døves)
+**Track**: Lil Tracy & Cold Hart - She Fell Asleep (prod. Fleance)
 
-Last updated at 10/28/2020 03:06
+Last updated at 10/28/2020 03:09
