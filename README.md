@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000196403510-czgcg3-t50x50.jpg">](https://soundcloud.com/dovescry/youth?in=dovescry/sets/ep2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201448325-tdrbif-t50x50.jpg">](https://soundcloud.com/dovescry/used-ft-horse-head)
 
 **Artist**: døves 
 
-**Track**: youth
+**Track**: used ft. horse head
 
-Last updated at 10/28/2020 00:00
+Last updated at 10/28/2020 00:03
