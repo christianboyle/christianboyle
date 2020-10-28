@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123568537-l0yrxv-t50x50.jpg">](https://soundcloud.com/dovescry/d-ves-cry-springs-eternal-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117594058-37gowq-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/castles-eternal-feat-jp-dream)
 
-**Artist**: døves 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: DØVES CRY SPRINGS ETERNAL - CRY
+**Track**: CASTLES ETERNAL (FEAT. JP DREAM THUG) (PROD. DØVES)
 
-Last updated at 10/28/2020 04:06
+Last updated at 10/28/2020 04:10
