@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000118351926-j8ou6l-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/coward-caught-up-prod-greaf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073351545-vhjjvn-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/night-bae-feat-ned-russin)
 
 **Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: COWARD - CAUGHT UP (PROD. GREAF)
+**Track**: NIGHT BAE (FEAT. NED RUSSIN)
 
-Last updated at 10/28/2020 06:45
+Last updated at 10/28/2020 06:49
