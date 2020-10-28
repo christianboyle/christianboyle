@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000127829236-5agk3m-t50x50.jpg">](https://soundcloud.com/jpdreamthug/nova)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117595298-8j6y1l-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/abercrombie-me-prod-keyboard-kid)
 
-**Artist**: JPDREAMTHUG 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: NOVA FEAT. WICCA PHASE SPRINGS ETERNAL (PROD. SORRYSINES)
+**Track**: ABERCROMBIE & ME (PROD. KEYBOARD KID)
 
-Last updated at 10/28/2020 06:05
+Last updated at 10/28/2020 06:08
