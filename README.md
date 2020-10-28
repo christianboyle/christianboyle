@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000107428497-aatx5j-t50x50.jpg">](https://soundcloud.com/horsehead1990/horse-head-stockholm-syndrome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000117596376-l5h4so-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/nightfall-prod-lederrick)
 
-**Artist**: HORSE HEAD 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: Stockholm Syndrome (feat. Wicca Phase Springs Eternal)
+**Track**: NIGHTFALL (PROD. LEDERRICK)
 
-Last updated at 10/28/2020 06:23
+Last updated at 10/28/2020 06:25
