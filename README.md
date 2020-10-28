@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000156844920-tqr2kd-t50x50.jpg">](https://soundcloud.com/coldhart/sus-prod-by-nasty-matt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000156844947-q1l3be-t50x50.jpg">](https://soundcloud.com/coldhart/die-on-ur-floor-feat-horsehead-prod-by-lil-ed)
 
 **Artist**: Cold Hart 
 
-**Track**: 12.Sus Prod By Nasty Matt
+**Track**: 6.Die On Ur Floor Feat Horsehead Prod By Lil Ed
 
-Last updated at 10/28/2020 07:02
+Last updated at 10/28/2020 07:05
