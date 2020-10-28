@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zDMmYy2RnKXvhCj2-lY17tw-t50x50.jpg">](https://soundcloud.com/dovescry/woke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000075636170-s93jhu-t50x50.jpg">](https://soundcloud.com/dovescry/hire)
 
 **Artist**: døves 
 
-**Track**: woke
+**Track**: hire (demo)
 
-Last updated at 10/28/2020 04:52
+Last updated at 10/28/2020 04:54
