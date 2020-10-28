@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXAjT96OZOHo-0-t50x50.jpg">](https://soundcloud.com/lilzubin/nauseous-feat-what-so-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuLGrfZquX6d-0-t50x50.jpg">](https://soundcloud.com/fish_narc/you-asked-for-this-intro?in=fish_narc/sets/wildfire-87541594)
 
-**Artist**: lil zubin 
+**Artist**: fish narc 
 
-**Track**: Nauseous (feat. What So Not)
+**Track**: YOU ASKED FOR THIS
 
-Last updated at 10/27/2020 20:48
+Last updated at 10/27/2020 20:51
