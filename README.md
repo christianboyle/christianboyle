@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: SMOKEASAC 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: Leave You Behind
 
-Last updated at 10/29/2020 09:07
+Last updated at 10/29/2020 09:26
