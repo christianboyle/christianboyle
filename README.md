@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XK1kVxFeKabW2eZo-e6z8VA-t50x50.jpg">](https://soundcloud.com/paarkdtc/stonelands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHOM2lPb7zPYqaf2-cfFrwA-t50x50.jpg">](https://soundcloud.com/whoisdvrko/power-of-love)
 
-**Artist**: Paark 
+**Artist**: DVRKO 
 
-**Track**: Paark - Stonelands
+**Track**: Power Of Love
 
-Last updated at 10/29/2020 08:03
+Last updated at 10/29/2020 08:04
