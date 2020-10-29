@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYmxm7WIXzj29C4h-yFGBtA-t50x50.jpg">](https://soundcloud.com/hubzy/rush?in=hubzy/sets/tension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AKHVHjoZueVTNah-zegM1Q-t50x50.jpg">](https://soundcloud.com/itscustome/lightning-remix)
 
-**Artist**: HUBZY 
+**Artist**: CUSTOME 
 
-**Track**: rush
+**Track**: Bag Raiders & The Kite String Tangle - Lightning (CUSTOME x Segan Remix)
 
-Last updated at 10/29/2020 08:39
+Last updated at 10/29/2020 08:40
