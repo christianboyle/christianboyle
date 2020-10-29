@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcvTJwZ8QA77Q3Wu-HCL24A-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-austin-fillmore-doug-bako-ziminah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QiInE5nZJ4VSgKR-SQLdNg-t50x50.jpg">](https://soundcloud.com/cgilly-1/go-1)
 
-**Artist**: Milk N Cooks 
+**Artist**: Chloe Gilligan 
 
-**Track**: Milk N Cooks, Austin Fillmore, Doug Bako - Ziminah
+**Track**: Go
 
-Last updated at 10/29/2020 09:32
+Last updated at 10/29/2020 09:35
