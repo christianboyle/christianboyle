@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUE4LAeprCI6admG-fUzKbA-t50x50.jpg">](https://soundcloud.com/juuku/san-holo-we-rise-juuku-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CazLvvuocA9NeXGc-SUahCQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-architect)
 
-**Artist**: juuku 
+**Artist**: Sublab 
 
-**Track**: san holo - we rise (juuku flip)
+**Track**: 💙 LOVE ARCHITECT 🌐
 
-Last updated at 10/28/2020 20:10
+Last updated at 10/28/2020 20:14
