@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MELFxD8Az9MUDSV2-w1HGhQ-t50x50.jpg">](https://soundcloud.com/tropixofficial/youngagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488970693-8sywn6-t50x50.jpg">](https://soundcloud.com/terrorreid/buried-alive-feat-eliozie)
 
-**Artist**: Tropix 
+**Artist**: TERROR REID 
 
-**Track**: Vaance & Tropix - Young Again (feat. Corey Vance)
+**Track**: BURIED ALIVE FEAT. ELIOZIE
 
-Last updated at 10/29/2020 19:44
+Last updated at 10/30/2020 08:57
