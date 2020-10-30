@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbU1zRiXWWbhiC4g-C92grg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-devotion-feat-og-maco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVgkU37ezlW83KZq-bC1yeQ-t50x50.jpg">](https://soundcloud.com/rlgrime/halloween-ix)
 
-**Artist**: HOLLY 
+**Artist**: RL Grime 
 
-**Track**: HOLLY - Devotion (feat. OG Maco)
+**Track**: Halloween IX
 
-Last updated at 10/30/2020 10:35
+Last updated at 10/30/2020 12:39
