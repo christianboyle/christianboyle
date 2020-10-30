@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000858537187-08p7t2-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/bass-agents-vs-yusef-kifah?in=keepingtheravealive/sets/bass-agents-vs-yusef-kifah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydRkcCiVqgyszeuT-2F27qA-t50x50.jpg">](https://soundcloud.com/tofuumusic/tofu-x-danni-carra-alone-lexim-remix)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: tofû 
 
-**Track**: Bass Agents vs. Yusef Kifah - Worlds
+**Track**: tofû x Danni Carra - Alone (LEXIM Remix)
 
-Last updated at 10/30/2020 10:30
+Last updated at 10/30/2020 10:31
