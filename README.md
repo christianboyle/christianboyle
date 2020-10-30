@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydRkcCiVqgyszeuT-2F27qA-t50x50.jpg">](https://soundcloud.com/tofuumusic/tofu-x-danni-carra-alone-lexim-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n0i3svc9yfaxvau8-giHJbg-t50x50.jpg">](https://soundcloud.com/itsfrancisvi/two-friends-hell-francis-vi-remix)
 
-**Artist**: tofû 
+**Artist**: Francis VI 
 
-**Track**: tofû x Danni Carra - Alone (LEXIM Remix)
+**Track**: Two Friends- Hell (Francis VI Flip)
 
-Last updated at 10/30/2020 10:31
+Last updated at 10/30/2020 10:32
