@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ci96INZNniOiR7hG-bJMwuQ-t50x50.jpg">](https://soundcloud.com/toothgap/bedroom-bumps)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTaEM6m1Ea9isbFz-iKuiyw-t50x50.jpg">](https://soundcloud.com/404heartbreak/cuddle-ur-qt-to-this)
 
-**Artist**: [no.where] 
+**Artist**: 404HEARTBREAK 
 
-**Track**: [bedroom bumps.]
+**Track**: cuddle ur qt to this
 
-Last updated at 11/01/2020 19:40
+Last updated at 11/01/2020 19:44
