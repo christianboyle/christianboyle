@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVgkU37ezlW83KZq-bC1yeQ-t50x50.jpg">](https://soundcloud.com/rlgrime/halloween-ix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
 
-**Artist**: RL Grime 
+**Artist**: rifleman 
 
-**Track**: Halloween IX
+**Track**: the cover to end all covers
 
-Last updated at 11/01/2020 15:20
+Last updated at 11/01/2020 19:19
