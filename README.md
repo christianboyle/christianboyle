@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvc8n03riDBtWAvc-ZTwyGQ-t50x50.jpg">](https://soundcloud.com/iaminfms/fright-night-chapter-three)
 
-**Artist**: rifleman 
+**Artist**: iNFMS 
 
-**Track**: the cover to end all covers
+**Track**: 𝖋𝖗𝖎𝖌𝖍𝖙 𝖓𝖎𝖌𝖍𝖙: 𝔠𝔥𝔞𝔭𝔱𝔢𝔯 𝔱𝔥𝔯𝔢𝔢
 
-Last updated at 11/01/2020 19:45
+Last updated at 11/02/2020 08:59
