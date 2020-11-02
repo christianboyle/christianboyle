@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxcXGezQS9JWWKqg-sqvFcg-t50x50.jpg">](https://soundcloud.com/oliver-c-beats/smoot-terror-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBWM9Gajoczlpm9J-S1jBlQ-t50x50.jpg">](https://soundcloud.com/whoskid/sicko-3)
 
-**Artist**: Oliver C Beats 
+**Artist**: k?d 
 
-**Track**: SMOOTH TERROR, VOL. 2
+**Track**: Travis Scott x Skrillex - Sicko Mode (k?d DJ Tool)
 
-Last updated at 11/02/2020 15:06
+Last updated at 11/02/2020 15:19
