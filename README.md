@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AWUo8cHc751LAmb-4VgM3g-t50x50.jpg">](https://soundcloud.com/meezow/reflect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jdWWcJzM0wQNwPMr-b4l5cQ-t50x50.jpg">](https://soundcloud.com/dthd/afterparty)
 
-**Artist**: meezow 
+**Artist**: dthd 
 
-**Track**: reflect
+**Track**: AFTERPARTY
 
-Last updated at 11/01/2020 19:29
+Last updated at 11/01/2020 19:31
