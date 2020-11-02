@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3T9D8gGdAzm2XUwJ-bCurIw-t50x50.jpg">](https://soundcloud.com/yungkkun/retro-senpai-jp-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ci96INZNniOiR7hG-bJMwuQ-t50x50.jpg">](https://soundcloud.com/toothgap/bedroom-bumps)
 
-**Artist**: K.Kun 
+**Artist**: [no.where] 
 
-**Track**: RETRO $ENPAI.JP  3
+**Track**: [bedroom bumps.]
 
-Last updated at 11/01/2020 19:33
+Last updated at 11/01/2020 19:40
