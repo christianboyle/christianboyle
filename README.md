@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBWM9Gajoczlpm9J-S1jBlQ-t50x50.jpg">](https://soundcloud.com/whoskid/sicko-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ci96INZNniOiR7hG-bJMwuQ-t50x50.jpg">](https://soundcloud.com/toothgap/bedroom-bumps)
 
-**Artist**: k?d 
+**Artist**: [no.where] 
 
-**Track**: Travis Scott x Skrillex - Sicko Mode (k?d DJ Tool)
+**Track**: [bedroom bumps.]
 
-Last updated at 11/03/2020 14:40
+Last updated at 11/03/2020 14:44
