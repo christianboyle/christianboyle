@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cy6XO9mREO98qySC-aND4zQ-t50x50.jpg">](https://soundcloud.com/talegatemusic/austin-burke-desert-child-talegate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Ga2waOOvbSZ0t-xb5JrA-t50x50.jpg">](https://soundcloud.com/bitbird/khamsin-about-us-ft-kidwaste-and-manu-dia)
 
-**Artist**: Talegate 
+**Artist**: bitbird 
 
-**Track**: Austin Burke - Desert Child (Talegate Remix)
+**Track**: Khamsin - About Us (ft. Kidswaste and Manu Dia)
 
-Last updated at 11/03/2020 04:15
+Last updated at 11/03/2020 04:17
