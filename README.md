@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ci96INZNniOiR7hG-bJMwuQ-t50x50.jpg">](https://soundcloud.com/toothgap/bedroom-bumps)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
 
-**Artist**: [no.where] 
+**Artist**: rifleman 
 
-**Track**: [bedroom bumps.]
+**Track**: the cover to end all covers
 
-Last updated at 11/03/2020 13:12
+Last updated at 11/03/2020 13:40
