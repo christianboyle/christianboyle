@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
 
-**Artist**: rifleman 
+**Artist**: NOVAGANG 
 
-**Track**: the cover to end all covers
+**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
 
-Last updated at 11/03/2020 07:58
+Last updated at 11/03/2020 08:02
