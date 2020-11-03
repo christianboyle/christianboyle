@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
 
-**Artist**: Astrophonica 
+**Artist**: INVERTED AUDIO 
 
-**Track**: Sully - Swandive (APHA023)
+**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
 
-Last updated at 11/02/2020 20:37
+Last updated at 11/02/2020 20:43
