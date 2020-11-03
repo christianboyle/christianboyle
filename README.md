@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
 
-**Artist**: smrtdeath 
+**Artist**: Circus Records Official 
 
-**Track**: Waterfall
+**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
 
-Last updated at 11/03/2020 01:07
+Last updated at 11/03/2020 01:09
