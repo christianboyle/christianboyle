@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-roJSfQrFrYCMUC4p-KZejeg-t50x50.jpg">](https://soundcloud.com/cyberposix/gucci-girls)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: ‍Cyber Posix 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: Gucci Girls [Free DL on Bandcamp][beat available lease]
 
-Last updated at 11/03/2020 11:28
+Last updated at 11/03/2020 11:34
