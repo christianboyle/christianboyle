@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xp2jvqzHuud7-0-t50x50.jpg">](https://soundcloud.com/theknocks/colors-robokid-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOFtQlPvpySF-0-t50x50.png">](https://soundcloud.com/smrtdeath/waterfall)
 
-**Artist**: The Knocks 
+**Artist**: smrtdeath 
 
-**Track**: Colors (Robokid Remix)
+**Track**: Waterfall
 
-Last updated at 11/03/2020 01:05
+Last updated at 11/03/2020 01:07
