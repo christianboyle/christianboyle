@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iXOrClkcrWMOb8sl-LzH3Dg-t50x50.jpg">](https://soundcloud.com/bennymayne/danny-devito-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9XtWRaShGvDI-0-t50x50.png">](https://soundcloud.com/hotelgarudamusic/rush-1)
 
-**Artist**: benny mayne 
+**Artist**: HOTEL GARUDA 
 
-**Track**: danny devito (freestyle)
+**Track**: Rush
 
-Last updated at 11/03/2020 06:27
+Last updated at 11/03/2020 06:29
