@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IxOruFF425Hd15Z-5igZXw-t50x50.jpg">](https://soundcloud.com/playmerecords/steez-power?in=playmerecords/sets/steez-off-the-record)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xl6P8NdLOMCzEPrf-dNCyeg-t50x50.jpg">](https://soundcloud.com/shirx/cyberia-1)
 
-**Artist**: Play Me Records 
+**Artist**: SHIRO 
 
-**Track**: STEEZ - POWER
+**Track**: CYBERIA
 
-Last updated at 11/03/2020 08:08
+Last updated at 11/03/2020 08:10
