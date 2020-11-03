@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDRX92K0uglCsFDC-yZPs5Q-t50x50.jpg">](https://soundcloud.com/tisakorean8j/rocky-road-feat-father-yehme2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IxOruFF425Hd15Z-5igZXw-t50x50.jpg">](https://soundcloud.com/playmerecords/steez-power?in=playmerecords/sets/steez-off-the-record)
 
-**Artist**: tisaKOREAN 
+**Artist**: Play Me Records 
 
-**Track**: Rocky Road feat. FATHER & YehMe2
+**Track**: STEEZ - POWER
 
-Last updated at 11/03/2020 08:06
+Last updated at 11/03/2020 08:08
