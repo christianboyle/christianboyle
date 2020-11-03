@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrYtpzvd8LRrhnWF-jS1WIQ-t50x50.jpg">](https://soundcloud.com/phzes/cappa-twyb-phzes-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7FKxHLmoUSMRxRR-uUc5FQ-t50x50.jpg">](https://soundcloud.com/inextremis/tiredofwaiting)
 
-**Artist**: PHZES 
+**Artist**: Inextremis 
 
-**Track**: Cappa - There With You Baby (PHZES Remix)
+**Track**: Darby - Tired Of Waiting
 
-Last updated at 11/03/2020 05:23
+Last updated at 11/03/2020 05:25
