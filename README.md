@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cbap54CBQsoXGtr-pn5ztQ-t50x50.jpg">](https://soundcloud.com/funkycraig/funky-craig-asian-vibes-2020-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hz294TxcgWm0NPMV-hU7FLw-t50x50.jpg">](https://soundcloud.com/surfmesa/bekind-surfmesa-remix)
 
-**Artist**: Funky Craig 
+**Artist**: Surf Mesa 
 
-**Track**: AsianVibes 2020
+**Track**: Marshmello x Halsey - Be Kind [Surf Mesa Remix]
 
-Last updated at 11/03/2020 06:45
+Last updated at 11/03/2020 06:48
