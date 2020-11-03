@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK0GGrYBGP40cwSp-wqzIKw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-dancing-on-the-moon-ft-luke-burr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t50x50.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
 
-**Artist**: NCS 
+**Artist**: Lil Koi! 
 
-**Track**: Unknown Brain - Dancing On The Moon (ft. Luke Burr)[NCS Release]
+**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
 
-Last updated at 11/02/2020 23:55
+Last updated at 11/02/2020 23:59
