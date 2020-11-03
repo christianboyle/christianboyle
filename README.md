@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-roJSfQrFrYCMUC4p-KZejeg-t50x50.jpg">](https://soundcloud.com/cyberposix/gucci-girls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
 
-**Artist**: ‍Cyber Posix 
+**Artist**: NOVAGANG 
 
-**Track**: Gucci Girls [Free DL on Bandcamp][beat available lease]
+**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
 
-Last updated at 11/03/2020 08:32
+Last updated at 11/03/2020 08:36
