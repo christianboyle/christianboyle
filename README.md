@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wgqatn64k8gzLb37-yqM1Lw-t50x50.jpg">](https://soundcloud.com/theimage/believe-in-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t50x50.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
 
-**Artist**: The Image 
+**Artist**: Gen1910 
 
-**Track**: Believe In Me
+**Track**: Current Value - Dark Rain
 
-Last updated at 11/03/2020 05:41
+Last updated at 11/03/2020 05:45
