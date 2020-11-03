@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-252WPXSdqr31tZM7-jM80rQ-t50x50.png">](https://soundcloud.com/shespellsdoom/flux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cbap54CBQsoXGtr-pn5ztQ-t50x50.jpg">](https://soundcloud.com/funkycraig/funky-craig-asian-vibes-2020-original-mix)
 
-**Artist**: SHE Spells Doom 
+**Artist**: Funky Craig 
 
-**Track**: Flux
+**Track**: AsianVibes 2020
 
-Last updated at 11/03/2020 06:41
+Last updated at 11/03/2020 06:45
