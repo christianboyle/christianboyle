@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Ga2waOOvbSZ0t-xb5JrA-t50x50.jpg">](https://soundcloud.com/bitbird/khamsin-about-us-ft-kidwaste-and-manu-dia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRM9tGZhLymCvTiq-KX4QFw-t50x50.jpg">](https://soundcloud.com/slowroastrecs/2-rebel-xavage-remix)
 
-**Artist**: bitbird 
+**Artist**: Slow Roast Records 
 
-**Track**: Khamsin - About Us (ft. Kidswaste and Manu Dia)
+**Track**: 2¢ - Rebel (XAVAGE Remix)
 
-Last updated at 11/03/2020 04:17
+Last updated at 11/03/2020 04:21
