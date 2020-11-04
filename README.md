@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7DfWyCSS8iScWD-P7Muhw-t50x50.jpg">](https://soundcloud.com/glowrecords/all-of-my-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK0GGrYBGP40cwSp-wqzIKw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-dancing-on-the-moon-ft-luke-burr)
 
-**Artist**: Glow Records 
+**Artist**: NCS 
 
-**Track**: Godoy & Maylon - All Of My Love (Radio Mix)
+**Track**: Unknown Brain - Dancing On The Moon (ft. Luke Burr)[NCS Release]
 
-Last updated at 11/04/2020 02:08
+Last updated at 11/04/2020 02:10
