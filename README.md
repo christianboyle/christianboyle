@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0IQJa5rJQR3miXuT-ZTs3Xg-t50x50.jpg">](https://soundcloud.com/stantonwarriors/somali-funk-out-now?in=punksmusic/sets/stanton-warriors-somali-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ojw5zzJbKryzcrDR-PdmCwQ-t50x50.jpg">](https://soundcloud.com/punksmusic/ernesto-feels)
 
-**Artist**: Stanton Warriors 
+**Artist**: Punks Music 
 
-**Track**: Somali Funk - OUT NOW
+**Track**: E.R.N.E.S.T.O - Feels
 
-Last updated at 11/04/2020 17:38
+Last updated at 11/04/2020 17:46
