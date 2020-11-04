@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVgkU37ezlW83KZq-bC1yeQ-t50x50.jpg">](https://soundcloud.com/rlgrime/halloween-ix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n0i3svc9yfaxvau8-giHJbg-t50x50.jpg">](https://soundcloud.com/itsfrancisvi/two-friends-hell-francis-vi-remix)
 
-**Artist**: RL Grime 
+**Artist**: Francis VI 
 
-**Track**: Halloween IX
+**Track**: Two Friends- Hell (Francis VI Flip)
 
-Last updated at 11/03/2020 21:32
+Last updated at 11/03/2020 22:34
