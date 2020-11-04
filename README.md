@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jpcq3QE5M5tbvQ15-ry9Oog-t50x50.jpg">](https://soundcloud.com/thisisblklght/faith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ziSMvYUZ120gF07-QbDzGQ-t50x50.jpg">](https://soundcloud.com/glass-arrowhead/donald-trump-giving-me-a-blowjob)
 
-**Artist**: blklght 
+**Artist**: Glass Oldies and WIPS 
 
-**Track**: The Weeknd - Faith (blklght remix)
+**Track**: Donald Trump Giving Me a Blowjob
 
-Last updated at 11/03/2020 21:08
+Last updated at 11/03/2020 21:10
