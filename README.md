@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpI2hljNZlzm1PaO-MvVmuQ-t50x50.jpg">](https://soundcloud.com/monstercat/beauz-outerspace-feat-dallas)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: Monstercat 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: BEAUZ - Outerspace (feat. Dallas)
 
-Last updated at 11/04/2020 10:42
+Last updated at 11/04/2020 10:56
