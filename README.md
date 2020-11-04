@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AKHVHjoZueVTNah-zegM1Q-t50x50.jpg">](https://soundcloud.com/itscustome/lightning-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
 
-**Artist**: CUSTOME 
+**Artist**: rifleman 
 
-**Track**: Bag Raiders & The Kite String Tangle - Lightning (CUSTOME x Segan Remix)
+**Track**: the cover to end all covers
 
-Last updated at 11/04/2020 08:42
+Last updated at 11/04/2020 08:52
