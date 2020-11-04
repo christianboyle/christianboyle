@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAjvC4woy8yjcQZf-B4cw6w-t50x50.jpg">](https://soundcloud.com/doctorpcircus/wont-let-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZxauk8yzJa93Vri-BTSVtw-t50x50.jpg">](https://soundcloud.com/bsterthegawd/beloved)
 
-**Artist**: Doctor P 
+**Artist**: bsterthegawd 
 
-**Track**: Won't Let Go
+**Track**: beloved
 
-Last updated at 11/04/2020 08:34
+Last updated at 11/04/2020 08:36
