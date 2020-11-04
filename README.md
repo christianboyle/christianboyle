@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ld7TWIGgVGiA3now-r2KCgQ-t50x50.jpg">](https://soundcloud.com/weirdnxc/alexis-back2u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcMOS1DjaG5F-0-t50x50.jpg">](https://soundcloud.com/iamannemarie/to-be-young-feat-doja-cat-1)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Anne-Marie 
 
-**Track**: 05 - ALEXiS - BACK2U
+**Track**: To Be Young (feat. Doja Cat) (Felix Cartal Remix)
 
-Last updated at 11/04/2020 03:38
+Last updated at 11/04/2020 03:42
