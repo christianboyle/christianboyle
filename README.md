@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n0i3svc9yfaxvau8-giHJbg-t50x50.jpg">](https://soundcloud.com/itsfrancisvi/two-friends-hell-francis-vi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbU1zRiXWWbhiC4g-C92grg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-devotion-feat-og-maco)
 
-**Artist**: Francis VI 
+**Artist**: HOLLY 
 
-**Track**: Two Friends- Hell (Francis VI Flip)
+**Track**: HOLLY - Devotion (feat. OG Maco)
 
-Last updated at 11/03/2020 22:34
+Last updated at 11/03/2020 22:38
