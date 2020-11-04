@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcldielWzoNPSitz-50kKmA-t50x50.jpg">](https://soundcloud.com/beweirdbeoriginal/watch-me-burn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: BWBO 
+**Artist**: King Theta 
 
-**Track**: NeoQor feat. Evangeline - Watch Me Burn (Radio Edit)
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 11/03/2020 23:34
+Last updated at 11/03/2020 23:38
