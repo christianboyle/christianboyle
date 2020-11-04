@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1UezDvUhj5hwyyZa-Pz9zHw-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/quibbz-frequency-shifter)
 
-**Artist**: NOVAGANG 
+**Artist**: High Caliber Records 
 
-**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
+**Track**: QUIBBZ - Frequency Shifter
 
-Last updated at 11/03/2020 21:04
+Last updated at 11/03/2020 21:06
