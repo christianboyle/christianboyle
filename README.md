@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHAX4ctjQltI-0-t50x50.jpg">](https://soundcloud.com/lucydaydream/romeo-julie-feat-curci)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3yV92vE536ffmWX-fKcPEQ-t50x50.jpg">](https://soundcloud.com/luca-rezza/luca-rezza-looking-for-you?in=luca-rezza/sets/luca-rezza-locked-in-the)
 
-**Artist**: Lucy Daydream 
+**Artist**: Luca Rezza 
 
-**Track**: Romeo & Julie (feat. Curci)
+**Track**: Luca Rezza - Looking For You
 
-Last updated at 11/04/2020 16:40
+Last updated at 11/04/2020 16:42
