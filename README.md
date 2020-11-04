@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AER4O8KKVz15BAJb-TMxtaA-t50x50.jpg">](https://soundcloud.com/lilaaron911/boyfriendz-text-u-all-the-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UwXNH7R814fk-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral)
 
-**Artist**: lil aaron 
+**Artist**: smrtdeath 
 
-**Track**: BOYFRIENDZ - Text U All The Time
+**Track**: Headed To My Funeral
 
-Last updated at 11/04/2020 04:54
+Last updated at 11/04/2020 04:56
