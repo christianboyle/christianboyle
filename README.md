@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01Mx398PKTW7JCdf-cmObYA-t50x50.jpg">](https://soundcloud.com/syenceexperiments/a-boogie-wit-da-hoodie-drowning-feat-kodak-black-syence-experiment-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f16inzSh8sSGSlk0-T9BJ5g-t50x50.jpg">](https://soundcloud.com/mobilepro/dynamite)
 
-**Artist**: Syence Experiments 
+**Artist**: MOBILE PRO 
 
-**Track**: A Boogie wit da Hoodie - Drowning (feat. Kodak Black) [Syence Experiment]
+**Track**: DYNAMITE
 
-Last updated at 11/04/2020 02:50
+Last updated at 11/04/2020 02:54
