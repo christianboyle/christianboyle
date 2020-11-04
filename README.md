@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z2sYFk8xrWADOiQP-NYFwMA-t50x50.jpg">](https://soundcloud.com/zombieamericana/propagate-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiAXHO86PrwQofwR-zJSWiw-t50x50.jpg">](https://soundcloud.com/theollygee/sumboy-sounds-mix-2019)
 
-**Artist**: Zombie Americana 
+**Artist**: Olly Gee (Sumboy) 
 
-**Track**: Propagate
+**Track**: Sumboy Sounds Vol.1
 
-Last updated at 11/04/2020 10:58
+Last updated at 11/04/2020 11:00
