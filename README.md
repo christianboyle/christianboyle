@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D7AG9FVshSnDdvLb-wjgbBA-t50x50.jpg">](https://soundcloud.com/luca-rezza/luca-rezza-sensation-edm-identity-premiere?in=luca-rezza/sets/luca-rezza-locked-in-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiAXHO86PrwQofwR-zJSWiw-t50x50.jpg">](https://soundcloud.com/theollygee/sumboy-sounds-mix-2019)
 
-**Artist**: Luca Rezza 
+**Artist**: Olly Gee (Sumboy) 
 
-**Track**: Luca Rezza - Sensation [EDM Identity Premiere]
+**Track**: Sumboy Sounds Vol.1
 
-Last updated at 11/04/2020 16:46
+Last updated at 11/04/2020 16:50
