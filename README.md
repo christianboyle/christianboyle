@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiAXHO86PrwQofwR-zJSWiw-t50x50.jpg">](https://soundcloud.com/theollygee/sumboy-sounds-mix-2019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0IQJa5rJQR3miXuT-ZTs3Xg-t50x50.jpg">](https://soundcloud.com/stantonwarriors/somali-funk-out-now?in=punksmusic/sets/stanton-warriors-somali-funk)
 
-**Artist**: Olly Gee (Sumboy) 
+**Artist**: Stanton Warriors 
 
-**Track**: Sumboy Sounds Vol.1
+**Track**: Somali Funk - OUT NOW
 
-Last updated at 11/04/2020 16:50
+Last updated at 11/04/2020 17:38
