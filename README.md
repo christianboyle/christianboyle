@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t50x50.jpg">](https://soundcloud.com/headasin/carti-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: headasin 
+**Artist**: medasin 
 
-**Track**: carti flip
+**Track**: Africa
 
-Last updated at 11/04/2020 05:50
+Last updated at 11/04/2020 05:52
