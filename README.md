@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvc8n03riDBtWAvc-ZTwyGQ-t50x50.jpg">](https://soundcloud.com/iaminfms/fright-night-chapter-three)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
 
-**Artist**: iNFMS 
+**Artist**: NOVAGANG 
 
-**Track**: 𝖋𝖗𝖎𝖌𝖍𝖙 𝖓𝖎𝖌𝖍𝖙: 𝔠𝔥𝔞𝔭𝔱𝔢𝔯 𝔱𝔥𝔯𝔢𝔢
+**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
 
-Last updated at 11/03/2020 16:44
+Last updated at 11/03/2020 21:04
