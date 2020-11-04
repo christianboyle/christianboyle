@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAUzoYEHULstoryc-0xs7Yw-t50x50.jpg">](https://soundcloud.com/wearefury/animals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515702589-m9yypn-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc130)
 
-**Artist**: WE ARE FURY 
+**Artist**: NON STOP NXC® 
 
-**Track**: WE ARE FURY - Animals (feat. Jordan Tariff)
+**Track**: NXC130 - kim petras + sophie - 1 2 3 dayz up (gyrofield flip)
 
-Last updated at 11/04/2020 02:16
+Last updated at 11/04/2020 02:20
