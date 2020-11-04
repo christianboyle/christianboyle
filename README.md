@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgeJKUYVEVAq7dw5-50gqNQ-t50x50.jpg">](https://soundcloud.com/oneseventy/summa-jae-feat-kyrk-find-me-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
 
-**Artist**: OneSeventy 
+**Artist**: STRIDER 
 
-**Track**: Summa Jae feat. KYRK - Find Me (Radio Edit)
+**Track**: NONSTOPWORLD 2 - STRIDER
 
-Last updated at 11/04/2020 06:06
+Last updated at 11/04/2020 06:10
