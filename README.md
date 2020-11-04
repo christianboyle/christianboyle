@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DrOaxcjoPlui0C0A-rykgqg-t50x50.jpg">](https://soundcloud.com/circusrecords/taylor-kade-x-nick-ledesma-talk-to-me-feat-glnna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix)
 
-**Artist**: Circus Records Official 
+**Artist**: Lowly. 
 
-**Track**: Taylor Kade x Nick Ledesma - Talk To Me Feat. GLNNA
+**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
 
-Last updated at 11/04/2020 03:24
+Last updated at 11/04/2020 03:28
