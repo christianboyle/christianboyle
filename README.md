@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUZPIziZBEpm1fTG-8HrlgA-t50x50.jpg">](https://soundcloud.com/notstrider/non-stop-world-2-strider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AKHVHjoZueVTNah-zegM1Q-t50x50.jpg">](https://soundcloud.com/itscustome/lightning-remix)
 
-**Artist**: STRIDER 
+**Artist**: CUSTOME 
 
-**Track**: NONSTOPWORLD 2 - STRIDER
+**Track**: Bag Raiders & The Kite String Tangle - Lightning (CUSTOME x Segan Remix)
 
-Last updated at 11/04/2020 06:10
+Last updated at 11/04/2020 08:28
