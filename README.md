@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AKHVHjoZueVTNah-zegM1Q-t50x50.jpg">](https://soundcloud.com/itscustome/lightning-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
 
-**Artist**: CUSTOME 
+**Artist**: NOVAGANG 
 
-**Track**: Bag Raiders & The Kite String Tangle - Lightning (CUSTOME x Segan Remix)
+**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
 
-Last updated at 11/04/2020 20:26
+Last updated at 11/04/2020 20:28
