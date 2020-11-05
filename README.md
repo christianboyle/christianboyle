@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdJzPxNMKlj9TFlN-TUgWWQ-t50x50.jpg">](https://soundcloud.com/mir4ge/reminisce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AKHVHjoZueVTNah-zegM1Q-t50x50.jpg">](https://soundcloud.com/itscustome/lightning-remix)
 
-**Artist**: mir4ge 
+**Artist**: CUSTOME 
 
-**Track**: REMINI$CE
+**Track**: Bag Raiders & The Kite String Tangle - Lightning (CUSTOME x Segan Remix)
 
-Last updated at 11/04/2020 19:18
+Last updated at 11/04/2020 19:20
