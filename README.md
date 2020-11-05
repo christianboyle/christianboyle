@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000455713086-lsk0wy-t50x50.jpg">](https://soundcloud.com/soundsbymystic2/arms-around-you-mstic-flip?in=soundsbymystic/sets/remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdJzPxNMKlj9TFlN-TUgWWQ-t50x50.jpg">](https://soundcloud.com/mir4ge/reminisce)
 
-**Artist**: MYSTIC 2.0 
+**Artist**: mir4ge 
 
-**Track**: ARMS AROUND YOU (MYSTIC FLIP)
+**Track**: REMINI$CE
 
-Last updated at 11/04/2020 19:16
+Last updated at 11/04/2020 19:18
