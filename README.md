@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j4EkWaMHAoyfEfiM-vs9yiw-t50x50.jpg">](https://soundcloud.com/ericdoa2/copyright)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556177773-tpmejm-t50x50.jpg">](https://soundcloud.com/neilaworld/2kthagoon-access-denied-prod-lifted-x-fbk-x-lukrative)
 
-**Artist**: ericdoa2 
+**Artist**: NEILAWORLD 
 
-**Track**: ericdoa - Copyright (prod. Mochila)
+**Track**: 2kthagoon - Access Denied [prod. Lifted x FBK x Lukrative]
 
-Last updated at 11/06/2020 15:47
+Last updated at 11/06/2020 15:48
