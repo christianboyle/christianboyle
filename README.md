@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556177773-tpmejm-t50x50.jpg">](https://soundcloud.com/neilaworld/2kthagoon-access-denied-prod-lifted-x-fbk-x-lukrative)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ph4IghP9cyoSAxz-AWDMJg-t50x50.jpg">](https://soundcloud.com/goonlordchronikk/backroad-prod-g8freq)
 
-**Artist**: NEILAWORLD 
+**Artist**: 2kthagoon 
 
-**Track**: 2kthagoon - Access Denied [prod. Lifted x FBK x Lukrative]
+**Track**: Backroad [ Prod: G8Freq ]
 
-Last updated at 11/06/2020 15:48
+Last updated at 11/06/2020 15:50
