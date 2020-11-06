@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0o7EJHPzMz29pJG-tbCk4g-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-x-astrid-s-x-hrvy-am-i-the-only-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zb0P6ac0Ru0f1UkJ-noUwUg-t50x50.jpg">](https://soundcloud.com/komorebiaudio/trance-wave-midtempo-glitch-sample-pack)
 
-**Artist**: R3HAB 
+**Artist**: Komorebi Audio 
 
-**Track**: R3HAB x Astrid S x HRVY - Am I The Only One
+**Track**: Trance Wave & Midtempo Glitch - Sample Pack
 
-Last updated at 11/06/2020 08:28
+Last updated at 11/06/2020 08:30
