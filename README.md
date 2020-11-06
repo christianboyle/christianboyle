@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTzMNvtyXvQKydhE-SO51cw-t50x50.jpg">](https://soundcloud.com/kittynxc/halloween-2020-party-in-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2pTPCn0acpndNDHF-tZ30ew-t50x50.jpg">](https://soundcloud.com/socalnightcore/episode-57-highrollersonly-guest-mix-intervie)
 
-**Artist**: kittynxc 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: HALLOWEEN 2020 - PARTY IN HELL
+**Track**: Episode 57 - highrollersonly guest mix + interview
 
-Last updated at 11/06/2020 11:13
+Last updated at 11/06/2020 11:47
