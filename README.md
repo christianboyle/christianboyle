@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQbHXSnLRJYh8yyc-XzU86Q-t50x50.jpg">](https://soundcloud.com/ericdoa2/smoke-across-a-strawberry-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j4EkWaMHAoyfEfiM-vs9yiw-t50x50.jpg">](https://soundcloud.com/ericdoa2/copyright)
 
 **Artist**: ericdoa2 
 
-**Track**: Smoke Across A Strawberry Sky (Prod. redMOSK)
+**Track**: ericdoa - Copyright (prod. Mochila)
 
-Last updated at 11/06/2020 15:43
+Last updated at 11/06/2020 15:47
