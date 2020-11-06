@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry9MUtZVMeZKt322-tLErCQ-t50x50.jpg">](https://soundcloud.com/cameronpickthall/essence1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTzMNvtyXvQKydhE-SO51cw-t50x50.jpg">](https://soundcloud.com/kittynxc/halloween-2020-party-in-hell)
 
-**Artist**: ‏‏‎◯→◯ 
+**Artist**: kittynxc 
 
-**Track**: /ˈɛs(ə)ns/ V.1
+**Track**: HALLOWEEN 2020 - PARTY IN HELL
 
-Last updated at 11/06/2020 10:55
+Last updated at 11/06/2020 11:13
