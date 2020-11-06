@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000063892542-knqkiv-t50x50.jpg">](https://soundcloud.com/goodnightcody/stellaluna-bon-voyage-fruit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdJzPxNMKlj9TFlN-TUgWWQ-t50x50.jpg">](https://soundcloud.com/mir4ge/reminisce)
 
-**Artist**: Goodnight Cody 
+**Artist**: mir4ge 
 
-**Track**: Stellaluna (Bon Voyage Fruit Bat)
+**Track**: REMINI$CE
 
-Last updated at 11/06/2020 16:52
+Last updated at 11/06/2020 16:54
