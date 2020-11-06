@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4rWTD2Rsiow2qlE-NFC5fg-t50x50.jpg">](https://soundcloud.com/y4ndere/afterall-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baiu1LTPQHhD0yYD-m6N2ig-t50x50.jpg">](https://soundcloud.com/wicked_records/abstractivve-hittas-original)
 
-**Artist**: yandere 
+**Artist**: Wicked Records 
 
-**Track**: yandere + waifu ~「 afterall ep 」
+**Track**: ABSTRACTIVVE - HITTAS (ORIGINAL MIX)
 
-Last updated at 11/06/2020 08:40
+Last updated at 11/06/2020 08:56
