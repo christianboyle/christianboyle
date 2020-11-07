@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsyaCwMA4A6N4q9P-5e4WTQ-t50x50.jpg">](https://soundcloud.com/ericdoa/likewise-1?in=ericdoa/sets/comingofage)
 
-**Artist**: rifleman 
+**Artist**: ericdoa 
 
-**Track**: the cover to end all covers
+**Track**: likewise
 
-Last updated at 11/06/2020 16:58
+Last updated at 11/06/2020 20:29
