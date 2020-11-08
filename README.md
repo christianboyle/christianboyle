@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msb1I31emKz81i35-yBfY7g-t50x50.jpg">](https://soundcloud.com/kuur/khxlil-kuur-why-feat-august-ubeda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
 
-**Artist**: Kuur 
+**Artist**: SURATI 
 
-**Track**: khxlil & Kuur - Why (feat. August Ubeda)
+**Track**: hello hello
 
-Last updated at 11/08/2020 06:58
+Last updated at 11/08/2020 07:02
