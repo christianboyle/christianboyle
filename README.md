@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9US69yIz5t5K-0-t50x50.jpg">](https://soundcloud.com/tyzobloom/bedroom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BliD2tEB58PkHhVg-BWyxIA-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pump-life-like-me-prod-by-bighead)
 
-**Artist**: Tyzo Bloom 
+**Artist**: Lil Pump 
 
-**Track**: BEDROOM
+**Track**: Lil Pump - Life Like Me (prod by Bighead)
 
-Last updated at 11/08/2020 08:26
+Last updated at 11/08/2020 08:28
