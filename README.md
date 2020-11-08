@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMG2OHifq97MB1jN-GmzsMA-t50x50.jpg">](https://soundcloud.com/mikeylowgun/down-with-the-venga)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000662218276-lvtuoy-t50x50.jpg">](https://soundcloud.com/mikeylowgun/killing-in-the-meme-of)
 
 **Artist**: DYNAMIKE 
 
-**Track**: Down With The Venga
+**Track**: KILLING IN THE MEME
 
-Last updated at 11/07/2020 21:00
+Last updated at 11/07/2020 21:02
