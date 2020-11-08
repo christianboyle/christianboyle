@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0RNWpPdcsUG1KIy-fKzGog-t50x50.jpg">](https://soundcloud.com/beauzworld/ngru)
 
-**Artist**: SURATI 
+**Artist**: BEAUZ 
 
-**Track**: hello hello
+**Track**: BEAUZ, SIIGHTS - Never Gonna Regret U
 
-Last updated at 11/08/2020 07:02
+Last updated at 11/08/2020 07:04
