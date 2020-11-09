@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VQbthbNYKGEqPljf-Nkfhzg-t50x50.jpg">](https://soundcloud.com/shxpe/runaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0o7EJHPzMz29pJG-tbCk4g-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-x-astrid-s-x-hrvy-am-i-the-only-one)
 
-**Artist**: shxpe 
+**Artist**: R3HAB 
 
-**Track**: runaway
+**Track**: R3HAB x Astrid S x HRVY - Am I The Only One
 
-Last updated at 11/09/2020 15:44
+Last updated at 11/09/2020 15:46
