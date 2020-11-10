@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOsmGKbSNm8Sxtg4-MTWuvg-t50x50.jpg">](https://soundcloud.com/jistix/lovingu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMhBJYo1B0NnO8Fj-RHhLAw-t50x50.jpg">](https://soundcloud.com/chilltrapnetwork/illusion)
 
-**Artist**: jistix 
+**Artist**: Chill Trap Records 
 
-**Track**: LOVINGU
+**Track**: Hartness & Miss Ghyss Feat. Veronica Bravo - Illusion [Chill Trap Release]
 
-Last updated at 11/09/2020 20:18
+Last updated at 11/09/2020 20:22
