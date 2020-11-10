@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzkIUo4zhNL8U7YI-FF4bVA-t50x50.jpg">](https://soundcloud.com/twinscale/on-my-way)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaSeWOOYGNvYYuZK-DmWaiw-t50x50.jpg">](https://soundcloud.com/highjvckofficial/highjvck-the-wyzrd-balrog)
 
-**Artist**: TWINSCALE 
+**Artist**: HIGHJVCK 
 
-**Track**: On My Way
+**Track**: HIGHJVCK & The Wyzrd – Balrog [FREE DOWNLOAD]
 
-Last updated at 11/10/2020 09:06
+Last updated at 11/10/2020 09:12
