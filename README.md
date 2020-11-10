@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t50x50.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LzBpFfDAB2eBAyE-ywcWOw-t50x50.jpg">](https://soundcloud.com/meggieyorkmusic/not-today)
 
-**Artist**: King Theta 
+**Artist**: meggie york 
 
-**Track**: Pawn Ft. Brady Amour
+**Track**: not today
 
-Last updated at 11/09/2020 17:02
+Last updated at 11/09/2020 20:15
