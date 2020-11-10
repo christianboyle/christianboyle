@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdJzPxNMKlj9TFlN-TUgWWQ-t50x50.jpg">](https://soundcloud.com/mir4ge/reminisce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane)
 
-**Artist**: mir4ge 
+**Artist**: NOVAGANG 
 
-**Track**: REMINI$CE
+**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
 
-Last updated at 11/10/2020 14:03
+Last updated at 11/10/2020 14:05
