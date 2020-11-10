@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLQFSlzXoEy8rvtl-usEDTA-t50x50.jpg">](https://soundcloud.com/entervale/s01e03-feat-mirror-maze-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4PfcFdd0EJNFyN0H-gd8JHQ-t50x50.jpg">](https://soundcloud.com/lexim_music/stranger-things)
 
-**Artist**: ENTER:VALE PROGRAM 
+**Artist**: LEXIM 
 
-**Track**: S01:E03 ◽ (feat. Mirror Maze Guest Mix)
+**Track**: Stranger Things (LEXIM Remix)
 
-Last updated at 11/10/2020 09:34
+Last updated at 11/10/2020 11:44
