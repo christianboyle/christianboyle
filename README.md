@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3guRMwHjFPE5kgo-4FmZrg-t50x50.jpg">](https://soundcloud.com/obskuresound/josh-teed-falling-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gi8zRUYg9mmyJyvR-xHxzSg-t50x50.jpg">](https://soundcloud.com/trapicalmusic/thebaddest)
 
-**Artist**: Obskure 
+**Artist**: Trapical Music 
 
-**Track**: Josh Teed - Falling Apart [Wtf’s That Sound Premiere]
+**Track**: K/DA - THE BADDEST (Bento x Sincat x Wine Remix)
 
-Last updated at 11/10/2020 09:16
+Last updated at 11/10/2020 09:20
