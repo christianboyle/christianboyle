@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdJzPxNMKlj9TFlN-TUgWWQ-t50x50.jpg">](https://soundcloud.com/mir4ge/reminisce)
 
-**Artist**: rifleman 
+**Artist**: mir4ge 
 
-**Track**: the cover to end all covers
+**Track**: REMINI$CE
 
-Last updated at 11/10/2020 11:52
+Last updated at 11/10/2020 14:03
