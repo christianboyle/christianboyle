@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqBQnEhXsDO3vzuf-D5GQLw-t50x50.jpg">](https://soundcloud.com/thegoblinslair/dhmpr-optimus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzkIUo4zhNL8U7YI-FF4bVA-t50x50.jpg">](https://soundcloud.com/twinscale/on-my-way)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: TWINSCALE 
 
-**Track**: DHMPR - Optimus
+**Track**: On My Way
 
-Last updated at 11/10/2020 09:04
+Last updated at 11/10/2020 09:06
