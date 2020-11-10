@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMhBJYo1B0NnO8Fj-RHhLAw-t50x50.jpg">](https://soundcloud.com/chilltrapnetwork/illusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTFl2TLdKYyiXFuj-syRyoQ-t50x50.jpg">](https://soundcloud.com/byethereal/in-this-life)
 
-**Artist**: Chill Trap Records 
+**Artist**: .ethereal 
 
-**Track**: Hartness & Miss Ghyss Feat. Veronica Bravo - Illusion [Chill Trap Release]
+**Track**: In This Life
 
-Last updated at 11/09/2020 20:22
+Last updated at 11/10/2020 09:00
