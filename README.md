@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIjzuOP7H04zfDmX-u8Tk3A-t50x50.jpg">](https://soundcloud.com/everyday_newvibe/likeastranger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLQFSlzXoEy8rvtl-usEDTA-t50x50.jpg">](https://soundcloud.com/entervale/s01e03-feat-mirror-maze-guest-mix)
 
-**Artist**: Andnew 
+**Artist**: ENTER:VALE PROGRAM 
 
-**Track**: Like A Stranger (with Pure 100%)
+**Track**: S01:E03 ◽ (feat. Mirror Maze Guest Mix)
 
-Last updated at 11/10/2020 09:30
+Last updated at 11/10/2020 09:34
