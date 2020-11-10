@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GwyFYtVHpnLp9yMh-tDpyYw-t50x50.jpg">](https://soundcloud.com/imbn/yeah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzB0yRSVvdqNK1D8-1zdWyA-t50x50.jpg">](https://soundcloud.com/axiannn/psalm-w-alcynoos)
 
-**Artist**: ImBN 
+**Artist**: Axian 
 
-**Track**: yeah
+**Track**: Psalm (w/ Alcynoos)
 
-Last updated at 11/10/2020 09:24
+Last updated at 11/10/2020 09:28
