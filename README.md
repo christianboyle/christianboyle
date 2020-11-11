@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000435446808-5333du-t50x50.jpg">](https://soundcloud.com/3hibachi/mr-hudson-prod-3hibachi?in=3hibachi/sets/nightmare-on-south-street)
+[<img align="left" width="100" src="https://yt3.ggpht.com/a/AATXAJzC1moLFA4JmErnTHKtzXhc4LQrMv00EtpE5FIEhw=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCSDvKdIQOwTfcyOimSi9oYA)
 
-**Artist**: 3HIBACHI 
+**Artist**: Future 
 
-**Track**: Thotiana (Prod. 3hibachi)
+**Track**: Life Is Good (Official Music Video) ft. Drake
 
-Last updated at 11/10/2020 20:36
+Last updated at 11/10/2020 20:38
