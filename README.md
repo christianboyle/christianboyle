@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFAv1GuM2INXKDKW-fs1JCg-t50x50.jpg">](https://soundcloud.com/frizofficial/feeling-the-rhythm?in=weareplusplus/sets/best-electronic-music-6)
+[<img align="left" width="100" src="https://yt3.ggpht.com/a/AATXAJwGoP96P3hfi5FWLxM4PuWrIBM0NNJ9Za3uThhCUQ=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: Friz 
+**Artist**: S3RL 
 
-**Track**: Friz - Feeling The Rhythm
+**Track**: Untouchable - S3RL ft Sara & LIDA
 
-Last updated at 11/10/2020 19:16
+Last updated at 11/10/2020 19:20
