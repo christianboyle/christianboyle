@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t50x50.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
 
-**Artist**: Astrophonica 
+**Artist**: EchoDDT 
 
-**Track**: Sully - Swandive (APHA023)
+**Track**: A Million Reasons to Cry
 
-Last updated at 11/11/2020 09:04
+Last updated at 11/11/2020 10:04
