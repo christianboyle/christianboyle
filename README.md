@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t50x50.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0o7EJHPzMz29pJG-tbCk4g-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-x-astrid-s-x-hrvy-am-i-the-only-one)
 
-**Artist**: EchoDDT 
+**Artist**: R3HAB 
 
-**Track**: A Million Reasons to Cry
+**Track**: R3HAB x Astrid S x HRVY - Am I The Only One
 
-Last updated at 11/11/2020 10:04
+Last updated at 11/11/2020 10:08
