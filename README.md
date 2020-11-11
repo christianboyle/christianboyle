@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oG9QGURvbOyWls2y-eqrR5g-t50x50.jpg">](https://soundcloud.com/morrayda1/quicksand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzkIUo4zhNL8U7YI-FF4bVA-t50x50.jpg">](https://soundcloud.com/twinscale/on-my-way)
 
-**Artist**: Morray 
+**Artist**: TWINSCALE 
 
-**Track**: Morray - Quicksand
+**Track**: On My Way
 
-Last updated at 11/11/2020 17:02
+Last updated at 11/11/2020 17:06
