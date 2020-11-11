@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzkIUo4zhNL8U7YI-FF4bVA-t50x50.jpg">](https://soundcloud.com/twinscale/on-my-way)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTrqgnqewyklt2TN-vKoBjg-t50x50.jpg">](https://soundcloud.com/ell1psis/thoughtcrime)
 
-**Artist**: TWINSCALE 
+**Artist**: ell!psis 
 
-**Track**: On My Way
+**Track**: thoughtcrime
 
-Last updated at 11/11/2020 17:06
+Last updated at 11/11/2020 17:12
