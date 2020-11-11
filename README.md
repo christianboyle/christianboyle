@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz0JUeRfHtldppRK-4rfmew-t50x50.jpg">](https://soundcloud.com/gangstahouserec/sterzi-martelada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VghRJNYrQVEzvgy4-NVZgvg-t50x50.jpg">](https://soundcloud.com/basscampmusic/bvrnout-i-cant-stop)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: BASS CAMP 
 
-**Track**: Sterzi - Martelada (Original Mix) [GANGSTA HOUSE RECORDS]
+**Track**: BVRNOUT - I Can't Stop
 
-Last updated at 11/11/2020 17:16
+Last updated at 11/11/2020 17:18
