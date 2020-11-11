@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/a/AATXAJzC1moLFA4JmErnTHKtzXhc4LQrMv00EtpE5FIEhw=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCSDvKdIQOwTfcyOimSi9oYA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t50x50.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
 
-**Artist**: Future 
+**Artist**: EchoDDT 
 
-**Track**: Life Is Good (Official Music Video) ft. Drake
+**Track**: A Million Reasons to Cry
 
-Last updated at 11/10/2020 20:38
+Last updated at 11/11/2020 08:26
