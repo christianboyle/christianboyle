@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: rifleman 
+**Artist**: sethany 
 
-**Track**: the cover to end all covers
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 11/12/2020 09:58
+Last updated at 11/12/2020 15:19
