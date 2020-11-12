@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izhUwLeH1m1q7nzd-EP3RBA-t50x50.jpg">](https://soundcloud.com/inverted-audio/wheez-ie-only-human-c-know-evil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: sethany 
 
-**Track**: Wheez-ie - ONLY HUMAN [C-KNOW-EVIL]
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 11/12/2020 09:33
+Last updated at 11/12/2020 09:45
