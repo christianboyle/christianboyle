@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000441199758-6r3ki7-t50x50.jpg">](https://soundcloud.com/thatxweirdkid/code-redprod-jakkyboi?in=jakkyboi/sets/prod-by-jakky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: sean. 
+**Artist**: sethany 
 
-**Track**: CODE RED(prod. jakkyboi)
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 11/12/2020 08:47
+Last updated at 11/12/2020 08:49
