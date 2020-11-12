@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-64K9YsRnGt8g5fI8-T1X33g-t50x50.jpg">](https://soundcloud.com/pilotrecordsuk/oakwite-technology)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n0i3svc9yfaxvau8-giHJbg-t50x50.jpg">](https://soundcloud.com/itsfrancisvi/two-friends-hell-francis-vi-remix)
 
-**Artist**: Pilot. 
+**Artist**: Francis VI 
 
-**Track**: Oakwite - Technology
+**Track**: Two Friends- Hell (Francis VI Flip)
 
-Last updated at 11/12/2020 09:05
+Last updated at 11/12/2020 09:09
