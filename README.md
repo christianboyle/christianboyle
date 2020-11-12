@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000426704898-g70cmg-t50x50.jpg">](https://soundcloud.com/moonmovement/trippythakid-theres-a-reason?in=jakkyboi/sets/prod-by-jakky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432912705-tl56zr-t50x50.jpg">](https://soundcloud.com/hammy/watchingstarsdie?in=jakkyboi/sets/prod-by-jakky)
 
-**Artist**: trippythakid  ☽ 
+**Artist**: hamilton 
 
-**Track**: TrippyThaKid - Theres A Reason (prod. cartoon ben x jakkyboi)
+**Track**: watching stars die ft. tommy ice (prod. jakkyboí)
 
-Last updated at 11/12/2020 08:37
+Last updated at 11/12/2020 08:41
