@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000395163603-iabcad-t50x50.jpg">](https://soundcloud.com/healixer/city-that-never-sleeps-prod-by-jakkyboi?in=jakkyboi/sets/prod-by-jakky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000396241980-uhboqw-t50x50.jpg">](https://soundcloud.com/scummusic/nightmares-w-fantasy-camp-prod-jakkyboi-1?in=jakkyboi/sets/prod-by-jakky)
 
-**Artist**: Lil Healix 💔 
+**Artist**: scum 
 
-**Track**: City That Never Sleeps ✧ [prod by Jakkyboi]
+**Track**: nightmares w/ fantasy camp (prod. jakkyboi)
 
-Last updated at 11/12/2020 08:21
+Last updated at 11/12/2020 08:23
