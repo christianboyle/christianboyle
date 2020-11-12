@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t32lho6hJvCI4StL-R7cTqg-t50x50.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-141-julian-andreas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M4DnVIVSgDnapKBJ-Tf1nng-t50x50.jpg">](https://soundcloud.com/rave_alert/madora-arkadia-xtrick-remix)
 
-**Artist**: Possession 
+**Artist**: Rave Alert 
 
-**Track**: POSSESSION PODCAST #141 - JULIEN ANDREAS #UNITEDRAVERS
+**Track**: [PREMIERE] Madora - Arkadia (X&trick Remix)
 
-Last updated at 11/11/2020 17:22
+Last updated at 11/12/2020 07:50
