@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzhdRQvwmbkg3azO-eCd2tA-t50x50.jpg">](https://soundcloud.com/futuregenerationofficial/rival-sleepwalking-ft-caravn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YYoj0CCzBo96-0-t50x50.jpg">](https://soundcloud.com/matt-melkonian/aint-no-lover)
 
-**Artist**: Future Generation 
+**Artist**: Matt Clark 
 
-**Track**: Rival - Sleepwalking (with Caravn)
+**Track**: Ain't No Lover
 
-Last updated at 11/13/2020 08:09
+Last updated at 11/13/2020 08:13
