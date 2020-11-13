@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZYRCOsyU1yzaXMQK-usgbLA-t50x50.jpg">](https://soundcloud.com/djmag/premiere-rroxymore-price-of-highest-consciousness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
 
-**Artist**: djmag 
+**Artist**: Mixmag 
 
-**Track**: Premiere: rRoxymore ‘Price of Highest Consciousness’
+**Track**: In Session: Coco Bryce
 
-Last updated at 11/13/2020 12:17
+Last updated at 11/13/2020 12:23
