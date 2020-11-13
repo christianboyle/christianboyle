@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JIGWk2lncYn6ockV-KFdqfA-t50x50.jpg">](https://soundcloud.com/iqsamples/iq-samples-hypercolor-bass-night-edition-demo)
 
-**Artist**: Mixmag 
+**Artist**: IQ Samples 
 
-**Track**: In Session: Coco Bryce
+**Track**: IQ Samples - Hypercolor Bass - Night Edition - Demo
 
-Last updated at 11/13/2020 08:17
+Last updated at 11/13/2020 10:42
