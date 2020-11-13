@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-An5VZuMQ91dwIcOb-An5flg-t50x50.jpg">](https://soundcloud.com/lil_bongwater/lamour-rich-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MELFxD8Az9MUDSV2-w1HGhQ-t50x50.jpg">](https://soundcloud.com/enforcerecords/youngagain)
 
-**Artist**: Lil Bongwater 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: ✧༺💎L'AMOUR RICH BOY💎༻✧
+**Track**: Vaance & Tropix - Young Again (Feat. Corey Vance)
 
-Last updated at 11/13/2020 07:51
+Last updated at 11/13/2020 07:53
