@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9Vs5yFPjYvckQsi-6kymqw-t50x50.jpg">](https://soundcloud.com/soundislimitless/r-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
 
-**Artist**: LMTLESS 
+**Artist**: Mixmag 
 
-**Track**: LMTLESS Radio #3
+**Track**: In Session: Coco Bryce
 
-Last updated at 11/13/2020 10:50
+Last updated at 11/13/2020 11:21
