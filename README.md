@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b70JMi9G9usy-0-t50x50.jpg">](https://soundcloud.com/uttuclub/dj-haus-analog-chime-original)
 
-**Artist**: Mixmag 
+**Artist**: Unknown To The Unknown 
 
-**Track**: In Session: Coco Bryce
+**Track**: DJ Haus - Analog Chime (Original Mix)
 
-Last updated at 11/13/2020 11:21
+Last updated at 11/13/2020 12:13
