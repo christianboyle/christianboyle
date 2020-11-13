@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b70JMi9G9usy-0-t50x50.jpg">](https://soundcloud.com/uttuclub/dj-haus-analog-chime-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZYRCOsyU1yzaXMQK-usgbLA-t50x50.jpg">](https://soundcloud.com/djmag/premiere-rroxymore-price-of-highest-consciousness)
 
-**Artist**: Unknown To The Unknown 
+**Artist**: djmag 
 
-**Track**: DJ Haus - Analog Chime (Original Mix)
+**Track**: Premiere: rRoxymore ‘Price of Highest Consciousness’
 
-Last updated at 11/13/2020 12:13
+Last updated at 11/13/2020 12:17
