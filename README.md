@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZQk5ofHm2yfP1Gy-zwqXXA-t50x50.jpg">](https://soundcloud.com/aloonmusic/lurkinfeatpharu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
 
-**Artist**: aloon 
+**Artist**: Mixmag 
 
-**Track**: lurkin(feat.pharu)
+**Track**: In Session: Coco Bryce
 
-Last updated at 11/13/2020 08:15
+Last updated at 11/13/2020 08:17
