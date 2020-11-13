@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EksC3XQGnsDGiJc7-Xmhr5g-t50x50.jpg">](https://soundcloud.com/23oddcats/bass-my-face)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzhdRQvwmbkg3azO-eCd2tA-t50x50.jpg">](https://soundcloud.com/futuregenerationofficial/rival-sleepwalking-ft-caravn)
 
-**Artist**: 23 Odd Cats 
+**Artist**: Future Generation 
 
-**Track**: Bass my face
+**Track**: Rival - Sleepwalking (with Caravn)
 
-Last updated at 11/13/2020 08:05
+Last updated at 11/13/2020 08:09
