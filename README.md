@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MELFxD8Az9MUDSV2-w1HGhQ-t50x50.jpg">](https://soundcloud.com/enforcerecords/youngagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zy9hk3YBCRIuQNim-w5TCKA-t50x50.jpg">](https://soundcloud.com/sikdope/sikdope-x-tisoki-lights)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: Sikdope 
 
-**Track**: Vaance & Tropix - Young Again (Feat. Corey Vance)
+**Track**: Sikdope X Tisoki - Lights
 
-Last updated at 11/13/2020 07:53
+Last updated at 11/13/2020 07:55
