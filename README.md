@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOibV8UsAeaFpdKQ-wFrxjw-t50x50.jpg">](https://soundcloud.com/bennymayne/dont-judge-me-feat-santino-le-saint)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpGIqwYcvaOV-0-t50x50.png">](https://soundcloud.com/smrtdeath/dont-luv-me)
 
-**Artist**: benny mayne 
+**Artist**: smrtdeath 
 
-**Track**: don't judge me (feat. Santino Le Saint)
+**Track**: Don't Love Me
 
-Last updated at 11/13/2020 20:34
+Last updated at 11/13/2020 20:36
