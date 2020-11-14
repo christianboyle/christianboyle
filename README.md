@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30bzgcMJ5ctkpcfv-FdCvnw-t50x50.jpg">](https://soundcloud.com/xlofi_vibex/emotions-feat-lil-koi-cozin-skoolio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoRxi9PDEPfoGnKK-UI2CJQ-t50x50.jpg">](https://soundcloud.com/kurtains/scream)
 
-**Artist**: Lofi Vibe✨ 
+**Artist**: kurtains 
 
-**Track**: Emotions Feat. Lil Koi [+Cozin, Skoolio]
+**Track**: scream
 
-Last updated at 11/13/2020 20:55
+Last updated at 11/13/2020 20:59
