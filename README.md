@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyHf2XV3Tz11ce5l-fPzm6w-t50x50.jpg">](https://soundcloud.com/allbassnation/vowl-toxic-1?in=allbassnation/sets/bass-nation-50-cal-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyHf2XV3Tz11ce5l-fPzm6w-t50x50.jpg">](https://soundcloud.com/allbassnation/calli-boom-smoka-mindblow?in=allbassnation/sets/bass-nation-50-cal-vol1)
 
 **Artist**: Bass Nation 
 
-**Track**: VOWL - TOXIC
+**Track**: CALLI BOOM & SMOKA - MINDBLOW
 
-Last updated at 11/13/2020 20:14
+Last updated at 11/13/2020 20:18
