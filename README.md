@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxhrSxIUPlTm2iVv-yHg0zg-t50x50.jpg">](https://soundcloud.com/wolfyysfine/natsukashii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t50x50.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
 
-**Artist**: ✰ Wolfyy ✰ (@wolfyysfine) 
+**Artist**: EchoDDT 
 
-**Track**: ★Natsukashii★ +scøøb  [p. nocomply!]
+**Track**: A Million Reasons to Cry
 
-Last updated at 11/13/2020 21:11
+Last updated at 11/13/2020 21:13
