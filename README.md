@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000671850667-jqmlos-t50x50.jpg">](https://soundcloud.com/danmorrisseyy/fade-away-prod-guala-beatz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2XA4u6oA4vOQUvX-zG0xDQ-t50x50.jpg">](https://soundcloud.com/jakkyboi/hit-me-when-ur-sorry)
 
-**Artist**: Dan Morrissey 
+**Artist**: jakkyboí 
 
-**Track**: Fade Away(prod. Guala Beatz)
+**Track**: hit me when ur sorry
 
-Last updated at 11/13/2020 21:06
+Last updated at 11/13/2020 21:07
