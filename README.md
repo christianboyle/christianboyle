@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmaHdpyyclzyzaIu-so1rpg-t50x50.jpg">](https://soundcloud.com/mixmag-1/in-session-coco-bryce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63APZqlvYLFC2oIC-SGteGQ-t50x50.jpg">](https://soundcloud.com/aethertides/oath)
 
-**Artist**: Mixmag 
+**Artist**: Aether Tides 
 
-**Track**: In Session: Coco Bryce
+**Track**: Aether Tides & ROBY - Oath
 
-Last updated at 11/13/2020 12:23
+Last updated at 11/13/2020 19:37
