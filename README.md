@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641044411-cm96eq-t50x50.jpg">](https://soundcloud.com/anamanaguchi/speak-to-you-memory-messengers-1?in=anamanaguchi/sets/u-s-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-htv9ZE8UNpzrdpoz-2IjSYg-t50x50.jpg">](https://soundcloud.com/crxsylic/memories-w-stef)
 
-**Artist**: Anamanaguchi 
+**Artist**: crxsylic (@cresylic) 
 
-**Track**: Speak To You [ Memory Messengers]
+**Track**: cresylic - memories w/ stef (+ slappy & knptsu)
 
-Last updated at 11/13/2020 20:03
+Last updated at 11/13/2020 20:05
