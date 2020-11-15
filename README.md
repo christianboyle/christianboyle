@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Pt6QuTvWr7zQa5W-4aBhmQ-t50x50.jpg">](https://soundcloud.com/thephonkshop/drop-a-addy-feat-jgrxxn-prod-by-jgrxxn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TY1DFsZf3TnZ2B9n-8Q34Xg-t50x50.jpg">](https://soundcloud.com/duckashanofficial/ducka-shan-insomniac-radio)
 
-**Artist**: ThePhonkShop 
+**Artist**: Ducka Shan 
 
-**Track**: Drop A Addy (Feat. JGRXXN) (Prod. By JGRXXN)
+**Track**: DUCKA SHAN - PROJECTIONS #13 [Insomniac Radio]
 
-Last updated at 11/15/2020 07:27
+Last updated at 11/15/2020 07:29
