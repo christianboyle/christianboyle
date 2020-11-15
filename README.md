@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LfyKJ9zgVB2miAWs-FMEmow-t50x50.jpg">](https://soundcloud.com/theuntz/keota-x-brightside-x-deez-butt-frankly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Pt6QuTvWr7zQa5W-4aBhmQ-t50x50.jpg">](https://soundcloud.com/thephonkshop/drop-a-addy-feat-jgrxxn-prod-by-jgrxxn)
 
-**Artist**: TheUntz.com 
+**Artist**: ThePhonkShop 
 
-**Track**: Keota x Brightside x DeeZ - Butt Frankly [PREMIERE]
+**Track**: Drop A Addy (Feat. JGRXXN) (Prod. By JGRXXN)
 
-Last updated at 11/15/2020 07:23
+Last updated at 11/15/2020 07:27
