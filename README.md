@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v77PWmTP0VULBXHW-bXwHcA-t50x50.jpg">](https://soundcloud.com/ashezmusic/intro-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckXigEKikTzMqHWU-BHpgew-t50x50.jpg">](https://soundcloud.com/ball-trap-music/uz-holly-rockstar-feat-rikkdarulah-trinity)
 
-**Artist**: ASHEZ 
+**Artist**: UZ 
 
-**Track**: Intro
+**Track**: UZ - Rockstar feat. Holly & RIKKDARULAH
 
-Last updated at 11/15/2020 07:11
+Last updated at 11/15/2020 07:15
