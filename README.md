@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9BpLmEHmIbdElvt-hMxEUQ-t50x50.jpg">](https://soundcloud.com/ahee/conrank-ooba-ahee-remixadvance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v77PWmTP0VULBXHW-bXwHcA-t50x50.jpg">](https://soundcloud.com/ashezmusic/intro-1)
 
-**Artist**: 👽AHEE👽 
+**Artist**: ASHEZ 
 
-**Track**: Conrank - Ooba (AHEE Remix)
+**Track**: Intro
 
-Last updated at 11/15/2020 07:09
+Last updated at 11/15/2020 07:11
