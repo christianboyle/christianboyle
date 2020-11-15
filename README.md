@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TY1DFsZf3TnZ2B9n-8Q34Xg-t50x50.jpg">](https://soundcloud.com/duckashanofficial/ducka-shan-insomniac-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iLYaX6aBjtK3Hhyg-YMCGXQ-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-028)
 
-**Artist**: Ducka Shan 
+**Artist**: Opal Fruits 
 
-**Track**: DUCKA SHAN - PROJECTIONS #13 [Insomniac Radio]
+**Track**: OFMIX - 028 [DIGITAL RAVE BOY]
 
-Last updated at 11/15/2020 07:29
+Last updated at 11/15/2020 14:21
