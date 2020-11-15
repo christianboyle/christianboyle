@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckXigEKikTzMqHWU-BHpgew-t50x50.jpg">](https://soundcloud.com/ball-trap-music/uz-holly-rockstar-feat-rikkdarulah-trinity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o4w1nrmoQS5UMrG7-VAXxog-t50x50.jpg">](https://soundcloud.com/donkong/self-defense-mechanism)
 
-**Artist**: UZ 
+**Artist**: DONKONG 
 
-**Track**: UZ - Rockstar feat. Holly & RIKKDARULAH
+**Track**: Self Defense Mechanism
 
-Last updated at 11/15/2020 07:15
+Last updated at 11/15/2020 07:19
