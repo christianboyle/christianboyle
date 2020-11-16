@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Elts2h73Bqwj5y3G-LZLjMQ-t50x50.jpg">](https://soundcloud.com/bennyblasay/oppositesattract)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyii7P5jjxv4yoJ3-jOX5SQ-t50x50.jpg">](https://soundcloud.com/dramaclubrecs/jeanie-break-it-down)
 
-**Artist**: ben(n)y 
+**Artist**: DramaClubRecs 
 
-**Track**: opposites attract w/2504 & dylann (dltzk + lonemoon)
+**Track**: JEANIE - Break It Down
 
-Last updated at 11/16/2020 09:52
+Last updated at 11/16/2020 09:54
