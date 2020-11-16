@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1iQQr7nVeCRKDEqa-BnGyVg-t50x50.jpg">](https://soundcloud.com/farrahsounds/wantitremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dpHpZk3GGfmfNIBK-pzrALw-t50x50.jpg">](https://soundcloud.com/theblndr/havana)
 
-**Artist**: Farrah 
+**Artist**: BLNDR 
 
-**Track**: Kumarion - Want It (Farrah Remix)
+**Track**: Mr. Hiewa & Jason Elvin - Havana
 
-Last updated at 11/16/2020 10:00
+Last updated at 11/16/2020 10:02
