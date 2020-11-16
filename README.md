@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3yV92vE536ffmWX-fKcPEQ-t50x50.jpg">](https://soundcloud.com/luca-rezza/luca-rezza-looking-for-you?in=luca-rezza/sets/luca-rezza-locked-in-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtFzznfeVYPgIydj-cn0Ufg-t50x50.jpg">](https://soundcloud.com/svnsetwaves/outlier-neverenough?in=svnsetwaves/sets/rt015)
 
-**Artist**: Luca Rezza 
+**Artist**: SVNSET WAVES 
 
-**Track**: Luca Rezza - Looking For You
+**Track**: Outlier - Never Enough
 
-Last updated at 11/16/2020 10:45
+Last updated at 11/16/2020 10:49
