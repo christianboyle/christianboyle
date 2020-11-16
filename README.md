@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dStK0FxNiCXMBkAE-z3zGbQ-t50x50.jpg">](https://soundcloud.com/lllu6ko/ivy-lab-teacup-cut-noisia-radio-s06e45)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1iQQr7nVeCRKDEqa-BnGyVg-t50x50.jpg">](https://soundcloud.com/farrahsounds/wantitremix)
 
-**Artist**: IIIu6ko 
+**Artist**: Farrah 
 
-**Track**: Ivy Lab - Teacup (cut) @ Noisia Radio S06E45
+**Track**: Kumarion - Want It (Farrah Remix)
 
-Last updated at 11/16/2020 09:58
+Last updated at 11/16/2020 10:00
