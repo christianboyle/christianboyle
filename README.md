@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90UWjbw2hS7LmfAj-sOY2TQ-t50x50.jpg">](https://soundcloud.com/stratosunion/dr-ozi-ace-aura-sum-buddy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8pmtWV2m7GqkzDPu-rHCQhg-t50x50.jpg">](https://soundcloud.com/dyzphoria/witchlove)
 
-**Artist**: Stratos Union 
+**Artist**: DYZPHORIA 
 
-**Track**: Dr. Ozi & Ace Aura - Sum Buddy
+**Track**: Witchlove
 
-Last updated at 11/16/2020 10:39
+Last updated at 11/16/2020 10:41
