@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Elts2h73Bqwj5y3G-LZLjMQ-t50x50.jpg">](https://soundcloud.com/bennyblasay/oppositesattract)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dStK0FxNiCXMBkAE-z3zGbQ-t50x50.jpg">](https://soundcloud.com/lllu6ko/ivy-lab-teacup-cut-noisia-radio-s06e45)
 
-**Artist**: ben(n)y 
+**Artist**: IIIu6ko 
 
-**Track**: opposites attract w/2504 & dylann (dltzk + lonemoon)
+**Track**: Ivy Lab - Teacup (cut) @ Noisia Radio S06E45
 
-Last updated at 11/16/2020 09:56
+Last updated at 11/16/2020 09:58
