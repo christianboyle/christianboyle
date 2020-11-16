@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LaE8rdq7xUrOrKGD-xL5inQ-t50x50.jpg">](https://soundcloud.com/paul-gannon-2nd-account/you-broke-me-first-paul-gannon-teddy-cream-bootleg-free-download)
 
-**Artist**: sethany 
+**Artist**: Paul Gannon 
 
-**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
+**Track**: You Broke Me First (Paul Gannon & Teddy Cream Bootleg) [Free Download]
 
-Last updated at 11/15/2020 14:27
+Last updated at 11/16/2020 09:48
