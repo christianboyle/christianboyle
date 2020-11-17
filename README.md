@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/xprezzzhatred-blackout-w-drezzz?in=the-games-we-play/sets/hardwave-chapter-2-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/ghostmemory-tubular?in=the-games-we-play/sets/hardwave-chapter-2-a)
 
 **Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Xprezzzhatred - BLACKOUT (w/ DREZZZ)
+**Track**: Ghostmemory - Tubular
 
-Last updated at 11/17/2020 10:53
+Last updated at 11/17/2020 10:59
