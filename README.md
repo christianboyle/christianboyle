@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYy3DplxRgIIz45C-2azyyA-t50x50.jpg">](https://soundcloud.com/prrrrrrr-records/ikotu-snakes-and-ladders)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0e6VFmBZO4AylJjX-E90zxg-t50x50.jpg">](https://soundcloud.com/ikotu/a-stone-shaped-like-a-birds-head?in=svnsetwaves/sets/impenetrableglassbox)
 
-**Artist**: prrrrrrr 
+**Artist**: Ikotu 
 
-**Track**: Ikotu - Snakes And Ladders
+**Track**: A Stone Shaped Like The Head Of A Bird
 
-Last updated at 11/16/2020 19:20
+Last updated at 11/16/2020 19:26
