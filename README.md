@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtFzznfeVYPgIydj-cn0Ufg-t50x50.jpg">](https://soundcloud.com/svnsetwaves/oxthemoronxchirofafa-sleptime?in=svnsetwaves/sets/rt015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYy3DplxRgIIz45C-2azyyA-t50x50.jpg">](https://soundcloud.com/prrrrrrr-records/ikotu-snakes-and-ladders)
 
-**Artist**: SVNSET WAVES 
+**Artist**: prrrrrrr 
 
-**Track**: ox the moron x Chirofafa - sleptime
+**Track**: Ikotu - Snakes And Ladders
 
-Last updated at 11/16/2020 12:25
+Last updated at 11/16/2020 19:20
