@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0e6VFmBZO4AylJjX-E90zxg-t50x50.jpg">](https://soundcloud.com/ikotu/a-stone-shaped-like-a-birds-head?in=svnsetwaves/sets/impenetrableglassbox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjaqxYQovPspQJSF-kuX0xQ-t50x50.jpg">](https://soundcloud.com/svnsetwaves/deepshoq-aquatic?in=svnsetwaves/sets/deepshoq-hypnosis)
 
-**Artist**: Ikotu 
+**Artist**: SVNSET WAVES 
 
-**Track**: A Stone Shaped Like The Head Of A Bird
+**Track**: Deep Shoq - Aquatic
 
-Last updated at 11/16/2020 19:26
+Last updated at 11/16/2020 19:28
