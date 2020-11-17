@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/antent-without-you-tribal-trap-x-the-games-we-play?in=the-games-we-play/sets/hardwave-chapter-2-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nU1HPFInqocedOsM-tovkfQ-t50x50.jpg">](https://soundcloud.com/the-games-we-play/memphis-nexus?in=the-games-we-play/sets/hardwave-chapter-2-a)
 
 **Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Antent - Without You [Tribal Trap x The Games We Play]
+**Track**: Memphis. - Nexus
 
-Last updated at 11/17/2020 08:25
+Last updated at 11/17/2020 08:29
