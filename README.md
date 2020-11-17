@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtFzznfeVYPgIydj-cn0Ufg-t50x50.jpg">](https://soundcloud.com/svnsetwaves/wick-akoni?in=svnsetwaves/sets/rt015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gRvlXdsJ4rJWjHmb-1aJCFg-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pimp-big-maga-steppa)
 
-**Artist**: SVNSET WAVES 
+**Artist**: Lil Pump 
 
-**Track**: wick - akoni
+**Track**: LIL PIMP BIG MAGA STEPPIN (Prod by Ronny J)
 
-Last updated at 11/16/2020 20:46
+Last updated at 11/16/2020 20:48
