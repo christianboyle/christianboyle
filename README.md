@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UIKeM7fOy6Y4xE2a-9i6y8A-t50x50.jpg">](https://soundcloud.com/joytimecollective/papa-khan-utopia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/antent-without-you-tribal-trap-x-the-games-we-play?in=the-games-we-play/sets/hardwave-chapter-2-a)
 
-**Artist**: JOYTIME COLLECTIVE 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Papa Khan - Utopia
+**Track**: Antent - Without You [Tribal Trap x The Games We Play]
 
-Last updated at 11/17/2020 08:21
+Last updated at 11/17/2020 08:25
