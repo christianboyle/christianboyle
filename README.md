@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9Vs5yFPjYvckQsi-6kymqw-t50x50.jpg">](https://soundcloud.com/soundislimitless/r-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kxjhvm2tUSd2tZD7-CV3xtg-t50x50.jpg">](https://soundcloud.com/itssodope/ride-or-die)
 
-**Artist**: LMTLESS 
+**Artist**: So Dope 
 
-**Track**: LMTLESS Radio #3
+**Track**: Ride Or Die
 
-Last updated at 11/16/2020 21:01
+Last updated at 11/17/2020 08:17
