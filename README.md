@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/unnholy-life-essence-coreal-remix?in=the-games-we-play/sets/hardwave-chapter-2-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szW0xvmlEiJBxRla-R98Gyg-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/digital?in=the-games-we-play/sets/hardwave-chapter-2-a)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: Tribal Trap 
 
-**Track**: Unnholy - Life Essence (COREAL Remix)
+**Track**: NEONPURPL - Digital
 
-Last updated at 11/17/2020 10:25
+Last updated at 11/17/2020 10:29
