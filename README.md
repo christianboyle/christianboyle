@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kxjhvm2tUSd2tZD7-CV3xtg-t50x50.jpg">](https://soundcloud.com/itssodope/ride-or-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAqWb5gmfXfyxOKg-Krv5Eg-t50x50.jpg">](https://soundcloud.com/resonata/joy-williams-speaking-a-dead-language-resonata-flip)
 
-**Artist**: So Dope 
+**Artist**: resonata_ 
 
-**Track**: Ride Or Die
+**Track**: Joy Williams - Speaking A Dead Language (Resonata Flip)
 
-Last updated at 11/17/2020 08:17
+Last updated at 11/17/2020 08:19
