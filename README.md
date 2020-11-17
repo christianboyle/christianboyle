@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugbKBUFDjfLGiuUY-IDizIw-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/acidrain?in=the-games-we-play/sets/hardwave-chapter-2-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jEanX4adDGHEiQ0-ZNzmfQ-t50x50.jpg">](https://soundcloud.com/mixmash-records/lady-bee-gang-feat-dame1)
 
-**Artist**: Tribal Trap 
+**Artist**: Mixmash Records 
 
-**Track**: Rou Jinu - Acid Rain
+**Track**: Lady Bee - Gang Gang(Feat. Dame1)
 
-Last updated at 11/17/2020 11:05
+Last updated at 11/17/2020 11:09
