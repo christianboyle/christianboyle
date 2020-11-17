@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9Vs5yFPjYvckQsi-6kymqw-t50x50.jpg">](https://soundcloud.com/soundislimitless/r-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTALU2KUl9VnXEpI-Tdd0fQ-t50x50.jpg">](https://soundcloud.com/besomorph/dngrs)
 
-**Artist**: LMTLESS 
+**Artist**: Besomorph 
 
-**Track**: LMTLESS Radio #3
+**Track**: Besomorph - DNGRS (ft. ASDIS)
 
-Last updated at 11/17/2020 08:33
+Last updated at 11/17/2020 09:04
