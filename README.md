@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gRvlXdsJ4rJWjHmb-1aJCFg-t50x50.jpg">](https://soundcloud.com/lilpump/lil-pimp-big-maga-steppa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iLvjJBgyLPuTDiNy-qGSbXQ-t50x50.jpg">](https://soundcloud.com/enterthedarknet/textasy-090919-live-in-belgium)
 
-**Artist**: Lil Pump 
+**Artist**: DARKNET 
 
-**Track**: LIL PIMP BIG MAGA STEPPIN (Prod by Ronny J)
+**Track**: DARKNET MIX V - TEXTASY - 090919 - LIVE IN BELGIUM
 
-Last updated at 11/16/2020 20:48
+Last updated at 11/16/2020 20:50
