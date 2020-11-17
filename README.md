@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VrpDgrQKPD6zSOZ-MCyqNg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/kim-affectwave-to-leave-you?in=the-games-we-play/sets/hardwave-chapter-2-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugbKBUFDjfLGiuUY-IDizIw-t50x50.jpg">](https://soundcloud.com/tribaltrapmusic/garden?in=the-games-we-play/sets/hardwave-chapter-2-a)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: Tribal Trap 
 
-**Track**: Kim & Affectwave - To Leave You
+**Track**: Maraasim - Garden
 
-Last updated at 11/17/2020 09:31
+Last updated at 11/17/2020 09:35
