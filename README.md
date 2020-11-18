@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHQCeuE5HusCdX9S-SGLLDA-t50x50.jpg">](https://soundcloud.com/yehme2/lamour-in-this-club?in=saxurn/sets/dancing-landscapes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000533289033-gr5dpi-t50x50.jpg">](https://soundcloud.com/nocv/all-i-want-is-you?in=saxurn/sets/dancing-landscapes)
 
-**Artist**: YehMe2 
+**Artist**: Noc.V 
 
-**Track**: L'AMOUR IN THIS CLUB
+**Track**: All I Want Is You
 
-Last updated at 11/18/2020 08:50
+Last updated at 11/18/2020 08:53
