@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNquvXIKqSwv-0-t50x50.png">](https://soundcloud.com/jasonrossofficial/atlas-jason-ross-future-edit?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000610444564-eps0jo-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-say-goodbye-ft-marvin-divinencs-release-pr?in=saxurn/sets/chromodynamics)
 
-**Artist**: Jason Ross 
+**Artist**: NCS 
 
-**Track**: Atlas (Jason Ross Future Edit)
+**Track**: Unknown Brain - Say Goodbye (ft. Marvin Divine)[NCS Release]
 
-Last updated at 11/18/2020 09:03
+Last updated at 11/18/2020 09:07
