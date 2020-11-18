@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkfBJjVrVLcz-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/one-thing-right-kdrew-remix?in=saxurn/sets/lego-eggo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000644626342-gk5zpm-t50x50.jpg">](https://soundcloud.com/pairymusic/constant-thoughts-pairy?in=saxurn/sets/lego-eggo)
 
-**Artist**: marshmello 
+**Artist**: PAIRY 
 
-**Track**: One Thing Right (KDrew Remix)
+**Track**: Constant Thoughts - Pairy
 
-Last updated at 11/18/2020 10:35
+Last updated at 11/18/2020 10:37
