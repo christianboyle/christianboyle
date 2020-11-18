@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249054760-dxrcos-t50x50.jpg">](https://soundcloud.com/wedidit-collective/juice-jackal-looney-toon?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000192026935-nos58l-t50x50.jpg">](https://soundcloud.com/hellberg2nd/california-girls-hellberg-remix?in=saxurn/sets/fat-planet)
 
-**Artist**: WEDIDIT COLLECTIVE 
+**Artist**: Hellberg Bootlegs 
 
-**Track**: Juice Jackal - Looney Toon
+**Track**: KATY PERRY - CALIFORNIA GIRLS (HELLBERG REMIX)
 
-Last updated at 11/18/2020 17:43
+Last updated at 11/18/2020 17:47
