@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000394068690-fowphy-t50x50.jpg">](https://soundcloud.com/xosad/luciddreams?in=saxurn/sets/lego-eggo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkfBJjVrVLcz-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/one-thing-right-kdrew-remix?in=saxurn/sets/lego-eggo)
 
-**Artist**: xo sad 
+**Artist**: marshmello 
 
-**Track**: juice wrld - lucid dreams (xo sad cover)
+**Track**: One Thing Right (KDrew Remix)
 
-Last updated at 11/18/2020 10:31
+Last updated at 11/18/2020 10:35
