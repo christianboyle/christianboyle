@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000426402222-plc31h-t50x50.jpg">](https://soundcloud.com/youth_yu_s/come-back-to-those-days?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avsTQ1o348oR-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/tongue-tied-with-yungblud-4?in=saxurn/sets/hexy-as-shell)
 
-**Artist**: youth ( @youth_yu_s ) 
+**Artist**: marshmello 
 
-**Track**: Come back to those days
+**Track**: Tongue Tied (with YUNGBLUD & blackbear) (Near x Far Remix)
 
-Last updated at 11/18/2020 09:28
+Last updated at 11/18/2020 09:34
