@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avsTQ1o348oR-0-t50x50.jpg">](https://soundcloud.com/marshmellomusic/tongue-tied-with-yungblud-4?in=saxurn/sets/hexy-as-shell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668672821-jekl3l-t50x50.jpg">](https://soundcloud.com/crapface/nelly-grillz-crapface-remix?in=saxurn/sets/hexy-as-shell)
 
-**Artist**: marshmello 
+**Artist**: CRAPFACE 
 
-**Track**: Tongue Tied (with YUNGBLUD & blackbear) (Near x Far Remix)
+**Track**: nelly - grillz (crapface remix)
 
-Last updated at 11/18/2020 09:34
+Last updated at 11/18/2020 09:36
