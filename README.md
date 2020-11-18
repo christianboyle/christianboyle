@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000610444564-eps0jo-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-say-goodbye-ft-marvin-divinencs-release-pr?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000134054020-v5rq3m-t50x50.jpg">](https://soundcloud.com/maddecent/two-fresh-bands-feat-saint?in=saxurn/sets/chromodynamics)
 
-**Artist**: NCS 
+**Artist**: Mad Decent 
 
-**Track**: Unknown Brain - Say Goodbye (ft. Marvin Divine)[NCS Release]
+**Track**: Two Fresh - Bands (feat. Saint)
 
-Last updated at 11/18/2020 09:07
+Last updated at 11/18/2020 09:12
