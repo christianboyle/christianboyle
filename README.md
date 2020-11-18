@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000672702340-eirads-t50x50.jpg">](https://soundcloud.com/slumberjack/hades?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000678845278-fbtir6-t50x50.jpg">](https://soundcloud.com/presentlylifted/super-future-x-ujuu-fujitsu?in=saxurn/sets/chromodynamics)
 
-**Artist**: SLUMBERJACK 
+**Artist**: Presently Lifted 👑 
 
-**Track**: SLUMBERJACK & FOMO - Hades
+**Track**: Super Future X Ujuu - Fujitsu
 
-Last updated at 11/18/2020 09:18
+Last updated at 11/18/2020 09:22
