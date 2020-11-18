@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000366767367-vd9yqt-t50x50.jpg">](https://soundcloud.com/leyouth/shallou-lie-le-youth-remix-1?in=saxurn/sets/virii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JAobKwWP63ZY-0-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/hardcore?in=saxurn/sets/virii)
 
-**Artist**: Le Youth 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: Shallou - Lie (Le Youth Remix)
+**Track**: Hardcore
 
-Last updated at 11/18/2020 07:41
+Last updated at 11/18/2020 07:45
