@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4IDDzWd3FNbs-0-t50x50.jpg">](https://soundcloud.com/flosstradamus/flosstradamus-fki1st-graves?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000672702340-eirads-t50x50.jpg">](https://soundcloud.com/slumberjack/hades?in=saxurn/sets/chromodynamics)
 
-**Artist**: Flosstradamus 
+**Artist**: SLUMBERJACK 
 
-**Track**: Flosstradamus, FKi1st & graves - Came Up feat. Post Malone & Key!
+**Track**: SLUMBERJACK & FOMO - Hades
 
-Last updated at 11/18/2020 09:14
+Last updated at 11/18/2020 09:18
