@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ACrsU1CkRu3pTqyp-6cAKMA-t50x50.jpg">](https://soundcloud.com/tisoki/seeyouagain?in=saxurn/sets/virii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bTPlS2sQqfbwxhkn-WOVYVw-t50x50.jpg">](https://soundcloud.com/playmerecords/highsociety-lfg?in=saxurn/sets/virii)
 
-**Artist**: Tisoki 
+**Artist**: Play Me Records 
 
-**Track**: Tisoki & MineSweepa - See You Again (feat. David Kuncio)
+**Track**: HIGHSOCIETY - LFG
 
-Last updated at 11/18/2020 07:53
+Last updated at 11/18/2020 08:23
