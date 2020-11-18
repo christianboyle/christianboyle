@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000610828054-6ilu8t-t50x50.jpg">](https://soundcloud.com/htpktofficial/half-the-animal-midnight-mollyhtpkt-remix?in=saxurn/sets/druid-fluids)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000609943657-lk0zfc-t50x50.jpg">](https://soundcloud.com/popsiklmusic/tomorrow?in=saxurn/sets/druid-fluids)
 
-**Artist**: HtPkt 
+**Artist**: POPSIKL 
 
-**Track**: Half The Animal-Midnight Molly(HtPkt Remix)
+**Track**: Tomorrow (feat. Luma)
 
-Last updated at 11/18/2020 17:17
+Last updated at 11/18/2020 17:19
