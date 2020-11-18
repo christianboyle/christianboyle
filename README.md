@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000599217812-yza00b-t50x50.jpg">](https://soundcloud.com/dj4b/4b-x-purowuan-atomic-bomb?in=saxurn/sets/druid-fluids)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000604424950-5431t4-t50x50.jpg">](https://soundcloud.com/beatkarma/tension?in=saxurn/sets/druid-fluids)
 
-**Artist**: 4B 
+**Artist**: Beatkarma 
 
-**Track**: 4B x PUROWUAN - ATOMIC BOMB
+**Track**: Tension
 
-Last updated at 11/18/2020 17:25
+Last updated at 11/18/2020 17:29
