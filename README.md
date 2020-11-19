@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000615453292-5jydkz-t50x50.jpg">](https://soundcloud.com/user-817215141/yung-lean-ghostface-shyguy?in=saxurn/sets/tubular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000557844798-vpf5wf-t50x50.jpg">](https://soundcloud.com/n3_ll/nell-money-talks-prodmtm-1?in=saxurn/sets/tubular)
 
-**Artist**: dr4in3dt0d3a7h 
+**Artist**: N3_LL 
 
-**Track**: Yung Lean - ghostface / shyguy
+**Track**: MONEY TALKS (Prod.MTM)
 
-Last updated at 11/19/2020 11:38
+Last updated at 11/19/2020 11:40
