@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558406077-66owo5-t50x50.jpg">](https://soundcloud.com/dedstark/ded-stark-toss-n-turn?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500656758-o1zmj5-t50x50.jpg">](https://soundcloud.com/germone/9-shameless-feat-shakewell?in=saxurn/sets/decoded)
 
-**Artist**: DED STARK 
+**Artist**: Germ 
 
-**Track**: TOSS N TURN (PROD. DED STARK)
+**Track**: SHAMELESS (Feat. Shakewell)
 
-Last updated at 11/19/2020 12:08
+Last updated at 11/19/2020 12:11
