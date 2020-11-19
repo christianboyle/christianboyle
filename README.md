@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515013612-2kkekq-t50x50.jpg">](https://soundcloud.com/wonderlust/wild-heart-same-mind?in=saxurn/sets/drippy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000522781641-7k3wt6-t50x50.jpg">](https://soundcloud.com/two-friends/dollarmenu?in=saxurn/sets/drippy)
 
-**Artist**: Hegemon: Wonderlust 
+**Artist**: Two Friends 
 
-**Track**: Wild Heart - Same Mind
+**Track**: Two Friends ft. Dani Poppitt - Dollar Menu
 
-Last updated at 11/19/2020 12:46
+Last updated at 11/19/2020 12:50
