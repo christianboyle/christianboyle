@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000567403064-l2k3hy-t50x50.jpg">](https://soundcloud.com/alecbenjamin/jesus-in-la?in=saxurn/sets/tubular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000557448447-b7nfdu-t50x50.jpg">](https://soundcloud.com/ghostdragonofficial/gucci-mane-ft-justin-bieber?in=saxurn/sets/tubular)
 
-**Artist**: Alec Benjamin 
+**Artist**: GhostDragon 
 
-**Track**: Jesus in LA
+**Track**: Gucci Mane ft. Justin Bieber - Love Thru The Computer (GhostDragon Remix)
 
-Last updated at 11/19/2020 11:32
+Last updated at 11/19/2020 11:36
