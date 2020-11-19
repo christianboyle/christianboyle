@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000599933603-xa8q61-t50x50.jpg">](https://soundcloud.com/relect-jp/refuzion-back-in-timerelect-flip?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000589880399-7fnqwq-t50x50.jpg">](https://soundcloud.com/wakaan/inzo-multiverse?in=saxurn/sets/fat-planet)
 
-**Artist**: Relect 
+**Artist**: Wakaan 
 
-**Track**: Refuzion - Back In Time(Relect Flip)
+**Track**: INZO - Multiverse
 
-Last updated at 11/18/2020 17:59
+Last updated at 11/18/2020 18:01
