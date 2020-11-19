@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000553925070-zyv45p-t50x50.jpg">](https://soundcloud.com/hegemon/lexim-glasscat-thunder?in=saxurn/sets/tubular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000538836012-ardwxt-t50x50.jpg">](https://soundcloud.com/thisisclouds/ferrari-348?in=saxurn/sets/tubular)
 
-**Artist**: Hegemon Select 
+**Artist**: Clouds 
 
-**Track**: LEXIM, glasscat - Thunder
+**Track**: Ferrari 348
 
-Last updated at 11/19/2020 11:46
+Last updated at 11/19/2020 11:50
