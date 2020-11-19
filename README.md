@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586230716-g8189p-t50x50.jpg">](https://soundcloud.com/iamgeoofficial/somebodyelse?in=saxurn/sets/aether-creatures)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000569572970-ngry9t-t50x50.jpg">](https://soundcloud.com/skrillex/skrillex-feat-alvin-risk-fuji-opener?in=saxurn/sets/aether-creatures)
 
-**Artist**: GEO 
+**Artist**: Skrillex 
 
-**Track**: FLUX PAVILION FT GLNNA - SOMEBODY ELSE (GEO REMIX)
+**Track**: Fuji Opener (feat. Alvin Risk)
 
-Last updated at 11/19/2020 08:05
+Last updated at 11/19/2020 08:09
