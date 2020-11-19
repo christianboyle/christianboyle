@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000557844798-vpf5wf-t50x50.jpg">](https://soundcloud.com/n3_ll/nell-money-talks-prodmtm-1?in=saxurn/sets/tubular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568637612-ts91fw-t50x50.jpg">](https://soundcloud.com/destinuna/maakg-phoenix?in=saxurn/sets/tubular)
 
-**Artist**: N3_LL 
+**Artist**: Destinuna 
 
-**Track**: MONEY TALKS (Prod.MTM)
+**Track**: Maāk.G - Phoenix
 
-Last updated at 11/19/2020 11:40
+Last updated at 11/19/2020 11:42
