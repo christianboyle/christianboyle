@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000440969418-j9e5fh-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/waiting-here-feat-lil-b-prod-taylor-morgan?in=saxurn/sets/my-god-its-full-of-lies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uakufNLBJ8ng-0-t50x50.jpg">](https://soundcloud.com/kygo/think-about-you-galantis-remix?in=saxurn/sets/my-god-its-full-of-lies)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: Kygo 
 
-**Track**: WAITING HERE (FEAT. LIL B) (PROD. TAYLOR MORGAN)
+**Track**: Think About You (Galantis Remix)
 
-Last updated at 11/19/2020 08:29
+Last updated at 11/19/2020 08:33
