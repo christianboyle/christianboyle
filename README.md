@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000149534833-zlwnz4-t50x50.jpg">](https://soundcloud.com/shiftyrhythms/headstone-thug?in=saxurn/sets/send-nood-le-z)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000507351360-ocs9tc-t50x50.jpg">](https://soundcloud.com/320rip/shadowvariable-umbra?in=saxurn/sets/send-nood-le-z)
 
-**Artist**: Shifty Rhythms 
+**Artist**: 320 RIP 
 
-**Track**: headstone - Thug
+**Track**: ShadowVariable - Umbra
 
-Last updated at 11/19/2020 08:55
+Last updated at 11/19/2020 09:01
