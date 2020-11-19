@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558908709-o5zzm5-t50x50.jpg">](https://soundcloud.com/madnap/all2u?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558968787-7mdkzx-t50x50.jpg">](https://soundcloud.com/itsr3llofficial/ucla-ft-24hrs-r3ll-remix?in=saxurn/sets/decoded)
 
-**Artist**: Madnap 
+**Artist**: R3LL 
 
-**Track**: Manila Killa - All 2 U ft. Sara Skinner (Madnap Remix)
+**Track**: RL Grime - UCLA Feat. 24hrs (R3LL Remix)
 
-Last updated at 11/19/2020 12:16
+Last updated at 11/19/2020 12:20
