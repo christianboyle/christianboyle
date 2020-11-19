@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500656758-o1zmj5-t50x50.jpg">](https://soundcloud.com/germone/9-shameless-feat-shakewell?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000527321919-ybzp3v-t50x50.jpg">](https://soundcloud.com/ramirez_187/does-it-real-good?in=saxurn/sets/decoded)
 
-**Artist**: Germ 
+**Artist**: RAMIREZ. 
 
-**Track**: SHAMELESS (Feat. Shakewell)
+**Track**: Does It Real Good
 
-Last updated at 11/19/2020 12:11
+Last updated at 11/19/2020 12:13
