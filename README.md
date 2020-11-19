@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mu0XglahUJ07-0-t50x50.png">](https://soundcloud.com/droeloemusic/virtual-friends?in=saxurn/sets/prime-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585307589-ihukqk-t50x50.jpg">](https://soundcloud.com/ygravy/yung-gravy-chief-keef-tampa-bay-bustdown-prod-by-y2k?in=saxurn/sets/aether-creatures)
 
-**Artist**: DROELOE 
+**Artist**: Yung Gravy 
 
-**Track**: Virtual Friends
+**Track**: Yung Gravy & Chief Keef - Tampa Bay Bustdown (prod. by Y2K)
 
-Last updated at 11/18/2020 18:27
+Last updated at 11/19/2020 07:43
