@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GBiWYoEHX2J7-0-t50x50.png">](https://soundcloud.com/datweekaz/we-are-fighters?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220103173-ecj9f4-t50x50.jpg">](https://soundcloud.com/gillchang/story-feat-cimo-frankel?in=saxurn/sets/drippy)
 
-**Artist**: Da Tweekaz 
+**Artist**: Gill Chang 
 
-**Track**: We Are Fighters
+**Track**: Story (feat. Cimo Fränkel)
 
-Last updated at 11/19/2020 12:32
+Last updated at 11/19/2020 12:36
