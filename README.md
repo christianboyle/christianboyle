@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558891939-jde5gf-t50x50.jpg">](https://soundcloud.com/pouya-kevin/mood-swing-misery-with-rocci?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558406077-66owo5-t50x50.jpg">](https://soundcloud.com/dedstark/ded-stark-toss-n-turn?in=saxurn/sets/decoded)
 
-**Artist**: Pouya . 
+**Artist**: DED STARK 
 
-**Track**: Mood Swing Misery (With Rocci)
+**Track**: TOSS N TURN (PROD. DED STARK)
 
-Last updated at 11/19/2020 12:06
+Last updated at 11/19/2020 12:08
