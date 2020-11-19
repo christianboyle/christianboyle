@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000584705546-dncw99-t50x50.jpg">](https://soundcloud.com/monstercat/gammer-this-is-the-end-feat-david-spekter?in=saxurn/sets/aether-creatures)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573985976-ptv712-t50x50.jpg">](https://soundcloud.com/jakkyboi/i-dont-wanna-think-about-it?in=saxurn/sets/my-god-its-full-of-lies)
 
-**Artist**: Monstercat 
+**Artist**: jakkyboí 
 
-**Track**: Gammer - This Is The End (feat. David Spekter)
+**Track**: i don't wanna think about it
 
-Last updated at 11/19/2020 08:11
+Last updated at 11/19/2020 08:15
