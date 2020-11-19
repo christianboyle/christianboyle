@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573985976-ptv712-t50x50.jpg">](https://soundcloud.com/jakkyboi/i-dont-wanna-think-about-it?in=saxurn/sets/my-god-its-full-of-lies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000563573171-pm9kcs-t50x50.jpg">](https://soundcloud.com/majorlazer/major-lazer-cant-take-it-from-me-showtek-remix-radio-edit?in=saxurn/sets/my-god-its-full-of-lies)
 
-**Artist**: jakkyboí 
+**Artist**: Major Lazer 
 
-**Track**: i don't wanna think about it
+**Track**: Major Lazer - Can't Take It From Me (Showtek Remix)
 
-Last updated at 11/19/2020 08:15
+Last updated at 11/19/2020 08:17
