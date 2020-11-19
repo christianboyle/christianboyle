@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000538836012-ardwxt-t50x50.jpg">](https://soundcloud.com/thisisclouds/ferrari-348?in=saxurn/sets/tubular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000560591949-hn2smt-t50x50.jpg">](https://soundcloud.com/tookindmusic/madeon-all-my-friends-too-kind-remix?in=saxurn/sets/tubular)
 
-**Artist**: Clouds 
+**Artist**: TOO KIND 
 
-**Track**: Ferrari 348
+**Track**: Madeon - All My Friends (TOO KIND Remix)
 
-Last updated at 11/19/2020 11:50
+Last updated at 11/19/2020 11:56
