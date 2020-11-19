@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558968787-7mdkzx-t50x50.jpg">](https://soundcloud.com/itsr3llofficial/ucla-ft-24hrs-r3ll-remix?in=saxurn/sets/decoded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485844300-fzmfhq-t50x50.jpg">](https://soundcloud.com/jakazid/fickle-friends-swim-jakazid-bootleg-free-download?in=saxurn/sets/decoded)
 
-**Artist**: R3LL 
+**Artist**: JAKAZiD 
 
-**Track**: RL Grime - UCLA Feat. 24hrs (R3LL Remix)
+**Track**: Fickle Friends - Swim (JAKAZiD Bootleg) [DOWNLOAD LINK IN DESCRIPTION]
 
-Last updated at 11/19/2020 12:20
+Last updated at 11/19/2020 12:24
