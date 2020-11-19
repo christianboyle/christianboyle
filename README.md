@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220103173-ecj9f4-t50x50.jpg">](https://soundcloud.com/gillchang/story-feat-cimo-frankel?in=saxurn/sets/drippy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lSRI2AaefMuO-0-t50x50.jpg">](https://soundcloud.com/terrorjr/loved-by-you?in=saxurn/sets/drippy)
 
-**Artist**: Gill Chang 
+**Artist**: Terror Jr 
 
-**Track**: Story (feat. Cimo Fränkel)
+**Track**: Loved By You
 
-Last updated at 11/19/2020 12:36
+Last updated at 11/19/2020 12:40
