@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244926718-zn7o1i-t50x50.jpg">](https://soundcloud.com/helveticandoom/freak?in=saxurn/sets/my-god-its-full-of-lies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000569773388-qto2f6-t50x50.jpg">](https://soundcloud.com/lightsoutsounds/notgoinback?in=saxurn/sets/send-nood-le-z)
 
-**Artist**: Helvetican 
+**Artist**: LIGHTS OUT 
 
-**Track**: MISSY ELLIOTT - GET UR FREAK ON (HELVETICAN REMIX)
+**Track**: Not Goin' Back
 
-Last updated at 11/19/2020 08:47
+Last updated at 11/19/2020 08:49
