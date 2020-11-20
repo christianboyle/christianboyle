@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GrwKzw73LPZz9SPx-Xfs2sQ-t50x50.jpg">](https://soundcloud.com/aqnb/petal-supply-youre-so-pretty-2020-courtesy-song-music-llc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b62L9twUfSrn-0-t50x50.png">](https://soundcloud.com/smrtdeath/lights-off-feat-lil-aaron)
 
-**Artist**: AQNB 
+**Artist**: smrtdeath 
 
-**Track**: Petal Supply, 'You're So Pretty' (2020). Courtesy SONG Music LLC.
+**Track**: Lights Off (feat. lil aaron)
 
-Last updated at 11/20/2020 11:44
+Last updated at 11/20/2020 11:46
