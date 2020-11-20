@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2LIB5ctAOKG-0-t50x50.png">](https://soundcloud.com/smrtdeath/nothings-wrong?in=smrtdeath/sets/somethjngs-wrong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2XA4u6oA4vOQUvX-zG0xDQ-t50x50.jpg">](https://soundcloud.com/jakkyboi/hit-me-when-ur-sorry)
 
-**Artist**: smrtdeath 
+**Artist**: jakkyboí 
 
-**Track**: Nothing Is Wrong
+**Track**: hit me when ur sorry
 
-Last updated at 11/20/2020 14:02
+Last updated at 11/20/2020 14:04
