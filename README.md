@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zROBJiCjLbZG9Xl4-NJyTlA-t50x50.jpg">](https://soundcloud.com/bbyeco/forever-till-the-end-of-time-final-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GrwKzw73LPZz9SPx-Xfs2sQ-t50x50.jpg">](https://soundcloud.com/aqnb/petal-supply-youre-so-pretty-2020-courtesy-song-music-llc)
 
-**Artist**: Bby Eco 
+**Artist**: AQNB 
 
-**Track**: Forever Till The End Of Time
+**Track**: Petal Supply, 'You're So Pretty' (2020). Courtesy SONG Music LLC.
 
-Last updated at 11/20/2020 11:42
+Last updated at 11/20/2020 11:44
