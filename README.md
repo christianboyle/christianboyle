@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDZMvMbUe3m0-0-t50x50.png">](https://soundcloud.com/smrtdeath/dont-luv-me?in=smrtdeath/sets/somethjngs-wrong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b62L9twUfSrn-0-t50x50.png">](https://soundcloud.com/smrtdeath/lights-off-feat-lil-aaron?in=smrtdeath/sets/somethjngs-wrong)
 
 **Artist**: smrtdeath 
 
-**Track**: Don't Love Me
+**Track**: Lights Off (feat. lil aaron)
 
-Last updated at 11/20/2020 09:48
+Last updated at 11/20/2020 09:50
