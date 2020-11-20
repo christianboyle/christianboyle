@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2F83qvA88BB-0-t50x50.png">](https://soundcloud.com/smrtdeath/she-told-me-to-kill-myself?in=smrtdeath/sets/somethjngs-wrong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eHuSexKtRwFb-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral?in=smrtdeath/sets/somethjngs-wrong)
 
 **Artist**: smrtdeath 
 
-**Track**: She Told Me to Kill Myself
+**Track**: Headed To My Funeral
 
-Last updated at 11/20/2020 10:04
+Last updated at 11/20/2020 10:08
