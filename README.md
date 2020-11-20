@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqkxVjL5HJPJezsP-XdRc0Q-t50x50.jpg">](https://soundcloud.com/dovescry/ultraclub4k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHpfB4yhOnlE-0-t50x50.png">](https://soundcloud.com/smrtdeath/dont-luv-me?in=smrtdeath/sets/somethjngs-wrong)
 
-**Artist**: døves 
+**Artist**: smrtdeath 
 
-**Track**: ULTRACLUB4K
+**Track**: Don't Love Me
 
-Last updated at 11/20/2020 14:22
+Last updated at 11/20/2020 15:54
