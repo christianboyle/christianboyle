@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rC4zxnQLOLXN-0-t50x50.png">](https://soundcloud.com/smrtdeath/just-be-around)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vs5iO6ytOmam-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral)
 
 **Artist**: smrtdeath 
 
-**Track**: Just Be Around
+**Track**: Headed To My Funeral
 
-Last updated at 11/20/2020 16:42
+Last updated at 11/20/2020 16:46
