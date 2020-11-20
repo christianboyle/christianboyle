@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2LIB5ctAOKG-0-t50x50.png">](https://soundcloud.com/smrtdeath/nothings-wrong?in=smrtdeath/sets/somethjngs-wrong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113895-4trza2-t50x50.jpg">](https://soundcloud.com/smrtdeath/better-off?in=smrtdeath/sets/well-be-alright-1)
 
 **Artist**: smrtdeath 
 
-**Track**: Nothing Is Wrong
+**Track**: better off (prod. audioopera)
 
-Last updated at 11/20/2020 07:32
+Last updated at 11/20/2020 07:37
