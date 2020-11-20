@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlGjIfs05ZnpLDB1-POg7CA-t50x50.jpg">](https://soundcloud.com/hotcaller/damn-hotcaller-x-nexy?in=hotcaller/sets/originals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBl7nCPGmTCnDL9e-5ddnaA-t50x50.jpg">](https://soundcloud.com/isorin/xenon)
 
-**Artist**: Hotcaller 
+**Artist**: iSorin 
 
-**Track**: DAMN - HOTCALLER x NEXY
+**Track**: Xenon
 
-Last updated at 11/20/2020 10:46
+Last updated at 11/20/2020 10:48
