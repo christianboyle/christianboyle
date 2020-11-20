@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000459113922-cyvh6k-t50x50.jpg">](https://soundcloud.com/smrtdeath/broken-record-for-my-broken-heart?in=smrtdeath/sets/well-be-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDZMvMbUe3m0-0-t50x50.png">](https://soundcloud.com/smrtdeath/dont-luv-me?in=smrtdeath/sets/somethjngs-wrong)
 
 **Artist**: smrtdeath 
 
-**Track**: broken record for my broken heart (prod. audioopera)
+**Track**: Don't Love Me
 
-Last updated at 11/20/2020 09:11
+Last updated at 11/20/2020 09:48
