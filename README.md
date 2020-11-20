@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDZMvMbUe3m0-0-t50x50.png">](https://soundcloud.com/smrtdeath/dont-luv-me?in=smrtdeath/sets/somethjngs-wrong)
 
-**Artist**: SMOKEASAC 
+**Artist**: smrtdeath 
 
-**Track**: Leave You Behind
+**Track**: Don't Love Me
 
-Last updated at 11/20/2020 08:07
+Last updated at 11/20/2020 08:10
