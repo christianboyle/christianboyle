@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vs5iO6ytOmam-0-t50x50.png">](https://soundcloud.com/smrtdeath/headed-to-my-funeral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
 
-**Artist**: smrtdeath 
+**Artist**: Club Cringe 
 
-**Track**: Headed To My Funeral
+**Track**: CRINGE MIX #66 - ICE UNDERLORD
 
-Last updated at 11/20/2020 16:46
+Last updated at 11/21/2020 15:33
