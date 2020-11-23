@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000362444058-7esxox-t50x50.jpg">](https://soundcloud.com/ice-underlord/pretty-boy-swag-yeshomoremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000266989652-f6ju3g-t50x50.jpg">](https://soundcloud.com/ice-underlord/iceunderlord-stero-love-x-mc-2k-elas-vao-no-pelo)
 
 **Artist**: ICEUNDERLORD 
 
-**Track**: PRETTY BOY SWAG (YES HOMO REMIX)
+**Track**: STEREO LOVE x MC 2K - ELAS VÃO NO PELO (ICEUNDERLORDS RETURN THE SAGA OF ICE)
 
-Last updated at 11/23/2020 11:43
+Last updated at 11/23/2020 11:47
