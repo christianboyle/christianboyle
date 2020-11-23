@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVom32szoV53bmnU-iNB1uQ-t50x50.jpg">](https://soundcloud.com/ice-underlord/ice-underlord-this-one-takes-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000611073652-09i3rh-t50x50.jpg">](https://soundcloud.com/ice-underlord/crack-music)
 
 **Artist**: ICEUNDERLORD 
 
-**Track**: THIS ONE TAKES ME
+**Track**: CRACK MUSIC
 
-Last updated at 11/23/2020 10:06
+Last updated at 11/23/2020 10:08
