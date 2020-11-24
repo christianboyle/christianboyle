@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000138772724-rgp9be-t50x50.jpg">](https://soundcloud.com/ice-underlord/tiana-freaky-man-meltdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Club Cringe 
 
-**Track**: TIANA FREAKY MAN MELTDOWN <3 <3
+**Track**: CRINGE MIX #66 - ICE UNDERLORD
 
-Last updated at 11/23/2020 13:31
+Last updated at 11/23/2020 19:45
