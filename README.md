@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-neI8OOe9D1FegHB1-pWfZzw-t50x50.jpg">](https://soundcloud.com/mysticalmobbing/lust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iLpifS8BqbKovOCt-9NmAGQ-t50x50.jpg">](https://soundcloud.com/future-bassnet/toyou?in=chilltrapnetwork/sets/maxx-lyon-to-you-future-bass)
 
-**Artist**: sensei sayaka 
+**Artist**: Future Bass Records 
 
-**Track**: (⃔ •͈ ꒡ •͈ )⃕↝ east memphis
+**Track**: Maxx Lyon - To You [Future Bass Release]
 
-Last updated at 11/24/2020 08:35
+Last updated at 11/24/2020 08:37
