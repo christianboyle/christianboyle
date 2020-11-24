@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000235186984-bez52e-t50x50.jpg">](https://soundcloud.com/wifigawd/made-man-prooogiemane?in=wifigawd/sets/trenches-to-riches-hosted-by)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Iynp8MPf2pXKk8I-PhzNKQ-t50x50.jpg">](https://soundcloud.com/whoispurge/buried)
 
-**Artist**: WIFIGAWD AKA UPT SOULJAH 
+**Artist**: PURGE 
 
-**Track**: MADE MAN (PRO.OOGIEMANE)
+**Track**: Buried (feat. Minor Lift)
 
-Last updated at 11/23/2020 20:39
+Last updated at 11/24/2020 08:23
