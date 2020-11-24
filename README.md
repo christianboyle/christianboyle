@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aSmx11b5sJk4x4JA-IhsgpA-t50x50.jpg">](https://soundcloud.com/sekai-collective/ydya-survive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQRTAnfwSdMeUjyH-iEd6YA-t50x50.jpg">](https://soundcloud.com/anjunadeep/marsh-wassu-amor-1)
 
-**Artist**: Sekai Collective 
+**Artist**: Anjunadeep 
 
-**Track**: ΉYDЯӨ - Survive
+**Track**: Marsh & Wassu - Amor
 
-Last updated at 11/24/2020 08:45
+Last updated at 11/24/2020 08:47
