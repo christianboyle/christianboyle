@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQRTAnfwSdMeUjyH-iEd6YA-t50x50.jpg">](https://soundcloud.com/anjunadeep/marsh-wassu-amor-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtFzznfeVYPgIydj-cn0Ufg-t50x50.jpg">](https://soundcloud.com/svnsetwaves/finji-peckham)
 
-**Artist**: Anjunadeep 
+**Artist**: SVNSET WAVES 
 
-**Track**: Marsh & Wassu - Amor
+**Track**: finji - peckham
 
-Last updated at 11/24/2020 08:47
+Last updated at 11/24/2020 08:53
