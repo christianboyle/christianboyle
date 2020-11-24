@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK0GGrYBGP40cwSp-wqzIKw-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-dancing-on-the-moon-ft-luke-burr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
 
-**Artist**: NCS 
+**Artist**: POOTY 
 
-**Track**: Unknown Brain - Dancing On The Moon (ft. Luke Burr)[NCS Release]
+**Track**: WAZ POPPIN w/ SQUID
 
-Last updated at 11/24/2020 11:49
+Last updated at 11/24/2020 11:53
