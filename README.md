@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtFzznfeVYPgIydj-cn0Ufg-t50x50.jpg">](https://soundcloud.com/svnsetwaves/finji-peckham)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TttCOVUyWizwcrhM-BMyD0w-t50x50.jpg">](https://soundcloud.com/bitbird/mystk-lost)
 
-**Artist**: SVNSET WAVES 
+**Artist**: bitbird 
 
-**Track**: finji - peckham
+**Track**: Mystk - Lost
 
-Last updated at 11/24/2020 08:53
+Last updated at 11/24/2020 08:57
