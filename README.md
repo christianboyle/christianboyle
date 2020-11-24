@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYedVnM7jwCllZy2-80npWQ-t50x50.jpg">](https://soundcloud.com/yungskrrt/fearofgod?in=yungskrrt/sets/casualracer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nUXxc2xLd4jOQb21-yFfdlA-t50x50.jpg">](https://soundcloud.com/yungskrrt/drummas?in=yungskrrt/sets/casualracer)
 
 **Artist**: Yung Skrrt 
 
-**Track**: Fear of God ft. Pollari // prod. AObeats, Yung Skrrt
+**Track**: Drummas (On Me) // prod. AObeats, Yung Skrrt
 
-Last updated at 11/24/2020 13:08
+Last updated at 11/24/2020 13:12
