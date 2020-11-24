@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZo4jjFOGueYk558-Es7Pzw-t50x50.jpg">](https://soundcloud.com/2eye/spira-sunset)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lv8Fxl4YT8Hu8nfw-GozUhA-t50x50.jpg">](https://soundcloud.com/nocopyrightsounds/unknown-brain-im-sorry-mom-ft-kyle-reynolds-ncs-release)
 
-**Artist**: 2eye 
+**Artist**: NCS 
 
-**Track**: Spira Sunset
+**Track**: Unknown Brain - I'm Sorry Mom (ft. Kyle Reynolds) [NCS Release]
 
-Last updated at 11/24/2020 11:41
+Last updated at 11/24/2020 11:43
