@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TttCOVUyWizwcrhM-BMyD0w-t50x50.jpg">](https://soundcloud.com/bitbird/mystk-lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQRTAnfwSdMeUjyH-iEd6YA-t50x50.jpg">](https://soundcloud.com/anjunadeep/marsh-wassu-amor-1)
 
-**Artist**: bitbird 
+**Artist**: Anjunadeep 
 
-**Track**: Mystk - Lost
+**Track**: Marsh & Wassu - Amor
 
-Last updated at 11/24/2020 08:57
+Last updated at 11/24/2020 11:05
