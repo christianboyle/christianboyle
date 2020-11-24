@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000235186984-bez52e-t50x50.jpg">](https://soundcloud.com/wifigawd/made-man-prooogiemane?in=wifigawd/sets/trenches-to-riches-hosted-by)
 
-**Artist**: Club Cringe 
+**Artist**: WIFIGAWD AKA UPT SOULJAH 
 
-**Track**: CRINGE MIX #66 - ICE UNDERLORD
+**Track**: MADE MAN (PRO.OOGIEMANE)
 
-Last updated at 11/23/2020 19:45
+Last updated at 11/23/2020 20:39
