@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQRTAnfwSdMeUjyH-iEd6YA-t50x50.jpg">](https://soundcloud.com/anjunadeep/marsh-wasnt-enough-1?in=anjunadeep/sets/marsh-lailonie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZo4jjFOGueYk558-Es7Pzw-t50x50.jpg">](https://soundcloud.com/2eye/spira-sunset)
 
-**Artist**: Anjunadeep 
+**Artist**: 2eye 
 
-**Track**: Marsh - Wasn't Enough
+**Track**: Spira Sunset
 
-Last updated at 11/24/2020 11:37
+Last updated at 11/24/2020 11:41
