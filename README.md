@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAu4kE6m9LdNymUC-nq85dA-t50x50.jpg">](https://soundcloud.com/tydosongs/skoro_udaly_navernoe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZuRq71xjFMiSXTQz-zQQP1g-t50x50.jpg">](https://soundcloud.com/hyperpopcollective/umami-goddess-doing-it-wrong-feat-evan-higgins-eriq)
 
-**Artist**: Tydo 
+**Artist**: HYPERPOP 
 
-**Track**: everything looks so familiar
+**Track**: UMAMI GODDESS™ - DOING IT WRONG (FEAT. EVAN HIGGINS & ERIQ)
 
-Last updated at 11/24/2020 13:16
+Last updated at 11/24/2020 13:26
