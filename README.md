@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olgY4zVNItQy2Ot4-ztzxzA-t50x50.jpg">](https://soundcloud.com/enhanced/man-cub-with-gabi-dipace-what-am-i-to-do-syence-remix?in=enhanced/sets/man-cub-impressions-the-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SIOyZVmDceM2fYnr-OXh9EQ-t50x50.jpg">](https://soundcloud.com/cabuizeemusic/cabuizee-memorej-gracie-van-brunt-stereoadiks-dynamite)
 
-**Artist**: Enhanced 
+**Artist**: Cabuizee  ♫ 
 
-**Track**: Man Cub With Gabi DiPace - What Am I To Do (Syence Remix)
+**Track**: Cabuizee, Memorej, Gracie Van Brunt, StereoAdiks - Dynamite
 
-Last updated at 11/24/2020 14:38
+Last updated at 11/24/2020 14:40
