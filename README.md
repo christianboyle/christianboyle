@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Iynp8MPf2pXKk8I-PhzNKQ-t50x50.jpg">](https://soundcloud.com/whoispurge/buried)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMyCk1XZiH15OyIm-ZXMiOQ-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/lavier-blessings-pt-ii-minimix?in=laviermusic/sets/blessings-pt-ii-minimix-full)
 
-**Artist**: PURGE 
+**Artist**: more creativity records 
 
-**Track**: Buried (feat. Minor Lift)
+**Track**: Lavier - Blessings Pt. II Minimix
 
-Last updated at 11/24/2020 08:23
+Last updated at 11/24/2020 08:27
