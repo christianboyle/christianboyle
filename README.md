@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3cjluFubf0rkm7x-N1NOqg-t50x50.jpg">](https://soundcloud.com/grrl-music/pyramid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0isS45e0ukLWg7A-xjMRMg-t50x50.jpg">](https://soundcloud.com/marwabelhajyoussef/marwa-belhaj-youssef-pessimist-takeover-hrage-06-ma3azef-radio)
 
-**Artist**: 𝑮𝑹𝑹𝑳 
+**Artist**: Marwa Belhaj Youssef 
 
-**Track**: GRRL - Pyramid
+**Track**: Marwa Belhaj Youssef & Pessimist (Takeover) | HRAGE06 - Ma3azef Radio
 
-Last updated at 11/25/2020 09:14
+Last updated at 11/25/2020 09:18
