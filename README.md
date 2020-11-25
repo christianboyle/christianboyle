@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYedVnM7jwCllZy2-80npWQ-t50x50.jpg">](https://soundcloud.com/yungskrrt/fearofgod?in=yungskrrt/sets/casualracer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFyWXcE7gzMX5PBo-zqLZdw-t50x50.jpg">](https://soundcloud.com/nightmoderecs/kill-script-stasis)
 
-**Artist**: Yung Skrrt 
+**Artist**: NIGHT MODE 
 
-**Track**: Fear of God ft. Pollari // prod. AObeats, Yung Skrrt
+**Track**: KILL SCRIPT - STASIS
 
-Last updated at 11/25/2020 09:02
+Last updated at 11/25/2020 09:06
