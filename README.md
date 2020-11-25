@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0isS45e0ukLWg7A-xjMRMg-t50x50.jpg">](https://soundcloud.com/marwabelhajyoussef/marwa-belhaj-youssef-pessimist-takeover-hrage-06-ma3azef-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
 
-**Artist**: Marwa Belhaj Youssef 
+**Artist**: POOTY 
 
-**Track**: Marwa Belhaj Youssef & Pessimist (Takeover) | HRAGE06 - Ma3azef Radio
+**Track**: WAZ POPPIN w/ SQUID
 
-Last updated at 11/25/2020 09:18
+Last updated at 11/25/2020 14:50
