@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbAyqvxXXaMz5V6h-YG9MYA-t50x50.jpg">](https://soundcloud.com/kalibvr/glidin-1)
 
-**Artist**: POOTY 
+**Artist**: kalibvr 
 
-**Track**: WAZ POPPIN w/ SQUID
+**Track**: GLIDIN'
 
-Last updated at 11/25/2020 14:50
+Last updated at 11/25/2020 14:52
