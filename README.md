@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000470655891-oy2zmx-t50x50.jpg">](https://soundcloud.com/killmythic/point-blank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
 
-**Artist**: Mythic 
+**Artist**: POOTY 
 
-**Track**: POINT BLANK
+**Track**: WAZ POPPIN w/ SQUID
 
-Last updated at 11/25/2020 21:25
+Last updated at 11/26/2020 10:34
