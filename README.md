@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAyzw7Db7ukAzeCm-O7LpqA-t50x50.jpg">](https://soundcloud.com/enhanced/man-cub-apek-with-april-bender-wrong-to-let-you-go-vaance-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yedyHy3obitdGyVz-WmdEzg-t50x50.jpg">](https://soundcloud.com/liltexas/lil-texas-pretty-rave-girl)
 
-**Artist**: Enhanced 
+**Artist**: LIL TEXAS 
 
-**Track**: Man Cub & APEK With April Bender - Wrong To Let You Go (VAANCE Remix)
+**Track**: LIL TEXAS - PRETTY RAVE GIRL
 
-Last updated at 11/27/2020 16:39
+Last updated at 11/27/2020 16:43
