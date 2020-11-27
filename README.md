@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000780298741-5f8ggk-t50x50.jpg">](https://soundcloud.com/zee-ish/bore?in=zee-ish/sets/gen-of-pain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxzVzHqyvxs4tEVj-VYizBA-t50x50.jpg">](https://soundcloud.com/playerr1/lucas-steve-i-want-it-all-player1-remix)
 
-**Artist**: ZEEish 
+**Artist**: player1 
 
-**Track**: Bore...
+**Track**: Lucas & Steve - I Want It All (player1 Remix)
 
-Last updated at 11/27/2020 16:35
+Last updated at 11/27/2020 16:37
