@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000780298741-5f8ggk-t50x50.jpg">](https://soundcloud.com/zee-ish/bore?in=zee-ish/sets/gen-of-pain)
 
-**Artist**: POOTY 
+**Artist**: ZEEish 
 
-**Track**: WAZ POPPIN w/ SQUID
+**Track**: Bore...
 
-Last updated at 11/26/2020 10:34
+Last updated at 11/27/2020 16:35
