@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-20ZqpYQO4lMuj2zE-p8EhnQ-t50x50.jpg">](https://soundcloud.com/spicycake/confrm-get-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPYj0Qgo0PbUTzyO-A5sMng-t50x50.jpg">](https://soundcloud.com/itsmesurati/come-ov3r)
 
-**Artist**: SPICYCAKE 
+**Artist**: SURATI 
 
-**Track**: CONF!RM - Get It
+**Track**: Come Ov3r
 
-Last updated at 11/29/2020 12:03
+Last updated at 11/29/2020 12:31
