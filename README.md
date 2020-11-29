@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000042265244-c5hj0a-t50x50.jpg">](https://soundcloud.com/ball-trap-music/6-z-balltrap-muzic-vol1-z-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000056813707-t7ecg6-t50x50.jpg">](https://soundcloud.com/plastician/plastician-w-djemba-djemba)
 
-**Artist**: UZ 
+**Artist**: Plastician 
 
-**Track**: ƱZ x Djemba Djemba x Arnold - Lurk
+**Track**: Plastician w/ Djemba Djemba & Colta - Rinse FM - 20th Sept '13
 
-Last updated at 11/29/2020 13:08
+Last updated at 11/29/2020 13:10
