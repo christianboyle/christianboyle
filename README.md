@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iQamQDUYEbZ-0-t50x50.png">](https://soundcloud.com/smrtdeath/lights-off-feat-lil-aaron)
 
-**Artist**: Club Cringe 
+**Artist**: smrtdeath 
 
-**Track**: CRINGE MIX #66 - ICE UNDERLORD
+**Track**: Lights Off (feat. lil aaron)
 
-Last updated at 11/27/2020 16:53
+Last updated at 11/28/2020 20:25
