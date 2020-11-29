@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i7BUUufWOw4RhoJC-9fOSVA-t50x50.jpg">](https://soundcloud.com/yehme2/trap-history-live-digital-mirage-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000011077607-hxn5e6-t50x50.jpg">](https://soundcloud.com/rabbitrecords/side-a-djemba-djemba-dont-stop)
 
-**Artist**: YehMe2 
+**Artist**: rabbitrecords 
 
-**Track**: TRAP HISTORY LIVE @ DIGITAL MIRAGE FRIENDSGIVING
+**Track**: Side A: Djemba Djemba - Don't Stop
 
-Last updated at 11/29/2020 12:33
+Last updated at 11/29/2020 13:06
