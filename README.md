@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wv1gz6sWpkFNfv4-SqyvZA-t50x50.jpg">](https://soundcloud.com/dramaclubrecs/2-boogie-t-x-dirt-monkey-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ZSOTZgTiyGm2MMk-PEQ1Yw-t50x50.jpg">](https://soundcloud.com/pls-ty/veryspecialvip)
 
-**Artist**: DramaClubRecs 
+**Artist**: PLS&TY 
 
-**Track**: Boogie T x Dirt Monkey x Honeycomb - Box Beat
+**Track**: PLS&TY - Very Special (ft. Sean Kingston) [VIP]
 
-Last updated at 11/30/2020 08:52
+Last updated at 11/30/2020 08:57
