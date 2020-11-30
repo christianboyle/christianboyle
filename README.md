@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmyn6unMJpKM0zcT-Ky2iWQ-t50x50.jpg">](https://soundcloud.com/azureon/astrality-gemini-feat-ludovica?in=azureon/sets/astrality-gemini-feat-ludovica-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dqMJyDcKgLPPkzH1-p8LpIQ-t50x50.jpg">](https://soundcloud.com/trigomusic/infdl-translucent)
 
-**Artist**: Azureon Select 
+**Artist**: TRIGO 
 
-**Track**: Astrality - Gemini (feat. Ludovica)
+**Track**: Translucent
 
-Last updated at 11/30/2020 09:29
+Last updated at 11/30/2020 09:33
