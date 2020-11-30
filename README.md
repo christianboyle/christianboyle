@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5YU7ZlnL1lf47gk9-Lrx7cw-t50x50.jpg">](https://soundcloud.com/julienfromflorida/i-miss-being-a-kid-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IJhF4h1CjaztFVZ-TwgJiQ-t50x50.jpg">](https://soundcloud.com/data-transmission/clavette-dutcheast-up-down-deep-root)
 
-**Artist**: 💛JULIEN FROM FLORIDA💛 
+**Artist**: Data Transmission 
 
-**Track**: 💛i miss being a kid💛
+**Track**: clavette & Dutcheast - Up & Down [Deep Root]
 
-Last updated at 11/30/2020 09:39
+Last updated at 11/30/2020 09:41
