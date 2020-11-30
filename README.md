@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UYf6xgzUjfgukSEE-hLHTuA-t50x50.jpg">](https://soundcloud.com/lucianofficial/lucian-x-rolipso-pull-up-dat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FUeqIJzZcanzXEk-qUTrag-t50x50.png">](https://soundcloud.com/epikuro/motoaki-takenouchi-seeking-treasure-epikuro-remix)
 
-**Artist**: Lucian 
+**Artist**: Epikuro (エピクロ) 
 
-**Track**: Lucian X Rolipso - Pull Up Dat
+**Track**: Motoaki Takenouchi - Seeking Treasure (Epikuro Remix)
 
-Last updated at 11/30/2020 08:59
+Last updated at 11/30/2020 09:01
