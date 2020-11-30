@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8MEWeKb15cC5DaQ-dFR78g-t50x50.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-144-dj-genderfluid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVemZf7mD0sgC2W5-EvCDZw-t50x50.jpg">](https://soundcloud.com/groove-magazin/hector-oaks-aka-djkaos11-no-darkest-night-will-shut-our-light?in=possessiontechno/sets/possession-various-artists)
 
-**Artist**: Possession 
+**Artist**: Groove Magazin 
 
-**Track**: POSSESSION PODCAST #144 - DJ GENDERFLUID #UNITEDRAVERS
+**Track**: Héctor Oaks AKA DJKAOS11 – No Darkest Night Will Shut Our Light
 
-Last updated at 11/30/2020 10:18
+Last updated at 11/30/2020 11:40
