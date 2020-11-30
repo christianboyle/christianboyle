@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mq1m2ry5LovUVeHF-NrRhKA-t50x50.jpg">](https://soundcloud.com/drippinginroses/neophoenix-solo-with-dust-of-apollon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8MEWeKb15cC5DaQ-dFR78g-t50x50.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-144-dj-genderfluid)
 
-**Artist**: ᴅʀɪᴘ ᵈʳⁱᵖ 𝘥𝘳𝘪𝘱 DRIPPING IN ROSES 💧🌹 
+**Artist**: Possession 
 
-**Track**: NeoPhoenix - Solo (with Dust of Apollon)
+**Track**: POSSESSION PODCAST #144 - DJ GENDERFLUID #UNITEDRAVERS
 
-Last updated at 11/30/2020 10:15
+Last updated at 11/30/2020 10:18
