@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B7rFoCdAawbGzfB6-dvFzeg-t50x50.jpg">](https://soundcloud.com/underground-vampire-club/toxic-prod-heavn?in=underground-vampire-club/sets/unwired-vol3-avit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zz2G0d4gB6t8e1LU-Ubh59Q-t50x50.jpg">](https://soundcloud.com/monstercat/barricade-vip)
 
-**Artist**: UVC 
+**Artist**: Monstercat 
 
-**Track**: AViT - TOXIC (Prod. Heavn)
+**Track**: REAPER - BARRICADE (VIP)
 
-Last updated at 11/30/2020 08:46
+Last updated at 11/30/2020 08:48
