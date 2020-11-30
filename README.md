@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IJhF4h1CjaztFVZ-TwgJiQ-t50x50.jpg">](https://soundcloud.com/data-transmission/clavette-dutcheast-up-down-deep-root)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9o2Ysbl3r1WUy71-kMzHhg-t50x50.jpg">](https://soundcloud.com/heyzmsc/darkdark-tell-them-youre-here-heyz-remix)
 
-**Artist**: Data Transmission 
+**Artist**: HEYZ 
 
-**Track**: clavette & Dutcheast - Up & Down [Deep Root]
+**Track**: darkDARK - Tell Them You're Here (HEYZ Remix)
 
-Last updated at 11/30/2020 09:41
+Last updated at 11/30/2020 09:47
