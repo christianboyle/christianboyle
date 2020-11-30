@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FUeqIJzZcanzXEk-qUTrag-t50x50.png">](https://soundcloud.com/epikuro/motoaki-takenouchi-seeking-treasure-epikuro-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xsEoFmbeBHfF77MQ-Q793Yw-t50x50.jpg">](https://soundcloud.com/itsriske/basic-trap-tune?in=itsriske/sets/risk-e-adam-annella-for-the-culture-ep)
 
-**Artist**: Epikuro (エピクロ) 
+**Artist**: Risk-E 
 
-**Track**: Motoaki Takenouchi - Seeking Treasure (Epikuro Remix)
+**Track**: Risk-E & Adam Annella - Basic Trap Tune (Free DL)
 
-Last updated at 11/30/2020 09:01
+Last updated at 11/30/2020 09:03
