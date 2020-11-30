@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZnMuGe0CMHp2Krc1-wyb9RQ-t50x50.jpg">](https://soundcloud.com/the-games-we-play/fate-haunted?in=the-games-we-play/sets/fate-haunted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztfp13BCC5S42zph-IttXtg-t50x50.jpg">](https://soundcloud.com/stizzzy/yessirski-w-watermelt)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: Stizzzy 
 
-**Track**: FATE - HAUNTED
+**Track**: YesSirSki w/ wätermelt
 
-Last updated at 11/30/2020 09:19
+Last updated at 11/30/2020 09:23
