@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ZSOTZgTiyGm2MMk-PEQ1Yw-t50x50.jpg">](https://soundcloud.com/pls-ty/veryspecialvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UYf6xgzUjfgukSEE-hLHTuA-t50x50.jpg">](https://soundcloud.com/lucianofficial/lucian-x-rolipso-pull-up-dat)
 
-**Artist**: PLS&TY 
+**Artist**: Lucian 
 
-**Track**: PLS&TY - Very Special (ft. Sean Kingston) [VIP]
+**Track**: Lucian X Rolipso - Pull Up Dat
 
-Last updated at 11/30/2020 08:57
+Last updated at 11/30/2020 08:59
