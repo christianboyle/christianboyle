@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oxjujOYzJ3U0zFYg-oKDFqg-t50x50.jpg">](https://soundcloud.com/prodbeef/uwlgygwofd9u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZnMuGe0CMHp2Krc1-wyb9RQ-t50x50.jpg">](https://soundcloud.com/the-games-we-play/fate-haunted?in=the-games-we-play/sets/fate-haunted)
 
-**Artist**: beef 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: ;(
+**Track**: FATE - HAUNTED
 
-Last updated at 11/30/2020 09:17
+Last updated at 11/30/2020 09:19
