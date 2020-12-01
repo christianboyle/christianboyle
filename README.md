@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lyk9j3vQLI18jrqt-1dfU4g-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf264)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuh3iXy6EK45k83I-0Arz9A-t50x50.jpg">](https://soundcloud.com/bassrush/computa-32bit?in=computamusics/sets/computa-dark-data-ep-1)
 
-**Artist**: Strange Fruits 
+**Artist**: Bassrush 
 
-**Track**: Avocuddle - Put Your Records On
+**Track**: Computa - 32bit
 
-Last updated at 12/01/2020 09:22
+Last updated at 12/01/2020 09:24
