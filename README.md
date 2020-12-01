@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuh3iXy6EK45k83I-0Arz9A-t50x50.jpg">](https://soundcloud.com/bassrush/computa-32bit?in=computamusics/sets/computa-dark-data-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8rJ6V3WpWpClSz3-nH3IKQ-t50x50.jpg">](https://soundcloud.com/cloudymane/neon-nights-vol1)
 
-**Artist**: Bassrush 
+**Artist**: Cloudymane 
 
-**Track**: Computa - 32bit
+**Track**: NEON NIGHTS VOL.1
 
-Last updated at 12/01/2020 09:24
+Last updated at 12/01/2020 09:26
