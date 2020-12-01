@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8rJ6V3WpWpClSz3-nH3IKQ-t50x50.jpg">](https://soundcloud.com/cloudymane/neon-nights-vol1)
 
-**Artist**: Club Cringe 
+**Artist**: Cloudymane 
 
-**Track**: CRINGE MIX #66 - ICE UNDERLORD
+**Track**: NEON NIGHTS VOL.1
 
-Last updated at 12/01/2020 11:23
+Last updated at 12/01/2020 11:25
