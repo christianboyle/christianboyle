@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfzZXVeq0R4ckUxv-2OVoqg-t50x50.jpg">](https://soundcloud.com/liquidritual/cyberpunk-wave-from-enjoii-serum-pack-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ZSOTZgTiyGm2MMk-PEQ1Yw-t50x50.jpg">](https://soundcloud.com/pls-ty/veryspecialvip)
 
-**Artist**: Liquid Ritual 
+**Artist**: PLS&TY 
 
-**Track**: Cyberpunk Wave from enjoii - Serum Pack Demo
+**Track**: PLS&TY - Very Special (ft. Sean Kingston) [VIP]
 
-Last updated at 11/30/2020 20:24
+Last updated at 11/30/2020 20:26
