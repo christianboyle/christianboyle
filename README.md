@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GvNL9GTL17tdt9Hr-AWssPg-t50x50.jpg">](https://soundcloud.com/billyisterrible/absoluteunit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lyk9j3vQLI18jrqt-1dfU4g-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf264)
 
-**Artist**: Billy Marchiafava 
+**Artist**: Strange Fruits 
 
-**Track**: Absolute Unit! (Prod. Twiist)
+**Track**: Avocuddle - Put Your Records On
 
-Last updated at 12/01/2020 08:58
+Last updated at 12/01/2020 09:22
