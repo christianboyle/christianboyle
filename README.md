@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqTYCFdE72jrUG5k-0iM7PQ-t50x50.jpg">](https://soundcloud.com/inf1n1temusic/eraseme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iesY97Y9dxF5FfGz-POmpSA-t50x50.jpg">](https://soundcloud.com/shweezed/what)
 
-**Artist**: INF1N1TE 
+**Artist**: Sherwyn 
 
-**Track**: INF1N1TE - ERASE ME (prod. sora)
+**Track**: What
 
-Last updated at 11/30/2020 20:28
+Last updated at 11/30/2020 20:30
