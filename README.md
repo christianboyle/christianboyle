@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JwvqpzGSRLUn6sNo-HzT8qw-t50x50.jpg">](https://soundcloud.com/bassrush/floret-loret-melted-lavender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKBYkjYlcojpmLzQ-RLAhqQ-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-aestral-mystxrivl-enjoii)
 
-**Artist**: Bassrush 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Floret Loret - Melted Lavender
+**Track**: Exclusive Podcast by ÆSTRAL, MYSTXRIVL, enjoii
 
-Last updated at 11/30/2020 20:56
+Last updated at 11/30/2020 21:00
