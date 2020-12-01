@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKBYkjYlcojpmLzQ-RLAhqQ-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-aestral-mystxrivl-enjoii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GvNL9GTL17tdt9Hr-AWssPg-t50x50.jpg">](https://soundcloud.com/billyisterrible/absoluteunit)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: Billy Marchiafava 
 
-**Track**: Exclusive Podcast by ÆSTRAL, MYSTXRIVL, enjoii
+**Track**: Absolute Unit! (Prod. Twiist)
 
-Last updated at 11/30/2020 21:00
+Last updated at 12/01/2020 08:58
