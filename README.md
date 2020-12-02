@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qDBGeo5McBSMDyV-K7I9oA-t50x50.jpg">](https://soundcloud.com/goodsociety/tdily)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3SNl1rSt8BIZ4wz-XBxvEA-t50x50.jpg">](https://soundcloud.com/mazaremusic/seven-lions-feat-tyler-graves-only-now-mazare-remix-1)
 
-**Artist**: Good Society 
+**Artist**: Mazare 
 
-**Track**: GEOTHEORY - THE DAY I LEFT YOU
+**Track**: Seven Lions (feat. Tyler Graves) - Only Now (Mazare Remix)
 
-Last updated at 12/02/2020 07:56
+Last updated at 12/02/2020 08:00
