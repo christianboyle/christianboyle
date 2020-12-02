@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njg2ayt9gQJ6n7h8-GtUCOQ-t50x50.jpg">](https://soundcloud.com/supmilesaway/bring-me-back-feat-claire-ridgely?in=weareplusplus/sets/best-electronic-music-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oljz6f4YAAtfPyUo-uhuyyA-t50x50.jpg">](https://soundcloud.com/preeroz/trident-b)
 
-**Artist**: Miles Away 
+**Artist**: preeroz. 
 
-**Track**: Bring Me Back (feat. Claire Ridgely)
+**Track**: trident b
 
-Last updated at 12/01/2020 20:45
+Last updated at 12/01/2020 20:47
