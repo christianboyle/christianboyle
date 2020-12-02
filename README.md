@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSm92ATdb0PWHzRZ-j1YJjQ-t50x50.jpg">](https://soundcloud.com/xxstereotypexx/isolation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nbV2hYdguUIyG7qA-4wKvbA-t50x50.jpg">](https://soundcloud.com/platform/hard-dance-081-gabberbitch69)
 
-**Artist**: Stereotype 
+**Artist**: Boiler Room 
 
-**Track**: Stereotype & ill-esha - Isolation
+**Track**: Hard Dance 081: gabberbitch69
 
-Last updated at 12/02/2020 08:08
+Last updated at 12/02/2020 08:12
