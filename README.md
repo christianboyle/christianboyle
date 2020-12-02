@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8rJ6V3WpWpClSz3-nH3IKQ-t50x50.jpg">](https://soundcloud.com/cloudymane/neon-nights-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NWbMAYcu5LRde8n4-Mq8XzA-t50x50.jpg">](https://soundcloud.com/justconnornyc/ecstasy)
 
-**Artist**: Cloudymane 
+**Artist**: just connor 
 
-**Track**: NEON NIGHTS VOL.1
+**Track**: Just Connor - Ecstasy - ✨ Out Now Everywhere! ✨
 
-Last updated at 12/02/2020 09:10
+Last updated at 12/02/2020 17:14
