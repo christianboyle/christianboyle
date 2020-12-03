@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape18)
 
 **Artist**: Baauer • PLANET'S MAD 
 
-**Track**: 19 - What Are Baauer Boys Called ?
+**Track**: 18 - Con Migo
 
-Last updated at 12/03/2020 08:42
+Last updated at 12/03/2020 08:44
