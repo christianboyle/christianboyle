@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape7)
 
 **Artist**: Baauer • PLANET'S MAD 
 
-**Track**: 8 - Pep Rally
+**Track**: 7 - Cha Cha GAAAS
 
-Last updated at 12/03/2020 08:54
+Last updated at 12/03/2020 08:58
