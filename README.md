@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000147170337-khhtgn-t50x50.jpg">](https://soundcloud.com/canblaster/tinashe-indigo-child-interlude-canblaster-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000083095822-em5jo0-t50x50.jpg">](https://soundcloud.com/souljaboymusic/soulja-boy-0-to-100)
 
-**Artist**: CANBLASTER (Club cheval) 
+**Artist**: Soulja Boy 
 
-**Track**: Tinashe - Indigo Child Interlude (Canblaster ReMIX)
+**Track**: Soulja Boy - 0 to 100
 
-Last updated at 12/03/2020 12:52
+Last updated at 12/03/2020 12:56
