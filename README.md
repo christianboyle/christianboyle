@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape13?in=baauer/sets/the-boptape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape15?in=baauer/sets/the-boptape)
 
 **Artist**: Baauer • PLANET'S MAD 
 
-**Track**: 13 - Yank The Tqaaaank
+**Track**: 15 - Bop 1 Friday Vibes
 
-Last updated at 12/03/2020 11:48
+Last updated at 12/03/2020 11:52
