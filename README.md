@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape15)
 
-**Artist**: POOTY 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: WAZ POPPIN w/ SQUID
+**Track**: 15 - Bop 1 Friday Vibes
 
-Last updated at 12/02/2020 17:16
+Last updated at 12/03/2020 08:36
