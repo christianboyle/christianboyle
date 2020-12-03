@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FY4HCr8osTz5VjNv-QHy3wg-t50x50.jpg">](https://soundcloud.com/osiasmusic/universemaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UznUz7pt0fetZenh-6VOvyA-t50x50.jpg">](https://soundcloud.com/somniumsound/somnium-sound-let-it-go)
 
-**Artist**: OSIAS (@osiasmusic) 
+**Artist**: somnium sound 
 
-**Track**: UNIVERSE
+**Track**: let it go
 
-Last updated at 12/03/2020 09:00
+Last updated at 12/03/2020 09:02
