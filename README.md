@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000083095822-em5jo0-t50x50.jpg">](https://soundcloud.com/souljaboymusic/soulja-boy-0-to-100)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape2?in=baauer/sets/the-boptape)
 
-**Artist**: Soulja Boy 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: Soulja Boy - 0 to 100
+**Track**: 2 - Yank 2 Diddy Style
 
-Last updated at 12/03/2020 12:56
+Last updated at 12/03/2020 13:34
