@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEvzpAVkil8ulX03-jTqwLQ-t50x50.jpg">](https://soundcloud.com/bbjuelz/mirrors)
 
-**Artist**: twikipedia 
+**Artist**: Juelz 
 
-**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
+**Track**: Arrested Youth - Mirrors (Juelz Remix)
 
-Last updated at 12/04/2020 15:03
+Last updated at 12/04/2020 17:13
