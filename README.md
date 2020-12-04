@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REjNzfiiIP4LqVuu-3Tmfmg-t50x50.jpg">](https://soundcloud.com/czdoe/wavenet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: C.Z. 
+**Artist**: twikipedia 
 
-**Track**: Wavenet
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 12/04/2020 15:01
+Last updated at 12/04/2020 15:03
