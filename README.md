@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000099103879-c7gxg3-t50x50.jpg">](https://soundcloud.com/noahbreakfast/know-snippet-prod-by-tunji-noah-breakfast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000147170337-khhtgn-t50x50.jpg">](https://soundcloud.com/canblaster/tinashe-indigo-child-interlude-canblaster-rmx)
 
-**Artist**: Noah Breakfast 
+**Artist**: CANBLASTER (Club cheval) 
 
-**Track**: Know (Snippet) (Prod. by Tunji & Noah Breakfast)
+**Track**: Tinashe - Indigo Child Interlude (Canblaster ReMIX)
 
-Last updated at 12/03/2020 21:10
+Last updated at 12/03/2020 21:12
