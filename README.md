@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030?in=opalfruits/sets/mixes)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnixK2P6e51YSgJ9_Un1qrs6n1YjlQgVCLOeM6EJnYE=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCbpqhOEGlI-1lS4GfAeV2vA)
 
-**Artist**: Opal Fruits 
+**Artist**: Soulja Boy 
 
-**Track**: OFMIX - 030 [Dan Larkin]
+**Track**: Soulja Boy "Stove" (SODMG.com Exclusive - Official Music Video)
 
-Last updated at 12/04/2020 08:42
+Last updated at 12/04/2020 11:57
