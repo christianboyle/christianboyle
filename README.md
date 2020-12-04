@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJFT67Teg2Ql6FIT-DP7sRQ-t50x50.jpg">](https://soundcloud.com/twikipedia/online)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REjNzfiiIP4LqVuu-3Tmfmg-t50x50.jpg">](https://soundcloud.com/czdoe/wavenet)
 
-**Artist**: twikipedia 
+**Artist**: C.Z. 
 
-**Track**: online 🌎
+**Track**: Wavenet
 
-Last updated at 12/04/2020 14:59
+Last updated at 12/04/2020 15:01
