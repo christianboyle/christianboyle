@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQ6fyNk9mZC3CiBy-lYRo0A-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-029?in=opalfruits/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: Opal Fruits 
+**Artist**: twikipedia 
 
-**Track**: OFMIX - 029 [Donley]
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 12/04/2020 14:55
+Last updated at 12/04/2020 14:57
