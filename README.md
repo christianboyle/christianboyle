@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iSnHn4WYB7Or0N9K-IYBjXg-t50x50.jpg">](https://soundcloud.com/baauer/3am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000099103879-c7gxg3-t50x50.jpg">](https://soundcloud.com/noahbreakfast/know-snippet-prod-by-tunji-noah-breakfast)
 
-**Artist**: Baauer • PLANET'S MAD 
+**Artist**: Noah Breakfast 
 
-**Track**: 3AM ft AJ Tracey & Jae Stephens
+**Track**: Know (Snippet) (Prod. by Tunji & Noah Breakfast)
 
-Last updated at 12/03/2020 21:08
+Last updated at 12/03/2020 21:10
