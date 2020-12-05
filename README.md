@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfzZXVeq0R4ckUxv-2OVoqg-t50x50.jpg">](https://soundcloud.com/liquidritual/cyberpunk-wave-from-enjoii-serum-pack-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyRpGAzcFfz9i4Gq-gMG9IA-t50x50.jpg">](https://soundcloud.com/metanoiam/pumpin)
 
-**Artist**: Liquid Ritual 
+**Artist**: Metanoia Music 
 
-**Track**: Cyberpunk Wave from enjoii - Serum Pack Demo
+**Track**: NEVERGLOW 🌿 x CASHEW x FineRefined - Pumpin'
 
-Last updated at 12/05/2020 07:24
+Last updated at 12/05/2020 07:26
