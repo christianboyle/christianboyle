@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6koeMKQmgMUzFVC-LTNLjw-t50x50.jpg">](https://soundcloud.com/sol-brah/solwave-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEvzpAVkil8ulX03-jTqwLQ-t50x50.jpg">](https://soundcloud.com/bbjuelz/mirrors)
 
-**Artist**: Sol Brah 
+**Artist**: Juelz 
 
-**Track**: SolWave Vol. 4
+**Track**: Arrested Youth - Mirrors (Juelz Remix)
 
-Last updated at 12/05/2020 07:30
+Last updated at 12/05/2020 07:32
