@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKBYkjYlcojpmLzQ-RLAhqQ-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-aestral-mystxrivl-enjoii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NcXCSSIS8oi0Yn3W-bnvysA-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe69)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: Club Cringe 
 
-**Track**: Exclusive Podcast by ÆSTRAL, MYSTXRIVL, enjoii
+**Track**: CRINGE MIX #69 - GFOTY
 
-Last updated at 12/05/2020 08:12
+Last updated at 12/05/2020 11:26
