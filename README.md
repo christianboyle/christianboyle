@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GL6XJeAWR9wijGFI-Au2yeQ-t50x50.jpg">](https://soundcloud.com/user-655667447/youngboi-mando-done-with-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKBYkjYlcojpmLzQ-RLAhqQ-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-aestral-mystxrivl-enjoii)
 
-**Artist**: Moyne Music 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Youngboi Mando - Done With You
+**Track**: Exclusive Podcast by ÆSTRAL, MYSTXRIVL, enjoii
 
-Last updated at 12/05/2020 08:10
+Last updated at 12/05/2020 08:12
