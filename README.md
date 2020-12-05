@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vNuevJCWC8n5yEF-Zy3Yog-t50x50.jpg">](https://soundcloud.com/rinsefm/machinewoman280820)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: Rinse FM 
+**Artist**: twikipedia 
 
-**Track**: Machine Woman invites Machine Girl - 28 August 2020
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 12/05/2020 11:36
+Last updated at 12/05/2020 12:08
