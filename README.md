@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rXaZJcJfw7t1rCF3-dzElSg-t50x50.jpg">](https://soundcloud.com/rederickmusic/santa-baby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfzZXVeq0R4ckUxv-2OVoqg-t50x50.jpg">](https://soundcloud.com/liquidritual/cyberpunk-wave-from-enjoii-serum-pack-demo)
 
-**Artist**: Rederick 
+**Artist**: Liquid Ritual 
 
-**Track**: Santa Baby w/ ZAKAIDIA (feat. Amanda Belair & Bizzo)
+**Track**: Cyberpunk Wave from enjoii - Serum Pack Demo
 
-Last updated at 12/05/2020 07:22
+Last updated at 12/05/2020 07:24
