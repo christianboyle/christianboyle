@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bZm1QvUp9awguZ1-30Q6Rg-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/nicki-stebbs-communication)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nd6KunwN610JReMU-zJ3Dwg-t50x50.jpg">](https://soundcloud.com/ayyofree/phynic-vials?in=ayyofree/sets/phynic-vials)
 
-**Artist**: High Caliber Records 
+**Artist**: AY YO FREE! 
 
-**Track**: Nicki Stebbs - Communication
+**Track**: Phynic - Vials [Dubstep N Trap Premiere]
 
-Last updated at 12/05/2020 07:36
+Last updated at 12/05/2020 07:38
