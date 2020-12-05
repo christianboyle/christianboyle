@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CHfniwc25lLwkDID-T0odbw-t50x50.jpg">](https://soundcloud.com/frshblood/tryple-eater-surrender?in=the_tryple/sets/surrender-w-eater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GL6XJeAWR9wijGFI-Au2yeQ-t50x50.jpg">](https://soundcloud.com/user-655667447/youngboi-mando-done-with-you)
 
-**Artist**: frshblood 
+**Artist**: Moyne Music 
 
-**Track**: TRYPLE & EATER - SURRENDER
+**Track**: Youngboi Mando - Done With You
 
-Last updated at 12/05/2020 08:08
+Last updated at 12/05/2020 08:10
