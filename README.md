@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFFsZjGnCy9B2FFS-MAlXKw-t50x50.jpg">](https://soundcloud.com/sebseb122/goldfiish)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjKS30Po5B3iaJZ6Gr2ZRqqEdDbizd8qR5Ls0A9=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCBRgoMHBoElamw4iYsgxujg)
 
-**Artist**: SEBii💫 
+**Artist**: lil aaron 
 
-**Track**: GOLDFiiSH [p. vvspipes]
+**Track**: DRUGS [OFFICIAL MUSIC VIDEO]
 
-Last updated at 12/05/2020 16:32
+Last updated at 12/05/2020 16:38
