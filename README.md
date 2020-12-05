@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nd6KunwN610JReMU-zJ3Dwg-t50x50.jpg">](https://soundcloud.com/ayyofree/phynic-vials?in=ayyofree/sets/phynic-vials)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7onq8ImtYa11rhkE-KHxmLg-t50x50.jpg">](https://soundcloud.com/thebeamon/skinny)
 
-**Artist**: AY YO FREE! 
+**Artist**: BEAMON 
 
-**Track**: Phynic - Vials [Dubstep N Trap Premiere]
+**Track**: BEAMON - Skinny Beam (produced By Ja Burd!)
 
-Last updated at 12/05/2020 07:38
+Last updated at 12/05/2020 07:42
