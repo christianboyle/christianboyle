@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y6vU5ET1enL6H9mZ-qzUdGA-t50x50.jpg">](https://soundcloud.com/imhiraeth/nightblure-x-hiraeth-dreamweaver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bZm1QvUp9awguZ1-30Q6Rg-t50x50.jpg">](https://soundcloud.com/highcaliberofficial/nicki-stebbs-communication)
 
-**Artist**: hiræth✨ 
+**Artist**: High Caliber Records 
 
-**Track**: nightblure x hiræth - dreamweaver
+**Track**: Nicki Stebbs - Communication
 
-Last updated at 12/05/2020 07:34
+Last updated at 12/05/2020 07:36
