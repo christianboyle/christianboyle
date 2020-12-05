@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFFsZjGnCy9B2FFS-MAlXKw-t50x50.jpg">](https://soundcloud.com/sebseb122/goldfiish)
 
-**Artist**: Opal Fruits 
+**Artist**: SEBii💫 
 
-**Track**: OFMIX - 030 [Dan Larkin]
+**Track**: GOLDFiiSH [p. vvspipes]
 
-Last updated at 12/05/2020 16:26
+Last updated at 12/05/2020 16:32
