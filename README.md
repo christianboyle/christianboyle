@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUTktDL5x4KyMg17-Wf3SGw-t50x50.jpg">](https://soundcloud.com/inrotationrecs/nostalgix-noises-the-plug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030)
 
-**Artist**: IN / ROTATION 
+**Artist**: Opal Fruits 
 
-**Track**: Nostalgix - The Plug (feat. NOISES)
+**Track**: OFMIX - 030 [Dan Larkin]
 
-Last updated at 12/05/2020 16:24
+Last updated at 12/05/2020 16:26
