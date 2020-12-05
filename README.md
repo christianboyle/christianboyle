@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7onq8ImtYa11rhkE-KHxmLg-t50x50.jpg">](https://soundcloud.com/thebeamon/skinny)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0osggYa7pZKkriXB-xJ2UJA-t50x50.jpg">](https://soundcloud.com/dojinstudios/nakeyo-dunes-wntr-remix)
 
-**Artist**: BEAMON 
+**Artist**: Dojin Studios 
 
-**Track**: BEAMON - Skinny Beam (produced By Ja Burd!)
+**Track**: Nakeyo - Dunes (Wntr Remix)
 
-Last updated at 12/05/2020 07:42
+Last updated at 12/05/2020 07:44
