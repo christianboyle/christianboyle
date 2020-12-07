@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: rifleman 
+**Artist**: smrtdeath 
 
-**Track**: the cover to end all covers
+**Track**: got em mad (prod taxpurposes)
 
-Last updated at 12/07/2020 12:56
+Last updated at 12/07/2020 12:58
