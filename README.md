@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjKS30Po5B3iaJZ6Gr2ZRqqEdDbizd8qR5Ls0A9=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCBRgoMHBoElamw4iYsgxujg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669206872-lhlkur-t50x50.jpg">](https://soundcloud.com/enterthedarknet/a2-hey-gaur?in=billjobs/sets/bill-jobs-2020-playback)
 
-**Artist**: lil aaron 
+**Artist**: DARKNET 
 
-**Track**: DRUGS [OFFICIAL MUSIC VIDEO]
+**Track**: KULDABOLI - HEY GAUR !
 
-Last updated at 12/05/2020 16:38
+Last updated at 12/07/2020 09:00
