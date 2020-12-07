@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCMRMLRXRRyoUC0V-huzZag-t50x50.jpg">](https://soundcloud.com/djbrisk/brisk-x-s3rl-live-2nd-may-2020-twitch-worldexclusive?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t50x50.jpg">](https://soundcloud.com/astrophonica/swandive?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: djbrisk 
+**Artist**: Astrophonica 
 
-**Track**: Brisk x S3RL live, 2nd May 2020 #Twitch #WorldExclusive
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 12/07/2020 13:16
+Last updated at 12/07/2020 15:28
