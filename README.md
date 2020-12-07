@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgQYOAvnGXXh-0-t50x50.jpg">](https://soundcloud.com/lilaaron911/quit-ft-travis-barker?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669206872-lhlkur-t50x50.jpg">](https://soundcloud.com/enterthedarknet/a2-hey-gaur?in=billjobs/sets/bill-jobs-2020-playback)
 
-**Artist**: lil aaron 
+**Artist**: DARKNET 
 
-**Track**: QUIT (feat. Travis Barker)
+**Track**: KULDABOLI - HEY GAUR !
 
-Last updated at 12/07/2020 09:50
+Last updated at 12/07/2020 09:52
