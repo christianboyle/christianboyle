@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t50x50.jpg">](https://soundcloud.com/novaganghellsing/propane?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000450294582-ppgrj7-t50x50.jpg">](https://soundcloud.com/smokeasac/leaveyoubehind?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: NOVAGANG 
+**Artist**: SMOKEASAC 
 
-**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
+**Track**: Leave You Behind
 
-Last updated at 12/07/2020 12:20
+Last updated at 12/07/2020 12:22
