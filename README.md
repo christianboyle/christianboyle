@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244713721-fbc1mg-t50x50.jpg">](https://soundcloud.com/smrtdeath/got-em-mad-prod-taxpurposes-1?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: smrtdeath 
+**Artist**: Monstercat 
 
-**Track**: got em mad (prod taxpurposes)
+**Track**: Stonebank & EMEL - Healing Me
 
-Last updated at 12/07/2020 12:58
+Last updated at 12/07/2020 13:02
