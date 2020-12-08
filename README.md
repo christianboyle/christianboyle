@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NWbMAYcu5LRde8n4-Mq8XzA-t50x50.jpg">](https://soundcloud.com/justconnornyc/ecstasy)
 
-**Artist**: Baauer • PLANET'S MAD 
+**Artist**: just connor 
 
-**Track**: 7 - Cha Cha GAAAS
+**Track**: Just Connor - Ecstasy - ✨ Out Now Everywhere! ✨
 
-Last updated at 12/08/2020 08:43
+Last updated at 12/08/2020 08:45
