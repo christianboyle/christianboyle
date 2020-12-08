@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape11?in=baauer/sets/the-boptape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape12?in=baauer/sets/the-boptape)
 
 **Artist**: Baauer • PLANET'S MAD 
 
-**Track**: 11 - Haley Haley Haley Haley
+**Track**: 12 - Karala Disco Bop
 
-Last updated at 12/08/2020 11:35
+Last updated at 12/08/2020 11:37
