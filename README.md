@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykQHExbLtkJaKtv6-DG7Y1Q-t50x50.jpg">](https://soundcloud.com/jelluvsuxoxox/home)
 
-**Artist**: SURATI 
+**Artist**: JEL: THE DIGITAL DREAM GIRL 
 
-**Track**: hello hello
+**Track**: home
 
-Last updated at 12/08/2020 08:34
+Last updated at 12/08/2020 08:36
