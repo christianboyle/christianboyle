@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JAobKwWP63ZY-0-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/hardcore?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYys8i2gSy6It8yg-Etwdqg-t50x50.jpg">](https://soundcloud.com/itsmesurati/hello?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: WICCA PHASE SPRINGS ETERNAL 
+**Artist**: SURATI 
 
-**Track**: Hardcore
+**Track**: hello hello
 
-Last updated at 12/08/2020 08:32
+Last updated at 12/08/2020 08:34
