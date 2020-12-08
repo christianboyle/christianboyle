@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykQHExbLtkJaKtv6-DG7Y1Q-t50x50.jpg">](https://soundcloud.com/jelluvsuxoxox/home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: JEL: THE DIGITAL DREAM GIRL 
+**Artist**: twikipedia 
 
-**Track**: home
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 12/08/2020 08:36
+Last updated at 12/08/2020 08:38
