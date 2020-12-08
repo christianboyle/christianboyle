@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Iynp8MPf2pXKk8I-PhzNKQ-t50x50.jpg">](https://soundcloud.com/whoispurge/buried)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY1sFx4XBwxSyExR-OJ6dug-t50x50.jpg">](https://soundcloud.com/clubcringe/cringe66)
 
-**Artist**: PURGE 
+**Artist**: Club Cringe 
 
-**Track**: Buried (feat. Minor Lift)
+**Track**: CRINGE MIX #66 - ICE UNDERLORD
 
-Last updated at 12/08/2020 09:41
+Last updated at 12/08/2020 09:45
