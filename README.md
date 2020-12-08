@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape2?in=baauer/sets/the-boptape)
 
-**Artist**: sethany 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
+**Track**: 2 - Yank 2 Diddy Style
 
-Last updated at 12/08/2020 10:19
+Last updated at 12/08/2020 11:09
