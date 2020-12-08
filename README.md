@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wEgOdKsBsvnAtP-GJ1jOA-t50x50.jpg">](https://soundcloud.com/contrejourrecords/menthalo-need-a-hero?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgycRMLeQJeDzaP1-Ugy4Xw-t50x50.jpg">](https://soundcloud.com/lowlypalace/william-black-fairlane-butterflies-ft-dia-frampton-mazare-remix?in_system_playlist=your-playback%3A%3Asaxurn%3A2020)
 
-**Artist**: Contre Jour 
+**Artist**: Lowly. 
 
-**Track**: MENTHALO - NEED A HERO
+**Track**: William Black & Fairlane - Butterflies (ft. Dia Frampton) [Mazare Remix]
 
-Last updated at 12/08/2020 08:25
+Last updated at 12/08/2020 08:28
