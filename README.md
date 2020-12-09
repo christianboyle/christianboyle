@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape7)
 
-**Artist**: twikipedia 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
+**Track**: 7 - Cha Cha GAAAS
 
-Last updated at 12/09/2020 16:23
+Last updated at 12/09/2020 16:25
