@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape19?in=baauer/sets/the-boptape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbUOI4SL5GlRTdFj-0rxVZA-t50x50.jpg">](https://soundcloud.com/longjawns/jawnsdigitalmiragefullset)
 
-**Artist**: Baauer • PLANET'S MAD 
+**Artist**: JAWNS 
 
-**Track**: 19 - What Are Baauer Boys Called ?
+**Track**: Digital Mirage Full Set 11/28/2020
 
-Last updated at 12/09/2020 08:57
+Last updated at 12/09/2020 08:59
