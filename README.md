@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbUOI4SL5GlRTdFj-0rxVZA-t50x50.jpg">](https://soundcloud.com/longjawns/jawnsdigitalmiragefullset)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: JAWNS 
+**Artist**: twikipedia 
 
-**Track**: Digital Mirage Full Set 11/28/2020
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 12/10/2020 10:47
+Last updated at 12/10/2020 11:15
