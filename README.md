@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSPzEJaUBC7yEvSu-UWH3sg-t50x50.jpg">](https://soundcloud.com/datafruits/ksd6700-r-04-in-her-xxx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rysS7Ib6pfx0nri0-LX47cQ-t50x50.jpg">](https://soundcloud.com/mir4ge/you-hurting-me)
 
-**Artist**: datafruits 
+**Artist**: mir4ge 
 
-**Track**: ksd6700, R-04 - In Her XXX (Orlando Boom mix)
+**Track**: YOU HURTING ME
 
-Last updated at 12/10/2020 08:05
+Last updated at 12/10/2020 08:07
