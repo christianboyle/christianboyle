@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nrj8lm6TPLY09TDD-1tZUcA-t50x50.jpg">](https://soundcloud.com/lofreqrecords/smokestax-bring-it)
 
-**Artist**: Baauer • PLANET'S MAD 
+**Artist**: LoFreq Records 
 
-**Track**: 7 - Cha Cha GAAAS
+**Track**: Smokestax - Bring It [Bass Feeds the Soul Premiere]
 
-Last updated at 12/09/2020 16:25
+Last updated at 12/09/2020 19:44
