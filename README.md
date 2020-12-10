@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYGJbzNjr0vUQtke-RrV3kA-t50x50.jpg">](https://soundcloud.com/itsalongstoryshort/test-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5PPm8zrg1CoAuel-DzdtEg-t50x50.jpg">](https://soundcloud.com/itshellbound/hope)
 
-**Artist**: longstoryshort 
+**Artist**: HELLBOUND! 
 
-**Track**: Test Me
+**Track**: EPROM - HOPE (HELLBOUND! REMIX)
 
-Last updated at 12/09/2020 20:00
+Last updated at 12/09/2020 20:02
