@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bPyx0VFgUVaZ4IlW-ZdRb0g-t50x50.jpg">](https://soundcloud.com/dimmakrecords/rad-cat-diamond-with-gloria-kim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bJN8QylLnpL10KtU-drZSjA-t50x50.jpg">](https://soundcloud.com/juuku/latehour)
 
-**Artist**: Dim Mak Records 
+**Artist**: juuku 
 
-**Track**: Rad Cat - Diamond (with Gloria Kim) [FREE DOWNLOAD]
+**Track**: late hour
 
-Last updated at 12/09/2020 19:46
+Last updated at 12/09/2020 19:50
