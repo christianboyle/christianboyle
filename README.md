@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCDmJZpwwqOY-0-t50x50.png">](https://soundcloud.com/sanholobeats/bb-u-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s5sDx0V76Jd1-0-t50x50.jpg">](https://soundcloud.com/gryffinofficial/gryffin-body-back-vip-remix)
 
-**Artist**: San Holo 
+**Artist**: Gryffin 
 
-**Track**: bb u ok?
+**Track**: Gryffin - Body Back (VIP Remix) [feat. Maia Wright]
 
-Last updated at 12/09/2020 20:14
+Last updated at 12/10/2020 07:59
