@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rlzl0mf0mOTtMyxc-KjoYTg-t50x50.jpg">](https://soundcloud.com/supfranklin/options-prod-4am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CHfniwc25lLwkDID-T0odbw-t50x50.jpg">](https://soundcloud.com/frshblood/viperactive-hookup?in=viperactive/sets/hookup)
 
-**Artist**: franklin 
+**Artist**: frshblood 
 
-**Track**: options (prod. 4am)
+**Track**: Viperactive - Hookup
 
-Last updated at 12/09/2020 20:06
+Last updated at 12/09/2020 20:08
