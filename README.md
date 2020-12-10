@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5PPm8zrg1CoAuel-DzdtEg-t50x50.jpg">](https://soundcloud.com/itshellbound/hope)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rlzl0mf0mOTtMyxc-KjoYTg-t50x50.jpg">](https://soundcloud.com/supfranklin/options-prod-4am)
 
-**Artist**: HELLBOUND! 
+**Artist**: franklin 
 
-**Track**: EPROM - HOPE (HELLBOUND! REMIX)
+**Track**: options (prod. 4am)
 
-Last updated at 12/09/2020 20:02
+Last updated at 12/09/2020 20:06
