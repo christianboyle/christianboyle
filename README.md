@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-urrGyjrXorfd-0-t50x50.png">](https://soundcloud.com/i-set-my-friends-on-fire-official/things-that-rhyme-with-orange)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t50x50.jpg">](https://soundcloud.com/baauer/boptape7)
 
-**Artist**: I Set My Friends On Fire 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: Things That Rhyme With Orange
+**Track**: 7 - Cha Cha GAAAS
 
-Last updated at 12/10/2020 11:46
+Last updated at 12/10/2020 11:50
