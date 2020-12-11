@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I74jZaMgk9sOX4tC-CoVjQw-t50x50.jpg">](https://soundcloud.com/windtal/verve-master-05)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jj2Zv67eYzcl3b5t-wDgm7g-t50x50.jpg">](https://soundcloud.com/deffyme/baltic-sea)
 
-**Artist**: Windtal 
+**Artist**: deffyme 
 
-**Track**: Verve
+**Track**: Baltic Sea
 
-Last updated at 12/11/2020 17:49
+Last updated at 12/11/2020 17:55
