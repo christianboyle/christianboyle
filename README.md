@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246470298-tbszkr-t50x50.jpg">](https://soundcloud.com/djyungvampire13/im-just-an-hologram)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174160899-ey02az-t50x50.jpg">](https://soundcloud.com/youngpirelli/highed-up-w-kloudbug)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: SOUDIERE 
 
-**Track**: IM JUST AN HOLOGRAM (FREE DOWNLOAD)
+**Track**: HIGHED UP w/ kloudbug
 
-Last updated at 12/11/2020 08:02
+Last updated at 12/11/2020 08:38
