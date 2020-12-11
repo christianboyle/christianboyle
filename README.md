@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466586772-a93a3z-t50x50.jpg">](https://soundcloud.com/killmythic/i-got-da-stick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzgBzZ6gr0vuUvut-WInEkA-t50x50.jpg">](https://soundcloud.com/onpointnetwork/blind)
 
-**Artist**: Mythic 
+**Artist**: On Point Records 
 
-**Track**: I GOT DA STICC
+**Track**: Cytrax - Blind
 
-Last updated at 12/11/2020 08:46
+Last updated at 12/11/2020 08:50
