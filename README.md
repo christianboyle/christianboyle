@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zF7z1emEMdTSi6gX-cOj5aA-t50x50.jpg">](https://soundcloud.com/darkheartrecordings/the-memoir-x-beolost-late)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xaz8KNn3aLLNE2wZ-m8DXHQ-t50x50.jpg">](https://soundcloud.com/futurecosmetiq/fcq042-martins-hundred-venice)
 
-**Artist**: Dark Heart Recordings 
+**Artist**: Future Cosmetiq 
 
-**Track**: Thèmemoir x Beolost - Late
+**Track**: FCQ042 Martins Hundred - Venice
 
-Last updated at 12/11/2020 17:07
+Last updated at 12/11/2020 17:09
