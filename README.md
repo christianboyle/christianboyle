@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AJTeKpCLzznRpIWL-5Largg-t50x50.jpg">](https://soundcloud.com/armnhmr/fragile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wom0Gryf2C73vpFD-M9kipw-t50x50.jpg">](https://soundcloud.com/echoescollective/kng-shift)
 
-**Artist**: ARMNHMR 
+**Artist**: Echoes Collective 
 
-**Track**: ARMNHMR - Fragile (feat. Melanie Fontana)
+**Track**: KNG - Shift
 
-Last updated at 12/10/2020 20:34
+Last updated at 12/10/2020 20:36
