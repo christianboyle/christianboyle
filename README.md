@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cvJmS0Dt1aJhgHNG-hCGfcg-t50x50.jpg">](https://soundcloud.com/drevm/stuntin?in=drevm/sets/rituals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2IJXa16opXfzPNZ-pIzVdA-t50x50.jpg">](https://soundcloud.com/lisagbeats/aint-gotta-say)
 
-**Artist**: DREVM 
+**Artist**: LISAG✴ 
 
-**Track**: stuntin'
+**Track**: AINT GOTTA SAY
 
-Last updated at 12/11/2020 10:11
+Last updated at 12/11/2020 10:13
