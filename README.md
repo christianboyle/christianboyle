@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174160899-ey02az-t50x50.jpg">](https://soundcloud.com/youngpirelli/highed-up-w-kloudbug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000148894609-p9e0s9-t50x50.jpg">](https://soundcloud.com/triplesixlord/promethazine-pt2)
 
-**Artist**: SOUDIERE 
+**Artist**: 6-6-6 
 
-**Track**: HIGHED UP w/ kloudbug
+**Track**: Promethazine pt.2
 
-Last updated at 12/11/2020 08:38
+Last updated at 12/11/2020 08:42
