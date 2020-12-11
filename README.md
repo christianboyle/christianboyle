@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cmeyjx1RAtjgvtGH-1Lsuxg-t50x50.jpg">](https://soundcloud.com/auelmusic/low-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zF7z1emEMdTSi6gX-cOj5aA-t50x50.jpg">](https://soundcloud.com/darkheartrecordings/the-memoir-x-beolost-late)
 
-**Artist**: AUEL 
+**Artist**: Dark Heart Recordings 
 
-**Track**: Low Light
+**Track**: Thèmemoir x Beolost - Late
 
-Last updated at 12/11/2020 17:03
+Last updated at 12/11/2020 17:07
