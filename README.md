@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjYZ6OL6VUlVCgzV-nziR9g-t50x50.jpg">](https://soundcloud.com/julienfromflorida/plot-twist-lol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWWnygznvA3vqbrc-Nt1x8w-t50x50.jpg">](https://soundcloud.com/prymomusic/paramore-still-into-you-prymo-remix-master-1)
 
-**Artist**: 💛JULIEN FROM FLORIDA💛 
+**Artist**: PRYMO 
 
-**Track**: 💛plot twist lol💛
+**Track**: Paramore- Still Into You (PRYMO Remix) [FREE DOWNLOAD]
 
-Last updated at 12/11/2020 09:04
+Last updated at 12/11/2020 09:06
