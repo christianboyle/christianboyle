@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jR6onWuztrht3FFb-btAD6Q-t50x50.jpg">](https://soundcloud.com/blazingbeatzz/wntn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjYZ6OL6VUlVCgzV-nziR9g-t50x50.jpg">](https://soundcloud.com/julienfromflorida/plot-twist-lol)
 
-**Artist**: BlazinG 
+**Artist**: 💛JULIEN FROM FLORIDA💛 
 
-**Track**: W N T N
+**Track**: 💛plot twist lol💛
 
-Last updated at 12/11/2020 09:00
+Last updated at 12/11/2020 09:04
