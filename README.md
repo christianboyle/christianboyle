@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMy0asfrWvW3df20-XFyTcA-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-007-nothing-left?in=txrecords/sets/tx-records-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbmC6bXkoPS8zzd4-LzhL8Q-t50x50.jpg">](https://soundcloud.com/gradientperspective/josh-teed-warrior)
 
-**Artist**: TX Records 
+**Artist**: The Gradient Perspective 
 
-**Track**: Podcast 007 | Nothing Left
+**Track**: Josh Teed - Warrior
 
-Last updated at 12/11/2020 09:43
+Last updated at 12/11/2020 09:55
