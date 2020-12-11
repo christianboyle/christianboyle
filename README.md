@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3a4ElFdSFSFQWORF-8yXBGA-t50x50.jpg">](https://soundcloud.com/8parallel/euthymia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuuGmBlsmMyGXEce-tx9zQw-t50x50.jpg">](https://soundcloud.com/0phe1ia/cry-horge-remix)
 
-**Artist**: 8 PARALLEL 
+**Artist**: Ophelia 
 
-**Track**: Euthymia
+**Track**: Cry - Horge Remix
 
-Last updated at 12/11/2020 17:18
+Last updated at 12/11/2020 17:22
