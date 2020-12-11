@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THc6zWTZyA4sb8qM-QtMAHw-t50x50.png">](https://soundcloud.com/xsntnlx/tides)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNzvMKmN2VxsidxH-a6vQ9Q-t50x50.jpg">](https://soundcloud.com/etller/greenleaf)
 
-**Artist**: SNTNL 
+**Artist**: etller 
 
-**Track**: Tides
+**Track**: GREENLEAF
 
-Last updated at 12/11/2020 17:33
+Last updated at 12/11/2020 17:39
