@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246470298-tbszkr-t50x50.jpg">](https://soundcloud.com/djyungvampire13/im-just-an-hologram)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466586772-a93a3z-t50x50.jpg">](https://soundcloud.com/killmythic/i-got-da-stick)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: Mythic 
 
-**Track**: IM JUST AN HOLOGRAM (FREE DOWNLOAD)
+**Track**: I GOT DA STICC
 
-Last updated at 12/11/2020 08:44
+Last updated at 12/11/2020 08:46
