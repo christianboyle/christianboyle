@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXf5zEJmH7qC4v0D-4RIa5A-t50x50.jpg">](https://soundcloud.com/gash3d/fused-shadows)
 
-**Artist**: Opal Fruits 
+**Artist**: Gash3d 
 
-**Track**: OFMIX - 030 [Dan Larkin]
+**Track**: Fused Shadows
 
-Last updated at 12/11/2020 16:26
+Last updated at 12/11/2020 16:54
