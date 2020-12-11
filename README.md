@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2IJXa16opXfzPNZ-pIzVdA-t50x50.jpg">](https://soundcloud.com/lisagbeats/aint-gotta-say)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbmC6bXkoPS8zzd4-LzhL8Q-t50x50.jpg">](https://soundcloud.com/gradientperspective/josh-teed-warrior)
 
-**Artist**: LISAG✴ 
+**Artist**: The Gradient Perspective 
 
-**Track**: AINT GOTTA SAY
+**Track**: Josh Teed - Warrior
 
-Last updated at 12/11/2020 10:13
+Last updated at 12/11/2020 10:15
