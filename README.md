@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwng5c2HaMJXl85tHBeKEEfZ3KBd8Ce6XvtxIB_BHqw=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCc7_woMAIVIW2mAr1rPCsFQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMy0asfrWvW3df20-XFyTcA-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-007-nothing-left?in=txrecords/sets/tx-records-series)
 
-**Artist**: Paramore 
+**Artist**: TX Records 
 
-**Track**: Paramore: That's What You Get [OFFICIAL VIDEO]
+**Track**: Podcast 007 | Nothing Left
 
-Last updated at 12/11/2020 09:26
+Last updated at 12/11/2020 09:43
