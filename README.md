@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2IJXa16opXfzPNZ-pIzVdA-t50x50.jpg">](https://soundcloud.com/lisagbeats/aint-gotta-say)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jR6onWuztrht3FFb-btAD6Q-t50x50.jpg">](https://soundcloud.com/blazingbeatzz/wntn)
 
-**Artist**: LISAG✴ 
+**Artist**: BlazinG 
 
-**Track**: AINT GOTTA SAY
+**Track**: W N T N
 
-Last updated at 12/11/2020 08:58
+Last updated at 12/11/2020 09:00
