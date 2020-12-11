@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbmC6bXkoPS8zzd4-LzhL8Q-t50x50.jpg">](https://soundcloud.com/gradientperspective/josh-teed-warrior)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyMwKTOiTITCp3yX-H6EKww-t50x50.jpg">](https://soundcloud.com/cgilly-1/sounds-like-you)
 
-**Artist**: The Gradient Perspective 
+**Artist**: Chloe Gilligan 
 
-**Track**: Josh Teed - Warrior
+**Track**: Sounds Like You
 
-Last updated at 12/11/2020 09:55
+Last updated at 12/11/2020 10:05
