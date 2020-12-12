@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYGJbzNjr0vUQtke-RrV3kA-t50x50.jpg">](https://soundcloud.com/itsalongstoryshort/test-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xr0yC7Qb2bKOTtgj-Q1TqJA-t50x50.jpg">](https://soundcloud.com/detrixmusic/push-the-button)
 
-**Artist**: longstoryshort 
+**Artist**: DETRIX 
 
-**Track**: Test Me
+**Track**: Detrix - Push the Button
 
-Last updated at 12/12/2020 09:24
+Last updated at 12/12/2020 09:28
