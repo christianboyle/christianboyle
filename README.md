@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRLh1MZBvaynrHqO-Xrh2zQ-t50x50.jpg">](https://soundcloud.com/min010/precipice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHyMRTP7k5GWlaQM-RLHW3Q-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-021)
 
-**Artist**: MiN01 
+**Artist**: Opal Fruits 
 
-**Track**: Precipice
+**Track**: OFMIX - 021 [KTrek]
 
-Last updated at 12/11/2020 19:23
+Last updated at 12/11/2020 19:26
