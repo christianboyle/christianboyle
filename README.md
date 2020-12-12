@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gkLxnsDyZqelr7ex-wXCFgw-t50x50.jpg">](https://soundcloud.com/roughcutdiamonds/keyes-prod-aobeats-w2times?in=roughcutdiamonds/sets/boosie-boo-keyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kT6YixOqRLSzxzQc-HuH48g-t50x50.jpg">](https://soundcloud.com/syence/syence-x-molly-moore-reset-2)
 
-**Artist**: R.C.D. 
+**Artist**: syence 
 
-**Track**: Keyes (prod. AOBeats + W2)
+**Track**: Syence x Molly Moore - Reset
 
-Last updated at 12/12/2020 09:37
+Last updated at 12/12/2020 09:39
