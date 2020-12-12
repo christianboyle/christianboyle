@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8G3fPFwXUEkdpgs-lZ0pmA-t50x50.jpg">](https://soundcloud.com/tsurha/luvhurts-w-mji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rws0G9hdD3xkSmAQ-8WHQRw-t50x50.jpg">](https://soundcloud.com/leftrightmusic/leftright-aylen-beg-out-now)
 
-**Artist**: Ryder 
+**Artist**: Left/Right 
 
-**Track**: luvhurts w// mji
+**Track**: Left/Right, Aylen - Beg (OUT NOW)
 
-Last updated at 12/12/2020 09:47
+Last updated at 12/12/2020 09:49
