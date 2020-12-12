@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0jlBL7wyvZooFef-Dm6sUA-t50x50.jpg">](https://soundcloud.com/vltile/bringer-of-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9esyfC5u1YfK6tbc-tom6sA-t50x50.jpg">](https://soundcloud.com/kytoboi/kuro)
 
-**Artist**: †Fracⱦured Self† 
+**Artist**: kytoboi 
 
-**Track**: Bringer Of Light
+**Track**: kuro
 
-Last updated at 12/11/2020 19:05
+Last updated at 12/11/2020 19:07
