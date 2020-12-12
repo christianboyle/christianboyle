@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jyff7Oo0lyrIde6s-lrhLAg-t50x50.jpg">](https://soundcloud.com/apoloslashslashapolo/selcouth-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6xoSQq3a9n06fyqz-kQcsnw-t50x50.jpg">](https://soundcloud.com/no-owls/down)
 
-**Artist**: apolo//apolo 
+**Artist**: NO OWLS 
 
-**Track**: Selcouth (teaser)
+**Track**: Down
 
-Last updated at 12/11/2020 18:40
+Last updated at 12/11/2020 18:46
