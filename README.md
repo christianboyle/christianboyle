@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCO3hbMPJzbWhaoV-f42hAQ-t50x50.jpg">](https://soundcloud.com/umdotdot/skrillex-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6kBzmJWaxVByJsG-O4Nvzg-t50x50.jpg">](https://soundcloud.com/inextremis/deadmirrors)
 
-**Artist**: um.. 
+**Artist**: Inextremis 
 
-**Track**: skrillex 6
+**Track**: CODENAME:NIOCELL - DEADMIRRORS (feat. Jay Parmesan & Akira Flay)
 
-Last updated at 12/12/2020 09:14
+Last updated at 12/12/2020 09:18
