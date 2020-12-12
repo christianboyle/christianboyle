@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxQD0w47ZkBxBGrs-AwVKFA-t50x50.jpg">](https://soundcloud.com/842collective/eqos-pinata)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oux1RxgMC79TariZ-Ld3dLw-t50x50.jpg">](https://soundcloud.com/nadea-tl/undefined)
 
-**Artist**: 842 Collective 
+**Artist**: Nadea Tl 
 
-**Track**: eqos - piñata
+**Track**: Undefined emotions
 
-Last updated at 12/11/2020 23:54
+Last updated at 12/11/2020 23:56
