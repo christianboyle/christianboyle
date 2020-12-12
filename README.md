@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0LHeQwzmxbDX5yAQ-Dky9mQ-t50x50.jpg">](https://soundcloud.com/vhscrl/escher)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SEVJEZBuIAwFuzz-5jAIMw-t50x50.jpg">](https://soundcloud.com/asyrion/mothra)
 
-**Artist**: Vhsceral 
+**Artist**: Asyrion 
 
-**Track**: Escher
+**Track**: Mothra
 
-Last updated at 12/11/2020 18:33
+Last updated at 12/11/2020 18:35
