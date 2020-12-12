@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AaYZZQlvq4Fi9sDb-f3jgRA-t50x50.jpg">](https://soundcloud.com/futurecosmetiq/fcq040-charles-the-fury-alpha-omega)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XaphCuSNoyR0OJ8d-eLN1vg-t50x50.jpg">](https://soundcloud.com/plasmaabuse/hayz-zheng-vip-out-now-on-zheng-ep)
 
-**Artist**: Future Cosmetiq 
+**Artist**: Plasma Abuse 
 
-**Track**: FCQ040 Charles & The Fury - Alpha & Omega
+**Track**: Hayz - Zheng VIP (Out now on "Zheng" EP)
 
-Last updated at 12/11/2020 18:11
+Last updated at 12/11/2020 18:19
