@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gkLxnsDyZqelr7ex-wXCFgw-t50x50.jpg">](https://soundcloud.com/roughcutdiamonds/boosie-boo-prod-aobeats-w2times?in=roughcutdiamonds/sets/boosie-boo-keyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gkLxnsDyZqelr7ex-wXCFgw-t50x50.jpg">](https://soundcloud.com/roughcutdiamonds/keyes-prod-aobeats-w2times?in=roughcutdiamonds/sets/boosie-boo-keyes)
 
 **Artist**: R.C.D. 
 
-**Track**: Boosie Boo (prod. AOBeats + W2)
+**Track**: Keyes (prod. AOBeats + W2)
 
-Last updated at 12/12/2020 09:34
+Last updated at 12/12/2020 09:37
