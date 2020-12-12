@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xr0yC7Qb2bKOTtgj-Q1TqJA-t50x50.jpg">](https://soundcloud.com/detrixmusic/push-the-button)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YqyCZ08JJzMNDvlc-Bktl8g-t50x50.jpg">](https://soundcloud.com/goodsociety/purpleplanetdance)
 
-**Artist**: DETRIX 
+**Artist**: Good Society 
 
-**Track**: Detrix - Push the Button
+**Track**: GEOTHEORY - PURPLE PLANET DANCE
 
-Last updated at 12/12/2020 09:28
+Last updated at 12/12/2020 09:30
