@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVQbzySHszEajiFq-ccB2qg-t50x50.jpg">](https://soundcloud.com/listenbeltran/jack-harlow-whats-poppin-beltran-jame-c-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw0MqzfzvhRdtJDm-d6Eemg-t50x50.jpg">](https://soundcloud.com/nightmoderecs/juelz-pour-all-night-feat-thelonious-1)
 
-**Artist**: Beltran 
+**Artist**: NIGHT MODE 
 
-**Track**: Jack Harlow - Whats Poppin (Beltran & Jame C Edit)
+**Track**: Juelz - Pour All Night (Feat. Thelonious)
 
-Last updated at 12/12/2020 09:02
+Last updated at 12/12/2020 09:08
