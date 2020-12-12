@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjd0xpUxtyKDHybG-JbiLHQ-t50x50.jpg">](https://soundcloud.com/doctorpcircus/franky-nuts-lose-control-feat-danyka-nadeau-doctor-p-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVQbzySHszEajiFq-ccB2qg-t50x50.jpg">](https://soundcloud.com/listenbeltran/jack-harlow-whats-poppin-beltran-jame-c-edit)
 
-**Artist**: Doctor P 
+**Artist**: Beltran 
 
-**Track**: Franky Nuts - Lose Control feat. Danyka Nadeau (Doctor P Remix)
+**Track**: Jack Harlow - Whats Poppin (Beltran & Jame C Edit)
 
-Last updated at 12/12/2020 09:00
+Last updated at 12/12/2020 09:02
