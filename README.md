@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wmjqyYTj2Z0d4DEN-qCa7xA-t50x50.jpg">](https://soundcloud.com/e-lemental/burial-loner-elemental-dark-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zex0Ap1yiDA4jysd-daQZrA-t50x50.jpg">](https://soundcloud.com/backgroundnoiseevents/duckem-magnetar)
 
-**Artist**: E.lementaL 
+**Artist**: Background Noise 
 
-**Track**: Burial - Loner [E.lementaL Dark Edit]
+**Track**: Duckem - Magnetar
 
-Last updated at 12/11/2020 18:03
+Last updated at 12/11/2020 18:07
