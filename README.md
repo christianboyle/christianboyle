@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vrlzc8yunoNwhSjO-lKf9Qg-t50x50.jpg">](https://soundcloud.com/joel_sevin/broken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjd0xpUxtyKDHybG-JbiLHQ-t50x50.jpg">](https://soundcloud.com/doctorpcircus/franky-nuts-lose-control-feat-danyka-nadeau-doctor-p-remix)
 
-**Artist**: joel 'sevin' 
+**Artist**: Doctor P 
 
-**Track**: Broken
+**Track**: Franky Nuts - Lose Control feat. Danyka Nadeau (Doctor P Remix)
 
-Last updated at 12/12/2020 08:58
+Last updated at 12/12/2020 09:00
