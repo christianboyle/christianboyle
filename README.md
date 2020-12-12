@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzNtWWA7UwnfYZM6-X0s9xA-t50x50.jpg">](https://soundcloud.com/blind-season/one-final-goodbye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8G3fPFwXUEkdpgs-lZ0pmA-t50x50.jpg">](https://soundcloud.com/tsurha/luvhurts-w-mji)
 
-**Artist**: Blind Season 
+**Artist**: Ryder 
 
-**Track**: One Final Goodbye
+**Track**: luvhurts w// mji
 
-Last updated at 12/12/2020 09:43
+Last updated at 12/12/2020 09:47
