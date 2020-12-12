@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNzvMKmN2VxsidxH-a6vQ9Q-t50x50.jpg">](https://soundcloud.com/etller/8-9-20-nn-track-2-finish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LU5SjffwAip7Stlt-sKyqRw-t50x50.jpg">](https://soundcloud.com/annabmaymusic/anna-b-may-oliver-franken-floating)
 
-**Artist**: etller 
+**Artist**: Anna B May 
 
-**Track**: NODALOC
+**Track**: Anna B May & Oliver Franken - Floating
 
-Last updated at 12/11/2020 21:41
+Last updated at 12/11/2020 21:43
