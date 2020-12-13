@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rws0G9hdD3xkSmAQ-8WHQRw-t50x50.jpg">](https://soundcloud.com/leftrightmusic/leftright-aylen-beg-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xr0yC7Qb2bKOTtgj-Q1TqJA-t50x50.jpg">](https://soundcloud.com/detrixmusic/push-the-button)
 
-**Artist**: Left/Right 
+**Artist**: DETRIX 
 
-**Track**: Left/Right, Aylen - Beg (OUT NOW)
+**Track**: Detrix - Push the Button
 
-Last updated at 12/12/2020 09:49
+Last updated at 12/12/2020 21:08
