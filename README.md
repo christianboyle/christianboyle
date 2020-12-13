@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03tBW8LXVMAzH9kK-gYCviQ-t50x50.jpg">](https://soundcloud.com/xlofi_vibex/ultraviolet-rough-draft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weT8usnyNZWWEQYM-kcib3Q-t50x50.jpg">](https://soundcloud.com/y4ndere/desire)
 
-**Artist**: Lofi Vibe✨ 
+**Artist**: yandere 
 
-**Track**: Ultraviolet feat. Lil Koi [+Fatherlucas]
+**Track**: desire
 
-Last updated at 12/12/2020 21:12
+Last updated at 12/12/2020 21:14
