@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weT8usnyNZWWEQYM-kcib3Q-t50x50.jpg">](https://soundcloud.com/y4ndere/desire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZWzCRK1C8xdfuOsc-QpdWww-t50x50.jpg">](https://soundcloud.com/djyungvampire13/die-trill-vol3-mixtape)
 
-**Artist**: yandere 
+**Artist**: DJ YUNG VAMP 
 
-**Track**: desire
+**Track**: DIE TRILL VOL.3 MIXTAPE (MUSIC VIDEO + SPOTIFY OUT NOW)
 
-Last updated at 12/12/2020 21:14
+Last updated at 12/14/2020 08:06
