@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Oz9ZJGJls0dQvKe-QLGZcA-t50x50.jpg">](https://soundcloud.com/youngpirelli/dj-smokey-soudiere-only-2-left-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hlvThF9dxvtWbzvJ-41GsZw-t50x50.jpg">](https://soundcloud.com/holymob/volume9)
 
-**Artist**: SOUDIERE 
+**Artist**: HOLY MOB 
 
-**Track**: DJ SMOKEY & SOUDIERE - ONLY 2 LEFT ALIVE (Full Album)
+**Track**: HOLY MOB VOLUME 9
 
-Last updated at 12/14/2020 08:49
+Last updated at 12/14/2020 09:47
