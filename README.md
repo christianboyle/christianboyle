@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5YVSQL6B56Ctx8U-9ws5Bw-t50x50.jpg">](https://soundcloud.com/bamdcamp/lights-have-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlOk2NZUfXLWkAiD-BLryeA-t50x50.jpg">](https://soundcloud.com/draedaskimask/consumerizm-full-album-2020)
 
-**Artist**: BACKWHEN² 
+**Artist**: DRAE DA SKIMASK 
 
-**Track**: Lights Have Eyes
+**Track**: CONSUMERIZM (FULL ALBUM ft SOUDIERE & SUNSON) AVAILABLE FROM BANDCAMP AND STREAMING APPS
 
-Last updated at 12/14/2020 10:25
+Last updated at 12/14/2020 11:04
