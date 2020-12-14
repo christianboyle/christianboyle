@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZWzCRK1C8xdfuOsc-QpdWww-t50x50.jpg">](https://soundcloud.com/djyungvampire13/die-trill-vol3-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVsM0C9fKkg4uBrI-A46ETQ-t50x50.jpg">](https://soundcloud.com/haresoff/dirty-audio-flosstradamus-blast-yo-head-hares-flip-1?in=arkadiaproject/sets/electronic-patterns)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: HARES 
 
-**Track**: DIE TRILL VOL.3 MIXTAPE (MUSIC VIDEO + SPOTIFY OUT NOW)
+**Track**: Dirty Audio & Flosstradamus - Blast Yo Head (HARES Flip)
 
-Last updated at 12/14/2020 12:43
+Last updated at 12/14/2020 17:25
