@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVsM0C9fKkg4uBrI-A46ETQ-t50x50.jpg">](https://soundcloud.com/haresoff/dirty-audio-flosstradamus-blast-yo-head-hares-flip-1?in=arkadiaproject/sets/electronic-patterns)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bRq2Ga3HvhGn5ez-osX9PQ-t50x50.jpg">](https://soundcloud.com/historyofhappyhardcore/saturday-seshions-future-trance-2-hdsn-live-on-twitch-121220)
 
-**Artist**: HARES 
+**Artist**: History Of Happy Hardcore 
 
-**Track**: Dirty Audio & Flosstradamus - Blast Yo Head (HARES Flip)
+**Track**: Saturday Seshions 'Future Trance 2' - HDSN (Live On Twitch 12/12/20)
 
-Last updated at 12/14/2020 17:25
+Last updated at 12/14/2020 17:27
