@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RhLzwxVn6xxjDnJR-GUJSjA-t50x50.jpg">](https://soundcloud.com/bitbird/posij-fifteen-minutes-ft-tzar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yCXQN9Wq4wh9KRV-eYXMfA-t50x50.jpg">](https://soundcloud.com/confession/cloverdale-open-up)
 
-**Artist**: bitbird 
+**Artist**: CONFESSION 
 
-**Track**: Posij - Fifteen Minutes (ft. Tzar)
+**Track**: Cloverdale - Open Up
 
-Last updated at 12/15/2020 16:30
+Last updated at 12/15/2020 16:32
