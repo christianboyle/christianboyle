@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8sfEnwNRSA9Nfey-eKNf9g-t50x50.jpg">](https://soundcloud.com/mesmeristmusic/pinky-the-brain-mesmerist-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i887beqioqijiwtW-HXSp7A-t50x50.jpg">](https://soundcloud.com/emoticonharddance/asktheinfluencer-oneseventy-jts-technikore-s1e14)
 
-**Artist**: Mesmerist 
+**Artist**: ⚪️⚫️ Emoticon ⚫️⚪️ 
 
-**Track**: Pinky & The Brain (Mesmerist Remix)
+**Track**: #AsktheInfluencer - ONESEVENTY (JTS & TECHNIKORE) S1E14
 
-Last updated at 12/15/2020 17:22
+Last updated at 12/15/2020 17:26
