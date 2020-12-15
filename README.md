@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-juurpyYw7RKW5DyY-6GXFFg-t50x50.jpg">](https://soundcloud.com/omasofficial/apashe-uebokgotta-run-feat-instasamka-omas-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CWhuAd3kEPqZ-0-t50x50.png">](https://soundcloud.com/jaycenamour/feel-it)
 
-**Artist**: OMAS 
+**Artist**: Jaycen A'mour 
 
-**Track**: Apashe ~ Uebok (Gotta Run)(Feat. Instasamka) (OMAS REMIX)
+**Track**: Feel It
 
-Last updated at 12/15/2020 11:32
+Last updated at 12/15/2020 14:51
