@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw0MqzfzvhRdtJDm-d6Eemg-t50x50.jpg">](https://soundcloud.com/nightmoderecs/juelz-pour-all-night-feat-thelonious-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0z0AnDzvEEzaVRK1-NBYJsQ-t50x50.jpg">](https://soundcloud.com/slangdogs/crypt)
 
-**Artist**: NIGHT MODE 
+**Artist**: Slang Dogs 
 
-**Track**: Juelz - Pour All Night (Feat. Thelonious)
+**Track**: Crypt
 
-Last updated at 12/15/2020 17:04
+Last updated at 12/15/2020 17:08
