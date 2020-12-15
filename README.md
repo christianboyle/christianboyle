@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Pd4muricDxZnqCb-P4pMwg-t50x50.jpg">](https://soundcloud.com/fellsofficial/linkin-park-what-ive-done-fells-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66fzyrHe6G3L-0-t50x50.png">](https://soundcloud.com/hotelgarudamusic/leave-you-covex-remix?in=covexmusic/sets/hotel-garuda-leave-you-covex)
 
-**Artist**: Fells 
+**Artist**: HOTEL GARUDA 
 
-**Track**: Linkin Park - What I've Done (Fells Remix)
+**Track**: Leave You (Covex Remix)
 
-Last updated at 12/15/2020 16:54
+Last updated at 12/15/2020 16:56
