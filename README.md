@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A6DlgLwZqM8j2Atf-9J25Xw-t50x50.jpg">](https://soundcloud.com/officialsbu/noisecontrollers-yellow-minute-sbu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw0MqzfzvhRdtJDm-d6Eemg-t50x50.jpg">](https://soundcloud.com/nightmoderecs/juelz-pour-all-night-feat-thelonious-1)
 
-**Artist**: SBU 
+**Artist**: NIGHT MODE 
 
-**Track**: Noisecontrollers - Yellow Minute (SBU Remix)
+**Track**: Juelz - Pour All Night (Feat. Thelonious)
 
-Last updated at 12/15/2020 17:00
+Last updated at 12/15/2020 17:04
