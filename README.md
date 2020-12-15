@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-alRiNFIQJJv2-0-t50x50.png">](https://soundcloud.com/droeloemusic/roadside-flowers-feat-iris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QC3VfRINTRAk6s8-2Lm5Mw-t50x50.jpg">](https://soundcloud.com/loudkult/phzes-gabby-patrice-time-zones)
 
-**Artist**: DROELOE 
+**Artist**: LoudKult 
 
-**Track**: Roadside Flowers (feat. Iris Penning)
+**Track**: PHZES, Gabby Patrice - Time Zones
 
-Last updated at 12/15/2020 10:19
+Last updated at 12/15/2020 10:22
