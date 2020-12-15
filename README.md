@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0z0AnDzvEEzaVRK1-NBYJsQ-t50x50.jpg">](https://soundcloud.com/slangdogs/crypt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMza2vkpgyDdlXaW-E3qXLg-t50x50.jpg">](https://soundcloud.com/xotixmusic/pumpin)
 
-**Artist**: Slang Dogs 
+**Artist**: Xotix 
 
-**Track**: Crypt
+**Track**: Xotix & Dalfin - Pumpin
 
-Last updated at 12/15/2020 17:08
+Last updated at 12/15/2020 17:12
