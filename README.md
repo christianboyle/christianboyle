@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HexcsZI0r3xCPXwY-bBfosQ-t50x50.jpg">](https://soundcloud.com/fairlaneofficial/slander-william-black-back-to-u-fairlane-remix?in=gudvibrations/sets/slander-william-black-back-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MflK7iDeHThfNip9-i9BWQg-t50x50.jpg">](https://soundcloud.com/levitatemusic/96-feat-kody-ryan?in=levitatemusic/sets/legacy)
 
-**Artist**: Fairlane 
+**Artist**: LEViT∆TE. 
 
-**Track**: SLANDER & William Black - Back To U (Fairlane Remix)
+**Track**: 96 (feat Kody Ryan)
 
-Last updated at 12/15/2020 16:24
+Last updated at 12/15/2020 16:26
