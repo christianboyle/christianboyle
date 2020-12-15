@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6mDWTyHSHF9hfVAc-LgdEjQ-t50x50.jpg">](https://soundcloud.com/trapcity/hopex-like-we-used-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThwpE5WxbpYMSwFD-I9Ajdg-t50x50.jpg">](https://soundcloud.com/onetruegod/devotion-1)
 
-**Artist**: Trap City 
+**Artist**: One True God 
 
-**Track**: HOPEX - Like We Used To (Copyright Free)
+**Track**: Devotion
 
-Last updated at 12/15/2020 10:32
+Last updated at 12/15/2020 10:34
