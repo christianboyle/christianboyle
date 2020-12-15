@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwnbjpPlgmsByWSH-izyG6Q-t50x50.jpg">](https://soundcloud.com/murrayblvd/comeback?in=murrayblvd/sets/polar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2aqnFNfO8gwVUog-ckMnlQ-t50x50.jpg">](https://soundcloud.com/vavomusic/internet-money-lemonade-vavo-remix?in=vavomusic/sets/internet-money-lemonade-vavo)
 
-**Artist**: Murray 
+**Artist**: VAVO 
 
-**Track**: Comeback
+**Track**: Internet Money - Lemonade (VAVO Remix)
 
-Last updated at 12/15/2020 10:50
+Last updated at 12/15/2020 10:52
