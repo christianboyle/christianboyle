@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUZBntz5QtgCgGex-WI2efA-t50x50.jpg">](https://soundcloud.com/gateraudio/kalium)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzveOMMzyPKA013C-JfcBDQ-t50x50.jpg">](https://soundcloud.com/alasen/dodge-1)
 
-**Artist**: Gater 
+**Artist**: alasen 
 
-**Track**: Kalium
+**Track**: dodge
 
-Last updated at 12/15/2020 16:04
+Last updated at 12/15/2020 16:06
