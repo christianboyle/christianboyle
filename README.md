@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-77tjLurboe347Do7-UzHC0A-t50x50.jpg">](https://soundcloud.com/ghettoghettorecords/minor-feat-blak-trash-nightmare-haelix-remix?in=ghettoghettorecords/sets/minor-feat-blak-trash-nightmare-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bkNrtw1G33uGT7eN-ccDFEw-t50x50.jpg">](https://soundcloud.com/eyezic-music/promise-fuxwithit-premiere)
 
-**Artist**: GHETTO GHETTO 
+**Artist**: eyezic. 
 
-**Track**: Minor feat Blak Trash - Nightmare (Haelix Remix)
+**Track**: Promise [FUXWITHIT Premiere]
 
-Last updated at 12/15/2020 15:57
+Last updated at 12/15/2020 16:01
