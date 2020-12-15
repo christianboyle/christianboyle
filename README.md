@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThwpE5WxbpYMSwFD-I9Ajdg-t50x50.jpg">](https://soundcloud.com/onetruegod/devotion-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vRaqZnoyKOhPeIIg-AjIJFg-t50x50.jpg">](https://soundcloud.com/craymakmusic/craymak-justify-feat-katie-sky?in=circusrecords/sets/craymak-justify-feat-katie-sky)
 
-**Artist**: One True God 
+**Artist**: CRaymak 
 
-**Track**: Devotion
+**Track**: Justify Feat. Katie Sky
 
-Last updated at 12/15/2020 10:34
+Last updated at 12/15/2020 10:36
