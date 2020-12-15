@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i887beqioqijiwtW-HXSp7A-t50x50.jpg">](https://soundcloud.com/emoticonharddance/asktheinfluencer-oneseventy-jts-technikore-s1e14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzveOMMzyPKA013C-JfcBDQ-t50x50.jpg">](https://soundcloud.com/alasen/dodge-1)
 
-**Artist**: ⚪️⚫️ Emoticon ⚫️⚪️ 
+**Artist**: alasen 
 
-**Track**: #AsktheInfluencer - ONESEVENTY (JTS & TECHNIKORE) S1E14
+**Track**: dodge
 
-Last updated at 12/15/2020 17:26
+Last updated at 12/15/2020 17:58
