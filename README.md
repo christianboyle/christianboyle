@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UMspIhVdrrC4tRkd-yG5fvA-t50x50.jpg">](https://soundcloud.com/historyofhappyhardcore/saturday-seshions-trance-anthems-hdsn-live-on-twitch-6-6-20?in=historyofhappyhardcore/sets/saturday-seshions-live-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HexcsZI0r3xCPXwY-bBfosQ-t50x50.jpg">](https://soundcloud.com/fairlaneofficial/slander-william-black-back-to-u-fairlane-remix?in=gudvibrations/sets/slander-william-black-back-1)
 
-**Artist**: History Of Happy Hardcore 
+**Artist**: Fairlane 
 
-**Track**: Saturday Seshions 'Trance Anthems' - HDSN (Live on Twitch 6-6-20)
+**Track**: SLANDER & William Black - Back To U (Fairlane Remix)
 
-Last updated at 12/15/2020 16:16
+Last updated at 12/15/2020 16:24
