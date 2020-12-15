@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2aqnFNfO8gwVUog-ckMnlQ-t50x50.jpg">](https://soundcloud.com/vavomusic/internet-money-lemonade-vavo-remix?in=vavomusic/sets/internet-money-lemonade-vavo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZnMuGe0CMHp2Krc1-wyb9RQ-t50x50.jpg">](https://soundcloud.com/the-games-we-play/fate-haunted?in=the-games-we-play/sets/fate-haunted)
 
-**Artist**: VAVO 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Internet Money - Lemonade (VAVO Remix)
+**Track**: FATE - HAUNTED
 
-Last updated at 12/15/2020 10:52
+Last updated at 12/15/2020 10:54
