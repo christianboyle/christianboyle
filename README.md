@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-maDALK4fDbm9Hw1v-ImOKVA-t50x50.jpg">](https://soundcloud.com/sibewest/sibewest-warlock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-juurpyYw7RKW5DyY-6GXFFg-t50x50.jpg">](https://soundcloud.com/omasofficial/apashe-uebokgotta-run-feat-instasamka-omas-remix)
 
-**Artist**: Sibewest 
+**Artist**: OMAS 
 
-**Track**: Sibewest - Warlock
+**Track**: Apashe ~ Uebok (Gotta Run)(Feat. Instasamka) (OMAS REMIX)
 
-Last updated at 12/15/2020 11:28
+Last updated at 12/15/2020 11:32
