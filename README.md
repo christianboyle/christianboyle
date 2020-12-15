@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ki9zFmzqVOyNEH55-GqhSag-t50x50.jpg">](https://soundcloud.com/itscustome/emoboy303-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QTa5Ydz1xqbNRCDu-mr9ylg-t50x50.jpg">](https://soundcloud.com/y97oiyyhtnyt/miracle)
 
-**Artist**: CUSTOME 
+**Artist**: dxxdly 
 
-**Track**: Leotrix - Emoboy303 (SIDE) (CUSTOME Edit)
+**Track**: Miracle
 
-Last updated at 12/15/2020 11:20
+Last updated at 12/15/2020 11:24
