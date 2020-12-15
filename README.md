@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N1ctOMB1iWG2Zbw3-r70XyQ-t50x50.jpg">](https://soundcloud.com/electricwavemusic/abtomal-we-robots-akame-remix?in=itsakame/sets/abtomal-we-robots-akame-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoWRDIDdJveV-0-t50x50.jpg">](https://soundcloud.com/y2k2y/wawawa?in=y2k2y/sets/wawawa-remix-playlist)
 
-**Artist**: Electric Wave 
+**Artist**: Y2K 
 
-**Track**: AbtomAL - We, Robots (Akame Remix)
+**Track**: Wawawa
 
-Last updated at 12/15/2020 10:58
+Last updated at 12/15/2020 11:02
