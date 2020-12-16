@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUxCFjHeWjv6YPU8-zcot8g-t50x50.jpg">](https://soundcloud.com/magnetic-magazine/magnetic-mix-128-indira-paganotto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HexcsZI0r3xCPXwY-bBfosQ-t50x50.jpg">](https://soundcloud.com/fairlaneofficial/slander-william-black-back-to-u-fairlane-remix)
 
-**Artist**: Magnetic Magazine 
+**Artist**: Fairlane 
 
-**Track**: Magnetic Mix 128: Indira Paganotto
+**Track**: SLANDER & William Black - Back To U (Fairlane Remix)
 
-Last updated at 12/16/2020 13:39
+Last updated at 12/16/2020 14:08
