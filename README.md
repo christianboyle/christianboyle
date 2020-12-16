@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEOWZ2B8LzZYTC9I-yHen0Q-t50x50.jpg">](https://soundcloud.com/takatashawty/purpose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jXaVEVzb34P6tZU3-au69Ag-t50x50.jpg">](https://soundcloud.com/cheesy-kut/full-hp)
 
-**Artist**: TAKATASHAWTY 
+**Artist**: CHEESY KUT 
 
-**Track**: PURPOSE
+**Track**: FULL HP
 
-Last updated at 12/16/2020 11:14
+Last updated at 12/16/2020 11:18
