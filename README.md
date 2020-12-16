@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2aqnFNfO8gwVUog-ckMnlQ-t50x50.jpg">](https://soundcloud.com/vavomusic/internet-money-lemonade-vavo-remix?in=vavomusic/sets/internet-money-lemonade-vavo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOuby06yc43IDj0P-dDmeuA-t50x50.jpg">](https://soundcloud.com/maru_sound/salva-circuit-maruremix)
 
-**Artist**: VAVO 
+**Artist**: Maru 
 
-**Track**: Internet Money - Lemonade (VAVO Remix)
+**Track**: Salva - CIRCUIT (Maru Remix)
 
-Last updated at 12/15/2020 18:19
+Last updated at 12/16/2020 10:28
