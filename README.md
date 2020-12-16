@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030)
 
-**Artist**: twikipedia 
+**Artist**: Opal Fruits 
 
-**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
+**Track**: OFMIX - 030 [Dan Larkin]
 
-Last updated at 12/16/2020 14:48
+Last updated at 12/16/2020 14:50
