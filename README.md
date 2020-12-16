@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jXaVEVzb34P6tZU3-au69Ag-t50x50.jpg">](https://soundcloud.com/cheesy-kut/full-hp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O4dQeSpbIWVB6iwP-ISbibg-t50x50.jpg">](https://soundcloud.com/liquidheavy/shade)
 
-**Artist**: CHEESY KUT 
+**Artist**: LIQUID HEAVY 
 
-**Track**: FULL HP
+**Track**: Shade
 
-Last updated at 12/16/2020 11:18
+Last updated at 12/16/2020 11:20
