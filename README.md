@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRnFENYUQPGO0p4o-J7SSbA-t50x50.jpg">](https://soundcloud.com/revbeatz/immortality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZsmHvADKpdOOLrOR-KLPubg-t50x50.jpg">](https://soundcloud.com/afflictionsound/redux)
 
-**Artist**: Re_V 
+**Artist**: AFFLICTIXN 
 
-**Track**: IMMORTALITY
+**Track**: Redux
 
-Last updated at 12/16/2020 11:24
+Last updated at 12/16/2020 11:26
