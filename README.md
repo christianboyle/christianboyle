@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZsmHvADKpdOOLrOR-KLPubg-t50x50.jpg">](https://soundcloud.com/afflictionsound/redux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G06o9v9fIYyiELRS-lnbOqQ-t50x50.jpg">](https://soundcloud.com/kryosdnb/no-more-sympathy-1)
 
-**Artist**: AFFLICTIXN 
+**Artist**: KRYØS 
 
-**Track**: Redux
+**Track**: No More Sympathy
 
-Last updated at 12/16/2020 11:26
+Last updated at 12/16/2020 11:30
