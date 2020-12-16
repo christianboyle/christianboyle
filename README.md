@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQFHVqheVtmbxsC5-gBNRYw-t50x50.jpg">](https://soundcloud.com/coopexofficial/never-come-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGN9UAgJGBz9Jroa-7YT8pA-t50x50.jpg">](https://soundcloud.com/trapicalmusic/ex-remix)
 
-**Artist**: Coopex 
+**Artist**: Trapical Music 
 
-**Track**: Coopex - Never Come Down (ft. EMM)
+**Track**: 2Scratch - EX. (SVRRIC x Limbow Remix)
 
-Last updated at 12/15/2020 18:04
+Last updated at 12/15/2020 18:08
