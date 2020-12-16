@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOuby06yc43IDj0P-dDmeuA-t50x50.jpg">](https://soundcloud.com/maru_sound/salva-circuit-maruremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUxCFjHeWjv6YPU8-zcot8g-t50x50.jpg">](https://soundcloud.com/magnetic-magazine/magnetic-mix-128-indira-paganotto)
 
-**Artist**: Maru 
+**Artist**: Magnetic Magazine 
 
-**Track**: Salva - CIRCUIT (Maru Remix)
+**Track**: Magnetic Mix 128: Indira Paganotto
 
-Last updated at 12/16/2020 10:28
+Last updated at 12/16/2020 10:30
