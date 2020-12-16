@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G06o9v9fIYyiELRS-lnbOqQ-t50x50.jpg">](https://soundcloud.com/kryosdnb/no-more-sympathy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUxCFjHeWjv6YPU8-zcot8g-t50x50.jpg">](https://soundcloud.com/magnetic-magazine/magnetic-mix-128-indira-paganotto)
 
-**Artist**: KRYØS 
+**Artist**: Magnetic Magazine 
 
-**Track**: No More Sympathy
+**Track**: Magnetic Mix 128: Indira Paganotto
 
-Last updated at 12/16/2020 11:30
+Last updated at 12/16/2020 13:39
