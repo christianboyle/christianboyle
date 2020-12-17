@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4QgJvzjtRMPihuC-mOT2VA-t50x50.jpg">](https://soundcloud.com/sonhander/sonhander-x-buzz-junior-undergrowth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ifLpvTXldm28-0-t50x50.png">](https://soundcloud.com/sanholobeats/bb-u-ok?in=bitbird/sets/san-holo-bb-u-ok)
 
-**Artist**: Sonhander 
+**Artist**: San Holo 
 
-**Track**: Sonhander X Buzz Junior - Undergrowth
+**Track**: bb u ok?
 
-Last updated at 12/17/2020 07:43
+Last updated at 12/17/2020 07:45
