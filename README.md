@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8rJ6V3WpWpClSz3-nH3IKQ-t50x50.jpg">](https://soundcloud.com/cloudymane/neon-nights-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NY2OZSRjpvde-0-t50x50.jpg">](https://soundcloud.com/empireofthesunsound/high-and-low-djemba-djemba)
 
-**Artist**: Cloudymane 
+**Artist**: Empire Of The Sun 
 
-**Track**: NEON NIGHTS VOL.1
+**Track**: High And Low (Djemba Djemba Remix)
 
-Last updated at 12/16/2020 17:51
+Last updated at 12/16/2020 18:17
