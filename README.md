@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iPFCYTF9ZdJ058Qz-RmxNyQ-t50x50.jpg">](https://soundcloud.com/slehbeats/juice-wrld-blood-on-my-jeans-sleh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6kBzmJWaxVByJsG-O4Nvzg-t50x50.jpg">](https://soundcloud.com/inextremis/deadmirrors?in=codenameniocell/sets/deadmirrors-feat-jay-parmesan)
 
-**Artist**: SLeh 
+**Artist**: Inextremis 
 
-**Track**: Juice WRLD - Blood On My Jeans (SLeh Remix)
+**Track**: CODENAME:NIOCELL - DEADMIRRORS (feat. Jay Parmesan & Akira Flay)
 
-Last updated at 12/17/2020 07:51
+Last updated at 12/17/2020 07:53
