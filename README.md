@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbmC6bXkoPS8zzd4-LzhL8Q-t50x50.jpg">](https://soundcloud.com/gradientperspective/josh-teed-warrior)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246470298-tbszkr-t50x50.jpg">](https://soundcloud.com/djyungvampire13/im-just-an-hologram)
 
-**Artist**: The Gradient Perspective 
+**Artist**: DJ YUNG VAMP 
 
-**Track**: Josh Teed - Warrior
+**Track**: IM JUST AN HOLOGRAM (FREE DOWNLOAD)
 
-Last updated at 12/17/2020 09:05
+Last updated at 12/17/2020 09:09
