@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000246470298-tbszkr-t50x50.jpg">](https://soundcloud.com/djyungvampire13/im-just-an-hologram)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbUOI4SL5GlRTdFj-0rxVZA-t50x50.jpg">](https://soundcloud.com/longjawns/jawnsdigitalmiragefullset)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: JAWNS 
 
-**Track**: IM JUST AN HOLOGRAM (FREE DOWNLOAD)
+**Track**: Digital Mirage Full Set 11/28/2020
 
-Last updated at 12/18/2020 12:17
+Last updated at 12/18/2020 12:19
