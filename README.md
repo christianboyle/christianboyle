@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iPFCYTF9ZdJ058Qz-RmxNyQ-t50x50.jpg">](https://soundcloud.com/slehbeats/juice-wrld-blood-on-my-jeans-sleh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hU1zdqreyHpGiMiZ-gC8wmw-t50x50.jpg">](https://soundcloud.com/tropes777/antagonists)
 
-**Artist**: SLeh 
+**Artist**: Tropes 
 
-**Track**: Juice WRLD - Blood On My Jeans (SLeh Remix)
+**Track**: Antagonists w/ pitfall (dltzk)
 
-Last updated at 12/18/2020 12:01
+Last updated at 12/18/2020 12:03
