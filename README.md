@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lyk9j3vQLI18jrqt-1dfU4g-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf264)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8rJ6V3WpWpClSz3-nH3IKQ-t50x50.jpg">](https://soundcloud.com/cloudymane/neon-nights-vol1)
 
-**Artist**: Strange Fruits 
+**Artist**: Cloudymane 
 
-**Track**: Avocuddle - Put Your Records On
+**Track**: NEON NIGHTS VOL.1
 
-Last updated at 12/18/2020 13:52
+Last updated at 12/18/2020 13:56
