@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hU1zdqreyHpGiMiZ-gC8wmw-t50x50.jpg">](https://soundcloud.com/tropes777/antagonists)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SIub561tEfGnpY9E-RIQ1lg-t50x50.jpg">](https://soundcloud.com/sanriorose/scp)
 
-**Artist**: tropes 
+**Artist**: d0llywood1 
 
-**Track**: Antagonists w/ pitfall (dltzk)
+**Track**: securecontainprotect w/ kite
 
-Last updated at 12/17/2020 19:46
+Last updated at 12/18/2020 11:59
