@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SIub561tEfGnpY9E-RIQ1lg-t50x50.jpg">](https://soundcloud.com/sanriorose/scp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iPFCYTF9ZdJ058Qz-RmxNyQ-t50x50.jpg">](https://soundcloud.com/slehbeats/juice-wrld-blood-on-my-jeans-sleh-remix)
 
-**Artist**: d0llywood1 
+**Artist**: SLeh 
 
-**Track**: securecontainprotect w/ kite
+**Track**: Juice WRLD - Blood On My Jeans (SLeh Remix)
 
-Last updated at 12/18/2020 11:59
+Last updated at 12/18/2020 12:01
