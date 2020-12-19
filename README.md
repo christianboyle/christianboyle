@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t50x50.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
 
-**Artist**: sethany 
+**Artist**: EchoDDT 
 
-**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
+**Track**: A Million Reasons to Cry
 
-Last updated at 12/19/2020 16:25
+Last updated at 12/19/2020 16:27
