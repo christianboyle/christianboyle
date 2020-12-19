@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6SKnJQaJEsn6-0-t50x50.png">](https://soundcloud.com/misogi/pyreflies-feat-lil-west)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HexcsZI0r3xCPXwY-bBfosQ-t50x50.jpg">](https://soundcloud.com/fairlaneofficial/slander-william-black-back-to-u-fairlane-remix)
 
-**Artist**: MISOGI 
+**Artist**: Fairlane 
 
-**Track**: Pyreflies (feat. nothing,nowhere. & Lil West)
+**Track**: SLANDER & William Black - Back To U (Fairlane Remix)
 
-Last updated at 12/19/2020 13:31
+Last updated at 12/19/2020 13:35
