@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000200999754-uoogm3-t50x50.jpg">](https://soundcloud.com/kyris-official/dj-snake-ft-justin-bieber-let-me-love-you-killerx-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAuqxlWFr2npZ7p1-HQAEaw-t50x50.jpg">](https://soundcloud.com/shogunjoseph/evilwayz)
 
-**Artist**: Kyris 
+**Artist**: SHOGUN 
 
-**Track**: Dj Snake Ft. Justin Bieber - Let Me Love You (Killerx Remake) [FREE ABLETON PROJECT FILE]
+**Track**: EVIL WAYZ W/ DJ YUNG VAMP & DJ SMOKEY
 
-Last updated at 12/19/2020 19:57
+Last updated at 12/20/2020 08:24
