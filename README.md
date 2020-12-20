@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAuqxlWFr2npZ7p1-HQAEaw-t50x50.jpg">](https://soundcloud.com/shogunjoseph/evilwayz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hd2dGDj4f3d0EG3I-kRTFFg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-diplo-friends-mix-2020)
 
-**Artist**: SHOGUN 
+**Artist**: HOLLY 
 
-**Track**: EVIL WAYZ W/ DJ YUNG VAMP & DJ SMOKEY
+**Track**: HOLLY - Diplo & Friends Mix 2020
 
-Last updated at 12/20/2020 08:24
+Last updated at 12/20/2020 08:26
