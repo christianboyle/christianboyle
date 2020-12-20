@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Q7qKrY9t3YyQmpy-tTRZsw-t50x50.jpg">](https://soundcloud.com/monstercat/stonebank-emel-healing-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8esZ5iWWSlh-0-t50x50.jpg">](https://soundcloud.com/tyzobloom/bedroom)
 
-**Artist**: Monstercat 
+**Artist**: Tyzo Bloom 
 
-**Track**: Stonebank & EMEL - Healing Me
+**Track**: BEDROOM
 
-Last updated at 12/19/2020 18:11
+Last updated at 12/19/2020 18:15
