@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAgfBcoGvCz5fMQq-dBQhzg-t50x50.jpg">](https://soundcloud.com/onlytom-extras/onlytom-for-hotel-radio-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4asBnSIwCzVCE6h1-PuYQUg-t50x50.jpg">](https://soundcloud.com/talegatemusic/mitchell-tenpenny-broken-up-talegate-remix)
 
-**Artist**: onlytom ♴ 
+**Artist**: Talegate 
 
-**Track**: onlytom for Hotel Radio Paris
+**Track**: Mitchell Tenpenny - Broken Up (Talegate Remix)
 
-Last updated at 12/19/2020 18:43
+Last updated at 12/19/2020 19:43
