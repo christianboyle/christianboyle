@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5aLTfcpsFqvtpPGl-Rh8DsQ-t50x50.jpg">](https://soundcloud.com/djhufff954/jook-vibe-soflojook-snippet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uiti1NvIuIRuOZWV-R1Xnkw-t50x50.jpg">](https://soundcloud.com/prodhilton/life)
 
-**Artist**: @DJHUFF954 
+**Artist**: Ħilton 
 
-**Track**: Jook & Vibe #SofloJook (Snippet)
+**Track**: Life
 
-Last updated at 12/22/2020 09:46
+Last updated at 12/22/2020 09:48
