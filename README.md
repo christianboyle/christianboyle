@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439223880-2d19q1-t50x50.jpg">](https://soundcloud.com/bewareilive/so0o0on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRkcuqDZL15rpXAU-RSaSoA-t50x50.jpg">](https://soundcloud.com/doghouseradio/doghouse-radio-054)
 
-**Artist**: ANIMA 
+**Artist**: Doghouse Radio 
 
-**Track**: S°o0O0o°N / Secret melody / UZI
+**Track**: DOGHOUSE RADIO #054
 
-Last updated at 12/22/2020 16:47
+Last updated at 12/22/2020 16:49
