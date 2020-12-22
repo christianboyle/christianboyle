@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbU1zRiXWWbhiC4g-C92grg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-devotion-feat-og-maco?in=hollyhollys/sets/just-enough-feat-baauer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVDMyBFeyyHBfjMV-wyDutg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-safety-feat-rahrah?in=hollyhollys/sets/just-enough-feat-baauer)
 
 **Artist**: HOLLY 
 
-**Track**: HOLLY - Devotion (feat. OG Maco)
+**Track**: HOLLY - Safety (feat. RahRah)
 
-Last updated at 12/22/2020 10:27
+Last updated at 12/22/2020 10:29
