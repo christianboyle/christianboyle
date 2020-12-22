@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8MwbM5t399zGeJVQ-ua8tAA-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-just-enough-feat-baauer?in=hollyhollys/sets/just-enough-feat-baauer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbU1zRiXWWbhiC4g-C92grg-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-5am-cdr-jam?in=hollyhollys/sets/just-enough-feat-baauer)
 
 **Artist**: HOLLY 
 
-**Track**: HOLLY - Just Enough (feat. Baauer)
+**Track**: HOLLY - 5AM CDR Jam
 
-Last updated at 12/22/2020 09:12
+Last updated at 12/22/2020 09:18
