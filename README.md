@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5pHO6KmW6C1wJEU-GvAy6A-t50x50.jpg">](https://soundcloud.com/reealcesar/december1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0fuJG4B5jBaWEuYJ-zN0dJg-t50x50.jpg">](https://soundcloud.com/slangdogs/endal)
 
-**Artist**: ReealCesar 
+**Artist**: Slang Dogs 
 
-**Track**: december1
+**Track**: Endal
 
-Last updated at 12/23/2020 10:02
+Last updated at 12/23/2020 10:04
