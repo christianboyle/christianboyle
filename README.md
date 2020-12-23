@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000765448810-f3a9co-t50x50.jpg">](https://soundcloud.com/kinphonic/erotic-cafe-drill-dat?in=kinphonic/sets/heavyweight-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BATHH943tCyNjdj0-t30FyQ-t50x50.jpg">](https://soundcloud.com/bunny_jp/charli-xcx-c20-bunny-remix)
 
-**Artist**: Kinphonic 
+**Artist**: ///BUNNY/// NEW ACCOUNT 
 
-**Track**: Erotic Cafe' - Drill Dat
+**Track**: Charli XCX - C2.0 (BUNNY Remix)  #HIFNremix
 
-Last updated at 12/23/2020 12:01
+Last updated at 12/23/2020 14:14
