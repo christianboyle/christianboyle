@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BATHH943tCyNjdj0-t30FyQ-t50x50.jpg">](https://soundcloud.com/bunny_jp/charli-xcx-c20-bunny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yumcQHpHytwPUVfO-p4fksQ-t50x50.jpg">](https://soundcloud.com/im_linkyy/lightspectrum)
 
-**Artist**: ///BUNNY/// NEW ACCOUNT 
+**Artist**: LINKYY 
 
-**Track**: Charli XCX - C2.0 (BUNNY Remix)  #HIFNremix
+**Track**: LIGHT SPECTRUM
 
-Last updated at 12/23/2020 14:14
+Last updated at 12/23/2020 14:16
