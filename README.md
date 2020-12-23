@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZFxPvUaeb3BvjVi-xZExsg-t50x50.jpg">](https://soundcloud.com/fallenshrine/life-x-death)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rlihoXgb2oKsBxO-ZU30lA-t50x50.jpg">](https://soundcloud.com/wearetar/lost-armor-snake)
 
-**Artist**: Fallen Shrine 
+**Artist**: TAR 
 
-**Track**: LIFE x DEATH
+**Track**: Lost Armor - "Snake"
 
-Last updated at 12/23/2020 14:18
+Last updated at 12/23/2020 14:23
