@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-igoGvWyPYL439Qla-cSBO0g-t50x50.jpg">](https://soundcloud.com/merca-bae/toxic?in=merca-bae/sets/merca-zip-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000765448810-f3a9co-t50x50.jpg">](https://soundcloud.com/kinphonic/erotic-cafe-drill-dat?in=kinphonic/sets/heavyweight-vol-4)
 
-**Artist**: Merca Bae 
+**Artist**: Kinphonic 
 
-**Track**: Toxic
+**Track**: Erotic Cafe' - Drill Dat
 
-Last updated at 12/23/2020 10:14
+Last updated at 12/23/2020 12:01
