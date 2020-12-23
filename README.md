@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rlihoXgb2oKsBxO-ZU30lA-t50x50.jpg">](https://soundcloud.com/wearetar/lost-armor-snake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9z4Ef7QetKP-0-t50x50.jpg">](https://soundcloud.com/youngbombs/wrong-side-of-love?in=weareplusplus/sets/best-electronic-music-6)
 
-**Artist**: TAR 
+**Artist**: YOUNG BOMBS 
 
-**Track**: Lost Armor - "Snake"
+**Track**: Wrong Side Of Love
 
-Last updated at 12/23/2020 14:23
+Last updated at 12/23/2020 14:25
