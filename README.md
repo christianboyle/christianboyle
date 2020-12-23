@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuKDlwD3YgCu4Rzw-YMiraw-t50x50.jpg">](https://soundcloud.com/poorstacy/poorstacy-hills-have-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOHAt8b9MMyCXarm-aVjkCA-t50x50.jpg">](https://soundcloud.com/theskulkids/reminds-me-of-you)
 
-**Artist**: poorstacy 
+**Artist**: SkulKids 
 
-**Track**: Hills Have Eyes (Prod. Travis Barker)
+**Track**: Juice WRLD & The Kid LAROI - Reminds Me Of You (SkulKids x Alex Cortes Remix)
 
-Last updated at 12/23/2020 06:17
+Last updated at 12/23/2020 06:19
