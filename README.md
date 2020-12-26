@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000214789793-ce4fx5-t50x50.jpg">](https://soundcloud.com/simplyunsocial/precautions-are-for-the-weak-living-feat-smrtdeath-prod-haruhi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371416359-24i1uv-t50x50.jpg">](https://soundcloud.com/hudsonalexander/catchme)
 
-**Artist**: Simply Unsocial Studios 
+**Artist**: hudson alexander 
 
-**Track**: Precautions are for the Weak & Living w/poloralphmacchio (feat. SMRTDEATH) (prod. haruhi)
+**Track**: smrtdeath x hudson alexander - catch me (feat. teddybear)
 
-Last updated at 12/26/2020 15:51
+Last updated at 12/26/2020 15:53
