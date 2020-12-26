@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489177834-ygezqa-t50x50.jpg">](https://soundcloud.com/lilaaron911/fucked-up-kid?in=lilaaron911/sets/bfz2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456603597-6gn9wn-t50x50.jpg">](https://soundcloud.com/lilxlotus/prettyxthing)
 
-**Artist**: lil aaron 
+**Artist**: LIL LOTUS 
 
-**Track**: FUCKED UP KID(BOYFRIENDZ)
+**Track**: pretty thing (prod. 4evr)
 
-Last updated at 12/26/2020 15:29
+Last updated at 12/26/2020 15:33
