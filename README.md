@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244294396-icd6dh-t50x50.jpg">](https://soundcloud.com/greatwhiteclark/right-now-featsmrtdeath-prod-artiztik-beatz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000354387777-6pt6qo-t50x50.jpg">](https://soundcloud.com/thatxweirdkid/first-kiss-prod-sinwithme)
 
-**Artist**: Great White Clark 
+**Artist**: sean. 
 
-**Track**: Right Now Feat.smrtdeath
+**Track**: First Kiss (Prod. SinWithMe)
 
-Last updated at 12/26/2020 15:35
+Last updated at 12/26/2020 15:39
