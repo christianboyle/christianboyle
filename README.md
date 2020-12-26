@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000328905624-dmals2-t50x50.jpg">](https://soundcloud.com/alliknowispain/game-of-fate-prod-nick-mira)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2gebAsElCE8W-0-t50x50.jpg">](https://soundcloud.com/lilprettyxox/missme)
 
-**Artist**: thuey 
+**Artist**: prettyheartbreak 
 
-**Track**: game of fate (prod. nick mira)
+**Track**: Miss Me
 
-Last updated at 12/26/2020 15:43
+Last updated at 12/26/2020 15:47
