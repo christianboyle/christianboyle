@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRGtb92lpdow-0-t50x50.jpg">](https://soundcloud.com/lilprettyxox/2029prettyheartbreak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000214789793-ce4fx5-t50x50.jpg">](https://soundcloud.com/simplyunsocial/precautions-are-for-the-weak-living-feat-smrtdeath-prod-haruhi)
 
-**Artist**: prettyheartbreak 
+**Artist**: Simply Unsocial Studios 
 
-**Track**: 2029
+**Track**: Precautions are for the Weak & Living w/poloralphmacchio (feat. SMRTDEATH) (prod. haruhi)
 
-Last updated at 12/26/2020 15:49
+Last updated at 12/26/2020 15:51
