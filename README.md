@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fFyRX83qlqXFkzr-fDyG0A-t50x50.jpg">](https://soundcloud.com/2mainey/2mainey-x-terror-jr-hollywood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fq6aGdQOHRAlJg9n-4EvGaQ-t50x50.jpg">](https://soundcloud.com/rusuitor/hugo-doche-slow-mafia-poppin)
 
-**Artist**: 2mainey 
+**Artist**: [ SUITOR ] 
 
-**Track**: 2mainey x Terror Jr - HOLLYWOOD
+**Track**: Hugo Doche & Slow Mafia - Poppin [ FREE DOWNLOAD ]
 
-Last updated at 12/25/2020 19:21
+Last updated at 12/25/2020 19:23
