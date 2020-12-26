@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000354387777-6pt6qo-t50x50.jpg">](https://soundcloud.com/thatxweirdkid/first-kiss-prod-sinwithme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000328905624-dmals2-t50x50.jpg">](https://soundcloud.com/alliknowispain/game-of-fate-prod-nick-mira)
 
-**Artist**: sean. 
+**Artist**: thuey 
 
-**Track**: First Kiss (Prod. SinWithMe)
+**Track**: game of fate (prod. nick mira)
 
-Last updated at 12/26/2020 15:39
+Last updated at 12/26/2020 15:43
