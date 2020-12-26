@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489177834-ygezqa-t50x50.jpg">](https://soundcloud.com/lilaaron911/fucked-up-kid?in=lilaaron911/sets/bfz2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSBwNrjKj2yuKVTg-CzAQTA-t50x50.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2020)
 
-**Artist**: lil aaron 
+**Artist**: HOLLY 
 
-**Track**: FUCKED UP KID(BOYFRIENDZ)
+**Track**: ileX-MAS Mix 2020
 
-Last updated at 12/26/2020 16:03
+Last updated at 12/26/2020 16:07
