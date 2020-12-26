@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qRiWJid0wFC7ml2v-paHzEQ-t50x50.jpg">](https://soundcloud.com/sub49collective/mode-norecall-betrayal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkqkKPRxSzawyCNr-vG0Fkg-t50x50.jpg">](https://soundcloud.com/awoltalk/lonely-awoltalk-flip)
 
-**Artist**: SUB 49 COLLECTIVE 
+**Artist**: AWOLTALK 
 
-**Track**: MØDE & NORECALL | BETRAYAL
+**Track**: Lonely (Awoltalk Flip)
 
-Last updated at 12/25/2020 19:29
+Last updated at 12/25/2020 19:31
