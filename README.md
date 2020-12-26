@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WStFUVeuLYOzQruH-bLEMUw-t50x50.jpg">](https://soundcloud.com/iffoundmusic/stonefox-never-fight-if-found-remix?in=weareplusplus/sets/best-electronic-music-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fFyRX83qlqXFkzr-fDyG0A-t50x50.jpg">](https://soundcloud.com/2mainey/2mainey-x-terror-jr-hollywood)
 
-**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
+**Artist**: 2mainey 
 
-**Track**: Stonefox - Never Fight (if found Remix)
+**Track**: 2mainey x Terror Jr - HOLLYWOOD
 
-Last updated at 12/23/2020 14:37
+Last updated at 12/25/2020 19:21
