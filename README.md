@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGyoRuIA0UTlo8TY-9bC5wg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/rihanna-russian-roulette-thememoir-x-auel-remix?in=the-games-we-play/sets/the-memoir-x-auel-hope-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGyoRuIA0UTlo8TY-9bC5wg-t50x50.jpg">](https://soundcloud.com/the-games-we-play/thememoir-x-auel-your-trail?in=the-games-we-play/sets/the-memoir-x-auel-hope-ep)
 
 **Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Rihanna - Russian Roulette (Thèmemoir X AUEL Remix)
+**Track**: Thèmemoir x AUEL - Your Trail
 
-Last updated at 12/26/2020 15:01
+Last updated at 12/26/2020 15:07
