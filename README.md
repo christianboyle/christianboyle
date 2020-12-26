@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371416359-24i1uv-t50x50.jpg">](https://soundcloud.com/hudsonalexander/catchme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489177921-8600dl-t50x50.jpg">](https://soundcloud.com/lilaaron911/be-around?in=lilaaron911/sets/bfz2)
 
-**Artist**: hudson alexander 
+**Artist**: lil aaron 
 
-**Track**: smrtdeath x hudson alexander - catch me (feat. teddybear)
+**Track**: BE AROUND(BOYFRIENDZ)
 
-Last updated at 12/26/2020 15:53
+Last updated at 12/26/2020 15:55
