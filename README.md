@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thMaDJh9wXmL49w7-0YUrOw-t50x50.jpg">](https://soundcloud.com/innerbloomtunes/us-forever-ago?in=weareplusplus/sets/best-electronic-music-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63fyTAjo2ybldhuh-AzEAbA-t50x50.jpg">](https://soundcloud.com/spartic-knight/one-the-edge-ft-sebii-sxvvy)
 
-**Artist**: innerbloom 
+**Artist**: Spartic Knight 
 
-**Track**: Us, Forever Ago
+**Track**: On The Edge (feat. SEBii & SXVVY) [REMASTER]
 
-Last updated at 12/27/2020 11:04
+Last updated at 12/27/2020 11:06
