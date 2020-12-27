@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UC652oRUvX1onwrrZ8ADJRPw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZUvVTEETaxZl103-zPn2Pg-t50x50.jpg">](https://soundcloud.com/playboicarti/stop-breathing?in=playboicarti/sets/whole-lotta-red)
 
-**Artist**: Playboi Carti 
+**Artist**: playboicarti 
 
-**Track**: Rockstar Made (Official Audio)
+**Track**: Stop Breathing
 
-Last updated at 12/26/2020 19:26
+Last updated at 12/26/2020 19:28
