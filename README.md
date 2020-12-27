@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZ1z1Kxs3z4VZl8O-V5ZLyQ-t50x50.jpg">](https://soundcloud.com/electrostepnetwork/mooncore-moonblast?in=mooncoreofficial/sets/moonblast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123925475-hf5ebc-t50x50.jpg">](https://soundcloud.com/kidfroopy/hi-1?in=formerhero/sets/i-adore-these)
 
-**Artist**: Electrostep Network 
+**Artist**: kid froopy 
 
-**Track**: Mooncore - Moonblast [Electrostep Network EXCLUSIVE]
+**Track**: HI
 
-Last updated at 12/26/2020 19:48
+Last updated at 12/26/2020 19:50
