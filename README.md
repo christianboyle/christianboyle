@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000326841686-8jabb0-t50x50.jpg">](https://soundcloud.com/chachachimp/one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZ1z1Kxs3z4VZl8O-V5ZLyQ-t50x50.jpg">](https://soundcloud.com/electrostepnetwork/mooncore-moonblast?in=mooncoreofficial/sets/moonblast)
 
-**Artist**: Cha Cha Chimp 
+**Artist**: Electrostep Network 
 
-**Track**: ONE
+**Track**: Mooncore - Moonblast [Electrostep Network EXCLUSIVE]
 
-Last updated at 12/26/2020 19:46
+Last updated at 12/26/2020 19:48
