@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Yif52a4HUtknA9T-39ieWw-t50x50.jpg">](https://soundcloud.com/cosmastly/eyes-low-but-im-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Ab9p26VekFq8plm-GnRPtw-t50x50.jpg">](https://soundcloud.com/yungmurderspree/man-in-the-scope-w-ecacile)
 
-**Artist**: COSMASTLY 
+**Artist**: Yung murderspree 
 
-**Track**: EYES LOW
+**Track**: MAN IN THE SCOPE W/ ECACILE
 
-Last updated at 12/29/2020 15:08
+Last updated at 12/29/2020 15:10
