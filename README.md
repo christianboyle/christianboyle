@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xls367MuLytfyxzV-0cLSgg-t50x50.jpg">](https://soundcloud.com/luhvmusic/luhv-x-colossus-vortex-ft-realssm-1)
 
-**Artist**: umru 
+**Artist**: Luhv 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: Luhv X Colossus - Vortex (ft Realssm)
 
-Last updated at 12/29/2020 15:42
+Last updated at 12/29/2020 15:50
