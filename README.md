@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Ab9p26VekFq8plm-GnRPtw-t50x50.jpg">](https://soundcloud.com/yungmurderspree/man-in-the-scope-w-ecacile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xLDaOg9noL3uswoW-ZBeCYQ-t50x50.jpg">](https://soundcloud.com/lael-bellotti/pandemix-live-episode-15)
 
-**Artist**: Yung murderspree 
+**Artist**: Lael Bellotti 
 
-**Track**: MAN IN THE SCOPE W/ ECACILE
+**Track**: Pandemix LIVE Episode #15
 
-Last updated at 12/29/2020 15:10
+Last updated at 12/29/2020 15:12
