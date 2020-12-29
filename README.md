@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHPjSCcGIj13lPMd-qUIALg-t50x50.jpg">](https://soundcloud.com/bosshanzo/massacre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duD9wxypx7om4wKb-feRGzA-t50x50.jpg">](https://soundcloud.com/gangstahouserec/almek-akuri-morenita?in=gangstahouserec/sets/almek-akuri-morenita-original)
 
-**Artist**: HANZO 陰陽 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: MASSACRE
+**Track**: ALMEK, AKURI - Morenita (Original Mix) [GANGSTA HOUSE RECORDS]
 
-Last updated at 12/29/2020 10:13
+Last updated at 12/29/2020 10:17
