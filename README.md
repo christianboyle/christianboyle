@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duD9wxypx7om4wKb-feRGzA-t50x50.jpg">](https://soundcloud.com/gangstahouserec/almek-akuri-morenita?in=gangstahouserec/sets/almek-akuri-morenita-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzVyMSIv7uIpF3V1-RiumKw-t50x50.jpg">](https://soundcloud.com/fresh22stuff/mind-control)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: FRESH STUFF 
 
-**Track**: ALMEK, AKURI - Morenita (Original Mix) [GANGSTA HOUSE RECORDS]
+**Track**: MIND CONTROL
 
-Last updated at 12/29/2020 10:17
+Last updated at 12/29/2020 10:19
