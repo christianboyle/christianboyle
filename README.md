@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzVyMSIv7uIpF3V1-RiumKw-t50x50.jpg">](https://soundcloud.com/fresh22stuff/mind-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vVmv8mRMZqe-0-t50x50.jpg">](https://soundcloud.com/wearelostkings/runaway-feat-destiny-rogers)
 
-**Artist**: FRESH STUFF 
+**Artist**: Lost Kings 
 
-**Track**: MIND CONTROL
+**Track**: Runaway (feat. Destiny Rogers)
 
-Last updated at 12/29/2020 10:19
+Last updated at 12/29/2020 10:21
