@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8qguMVNM3CAsWS4-lyG3bg-t50x50.jpg">](https://soundcloud.com/kumocollective/summetrelease?in=kumocollective/sets/summet-having-fun-yet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtzBEI4AXS3tkJLI-rOZGMg-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf269)
 
-**Artist**: KUMO Collective 
+**Artist**: Strange Fruits 
 
-**Track**: summet - having fun yet?
+**Track**: Fallen Roses, Mr. Pig & Andros - Deep End (ft. Lunis)
 
-Last updated at 12/30/2020 07:38
+Last updated at 12/30/2020 07:40
