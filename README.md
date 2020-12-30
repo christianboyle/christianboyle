@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOceojgCVi7Jw4Ao-sz3zow-t50x50.jpg">](https://soundcloud.com/kotonohouse_bootlegs/knowrealkey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iygb6ITrViGDCAXx-AnPTYg-t50x50.jpg">](https://soundcloud.com/gvillain999/going-ghost)
 
-**Artist**: KOTONOHOUSE_Bootlegs 
+**Artist**: villain ☸ 
 
-**Track**: Noriaki - Debut(KOTONOHOUSE Redebut)
+**Track**: GOING GHOST
 
-Last updated at 12/30/2020 09:20
+Last updated at 12/30/2020 09:24
