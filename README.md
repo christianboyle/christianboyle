@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtzBEI4AXS3tkJLI-rOZGMg-t50x50.jpg">](https://soundcloud.com/strangefruitsmusic/sf269)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DpIzgDGRizkRxgM-bY29lA-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-ones-you-miss)
 
-**Artist**: Strange Fruits 
+**Artist**: R3HAB 
 
-**Track**: Fallen Roses, Mr. Pig & Andros - Deep End (ft. Lunis)
+**Track**: R3HAB - Ones You Miss
 
-Last updated at 12/30/2020 07:40
+Last updated at 12/30/2020 07:44
