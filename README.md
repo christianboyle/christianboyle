@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xls367MuLytfyxzV-0cLSgg-t50x50.jpg">](https://soundcloud.com/luhvmusic/luhv-x-colossus-vortex-ft-realssm-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73aFyzNZljJm6oqc-iHly3Q-t50x50.jpg">](https://soundcloud.com/takatashawty/straight-to-the-top)
 
-**Artist**: Luhv 
+**Artist**: TAKATASHAWTY 
 
-**Track**: Luhv X Colossus - Vortex (ft Realssm)
+**Track**: STRAIGHT TO THE TOP
 
-Last updated at 12/29/2020 15:50
+Last updated at 12/30/2020 07:32
