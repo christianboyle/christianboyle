@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgZTNhK8nVTQysRQ-FlTWBg-t50x50.jpg">](https://soundcloud.com/sway55/daydream-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6njRhCDnIifdXhV-gHwc3w-t50x50.jpg">](https://soundcloud.com/spaceyacht/vrg-headlock)
 
-**Artist**: Sway55 
+**Artist**: SPACE YACHT 
 
-**Track**: DAYDREAM EP
+**Track**: VRG - Headlock
 
-Last updated at 12/30/2020 07:52
+Last updated at 12/30/2020 08:20
