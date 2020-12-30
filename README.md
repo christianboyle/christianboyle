@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iygb6ITrViGDCAXx-AnPTYg-t50x50.jpg">](https://soundcloud.com/gvillain999/going-ghost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sMQ8XerXv8SzyYyi-mNTq2w-t50x50.jpg">](https://soundcloud.com/evilokai666/take-risk)
 
-**Artist**: villain ☸ 
+**Artist**: EVIL 
 
-**Track**: GOING GHOST
+**Track**: TAKE RISK
 
-Last updated at 12/30/2020 09:24
+Last updated at 12/30/2020 09:27
