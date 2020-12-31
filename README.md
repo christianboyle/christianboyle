@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sM1ShmUuzq6pvJNy-NYpRWA-t50x50.jpg">](https://soundcloud.com/deadyucca/pleasant-sadness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HdA861EqyX3azmga-Fk4Kkw-t50x50.jpg">](https://soundcloud.com/walkrdrumandbass/oscillate)
 
-**Artist**: Dead Yucca 
+**Artist**: Walk:r 
 
-**Track**: Pleasant Sadness
+**Track**: Oscillate
 
-Last updated at 12/31/2020 12:47
+Last updated at 12/31/2020 12:51
