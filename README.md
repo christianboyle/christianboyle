@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjlbAq637kELOuh66nxbtnG70FDb8BYcygfVdE-IA=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WStFUVeuLYOzQruH-bLEMUw-t50x50.jpg">](https://soundcloud.com/iffoundmusic/stonefox-never-fight-if-found-remix)
 
-**Artist**: S3RL 
+**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
 
-**Track**: Punch the Gas - Brisk & S3RL
+**Track**: Stonefox - Never Fight (if found Remix)
 
-Last updated at 12/30/2020 20:29
+Last updated at 12/30/2020 20:31
