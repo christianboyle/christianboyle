@@ -4,6 +4,6 @@
 
 **Artist**: S3RL 
 
-**Track**: MTC Saga - S3RL & Radio Gosha
+**Track**: Punch the Gas - Brisk & S3RL
 
-Last updated at 12/30/2020 20:27
+Last updated at 12/30/2020 20:29
