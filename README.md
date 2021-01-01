@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eqo0TsU8vlEkjsIV-G1zTLg-t50x50.jpg">](https://soundcloud.com/gardna/gardna-good-time-not-a-long-time-ft-omar-watch-the-ride-remix-1?in=magnetic-magazine/sets/the-15-best-drum-197679031)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
 
-**Artist**: Gardna 
+**Artist**: umru 
 
-**Track**: Gardna - Good Time Not A Long Time (ft. Omar) [Watch The Ride Remix]
+**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
 
-Last updated at 12/31/2020 13:11
+Last updated at 12/31/2020 22:46
