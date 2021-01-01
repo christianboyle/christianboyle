@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OLg02oyxfzX4q1OD-1KQoVA-t50x50.jpg">](https://soundcloud.com/fruity-sounds/notd-catello-nobody-doyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PvH8s7NkiRGyl4Hq-yamntQ-t50x50.jpg">](https://soundcloud.com/adamnineseven/2021-nine-seven-showcase)
 
-**Artist**: Fruity Sounds 
+**Artist**: NINE SEVEN 
 
-**Track**: NOTD & Catello - Nobody (Doyle Remix)
+**Track**: 2021 NINE SEVEN SHOWCASE
 
-Last updated at 01/01/2021 15:29
+Last updated at 01/01/2021 15:31
