@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXLKFbS7Bp1EYB06-XBFkTQ-t50x50.jpg">](https://soundcloud.com/edm/alex-cortes-drelm-roses-feat-akacia?in=edm/sets/alex-cortes-drelm-roses-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1VPzNBu42D6f9nh-Y31njg-t50x50.jpg">](https://soundcloud.com/hentai-4/chromium)
 
-**Artist**: EDM.com 
+**Artist**: HENTAiCORE 
 
-**Track**: Alex Cortes, DRELM - Roses (feat. Akacia)
+**Track**: Chromium - Aethral & HENTAiCORE Essential Hardcore Sounds Vol.1
 
-Last updated at 01/01/2021 15:23
+Last updated at 01/01/2021 15:25
