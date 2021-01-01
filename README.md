@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0UxrL2R8NwRznFK-OWupOg-t50x50.jpg">](https://soundcloud.com/bbjuelz/aether-juelz-heimanu-remix)
 
-**Artist**: umru 
+**Artist**: Juelz 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: Aether (Juelz & Heimanu Remix)
 
-Last updated at 12/31/2020 22:50
+Last updated at 01/01/2021 14:41
