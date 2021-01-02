@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O1jqf7hhAH7iJVyA-zp8SqA-t50x50.jpg">](https://soundcloud.com/iamoneheart/justalover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PgAWewTDtAtB1nus-fc0sRQ-t50x50.jpg">](https://soundcloud.com/prodtrvth/aura)
 
-**Artist**: Øneheart 
+**Artist**: TЯVTH 
 
-**Track**: Just A Lover
+**Track**: aura (+666GRAVES)[UB PREMIERE]
 
-Last updated at 01/02/2021 07:15
+Last updated at 01/02/2021 07:17
