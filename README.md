@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQQrzk49aEzOq4BF-Nm39rQ-t50x50.jpg">](https://soundcloud.com/theyonker/hood-bitch-w-cloudymane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O1jqf7hhAH7iJVyA-zp8SqA-t50x50.jpg">](https://soundcloud.com/iamoneheart/justalover)
 
-**Artist**: YONKER DILLA 
+**Artist**: Øneheart 
 
-**Track**: HOOD BITCH W/ Cloudymane
+**Track**: Just A Lover
 
-Last updated at 01/02/2021 07:11
+Last updated at 01/02/2021 07:15
