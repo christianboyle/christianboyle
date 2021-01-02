@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PvH8s7NkiRGyl4Hq-yamntQ-t50x50.jpg">](https://soundcloud.com/adamnineseven/2021-nine-seven-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000640625605-w1j0xb-t50x50.jpg">](https://soundcloud.com/iamgeoofficial/blastem)
 
-**Artist**: NINE SEVEN 
+**Artist**: GEO 
 
-**Track**: 2021 NINE SEVEN SHOWCASE
+**Track**: GEO x TYEGUYS - BLAST EM
 
-Last updated at 01/02/2021 05:05
+Last updated at 01/02/2021 05:19
