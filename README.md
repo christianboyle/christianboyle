@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIDmb4znMitFr614-MQrApQ-t50x50.jpg">](https://soundcloud.com/twikipedia/senta-w-ericdoa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMLAGgJa5zheABd6-QuzV5Q-t50x50.jpg">](https://soundcloud.com/never_ending_dream/willix-sequential)
 
-**Artist**: twikipedia 
+**Artist**: neverendingdream! 
 
-**Track**: senta 🪑 w/ ericdoa
+**Track**: Willix - Sequential
 
-Last updated at 01/01/2021 23:43
+Last updated at 01/01/2021 23:45
