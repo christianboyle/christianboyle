@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQnOedaZHbpo2WCo-72sXSg-t50x50.jpg">](https://soundcloud.com/likesaturn/like-saturn-tunnel-vision)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujkDhDk7i6y6znuk-DN290Q-t50x50.jpg">](https://soundcloud.com/smokepurpp/pigeons-prod-tupun-rico)
 
-**Artist**: likesaturn 
+**Artist**: smokepurpp 
 
-**Track**: Like Saturn - Tunnel Vision
+**Track**: PIGEONS! (Prod. Tupun & Rico)
 
-Last updated at 01/02/2021 05:21
+Last updated at 01/02/2021 05:25
