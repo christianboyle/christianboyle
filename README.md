@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0yvGYBnmT1Mgryq-0IiACA-t50x50.jpg">](https://soundcloud.com/crusifye/flawless-done-prod-fucksunlight-x-cj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNjMq1Ht8gFSoCAu-3sCk5Q-t50x50.jpg">](https://soundcloud.com/imbn/lima)
 
-**Artist**: crusifye 
+**Artist**: ImBN 
 
-**Track**: flawless 💋 (fucksunlight + cj808)
+**Track**: Lima
 
-Last updated at 01/01/2021 22:47
+Last updated at 01/01/2021 22:49
