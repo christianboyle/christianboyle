@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sXDd03jq9cv6XGyG-T9CY2A-t50x50.jpg">](https://soundcloud.com/iamwuki/bad-girl-drumma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zk82pvyfGND82fdt-8Lvnng-t50x50.jpg">](https://soundcloud.com/iamwuki/wuki-shaq-shutup)
 
 **Artist**: wuki 
 
-**Track**: Bad Girl Drumma (with Juvenile)
+**Track**: Wuki & Shaq - SHUTUP (with Scrilla King)
 
-Last updated at 01/01/2021 19:36
+Last updated at 01/01/2021 19:38
