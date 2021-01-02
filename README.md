@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J53BIwN9IAa1I25w-fj7I4w-t50x50.jpg">](https://soundcloud.com/s4vepoint/hesaidshesaid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iu6fmS5ZPBVOUmrq-nHYczg-t50x50.jpg">](https://soundcloud.com/otographicmusic/nhato-feat-glascat-one-step-forward)
 
-**Artist**: savepoint 
+**Artist**: Otographic Music 
 
-**Track**: he said, she said ft. mental & careful (toren berios x jayya)
+**Track**: Nhato feat. Glascat - One Step Forward
 
-Last updated at 01/02/2021 04:48
+Last updated at 01/02/2021 04:50
