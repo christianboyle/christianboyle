@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KepreoiChtko7f3y-hlhG5A-t50x50.jpg">](https://soundcloud.com/kidtrashpop/palmangels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9SHbUThH5D2jnzs-Ma9LGg-t50x50.jpg">](https://soundcloud.com/suigetsuluvu/saikoudesu)
 
-**Artist**: KID TRRRASH 
+**Artist**: suigetsu 
 
-**Track**: PALM ANGELS (prod. kidtrashpop)
+**Track**: saikou desu // さいこう です
 
-Last updated at 01/02/2021 00:18
+Last updated at 01/02/2021 00:20
