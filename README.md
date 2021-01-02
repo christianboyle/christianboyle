@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h64qitENxFzzzu2J-PCoeAg-t50x50.jpg">](https://soundcloud.com/stayloosemusic/last-yr-rly-sucked-stayloose-x-blair)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRidhGMLJLK4Fiy8-ewC2FQ-t50x50.jpg">](https://soundcloud.com/ramonpang/0pn-the-whether-channel-ramonpang-flip)
 
-**Artist**: StayLoose | StéLouse 
+**Artist**: RamonPang 
 
-**Track**: Last Yr Rly Sucked (StayLoose X Blair)
+**Track**: 0PN - The Whether Channel (RamonPang flip)
 
-Last updated at 01/02/2021 03:31
+Last updated at 01/02/2021 03:35
