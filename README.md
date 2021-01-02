@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujkDhDk7i6y6znuk-DN290Q-t50x50.jpg">](https://soundcloud.com/smokepurpp/pigeons-prod-tupun-rico)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaxEi71ShdA9RlHK-1sedpw-t50x50.jpg">](https://soundcloud.com/nuitunit/the-valleys?in=nuitunit/sets/archived-views)
 
-**Artist**: smokepurpp 
+**Artist**: nuitunit 
 
-**Track**: PIGEONS! (Prod. Tupun & Rico)
+**Track**: The Valleys
 
-Last updated at 01/02/2021 05:25
+Last updated at 01/02/2021 05:27
