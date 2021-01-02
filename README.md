@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSBwNrjKj2yuKVTg-CzAQTA-t50x50.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Se8XLEdHxL0QVu0O-6oQbNw-t50x50.jpg">](https://soundcloud.com/the-games-we-play/burial-feral-witchchild-vnna-reconstruction)
 
-**Artist**: HOLLY 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: ileX-MAS Mix 2020
+**Track**: Burial - Feral Witchchild (VNNA reconstruction)
 
-Last updated at 01/02/2021 02:10
+Last updated at 01/02/2021 03:12
