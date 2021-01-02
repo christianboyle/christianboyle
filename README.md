@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BPw9GSVmNPN0xKPv-70tT1Q-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/kyu-sweet-n-low-mcr?in=morecreativityrecords/sets/kyu-sweet-n-low)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0yvGYBnmT1Mgryq-0IiACA-t50x50.jpg">](https://soundcloud.com/crusifye/flawless-done-prod-fucksunlight-x-cj)
 
-**Artist**: more creativity records 
+**Artist**: crusifye 
 
-**Track**: Kyu - sweet n low
+**Track**: flawless 💋 (fucksunlight + cj808)
 
-Last updated at 01/01/2021 22:46
+Last updated at 01/01/2021 22:47
