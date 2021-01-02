@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJMFtbAL9zgympSv-6KE5kQ-t50x50.jpg">](https://soundcloud.com/suigetsuluvu/everything-make-sense)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0YqxgLNlHNRsMDHa-6Hvu4A-t50x50.jpg">](https://soundcloud.com/xxxxzomb/lunar-glow)
 
-**Artist**: suigetsu 
+**Artist**: ZØMB 
 
-**Track**: everything make sense w/ knuck!es
+**Track**: Lunar Glow 🌙
 
-Last updated at 01/02/2021 00:23
+Last updated at 01/02/2021 00:25
