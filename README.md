@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0UxrL2R8NwRznFK-OWupOg-t50x50.jpg">](https://soundcloud.com/bbjuelz/ego-death-juelz-remk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06SrJT6G2uEmompT-gx7JFg-t50x50.jpg">](https://soundcloud.com/p4rkr/clairvoyant)
 
-**Artist**: Juelz 
+**Artist**: osquinn 
 
-**Track**: Ego Death (Juelz & RemK Remix)
+**Track**: clairvoyant (tssf cover)
 
-Last updated at 01/01/2021 21:12
+Last updated at 01/01/2021 21:16
