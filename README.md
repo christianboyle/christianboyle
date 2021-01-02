@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1a5qFy6lF0ysyzvc-bp545A-t50x50.jpg">](https://soundcloud.com/djsatoshi117/2020-hard-dance-mashup-pack-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IvZj24xSKvg7w13-gyN3aw-t50x50.jpg">](https://soundcloud.com/byethereal/best-of-2020)
 
-**Artist**: SATOSHI 
+**Artist**: .ethereal 
 
-**Track**: 2020 HARD DANCE MASHUP PACK (VOL. 2) by SATOSHI
+**Track**: Best of 2020
 
-Last updated at 01/01/2021 22:53
+Last updated at 01/01/2021 22:55
