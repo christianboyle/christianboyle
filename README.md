@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEvzpAVkil8ulX03-jTqwLQ-t50x50.jpg">](https://soundcloud.com/bbjuelz/mirrors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BmlmZZp5iZmOfWnV-D8Wsbg-t50x50.jpg">](https://soundcloud.com/bbjuelz/cocaina?in=bbjuelz/sets/the-quarantine-beat-series)
 
 **Artist**: Juelz 
 
-**Track**: Arrested Youth - Mirrors (Juelz Remix)
+**Track**: Day 5: Cocaina
 
-Last updated at 01/01/2021 20:14
+Last updated at 01/01/2021 20:16
