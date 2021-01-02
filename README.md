@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8w6pIynFMSqM1nFh-1JSHNQ-t50x50.jpg">](https://soundcloud.com/prodjai/ketamine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zk82pvyfGND82fdt-8Lvnng-t50x50.jpg">](https://soundcloud.com/iamwuki/wuki-shaq-shutup)
 
-**Artist**: jai. 
+**Artist**: wuki 
 
-**Track**: ketamine
+**Track**: Wuki & Shaq - SHUTUP (with Scrilla King)
 
-Last updated at 01/02/2021 05:37
+Last updated at 01/02/2021 05:39
