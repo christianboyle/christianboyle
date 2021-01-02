@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjIhDt3TBIWb49hF-yrZVvg-t50x50.jpg">](https://soundcloud.com/benzi/xmas2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BPw9GSVmNPN0xKPv-70tT1Q-t50x50.jpg">](https://soundcloud.com/morecreativityrecords/kyu-sweet-n-low-mcr?in=morecreativityrecords/sets/kyu-sweet-n-low)
 
-**Artist**: BENZI 
+**Artist**: more creativity records 
 
-**Track**: BENZI vs XMAS II
+**Track**: Kyu - sweet n low
 
-Last updated at 01/01/2021 22:14
+Last updated at 01/01/2021 22:46
