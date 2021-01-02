@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2Ba9WiyzqyQuRX9-QaMVkw-t50x50.jpg">](https://soundcloud.com/deuxces/badthings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vp41huaxalzYDDsi-fcoVPg-t50x50.jpg">](https://soundcloud.com/elated-society/oh-gee-fresh-juice?in=arkadiaproject/sets/bass-warriors)
 
-**Artist**: 𝐃𝐄𝐔𝐗𝐂𝐄𝐒 
+**Artist**: Elated Society 
 
-**Track**: Alison Wonderland - Bad Things (𝐃𝐄𝐔𝐗𝐂𝐄𝐒 Remix)
+**Track**: oh! gee - Fresh Juice
 
-Last updated at 01/02/2021 00:54
+Last updated at 01/02/2021 00:58
