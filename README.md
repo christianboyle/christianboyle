@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c06LGpze55byqzL6-c1DbLw-t50x50.jpg">](https://soundcloud.com/wav_f1le/saintsprotecthernow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h64qitENxFzzzu2J-PCoeAg-t50x50.jpg">](https://soundcloud.com/stayloosemusic/last-yr-rly-sucked-stayloose-x-blair)
 
-**Artist**: stockphoto 
+**Artist**: StayLoose | StéLouse 
 
-**Track**: saintsprotecthernow (w/ ways15xx) [prod. kimj]
+**Track**: Last Yr Rly Sucked (StayLoose X Blair)
 
-Last updated at 01/02/2021 03:29
+Last updated at 01/02/2021 03:31
