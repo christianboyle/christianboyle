@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vz9qEawe0lzzKUt9-c8GWyg-t50x50.jpg">](https://soundcloud.com/castlan/kaskade-flip-reset-castlan-uk-hardcore-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8xVWYzX3x4xYTNP-7dmfRw-t50x50.jpg">](https://soundcloud.com/karmas_productionz/karmz-planet-lockdown)
 
-**Artist**: castlan 
+**Artist**: DUB-R8 
 
-**Track**: Kaskade - Flip Reset (CASTLAN UK Hardcore Edit)
+**Track**: KARMZ-PLANET LOCKDOWN
 
-Last updated at 01/02/2021 00:47
+Last updated at 01/02/2021 00:50
