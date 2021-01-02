@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IvZj24xSKvg7w13-gyN3aw-t50x50.jpg">](https://soundcloud.com/byethereal/best-of-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PY4pJQ93kFNahvmM-UvWbJQ-t50x50.jpg">](https://soundcloud.com/inquisitivemixes/inquisitive-the-ethereal-edits-pack)
 
-**Artist**: .ethereal 
+**Artist**: Inquisitive [Mixes] 
 
-**Track**: Best of 2020
+**Track**: INQUISITIVE - THE ETHEREAL EDITS PACK
 
-Last updated at 01/01/2021 22:55
+Last updated at 01/01/2021 23:11
