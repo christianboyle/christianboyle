@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MeFwCyY238BfhOPD-XwX17A-t50x50.jpg">](https://soundcloud.com/chill/gallant-rocks-2-hole?in=chill/sets/gallant-rocks-2-hole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c06LGpze55byqzL6-c1DbLw-t50x50.jpg">](https://soundcloud.com/wav_f1le/saintsprotecthernow)
 
-**Artist**: Hegemon: Chinchilla 
+**Artist**: stockphoto 
 
-**Track**: Gallant Rocks - 2$ Hole
+**Track**: saintsprotecthernow (w/ ways15xx) [prod. kimj]
 
-Last updated at 01/02/2021 03:25
+Last updated at 01/02/2021 03:29
