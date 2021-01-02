@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PvH8s7NkiRGyl4Hq-yamntQ-t50x50.jpg">](https://soundcloud.com/adamnineseven/2021-nine-seven-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0dLCMxQak1CXH6m-N6e4JQ-t50x50.jpg">](https://soundcloud.com/colejacksontunes/flume-drop-the-game-cole-jackson-remix)
 
-**Artist**: NINE SEVEN 
+**Artist**: Cole Jackson 
 
-**Track**: 2021 NINE SEVEN SHOWCASE
+**Track**: Flume - Drop The Game (Cole Jackson Remix)
 
-Last updated at 01/01/2021 15:31
+Last updated at 01/01/2021 19:34
