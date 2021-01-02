@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WjGsuhP4HagA7rc-G7GSsA-t50x50.jpg">](https://soundcloud.com/willixbeats/illmissyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74jQkm5TWmimYsty-O1zxpw-t50x50.jpg">](https://soundcloud.com/dj-amok-1/amok-cheesy)
 
-**Artist**: Willix 
+**Artist**: AMOK (dnb) 
 
-**Track**: Willix ft.ItsLucid - I'll miss you
+**Track**: AMOK - Cheesy (400 FREEBIE)
 
-Last updated at 01/01/2021 23:37
+Last updated at 01/01/2021 23:39
