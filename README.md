@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n54ZGt764tBQBP64-oOoSzQ-t50x50.jpg">](https://soundcloud.com/i-am-merchant/apashe-uebok-gotta-run-merchant-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWepjN53d6Gf6Sq9-6y5pOw-t50x50.jpg">](https://soundcloud.com/heavenindaclouds/blame-kurtains)
 
-**Artist**: Merchant 
+**Artist**: heavn 
 
-**Track**: Apashe - Uebok Gotta Run (Merchant Remix)
+**Track**: blame (kurtains)
 
-Last updated at 01/02/2021 03:39
+Last updated at 01/02/2021 03:43
