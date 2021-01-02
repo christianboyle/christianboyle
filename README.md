@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWepjN53d6Gf6Sq9-6y5pOw-t50x50.jpg">](https://soundcloud.com/heavenindaclouds/blame-kurtains)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ7Sz5CrlCdM2irz-n7DWKg-t50x50.jpg">](https://soundcloud.com/zootzie/the-s-prod-ways)
 
-**Artist**: heavn 
+**Artist**: Zootzie 
 
-**Track**: blame (kurtains)
+**Track**: the S (Prod. Ways)
 
-Last updated at 01/02/2021 03:43
+Last updated at 01/02/2021 03:44
