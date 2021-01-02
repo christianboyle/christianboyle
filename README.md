@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7yPYWMzOGWvzCDk-r8JOQA-t50x50.jpg">](https://soundcloud.com/evadewave/escape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zugM5aKqgHHb-0-t50x50.jpg">](https://soundcloud.com/brooklynfire/kramder-tommie-sunshine-1998)
 
-**Artist**: evade. 
+**Artist**: Brooklyn Fire 
 
-**Track**: e s c a p e + + v l o f .
+**Track**: kramder, Tommie Sunshine - 1998 And Some (Original Mix)
 
-Last updated at 01/01/2021 21:44
+Last updated at 01/01/2021 21:46
