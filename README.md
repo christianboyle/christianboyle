@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Xm45LqyLlI78JH3-QAtXyg-t50x50.jpg">](https://soundcloud.com/bigbillsondeck/jackass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmyrKWH0cKosSU3Q-p0xJmA-t50x50.jpg">](https://soundcloud.com/jackieplatinum/1000-miles-prod-thatbossevan?in=jackieplatinum/sets/1000-miles)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: Jackie Platinum 
 
-**Track**: JACKASS
+**Track**: 1000 Miles (Prod. ThatBossEvan)
 
-Last updated at 01/02/2021 00:03
+Last updated at 01/02/2021 00:05
