@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TY1DFsZf3TnZ2B9n-8Q34Xg-t50x50.jpg">](https://soundcloud.com/duckashanofficial/ducka-shan-insomniac-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQQrzk49aEzOq4BF-Nm39rQ-t50x50.jpg">](https://soundcloud.com/theyonker/hood-bitch-w-cloudymane)
 
-**Artist**: Ducka Shan 
+**Artist**: YONKER DILLA 
 
-**Track**: DUCKA SHAN - PROJECTIONS #13 [Insomniac Radio]
+**Track**: HOOD BITCH W/ Cloudymane
 
-Last updated at 01/02/2021 06:11
+Last updated at 01/02/2021 07:11
