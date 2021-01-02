@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QT2d8CzVkO0WN1ni-zYMKwQ-t50x50.jpg">](https://soundcloud.com/manifoldhome/eastghost-skin-manifold-home-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UqWACwjd0ZQaUWAt-hq3bog-t50x50.jpg">](https://soundcloud.com/iamriversilvers/diffraction?in=iamriversilvers/sets/infatuation-ep)
 
-**Artist**: MANIFOLD HOME 
+**Artist**: riversilvers 
 
-**Track**: EASTGHOST - Skin (MANIFOLD HOME FLIP)
+**Track**: Diffraction
 
-Last updated at 01/02/2021 05:43
+Last updated at 01/02/2021 05:49
