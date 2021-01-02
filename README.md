@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mZPhwgJ3Q1q8OxyF-EwAXLQ-t50x50.jpg">](https://soundcloud.com/lishaltovskaya/xmas-not-in-bed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000182596318-ge74co-t50x50.jpg">](https://soundcloud.com/beautifulbuzzz/buzzzmix-vol-33-bkaye)
 
-**Artist**: ALISHA 
+**Artist**: Beautiful Buzzz 
 
-**Track**: Xmas not in Bed
+**Track**: Buzzzmix Vol. 33 - BKAYE
 
-Last updated at 01/02/2021 07:51
+Last updated at 01/02/2021 17:31
