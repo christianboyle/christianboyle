@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEI36VhkYkCQFCIz-yqKHYw-t50x50.jpg">](https://soundcloud.com/itscustome/jump-edit?in=arkadiaproject/sets/bass-warriors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IPWjln1nLcpZ631H-zWQ6SA-t50x50.jpg">](https://soundcloud.com/novaganghellsing/catfish)
 
-**Artist**: CUSTOME 
+**Artist**: NOVAGANG 
 
-**Track**: Lewis Grant - Jump [CUSTOME Edit]
+**Track**: WAYSxEXODUS1900🎣🎣🎣CATFISH PROD CJ808xPRBLM
 
-Last updated at 01/02/2021 01:18
+Last updated at 01/02/2021 01:20
