@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74jQkm5TWmimYsty-O1zxpw-t50x50.jpg">](https://soundcloud.com/dj-amok-1/amok-cheesy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIDmb4znMitFr614-MQrApQ-t50x50.jpg">](https://soundcloud.com/twikipedia/senta-w-ericdoa)
 
-**Artist**: AMOK (dnb) 
+**Artist**: twikipedia 
 
-**Track**: AMOK - Cheesy (400 FREEBIE)
+**Track**: senta 🪑 w/ ericdoa
 
-Last updated at 01/01/2021 23:39
+Last updated at 01/01/2021 23:43
