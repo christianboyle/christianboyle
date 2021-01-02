@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BFdrmzKYyEDywuPZ-UgZhGQ-t50x50.jpg">](https://soundcloud.com/hexagon/bvrnout-rock-the-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QT2d8CzVkO0WN1ni-zYMKwQ-t50x50.jpg">](https://soundcloud.com/manifoldhome/eastghost-skin-manifold-home-flip)
 
-**Artist**: HEXAGON 
+**Artist**: MANIFOLD HOME 
 
-**Track**: BVRNOUT - Rock The Party
+**Track**: EASTGHOST - Skin (MANIFOLD HOME FLIP)
 
-Last updated at 01/02/2021 05:41
+Last updated at 01/02/2021 05:43
