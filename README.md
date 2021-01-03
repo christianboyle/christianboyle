@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000221213689-6d5u1p-t50x50.jpg">](https://soundcloud.com/chillplanetmusic/chillplanet028)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000128942489-9girah-t50x50.jpg">](https://soundcloud.com/stillplay/zedd-i-want-you-to-know-feat-selena-gomez-stillplay-remix)
 
-**Artist**: Chill Planet 
+**Artist**: StillPlay 
 
-**Track**: Two Friends ft. Cosmos & Creature - Out Of Love (Egzod Remix)
+**Track**: Zedd - I Want You To Know [feat. Selena Gomez] (StillPlay Remix)
 
-Last updated at 01/02/2021 21:06
+Last updated at 01/02/2021 21:10
