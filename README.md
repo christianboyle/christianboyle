@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000015476949-bpj9c3-t50x50.jpg">](https://soundcloud.com/arnas-lekavi-ius/kill-paris-operate-feat-royal-illenium-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119842250-mrsbhg-t50x50.jpg">](https://soundcloud.com/soundremedy/lostxo)
 
-**Artist**: Arnas Lekavičius 
+**Artist**: SOUND REMEDY 
 
-**Track**: Kill Paris - Operate (feat. Royal) (Illenium Remix)
+**Track**: Lost (feat. Marie St. Charles)
 
-Last updated at 01/02/2021 20:16
+Last updated at 01/02/2021 20:20
