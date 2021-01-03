@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000181821298-en8y0h-t50x50.jpg">](https://soundcloud.com/kazlo/rozes-hangin-on-kazlo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000196545786-vd8spz-t50x50.jpg">](https://soundcloud.com/lucalush/dfa)
 
-**Artist**: Kazlo 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: Rozes - Hangin' On (Kazlo Remix)
+**Track**: DILLON FRANCIS - ANYWHERE (LUCA LUSH REMIX)
 
-Last updated at 01/02/2021 18:21
+Last updated at 01/02/2021 18:25
