@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2lVUEovVfU7mJxv-KiZCjQ-t50x50.jpg">](https://soundcloud.com/habstrakt/gotta-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuqPMeqDzw3f1CGt-dbGQLw-t50x50.jpg">](https://soundcloud.com/djbanned/bossmanebray-samokdot-give-an-go-prod-yungspank-dj-banned-exclusive)
 
-**Artist**: Habstrakt 
+**Artist**: DJ BANNED EXCLUSIVES 
 
-**Track**: Gotta Be
+**Track**: BossManeBray + Samokdot - Give An Go (Prod. Yungspank) [DJ BANNED EXCLUSIVE]
 
-Last updated at 01/03/2021 15:29
+Last updated at 01/03/2021 15:33
