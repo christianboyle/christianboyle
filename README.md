@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000082275248-daazvc-t50x50.jpg">](https://soundcloud.com/doandroidsdance/3lau-ft-bright-lights-how-you-love-me-prince-fox-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000127783265-upsk0y-t50x50.jpg">](https://soundcloud.com/djvanic/chvrches-the-mother-we-share)
 
-**Artist**: DoAndroidsDance? 
+**Artist**: VANIC Official 
 
-**Track**: 3LAU ft. Bright Lights - How You Love Me (Prince Fox Remix)
+**Track**: CHVRCHES - The Mother We Share (Vanic Remix)
 
-Last updated at 01/02/2021 18:02
+Last updated at 01/02/2021 18:05
