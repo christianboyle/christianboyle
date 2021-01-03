@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093755858-jqmbq3-t50x50.jpg">](https://soundcloud.com/jaykode/galantis-runaway-jaykode-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000242169606-dcdanl-t50x50.jpg">](https://soundcloud.com/tropixremixes/chicago)
 
-**Artist**: JAYKODE 
+**Artist**: Tropix Remixes 
 
-**Track**: Galantis - Runaway (JayKode Remix)
+**Track**: Win and Woo x Bryce Fox - Chicago (Tropix Remix)
 
-Last updated at 01/02/2021 20:36
+Last updated at 01/02/2021 20:40
