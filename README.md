@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161525748-m6m8mc-t50x50.jpg">](https://soundcloud.com/drevm/galantis-gold-dust-drevm-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197373451-iq7ezg-t50x50.jpg">](https://soundcloud.com/beauzworld/zeds-dead-nghtmre-frontlines-beauz-dreamix-1)
 
-**Artist**: DREVM 
+**Artist**: BEAUZ 
 
-**Track**: Galantis - Gold Dust (Drevm x Hvtchet ) **VXE PREMIER**
+**Track**: Zeds Dead & NGHTMRE - Frontlines (BEAUZ Dreamix)
 
-Last updated at 01/02/2021 19:54
+Last updated at 01/02/2021 19:58
