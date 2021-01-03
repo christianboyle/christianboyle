@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000176295727-sml232-t50x50.jpg">](https://soundcloud.com/exbf/runaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218993341-3hokxg-t50x50.jpg">](https://soundcloud.com/walkaboutmusic/dez-in-my-head-3)
 
-**Artist**: Ex Boyfriend 
+**Artist**: walkabout 
 
-**Track**: Galantis - Runaway (Ex Boyfriend Remix)
+**Track**: Walkabout - In My Head
 
-Last updated at 01/02/2021 18:09
+Last updated at 01/02/2021 18:13
