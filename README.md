@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBUhJL2nMDnXWojj-9xQS0w-t50x50.jpg">](https://soundcloud.com/sappy94/yayo?in=sappy94/sets/tape-dropping-tomorrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eqT0FwGyuAm2-0-t50x50.png">](https://soundcloud.com/hotelgarudamusic/rush-rome-in-silver-remix?in=romeinsilver/sets/hotel-garuda-rush-rome-in)
 
-**Artist**: Sappy 
+**Artist**: HOTEL GARUDA 
 
-**Track**: Yayo
+**Track**: Rush (Rome in Silver Remix)
 
-Last updated at 01/03/2021 15:23
+Last updated at 01/03/2021 15:25
