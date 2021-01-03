@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6zmb2RBKWWZARAj-0w2eZg-t50x50.jpg">](https://soundcloud.com/daturasound/datura-x-vayu-radiant-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zXdjZSFXrF48QvDz-4qpzGg-t50x50.jpg">](https://soundcloud.com/particaartistgroup/itsawrap)
 
-**Artist**: DATURA 
+**Artist**: Partica Artist Group 
 
-**Track**: DATURA X Ṿ Ʌ Ẏ U - Radiant Night
+**Track**: episcool - It's A Wrap
 
-Last updated at 01/02/2021 23:16
+Last updated at 01/02/2021 23:20
