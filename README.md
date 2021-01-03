@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIPcrKrHzCrrC3RF-AujcqA-t50x50.jpg">](https://soundcloud.com/omegasc/ookay-back-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000152161840-10cxpp-t50x50.jpg">](https://soundcloud.com/subfer/moving-on-feat-yandi-kelly-hosley)
 
-**Artist**: OMEGA Ω 
+**Artist**: Subfer 
 
-**Track**: Ookay - Back Again
+**Track**: Moving On (Feat. Yandi & Kelly Hosley)
 
-Last updated at 01/02/2021 20:26
+Last updated at 01/02/2021 20:30
