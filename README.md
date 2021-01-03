@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000242169606-dcdanl-t50x50.jpg">](https://soundcloud.com/tropixremixes/chicago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000121879388-sy4ifb-t50x50.jpg">](https://soundcloud.com/benmaxwellmusic/dillon-francis-bruk-bruk-i-need-your-lovin-ben-maxwell-remix-1)
 
-**Artist**: Tropix Remixes 
+**Artist**: ben maxwell 
 
-**Track**: Win and Woo x Bryce Fox - Chicago (Tropix Remix)
+**Track**: Dillon Francis - Bruk Bruk (I Need Your Lovin) [ben maxwell flip]
 
-Last updated at 01/02/2021 20:40
+Last updated at 01/02/2021 20:44
