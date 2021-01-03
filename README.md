@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000127783265-upsk0y-t50x50.jpg">](https://soundcloud.com/djvanic/chvrches-the-mother-we-share)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000176295727-sml232-t50x50.jpg">](https://soundcloud.com/exbf/runaway)
 
-**Artist**: VANIC Official 
+**Artist**: Ex Boyfriend 
 
-**Track**: CHVRCHES - The Mother We Share (Vanic Remix)
+**Track**: Galantis - Runaway (Ex Boyfriend Remix)
 
-Last updated at 01/02/2021 18:05
+Last updated at 01/02/2021 18:09
