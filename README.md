@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000217143960-64m1zb-t50x50.jpg">](https://soundcloud.com/kapremusic/too-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000205611268-w7bakm-t50x50.jpg">](https://soundcloud.com/virtumusic/san-holo-light-virtu-remix)
 
-**Artist**: Kapre 
+**Artist**: VIRTU 
 
-**Track**: Vanic - Too Soon ft. Maty Noyes (Kapre Remix)
+**Track**: San Holo - Light (VIRTU Remix)
 
-Last updated at 01/02/2021 19:18
+Last updated at 01/02/2021 19:22
