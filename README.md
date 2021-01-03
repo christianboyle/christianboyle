@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000181412662-m4q03b-t50x50.jpg">](https://soundcloud.com/frisonmusic/kap-slap-felt-this-good-frison-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000082275248-daazvc-t50x50.jpg">](https://soundcloud.com/doandroidsdance/3lau-ft-bright-lights-how-you-love-me-prince-fox-remix)
 
-**Artist**: FRISON ෴ 
+**Artist**: DoAndroidsDance? 
 
-**Track**: Kap Slap - Felt This Good (ft. M. Bronx) [Frison Remix]
+**Track**: 3LAU ft. Bright Lights - How You Love Me (Prince Fox Remix)
 
-Last updated at 01/02/2021 17:58
+Last updated at 01/02/2021 18:02
