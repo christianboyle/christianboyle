@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000183761190-rmsau0-t50x50.jpg">](https://soundcloud.com/kingrnsom/killers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000221213689-6d5u1p-t50x50.jpg">](https://soundcloud.com/chillplanetmusic/chillplanet028)
 
-**Artist**: RNSOM 
+**Artist**: Chill Planet 
 
-**Track**: B-Sides - Killers On the Loose (feat. Nevve) [RNSOM Remix]
+**Track**: Two Friends ft. Cosmos & Creature - Out Of Love (Egzod Remix)
 
-Last updated at 01/02/2021 21:02
+Last updated at 01/02/2021 21:06
