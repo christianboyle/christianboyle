@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7Oj4h87dTIegSM1-lveMeg-t50x50.jpg">](https://soundcloud.com/ayyofree/brakkit-agitate?in=ayyofree/sets/brakkit-agitate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBUhJL2nMDnXWojj-9xQS0w-t50x50.jpg">](https://soundcloud.com/sappy94/yayo?in=sappy94/sets/tape-dropping-tomorrow)
 
-**Artist**: AY YO TRIP! 
+**Artist**: Sappy 
 
-**Track**: Brakkit - Agitate [Dubstep N Trap Premiere]
+**Track**: Yayo
 
-Last updated at 01/03/2021 15:19
+Last updated at 01/03/2021 15:23
