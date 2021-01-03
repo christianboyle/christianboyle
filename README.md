@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o1oVByv7xdPApkQK-ry5qCw-t50x50.jpg">](https://soundcloud.com/mcwavymusic/85-soul-fuel-sunday-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7Oj4h87dTIegSM1-lveMeg-t50x50.jpg">](https://soundcloud.com/ayyofree/brakkit-agitate?in=ayyofree/sets/brakkit-agitate)
 
-**Artist**: McWavy 
+**Artist**: AY YO TRIP! 
 
-**Track**: Soul-Fuel Sunday #3 - Samba de Lambo Lamb
+**Track**: Brakkit - Agitate [Dubstep N Trap Premiere]
 
-Last updated at 01/03/2021 15:17
+Last updated at 01/03/2021 15:19
