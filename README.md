@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zXdjZSFXrF48QvDz-4qpzGg-t50x50.jpg">](https://soundcloud.com/particaartistgroup/itsawrap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDTovPoD2kngBWyh-3g2v6w-t50x50.jpg">](https://soundcloud.com/loj-2/superhuman-1)
 
-**Artist**: Partica Artist Group 
+**Artist**: L*o*J 
 
-**Track**: episcool - It's A Wrap
+**Track**: Superhuman
 
-Last updated at 01/02/2021 23:20
+Last updated at 01/02/2021 23:22
