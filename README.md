@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674333503-2wytwo-t50x50.jpg">](https://soundcloud.com/kurtains/crowbar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-z6PNXyQHEI6Bd2KM-XT0WCg-t50x50.jpg">](https://soundcloud.com/norberto-gatti/bbc-radio-1-essential-mix-2004)
 
-**Artist**: kurtains 
+**Artist**: Norberto Gatti 
 
-**Track**: crowbars w/ glaive
+**Track**: BBC Radio 1 Essential Mix 2004-01-04 - Infusion
 
-Last updated at 01/04/2021 14:49
+Last updated at 01/04/2021 14:51
