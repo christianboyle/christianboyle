@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6gCXbRBfKGsQU3Wg-BBA2RQ-t50x50.jpg">](https://soundcloud.com/wido123456789/morgue-w-pitfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-z6PNXyQHEI6Bd2KM-XT0WCg-t50x50.jpg">](https://soundcloud.com/norberto-gatti/bbc-radio-1-essential-mix-2004)
 
-**Artist**: wido 
+**Artist**: Norberto Gatti 
 
-**Track**: morgue (ft. pitfall)
+**Track**: BBC Radio 1 Essential Mix 2004-01-04 - Infusion
 
-Last updated at 01/04/2021 12:05
+Last updated at 01/04/2021 12:09
