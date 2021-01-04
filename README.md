@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LSZzCEzQtg5LUDC-r5xDLQ-t50x50.jpg">](https://soundcloud.com/nilshoffmannmusic/winter-mixtape-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RiyZemrduFRT4pAU-dzDMzA-t50x50.jpg">](https://soundcloud.com/itsoutwild/we-are-fury-feat-heather-sommer-sad-story-outwild-remix)
 
-**Artist**: Nils Hoffmann 
+**Artist**: Outwild 
 
-**Track**: Winter Mixtape 2020
+**Track**: WE ARE FURY feat. Heather Sommer - Sad Story (Outwild Remix)
 
-Last updated at 01/04/2021 11:57
+Last updated at 01/04/2021 11:59
