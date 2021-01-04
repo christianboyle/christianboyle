@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6gCXbRBfKGsQU3Wg-BBA2RQ-t50x50.jpg">](https://soundcloud.com/wido123456789/morgue-w-pitfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674333503-2wytwo-t50x50.jpg">](https://soundcloud.com/kurtains/crowbar)
 
-**Artist**: wido 
+**Artist**: kurtains 
 
-**Track**: morgue (ft. pitfall)
+**Track**: crowbars w/ glaive
 
-Last updated at 01/04/2021 14:47
+Last updated at 01/04/2021 14:49
