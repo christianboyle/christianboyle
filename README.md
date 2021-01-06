@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000310485312-5ca0d9-t50x50.jpg">](https://soundcloud.com/data-transmission/plump-djs-lets-bounce?in=plump-djs/sets/lets-bounce-ep-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOqXrDTUFfee-0-t50x50.jpg">](https://soundcloud.com/plump-djs/listen-to-the-baddest)
 
-**Artist**: Data Transmission 
+**Artist**: Plump Djs 
 
-**Track**: Plump DJs - Let's Bounce
+**Track**: Listen To The Baddest
 
-Last updated at 01/06/2021 09:00
+Last updated at 01/06/2021 09:08
