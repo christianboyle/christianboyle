@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xls367MuLytfyxzV-0cLSgg-t50x50.jpg">](https://soundcloud.com/luhvmusic/luhv-x-colossus-vortex-ft-realssm-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sw4ipngI8pWwOCaL-5jW3Pg-t50x50.jpg">](https://soundcloud.com/strangerinspace/black?in=strangerinspace/sets/grayscale)
 
-**Artist**: Luhv 
+**Artist**: Space Stranger✨ 
 
-**Track**: Luhv X Colossus - Vortex (ft Realssm)
+**Track**: Black
 
-Last updated at 01/05/2021 11:17
+Last updated at 01/06/2021 07:34
