@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKi8RXeN2ycwIQjX-u5ZGyA-t50x50.jpg">](https://soundcloud.com/huskyyyy/bumpa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-622ThzQfumBsAsQu-TmM8Cg-t50x50.jpg">](https://soundcloud.com/prodnoyse/honest)
 
-**Artist**: husky 
+**Artist**: noyse. 
 
-**Track**: Bumpa
+**Track**: honest
 
-Last updated at 01/06/2021 07:38
+Last updated at 01/06/2021 07:40
