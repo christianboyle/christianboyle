@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeupYcpQDle4Eopf-D1o2YA-t50x50.jpg">](https://soundcloud.com/kayzo-music/blindside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcldielWzoNPSitz-50kKmA-t50x50.jpg">](https://soundcloud.com/beweirdbeoriginal/watch-me-burn)
 
-**Artist**: KAYZO 
+**Artist**: BWBO 
 
-**Track**: KAYZO X PIXEL TERROR - BLINDSIDE
+**Track**: NeoQor feat. Evangeline - Watch Me Burn (Radio Edit)
 
-Last updated at 01/06/2021 13:36
+Last updated at 01/06/2021 13:40
