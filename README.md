@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tOW2hPYcZVvqwPit-703ykQ-t50x50.jpg">](https://soundcloud.com/tayparadox/yucky-soda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x4nT08GsH4lOOtKR-12Cq6g-t50x50.jpg">](https://soundcloud.com/contrejourrecords/reflets)
 
-**Artist**: doxia 
+**Artist**: Contre Jour 
 
-**Track**: yucky soda
+**Track**: Dropout Marsh - reflets
 
-Last updated at 01/07/2021 08:32
+Last updated at 01/07/2021 08:34
