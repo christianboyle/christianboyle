@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jOFIbbJMMXfgDUq-qcAGnQ-t50x50.jpg">](https://soundcloud.com/quaczar702/frissoneneminor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oUC46CGWLafOyHys-brzyCw-t50x50.jpg">](https://soundcloud.com/xxxxzomb/stellar-binding)
 
-**Artist**: QuaCzar 
+**Artist**: ZØMB 
 
-**Track**: QuaCzar X Spacey Blurr- Frisson en E Minor
+**Track**: Stellar Binding
 
-Last updated at 01/07/2021 08:26
+Last updated at 01/07/2021 08:30
