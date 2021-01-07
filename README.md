@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M26V1YX1Lqhu1gXY-y32OmA-t50x50.jpg">](https://soundcloud.com/subliminal12345/all-kings-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gdMDXAdzrshie0mA-n1o8Jg-t50x50.jpg">](https://soundcloud.com/djhimera/popular)
 
-**Artist**: Subliminal 
+**Artist**: Himera 
 
-**Track**: All Kings Die
+**Track**: umru & laura les - popular (Himera Remix)
 
-Last updated at 01/07/2021 16:32
+Last updated at 01/07/2021 16:39
