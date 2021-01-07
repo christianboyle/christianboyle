@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTkDjLLVtCqnZbB6-zRaGDg-t50x50.jpg">](https://soundcloud.com/dektora/hardwave-best-of-2020)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjlbAq637kELOuh66nxbtnG70FDb8BYcygfVdE-IA=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: DEKTORA 
+**Artist**: S3RL 
 
-**Track**: Hardwave - Best of 2020 Mix 🔥🌊
+**Track**: Party With Us - S3RL ft Slen-D [DEFI BRILATOR]
 
-Last updated at 01/07/2021 08:42
+Last updated at 01/07/2021 13:46
