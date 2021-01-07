@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sgpRJzmbPE2cENqz-2hj1eg-t50x50.jpg">](https://soundcloud.com/ttapecut/cardi-b-wap-tapecut-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JaO6MyrLPZjFcJ3z-JSg5zA-t50x50.jpg">](https://soundcloud.com/barongfamily/rayray-dj-soda-obsession-imanu-remix)
 
-**Artist**: tapecut 
+**Artist**: Barong Family 
 
-**Track**: Cardi B - WAP (tapecut Remix) + TAPECUT DRUM KIT VOL.3
+**Track**: RayRay & DJ SODA - Obsession (IMANU Remix)
 
-Last updated at 01/07/2021 08:12
+Last updated at 01/07/2021 08:14
