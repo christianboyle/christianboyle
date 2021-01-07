@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhDkibedUxeWZa8iaUZMALHeZf9EwB5VTafTHQfQw=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCHcb3FQivl6xCRcHC2zjdkQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSEZYFCgwXOC9kyl-wjAoTg-t50x50.jpg">](https://soundcloud.com/drakkofficial/drakk-esc-2)
 
-**Artist**: Oliver Tree 
+**Artist**: DRAKK 
 
-**Track**: All That x Alien Boy [Official Music Video]
+**Track**: DRAKK - ESC
 
-Last updated at 01/07/2021 16:47
+Last updated at 01/07/2021 17:07
