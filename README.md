@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405562014-iw5rg7-t50x50.jpg">](https://soundcloud.com/jakkyboi/why-u-gotta-mean-so-much)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sgpRJzmbPE2cENqz-2hj1eg-t50x50.jpg">](https://soundcloud.com/ttapecut/cardi-b-wap-tapecut-remix)
 
-**Artist**: jakkyboí 
+**Artist**: tapecut 
 
-**Track**: Why u gotta mean so much? (VIDEO OUT NOW!)
+**Track**: Cardi B - WAP (tapecut Remix) + TAPECUT DRUM KIT VOL.3
 
-Last updated at 01/06/2021 13:52
+Last updated at 01/07/2021 08:12
