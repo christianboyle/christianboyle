@@ -4,6 +4,6 @@
 
 **Artist**: Oliver Tree 
 
-**Track**: Cash Machine (Remix) feat. Dillon Francis & grandson [Lyric Video]
+**Track**: Cash Machine [Official Music Video]
 
-Last updated at 01/07/2021 16:43
+Last updated at 01/07/2021 16:45
