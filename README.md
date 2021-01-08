@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674333503-2wytwo-t50x50.jpg">](https://soundcloud.com/kurtains/crowbar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
 
-**Artist**: kurtains 
+**Artist**: umru 
 
-**Track**: crowbars w/ glaive
+**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
 
-Last updated at 01/08/2021 10:23
+Last updated at 01/08/2021 10:25
