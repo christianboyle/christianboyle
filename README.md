@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwniMR53uhU7ganD14bfdnNzvYkE_z25Pe2FDv_JGhw=s48-c-k-c0xffffffff-no-nd-rj-mo">](https://www.youtube.com/channel/UCEud3L7XpOB8_tI-Zq_xrAA)
 
-**Artist**: rifleman 
+**Artist**: Aaron Cartier 
 
-**Track**: the cover to end all covers
+**Track**: EVERYDAY (ft. William Crooks) [prod. Dylan Brady]
 
-Last updated at 01/08/2021 12:43
+Last updated at 01/08/2021 12:47
