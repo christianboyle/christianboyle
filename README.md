@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000678795655-5s37e0-t50x50.jpg">](https://soundcloud.com/drumandbassarena/vorso-mire?in=vorso/sets/wanderer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000679143601-q33aee-t50x50.jpg">](https://soundcloud.com/pilotrecordsuk/vorso-wanderer?in=vorso/sets/wanderer)
 
-**Artist**: Drum&BassArena 
+**Artist**: Pilot. 
 
-**Track**: Vorso - Mire
+**Track**: Vorso - Wanderer
 
-Last updated at 01/08/2021 10:07
+Last updated at 01/08/2021 10:11
