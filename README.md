@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSEZYFCgwXOC9kyl-wjAoTg-t50x50.jpg">](https://soundcloud.com/drakkofficial/drakk-esc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674333503-2wytwo-t50x50.jpg">](https://soundcloud.com/kurtains/crowbar)
 
-**Artist**: DRAKK 
+**Artist**: kurtains 
 
-**Track**: DRAKK - ESC
+**Track**: crowbars w/ glaive
 
-Last updated at 01/08/2021 13:11
+Last updated at 01/08/2021 13:17
