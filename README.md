@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000679143601-q33aee-t50x50.jpg">](https://soundcloud.com/pilotrecordsuk/vorso-wanderer?in=vorso/sets/wanderer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5KO9Oo9CyT4trIy-JP6t0A-t50x50.jpg">](https://soundcloud.com/liquicityrecords/nct-afterlife-2)
 
-**Artist**: Pilot. 
+**Artist**: Liquicity Records 
 
-**Track**: Vorso - Wanderer
+**Track**: NCT - Afterlife
 
-Last updated at 01/08/2021 10:11
+Last updated at 01/08/2021 10:13
