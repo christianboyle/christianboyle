@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iRSMV7YGHXyI6LVe-Qr5A5w-t50x50.jpg">](https://soundcloud.com/davidshawty/goodmorning-hickys-prod-16yrold-david)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
 
-**Artist**: david shawty 
+**Artist**: rifleman 
 
-**Track**: GOODMORNING *hickys* (prod. 16yrold + david)
+**Track**: the cover to end all covers
 
-Last updated at 01/08/2021 12:41
+Last updated at 01/08/2021 12:43
