@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000670831846-gfdsrh-t50x50.jpg">](https://soundcloud.com/vorso/constellation?in=vorso/sets/wanderer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000672800824-t38w1n-t50x50.jpg">](https://soundcloud.com/pilotrecordsuk/vorso-skytrace?in=vorso/sets/wanderer)
 
-**Artist**: Vorso 
+**Artist**: Pilot. 
 
-**Track**: Vorso — Constellation
+**Track**: Vorso - Skytrace
 
-Last updated at 01/08/2021 09:53
+Last updated at 01/08/2021 09:59
