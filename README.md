@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ap1NTNKgT7SszYgy-KsDNcQ-t50x50.jpg">](https://soundcloud.com/edbanditt/banditt-x-disrupta-sunshine-riddim?in=magnetic-magazine/sets/the-15-best-drum-197679031)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5KO9Oo9CyT4trIy-JP6t0A-t50x50.jpg">](https://soundcloud.com/liquicityrecords/nct-afterlife-2?in=magnetic-magazine/sets/the-15-best-drum-197679031)
 
-**Artist**: Banditt 
+**Artist**: Liquicity Records 
 
-**Track**: Banditt x Disrupta- Sunshine Riddim
+**Track**: NCT - Afterlife
 
-Last updated at 01/08/2021 09:17
+Last updated at 01/08/2021 09:19
