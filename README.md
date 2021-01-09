@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSBwNrjKj2yuKVTg-CzAQTA-t50x50.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjLQxue00Amv-0-t50x50.jpg">](https://soundcloud.com/louisthechild/big-love-with-earthgang)
 
-**Artist**: HOLLY 
+**Artist**: Louis The Child 
 
-**Track**: ileX-MAS Mix 2020
+**Track**: Big Love (with EARTHGANG)
 
-Last updated at 01/08/2021 13:30
+Last updated at 01/08/2021 18:01
