@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZG0SBHndjy8DeZJ2-5qXhDw-t50x50.jpg">](https://soundcloud.com/ezra-music/ultraviolet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000431250855-ppjh26-t50x50.jpg">](https://soundcloud.com/inteus666/dirty-shame-1)
 
-**Artist**: Ezra 
+**Artist**: Inteus 
 
-**Track**: Ultraviolet
+**Track**: Dirty Shame
 
-Last updated at 01/10/2021 14:57
+Last updated at 01/10/2021 14:59
