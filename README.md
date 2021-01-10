@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjLQxue00Amv-0-t50x50.jpg">](https://soundcloud.com/louisthechild/big-love-with-earthgang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-htxotbez1f06M6BI-SJRaeA-t50x50.jpg">](https://soundcloud.com/lil_rocketman/yuuuuu-1-lrm-x-pvrkwy)
 
-**Artist**: Louis The Child 
+**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
 
-**Track**: Big Love (with EARTHGANG)
+**Track**: YUUU w/ PVRKVXXW
 
-Last updated at 01/08/2021 18:01
+Last updated at 01/09/2021 19:20
