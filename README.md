@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-htxotbez1f06M6BI-SJRaeA-t50x50.jpg">](https://soundcloud.com/lil_rocketman/yuuuuu-1-lrm-x-pvrkwy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
 
-**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
+**Artist**: umru 
 
-**Track**: YUUU w/ PVRKVXXW
+**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
 
-Last updated at 01/09/2021 19:20
+Last updated at 01/10/2021 12:46
