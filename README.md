@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsjdeM3NzvcEIk66-Upi2yA-t50x50.jpg">](https://soundcloud.com/awoltalk/the-mandalore-awoltalk-flip)
 
-**Artist**: umru 
+**Artist**: AWOLTALK 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: The Mandalore (Awoltalk Flip)
 
-Last updated at 01/10/2021 12:46
+Last updated at 01/10/2021 14:51
