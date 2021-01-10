@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oT22j3M38yEyFDnv-M1w3VA-t50x50.jpg">](https://soundcloud.com/maltine-record/quoree_toumei?in=maltine-record/sets/quoree_namariiro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000227673228-g1pojw-t50x50.jpg">](https://soundcloud.com/ftureable/plaza-w-veenom?in=ftureable/sets/ftureable-plaza-w-luxxius-1)
 
-**Artist**: MALTINE 
+**Artist**: Ftureable 
 
-**Track**: quoree - 透明
+**Track**: Plaza w/ luxxius
 
-Last updated at 01/10/2021 14:53
+Last updated at 01/10/2021 14:55
