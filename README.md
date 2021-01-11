@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSIozU6f86ObvLJo-j5MP7w-t50x50.jpg">](https://soundcloud.com/erickdie/control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjLQxue00Amv-0-t50x50.jpg">](https://soundcloud.com/louisthechild/big-love-with-earthgang)
 
-**Artist**: erickD 
+**Artist**: Louis The Child 
 
-**Track**: CONTROL (HOLY MOB CONTEST)
+**Track**: Big Love (with EARTHGANG)
 
-Last updated at 01/11/2021 10:55
+Last updated at 01/11/2021 11:01
