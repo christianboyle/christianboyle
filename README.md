@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wc7LwOyPpVZxmB7M-RkkIUQ-t50x50.jpg">](https://soundcloud.com/rave_alert/ravecast55-ottomangruw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uz4Cfm7LUCcyTWDQ-LZZmEg-t50x50.jpg">](https://soundcloud.com/rave_alert/ravecast52-sguzr)
 
 **Artist**: Rave Alert 
 
-**Track**: RaveCast55 - Ottoman.grüw
+**Track**: RaveCast52 - Sguzr
 
-Last updated at 01/12/2021 07:59
+Last updated at 01/12/2021 10:25
