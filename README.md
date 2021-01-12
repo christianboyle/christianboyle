@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t50x50.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMnUQoM20y4XhoWw-T0vt4Q-t50x50.jpg">](https://soundcloud.com/notyourtears/cant-live-with-myself?in=notyourtears/sets/2018-2020www)
 
-**Artist**: umru 
+**Artist**: yourtears 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: can't live with myself
 
-Last updated at 01/11/2021 16:03
+Last updated at 01/12/2021 07:45
