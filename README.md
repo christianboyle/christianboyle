@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NMtktxXdPZ8Do9xp-3RfDcA-t50x50.jpg">](https://soundcloud.com/kervrecords/01-maru-timbre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAsBVRji3xI8LRMV-Cl46gg-t50x50.jpg">](https://soundcloud.com/masayoshi-iimori/wonky-floor?in=masayoshi-iimori/sets/wonky-rave-ep)
 
-**Artist**: KERV Records 
+**Artist**: MASAYOSHI IIMORI 
 
-**Track**: Maru - Timbre
+**Track**: Wonky Floor
 
-Last updated at 01/12/2021 11:55
+Last updated at 01/12/2021 11:57
