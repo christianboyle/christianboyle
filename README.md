@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAsBVRji3xI8LRMV-Cl46gg-t50x50.jpg">](https://soundcloud.com/masayoshi-iimori/wonky-floor?in=masayoshi-iimori/sets/wonky-rave-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pm8qRHuHNu8hK6a-osXyVw-t50x50.jpg">](https://soundcloud.com/foxsky/rumors)
 
-**Artist**: MASAYOSHI IIMORI 
+**Artist**: foxsky 
 
-**Track**: Wonky Floor
+**Track**: Ricco Harver - Rumors [FOXSKY remix]
 
-Last updated at 01/12/2021 11:57
+Last updated at 01/12/2021 12:01
