@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjLQxue00Amv-0-t50x50.jpg">](https://soundcloud.com/louisthechild/big-love-with-earthgang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h4IZxmbV6Lba80cP-g3DUng-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/the-hardcore-underground-show-podcast-32-fracus-darwin-january-2021-hupodcast32)
 
-**Artist**: Louis The Child 
+**Artist**: Hardcore Underground 
 
-**Track**: Big Love (with EARTHGANG)
+**Track**: The Hardcore Underground Show - Podcast 32 (Fracus & Darwin) - JANUARY 2021 #HUPODCAST32
 
-Last updated at 01/12/2021 14:39
+Last updated at 01/13/2021 08:49
