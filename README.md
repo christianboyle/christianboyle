@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-raDYffTSt4vFSt7A-89qzcw-t50x50.jpg">](https://soundcloud.com/1endie/smackdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220662598-dc044e-t50x50.jpg">](https://soundcloud.com/y2k2y/flex)
 
-**Artist**: endie 
+**Artist**: Y2K 
 
-**Track**: smackdown w/ ericdoa, funeral, chach, blackwinterwells, midwxst, tayparadox, kmoe, aldn (ericdoa)
+**Track**: Lil Pump - Flex Like Ouu (Y2K Edit)
 
-Last updated at 01/14/2021 10:56
+Last updated at 01/14/2021 10:58
