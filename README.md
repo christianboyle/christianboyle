@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWN0bxbTBUB2-0-t50x50.jpg">](https://soundcloud.com/dannylharle/on-a-mountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOkl8rCRgNbzBnJu-rw5UCQ-t50x50.jpg">](https://soundcloud.com/bigbillsondeck/new-york-prod-snake-x-curtains?in=bigbillsondeck/sets/hyperdrill)
 
-**Artist**: Danny L Harle 
+**Artist**: POPSTARBILLS 💫 
 
-**Track**: On A Mountain
+**Track**: NEW YORK [prod. SNAKE x CURTAINS]
 
-Last updated at 01/14/2021 10:50
+Last updated at 01/14/2021 10:52
