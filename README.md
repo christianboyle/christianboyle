@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h4IZxmbV6Lba80cP-g3DUng-t50x50.jpg">](https://soundcloud.com/hardcoreunderground/the-hardcore-underground-show-podcast-32-fracus-darwin-january-2021-hupodcast32)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqyWxlhmqm2TTTlg-hZZzzg-t50x50.jpg">](https://soundcloud.com/itslucha/lucha-benni-hunnit-we-dont-play)
 
-**Artist**: Hardcore Underground 
+**Artist**: Lucha 
 
-**Track**: The Hardcore Underground Show - Podcast 32 (Fracus & Darwin) - JANUARY 2021 #HUPODCAST32
+**Track**: Lucha & Benni Hunnit - We Don't Play
 
-Last updated at 01/13/2021 08:49
+Last updated at 01/14/2021 07:40
