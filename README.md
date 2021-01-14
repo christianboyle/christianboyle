@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000237933052-449dpd-t50x50.jpg">](https://soundcloud.com/lilaaron911/top-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220662598-dc044e-t50x50.jpg">](https://soundcloud.com/y2k2y/flex)
 
-**Artist**: lil aaron 
+**Artist**: Y2K 
 
-**Track**: TOP 8 [PROD. Y2K]
+**Track**: Lil Pump - Flex Like Ouu (Y2K Edit)
 
-Last updated at 01/14/2021 10:40
+Last updated at 01/14/2021 10:42
