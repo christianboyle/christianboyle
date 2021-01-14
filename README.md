@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqyWxlhmqm2TTTlg-hZZzzg-t50x50.jpg">](https://soundcloud.com/itslucha/lucha-benni-hunnit-we-dont-play)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8dPVslctce5UbI1-5G7iXA-t50x50.jpg">](https://soundcloud.com/mmxvmusic/octobit-show-me)
 
-**Artist**: Lucha 
+**Artist**: MMXVAC 
 
-**Track**: Lucha & Benni Hunnit - We Don't Play
+**Track**: Octobit - Show Me
 
-Last updated at 01/14/2021 07:40
+Last updated at 01/14/2021 07:42
