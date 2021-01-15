@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hJBMDzA0YL3J5RNy-S1S1WQ-t50x50.jpg">](https://soundcloud.com/whethan/hurting-on-purpose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-11bNfyS7Iq5FUvOM-8KtMZQ-t50x50.jpg">](https://soundcloud.com/tazu888/far-away-feat-henry-holden-1)
 
-**Artist**: Whethan 
+**Artist**: Tazu 
 
-**Track**: Hurting On Purpose (feat. K.Flay)
+**Track**: Far Away (feat. Henry Holden)
 
-Last updated at 01/15/2021 09:57
+Last updated at 01/15/2021 09:59
