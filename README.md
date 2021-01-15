@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-11bNfyS7Iq5FUvOM-8KtMZQ-t50x50.jpg">](https://soundcloud.com/tazu888/far-away-feat-henry-holden-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyKqlxFU4jIysbpl-HZOHeg-t50x50.jpg">](https://soundcloud.com/thelostboys/boogieman-the-lost-boys-remix)
 
-**Artist**: Tazu 
+**Artist**: The Lost Boys 
 
-**Track**: Far Away (feat. Henry Holden)
+**Track**: Kyle Reynolds - Boogieman (The Lost Boys Remix)
 
-Last updated at 01/15/2021 09:59
+Last updated at 01/15/2021 10:01
