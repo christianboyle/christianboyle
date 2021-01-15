@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSEZYFCgwXOC9kyl-wjAoTg-t50x50.jpg">](https://soundcloud.com/drakkofficial/drakk-esc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOkl8rCRgNbzBnJu-rw5UCQ-t50x50.jpg">](https://soundcloud.com/bigbillsondeck/new-york-prod-snake-x-curtains?in=bigbillsondeck/sets/hyperdrill)
 
-**Artist**: DRAKK 
+**Artist**: POPSTARBILLS 💫 
 
-**Track**: DRAKK - ESC
+**Track**: NEW YORK [prod. SNAKE x CURTAINS]
 
-Last updated at 01/15/2021 08:38
+Last updated at 01/15/2021 09:16
