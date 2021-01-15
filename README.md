@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b5RiCS3KS5Rj-0-t50x50.jpg">](https://soundcloud.com/dannylharle/on-a-mountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjLQxue00Amv-0-t50x50.jpg">](https://soundcloud.com/louisthechild/big-love-with-earthgang)
 
-**Artist**: Danny L Harle 
+**Artist**: Louis The Child 
 
-**Track**: On A Mountain
+**Track**: Big Love (with EARTHGANG)
 
-Last updated at 01/15/2021 09:47
+Last updated at 01/15/2021 09:49
