@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6KI73AQSu9qMVBy-EHkuug-t50x50.jpg">](https://soundcloud.com/oneseventy/quickdrop-qub3-memories-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V9mDL5YPcqot4kbo-i1ih0w-t50x50.jpg">](https://soundcloud.com/brothelmusic/vedma)
 
-**Artist**: OneSeventy 
+**Artist**: brothel. 
 
-**Track**: Quickdrop & QUB3 - Memories (Radio Edit)
+**Track**: VEDMAw/ENJOII [FREE DOWNLOAD]
 
-Last updated at 01/16/2021 15:32
+Last updated at 01/16/2021 15:34
