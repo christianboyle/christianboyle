@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ptpGfuHAIuimqWHk-VaL3rA-t50x50.jpg">](https://soundcloud.com/prodsouls/ms-paint)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dc6lnnVZvZgbaOit-7dJpIg-t50x50.jpg">](https://soundcloud.com/skankandbass/slwdwn-dmr-pretend)
 
-**Artist**: 𝔰𝔬𝔲𝔩𝔰 
+**Artist**: Skankandbass 
 
-**Track**: ms-pain(t)
+**Track**: SLWDWN & DMR - Pretend
 
-Last updated at 01/17/2021 09:45
+Last updated at 01/17/2021 09:47
