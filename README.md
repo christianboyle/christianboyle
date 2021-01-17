@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq0x8P1abbDWzTxP-gIxQdw-t50x50.jpg">](https://soundcloud.com/anjunadeep/the-anjunadeep-edition-335)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ptpGfuHAIuimqWHk-VaL3rA-t50x50.jpg">](https://soundcloud.com/prodsouls/ms-paint)
 
-**Artist**: Anjunadeep 
+**Artist**: 𝔰𝔬𝔲𝔩𝔰 
 
-**Track**: The Anjunadeep Edition 335 with Promnite
+**Track**: ms-pain(t)
 
-Last updated at 01/17/2021 09:13
+Last updated at 01/17/2021 09:45
