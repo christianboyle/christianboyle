@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bcJzS1tly6xcmKrO-RSUwtg-t50x50.jpg">](https://soundcloud.com/averagecitizens/the-detour-drive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq0x8P1abbDWzTxP-gIxQdw-t50x50.jpg">](https://soundcloud.com/anjunadeep/the-anjunadeep-edition-335)
 
-**Artist**: Average Citizens 
+**Artist**: Anjunadeep 
 
-**Track**: The Detour Drive
+**Track**: The Anjunadeep Edition 335 with Promnite
 
-Last updated at 01/16/2021 15:40
+Last updated at 01/17/2021 09:13
