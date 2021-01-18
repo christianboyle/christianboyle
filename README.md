@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycVxadqu5lxvETh2-VMaGvg-t50x50.jpg">](https://soundcloud.com/thechainsmokers/nice-hair-with-the-chainsmokers-075-ft-steff-da-campo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqO4ZLY7liABzSip-eNMehg-t50x50.jpg">](https://soundcloud.com/steveaoki/steve-aoki-kd-bib)
 
-**Artist**: The Chainsmokers 
+**Artist**: Steve Aoki 
 
-**Track**: Nice Hair with The Chainsmokers 075 ft. Steff da Campo
+**Track**: Steve Aoki & k?d - BIB
 
-Last updated at 01/18/2021 16:10
+Last updated at 01/18/2021 17:08
