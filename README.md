@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTrsmDGbJnV8rhzy-GNtlKA-t50x50.jpg">](https://soundcloud.com/sebseb122/baffledd-prod-vagex-sebii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUmfFRXyc4uJyszx-6BgE3w-t50x50.jpg">](https://soundcloud.com/trapicalshh/positions)
 
-**Artist**: SEBii💫 
+**Artist**: Trapical's Hidden Gems 
 
-**Track**: BAFFLEdd [prod. vagex + sebii]
+**Track**: Ariana Grande - Positions (Tomatow Remix)
 
-Last updated at 01/18/2021 15:13
+Last updated at 01/18/2021 15:14
