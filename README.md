@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUmfFRXyc4uJyszx-6BgE3w-t50x50.jpg">](https://soundcloud.com/trapicalshh/positions)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fzXKBLksQgxXb2Zo-UciEQg-t50x50.jpg">](https://soundcloud.com/versadubz/thepit)
 
-**Artist**: Trapical's Hidden Gems 
+**Artist**: Versa 
 
-**Track**: Ariana Grande - Positions (Tomatow Remix)
+**Track**: The Pit
 
-Last updated at 01/18/2021 15:14
+Last updated at 01/18/2021 15:17
