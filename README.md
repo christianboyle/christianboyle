@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rVXWA0Hl7JqENJoy-P1yCBQ-t50x50.jpg">](https://soundcloud.com/rhythmicculturerecords/rc046-violet?in=rhythmicculturerecords/sets/rcr-podcast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkHPYxC3rtU5gRyL-WcbR1Q-t50x50.jpg">](https://soundcloud.com/rhythmicculturerecords/rc044-ojoo-gyal?in=rhythmicculturerecords/sets/rcr-podcast)
 
 **Artist**: Rhythmic Culture 
 
-**Track**: RC:046 Violet
+**Track**: RC:044 OJOO GYAL
 
-Last updated at 01/19/2021 09:39
+Last updated at 01/19/2021 11:41
