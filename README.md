@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8awt6c4IXeDv36A5-lmR3kw-t50x50.jpg">](https://soundcloud.com/rhythmicculturerecords/rc049-afruit?in=rhythmicculturerecords/sets/rcr-podcast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRhFmNvKzt5yScHc-3a9znA-t50x50.jpg">](https://soundcloud.com/inteus666/idk)
 
-**Artist**: Rhythmic Culture 
+**Artist**: Inteus 
 
-**Track**: RC:049 A.Fruit
+**Track**: IDK
 
-Last updated at 01/19/2021 14:35
+Last updated at 01/19/2021 15:05
