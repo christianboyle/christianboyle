@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5io0gft6xeveSuV-pVvaVA-t50x50.jpg">](https://soundcloud.com/electric_hawk/slowpalace-fade-away?in=slowpalace/sets/slowpalace-fade-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzWkFu6e2Muf2sV0-P6MqOA-t50x50.jpg">](https://soundcloud.com/erejuche/nfs)
 
-**Artist**: Electric Hawk 
+**Artist**: Juche 
 
-**Track**: Slowpalace - Fade Away
+**Track**: NFS
 
-Last updated at 01/19/2021 16:33
+Last updated at 01/19/2021 16:37
