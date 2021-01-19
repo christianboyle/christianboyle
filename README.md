@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYFLLBgetREBLE0d-WEy8SA-t50x50.jpg">](https://soundcloud.com/imhiraeth/stellaris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33tPINtzI6ONeyRX-F8isDA-t50x50.jpg">](https://soundcloud.com/osiasmusic/mt-eden-dubstep-sierra-leone-osias-remix)
 
-**Artist**: hiræth✨ 
+**Artist**: OSIAS (@osiasmusic) 
 
-**Track**: stellaris
+**Track**: MT EDEN DUBSTEP - SIERRA LEONE (OSIAS REMIX)
 
-Last updated at 01/19/2021 07:40
+Last updated at 01/19/2021 07:44
