@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkHPYxC3rtU5gRyL-WcbR1Q-t50x50.jpg">](https://soundcloud.com/rhythmicculturerecords/rc044-ojoo-gyal?in=rhythmicculturerecords/sets/rcr-podcast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9hxk1AesgdyQ3h4-x3HJcQ-t50x50.jpg">](https://soundcloud.com/ifclips/iceunderlord-dota)
 
-**Artist**: Rhythmic Culture 
+**Artist**: INTERNET FRIENDS 
 
-**Track**: RC:044 OJOO GYAL
+**Track**: ICEUNDERLORD - DOTA
 
-Last updated at 01/19/2021 11:41
+Last updated at 01/19/2021 14:14
