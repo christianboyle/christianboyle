@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9hxk1AesgdyQ3h4-x3HJcQ-t50x50.jpg">](https://soundcloud.com/ifclips/iceunderlord-dota)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyrz1lCVbfAJcFBv-YsrNUg-t50x50.jpg">](https://soundcloud.com/inrotationrecs/ekonovah-medicine-ft-noises-kage-remix?in=inrotationrecs/sets/ekonovah-medicine-ft-noises-remixes)
 
-**Artist**: INTERNET FRIENDS 
+**Artist**: IN / ROTATION 
 
-**Track**: ICEUNDERLORD - DOTA
+**Track**: Ekonovah - Medicine ft. NOISES (Kage Remix)
 
-Last updated at 01/19/2021 14:14
+Last updated at 01/19/2021 14:16
