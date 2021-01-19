@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-O9BmYgNp55LMlqrl-YO3N2Q-t50x50.jpg">](https://soundcloud.com/amnesia-420/fck-it-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnZbIZypXxt2Bohp-R5rL1g-t50x50.jpg">](https://soundcloud.com/musicbytvboo/crawdaddy)
 
-**Artist**: Amnesia 
+**Artist**: TVBOO 
 
-**Track**: F*ck It
+**Track**: Crawdaddy
 
-Last updated at 01/19/2021 16:19
+Last updated at 01/19/2021 16:23
