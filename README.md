@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzWkFu6e2Muf2sV0-P6MqOA-t50x50.jpg">](https://soundcloud.com/erejuche/nfs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33tPINtzI6ONeyRX-F8isDA-t50x50.jpg">](https://soundcloud.com/osiasmusic/mt-eden-dubstep-sierra-leone-osias-remix)
 
-**Artist**: Juche 
+**Artist**: OSIAS (@osiasmusic) 
 
-**Track**: NFS
+**Track**: MT EDEN DUBSTEP - SIERRA LEONE (OSIAS REMIX)
 
-Last updated at 01/19/2021 16:37
+Last updated at 01/19/2021 16:41
