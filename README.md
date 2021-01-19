@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFk62v9NTZeh46Bn-8fIsBg-t50x50.jpg">](https://soundcloud.com/invernessmusic/inverness-state-of-wonder-feat-anthony-russo-kang-daniel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cA0tAknOBBEJToRd-TkSUzg-t50x50.jpg">](https://soundcloud.com/dltzk-2/sebii-remix2)
 
-**Artist**: inverness 
+**Artist**: dltzk 2 
 
-**Track**: inverness - State Of Wonder (feat. Anthony Russo & KANG DANIEL)
+**Track**: do u c*re if i st*re...
 
-Last updated at 01/19/2021 16:55
+Last updated at 01/19/2021 16:59
