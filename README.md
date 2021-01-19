@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZLwe0kxNAlMCj3FL-JSMb7A-t50x50.png">](https://soundcloud.com/weekendworkout/weekend-workout-239)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uR0ihMhSTvBVzk2V-OIZcsA-t50x50.jpg">](https://soundcloud.com/prodsycho/purple-lean)
 
-**Artist**: Weekend Workout 
+**Artist**: SYCHO 
 
-**Track**: Weekend Workout 239: QRTR Guest Mix
+**Track**: PURPLE LEAN
 
-Last updated at 01/18/2021 17:10
+Last updated at 01/19/2021 07:36
