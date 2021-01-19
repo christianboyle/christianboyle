@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTv1DJJyHChhV5ci-uXrmlg-t50x50.jpg">](https://soundcloud.com/deadwint3r/erase-w-akiaura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Un4u9eBdoFloXz6y-LGe0sA-t50x50.jpg">](https://soundcloud.com/iamawakend/take-me-away-dvrkcloud-remix)
 
-**Artist**: deadwinter 
+**Artist**: AWAKEND 
 
-**Track**: ERASE w/ akiaura
+**Track**: Take Me Away (DVRKCLOUD Remix)[Free Download]
 
-Last updated at 01/19/2021 16:09
+Last updated at 01/19/2021 16:11
