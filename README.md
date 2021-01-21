@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcFDA60Oowgyza1j-CBojfw-t50x50.jpg">](https://soundcloud.com/rave_alert/mzperx-marco-ginelli-hard-darker-faster-raver-thoqy-remix?in=rave_alert/sets/rave12-mzperx-marco-ginelli-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x23KzJTlw3O7L57R-oFz2aA-t50x50.jpg">](https://soundcloud.com/bsterthegawd/platinum)
 
-**Artist**: Rave Alert 
+**Artist**: bsterthegawd 
 
-**Track**: [PREMIERE] Mzperx, Marco Ginelli - Hard Darker Faster Raver (Thoqy Remix)
+**Track**: platinum
 
-Last updated at 01/21/2021 08:18
+Last updated at 01/21/2021 08:22
