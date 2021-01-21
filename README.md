@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pE23iLn3yyOWU8uB-mwM8Hw-t50x50.jpg">](https://soundcloud.com/kumocollective/kumo-radio-vol17-w-dabow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcFDA60Oowgyza1j-CBojfw-t50x50.jpg">](https://soundcloud.com/rave_alert/hard-darker-faster-raver?in=rave_alert/sets/rave12-mzperx-marco-ginelli-1)
 
-**Artist**: KUMO Collective 
+**Artist**: Rave Alert 
 
-**Track**: KUMO radio vol.17 w/ Dabow
+**Track**: [PREMIERE] Mzperx, Marco Ginelli - Hard Darker Faster Raver (Original Mix)
 
-Last updated at 01/21/2021 07:51
+Last updated at 01/21/2021 08:15
