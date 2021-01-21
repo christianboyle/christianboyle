@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OQc8lOHFGgteFgwB-em29vw-t50x50.jpg">](https://soundcloud.com/majesticfamilyrecordings/highlander-techspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6PbzDzY68qyoQrCQ-GQdgAQ-t50x50.jpg">](https://soundcloud.com/sekai-collective/duckem-bxlixvx-mx?in=sekai-collective/sets/duckem-vacation-ep)
 
-**Artist**: Majestic Family Records 
+**Artist**: Sekai Collective 
 
-**Track**: Jerome Steam - Highlander (Techspace Remix)
+**Track**: Duckem - Bxlixvx Mx
 
-Last updated at 01/21/2021 07:47
+Last updated at 01/21/2021 07:49
