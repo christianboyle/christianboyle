@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DpC41Kg4znCs7muO-m0GYfg-t50x50.jpg">](https://soundcloud.com/kloudbug/forgiatos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
 
-**Artist**: kloudbug 
+**Artist**: Know V.A. 
 
-**Track**: FORGIATOS
+**Track**: Artefact (Sully Remix)
 
-Last updated at 01/21/2021 20:16
+Last updated at 01/22/2021 08:02
