@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzPaYPkP5WlFJ6Xc-9TzrMA-t50x50.jpg">](https://soundcloud.com/hadji-hajj/heavens-calamity-on-noods-radio-290920)
 
-**Artist**: Mang 
+**Artist**: HAJJ 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: HAJJ / HEAVEN'S CALAMITY ON NOODS RADIO (29.09.20)
 
-Last updated at 01/22/2021 08:08
+Last updated at 01/22/2021 08:58
