@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515906616-5mji0x-t50x50.jpg">](https://soundcloud.com/whoispaz/paz-fall-back-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSCQwoUcxlXb10C7-Gntrvg-t50x50.jpg">](https://soundcloud.com/s4vepoint/3bandsthursday)
 
-**Artist**: PAZ 
+**Artist**: savepoint 
 
-**Track**: Fall Back To You (feat. Nick Broadhurst)
+**Track**: movinglikeazombieRe:MIX (odece + karasu)
 
-Last updated at 01/24/2021 10:59
+Last updated at 01/24/2021 11:01
