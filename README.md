@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Re8BySUFbphhysH-oZJUHA-t50x50.jpg">](https://soundcloud.com/theskulkids/lil-lotus-im-sorry-skulkids-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
 
-**Artist**: SkulKids 
+**Artist**: Mang 
 
-**Track**: LiL Lotus - I'm Sorry (SkulKids Remix)
+**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
 
-Last updated at 01/24/2021 12:38
+Last updated at 01/24/2021 12:40
