@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fAA0QfyBp0gUJa5H-pAsU3g-t50x50.jpg">](https://soundcloud.com/t-and-sugah/t-sugah-french-fries)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-hUOwoIqavhJvckag-75pTkw-t50x50.jpg">](https://soundcloud.com/djdan1mal/visions)
 
-**Artist**: T and Sugah 
+**Artist**: Dan1mal 
 
-**Track**: T & Sugah - French Fries
+**Track**: Visions
 
-Last updated at 01/24/2021 10:55
+Last updated at 01/24/2021 10:57
