@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L9geZzseKm4ZidkN-nw18GQ-t50x50.jpg">](https://soundcloud.com/cryjaxx/zemer)
 
-**Artist**: Mang 
+**Artist**: CryJaxx 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: Shaolin Gang, GRMV & Ardi - Zemer (CryJaxx & ERØS x Nani Remix)
 
-Last updated at 01/22/2021 11:34
+Last updated at 01/24/2021 10:53
