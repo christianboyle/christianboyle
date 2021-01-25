@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SRMBXE4J3996COJE-fUtSyg-t50x50.jpg">](https://soundcloud.com/drakkofficial/drakk-underworld-essential-mix-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhouhgRMw3xVEXQa-1vgTnw-t50x50.jpg">](https://soundcloud.com/iamwuki/birdz-with-smokepurpp)
 
-**Artist**: DRAKK 
+**Artist**: wuki 
 
-**Track**: DRAKK - Underworld Essential Mix 013
+**Track**: Birdz (with Smokepurpp)
 
-Last updated at 01/25/2021 09:52
+Last updated at 01/25/2021 13:23
