@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWh8qeOsaNJCs2L7-wcakzw-t50x50.jpg">](https://soundcloud.com/camstacey/moms-45s-vol-v-a-sample-pack-by-cam-stacey?in=camstacey/sets/moms-45s-sample-pack-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O7GO3CVjCtbTxW54-ZaGZWA-t50x50.jpg">](https://soundcloud.com/balamii/dre-digital-w-no_4mat-january-2021)
 
-**Artist**: Cam Stacey 
+**Artist**: Balamii 
 
-**Track**: Mom's 45s Vol. V - A Sample Pack by Cam Stacey
+**Track**: Dre Digital w/ No_4mat - January 2021
 
-Last updated at 01/25/2021 13:25
+Last updated at 01/25/2021 13:27
