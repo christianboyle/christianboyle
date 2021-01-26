@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uakufNLBJ8ng-0-t50x50.jpg">](https://soundcloud.com/kygo/think-about-you-galantis-remix?in=saxurn/sets/my-god-its-full-of-lies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572711837-rhs2d4-t50x50.jpg">](https://soundcloud.com/syence/temporary-high-feat-heather-sommer?in=saxurn/sets/my-god-its-full-of-lies)
 
-**Artist**: Kygo 
+**Artist**: syence 
 
-**Track**: Think About You (Galantis Remix)
+**Track**: Temporary High (feat. Heather Sommer)
 
-Last updated at 01/26/2021 08:59
+Last updated at 01/26/2021 09:01
