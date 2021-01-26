@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83r6QoG4gANqcrGO-AZmoXQ-t50x50.jpg">](https://soundcloud.com/crystvleyes/need-u-kirxcy1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSCQwoUcxlXb10C7-Gntrvg-t50x50.jpg">](https://soundcloud.com/s4vepoint/3bandsthursday)
 
-**Artist**: nathin 
+**Artist**: savepoint 
 
-**Track**: need u +kirxcy
+**Track**: movinglikeazombieRe:MIX (odece + karasu)
 
-Last updated at 01/26/2021 09:25
+Last updated at 01/26/2021 09:27
