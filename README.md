@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000579084584-fknnre-t50x50.jpg">](https://soundcloud.com/gyrofield3/never-meant-nightcore?in=saxurn/sets/my-god-its-full-of-lies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000440969418-j9e5fh-t50x50.jpg">](https://soundcloud.com/wiccaphasespringseternal/waiting-here-feat-lil-b-prod-taylor-morgan?in=saxurn/sets/my-god-its-full-of-lies)
 
-**Artist**: gyrofield daily except when they're not 
+**Artist**: WICCA PHASE SPRINGS ETERNAL 
 
-**Track**: American Football - Never Meant (nightcore edit) (08-07)
+**Track**: WAITING HERE (FEAT. LIL B) (PROD. TAYLOR MORGAN)
 
-Last updated at 01/26/2021 08:53
+Last updated at 01/26/2021 08:55
