@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zmDu1yIWzRfRs62-UOXpQA-t50x50.jpg">](https://soundcloud.com/kumocollective/ah-nah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zy2MO45jwdKZgLPC-tv0iCQ-t50x50.jpg">](https://soundcloud.com/e_tank/kda-drumgodum-etank-bootleg)
 
-**Artist**: KUMO Collective 
+**Artist**: E*Tank 
 
-**Track**: Dabow - Ah Nah [FUXWITHIT Premiere]
+**Track**: K/DA - DrumGoDum (E*Tank Bootleg)
 
-Last updated at 01/26/2021 09:19
+Last updated at 01/26/2021 09:21
