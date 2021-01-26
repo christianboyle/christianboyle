@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yB5Eq1QRDQqKEd1W-YPuwWQ-t50x50.jpg">](https://soundcloud.com/balamii/front-left-life-w-idle-hands-january-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmWt30bhmqjXlzGy-UHpehw-t50x50.jpg">](https://soundcloud.com/balamii/richard-sen-january-2021)
 
 **Artist**: Balamii 
 
-**Track**: Front Left Life w/ Idle Hands - January 2021
+**Track**: Richard Sen - January 2021
 
-Last updated at 01/25/2021 23:51
+Last updated at 01/26/2021 01:53
