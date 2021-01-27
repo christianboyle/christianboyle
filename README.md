@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673832620-km6bjk-t50x50.jpg">](https://soundcloud.com/lil-baeblade/0ff2t0ky0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zy2MO45jwdKZgLPC-tv0iCQ-t50x50.jpg">](https://soundcloud.com/e_tank/kda-drumgodum-etank-bootleg)
 
-**Artist**: Lil' BaeBlade 
+**Artist**: E*Tank 
 
-**Track**: 0ff2t0ky0
+**Track**: K/DA - DrumGoDum (E*Tank Bootleg)
 
-Last updated at 01/27/2021 09:03
+Last updated at 01/27/2021 09:07
