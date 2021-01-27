@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jF584MUwLrieoOZ-znrbGA-t50x50.jpg">](https://soundcloud.com/weareinsert/premiere-syn-empty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REIBYofyRHiyFJO0-bGG2WQ-t50x50.jpg">](https://soundcloud.com/2tonedisco/2tonedisco-x-saber-losing-myself)
 
-**Artist**: Insert 
+**Artist**: 2TONEDISCO 
 
-**Track**: Premiere: Syn - Empty
+**Track**: 2ToneDisco X Saber - Losing Myself
 
-Last updated at 01/27/2021 08:55
+Last updated at 01/27/2021 08:57
