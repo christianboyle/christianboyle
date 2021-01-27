@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dn1HNRu8okQwzKEY-9UFbfQ-t50x50.jpg">](https://soundcloud.com/alltrapnation/deadcrow-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUjuNcEueWsQuhZ6-XeMzcw-t50x50.jpg">](https://soundcloud.com/deltaxp/i-dont-want-that-many-friends-in-the-first-place)
 
-**Artist**: Trap Nation 
+**Artist**: delta 
 
-**Track**: Deadcrow - Control
+**Track**: i don't want that many friends in the first place
 
-Last updated at 01/27/2021 08:49
+Last updated at 01/27/2021 08:51
