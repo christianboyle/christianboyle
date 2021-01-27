@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LSZzCEzQtg5LUDC-r5xDLQ-t50x50.jpg">](https://soundcloud.com/nilshoffmannmusic/winter-mixtape-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dn1HNRu8okQwzKEY-9UFbfQ-t50x50.jpg">](https://soundcloud.com/alltrapnation/deadcrow-control)
 
-**Artist**: Nils Hoffmann 
+**Artist**: Trap Nation 
 
-**Track**: Winter Mixtape 2020
+**Track**: Deadcrow - Control
 
-Last updated at 01/27/2021 08:35
+Last updated at 01/27/2021 08:49
