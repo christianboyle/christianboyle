@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMzzXD1YdgL6Lp4-a5IyAw-t50x50.jpg">](https://soundcloud.com/oaf1/think)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Y3eg7zPq7YXW7Sa-8v3pXw-t50x50.jpg">](https://soundcloud.com/whippedcream/dumb-sht-godlands-remix?in=whippedcream/sets/dumb-sh-t-remixes)
 
-**Artist**: oaf1 
+**Artist**: WHIPPED CREAM 
 
-**Track**: think abt it w/ppgcasper
+**Track**: Dumb Sh!t (with Jasiah) [Godlands Remix]
 
-Last updated at 01/27/2021 07:27
+Last updated at 01/27/2021 08:29
