@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kygfo7f0w2uxA9y2-rNXRLw-t50x50.jpg">](https://soundcloud.com/djschreach/get-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMzzXD1YdgL6Lp4-a5IyAw-t50x50.jpg">](https://soundcloud.com/oaf1/think)
 
-**Artist**: @DjSCHREACH561 
+**Artist**: oaf1 
 
-**Track**: Get It 🤪‼️
+**Track**: think abt it w/ppgcasper
 
-Last updated at 01/27/2021 07:25
+Last updated at 01/27/2021 07:27
