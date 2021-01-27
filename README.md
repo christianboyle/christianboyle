@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63vZ9TjDDriu3y4x-w9PgsA-t50x50.jpg">](https://soundcloud.com/spinninrecords/sea-shanty-wellerman-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s328VhJ44GzARXnR-o1Msug-t50x50.jpg">](https://soundcloud.com/elozi/evo)
 
-**Artist**: Spinnin' Records 
+**Artist**: elozi 
 
-**Track**: Sea Shanty - Wellerman [OUT NOW]
+**Track**: EVO
 
-Last updated at 01/27/2021 08:31
+Last updated at 01/27/2021 08:33
