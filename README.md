@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUjuNcEueWsQuhZ6-XeMzcw-t50x50.jpg">](https://soundcloud.com/deltaxp/i-dont-want-that-many-friends-in-the-first-place)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673832620-km6bjk-t50x50.jpg">](https://soundcloud.com/lil-baeblade/0ff2t0ky0)
 
-**Artist**: delta 
+**Artist**: Lil' BaeBlade 
 
-**Track**: i don't want that many friends in the first place
+**Track**: 0ff2t0ky0
 
-Last updated at 01/27/2021 13:23
+Last updated at 01/27/2021 13:25
