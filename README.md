@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zy2MO45jwdKZgLPC-tv0iCQ-t50x50.jpg">](https://soundcloud.com/e_tank/kda-drumgodum-etank-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83r6QoG4gANqcrGO-AZmoXQ-t50x50.jpg">](https://soundcloud.com/crystvleyes/need-u-kirxcy1)
 
-**Artist**: E*Tank 
+**Artist**: nathin 
 
-**Track**: K/DA - DrumGoDum (E*Tank Bootleg)
+**Track**: need u +kirxcy
 
-Last updated at 01/27/2021 09:07
+Last updated at 01/27/2021 09:11
