@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Y3eg7zPq7YXW7Sa-8v3pXw-t50x50.jpg">](https://soundcloud.com/whippedcream/dumb-sht-godlands-remix?in=whippedcream/sets/dumb-sh-t-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63vZ9TjDDriu3y4x-w9PgsA-t50x50.jpg">](https://soundcloud.com/spinninrecords/sea-shanty-wellerman-out-now)
 
-**Artist**: WHIPPED CREAM 
+**Artist**: Spinnin' Records 
 
-**Track**: Dumb Sh!t (with Jasiah) [Godlands Remix]
+**Track**: Sea Shanty - Wellerman [OUT NOW]
 
-Last updated at 01/27/2021 08:29
+Last updated at 01/27/2021 08:31
