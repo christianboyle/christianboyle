@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REIBYofyRHiyFJO0-bGG2WQ-t50x50.jpg">](https://soundcloud.com/2tonedisco/2tonedisco-x-saber-losing-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
 
-**Artist**: 2TONEDISCO 
+**Artist**: LAZLOW 
 
-**Track**: 2ToneDisco X Saber - Losing Myself
+**Track**: EVERYTHING IS BUSINESS W/ SXLVR
 
-Last updated at 01/27/2021 08:57
+Last updated at 01/27/2021 08:59
