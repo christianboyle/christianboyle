@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-UhwWdAf7P5RR9cn6-coLljA-t50x50.jpg">](https://soundcloud.com/evangelos-c-gatseos/still-into-you-uk-hardcore-2july2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Ut7EAsPHLkIyAP7-Nja7Cg-t50x50.jpg">](https://soundcloud.com/balamii/talking-motion-w-high-hoops-january-2021)
 
-**Artist**: Nonplussed 
+**Artist**: Balamii 
 
-**Track**: Still Into You - UK Hardcore 2July2020
+**Track**: Talking Motion w/ High Hoops - January 2021
 
-Last updated at 01/28/2021 07:54
+Last updated at 01/28/2021 08:21
