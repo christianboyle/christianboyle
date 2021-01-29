@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzSNTyxWZjAa8lwU-93g2Mg-t50x50.jpg">](https://soundcloud.com/dead4evaa/ways-u-n-me-1sadboii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMgiNZ2p2f3Q20Dv-w6963w-t50x50.jpg">](https://soundcloud.com/milkncooks/milk-n-cooks-come-around-dec-3-final-master)
 
-**Artist**: ‎ways #2 
+**Artist**: Milk N Cooks 
 
-**Track**: ways-  u N me (1sadboii)
+**Track**: Milk N Cooks - Come Around
 
-Last updated at 01/29/2021 07:46
+Last updated at 01/29/2021 07:48
