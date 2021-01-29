@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYP8hn1VTvZCKzwZ-uRlMVQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669019534-l289ji-t50x50.jpg">](https://soundcloud.com/queeste/dj-lostboi-open-world)
 
-**Artist**: Sublab 
+**Artist**: Queeste 
 
-**Track**: Castles In The Sky (feat. Seven)
+**Track**: DJ Lostboi - Open World
 
-Last updated at 01/29/2021 08:06
+Last updated at 01/29/2021 15:10
