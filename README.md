@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzSNTyxWZjAa8lwU-93g2Mg-t50x50.jpg">](https://soundcloud.com/dead4evaa/ways-u-n-me-1sadboii)
 
-**Artist**: Mang 
+**Artist**: ‎ways #2 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: ways-  u N me (1sadboii)
 
-Last updated at 01/28/2021 11:37
+Last updated at 01/29/2021 07:46
