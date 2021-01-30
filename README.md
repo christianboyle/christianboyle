@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cn0PDfERiSya7INZ-aZTkLw-t50x50.jpg">](https://soundcloud.com/rich-hannah/the-rave-escape-promo-mix-by)
 
-**Artist**: LAZLOW 
+**Artist**: THE RAVE ESCAPE 
 
-**Track**: EVERYTHING IS BUSINESS W/ SXLVR
+**Track**: The Rave Escape promo mix by JAKKA B
 
-Last updated at 01/29/2021 16:35
+Last updated at 01/30/2021 12:33
