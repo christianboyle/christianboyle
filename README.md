@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7O5nHtydgSyd418-eZ1Z5g-t50x50.jpg">](https://soundcloud.com/rich-hannah/the-rave-escape-jonny-miles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y1rv8OLSSI23qYcA-VqXbwg-t50x50.jpg">](https://soundcloud.com/rinsefm/hixxy101120)
 
-**Artist**: THE RAVE ESCAPE 
+**Artist**: Rinse FM 
 
-**Track**: The Rave Escape - Jonny Miles (competition winner)
+**Track**: Hixxy with Marc Smith & Al Storm - 10 November 2020
 
-Last updated at 01/30/2021 14:33
+Last updated at 01/30/2021 15:36
