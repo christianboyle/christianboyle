@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000094476472-2cmoqs-t50x50.jpg">](https://soundcloud.com/parissuityourself/wont-k-sophie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: Paris Suit Yourself 
+**Artist**: Little Miss Servings 
 
-**Track**: WON'T K - SOPHIE REMIX
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 01/30/2021 19:40
+Last updated at 01/30/2021 19:44
