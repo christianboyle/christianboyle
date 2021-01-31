@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y1rv8OLSSI23qYcA-VqXbwg-t50x50.jpg">](https://soundcloud.com/rinsefm/hixxy101120)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: Rinse FM 
+**Artist**: Little Miss Servings 
 
-**Track**: Hixxy with Marc Smith & Al Storm - 10 November 2020
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 01/30/2021 15:36
+Last updated at 01/30/2021 19:32
