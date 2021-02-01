@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZeiN7Q0tErXdBjE-RVlCuQ-t50x50.jpg">](https://soundcloud.com/fealskies/drown-in-it)
 
-**Artist**: LAZLOW 
+**Artist**: feals 
 
-**Track**: EVERYTHING IS BUSINESS W/ SXLVR
+**Track**: DROWN IN IT
 
-Last updated at 02/01/2021 10:07
+Last updated at 02/01/2021 10:09
