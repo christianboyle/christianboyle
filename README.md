@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7M8ylvODBQjkIMGu-1PW8UQ-t50x50.jpg">](https://soundcloud.com/pcmus/a-g-cook-b2b-namasenda-at-lavapalooza?in=pcmus/sets/pc-music-lavapalooza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shemLkxfYjM6jGtB-xpHtug-t50x50.jpg">](https://soundcloud.com/ophelia_records/xavi-the-warmth-of-known)
 
-**Artist**: PC Music ♩ 
+**Artist**: Ophelia Records 
 
-**Track**: A. G. Cook B2B Namasenda at Lavapalooza
+**Track**: Xavi - The Warmth Of Known
 
-Last updated at 02/01/2021 07:51
+Last updated at 02/01/2021 08:13
