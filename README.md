@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYP8hn1VTvZCKzwZ-uRlMVQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
 
-**Artist**: Sublab 
+**Artist**: LAZLOW 
 
-**Track**: Castles In The Sky (feat. Seven)
+**Track**: EVERYTHING IS BUSINESS W/ SXLVR
 
-Last updated at 02/01/2021 16:35
+Last updated at 02/01/2021 16:39
