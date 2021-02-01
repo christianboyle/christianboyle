@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jVJpjbQN1bq7Ma4-JVA98g-t50x50.jpg">](https://soundcloud.com/rogueself/asher-postman-deja-vu-rogue-self-remix-ft-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
 
-**Artist**: Rogue Self 
+**Artist**: Asher Postman 
 
-**Track**: Asher Postman - Deja Vu (Rogue Self Remix) Ft. Tasji
+**Track**: Déjà vu (feat. Tasji)
 
-Last updated at 02/01/2021 16:19
+Last updated at 02/01/2021 16:23
