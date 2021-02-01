@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZRjo5t2rFINMG9i-1yfHZw-t50x50.jpg">](https://soundcloud.com/quixofficial/huhhh-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhFKIrCj5qBz-0-t50x50.png">](https://soundcloud.com/wearetwolanes/phases)
 
-**Artist**: QUIX 
+**Artist**: TWO LANES 
 
-**Track**: Huhhh [VIP]
+**Track**: Phases
 
-Last updated at 02/01/2021 16:01
+Last updated at 02/01/2021 16:03
