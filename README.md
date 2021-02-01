@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000089324747-f6a1ok-t50x50.jpg">](https://soundcloud.com/marginal-men/lemonade-baile-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1KSmlzNyccVe-0-t50x50.png">](https://soundcloud.com/msmsmsm/immaterial-1)
 
-**Artist**: Marginal Men 
+**Artist**: SOPHIE 
 
-**Track**: SOPHIE - Lemonade (Marginal Men Baile Mix)
+**Track**: Immaterial
 
-Last updated at 01/31/2021 19:45
+Last updated at 01/31/2021 19:46
