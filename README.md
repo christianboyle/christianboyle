@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZeiN7Q0tErXdBjE-RVlCuQ-t50x50.jpg">](https://soundcloud.com/fealskies/drown-in-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1tMwGVRdLUr59xe-xFczWw-t50x50.jpg">](https://soundcloud.com/swipe_ssss/emerald-w_sxlvr_lynn)
 
-**Artist**: feals 
+**Artist**: sideswipe. 
 
-**Track**: DROWN IN IT
+**Track**: Emerald w_sxlvr_lynn
 
-Last updated at 02/01/2021 10:09
+Last updated at 02/01/2021 10:11
