@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3VlS72x9scvVCITv-8BMccA-t50x50.jpg">](https://soundcloud.com/umru/umru-fraxiom-at-lavapalooza?in=pcmus/sets/pc-music-lavapalooza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7M8ylvODBQjkIMGu-1PW8UQ-t50x50.jpg">](https://soundcloud.com/pcmus/a-g-cook-b2b-namasenda-at-lavapalooza?in=pcmus/sets/pc-music-lavapalooza)
 
-**Artist**: umru 
+**Artist**: PC Music ♩ 
 
-**Track**: umru ♭⒉♭ fraxiom at Lavapalooza
+**Track**: A. G. Cook B2B Namasenda at Lavapalooza
 
-Last updated at 01/31/2021 19:54
+Last updated at 02/01/2021 07:51
