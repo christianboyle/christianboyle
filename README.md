@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1tMwGVRdLUr59xe-xFczWw-t50x50.jpg">](https://soundcloud.com/swipe_ssss/emerald-w_sxlvr_lynn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
 
-**Artist**: sideswipe. 
+**Artist**: Know V.A. 
 
-**Track**: Emerald w_sxlvr_lynn
+**Track**: Artefact (Sully Remix)
 
-Last updated at 02/01/2021 10:11
+Last updated at 02/01/2021 10:13
