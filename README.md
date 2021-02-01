@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673832620-km6bjk-t50x50.jpg">](https://soundcloud.com/lil-baeblade/0ff2t0ky0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83r6QoG4gANqcrGO-AZmoXQ-t50x50.jpg">](https://soundcloud.com/crystvleyes/need-u-kirxcy1)
 
-**Artist**: Lil' BaeBlade 
+**Artist**: nathin 
 
-**Track**: 0ff2t0ky0
+**Track**: need u +kirxcy
 
-Last updated at 02/01/2021 16:43
+Last updated at 02/01/2021 16:45
