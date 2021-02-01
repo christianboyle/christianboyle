@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jVJpjbQN1bq7Ma4-JVA98g-t50x50.jpg">](https://soundcloud.com/rogueself/asher-postman-deja-vu-rogue-self-remix-ft-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H1C4IDnrI7d0yxx-7UnseQ-t50x50.jpg">](https://soundcloud.com/krane/bodyheat)
 
-**Artist**: Rogue Self 
+**Artist**: KRANE 
 
-**Track**: Asher Postman - Deja Vu (Rogue Self Remix) Ft. Tasji
+**Track**: KRANE - Body Heat (feat. Nate Merchant)
 
-Last updated at 02/01/2021 14:00
+Last updated at 02/01/2021 14:02
