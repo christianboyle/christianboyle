@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgMSx2715ikW-0-t50x50.jpg">](https://soundcloud.com/laxcitymusic/grateful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
 
-**Artist**: laxcity 
+**Artist**: Asher Postman 
 
-**Track**: Grateful
+**Track**: Déjà vu (feat. Tasji)
 
-Last updated at 02/01/2021 15:32
+Last updated at 02/01/2021 15:34
