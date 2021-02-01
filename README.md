@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H1C4IDnrI7d0yxx-7UnseQ-t50x50.jpg">](https://soundcloud.com/krane/bodyheat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
 
-**Artist**: KRANE 
+**Artist**: Asher Postman 
 
-**Track**: KRANE - Body Heat (feat. Nate Merchant)
+**Track**: Déjà vu (feat. Tasji)
 
-Last updated at 02/01/2021 14:02
+Last updated at 02/01/2021 14:04
