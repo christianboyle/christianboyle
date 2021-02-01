@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRz1ZMcGxG6Jv0Zc-jUUUZQ-t50x50.jpg">](https://soundcloud.com/djhimera/b-who-i-want-2-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yc7lqGAbbq8MOUlB-u5POJA-t50x50.jpg">](https://soundcloud.com/neuon/charli-xcx-no-angel-neuon-fast-edit)
 
-**Artist**: Himera 
+**Artist**: Neuon 
 
-**Track**: SOPHIE - B Who I Want 2 B (Himera Edit)
+**Track**: Charli XCX - No Angel (Neuon fast edit)
 
-Last updated at 01/31/2021 19:27
+Last updated at 01/31/2021 19:29
