@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515702589-m9yypn-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc130)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000502376496-beottg-t50x50.jpg">](https://soundcloud.com/robokid2/robokid-diplo-and-friends-bbc-radio-1-takeover-20190302)
 
-**Artist**: NON STOP NXC® 
+**Artist**: ROBOKID2 
 
-**Track**: NXC130 - kim petras + sophie - 1 2 3 dayz up (gyrofield flip)
+**Track**: Robokid - Diplo and Friends BBC Radio 1 Takeover 2019.03.02
 
-Last updated at 01/31/2021 19:33
+Last updated at 01/31/2021 19:35
