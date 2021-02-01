@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Xz2BE7p8TmMWbpu-eG5Iug-t50x50.jpg">](https://soundcloud.com/imalreadygonebaby/charli-xcx-no-angel-final-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000515702589-m9yypn-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc130)
 
-**Artist**: imalreadygonebaby 
+**Artist**: NON STOP NXC® 
 
-**Track**: Charli XCX - No Angel (Final Demo)
+**Track**: NXC130 - kim petras + sophie - 1 2 3 dayz up (gyrofield flip)
 
-Last updated at 01/31/2021 19:31
+Last updated at 01/31/2021 19:33
