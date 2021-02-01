@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8MwbM5t399zGeJVQ-ua8tAA-t50x50.jpg">](https://soundcloud.com/hollyhollys/holly-just-enough-feat-baauer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
 
-**Artist**: HOLLY 
+**Artist**: LAZLOW 
 
-**Track**: HOLLY - Just Enough (feat. Baauer)
+**Track**: EVERYTHING IS BUSINESS W/ SXLVR
 
-Last updated at 02/01/2021 10:05
+Last updated at 02/01/2021 10:07
