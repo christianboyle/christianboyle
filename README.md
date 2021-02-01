@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjNGECJLd8cG91q3JCsQPaVGZpbTnhjqtjBi1g0=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCz5_0Td_n8Pgh3UE_hu378w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000632292286-ikv3ri-t50x50.jpg">](https://soundcloud.com/instupendo/earring-dylan-brady-remix?in=silver-sphere/sets/welcome-2-the-silver-sphere-3)
 
-**Artist**: Silver Sphere 
+**Artist**: instupendo 
 
-**Track**: football game (Official Video)
+**Track**: Earring (Dylan Brady Remix)
 
-Last updated at 01/31/2021 19:50
+Last updated at 01/31/2021 19:52
