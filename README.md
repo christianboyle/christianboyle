@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jVJpjbQN1bq7Ma4-JVA98g-t50x50.jpg">](https://soundcloud.com/rogueself/asher-postman-deja-vu-rogue-self-remix-ft-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2T7TCbgJWuHoKlQ-yo4Y2A-t50x50.jpg">](https://soundcloud.com/juicemaster64/basshunter-dotajuicemasterz-remix)
 
-**Artist**: Rogue Self 
+**Artist**: Juicemasterz 
 
-**Track**: Asher Postman - Deja Vu (Rogue Self Remix) Ft. Tasji
+**Track**: Basshunter - Dota(Juicemasterz Remix)
 
-Last updated at 02/01/2021 16:07
+Last updated at 02/01/2021 16:09
