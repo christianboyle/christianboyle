@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZRjo5t2rFINMG9i-1yfHZw-t50x50.jpg">](https://soundcloud.com/quixofficial/huhhh-vip)
 
-**Artist**: Little Miss Servings 
+**Artist**: QUIX 
 
-**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
+**Track**: Huhhh [VIP]
 
-Last updated at 02/01/2021 15:44
+Last updated at 02/01/2021 16:01
