@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kT7F3BqdXmvVpPF0-h5X03w-t50x50.jpg">](https://soundcloud.com/jamez666/bystander-w-godzthought)
 
-**Artist**: Mang 
+**Artist**: JAMES666 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: BYSTANDER w/ godzTHOUGHT
 
-Last updated at 02/01/2021 12:16
+Last updated at 02/01/2021 13:48
