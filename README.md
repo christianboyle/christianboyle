@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1iGdb2Jm7jB972RF-S7SdTA-t50x50.jpg">](https://soundcloud.com/juicemaster64/tobu-candylandjuicemasterz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhFKIrCj5qBz-0-t50x50.png">](https://soundcloud.com/wearetwolanes/phases)
 
-**Artist**: Juicemasterz 
+**Artist**: TWO LANES 
 
-**Track**: Tobu - Candyland(Juicemasterz Remix)
+**Track**: Phases
 
-Last updated at 02/01/2021 16:11
+Last updated at 02/01/2021 16:15
