@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83r6QoG4gANqcrGO-AZmoXQ-t50x50.jpg">](https://soundcloud.com/crystvleyes/need-u-kirxcy1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yedyHy3obitdGyVz-WmdEzg-t50x50.jpg">](https://soundcloud.com/liltexas/lil-texas-pretty-rave-girl)
 
-**Artist**: nathin 
+**Artist**: LIL TEXAS 
 
-**Track**: need u +kirxcy
+**Track**: LIL TEXAS - PRETTY RAVE GIRL
 
-Last updated at 02/02/2021 10:06
+Last updated at 02/02/2021 10:34
