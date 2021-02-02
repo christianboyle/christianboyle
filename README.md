@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBL3N6y2F2cbJTwW-di1anw-t50x50.jpg">](https://soundcloud.com/staminarecords/stamina-records-radio-031-hosted-by-fracus-darwin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhFKIrCj5qBz-0-t50x50.png">](https://soundcloud.com/wearetwolanes/phases)
 
-**Artist**: Stamina Records 
+**Artist**: TWO LANES 
 
-**Track**: Stamina Records Radio 031 - Hosted By Fracus & Darwin
+**Track**: Phases
 
-Last updated at 02/02/2021 11:23
+Last updated at 02/02/2021 11:57
