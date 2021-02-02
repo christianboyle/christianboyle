@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhFKIrCj5qBz-0-t50x50.png">](https://soundcloud.com/wearetwolanes/phases)
 
-**Artist**: Mang 
+**Artist**: TWO LANES 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: Phases
 
-Last updated at 02/01/2021 16:51
+Last updated at 02/02/2021 08:09
