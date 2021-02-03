@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpaH872zXjV7CblG-MSG5fg-t50x50.jpg">](https://soundcloud.com/kiddodust/coastin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bb6ISlhOS8EnnylP-EzpKEg-t50x50.jpg">](https://soundcloud.com/rinsefm/metalheadz200121)
 
-**Artist**: Kiddo Dust 
+**Artist**: Rinse FM 
 
-**Track**: Coastin (Prod. Musa)
+**Track**: Metalheadz with John B & Data 3 - 20 January 2021
 
-Last updated at 02/03/2021 08:55
+Last updated at 02/03/2021 08:57
