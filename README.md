@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zpSzFYiVS3bjiTY-8LUSJA-t50x50.jpg">](https://soundcloud.com/3000deep/haelix-smile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPWk0QvcBRozCx9l-HwHypQ-t50x50.jpg">](https://soundcloud.com/floralfrequency/lotus)
 
-**Artist**: 3000 DEEP 
+**Artist**: FLØWERS 
 
-**Track**: HAELIX - Smile
+**Track**: Inner Lotus
 
-Last updated at 02/04/2021 17:44
+Last updated at 02/04/2021 17:51
