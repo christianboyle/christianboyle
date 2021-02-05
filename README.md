@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-56Eq1eClXMrvUp6c-ySsfNw-t50x50.jpg">](https://soundcloud.com/youseida/kubitsuri)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRGwVvCLci5j9z6S-3hJvdg-t50x50.jpg">](https://soundcloud.com/mikereveriemr/halsey-castle-mike-reverie-flip)
 
-**Artist**: yousei 
+**Artist**: Mike Reverie 
 
-**Track**: kubitsuri
+**Track**: Halsey - Castle (Mike Reverie Flip)
 
-Last updated at 02/05/2021 10:54
+Last updated at 02/05/2021 10:56
