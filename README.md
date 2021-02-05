@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1tMwGVRdLUr59xe-xFczWw-t50x50.jpg">](https://soundcloud.com/swipe_ssss/emerald-w_sxlvr_lynn)
 
-**Artist**: Asher Postman 
+**Artist**: sideswipe. 
 
-**Track**: Déjà vu (feat. Tasji)
+**Track**: Emerald w_sxlvr_lynn
 
-Last updated at 02/05/2021 10:22
+Last updated at 02/05/2021 10:26
