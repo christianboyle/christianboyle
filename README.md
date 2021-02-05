@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WSIrq28gae3zrcTG-diy7kw-t50x50.jpg">](https://soundcloud.com/bbjuelz/juelz-diplo-friends-mix)
 
-**Artist**: Asher Postman 
+**Artist**: Juelz 
 
-**Track**: Déjà vu (feat. Tasji)
+**Track**: Juelz - Diplo & Friends Mix
 
-Last updated at 02/05/2021 11:24
+Last updated at 02/05/2021 11:26
