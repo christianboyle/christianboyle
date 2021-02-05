@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLuV4uWWjcD8FEJt-sni8VA-t50x50.jpg">](https://soundcloud.com/endo96/colorless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXzjzsLwCUEm3jkB-HP9Wwg-t50x50.jpg">](https://soundcloud.com/reddishblu/in-my-own-world)
 
-**Artist**: 엔도 Endo 
+**Artist**: Reddish Blu 
 
-**Track**: Colorless
+**Track**: in my own world
 
-Last updated at 02/04/2021 17:57
+Last updated at 02/04/2021 18:01
