@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V5WzSdC3nVz52yg6-RZy06w-t50x50.jpg">](https://soundcloud.com/djjam305/rush-2-soflojook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-56Eq1eClXMrvUp6c-ySsfNw-t50x50.jpg">](https://soundcloud.com/youseida/kubitsuri)
 
-**Artist**: DJJam305 
+**Artist**: yousei 
 
-**Track**: Rush 2 #SoFloJook - DJJam305
+**Track**: kubitsuri
 
-Last updated at 02/05/2021 10:52
+Last updated at 02/05/2021 10:54
