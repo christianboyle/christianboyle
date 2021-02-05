@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXzjzsLwCUEm3jkB-HP9Wwg-t50x50.jpg">](https://soundcloud.com/reddishblu/in-my-own-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-794Xy1bVMxHnYI2z-7lLYeg-t50x50.jpg">](https://soundcloud.com/mashbit/quix-juelz-chicane-mashbit-remix)
 
-**Artist**: Reddish Blu 
+**Artist**: MashBit 
 
-**Track**: in my own world
+**Track**: QUIX & Juelz - Chicane (MashBit Remix)
 
-Last updated at 02/04/2021 18:01
+Last updated at 02/04/2021 18:03
