@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WSIrq28gae3zrcTG-diy7kw-t50x50.jpg">](https://soundcloud.com/bbjuelz/juelz-diplo-friends-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000281029889-uof7fq-t50x50.jpg">](https://soundcloud.com/lsdxoxo/burn-the-witch)
 
-**Artist**: Juelz 
+**Artist**: LSDXOXO 
 
-**Track**: Juelz - Diplo & Friends Mix
+**Track**: BURN THE WITCH
 
-Last updated at 02/05/2021 11:26
+Last updated at 02/05/2021 12:49
