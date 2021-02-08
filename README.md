@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wSx5881iQHNyFlG-ZdAHAA-t50x50.jpg">](https://soundcloud.com/yedgar/remnantexe-paradigm-yedgar-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIyu1YLN9Xox4uhb-bDQU5A-t50x50.jpg">](https://soundcloud.com/mirin_doja/takes2tomakeathinggorite)
 
-**Artist**: Yedgar 
+**Artist**: mirin doja 
 
-**Track**: REMNANT.exe - Paradigm (Yedgar Edit)
+**Track**: takes2tomakeathinggorite
 
-Last updated at 02/08/2021 10:23
+Last updated at 02/08/2021 10:25
