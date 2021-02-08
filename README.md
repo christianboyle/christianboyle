@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5JQWye3HAtVUA10Z-fO3koQ-t50x50.jpg">](https://soundcloud.com/balamii/news-from-the-treetops-w-macaulay-sulkin-coolant-bowser-february-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wSx5881iQHNyFlG-ZdAHAA-t50x50.jpg">](https://soundcloud.com/yedgar/remnantexe-paradigm-yedgar-edit)
 
-**Artist**: Balamii 
+**Artist**: Yedgar 
 
-**Track**: News From The Treetops w/ Macaulay Sulkin & Coolant Bowser - February 2021
+**Track**: REMNANT.exe - Paradigm (Yedgar Edit)
 
-Last updated at 02/08/2021 08:50
+Last updated at 02/08/2021 10:23
