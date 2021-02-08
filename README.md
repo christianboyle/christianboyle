@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzoVMgKCcLoysxL4-MmYqPA-t50x50.jpg">](https://soundcloud.com/bounceheavenofficial/kritikal-mass-loneliness-bounceheavencouk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvZNaCWE2CU0qoSz-kSegtw-t50x50.jpg">](https://soundcloud.com/bounceheavenofficial/nova-scotia-classic-cuts-1-bounceheavencouk)
 
 **Artist**: BOUNCE HEAVEN 
 
-**Track**: Kritikal Mass - Loneliness - BounceHeaven.co.uk
+**Track**: Nova Scotia - Classic Cuts 1 - BounceHeaven.co.uk
 
-Last updated at 02/08/2021 11:00
+Last updated at 02/08/2021 11:04
