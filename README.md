@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1plvEoJFkrSzhUKX-3A08XA-t50x50.jpg">](https://soundcloud.com/immnnt/exclusive-podcast-by-sbu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5JQWye3HAtVUA10Z-fO3koQ-t50x50.jpg">](https://soundcloud.com/balamii/news-from-the-treetops-w-macaulay-sulkin-coolant-bowser-february-2021)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: Balamii 
 
-**Track**: Exclusive Podcast by SBU, TENEKI, iSorin, REMNANT.exe
+**Track**: News From The Treetops w/ Macaulay Sulkin & Coolant Bowser - February 2021
 
-Last updated at 02/05/2021 12:57
+Last updated at 02/08/2021 08:50
