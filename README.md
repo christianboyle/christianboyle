@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYkwRZvuakkA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5bnwfD7HucN9jyG-FIGOlA-t50x50.jpg">](https://soundcloud.com/doctorpcircus/way-to-you-feat-dani-senior)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: Doctor P 
 
-**Track**: Talk You Down
+**Track**: Way To You Feat. Dani Senior
 
-Last updated at 02/09/2021 08:46
+Last updated at 02/09/2021 08:48
