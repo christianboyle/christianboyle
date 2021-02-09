@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rtkJNYT0LCC9QV0n-ys2ZNA-t50x50.jpg">](https://soundcloud.com/vk2018/ex-machina-backwater-brigade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DZ26dyGZX4kan8qj-4TfOfw-t50x50.jpg">](https://soundcloud.com/kegffnayy_everyoneonacid/grace-dahl-emerald-law)
 
-**Artist**: Voight-Kampff 
+**Artist**: Kegffnayy_Everyone On Acid 
 
-**Track**: Ex_Machina - Backwater Brigade
+**Track**: Grace Dahl - Emerald Law
 
-Last updated at 02/09/2021 11:18
+Last updated at 02/09/2021 11:24
