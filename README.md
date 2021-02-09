@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYcmJdqK2G4K-0-t50x50.jpg">](https://soundcloud.com/linkin_park/in-the-end)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwniqwRWwcdZSWbkLuMp7QNuf091ENB1fnXwpPd3buak=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCZU9T1ceaOgwfLRq7OKFU4Q)
 
-**Artist**: LINKIN_PARK 
+**Artist**: Linkin Park 
 
-**Track**: In the End
+**Track**: In The End (Official HD Video) - Linkin Park
 
-Last updated at 02/09/2021 08:22
+Last updated at 02/09/2021 08:24
