@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000675256747-un1uqg-t50x50.jpg">](https://soundcloud.com/uniontrance/dj-reiz-the-last-crusade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1KS9rqb9HcI26Pk-zzzwsg-t50x50.jpg">](https://soundcloud.com/txrecords/amazingblaze-trancemission-tx009-1?in=txrecords/sets/amazingblaze-speed-tracks-vol)
 
-**Artist**: Union Trance Mission 
+**Artist**: Tx Records 
 
-**Track**: DJ Reiz - The Last Crusade (Original Mix)
+**Track**: Amazingblaze - Trancemission [TX009]
 
-Last updated at 02/09/2021 11:52
+Last updated at 02/09/2021 15:26
