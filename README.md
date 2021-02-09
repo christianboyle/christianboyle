@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1KS9rqb9HcI26Pk-zzzwsg-t50x50.jpg">](https://soundcloud.com/txrecords/amazingblaze-looking-for-purpose-tx009-1?in=txrecords/sets/amazingblaze-speed-tracks-vol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1KS9rqb9HcI26Pk-zzzwsg-t50x50.jpg">](https://soundcloud.com/txrecords/amazingblaze-oldschool-meets-newschool-tx009-1?in=txrecords/sets/amazingblaze-speed-tracks-vol)
 
 **Artist**: Tx Records 
 
-**Track**: Amazingblaze - Looking For Purpose [TX009]
+**Track**: Amazingblaze - Oldschool Meets NewSchool [TX009]
 
-Last updated at 02/09/2021 09:00
+Last updated at 02/09/2021 09:07
