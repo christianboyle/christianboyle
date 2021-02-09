@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZy6lwa5HLRA73Jp-OA8y2g-t50x50.jpg">](https://soundcloud.com/sctrproject/witz-increase?in=txrecords/sets/fast-v-a-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ths53MX97LHp0EO7-ElhJkA-t50x50.jpg">](https://soundcloud.com/txrecords/distort-x-heavy-process?in=txrecords/sets/fast-v-a-001)
 
-**Artist**: SCTR 
+**Artist**: Tx Records 
 
-**Track**: PREMIERE: WITZ - Increase [TX001]
+**Track**: Distørt X - Heavy Process [TX001]
 
-Last updated at 02/09/2021 10:26
+Last updated at 02/09/2021 10:34
