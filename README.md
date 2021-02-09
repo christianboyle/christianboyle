@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UPGzm6OhhjcyGreR-Vy9skA-t50x50.jpg">](https://soundcloud.com/tarorecords/tarex031-n-grezi-diamond-cutter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzsdzhlRGe2EyBek-RDzMew-t50x50.jpg">](https://soundcloud.com/theforgottenrec/premiere-159)
 
-**Artist**: Taro Records 
+**Artist**: The Forgotten 
 
-**Track**: N Grezi - Diamond Cutter [TAREX031]
+**Track**: SDBX - You Fucked My Brain [Carbone Records]
 
-Last updated at 02/09/2021 11:06
+Last updated at 02/09/2021 11:14
