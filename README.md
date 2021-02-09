@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000660284008-c1xn50-t50x50.jpg">](https://soundcloud.com/funeral/tension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYcmJdqK2G4K-0-t50x50.jpg">](https://soundcloud.com/linkin_park/in-the-end)
 
-**Artist**: funeral 
+**Artist**: LINKIN_PARK 
 
-**Track**: TENSION
+**Track**: In the End
 
-Last updated at 02/09/2021 08:20
+Last updated at 02/09/2021 08:22
