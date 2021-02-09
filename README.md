@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwniqwRWwcdZSWbkLuMp7QNuf091ENB1fnXwpPd3buak=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCZU9T1ceaOgwfLRq7OKFU4Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YppNF5dmLs0edqdb-RMdGrw-t50x50.jpg">](https://soundcloud.com/balamii/discworld-on-air-w-sicknote-february-2021)
 
-**Artist**: Linkin Park 
+**Artist**: Balamii 
 
-**Track**: In The End (Official HD Video) - Linkin Park
+**Track**: Discworld On Air w/ Sicknote - February 2021
 
-Last updated at 02/09/2021 08:24
+Last updated at 02/09/2021 08:26
