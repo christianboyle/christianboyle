@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dml1IeG2NayHLych-DltEUw-t50x50.jpg">](https://soundcloud.com/vk2018/premiere-ya-crash-89?in=txrecords/sets/fast-v-a-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZy6lwa5HLRA73Jp-OA8y2g-t50x50.jpg">](https://soundcloud.com/sctrproject/witz-increase?in=txrecords/sets/fast-v-a-001)
 
-**Artist**: Voight-Kampff 
+**Artist**: SCTR 
 
-**Track**: [PREMIERE] YÅ - Crash 89 (TX001)
+**Track**: PREMIERE: WITZ - Increase [TX001]
 
-Last updated at 02/09/2021 10:20
+Last updated at 02/09/2021 10:26
