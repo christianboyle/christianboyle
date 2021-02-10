@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
 
-**Artist**: Little Miss Servings 
+**Artist**: LAZLOW 
 
-**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
+**Track**: EVERYTHING IS BUSINESS W/ SXLVR
 
-Last updated at 02/10/2021 09:24
+Last updated at 02/10/2021 09:26
