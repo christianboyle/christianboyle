@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000144534374-o3apav-t50x50.jpg">](https://soundcloud.com/ilian-tape/itlp02-skee-mask-shred)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enjOxozySj6Cqc2s-iyH0WQ-t50x50.jpg">](https://soundcloud.com/kmoethekid/2267-ericdoa)
 
-**Artist**: ILIAN TAPE 
+**Artist**: kmoe 
 
-**Track**: ITLP02 SKEE MASK - SHRED
+**Track**: 2267 (ft. ericdoa)
 
-Last updated at 02/10/2021 08:14
+Last updated at 02/10/2021 08:16
