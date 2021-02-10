@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R3clurLv1ajJBsUy-wGrMsg-t50x50.jpg">](https://soundcloud.com/user-344739168/3-ways-workinprogress-p-3ds)
 
-**Artist**: Know V.A. 
+**Artist**: ##workinprogress 
 
-**Track**: Artefact (Sully Remix)
+**Track**: <3 ways - #workinprogress  (p. 3ds)
 
-Last updated at 02/10/2021 10:10
+Last updated at 02/10/2021 11:31
