@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WhAFj4NzZs6VKJfD-yo8sng-t50x50.jpg">](https://soundcloud.com/ilovednbsomuch/allstars)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8cyVjFfPPAw43eL-Bg8Lwg-t50x50.jpg">](https://soundcloud.com/stolenhoodie/rebecca-black-friday-remix-ft-dorian-electra-big-freedia-3oh3)
 
-**Artist**: ilovednb 
+**Artist**: stolenhoodie 
 
-**Track**: K/DA - dnb all stars
+**Track**: Rebecca Black - Friday (Remix) Ft Dorian Electra, Big Freedia & 3OH!3
 
-Last updated at 02/10/2021 16:53
+Last updated at 02/10/2021 16:55
