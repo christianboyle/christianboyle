@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTrHNCZ2XkEfNivD-modaXQ-t50x50.jpg">](https://soundcloud.com/phzes/phzedconfused-10-for-sc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5bnwfD7HucN9jyG-FIGOlA-t50x50.jpg">](https://soundcloud.com/doctorpcircus/way-to-you-feat-dani-senior)
 
-**Artist**: PHZES 
+**Artist**: Doctor P 
 
-**Track**: PHZED & Confused Mix 10: Guest Mix w/ Holly T
+**Track**: Way To You Feat. Dani Senior
 
-Last updated at 02/10/2021 08:20
+Last updated at 02/10/2021 08:22
