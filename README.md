@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyL3Xz8tpIDFB9Sf-CYl7Nw-t50x50.jpg">](https://soundcloud.com/deffyme/makeout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H1C4IDnrI7d0yxx-7UnseQ-t50x50.jpg">](https://soundcloud.com/krane/bodyheat)
 
-**Artist**: deffyme 
+**Artist**: KRANE 
 
-**Track**: dreams47 x deffyme - makeout // WARDUB RESPONSE TO XENAAN
+**Track**: KRANE - Body Heat (feat. Nate Merchant)
 
-Last updated at 02/10/2021 08:24
+Last updated at 02/10/2021 09:21
