@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SDuvVZaI6kRe4wl-zmkYfA-t50x50.jpg">](https://soundcloud.com/overeasyofficial/liarliar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
 
-**Artist**: OVER EASY 
+**Artist**: Know V.A. 
 
-**Track**: Over Easy & J12 - Liar Liar
+**Track**: Artefact (Sully Remix)
 
-Last updated at 02/10/2021 11:33
+Last updated at 02/10/2021 11:35
