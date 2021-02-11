@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CcFo81jBRSY465Pc-yp5O8g-t50x50.jpg">](https://soundcloud.com/future-twist/ghastly-get-on-this-future-twist-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fpb6Wd1C5TeR-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down-niiko-x-swae)
 
-**Artist**: Future Twist 
+**Artist**: Charlotte Lawrence 
 
-**Track**: Ghastly - Get On This (Future Twist Remix)
+**Track**: Talk You Down (Niiko x SWAE Remix)
 
-Last updated at 02/11/2021 16:31
+Last updated at 02/11/2021 16:33
