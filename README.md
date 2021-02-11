@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574520063-dmcd8p-t50x50.jpg">](https://soundcloud.com/mr-tadakichi/sophie-ft-liz-sunscreen-mrtadakichi-remaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: Mr.Tadakichi 
+**Artist**: Little Miss Servings 
 
-**Track**: SOPHIE ft. LIZ - SUNSCREEN (Mr.Tadakichi Remaster)
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 02/11/2021 16:52
+Last updated at 02/11/2021 16:58
