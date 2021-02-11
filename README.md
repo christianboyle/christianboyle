@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fpb6Wd1C5TeR-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down-niiko-x-swae)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhTu3o30EsO7UMZvJ23_s44tM1APTWeyavUN_ySfw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCGPI7zCpQYpPhDLdOAmpAww)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: rebecca 
 
-**Track**: Talk You Down (Niiko x SWAE Remix)
+**Track**: Rebecca Black - Friday (Remix) ft Dorian Electra, Big Freedia & 3OH!3 [Official Video]
 
-Last updated at 02/11/2021 16:38
+Last updated at 02/11/2021 16:40
