@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9CvYXvVnBAN6Whu-2Fj8gA-t50x50.jpg">](https://soundcloud.com/onurormenmusic/onur-ormen-reaktive-bigstat-you-gon-learn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8cyVjFfPPAw43eL-Bg8Lwg-t50x50.jpg">](https://soundcloud.com/stolenhoodie/rebecca-black-friday-remix-ft-dorian-electra-big-freedia-3oh3)
 
-**Artist**: Onur Ormen 
+**Artist**: stolenhoodie 
 
-**Track**: Onur Ormen & Reaktive & BigStat - You Gon' Learn
+**Track**: Rebecca Black - Friday (Remix) Ft Dorian Electra, Big Freedia & 3OH!3
 
-Last updated at 02/11/2021 16:34
+Last updated at 02/11/2021 16:36
