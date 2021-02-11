@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574520063-dmcd8p-t50x50.jpg">](https://soundcloud.com/mr-tadakichi/sophie-ft-liz-sunscreen-mrtadakichi-remaster)
 
-**Artist**: Know V.A. 
+**Artist**: Mr.Tadakichi 
 
-**Track**: Artefact (Sully Remix)
+**Track**: SOPHIE ft. LIZ - SUNSCREEN (Mr.Tadakichi Remaster)
 
-Last updated at 02/11/2021 16:50
+Last updated at 02/11/2021 16:52
