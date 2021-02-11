@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpbMCGmo5QCuNOEQ-tB4LwA-t50x50.jpg">](https://soundcloud.com/shxde/titan-wardub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000136462050-uyt4gc-t50x50.jpg">](https://soundcloud.com/killmythic/bunkin-out-da-basement?in=killmythic/sets/mini-mixes)
 
-**Artist**: shxde 
+**Artist**: Mythic 
 
-**Track**: TITAN [WARDUB]
+**Track**: BUNKIN' OUT DA BASEMENT
 
-Last updated at 02/11/2021 15:53
+Last updated at 02/11/2021 16:29
