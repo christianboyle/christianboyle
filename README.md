@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhTu3o30EsO7UMZvJ23_s44tM1APTWeyavUN_ySfw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCGPI7zCpQYpPhDLdOAmpAww)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RK34fpCprD9MiykG-BYuEpQ-t50x50.jpg">](https://soundcloud.com/prime-nightcult/spline-welcome-1)
 
-**Artist**: rebecca 
+**Artist**: PRIME 
 
-**Track**: Rebecca Black - Friday (Remix) ft Dorian Electra, Big Freedia & 3OH!3 [Official Video]
+**Track**: SPLINE | WELCOME
 
-Last updated at 02/11/2021 16:40
+Last updated at 02/11/2021 16:46
