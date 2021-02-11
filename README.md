@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wW6XzJGn8UyMLLkz-TGHYzw-t50x50.jpg">](https://soundcloud.com/spinninsessions/spinnin-sessions-405-artist-spotlight-michael-calfan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHhR0xtS8eiVsI7G-fH2xCw-t50x50.jpg">](https://soundcloud.com/i-am-seimei/namie-amuro-b-who-i-want-2-b-feat-hatsune-miku-seimeis-tokyo-pygmalion-remix)
 
-**Artist**: Spinnin' Sessions 
+**Artist**: Seimei 
 
-**Track**: Spinnin’ Sessions 405 - Artist Spotlight: Michael Calfan
+**Track**: Namie Amuro - B Who I Want 2 B feat. Hatsune Miku (Seimei's Tokyo Pygmalion Remix)
 
-Last updated at 02/11/2021 15:21
+Last updated at 02/11/2021 15:23
