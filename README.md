@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FqzHBllAQShWPN20-EIfZ1g-t50x50.jpg">](https://soundcloud.com/ghostdragonofficial/strangersagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPrqpuhzhOROjbVf-ilnJ8w-t50x50.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-463-feat-mkn)
 
-**Artist**: GhostDragon 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: GhostDragon & Exede - Strangers Again
+**Track**: KTRA Episode 463 feat. MKN
 
-Last updated at 02/11/2021 10:57
+Last updated at 02/11/2021 11:01
