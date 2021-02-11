@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUNyZbp3rbXxYbrO-zkIEFg-t50x50.jpg">](https://soundcloud.com/axel-boy/lemonade-axel-boy-bootleg-patreon-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FqzHBllAQShWPN20-EIfZ1g-t50x50.jpg">](https://soundcloud.com/ghostdragonofficial/strangersagain)
 
-**Artist**: Axel Boy 
+**Artist**: GhostDragon 
 
-**Track**: Lemonade (Axel Boy Bootleg) [Patreon Exclusive]
+**Track**: GhostDragon & Exede - Strangers Again
 
-Last updated at 02/11/2021 10:55
+Last updated at 02/11/2021 10:57
