@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQ1kwOJwUsCi-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/jokes-on-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xeak6WR5srjm-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/god-must-be-doing-cocaine)
 
 **Artist**: Charlotte Lawrence 
 
-**Track**: Joke's On You
+**Track**: God Must Be Doing Cocaine
 
-Last updated at 02/11/2021 17:05
+Last updated at 02/11/2021 17:09
