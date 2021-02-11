@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1VVV7JxICNSep1g2-DRfj4A-t50x50.jpg">](https://soundcloud.com/arrudapranta/adipocere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpbMCGmo5QCuNOEQ-tB4LwA-t50x50.jpg">](https://soundcloud.com/shxde/titan-wardub)
 
-**Artist**: arruda 
+**Artist**: shxde 
 
-**Track**: adipocere
+**Track**: TITAN [WARDUB]
 
-Last updated at 02/11/2021 15:49
+Last updated at 02/11/2021 15:53
