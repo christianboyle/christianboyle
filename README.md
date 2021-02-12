@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t50x50.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix?in=saxurn/sets/tester2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORc8ICxVQD6qsOyE-0e1zOw-t50x50.jpg">](https://soundcloud.com/twikipedia/talkdown)
 
-**Artist**: FGSN 
+**Artist**: twikipedia 
 
-**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
+**Track**: talk down 💬 w/ SEBii (p. hallow + twikipedia)
 
-Last updated at 02/11/2021 19:47
+Last updated at 02/11/2021 19:51
