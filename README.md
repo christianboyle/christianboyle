@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLiCthXtGxus4HgP-xMidow-t50x50.jpg">](https://soundcloud.com/opalfruits/mix-030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1O06OiLGOhmEtEBb-EuKmsw-t50x50.jpg">](https://soundcloud.com/farrahsounds/youneversaidremix)
 
-**Artist**: Opal Fruits 
+**Artist**: Farrah 
 
-**Track**: OFMIX - 030 [Dan Larkin]
+**Track**: PNK FME - You Never Said (Farrah Remix)
 
-Last updated at 02/11/2021 19:54
+Last updated at 02/12/2021 07:10
