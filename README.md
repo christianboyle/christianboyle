@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5xVQE8VU5W91XzJ-SCCsLg-t50x50.jpg">](https://soundcloud.com/trekkie-trax/carpainter-yamanote-disko-klub-official-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: Little Miss Servings 
 
-**Track**: Carpainter - Yamanote Disko Klub [Official Teaser]
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 02/12/2021 07:14
+Last updated at 02/12/2021 07:16
