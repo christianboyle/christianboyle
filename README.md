@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYkwRZvuakkA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
 
-**Artist**: Asher Postman 
+**Artist**: Charlotte Lawrence 
 
-**Track**: Déjà vu (feat. Tasji)
+**Track**: Talk You Down
 
-Last updated at 02/12/2021 09:57
+Last updated at 02/12/2021 10:45
