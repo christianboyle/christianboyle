@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xeak6WR5srjm-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/god-must-be-doing-cocaine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYkwRZvuakkA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
 
 **Artist**: Charlotte Lawrence 
 
-**Track**: God Must Be Doing Cocaine
+**Track**: Talk You Down
 
-Last updated at 02/11/2021 17:09
+Last updated at 02/11/2021 18:42
