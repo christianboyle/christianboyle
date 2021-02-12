@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H1C4IDnrI7d0yxx-7UnseQ-t50x50.jpg">](https://soundcloud.com/krane/bodyheat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: KRANE 
+**Artist**: Little Miss Servings 
 
-**Track**: KRANE - Body Heat (feat. Nate Merchant)
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 02/12/2021 10:57
+Last updated at 02/12/2021 10:59
