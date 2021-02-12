@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bqSwpCRrJz7D5WjU-SDzq6w-t50x50.jpg">](https://soundcloud.com/sekizosan/all-the-smoke-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYg0trpfNFz3dEFL-GgstVg-t50x50.jpg">](https://soundcloud.com/futurebassrecords/neverletugo)
 
-**Artist**: SEKIZO. 
+**Artist**: Future Bass XO 
 
-**Track**: ALL THE SMOKE [FULL STREAM]
+**Track**: NINE - Never Let You Go [Future Bass Release]
 
-Last updated at 02/12/2021 14:33
+Last updated at 02/12/2021 14:51
