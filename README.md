@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1tMwGVRdLUr59xe-xFczWw-t50x50.jpg">](https://soundcloud.com/swipe_ssss/emerald-w_sxlvr_lynn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H1C4IDnrI7d0yxx-7UnseQ-t50x50.jpg">](https://soundcloud.com/krane/bodyheat)
 
-**Artist**: sideswipe. 
+**Artist**: KRANE 
 
-**Track**: Emerald w_sxlvr_lynn
+**Track**: KRANE - Body Heat (feat. Nate Merchant)
 
-Last updated at 02/12/2021 10:55
+Last updated at 02/12/2021 10:57
