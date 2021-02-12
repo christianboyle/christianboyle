@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8cyVjFfPPAw43eL-Bg8Lwg-t50x50.jpg">](https://soundcloud.com/stolenhoodie/rebecca-black-friday-remix-ft-dorian-electra-big-freedia-3oh3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRGwVvCLci5j9z6S-3hJvdg-t50x50.jpg">](https://soundcloud.com/mikereveriemr/halsey-castle-mike-reverie-flip)
 
-**Artist**: stolenhoodie 
+**Artist**: Mike Reverie 
 
-**Track**: Rebecca Black - Friday (Remix) Ft Dorian Electra, Big Freedia & 3OH!3
+**Track**: Halsey - Castle (Mike Reverie Flip)
 
-Last updated at 02/12/2021 08:23
+Last updated at 02/12/2021 08:27
