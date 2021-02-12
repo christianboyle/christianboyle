@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUjuNcEueWsQuhZ6-XeMzcw-t50x50.jpg">](https://soundcloud.com/deltaxp/i-dont-want-that-many-friends-in-the-first-place)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYkwRZvuakkA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
 
-**Artist**: delta 
+**Artist**: Charlotte Lawrence 
 
-**Track**: i don't want that many friends in the first place
+**Track**: Talk You Down
 
-Last updated at 02/12/2021 08:51
+Last updated at 02/12/2021 08:55
