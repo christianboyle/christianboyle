@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnisE3jHW64Emq9KNQ8PTC3oEnd8ZVsR05MEIYbdbQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC0gOw4iy-6HwO01q-gA1B0Q)
 
-**Artist**: Mang 
+**Artist**: Lil Peep 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: lil peep w/ yung bruh - white tee
 
-Last updated at 02/12/2021 11:15
+Last updated at 02/12/2021 12:31
