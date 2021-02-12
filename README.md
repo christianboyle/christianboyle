@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBpoqMz8QJrBqrcG-Nt7Ekw-t50x50.jpg">](https://soundcloud.com/jamez666/bust-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zIB8zXSFQOaLhpZu-tvYbJQ-t50x50.jpg">](https://soundcloud.com/devdmvne/you-know-whyy)
 
-**Artist**: JAMES666 
+**Artist**: devd mvne 
 
-**Track**: BUST UP
+**Track**: you know why
 
-Last updated at 02/12/2021 15:21
+Last updated at 02/12/2021 15:23
