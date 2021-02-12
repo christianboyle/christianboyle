@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fpb6Wd1C5TeR-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down-niiko-x-swae)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8cyVjFfPPAw43eL-Bg8Lwg-t50x50.jpg">](https://soundcloud.com/stolenhoodie/rebecca-black-friday-remix-ft-dorian-electra-big-freedia-3oh3)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: stolenhoodie 
 
-**Track**: Talk You Down (Niiko x SWAE Remix)
+**Track**: Rebecca Black - Friday (Remix) Ft Dorian Electra, Big Freedia & 3OH!3
 
-Last updated at 02/12/2021 08:21
+Last updated at 02/12/2021 08:23
