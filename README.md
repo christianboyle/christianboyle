@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh1qFXIctbpP6QNo-EFVBqA-t50x50.jpg">](https://soundcloud.com/l_a_z_l_o_w/everything-is-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83r6QoG4gANqcrGO-AZmoXQ-t50x50.jpg">](https://soundcloud.com/crystvleyes/need-u-kirxcy1)
 
-**Artist**: LAZLOW 
+**Artist**: nathin 
 
-**Track**: EVERYTHING IS BUSINESS W/ SXLVR
+**Track**: need u +kirxcy
 
-Last updated at 02/12/2021 11:05
+Last updated at 02/12/2021 11:09
