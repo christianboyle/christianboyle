@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYkwRZvuakkA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: Little Miss Servings 
 
-**Track**: Talk You Down
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 02/11/2021 18:47
+Last updated at 02/11/2021 19:29
