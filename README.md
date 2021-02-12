@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8eq8DGt1wdzpLUIY-9eDOtw-t50x50.jpg">](https://soundcloud.com/below_the_surface/xavage-trey-songz-feat-tre-savels?in=saxurn/sets/tester/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t50x50.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix?in=saxurn/sets/tester2/)
 
-**Artist**: Below 
+**Artist**: FGSN 
 
-**Track**: XAVAGE - Trey Songz (feat. Tre Savels)[FUXWITHIT PREMIERE]
+**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
 
-Last updated at 02/11/2021 19:45
+Last updated at 02/11/2021 19:47
