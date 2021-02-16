@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71KHZBvdwfHORRW3-u41Cwg-t50x50.jpg">](https://soundcloud.com/brednbutterrec/bailo-x-dabow-x-jon-casey-game-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVKNEkHPtgC8-0-t50x50.jpg">](https://soundcloud.com/julianskiboat/flowers)
 
-**Artist**: brednbutter 
+**Artist**: Julian Skiboat 
 
-**Track**: Bailo x Dabow x Jon Casey - Game Over [FUXWITHIT Premiere]
+**Track**: Flowers
 
-Last updated at 02/16/2021 08:22
+Last updated at 02/16/2021 08:24
