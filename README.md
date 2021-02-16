@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjcoD7H623MSD7pX-ciEKzA-t50x50.jpg">](https://soundcloud.com/cltxx/hor-durch-cltx-december-31)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyV5uO1XlP9B51Gm-KhfEyQ-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-010-amazingblaze)
 
-**Artist**: CLTX 
+**Artist**: Tx Records 
 
-**Track**: HOR: Durch - CLTX - December 30
+**Track**: Podcast 010 | Amazingblaze
 
-Last updated at 02/16/2021 10:18
+Last updated at 02/16/2021 10:47
