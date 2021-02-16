@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh8zGICT3GWDlX9D2AWyXxuowTUZ4ERb03hSPgLaA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC4JeRiQvPQ_nb1BZWjk9QoA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyV5uO1XlP9B51Gm-KhfEyQ-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-010-amazingblaze)
 
-**Artist**: Phil Collins 
+**Artist**: Tx Records 
 
-**Track**: Heatwave (Official Music Video)
+**Track**: Podcast 010 | Amazingblaze
 
-Last updated at 02/16/2021 11:18
+Last updated at 02/16/2021 15:23
