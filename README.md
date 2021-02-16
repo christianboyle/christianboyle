@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVKNEkHPtgC8-0-t50x50.jpg">](https://soundcloud.com/julianskiboat/flowers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rm5AatSxDhVk8p8b-1tu00w-t50x50.jpg">](https://soundcloud.com/ankorage/bikelock)
 
-**Artist**: Julian Skiboat 
+**Artist**: anko 
 
-**Track**: Flowers
+**Track**: bikelock w/ cm. , scorpiioh, and a/
 
-Last updated at 02/16/2021 08:24
+Last updated at 02/16/2021 08:26
