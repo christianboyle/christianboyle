@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibOMU7NozgiLx4Oa-l3KfPw-t50x50.jpg">](https://soundcloud.com/curtainss/abba-feat-synthetic-lrbg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyV5uO1XlP9B51Gm-KhfEyQ-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-010-amazingblaze)
 
-**Artist**: Curtains 
+**Artist**: Tx Records 
 
-**Track**: Abba (feat. Synthetic & LRBG) [Instrumental]
+**Track**: Podcast 010 | Amazingblaze
 
-Last updated at 02/16/2021 09:14
+Last updated at 02/16/2021 09:20
