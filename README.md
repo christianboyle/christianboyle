@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyV5uO1XlP9B51Gm-KhfEyQ-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-010-amazingblaze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siTp1mXk1NP6WI55-4oMoOg-t50x50.jpg">](https://soundcloud.com/cltxx/metallica-fight-fire-with-fire-cltx-edit-1)
 
-**Artist**: Tx Records 
+**Artist**: CLTX 
 
-**Track**: Podcast 010 | Amazingblaze
+**Track**: Metallica - Fight Fire With Fire (CLTX Edit)
 
-Last updated at 02/16/2021 09:20
+Last updated at 02/16/2021 10:06
