@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rm5AatSxDhVk8p8b-1tu00w-t50x50.jpg">](https://soundcloud.com/ankorage/bikelock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdtNif7Wzrjy2bdE-7izDvQ-t50x50.jpg">](https://soundcloud.com/raegun240/testament-w-ericdoa-delto)
 
-**Artist**: anko 
+**Artist**: raegun 
 
-**Track**: bikelock w/ cm. , scorpiioh, and a/
+**Track**: testament w/ ericdoa [+delto]
 
-Last updated at 02/16/2021 08:26
+Last updated at 02/16/2021 08:28
