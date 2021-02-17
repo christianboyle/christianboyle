@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyV5uO1XlP9B51Gm-KhfEyQ-t50x50.jpg">](https://soundcloud.com/txrecords/podcast-010-amazingblaze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkhRrsbi3dPy7bkX-av9v7A-t50x50.jpg">](https://soundcloud.com/luciferzx1/winter-tires)
 
-**Artist**: Tx Records 
+**Artist**: LUCIFERZX 
 
-**Track**: Podcast 010 | Amazingblaze
+**Track**: WINTER TIRES
 
-Last updated at 02/16/2021 15:23
+Last updated at 02/17/2021 08:04
