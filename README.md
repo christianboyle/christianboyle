@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-60BHygsHz2I4A0gU-UsvT8Q-t50x50.jpg">](https://soundcloud.com/itsplayboxmusic/elza-island-kyanu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daLLR290P8C5uZyM-vZ6ezg-t50x50.jpg">](https://soundcloud.com/balamii/bea-february-2021)
 
-**Artist**: PLAYBOX MUSIC/KONTOR RECORDS 
+**Artist**: Balamii 
 
-**Track**: ELZA - Island (KYANU Remix)
+**Track**: BEA - February 2021
 
-Last updated at 02/17/2021 09:58
+Last updated at 02/17/2021 10:00
