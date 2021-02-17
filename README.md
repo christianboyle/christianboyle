@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30VAmR8jRf7Zh76F-skFTlw-t50x50.jpg">](https://soundcloud.com/alasen/imprint-new-sample-pack-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tlyzjpbek58K-0-t50x50.jpg">](https://soundcloud.com/juliancrossofficial/strangers)
 
-**Artist**: alasen 
+**Artist**: Julian Cross 
 
-**Track**: imprint (new sample pack up)
+**Track**: Strangers
 
-Last updated at 02/17/2021 09:52
+Last updated at 02/17/2021 09:54
