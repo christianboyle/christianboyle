@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTR3AZbnLG67mx2C-S7z5zA-t50x50.jpg">](https://soundcloud.com/komorebiaudio/blue-dream-chill-trap-rnb-melodies-sample-pack)
 
-**Artist**: 4*(JPN) 
+**Artist**: Komorebi Audio 
 
-**Track**: 4* - Pieces (Radio Edit)
+**Track**: Blue Dream - Chill Trap & Rnb Melodies - Sample Pack
 
-Last updated at 02/18/2021 08:16
+Last updated at 02/18/2021 08:18
