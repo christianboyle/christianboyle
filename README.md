@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t50x50.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw6iq9aJFtWU-0-t50x50.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
 
-**Artist**: Little Miss Servings 
+**Artist**: LIL LOTUS 
 
-**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
+**Track**: Girl Next Door (feat. lil aaron)
 
-Last updated at 02/18/2021 09:12
+Last updated at 02/18/2021 09:50
