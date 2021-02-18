@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fpb6Wd1C5TeR-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down-niiko-x-swae)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgLaw2kXktie-0-t50x50.png">](https://soundcloud.com/asher-postman/deja-vu-feat-tasji)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: Asher Postman 
 
-**Track**: Talk You Down (Niiko x SWAE Remix)
+**Track**: Déjà vu (feat. Tasji)
 
-Last updated at 02/18/2021 09:02
+Last updated at 02/18/2021 09:04
