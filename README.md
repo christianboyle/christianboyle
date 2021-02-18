@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHHxWKAxJFaHdwSt-oA2PxA-t50x50.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-016)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
 
-**Artist**: Future Generation Radio 
+**Artist**: 4*(JPN) 
 
-**Track**: Future Generation Radio #016 [Melodic trap & bass]
+**Track**: 4* - Pieces (Radio Edit)
 
-Last updated at 02/18/2021 08:14
+Last updated at 02/18/2021 08:16
