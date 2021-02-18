@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgrhviLMtCNNSk4R-cAzzjA-t50x50.jpg">](https://soundcloud.com/aadysimusic/dshaahae-dragon?in=aadysimusic/sets/enter-sontaeries-i-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODJ0ZZJ16Sdz2XeR-pHKumg-t50x50.jpg">](https://soundcloud.com/monstercat/grant-runn-fix-it?in=callmegrant/sets/grant-runn-fix-it)
 
-**Artist**: Aadysi 🐺 
+**Artist**: Monstercat 
 
-**Track**: D'Shaahae (Dragon)
+**Track**: Grant & RUNN - Fix It
 
-Last updated at 02/18/2021 08:24
+Last updated at 02/18/2021 08:26
