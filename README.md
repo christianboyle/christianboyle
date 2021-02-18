@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WStH3iTW5Th4zxZX-u75PGw-t50x50.jpg">](https://soundcloud.com/middlechildmusica/miss-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHHxWKAxJFaHdwSt-oA2PxA-t50x50.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-016)
 
-**Artist**: middle child 
+**Artist**: Future Generation Radio 
 
-**Track**: miss you (ｆｒｅｅ ｄｏｗｎｌｏａｄ)
+**Track**: Future Generation Radio #016 [Melodic trap & bass]
 
-Last updated at 02/18/2021 08:12
+Last updated at 02/18/2021 08:14
