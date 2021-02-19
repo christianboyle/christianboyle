@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t50x50.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw6iq9aJFtWU-0-t50x50.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: LIL LOTUS 
 
-**Track**: Dj CHRISTIAN NXC - S1X FLAGS
+**Track**: Girl Next Door (feat. lil aaron)
 
-Last updated at 02/19/2021 15:25
+Last updated at 02/19/2021 15:27
