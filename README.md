@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnivdWwzkkidZmiiN0WFCaK-g5SrtTrNRZb_W9dy7Q=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCU1OAvzxL4-IbChYX37YQYg)
 
-**Artist**: 4*(JPN) 
+**Artist**: GoldFishLive 
 
-**Track**: 4* - Pieces (Radio Edit)
+**Track**: GoldFish - Everything Is Changing ft Julia Church (Official Music Video)
 
-Last updated at 02/20/2021 13:08
+Last updated at 02/20/2021 19:03
