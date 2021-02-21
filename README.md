@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnivdWwzkkidZmiiN0WFCaK-g5SrtTrNRZb_W9dy7Q=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCU1OAvzxL4-IbChYX37YQYg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIxfzGQ3nihnqSUz-cyeIRw-t50x50.jpg">](https://soundcloud.com/balamii/more-cowbell-w-korzi-fassbender-february-2021)
 
-**Artist**: GoldFishLive 
+**Artist**: Balamii 
 
-**Track**: Goldfish - Live Ultra Music Festival 2013 UMF Miami - 15-03-2013
+**Track**: More Cowbell w/ Korzi & Fassbender - February 2021
 
-Last updated at 02/21/2021 07:27
+Last updated at 02/21/2021 14:11
