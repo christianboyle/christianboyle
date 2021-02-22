@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pbaQteyyXRZGci7p-qNF8SQ-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-running-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wDYkvJ1cQlauv-BCAE9A-t50x50.jpg">](https://soundcloud.com/niteboi6/paranoia)
 
-**Artist**: 4*(JPN) 
+**Artist**: niteboi✨🌙 
 
-**Track**: 4* - Running (Radio Edit)
+**Track**: delusions and paranoia
 
-Last updated at 02/22/2021 12:28
+Last updated at 02/22/2021 13:49
