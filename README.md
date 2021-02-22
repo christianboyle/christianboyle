@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAVy1ZvaAHqFFIeS-YoPyZw-t50x50.jpg">](https://soundcloud.com/jadudala/stuca-where-we-are-jadu155)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8q24I5Mrd5e7Mms-oG8SUg-t50x50.jpg">](https://soundcloud.com/mattmajormusic/perfect-1)
 
-**Artist**: Jadū Dala 
+**Artist**: Matt Major☄️ 
 
-**Track**: STUCA - Where We Are (JADŪ155)
+**Track**: perfect
 
-Last updated at 02/22/2021 08:04
+Last updated at 02/22/2021 08:06
