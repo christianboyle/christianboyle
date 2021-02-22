@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjnvVB9nYPFyk8y5pM4ijzh2EByMSVnWw5k-T6z=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC_kRDKYrUlrbtrSiyu5Tflg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
 
-**Artist**: Daft Punk 
+**Artist**: 4*(JPN) 
 
-**Track**: Epilogue
+**Track**: 4* - Pieces (Radio Edit)
 
-Last updated at 02/22/2021 11:08
+Last updated at 02/22/2021 12:24
