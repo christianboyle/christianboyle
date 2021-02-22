@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7rcSSryMr1YNMzp-3eeL9w-t50x50.jpg">](https://soundcloud.com/val1th/11-minutes-wonder-valith)
 
-**Artist**: 4*(JPN) 
+**Artist**: Valith 
 
-**Track**: 4* - Pieces (Radio Edit)
+**Track**: YUNGBLUD, Halsey - 11 Minutes Ft. Travis Barker (Wonder & Valith Remix)
 
-Last updated at 02/22/2021 15:12
+Last updated at 02/22/2021 15:16
