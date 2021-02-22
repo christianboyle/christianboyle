@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VjhIfmcHiorA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wDYkvJ1cQlauv-BCAE9A-t50x50.jpg">](https://soundcloud.com/niteboi6/paranoia)
 
-**Artist**: Charlotte Lawrence 
+**Artist**: niteboi✨🌙 
 
-**Track**: Talk You Down
+**Track**: delusions and paranoia
 
-Last updated at 02/22/2021 14:38
+Last updated at 02/22/2021 15:04
