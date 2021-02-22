@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvyJ13vwQ42JkWvX-M5EZhg-t50x50.jpg">](https://soundcloud.com/s4vepoint/zero-hour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-85AXHPMeTUs8SRtD-TYDG0Q-t50x50.jpg">](https://soundcloud.com/4_jpn_official/pikasonic-4-orbits)
 
-**Artist**: savepoint 
+**Artist**: 4*(JPN) 
 
-**Track**: zero hour
+**Track**: PIKASONIC & 4* - Orbits
 
-Last updated at 02/22/2021 08:29
+Last updated at 02/22/2021 08:31
