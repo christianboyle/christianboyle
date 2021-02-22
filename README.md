@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zzz3KKXCkNmJLyBQ-iA0S5w-t50x50.jpg">](https://soundcloud.com/4_jpn_official/free-dl-massive-new-krew-ever-free-4-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFd90y9sXHflcjR3-NeNt7A-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-i-cant-wait-extended-mix)
 
 **Artist**: 4*(JPN) 
 
-**Track**: [FREE DL] Massive New krew - Ever Free (4* Remix)
+**Track**: 4* - I Can't Wait (Extended Mix)
 
-Last updated at 02/22/2021 08:43
+Last updated at 02/22/2021 08:47
