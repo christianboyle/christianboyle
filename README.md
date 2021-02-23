@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktW8EuGMoaHq7XrM-hwFfIg-t50x50.jpg">](https://soundcloud.com/ice-underlord/extreme-music)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhhGfTWYxlPVyfezRhoz_1GCZ2DgGzoWaYJeeEp=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCSRoN5Sxu5M-jc0JXt3E-xg)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Daryl Hall & John Oates 
 
-**Track**: EXTREME MUSIC (UNDERLORD 2 BREAKS OUT NOW)
+**Track**: Private Eyes (Official HD Video)
 
-Last updated at 02/23/2021 10:00
+Last updated at 02/23/2021 10:02
