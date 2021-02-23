@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1tMwGVRdLUr59xe-xFczWw-t50x50.jpg">](https://soundcloud.com/swipe_ssss/emerald-w_sxlvr_lynn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WEusmpbwEmMg-0-t50x50.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
 
-**Artist**: sideswipe. 
+**Artist**: LIL LOTUS 
 
-**Track**: Emerald w_sxlvr_lynn
+**Track**: Girl Next Door
 
-Last updated at 02/22/2021 19:42
+Last updated at 02/23/2021 07:59
