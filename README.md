@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WEusmpbwEmMg-0-t50x50.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VjhIfmcHiorA-0-t50x50.jpg">](https://soundcloud.com/charlotteslawrence/talk-you-down)
 
-**Artist**: LIL LOTUS 
+**Artist**: Charlotte Lawrence 
 
-**Track**: Girl Next Door
+**Track**: Talk You Down
 
-Last updated at 02/23/2021 07:59
+Last updated at 02/23/2021 08:01
