@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcFDA60Oowgyza1j-CBojfw-t50x50.jpg">](https://soundcloud.com/rave_alert/mzperx-marco-ginelli-hard-darker-faster-raver-thoqy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5xVQE8VU5W91XzJ-SCCsLg-t50x50.jpg">](https://soundcloud.com/trekkie-trax/carpainter-yamanote-disko-klub-official-teaser?in=trekkie-trax/sets/carpainter-yamanote-disko-1)
 
-**Artist**: Rave Alert 
+**Artist**: TREKKIE TRAX 
 
-**Track**: [PREMIERE] Mzperx, Marco Ginelli - Hard Darker Faster Raver (Thoqy Remix)
+**Track**: Carpainter - Yamanote Disko Klub [Official Teaser]
 
-Last updated at 02/23/2021 09:32
+Last updated at 02/23/2021 09:46
