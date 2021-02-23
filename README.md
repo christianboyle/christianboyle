@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HV4hHmfFwqfXx9us-HyjnQQ-t50x50.jpg">](https://soundcloud.com/5amisdead/idc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKsEsGzcMC8dzevQ-unRzKA-t50x50.jpg">](https://soundcloud.com/twikipedia/rutracker)
 
-**Artist**: 5amisdead (@5amisdead) 
+**Artist**: twikipedia 
 
-**Track**: idc prod. odece
+**Track**: rutracker 🏴‍☠️ w/ lei & kidtrash (prod. 3D$ + twikipedia)
 
-Last updated at 02/23/2021 09:48
+Last updated at 02/23/2021 09:50
