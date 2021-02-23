@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKsEsGzcMC8dzevQ-unRzKA-t50x50.jpg">](https://soundcloud.com/twikipedia/rutracker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000134413915-0rrxzq-t50x50.jpg">](https://soundcloud.com/ice-underlord/outta-my-mind)
 
-**Artist**: twikipedia 
+**Artist**: ICEUNDERLORD 
 
-**Track**: rutracker 🏴‍☠️ w/ lei & kidtrash (prod. 3D$ + twikipedia)
+**Track**: OUTTA MY MIND
 
-Last updated at 02/23/2021 09:50
+Last updated at 02/23/2021 09:52
