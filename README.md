@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5xVQE8VU5W91XzJ-SCCsLg-t50x50.jpg">](https://soundcloud.com/trekkie-trax/carpainter-yamanote-disko-klub-official-teaser?in=trekkie-trax/sets/carpainter-yamanote-disko-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HV4hHmfFwqfXx9us-HyjnQQ-t50x50.jpg">](https://soundcloud.com/5amisdead/idc)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: 5amisdead (@5amisdead) 
 
-**Track**: Carpainter - Yamanote Disko Klub [Official Teaser]
+**Track**: idc prod. odece
 
-Last updated at 02/23/2021 09:46
+Last updated at 02/23/2021 09:48
