@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P587UWODDp7an2YI-yESzpw-t50x50.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyua4NZYzTq723AP-dMGSCA-t50x50.jpg">](https://soundcloud.com/david-zink-532611516/kurtains-axel-ocelot-original)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: plomm 
 
-**Track**: CYB3RPVNK Radio 438
+**Track**: Kurtains - axel ocelot (original pitch)
 
-Last updated at 02/24/2021 08:08
+Last updated at 02/24/2021 09:24
