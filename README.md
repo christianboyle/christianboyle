@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P587UWODDp7an2YI-yESzpw-t50x50.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t50x50.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: syence 
 
-**Track**: CYB3RPVNK Radio 438
+**Track**: a little bit bored (feat. ruuth)
 
-Last updated at 02/24/2021 11:09
+Last updated at 02/24/2021 13:23
