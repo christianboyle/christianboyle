@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PpsqqIzIvCuuZeFL-FTXhxA-t50x50.jpg">](https://soundcloud.com/jacob_wooten15/king-by-17)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8bTdcZMHQCihemv-Q5NOGw-t50x50.jpg">](https://soundcloud.com/frshblood/klown-dirtbag?in=weareklown/sets/klown-dirtbag-frshblood-1)
 
-**Artist**: Jay Woo 
+**Artist**: frshblood 
 
-**Track**: King By 17
+**Track**: KLOWN - Dirtbag
 
-Last updated at 02/24/2021 09:28
+Last updated at 02/24/2021 09:30
