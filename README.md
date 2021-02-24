@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhvHkcOwraeIMKOR-hfoT9Q-t50x50.jpg">](https://soundcloud.com/bennyblasay/holdyrpiece)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P587UWODDp7an2YI-yESzpw-t50x50.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-438)
 
-**Artist**: ben(n)y 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: hold yr piece (odel + SHOTTi)
+**Track**: CYB3RPVNK Radio 438
 
-Last updated at 02/24/2021 08:06
+Last updated at 02/24/2021 08:08
