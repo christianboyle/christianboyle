@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sG2fd2bkvVXvQQ5G-NOHUug-t50x50.jpg">](https://soundcloud.com/jackedradio/afrojack-presents-jacked-radio-487)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P587UWODDp7an2YI-yESzpw-t50x50.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-438)
 
-**Artist**: JACKED Radio 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: Afrojack Presents JACKED Radio - 487
+**Track**: CYB3RPVNK Radio 438
 
-Last updated at 02/24/2021 10:59
+Last updated at 02/24/2021 11:09
