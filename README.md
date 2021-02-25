@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t50x50.jpg">](https://soundcloud.com/wopak/private-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
 
-**Artist**: Wopak 
+**Artist**: Know V.A. 
 
-**Track**: Private Edit
+**Track**: Artefact (Sully Remix)
 
-Last updated at 02/25/2021 16:17
+Last updated at 02/25/2021 16:29
