@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t50x50.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000385397661-pagr3e-t50x50.jpg">](https://soundcloud.com/hommarju/bat?in=hommarju/sets/nolongerprodigy)
 
-**Artist**: 4*(JPN) 
+**Artist**: Hommarju 
 
-**Track**: 4* - Pieces (Radio Edit)
+**Track**: Hommarju - Bat (Radio Edit) [1st single "Bat / Fireman" OUT NOW]
 
-Last updated at 02/25/2021 16:11
+Last updated at 02/25/2021 16:15
