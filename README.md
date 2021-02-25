@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJJ1WEeZpFnrgw6y-6dyfzA-t50x50.jpg">](https://soundcloud.com/emotionalmusic/emotional-84?in=emotionalmusic/sets/emotional-84)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJPjZcByQ9KYS5Jy-RM358g-t50x50.jpg">](https://soundcloud.com/dukeandjones/house-of-chill-night-driving-mix)
 
-**Artist**: EMOTIONAL 
+**Artist**: Duke & Jones 
 
-**Track**: EMOTIONAL #84
+**Track**: House Of Chill (Night Driving Mix)
 
-Last updated at 02/25/2021 07:41
+Last updated at 02/25/2021 07:47
