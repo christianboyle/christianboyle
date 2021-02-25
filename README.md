@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t50x50.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t50x50.jpg">](https://soundcloud.com/wopak/private-edit)
 
-**Artist**: syence 
+**Artist**: Wopak 
 
-**Track**: a little bit bored (feat. ruuth)
+**Track**: Private Edit
 
-Last updated at 02/25/2021 15:25
+Last updated at 02/25/2021 15:27
