@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t50x50.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNPRf29qZY7F-0-t50x50.png">](https://soundcloud.com/bonalthadi/in-my-box-1)
 
-**Artist**: syence 
+**Artist**: BONALT & HADI 
 
-**Track**: a little bit bored (feat. ruuth)
+**Track**: In My Box
 
-Last updated at 02/24/2021 14:37
+Last updated at 02/25/2021 06:43
