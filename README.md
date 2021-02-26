@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452376552-ja8331-t50x50.jpg">](https://soundcloud.com/tastynetwork/oneohkay-last-7-letters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085863027-2ti2z8-t50x50.jpg">](https://soundcloud.com/ice-underlord/ariana-grande-guap-with-beat)
 
-**Artist**: Tasty 
+**Artist**: ICEUNDERLORD 
 
-**Track**: oneohkay - Last 7 Letters
+**Track**: Ariana Grande Guap With Beat
 
-Last updated at 02/26/2021 16:43
+Last updated at 02/26/2021 16:45
