@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000620010048-nnx16m-t50x50.jpg">](https://soundcloud.com/beverlyhillsmom/my-husband-is-deadi-dont-want-2-remarryi-only-want-sex-see-my-pussyclick-here)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgeJKUYVEVAq7dw5-50gqNQ-t50x50.jpg">](https://soundcloud.com/oneseventy/summa-jae-feat-kyrk-find-me-radio-edit)
 
-**Artist**: beverly hills mom 
+**Artist**: OneSeventy 
 
-**Track**: MY HUSBAND IS DEAD!💀 I don’t want 2 remarry😓I only want sex 👀😝see my pussy😳✋>CLICK HERE<🤭😉
+**Track**: Summa Jae feat. KYRK - Find Me (Radio Edit)
 
-Last updated at 02/26/2021 10:29
+Last updated at 02/26/2021 10:31
