@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsFqSswxSNaSEyrl-WUfcpw-t50x50.jpg">](https://soundcloud.com/bkayeofficial/justin-bieber-intentions-bkaye-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000667670371-al9say-t50x50.jpg">](https://soundcloud.com/kayzo-music/kayzo-atreyu-battle-drums)
 
-**Artist**: BKAYE 
+**Artist**: KAYZO 
 
-**Track**: Justin Bieber - Intentions (BKAYE Remix)
+**Track**: Kayzo & Atreyu - Battle Drums
 
-Last updated at 02/26/2021 13:57
+Last updated at 02/26/2021 15:29
