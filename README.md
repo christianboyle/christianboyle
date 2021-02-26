@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000615162937-3t4a01-t50x50.jpg">](https://soundcloud.com/soundmuseum/v-a-artifacts-01-05-rohaan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000612464026-hnte1e-t50x50.jpg">](https://soundcloud.com/syence/gryffin-omg-with-carly-rae-jepsen-syence-remix)
 
-**Artist**: Sound Museum 
+**Artist**: syence 
 
-**Track**: Rohaan - Breach
+**Track**: Gryffin - OMG (with Carly Rae Jepsen) [Syence Remix]
 
-Last updated at 02/26/2021 15:47
+Last updated at 02/26/2021 15:49
