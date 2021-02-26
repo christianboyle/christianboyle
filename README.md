@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000612558417-dfy4r3-t50x50.jpg">](https://soundcloud.com/thajournalist/unlock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000619433107-lsyucx-t50x50.jpg">](https://soundcloud.com/covexmusic/omg)
 
-**Artist**: JOURNAL 
+**Artist**: COVEX 
 
-**Track**: UNLOCK
+**Track**: Gryffin - OMG (with Carly Rae Jepsen) [Covex Remix]
 
-Last updated at 02/26/2021 15:59
+Last updated at 02/26/2021 16:01
