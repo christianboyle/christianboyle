@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cy6XO9mREO98qySC-aND4zQ-t50x50.jpg">](https://soundcloud.com/talegatemusic/austin-burke-desert-child-talegate-remix)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhcAJEFXlyov1I9eSa7pj_q7b9VZSbkOA9t6V2UFw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCElGBUWDCa05jRzc2PfmGqQ)
 
-**Artist**: Talegate 
+**Artist**: Tom MacDonald 
 
-**Track**: Austin Burke - Desert Child (Talegate Remix)
+**Track**: "Clown World"
 
-Last updated at 02/26/2021 10:54
+Last updated at 02/26/2021 13:01
