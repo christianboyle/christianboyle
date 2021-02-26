@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3z7U2IdTRrUW3mQ-3xLJrw-t50x50.jpg">](https://soundcloud.com/marshmellomusic/be-kind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4aF7KIZDVCIoJ6Z-Fn75pg-t50x50.jpg">](https://soundcloud.com/b3lladesu/dig-b3lla-remix)
 
-**Artist**: marshmello 
+**Artist**: B3LLA 
 
-**Track**: Marshmello & Halsey - Be Kind
+**Track**: Arrested Youth - Dig (B3LLA Remix)
 
-Last updated at 02/26/2021 13:49
+Last updated at 02/26/2021 13:53
