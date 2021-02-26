@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3y9dRudmmUKJAGXj-SPvk5Q-t50x50.jpg">](https://soundcloud.com/manilakilla/dusk-lights-live-from-los-angeles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2vPvwhlkXbAIGi4-O6USCw-t50x50.jpg">](https://soundcloud.com/gunfightmusic/nuclear)
 
-**Artist**: Manila Killa 
+**Artist**: 𝒢𝓊𝓃𝐹𝒾𝑔𝒽𝓉 🔫👊 
 
-**Track**: Dusk Lights: Live From Los Angeles
+**Track**: Nuclear
 
-Last updated at 02/26/2021 06:35
+Last updated at 02/26/2021 06:43
