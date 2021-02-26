@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085863027-2ti2z8-t50x50.jpg">](https://soundcloud.com/ice-underlord/ariana-grande-guap-with-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000328590177-xdlkc0-t50x50.jpg">](https://soundcloud.com/basementbangers/lil-peep-no-love-rare)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Basement Bangers 
 
-**Track**: Ariana Grande Guap With Beat
+**Track**: Lil Peep - No Love *RARE*
 
-Last updated at 02/26/2021 16:45
+Last updated at 02/26/2021 16:47
