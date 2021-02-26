@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t50x50.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tqgYQa1FFwMvXnt-5dJNiw-t50x50.jpg">](https://soundcloud.com/thisisclouds/anthaema-theme-from-parkzicht-1)
 
-**Artist**: Goodnight Cody 
+**Artist**: Clouds 
 
-**Track**: Quack Quack Quack Quack QUACK
+**Track**: Anthæma «Theme from Parkzicht»
 
-Last updated at 02/26/2021 16:19
+Last updated at 02/26/2021 16:27
