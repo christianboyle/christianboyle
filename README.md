@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4aF7KIZDVCIoJ6Z-Fn75pg-t50x50.jpg">](https://soundcloud.com/b3lladesu/dig-b3lla-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628027618-fumqgi-t50x50.jpg">](https://soundcloud.com/arrestedyouth/dig)
 
-**Artist**: B3LLA 
+**Artist**: Arrested Youth 
 
-**Track**: Arrested Youth - Dig (B3LLA Remix)
+**Track**: Dig
 
-Last updated at 02/26/2021 13:53
+Last updated at 02/26/2021 13:55
