@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHKlZJnRWBos38ey-PTep1w-t50x50.jpg">](https://soundcloud.com/ophelia_records/wooli-the-core)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t50x50.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: Ophelia Records 
+**Artist**: medasin 
 
-**Track**: Wooli - The Core
+**Track**: Africa
 
-Last updated at 02/26/2021 13:07
+Last updated at 02/26/2021 13:09
