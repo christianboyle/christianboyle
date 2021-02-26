@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000463878312-j9utun-t50x50.jpg">](https://soundcloud.com/swailesmoor/nalin-and-kane-cruising-darren-styles-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-knDxH2DsQMh8O66z-fpAKOA-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-ride-to-infinity)
 
-**Artist**: swailesmoor 
+**Artist**: Sublab 
 
-**Track**: Nalin and Kane | Cruisin (Darren Styles Remix)
+**Track**: Ride To Infinity
 
-Last updated at 02/26/2021 13:33
+Last updated at 02/26/2021 13:39
