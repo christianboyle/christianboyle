@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8WtqpoZ6MRgq68VT-Q7WT4g-t50x50.jpg">](https://soundcloud.com/balamii/slate-sessions-w-four-days-february-2021)
 
-**Artist**: Mang 
+**Artist**: Balamii 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: Slate Sessions w/ Four Days - February 2021
 
-Last updated at 02/25/2021 17:44
+Last updated at 02/26/2021 06:23
