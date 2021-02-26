@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000321819292-e6t6zt-t50x50.jpg">](https://soundcloud.com/skelerselects/i-sed-fukc-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgWReYeL74sUHZnK-cwt5rQ-t50x50.jpg">](https://soundcloud.com/luudeofficial/the-kid-laroi-without-you-luude-flip-1)
 
-**Artist**: skeler. selects 
+**Artist**: LUUDE 
 
-**Track**: I SED FUKC
+**Track**: The Kid LAROI - WITHOUT YOU (LUUDE FLIP)
 
-Last updated at 02/26/2021 06:29
+Last updated at 02/26/2021 06:31
