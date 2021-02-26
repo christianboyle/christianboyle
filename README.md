@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000648112162-rhd2pe-t50x50.jpg">](https://soundcloud.com/kdrewmusic/xo-sad-follow-u-kdrew-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000637813144-yxuv9y-t50x50.jpg">](https://soundcloud.com/slushiimusic/slushii-x-kaivon-sober)
 
-**Artist**: KDrew 
+**Artist**: slushii 
 
-**Track**: xo sad - Follow U (KDrew Remix)
+**Track**: Slushii x Kaivon - Sober
 
-Last updated at 02/26/2021 15:31
+Last updated at 02/26/2021 15:33
