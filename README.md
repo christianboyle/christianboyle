@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7EhlZiV54TDa8flv-PgLkzg-t50x50.jpg">](https://soundcloud.com/brednbutterrec/mikes-revenge-you-know-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t50x50.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
 
-**Artist**: brednbutter 
+**Artist**: syence 
 
-**Track**: Mikes Revenge - You Know It
+**Track**: a little bit bored (feat. ruuth)
 
-Last updated at 02/26/2021 09:30
+Last updated at 02/26/2021 09:33
