@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000494263149-o98znj-t50x50.jpg">](https://soundcloud.com/pendarr/scared-to-be-lonely-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452376552-ja8331-t50x50.jpg">](https://soundcloud.com/tastynetwork/oneohkay-last-7-letters)
 
-**Artist**: Pendarr 
+**Artist**: Tasty 
 
-**Track**: Scared To Be Lonely (pendarr edit) - Haywire & Joey Riot
+**Track**: oneohkay - Last 7 Letters
 
-Last updated at 02/26/2021 16:41
+Last updated at 02/26/2021 16:43
