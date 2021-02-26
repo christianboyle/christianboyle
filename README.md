@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628038142-9kap9o-t50x50.jpg">](https://soundcloud.com/cryztalgrid/earth-stands-ft-margaux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000622080214-5eros7-t50x50.jpg">](https://soundcloud.com/proximity/borgeous-alcohol-2)
 
-**Artist**: Cryztal Grid 
+**Artist**: Proximity 
 
-**Track**: Earth Stands (ft. Margaux)
+**Track**: Borgeous - Alcohol
 
-Last updated at 02/26/2021 15:41
+Last updated at 02/26/2021 15:43
