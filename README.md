@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qRAyoVjUPYbTBvx6-JcOSoQ-t50x50.jpg">](https://soundcloud.com/ultimatetrvp/yonoh-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHKlZJnRWBos38ey-PTep1w-t50x50.jpg">](https://soundcloud.com/ophelia_records/wooli-the-core)
 
-**Artist**: ULT.RVP 
+**Artist**: Ophelia Records 
 
-**Track**: Yonoh - Over
+**Track**: Wooli - The Core
 
-Last updated at 02/26/2021 13:03
+Last updated at 02/26/2021 13:07
