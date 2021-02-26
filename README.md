@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6Vinu7EDvyhMpzw-Dn2uDg-t50x50.jpg">](https://soundcloud.com/slowwwiebaby/xxx-prod-iof-x-king-theta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzGEPCAdaRsXe820-X5QuEA-t50x50.jpg">](https://soundcloud.com/sanriorose/imallovertheplace?in=twikipedia/sets/features)
 
-**Artist**: slowwwiebaby 
+**Artist**: d0llywood1 
 
-**Track**: XXX (PROD. IOF X KING THETA)
+**Track**: dolly + twikipedia - imallovertheplace [p. 4am + elxnce]
 
-Last updated at 02/26/2021 06:47
+Last updated at 02/26/2021 06:49
