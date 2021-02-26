@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000175628984-tsyahh-t50x50.jpg">](https://soundcloud.com/myrakimusic/myraki-shut-it-down-feat-graz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000494263149-o98znj-t50x50.jpg">](https://soundcloud.com/pendarr/scared-to-be-lonely-edit)
 
-**Artist**: MYRAKI 
+**Artist**: Pendarr 
 
-**Track**: Myraki - Shut It Down (Feat Graz)
+**Track**: Scared To Be Lonely (pendarr edit) - Haywire & Joey Riot
 
-Last updated at 02/26/2021 16:39
+Last updated at 02/26/2021 16:41
