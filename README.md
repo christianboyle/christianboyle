@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000621122731-gpcjis-t50x50.jpg">](https://soundcloud.com/telykast/filthy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tXMmMqi9Qts1-0-t50x50.jpg">](https://soundcloud.com/ekalimusic/back-to-you-feat-kiiara)
 
-**Artist**: TELYKast 
+**Artist**: EKALI 
 
-**Track**: TELYKast & CAPPA - Filthy
+**Track**: Back To You (feat. Kiiara)
 
-Last updated at 02/26/2021 15:53
+Last updated at 02/26/2021 15:55
