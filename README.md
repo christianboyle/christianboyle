@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsgGK3Zi1PbGfPrN-omfhrQ-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc143-ongod-rapture-arkanium-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-isknydv966MfhQsd-rnhPwQ-t50x50.jpg">](https://soundcloud.com/petsmpi/hood)
 
-**Artist**: NON STOP NXC® 
+**Artist**: PET$MPI 
 
-**Track**: NXC144 - OnGod - Rapture (ARKANIUM Flip)
+**Track**: HOOD
 
-Last updated at 02/26/2021 10:23
+Last updated at 02/26/2021 10:25
