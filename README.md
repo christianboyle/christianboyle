@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hU1zdqreyHpGiMiZ-gC8wmw-t50x50.jpg">](https://soundcloud.com/tropes777/antagonists)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6SKnJQaJEsn6-0-t50x50.png">](https://soundcloud.com/misogi/pyreflies-feat-lil-west)
 
-**Artist**: Tropes 
+**Artist**: MISOGI 
 
-**Track**: Antagonists w/ pitfall (dltzk)
+**Track**: Pyreflies (feat. nothing,nowhere. & Lil West)
 
-Last updated at 02/27/2021 00:40
+Last updated at 02/27/2021 00:42
