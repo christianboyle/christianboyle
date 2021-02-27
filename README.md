@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5KO9Oo9CyT4trIy-JP6t0A-t50x50.jpg">](https://soundcloud.com/liquicityrecords/nct-afterlife-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSEZYFCgwXOC9kyl-wjAoTg-t50x50.jpg">](https://soundcloud.com/drakkofficial/drakk-esc-2)
 
-**Artist**: Liquicity Records 
+**Artist**: DRAKK 
 
-**Track**: NCT - Afterlife
+**Track**: DRAKK - ESC
 
-Last updated at 02/26/2021 22:56
+Last updated at 02/26/2021 23:00
