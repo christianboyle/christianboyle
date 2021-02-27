@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6d0cQSF3rj0QH3iy-ruCIWw-t50x50.jpg">](https://soundcloud.com/bunny_jp/bunny-and-becko-let-it-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BATHH943tCyNjdj0-t30FyQ-t50x50.jpg">](https://soundcloud.com/bunny_jp/charli-xcx-c20-bunny-remix)
 
 **Artist**: ///BUNNY/// NEW ACCOUNT 
 
-**Track**: Let It Go  with  Becko
+**Track**: Charli XCX - C2.0 (BUNNY Remix)  #HIFNremix
 
-Last updated at 02/27/2021 00:24
+Last updated at 02/27/2021 00:28
