@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000321819292-e6t6zt-t50x50.jpg">](https://soundcloud.com/skelerselects/i-sed-fukc-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t50x50.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
 
-**Artist**: skeler. selects 
+**Artist**: syence 
 
-**Track**: I SED FUKC
+**Track**: a little bit bored (feat. ruuth)
 
-Last updated at 02/26/2021 19:48
+Last updated at 02/26/2021 19:50
