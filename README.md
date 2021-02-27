@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t50x50.png">](https://soundcloud.com/know-va/artefact-sully-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcFDA60Oowgyza1j-CBojfw-t50x50.jpg">](https://soundcloud.com/rave_alert/mzperx-marco-ginelli-hard-darker-faster-raver-thoqy-remix)
 
-**Artist**: Know V.A. 
+**Artist**: Rave Alert 
 
-**Track**: Artefact (Sully Remix)
+**Track**: [PREMIERE] Mzperx, Marco Ginelli - Hard Darker Faster Raver (Thoqy Remix)
 
-Last updated at 02/26/2021 21:37
+Last updated at 02/26/2021 21:43
