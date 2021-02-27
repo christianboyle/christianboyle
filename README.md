@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HexcsZI0r3xCPXwY-bBfosQ-t50x50.jpg">](https://soundcloud.com/fairlaneofficial/slander-william-black-back-to-u-fairlane-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbmC6bXkoPS8zzd4-LzhL8Q-t50x50.jpg">](https://soundcloud.com/gradientperspective/josh-teed-warrior)
 
-**Artist**: Fairlane 
+**Artist**: The Gradient Perspective 
 
-**Track**: SLANDER & William Black - Back To U (Fairlane Remix)
+**Track**: Josh Teed - Warrior
 
-Last updated at 02/27/2021 00:46
+Last updated at 02/27/2021 00:48
