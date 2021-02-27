@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSBwNrjKj2yuKVTg-CzAQTA-t50x50.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZFxPvUaeb3BvjVi-xZExsg-t50x50.jpg">](https://soundcloud.com/fallenshrine/life-x-death)
 
-**Artist**: HOLLY 
+**Artist**: Fallen Shrine 
 
-**Track**: ileX-MAS Mix 2020
+**Track**: LIFE x DEATH
 
-Last updated at 02/26/2021 23:18
+Last updated at 02/27/2021 00:20
