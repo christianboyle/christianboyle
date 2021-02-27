@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yedyHy3obitdGyVz-WmdEzg-t50x50.jpg">](https://soundcloud.com/liltexas/lil-texas-pretty-rave-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lYEmCKdTaFJzjJZ-Dl6Hrg-t50x50.jpg">](https://soundcloud.com/pootyh/waz-poppin-w-squid)
 
-**Artist**: LIL TEXAS 
+**Artist**: POOTY 
 
-**Track**: LIL TEXAS - PRETTY RAVE GIRL
+**Track**: WAZ POPPIN w/ SQUID
 
-Last updated at 02/27/2021 02:52
+Last updated at 02/27/2021 02:54
