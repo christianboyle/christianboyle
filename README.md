@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iQamQDUYEbZ-0-t50x50.png">](https://soundcloud.com/smrtdeath/lights-off-feat-lil-aaron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t50x50.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: smrtdeath 
+**Artist**: sethany 
 
-**Track**: Lights Off (feat. lil aaron)
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 02/27/2021 03:34
+Last updated at 02/27/2021 03:36
