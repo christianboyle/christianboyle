@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzuFAXW1ymy1AryL-AKPNwA-t50x50.jpg">](https://soundcloud.com/tgkk1001/tgkk-kouhei-feat-still-waiting?in=kouhei_333/sets/collaboration-track-w-tgkk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-error)
 
-**Artist**: TGKK 
+**Artist**: Sublab 
 
-**Track**: TGKK & kouhei feat.初音ミク - Still Waiting
+**Track**: LOVE ERROR
 
-Last updated at 02/28/2021 15:06
+Last updated at 02/28/2021 15:08
