@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry5nS9UlaYcyuJzv-OTm8bA-t50x50.jpg">](https://soundcloud.com/djsupermarkt/lebron-open-up-taken-from-tstd-yacht-disco-edits-3a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzuFAXW1ymy1AryL-AKPNwA-t50x50.jpg">](https://soundcloud.com/tgkk1001/tgkk-kouhei-feat-still-waiting?in=kouhei_333/sets/collaboration-track-w-tgkk)
 
-**Artist**: dj supermarkt / too slow to disco 
+**Artist**: TGKK 
 
-**Track**: LeBRON – Open Up (taken from TSTD Yacht Disco Edits 3a)
+**Track**: TGKK & kouhei feat.初音ミク - Still Waiting
 
-Last updated at 02/28/2021 15:05
+Last updated at 02/28/2021 15:06
