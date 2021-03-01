@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-error)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKLNVjCGGHytqpGU-ZyE76A-t50x50.jpg">](https://soundcloud.com/blankemusicau/blanke-mystery)
 
-**Artist**: Sublab 
+**Artist**: Blanke 
 
-**Track**: LOVE ERROR
+**Track**: Mystery
 
-Last updated at 03/01/2021 09:16
+Last updated at 03/01/2021 09:19
