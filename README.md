@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000041063316-nm6clp-t50x50.jpg">](https://soundcloud.com/harryoradio/i-need-money-in-the-baank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ek70mf0iBYxC-0-t50x50.jpg">](https://soundcloud.com/jackalproducer/ice-feat-karra-1)
 
-**Artist**: Aache 
+**Artist**: jackal 
 
-**Track**: I Need Money in the Baank (Djemba Djemba x Lil Texas x Lil Scrappy)
+**Track**: Ice (feat. Karra)
 
-Last updated at 03/01/2021 15:39
+Last updated at 03/01/2021 15:41
