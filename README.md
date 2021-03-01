@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000100366280-9esje8-t50x50.jpg">](https://soundcloud.com/luckyme/advent-16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000041063316-nm6clp-t50x50.jpg">](https://soundcloud.com/harryoradio/i-need-money-in-the-baank)
 
-**Artist**: LUCKYME® 
+**Artist**: Aache 
 
-**Track**: A. G. Cook - Beautiful (Rustie Edit)
+**Track**: I Need Money in the Baank (Djemba Djemba x Lil Texas x Lil Scrappy)
 
-Last updated at 03/01/2021 15:37
+Last updated at 03/01/2021 15:39
