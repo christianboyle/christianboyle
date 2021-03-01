@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-error)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4QECWxaYR7zWCLyq-mJn7JQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-odyssey-music-festival)
 
 **Artist**: Sublab 
 
-**Track**: LOVE ERROR
+**Track**: Sublab - Odyssey Music Festival
 
-Last updated at 03/01/2021 07:16
+Last updated at 03/01/2021 07:18
