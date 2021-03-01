@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439530777-couhp4-t50x50.jpg">](https://soundcloud.com/nxcnov/nxcnov13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562147740-6ue26v-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc134-lmfao-party-rock-anthem-spinq-remix)
 
-**Artist**: NXCNOV 
+**Artist**: NON STOP NXC® 
 
-**Track**: UNDERDOG - LET GO
+**Track**: NXC134 - lmfao - party rock anthem (spinq remix)
 
-Last updated at 03/01/2021 15:49
+Last updated at 03/01/2021 15:53
