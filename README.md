@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228779471-kdwot6-t50x50.jpg">](https://soundcloud.com/nonstopnxc/nxc087)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198475729-iza53g-t50x50.jpg">](https://soundcloud.com/dj-xgames/alone)
 
-**Artist**: NON STOP NXC® 
+**Artist**: † RIP † 
 
-**Track**: NXC087 - FAN FICTION - rucku5
+**Track**: ALAN WALKER - ALONe (WILDVIBEs ReMIX) [DJ eSPORTS NXC]
 
-Last updated at 03/01/2021 15:55
+Last updated at 03/01/2021 16:13
