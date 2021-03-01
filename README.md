@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4QECWxaYR7zWCLyq-mJn7JQ-t50x50.jpg">](https://soundcloud.com/sublabmusic/sublab-odyssey-music-festival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t50x50.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
 
-**Artist**: Sublab 
+**Artist**: Mang 
 
-**Track**: Sublab - Odyssey Music Festival
+**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
 
-Last updated at 03/01/2021 07:18
+Last updated at 03/01/2021 08:20
