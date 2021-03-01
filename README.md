@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t50x50.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jccevMKLAluNZSx3-nAB8FA-t50x50.jpg">](https://soundcloud.com/djesports/sonic-r-diamond-in-the-sky-dj-esports-remix)
 
-**Artist**: NOT RAVE TOOLZ 
+**Artist**: DJ eSPORTS 
 
-**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
+**Track**: SONIC R - DIAMOND IN THE SKY (DJ eSPORTS ReMIX)
 
-Last updated at 03/01/2021 15:45
+Last updated at 03/01/2021 15:47
