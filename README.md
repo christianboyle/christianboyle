@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-error)
 
-**Artist**: rifleman 
+**Artist**: Sublab 
 
-**Track**: the cover to end all covers
+**Track**: LOVE ERROR
 
-Last updated at 03/01/2021 16:35
+Last updated at 03/01/2021 16:47
