@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198475729-iza53g-t50x50.jpg">](https://soundcloud.com/dj-xgames/alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t50x50.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
 
-**Artist**: † RIP † 
+**Artist**: NOT RAVE TOOLZ 
 
-**Track**: ALAN WALKER - ALONe (WILDVIBEs ReMIX) [DJ eSPORTS NXC]
+**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
 
-Last updated at 03/01/2021 16:13
+Last updated at 03/01/2021 16:17
