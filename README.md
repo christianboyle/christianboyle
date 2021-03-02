@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjdO9SprpoCUOrxk-KeBe2A-t50x50.jpg">](https://soundcloud.com/user18081971/mangle-11-circuit-bent-vip-mix)
 
-**Artist**: rifleman 
+**Artist**: user18081971 
 
-**Track**: the cover to end all covers
+**Track**: Mangle 11 (Circuit Bent V.I.P. Mix)
 
-Last updated at 03/01/2021 20:29
+Last updated at 03/02/2021 07:38
