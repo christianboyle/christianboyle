@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7yen9UwPMWjSkDi-ryIdyA-t50x50.jpg">](https://soundcloud.com/kastra-bootlegs/winter-2021-mashup-pack-40-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t50x50.jpg">](https://soundcloud.com/sublabmusic/love-error)
 
-**Artist**: Kastra [Bootlegs] 
+**Artist**: Sublab 
 
-**Track**: Winter 2021 Mashup Pack | 40 Tracks
+**Track**: LOVE ERROR
 
-Last updated at 03/02/2021 15:58
+Last updated at 03/02/2021 16:00
