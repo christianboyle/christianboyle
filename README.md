@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjdO9SprpoCUOrxk-KeBe2A-t50x50.jpg">](https://soundcloud.com/user18081971/mangle-11-circuit-bent-vip-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VL8ioPcIKGzzFLGn-Rq9TLQ-t50x50.jpg">](https://soundcloud.com/ranzor-mixes/future-found)
 
-**Artist**: user18081971 
+**Artist**: Ranzor (mixes) 
 
-**Track**: Mangle 11 (Circuit Bent V.I.P. Mix)
+**Track**: Ranzor @ Virtual Paradise - Future Found (early 2000s trance set)
 
-Last updated at 03/02/2021 07:38
+Last updated at 03/02/2021 07:40
