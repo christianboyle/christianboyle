@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abXIryvVyHPqxXNj-9AkZHQ-t50x50.jpg">](https://soundcloud.com/rhythmicculturerecords/rc054-yha-yha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AqXvFF7VsudMgqH-u58KKw-t50x50.jpg">](https://soundcloud.com/religionstudio/arael-for-religion-studio)
 
-**Artist**: Rhythmic Culture 
+**Artist**: Religion Studio 
 
-**Track**: RC:054 Yha Yha
+**Track**: Arael for Religion Studio
 
-Last updated at 03/02/2021 09:40
+Last updated at 03/02/2021 12:03
