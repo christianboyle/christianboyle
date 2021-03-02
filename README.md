@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNAZriIueiy17P2u-87ZAAg-t50x50.jpg">](https://soundcloud.com/spirittwin/kokiri-ii-no-4mat-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t50x50.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
 
-**Artist**: Spirit Twin 
+**Artist**: rifleman 
 
-**Track**: Kokiri II (No_4mat Remix)
+**Track**: the cover to end all covers
 
-Last updated at 03/01/2021 20:27
+Last updated at 03/01/2021 20:29
