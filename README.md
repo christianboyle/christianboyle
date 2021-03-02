@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qgQ0T1UKeWDRfuSb-D9b91g-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-x-fafaq-x-dnf-ringtone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WqHm6qh7231U8Luq-33famg-t50x50.jpg">](https://soundcloud.com/oneseventy/weaver-jts-krunk-like-ak47-remix)
 
-**Artist**: R3HAB 
+**Artist**: OneSeventy 
 
-**Track**: R3HAB x Fafaq x DNF - Ringtone
+**Track**: Weaver & JTS - Krunk Like (AK47 Remix)
 
-Last updated at 03/02/2021 09:34
+Last updated at 03/02/2021 09:36
