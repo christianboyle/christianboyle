@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hlIm4ZW7twjrx9s1-2cQxoA-t50x50.jpg">](https://soundcloud.com/trapartis/betia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qgQ0T1UKeWDRfuSb-D9b91g-t50x50.jpg">](https://soundcloud.com/r3hab/r3hab-x-fafaq-x-dnf-ringtone)
 
-**Artist**: Trap Art 
+**Artist**: R3HAB 
 
-**Track**: Billie Eilish - Therefore I Am (Remezy Remix) [FREE DOWNLOAD]
+**Track**: R3HAB x Fafaq x DNF - Ringtone
 
-Last updated at 03/02/2021 09:32
+Last updated at 03/02/2021 09:34
