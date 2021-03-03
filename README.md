@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uw0lu92bdJjTw5ll-oxyriA-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps060-katatonic-silentio)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjF67Mu_dT9zuqp66Kbh0HMAb1LUUAosZGpGigB=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC2wAI2YT-k29MpB3JZ8NEfQ)
 
-**Artist**: ILIAN TAPE 
+**Artist**: KANSAS 
 
-**Track**: ITPS060 KATATONIC SILENTIO
+**Track**: Kansas - Dust in the Wind (Official Video)
 
-Last updated at 03/03/2021 11:48
+Last updated at 03/03/2021 14:20
