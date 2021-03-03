@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000400053210-2acron-t50x50.jpg">](https://soundcloud.com/s3rl/earth-b-s3rl-ft-lexi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yedyHy3obitdGyVz-WmdEzg-t50x50.jpg">](https://soundcloud.com/liltexas/lil-texas-pretty-rave-girl)
 
-**Artist**: S3RL 
+**Artist**: LIL TEXAS 
 
-**Track**: Earth - B♭ - S3RL ft Lexi
+**Track**: LIL TEXAS - PRETTY RAVE GIRL
 
-Last updated at 03/02/2021 20:07
+Last updated at 03/02/2021 20:09
