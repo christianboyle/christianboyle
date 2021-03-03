@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsu7rOSEXwCDKL1e-nv6aTw-t500x500.jpg">](https://soundcloud.com/drewharveymusic/drew-harvey-another-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfnwNsMzyRiFZy1Z-EF173w-t500x500.jpg">](https://soundcloud.com/prodelxnce/heyhikbye)
 
-**Artist**: drew harvey 
+**Artist**: elxnce 
 
-**Track**: Another Life
+**Track**: Hey Hi K Bye (prod. Fortuneswan)
 
-Last updated at 03/03/2021 17:13
+Last updated at 03/03/2021 17:15
