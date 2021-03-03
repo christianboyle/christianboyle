@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynO5fkCU7v1BvP8t-58spyQ-t500x500.jpg">](https://soundcloud.com/nobodyhardcore/the-watchmen-vs-nobody-komc-170-mix-out-now?in=justicehardcore/sets/the-watchmen-vs-nobody-k-o-m-c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4KxExKe0T2fMbJT3-KTaSbQ-t500x500.jpg">](https://soundcloud.com/itssodope/crown-1)
 
-**Artist**: Nobody (Justice Hardcore) 
+**Artist**: So Dope 
 
-**Track**: The Watchmen Vs Nobody - K.O.M.C (170 Mix) ⚠️OUT NOW⚠️
+**Track**: Crown
 
-Last updated at 03/03/2021 11:12
+Last updated at 03/03/2021 11:16
