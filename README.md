@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xq6zA1asCLlQWbBw-n6vR8A-t500x500.jpg">](https://soundcloud.com/musicazura/hearts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Egz026azHkhzSW8h-Y8WhLQ-t500x500.jpg">](https://soundcloud.com/jalayamusic/ashez-sound-jalaya-remix-final-master)
 
-**Artist**: AZURA 
+**Artist**: Jalaya 
 
-**Track**: Hearts
+**Track**: ASHEZ - Sound (Jalaya Remix)
 
-Last updated at 03/03/2021 17:17
+Last updated at 03/03/2021 17:19
