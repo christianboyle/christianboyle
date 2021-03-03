@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGX43Gf6YXwUNZNp-4uKM8A-t50x50.jpg">](https://soundcloud.com/user-956581289/s3rl-feat-kayliana-mc-riddle-all-that-i-need-vhs-sound-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKJabO0HyGaczDMC-Ek93Fg-t50x50.png">](https://soundcloud.com/oskimusic/oski-fidget?in=oskimusic/sets/antagonista-ep)
 
-**Artist**: VHS SOUND 
+**Artist**: Oski 
 
-**Track**: S3RL feat. Kayliana & MC Riddle - All That I Need (VHS SOUND remix)
+**Track**: Oski - Fidget
 
-Last updated at 03/02/2021 19:55
+Last updated at 03/02/2021 19:57
