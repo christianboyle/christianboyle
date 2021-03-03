@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKJabO0HyGaczDMC-Ek93Fg-t50x50.png">](https://soundcloud.com/oskimusic/oski-fidget?in=oskimusic/sets/antagonista-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000422780859-1m3696-t50x50.jpg">](https://soundcloud.com/piercesounds/intro)
 
-**Artist**: Oski 
+**Artist**: PIERCE 
 
-**Track**: Oski - Fidget
+**Track**: PIERCE - Intro
 
-Last updated at 03/02/2021 19:57
+Last updated at 03/02/2021 19:59
