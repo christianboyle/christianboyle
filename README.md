@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIOKjWeAyY7HOgmB-zQUszQ-t500x500.jpg">](https://soundcloud.com/brvmesmusic/brvmes-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6OS07ayVdeYId9ni-8Phryw-t500x500.jpg">](https://soundcloud.com/sadgxng/cruelbaker)
 
-**Artist**: BRVMES 
+**Artist**: SADGASM 悲しい 
 
-**Track**: BRVMES - Body
+**Track**: CRUELKAME FT EDDY BAKER - CRUELBAKER (Prod. R4ID)
 
-Last updated at 03/03/2021 17:21
+Last updated at 03/03/2021 17:23
