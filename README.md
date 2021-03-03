@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6OS07ayVdeYId9ni-8Phryw-t500x500.jpg">](https://soundcloud.com/sadgxng/cruelbaker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133471446-0tw2jy-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-life-is-calling)
 
-**Artist**: SADGASM 悲しい 
+**Artist**: NITE CORP. 
 
-**Track**: CRUELKAME FT EDDY BAKER - CRUELBAKER (Prod. R4ID)
+**Track**: aamourocean - life is calling
 
-Last updated at 03/03/2021 17:23
+Last updated at 03/03/2021 17:25
