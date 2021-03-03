@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133471446-0tw2jy-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-life-is-calling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJzlQ9zlOqzHeGQh-xziWHw-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/lazlow-keep-runnin-visuals-bvsskxy)
 
-**Artist**: NITE CORP. 
+**Artist**: LAZLOW 
 
-**Track**: aamourocean - life is calling
+**Track**: KEEP RUNNIN'
 
-Last updated at 03/03/2021 17:29
+Last updated at 03/03/2021 17:31
