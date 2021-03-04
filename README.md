@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jnO2ygUE9hh-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-oliver-tree-asshole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4szwmZrcpxmhqHL-ZHkhkg-t500x500.jpg">](https://soundcloud.com/770rd/rain-lil-yachty)
 
 **Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Lil Yachty, Oliver Tree - Asshole
+**Track**: RAIN - LIL YACHTY
 
-Last updated at 03/04/2021 14:59
+Last updated at 03/04/2021 15:03
