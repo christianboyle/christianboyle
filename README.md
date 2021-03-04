@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngbDz0GnTcY-fMAtip_q-UEynWZz_w9Lt4mz4I8=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCNTu7P3IyRRKJtibrrXG0Yg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jnO2ygUE9hh-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-oliver-tree-asshole)
 
-**Artist**: lil boat 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Lil Yachty Feat. Kodak Black - Hit Bout It (Official Video)
+**Track**: Lil Yachty, Oliver Tree - Asshole
 
-Last updated at 03/04/2021 08:37
+Last updated at 03/04/2021 14:59
