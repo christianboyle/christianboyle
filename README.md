@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lN7v78TzP8g7-0-t500x500.jpg">](https://soundcloud.com/dannylharle/ti-amo-feat-mc-spirits?in=maddecent/sets/danny-l-harle-harlecore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1KS9rqb9HcI26Pk-zzzwsg-t500x500.jpg">](https://soundcloud.com/txrecords/amazingblaze-from-dusk-till-dawn-tx009-1?in=txrecords/sets/amazingblaze-speed-tracks-vol)
 
-**Artist**: Danny L Harle 
+**Artist**: Tx Records 
 
-**Track**: Ti Amo (feat. MC Spirits)
+**Track**: Amazingblaze - From Dusk Till Dawn [TX009]
 
-Last updated at 03/05/2021 10:41
+Last updated at 03/05/2021 10:43
