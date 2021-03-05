@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGZFP9yfscBmfHdE-IeakUw-t500x500.jpg">](https://soundcloud.com/the-games-we-play/static-angel-connection-lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bJEBuQqzYb51I1ui-iFhH4w-t500x500.jpg">](https://soundcloud.com/emotionalmusic/emotional-85)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: EMOTIONAL 
 
-**Track**: Static Angel - Connection Lost
+**Track**: EMOTIONAL #85
 
-Last updated at 03/05/2021 08:23
+Last updated at 03/05/2021 08:25
