@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t500x500.jpg">](https://soundcloud.com/baauer/boptape19?in=baauer/sets/the-boptape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqIWs8WyCSW69p1l-8VAa6w-t500x500.jpg">](https://soundcloud.com/alterslashego/heimanu-nerva)
 
-**Artist**: Baauer • PLANET'S MAD 
+**Artist**: Alter/Ego 
 
-**Track**: 19 - What Are Baauer Boys Called ?
+**Track**: Heimanu - Nerva
 
-Last updated at 03/05/2021 11:50
+Last updated at 03/05/2021 11:52
