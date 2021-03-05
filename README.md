@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kD5GWjQnnjVjma7L-q2d5zg-t500x500.jpg">](https://soundcloud.com/loeloeloee/ox-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkIYnPDG4wwpd5ym-tbhymQ-t500x500.jpg">](https://soundcloud.com/eyezic-music/alina-baraz-to-me-eyezic-flip-final)
 
-**Artist**: LOE IX2 
+**Artist**: eyezic. 
 
-**Track**: Ox
+**Track**: Alina Baraz- To Me (eyezic remix)
 
-Last updated at 03/05/2021 12:06
+Last updated at 03/05/2021 12:10
