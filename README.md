@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1LBTupmrLuDY94Y-ZtTdpg-t500x500.jpg">](https://soundcloud.com/chantingofficial/bastard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VwVcSVaRFm7ESsRB-SzKIqg-t500x500.jpg">](https://soundcloud.com/inrotationrecs/kage-smokin)
 
-**Artist**: Chanting 
+**Artist**: IN / ROTATION 
 
-**Track**: Bastard
+**Track**: Kage - Smokin'
 
-Last updated at 03/05/2021 09:21
+Last updated at 03/05/2021 09:23
