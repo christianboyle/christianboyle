@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000039114867-l2wbgh-t500x500.jpg">](https://soundcloud.com/maddecent/2-liz-underdogs-feat-riff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133471446-0tw2jy-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-life-is-calling)
 
-**Artist**: Mad Decent 
+**Artist**: NITE CORP. 
 
-**Track**: LIZ - Underdogs Feat. RiFF RAFF
+**Track**: aamourocean - life is calling
 
-Last updated at 03/05/2021 17:01
+Last updated at 03/05/2021 17:03
