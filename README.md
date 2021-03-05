@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3sBP3097nyH1zt0g-sVNz7A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-oddcube-cinema-ft-chris-jobe-zombic-felix-schorn-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EILK1jZydKOnzZsU-8lgdyw-t500x500.jpg">](https://soundcloud.com/bucketofficial/coldrain?in=bucketofficial/sets/rewind)
 
-**Artist**: Future Generation 
+**Artist**: bucket 桶 
 
-**Track**: Arcando & Oddcube - Cinema (ft. Chris Jobe) [Zombic & Felix Schorn Remix]
+**Track**: cold rain
 
-Last updated at 03/05/2021 08:05
+Last updated at 03/05/2021 08:07
