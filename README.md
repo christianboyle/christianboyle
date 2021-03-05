@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1KS9rqb9HcI26Pk-zzzwsg-t500x500.jpg">](https://soundcloud.com/txrecords/amazingblaze-looking-for-purpose-tx009-1?in=txrecords/sets/amazingblaze-speed-tracks-vol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTTWq9Dxvbzy80Jz-eiwBZA-t500x500.jpg">](https://soundcloud.com/aadysimusic/enter-sontaeries-i?in=aadysimusic/sets/enter-sontaeries-i-ep)
 
-**Artist**: Tx Records 
+**Artist**: Aadysi 🐺 
 
-**Track**: Amazingblaze - Looking For Purpose [TX009]
+**Track**: Enter Sontaeries I
 
-Last updated at 03/05/2021 10:49
+Last updated at 03/05/2021 10:54
