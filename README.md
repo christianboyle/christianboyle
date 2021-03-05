@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQzsmEzfrlOHoQKf-zlOnig-t500x500.jpg">](https://soundcloud.com/aadysimusic/saajaeni-sacrifice?in=aadysimusic/sets/enter-sontaeries-i-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BU3nJI4wDDozzAcU-z8qbRw-t500x500.jpg">](https://soundcloud.com/aadysimusic/sllatnae-slave-ft-jordan-michaela?in=aadysimusic/sets/enter-sontaeries-i-ep)
 
 **Artist**: Aadysi 🐺 
 
-**Track**: Saajaeni (Sacrifice)
+**Track**: S'Llatnae (Slave) ft. Jordan Michaela
 
-Last updated at 03/05/2021 11:07
+Last updated at 03/05/2021 11:11
