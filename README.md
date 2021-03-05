@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jnO2ygUE9hh-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-oliver-tree-asshole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3sBP3097nyH1zt0g-sVNz7A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-oddcube-cinema-ft-chris-jobe-zombic-felix-schorn-remix)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: Future Generation 
 
-**Track**: Lil Yachty, Oliver Tree - Asshole
+**Track**: Arcando & Oddcube - Cinema (ft. Chris Jobe) [Zombic & Felix Schorn Remix]
 
-Last updated at 03/04/2021 17:14
+Last updated at 03/05/2021 08:05
