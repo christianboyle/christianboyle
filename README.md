@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DR0nXqAE01AWyzFY-MWjMHg-t500x500.jpg">](https://soundcloud.com/trydeny/desert-island-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xwysa7MVz16Ai7QI-8yS4sA-t500x500.jpg">](https://soundcloud.com/loudkult/dj-dobrel-robbie-rosen-feat-szaby-so-far-away)
 
-**Artist**: TRYDENY 
+**Artist**: LoudKult 
 
-**Track**: DESERT ISLAND
+**Track**: DJ Dobrel, Robbie Rosen feat Szaby - So Far Away
 
-Last updated at 03/05/2021 08:15
+Last updated at 03/05/2021 08:17
