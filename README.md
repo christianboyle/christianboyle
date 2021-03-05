@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lilr2tinmUnFCkwN-MQr2ig-t500x500.jpg">](https://soundcloud.com/robumusic/old-skool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMBlbkbgAKcNjPNk-cnVlCQ-t500x500.jpg">](https://soundcloud.com/jupevault/bb-u-k-cuz-i-gave-up-halfwayalp)
 
-**Artist**: Robu 
+**Artist**: Not Jupe 
 
-**Track**: old skool
+**Track**: san holo - Bb U K Cuz I Gave Up Halfway.alp
 
-Last updated at 03/05/2021 11:58
+Last updated at 03/05/2021 12:00
