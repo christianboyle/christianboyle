@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIOKjWeAyY7HOgmB-zQUszQ-t500x500.jpg">](https://soundcloud.com/brvmesmusic/brvmes-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5pN3rKEM726p-0-t500x500.jpg">](https://soundcloud.com/dannylharle/where-are-you-now?in=maddecent/sets/danny-l-harle-harlecore)
 
-**Artist**: BRVMES 
+**Artist**: Danny L Harle 
 
-**Track**: BRVMES - Body
+**Track**: Where Are You Now
 
-Last updated at 03/05/2021 09:52
+Last updated at 03/05/2021 10:06
