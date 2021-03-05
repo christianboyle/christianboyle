@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMJ0OspbfuDcGBne-CqMiyg-t500x500.jpg">](https://soundcloud.com/hptgmusic/maxi-malone-feeling-high-alaguan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DR0nXqAE01AWyzFY-MWjMHg-t500x500.jpg">](https://soundcloud.com/trydeny/desert-island-2021)
 
-**Artist**: HPTG Music 
+**Artist**: TRYDENY 
 
-**Track**: Maxi Malone - Feeling High (Alaguan Remix)
+**Track**: DESERT ISLAND
 
-Last updated at 03/05/2021 08:13
+Last updated at 03/05/2021 08:15
