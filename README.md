@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjF67Mu_dT9zuqp66Kbh0HMAb1LUUAosZGpGigB=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC2wAI2YT-k29MpB3JZ8NEfQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
 
-**Artist**: KANSAS 
+**Artist**: POPSTARBILLS 💫 
 
-**Track**: Kansas - Dust in the Wind (Official Video)
+**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
 
-Last updated at 03/06/2021 11:26
+Last updated at 03/06/2021 15:16
