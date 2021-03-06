@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2hRRz4tnBKoNb1z-TcAqtg-t500x500.jpg">](https://soundcloud.com/balamii/sound-condition-march-2021)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjF67Mu_dT9zuqp66Kbh0HMAb1LUUAosZGpGigB=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC2wAI2YT-k29MpB3JZ8NEfQ)
 
-**Artist**: Balamii 
+**Artist**: KANSAS 
 
-**Track**: Sound Condition - March 2021
+**Track**: Kansas - Dust in the Wind (Official Video)
 
-Last updated at 03/06/2021 06:43
+Last updated at 03/06/2021 11:26
