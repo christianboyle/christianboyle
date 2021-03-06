@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mc2dzzsuEeOjNgvm-Sdq9HQ-t500x500.jpg">](https://soundcloud.com/blookah/cant-help-myself-feat-mumbleton-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylmQyXXnZ31lvIAT-Wy8y4A-t500x500.jpg">](https://soundcloud.com/goodsociety/vanillainternet)
 
-**Artist**: Blookah 
+**Artist**: Good Society 
 
-**Track**: Blookah - Can't Help Myself (Feat. Mumbleton)
+**Track**: Next to Blue - Vanilla Internet (ft. BXSHXR) 🌐
 
-Last updated at 03/06/2021 06:37
+Last updated at 03/06/2021 06:39
