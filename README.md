@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jnO2ygUE9hh-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-oliver-tree-asshole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNldGYzHhHAlloZK-a2xe2A-t500x500.jpg">](https://soundcloud.com/djesports/dj-esports-green-top)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: DJ eSPORTS 
 
-**Track**: Lil Yachty, Oliver Tree - Asshole
+**Track**: DJ eSPORTS @ GREEN TOP 3.6.21
 
-Last updated at 03/07/2021 13:27
+Last updated at 03/07/2021 13:29
