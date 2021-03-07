@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1H5JofdWwAg6XfIX-VjiczQ-t500x500.jpg">](https://soundcloud.com/mehkel/space-tapes-vol-1-feat-kevilnius-saintvette-stupidbeats-bloodrain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aynOlPivHyECePZt-0DEXaQ-t500x500.jpg">](https://soundcloud.com/nickyslime420/the-dark-room-w-stupidbeats)
 
-**Artist**: mehkel 
+**Artist**: NICKY $LIME 
 
-**Track**: Space Tapes VOL 1 Feat: Kevilnius, SAINTVETTE, stupidbeats, BLOODRAIN
+**Track**: THE DARK ROOM w/ STUPIDBEATS
 
-Last updated at 03/07/2021 13:37
+Last updated at 03/07/2021 13:59
