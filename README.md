@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aynOlPivHyECePZt-0DEXaQ-t500x500.jpg">](https://soundcloud.com/nickyslime420/the-dark-room-w-stupidbeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4hhwgFMvIl5ze0Mh-2LakjA-t500x500.jpg">](https://soundcloud.com/insomniacevents/night-owl-radio-290-ft-kill-the-noise-and-yultron)
 
-**Artist**: NICKY $LIME 
+**Artist**: INSOMNIAC 
 
-**Track**: THE DARK ROOM w/ STUPIDBEATS
+**Track**: Night Owl Radio 290 ft. Kill the Noise and Yultron
 
-Last updated at 03/07/2021 13:59
+Last updated at 03/07/2021 14:01
