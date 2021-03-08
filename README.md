@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-axtCflzl61VJGctz-9kEFKQ-t500x500.jpg">](https://soundcloud.com/imaeneas/air)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkIzzppcDBx5CSMF-TWJA9Q-t500x500.jpg">](https://soundcloud.com/inception_techno/cltx-punch-of-love)
 
-**Artist**: AENEΛS 
+**Artist**: INCEPTION TECHNO 
 
-**Track**: air.
+**Track**: CLTX - Punch Of Love
 
-Last updated at 03/08/2021 15:33
+Last updated at 03/08/2021 15:35
