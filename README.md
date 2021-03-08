@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UnBxeF9YKP7yUbWz-brUeDg-t500x500.jpg">](https://soundcloud.com/txnt/tinted-for-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlMCmvzKFbSKvWzR-dmEeDg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-17-feat-vincent)
 
-**Artist**: DJ TINT 
+**Artist**: syence experiments 
 
-**Track**: TINTED FOR LIFE
+**Track**: syence lab: volume 17 (feat. vincent)
 
-Last updated at 03/08/2021 15:53
+Last updated at 03/08/2021 15:57
