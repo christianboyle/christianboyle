@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJPjZcByQ9KYS5Jy-RM358g-t500x500.jpg">](https://soundcloud.com/dukeandjones/house-of-chill-night-driving-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlMCmvzKFbSKvWzR-dmEeDg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-17-feat-vincent)
 
-**Artist**: Duke & Jones 
+**Artist**: syence experiments 
 
-**Track**: House Of Chill (Night Driving Mix)
+**Track**: syence lab: volume 17 (feat. vincent)
 
-Last updated at 03/08/2021 11:57
+Last updated at 03/08/2021 14:17
