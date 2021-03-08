@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlMCmvzKFbSKvWzR-dmEeDg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-17-feat-vincent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPIHAAs6664y4YGd-oxzz0w-t500x500.jpg">](https://soundcloud.com/djyungvampire13/sippin-wok-till-my-heart-stop)
 
-**Artist**: syence experiments 
+**Artist**: DJ YUNG VAMP 
 
-**Track**: syence lab: volume 17 (feat. vincent)
+**Track**: SIPPIN WOK TILL MY HEART STOP
 
-Last updated at 03/08/2021 14:17
+Last updated at 03/08/2021 15:29
