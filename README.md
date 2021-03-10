@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6avNs3UY3g0wMaRy-FGIUQw-t500x500.jpg">](https://soundcloud.com/bemorechildish/lobsta-b-make-it-claw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
 
-**Artist**: childsplay 
+**Artist**: ROLAND JONES 
 
-**Track**: 👏 lobsta b 🦀 make 👏 it 👏 claw 👏
+**Track**: MURDA SEASON VOL 4
 
-Last updated at 03/10/2021 09:31
+Last updated at 03/10/2021 09:47
