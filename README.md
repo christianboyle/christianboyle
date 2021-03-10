@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z70iwAW9XLaBbJoT-MP5Xuw-t500x500.jpg">](https://soundcloud.com/cloudymane/gonna-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIsqkDu70im2tEgR-oxm8yg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-16-feat-vanic?in=syenceexperiments/sets/syence-mixes-sets)
 
-**Artist**: Cloudymane 
+**Artist**: syence experiments 
 
-**Track**: GONNA DIE
+**Track**: syence lab: volume 16 (feat. vanic)
 
-Last updated at 03/10/2021 10:41
+Last updated at 03/10/2021 10:43
