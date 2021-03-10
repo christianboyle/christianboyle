@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z70iwAW9XLaBbJoT-MP5Xuw-t500x500.jpg">](https://soundcloud.com/cloudymane/gonna-die)
 
-**Artist**: ROLAND JONES 
+**Artist**: Cloudymane 
 
-**Track**: MURDA SEASON VOL 4
+**Track**: GONNA DIE
 
-Last updated at 03/10/2021 09:47
+Last updated at 03/10/2021 10:41
