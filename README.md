@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000333083643-tgqor1-t500x500.jpg">](https://soundcloud.com/screz-io/likeiloveyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UvZZzvVZWBPSjuoe-huAnNQ-t500x500.jpg">](https://soundcloud.com/leftimusic/turn-me-out-lefti-b00tl3g-1)
 
-**Artist**: SCREZ-IO 
+**Artist**: LEFTI 
 
-**Track**: The Hitmen - Like I Love You (DROPAMINE Bootleg)[SEAL EXCLUSIVE]
+**Track**: Turn Me Out (LEFTI B00TL3G)
 
-Last updated at 03/10/2021 20:07
+Last updated at 03/10/2021 21:07
