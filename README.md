@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592289411-s62we6-t500x500.jpg">](https://soundcloud.com/tpain/a-million-times-juelz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000314918634-r5n40r-t500x500.jpg">](https://soundcloud.com/grimyboi/carousel)
 
-**Artist**: T-Pain 
+**Artist**: GRIMYBOI 
 
-**Track**: A Million Times feat. O.T. Genasis (Juelz Remix)
+**Track**: CAROUSEL (prod. GRIMYBOI)
 
-Last updated at 03/11/2021 15:56
+Last updated at 03/11/2021 16:00
