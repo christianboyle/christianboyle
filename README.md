@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2YJqUz6bsK4K-0-t500x500.jpg">](https://soundcloud.com/djshadow/six-days-machinedrum-remix?in=saxurn/sets/55-c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-252WPXSdqr31tZM7-jM80rQ-t500x500.png">](https://soundcloud.com/shespellsdoom/flux)
 
-**Artist**: DJ Shadow 
+**Artist**: SHE Spells Doom 
 
-**Track**: Six Days (Machinedrum Remix)
+**Track**: Flux
 
-Last updated at 03/11/2021 08:57
+Last updated at 03/11/2021 15:45
