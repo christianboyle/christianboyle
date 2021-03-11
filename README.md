@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000472214970-pjhr6w-t500x500.jpg">](https://soundcloud.com/jaredistookind/believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456684822-hs9hu3-t500x500.jpg">](https://soundcloud.com/nectarcollective/furo-dutty)
 
-**Artist**: TOO KIND 
+**Artist**: Nectar Collective 
 
-**Track**: BELIEVE
+**Track**: Furo - Dutty
 
-Last updated at 03/10/2021 20:03
+Last updated at 03/10/2021 20:05
