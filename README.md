@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000094183587-dou9ws-t500x500.jpg">](https://soundcloud.com/maddecent/cz-stacks-vip?in=maddecent/sets/what-is-a-jeffree-comp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027716145-fj29s7-t500x500.jpg">](https://soundcloud.com/groundislava/cool-party-2?in=saxurn/sets/55-c)
 
-**Artist**: Mad Decent 
+**Artist**: Groundislava 
 
-**Track**: C.Z. - $TACK$ (VIP)
+**Track**: Cool Party
 
-Last updated at 03/11/2021 08:34
+Last updated at 03/11/2021 08:36
