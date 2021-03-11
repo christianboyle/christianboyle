@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CbSwQPGXpLpEW6J5-x6Ko5w-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-8-feat-over-easy?in=syenceexperiments/sets/syence-mixes-sets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000168854480-gkru0q-t500x500.jpg">](https://soundcloud.com/ravetoolz/rave-tool-41)
 
-**Artist**: syence experiments 
+**Artist**: RAVE TOOLZ 
 
-**Track**: syence lab: volume 8 (feat. over easy)
+**Track**: AWE - TRENDY (EMPYREAN TEARS BOOTLEG)
 
-Last updated at 03/10/2021 17:33
+Last updated at 03/10/2021 19:45
