@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000168854480-gkru0q-t500x500.jpg">](https://soundcloud.com/ravetoolz/rave-tool-41)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568637612-ts91fw-t500x500.jpg">](https://soundcloud.com/destinuna/maakg-phoenix)
 
-**Artist**: RAVE TOOLZ 
+**Artist**: Destinuna 
 
-**Track**: AWE - TRENDY (EMPYREAN TEARS BOOTLEG)
+**Track**: Maāk.G - Phoenix
 
-Last updated at 03/10/2021 19:45
+Last updated at 03/10/2021 19:47
