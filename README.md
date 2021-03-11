@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000410016909-i0hq8q-t500x500.jpg">](https://soundcloud.com/kagwe/cycles-feat-newman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000094183587-dou9ws-t500x500.jpg">](https://soundcloud.com/maddecent/cz-stacks-vip?in=maddecent/sets/what-is-a-jeffree-comp)
 
-**Artist**: KΛGWΣ 
+**Artist**: Mad Decent 
 
-**Track**: Cycles (feat. Newman)
+**Track**: C.Z. - $TACK$ (VIP)
 
-Last updated at 03/11/2021 08:33
+Last updated at 03/11/2021 08:34
