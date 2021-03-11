@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000532624446-az2n0c-t500x500.jpg">](https://soundcloud.com/drjeep/press-f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lSRI2AaefMuO-0-t500x500.jpg">](https://soundcloud.com/terrorjr/loved-by-you)
 
-**Artist**: doctor jeep 
+**Artist**: Terror Jr 
 
-**Track**: Doctor Jeep - Press F [DRX003]
+**Track**: Loved By You
 
-Last updated at 03/10/2021 19:57
+Last updated at 03/10/2021 19:59
