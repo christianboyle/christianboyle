@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456684822-hs9hu3-t500x500.jpg">](https://soundcloud.com/nectarcollective/furo-dutty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000333083643-tgqor1-t500x500.jpg">](https://soundcloud.com/screz-io/likeiloveyou)
 
-**Artist**: Nectar Collective 
+**Artist**: SCREZ-IO 
 
-**Track**: Furo - Dutty
+**Track**: The Hitmen - Like I Love You (DROPAMINE Bootleg)[SEAL EXCLUSIVE]
 
-Last updated at 03/10/2021 20:05
+Last updated at 03/10/2021 20:07
