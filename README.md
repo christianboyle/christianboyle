@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lSRI2AaefMuO-0-t500x500.jpg">](https://soundcloud.com/terrorjr/loved-by-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157488320-hp8g2w-t500x500.jpg">](https://soundcloud.com/harshrecordslabel/starx-vvl-hard-psy-original-mix)
 
-**Artist**: Terror Jr 
+**Artist**: HARSH RECORDS 
 
-**Track**: Loved By You
+**Track**: STARX, VVL - Hard Psy (Original Mix)
 
-Last updated at 03/10/2021 19:59
+Last updated at 03/10/2021 20:01
