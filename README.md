@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000354861078-nmzaic-t500x500.jpg">](https://soundcloud.com/swrlyy/guac-w-belak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452112237-lmjide-t500x500.jpg">](https://soundcloud.com/thebeamon/angels)
 
-**Artist**: swrly 
+**Artist**: BEAMON 
 
-**Track**: Guac w/ Belak
+**Track**: BEAMON - Angels Crying In Toronto (produced by G M A K I N)
 
-Last updated at 03/11/2021 07:45
+Last updated at 03/11/2021 07:47
