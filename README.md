@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-252WPXSdqr31tZM7-jM80rQ-t500x500.png">](https://soundcloud.com/shespellsdoom/flux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wwMoftvpsernpMhJ-uCrAtQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/the-1975-if-youre-too-shy-let-me-know-fells-remix)
 
-**Artist**: SHE Spells Doom 
+**Artist**: Fells 
 
-**Track**: Flux
+**Track**: The 1975 - If You're Too Shy (Let Me Know) [Fells Remix]
 
-Last updated at 03/11/2021 15:45
+Last updated at 03/11/2021 15:46
