@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032286052-ojwqhj-t500x500.jpg">](https://soundcloud.com/darnell-yancey/lil-ugly-mane-serious-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000410016909-i0hq8q-t500x500.jpg">](https://soundcloud.com/kagwe/cycles-feat-newman)
 
-**Artist**: ItsNeezy 
+**Artist**: KΛGWΣ 
 
-**Track**: Lil Ugly Mane | Serious Shit
+**Track**: Cycles (feat. Newman)
 
-Last updated at 03/11/2021 08:29
+Last updated at 03/11/2021 08:33
