@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wwMoftvpsernpMhJ-uCrAtQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/the-1975-if-youre-too-shy-let-me-know-fells-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t500x500.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix)
 
-**Artist**: Fells 
+**Artist**: FGSN 
 
-**Track**: The 1975 - If You're Too Shy (Let Me Know) [Fells Remix]
+**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
 
-Last updated at 03/11/2021 15:46
+Last updated at 03/11/2021 15:48
