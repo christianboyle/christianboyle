@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9fvhih6HYvV0OzoH-Hnphyw-t500x500.jpg">](https://soundcloud.com/lowderz/real-slim-shady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000354861078-nmzaic-t500x500.jpg">](https://soundcloud.com/swrlyy/guac-w-belak)
 
-**Artist**: LOWDERZ 
+**Artist**: swrly 
 
-**Track**: Real Slim Shady (Lowderz Remix)
+**Track**: Guac w/ Belak
 
-Last updated at 03/11/2021 07:43
+Last updated at 03/11/2021 07:45
