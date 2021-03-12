@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-037Ek4QmuGNMtj8N-5VTEdA-t500x500.jpg">](https://soundcloud.com/davidshawty/falling-doesnt-hurt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKat7XcsWUKO-0-t500x500.jpg">](https://soundcloud.com/deadcruiser/dead-cruiser)
 
-**Artist**: david shawty 
+**Artist**: Kavinsky 
 
-**Track**: falling doesnt hurt
+**Track**: Deadcruiser
 
-Last updated at 03/12/2021 16:27
+Last updated at 03/12/2021 16:31
