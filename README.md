@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000445700748-v6pbtf-t500x500.jpg">](https://soundcloud.com/cpt_sad/serotonins-synonymous-prod-splashgvng-x-curtains)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000531954507-4dll3z-t500x500.jpg">](https://soundcloud.com/supachefm/lock-hands-prod-shinigami)
 
-**Artist**: yesterday 
+**Artist**: supachefm 
 
-**Track**: SEROTONIN'S SYNONYMOUS (prod. splashgvng x curtains)
+**Track**: lock hands (prod. shinigami)
 
-Last updated at 03/12/2021 16:54
+Last updated at 03/12/2021 16:58
