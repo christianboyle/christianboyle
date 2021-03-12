@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000138400215-av5o9a-t500x500.jpg">](https://soundcloud.com/bitbird/jan-level-i-believe-videoclip-in-description)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXfcfqO5XDvhNyk7-sx7pTA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/memories)
 
-**Artist**: bitbird 
+**Artist**: Quickdrop 
 
-**Track**: Jan Level - I Believe (videoclip in description)
+**Track**: Memories (with B0UNC3 & QUB3)
 
-Last updated at 03/11/2021 16:02
+Last updated at 03/12/2021 09:28
