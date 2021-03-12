@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000153617924-7xyzvl-t500x500.jpg">](https://soundcloud.com/the-percussionz/block-rockin-beats-the-percussionz-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
 
-**Artist**: the percussionz 
+**Artist**: A. G. Cook 
 
-**Track**: Block Rockin' Beats  (the Percussionz Mix)
+**Track**: Dream Logic
 
-Last updated at 03/12/2021 09:42
+Last updated at 03/12/2021 09:44
