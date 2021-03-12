@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byvdYWyv4suYTB4g-gqyeyg-t500x500.jpg">](https://soundcloud.com/inrotationrecs/masteria-jc-stormz-new-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rFhofd0vFFC2jYhM-tjMJhw-t500x500.jpg">](https://soundcloud.com/wakaan/pierce-feat-kini-solana-it-could-be-you-headbang-society-premiere)
 
-**Artist**: IN / ROTATION 
+**Artist**: Wakaan 
 
-**Track**: MASTERIA - New Sound (feat. JC Stormz)
+**Track**: PIERCE Feat. Kini Solana  - It Could Be You [Headbang Society Premiere]
 
-Last updated at 03/12/2021 16:23
+Last updated at 03/12/2021 16:25
