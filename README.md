@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q1IuOllcCBbK6x5q-vQfUdg-t500x500.jpg">](https://soundcloud.com/dvnxcts/trevi-moran-echo-dvnots-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXfcfqO5XDvhNyk7-sx7pTA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/memories)
 
-**Artist**: Dvnots Edits 
+**Artist**: Quickdrop 
 
-**Track**: trevi moran - echo (dvnots edit)
+**Track**: Memories (with B0UNC3 & QUB3)
 
-Last updated at 03/12/2021 09:34
+Last updated at 03/12/2021 09:36
