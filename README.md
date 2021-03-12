@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzX96VOUz3WO1lnz-0zvULw-t500x500.jpg">](https://soundcloud.com/inrotationrecs/moska-henao-paraiso)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AydlLYyOyCSei4ry-Z4QKig-t500x500.jpg">](https://soundcloud.com/tonserrr/losersclub?in=tonserrr/sets/losers-club-out-now-on-all)
 
-**Artist**: IN / ROTATION 
+**Artist**: tonser 
 
-**Track**: MOSKA & Henao - Paraiso
+**Track**: Losers club++++ (prod #Bizarius)
 
-Last updated at 03/12/2021 16:19
+Last updated at 03/12/2021 16:21
