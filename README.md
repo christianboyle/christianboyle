@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LaNqQaevfaQvTUXn-GzmpmQ-t500x500.jpg">](https://soundcloud.com/dvnots/himera-your-guardian-angels-dvnots-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
 
-**Artist**: Dvnots 
+**Artist**: A. G. Cook 
 
-**Track**: Himera - Your Guardian Angels... (Dvnots Remix)
+**Track**: Dream Logic
 
-Last updated at 03/12/2021 10:44
+Last updated at 03/12/2021 10:45
