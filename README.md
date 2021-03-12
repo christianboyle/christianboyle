@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000531954507-4dll3z-t500x500.jpg">](https://soundcloud.com/supachefm/lock-hands-prod-shinigami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000385839879-sk0ikv-t500x500.jpg">](https://soundcloud.com/lullabyboy/together-proddiscent)
 
-**Artist**: supachefm 
+**Artist**: lullabyboy 
 
-**Track**: lock hands (prod. shinigami)
+**Track**: together (prod.discent) [VIDEO OUT NOW] [LINK IN DESCRIPTION]
 
-Last updated at 03/12/2021 16:58
+Last updated at 03/12/2021 17:00
