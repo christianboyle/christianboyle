@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AER4O8KKVz15BAJb-TMxtaA-t500x500.jpg">](https://soundcloud.com/lilaaron911/boyfriendz-text-u-all-the-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506610612-f5i7q4-t500x500.jpg">](https://soundcloud.com/kingtheta/pawn-ft-brady-amour)
 
-**Artist**: lil aaron 
+**Artist**: King Theta 
 
-**Track**: BOYFRIENDZ - Text U All The Time
+**Track**: Pawn Ft. Brady Amour
 
-Last updated at 03/12/2021 16:41
+Last updated at 03/12/2021 16:45
