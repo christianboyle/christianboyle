@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jFcJh9Ou6PyeWQFK-YdPcZA-t500x500.jpg">](https://soundcloud.com/space-laces/vaultage-003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzX96VOUz3WO1lnz-0zvULw-t500x500.jpg">](https://soundcloud.com/inrotationrecs/moska-henao-paraiso)
 
-**Artist**: SPACE LACES 
+**Artist**: IN / ROTATION 
 
-**Track**: SPACE LACES - Vaultage 003
+**Track**: MOSKA & Henao - Paraiso
 
-Last updated at 03/12/2021 16:17
+Last updated at 03/12/2021 16:19
