@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q1IuOllcCBbK6x5q-vQfUdg-t500x500.jpg">](https://soundcloud.com/dvnxcts/trevi-moran-echo-dvnots-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000153617924-7xyzvl-t500x500.jpg">](https://soundcloud.com/the-percussionz/block-rockin-beats-the-percussionz-mix)
 
-**Artist**: Dvnots Edits 
+**Artist**: the percussionz 
 
-**Track**: trevi moran - echo (dvnots edit)
+**Track**: Block Rockin' Beats  (the Percussionz Mix)
 
-Last updated at 03/12/2021 09:40
+Last updated at 03/12/2021 09:42
