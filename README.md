@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AydlLYyOyCSei4ry-Z4QKig-t500x500.jpg">](https://soundcloud.com/tonserrr/losersclub?in=tonserrr/sets/losers-club-out-now-on-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byvdYWyv4suYTB4g-gqyeyg-t500x500.jpg">](https://soundcloud.com/inrotationrecs/masteria-jc-stormz-new-sound)
 
-**Artist**: tonser 
+**Artist**: IN / ROTATION 
 
-**Track**: Losers club++++ (prod #Bizarius)
+**Track**: MASTERIA - New Sound (feat. JC Stormz)
 
-Last updated at 03/12/2021 16:21
+Last updated at 03/12/2021 16:23
