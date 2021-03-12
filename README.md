@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000385839879-sk0ikv-t500x500.jpg">](https://soundcloud.com/lullabyboy/together-proddiscent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000444273624-uu9x53-t500x500.jpg">](https://soundcloud.com/lilperch/zenith-ft-familypet)
 
-**Artist**: lullabyboy 
+**Artist**: Lil Perch 
 
-**Track**: together (prod.discent) [VIDEO OUT NOW] [LINK IN DESCRIPTION]
+**Track**: Zenith ft. familypet
 
-Last updated at 03/12/2021 17:00
+Last updated at 03/12/2021 17:02
