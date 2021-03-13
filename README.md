@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t500x500.png">](https://soundcloud.com/know-va/artefact-sully-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
 
-**Artist**: Know V.A. 
+**Artist**: A. G. Cook 
 
-**Track**: Artefact (Sully Remix)
+**Track**: Dream Logic
 
-Last updated at 03/13/2021 16:03
+Last updated at 03/13/2021 16:07
