@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t500x500.jpg">](https://soundcloud.com/wopak/private-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx5wDYkvJ1cQlauv-BCAE9A-t500x500.jpg">](https://soundcloud.com/niteboi6/paranoia)
 
-**Artist**: Wopak 
+**Artist**: niteboi✨🌙 
 
-**Track**: Private Edit
+**Track**: delusions and paranoia
 
-Last updated at 03/13/2021 14:17
+Last updated at 03/13/2021 14:21
