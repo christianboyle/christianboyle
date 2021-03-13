@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mMZFfsiiLjaI5ZjV-Lsx3yg-t500x500.jpg">](https://soundcloud.com/rohaanofficial/blue-rohaan-dnb-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwKEplrywMFs6x5k-DWaxeg-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-pieces-radio-edit)
 
-**Artist**: Rohaan 
+**Artist**: 4*(JPN) 
 
-**Track**: Blue (Rohaan DNB EDIT)
+**Track**: 4* - Pieces (Radio Edit)
 
-Last updated at 03/13/2021 14:27
+Last updated at 03/13/2021 14:29
