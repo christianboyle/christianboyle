@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxet4Q7QWzrCcQU-0XvzsA-t500x500.jpg">](https://soundcloud.com/mangbg/b2b-w-gran-4-batus-nts-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvxFOR3EDZva-0-t500x500.png">](https://soundcloud.com/know-va/artefact-sully-remix)
 
-**Artist**: Mang 
+**Artist**: Know V.A. 
 
-**Track**: B2B W/ GRAŃ 4 BATU'S NTS SHOW
+**Track**: Artefact (Sully Remix)
 
-Last updated at 03/13/2021 15:12
+Last updated at 03/13/2021 16:03
