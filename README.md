@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXfcfqO5XDvhNyk7-sx7pTA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/memories)
 
-**Artist**: A. G. Cook 
+**Artist**: Quickdrop 
 
-**Track**: Dream Logic
+**Track**: Memories (with B0UNC3 & QUB3)
 
-Last updated at 03/13/2021 12:46
+Last updated at 03/13/2021 13:42
