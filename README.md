@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIOKjWeAyY7HOgmB-zQUszQ-t500x500.jpg">](https://soundcloud.com/brvmesmusic/brvmes-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Egz026azHkhzSW8h-Y8WhLQ-t500x500.jpg">](https://soundcloud.com/jalayamusic/ashez-sound-jalaya-remix-final-master)
 
-**Artist**: BRVMES 
+**Artist**: Jalaya 
 
-**Track**: BRVMES - Body
+**Track**: ASHEZ - Sound (Jalaya Remix)
 
-Last updated at 03/13/2021 13:56
+Last updated at 03/13/2021 13:58
