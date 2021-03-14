@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhgyyLwLi1PnelNs-b2KLfg-t500x500.jpg">](https://soundcloud.com/bonsaicollct/chromonicci-nono-fuxwithit-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cj5BKfApyGuB3ngU-wX2A5Q-t500x500.jpg">](https://soundcloud.com/eufoeni/the-only-thing-that-i-want)
 
-**Artist**: BONSAI 
+**Artist**: Euføeni 
 
-**Track**: Chromonicci - Nono. [FUXWITHIT PREMIERE]
+**Track**: The Only Thing That I Want - Euføeni
 
-Last updated at 03/14/2021 07:47
+Last updated at 03/14/2021 07:49
