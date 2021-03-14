@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zQFyuh2y0D12jxN-oBGJ3Q-t500x500.jpg">](https://soundcloud.com/mynameisbulma/one-more-night-snippet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xc39QeQ2swycIIA6-JeLBgQ-t500x500.jpg">](https://soundcloud.com/cozykevvv/i-know-w-qioh-qulan-1)
 
-**Artist**: BULMA 
+**Artist**: cozy kev 
 
-**Track**: One More Night
+**Track**: i know w/ qioh + qulan
 
-Last updated at 03/14/2021 07:27
+Last updated at 03/14/2021 07:31
