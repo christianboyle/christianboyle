@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzwWr2CMynRlk0Ad-BvYfgA-t500x500.jpg">](https://soundcloud.com/mythic-rogue/dank-flow-w-portal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0FYvvNHeTdpBumme-EXaoPQ-t500x500.jpg">](https://soundcloud.com/globaldan/global-dan-had-me-at-goodbye)
 
-**Artist**: Mythic Rogue 
+**Artist**: Global Dan 
 
-**Track**: Dank Flow w/ Portal
+**Track**: Global Dan - Had me at goodbye
 
-Last updated at 03/14/2021 07:55
+Last updated at 03/14/2021 07:57
