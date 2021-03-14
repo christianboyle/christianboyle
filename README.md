@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzh92iTETx18eV39-SkDiKg-t500x500.jpg">](https://soundcloud.com/alrtmusic/nnf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3Xte1E3gzOIQm6R-CWKNIw-t500x500.jpg">](https://soundcloud.com/tsunderefanclubworldwide/digital-tattoo)
 
-**Artist**: ALRT 
+**Artist**: Tsundere Fan Club 
 
-**Track**: N.N.F
+**Track**: LADY'S ONLY - Digital Tattoo (emotegi remix)
 
-Last updated at 03/14/2021 07:19
+Last updated at 03/14/2021 07:23
