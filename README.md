@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q6Bs5H5or0NryFYQ-izg7Gw-t500x500.jpg">](https://soundcloud.com/outby16/febclips2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlqV6JWpXVaHu5nK-RzQbMw-t500x500.jpg">](https://soundcloud.com/foreverhomesick/omen)
 
-**Artist**: outby16 
+**Artist**: HomeSick 
 
-**Track**: february clips 2021 ft. Brodinski, Fifty Grand, Modulaw, evil giane, SOUDIERE, 4evr, Mike Frost +
+**Track**: Omen
 
-Last updated at 03/14/2021 06:41
+Last updated at 03/14/2021 07:15
