@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3Xte1E3gzOIQm6R-CWKNIw-t500x500.jpg">](https://soundcloud.com/tsunderefanclubworldwide/digital-tattoo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zQFyuh2y0D12jxN-oBGJ3Q-t500x500.jpg">](https://soundcloud.com/mynameisbulma/one-more-night-snippet)
 
-**Artist**: Tsundere Fan Club 
+**Artist**: BULMA 
 
-**Track**: LADY'S ONLY - Digital Tattoo (emotegi remix)
+**Track**: One More Night
 
-Last updated at 03/14/2021 07:23
+Last updated at 03/14/2021 07:27
