@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SWbKO9ssKqCNPTAR-Fij17w-t500x500.jpg">](https://soundcloud.com/vaporchrome/napst3r-mindfxckery-vaporchrome-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GhgyyLwLi1PnelNs-b2KLfg-t500x500.jpg">](https://soundcloud.com/bonsaicollct/chromonicci-nono-fuxwithit-premiere)
 
-**Artist**: VAPORCHROME 
+**Artist**: BONSAI 
 
-**Track**: NAPST3R - MINDFXCKERY (VAPORCHROME Remix)
+**Track**: Chromonicci - Nono. [FUXWITHIT PREMIERE]
 
-Last updated at 03/14/2021 07:43
+Last updated at 03/14/2021 07:47
