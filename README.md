@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YigckzEDyR6KrHYh-KhWNsA-t500x500.jpg">](https://soundcloud.com/basshouse-music/neverglow-banza-dread-mc-the-mothership-bhm022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSWcoFIaClsBbQwu-O3vMHQ-t500x500.jpg">](https://soundcloud.com/the-games-we-play/hayabvsa-rewind-hardwave-chapter-three)
 
-**Artist**: Bass House Music 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: NEVERGLOW, Banza & Dread MC - The Mothership
+**Track**: HAYABVSA - REWIND [Hardwave Chapter Three]
 
-Last updated at 03/14/2021 08:13
+Last updated at 03/14/2021 08:17
