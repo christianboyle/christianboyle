@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlqV6JWpXVaHu5nK-RzQbMw-t500x500.jpg">](https://soundcloud.com/foreverhomesick/omen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzh92iTETx18eV39-SkDiKg-t500x500.jpg">](https://soundcloud.com/alrtmusic/nnf)
 
-**Artist**: HomeSick 
+**Artist**: ALRT 
 
-**Track**: Omen
+**Track**: N.N.F
 
-Last updated at 03/14/2021 07:15
+Last updated at 03/14/2021 07:19
