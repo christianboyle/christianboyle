@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZvuEAljwPgvFnYnj-mudCwA-t500x500.jpg">](https://soundcloud.com/balamii/notions-w-andrew-devine-march-2021)
 
-**Artist**: A. G. Cook 
+**Artist**: Balamii 
 
-**Track**: Dream Logic
+**Track**: Notions w/ Andrew Devine - March 2021
 
-Last updated at 03/13/2021 16:07
+Last updated at 03/14/2021 06:35
