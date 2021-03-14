@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzh92iTETx18eV39-SkDiKg-t500x500.jpg">](https://soundcloud.com/alrtmusic/the-underground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W1GrTjE2KZZDGU7b-yWTBGQ-t500x500.jpg">](https://soundcloud.com/mariaellismusic/luv)
 
-**Artist**: ALRT 
+**Artist**: Maria Ellis 
 
-**Track**: The Underground
+**Track**: Maria Ellis & Musa - Luv = Dumb
 
-Last updated at 03/14/2021 07:59
+Last updated at 03/14/2021 08:03
