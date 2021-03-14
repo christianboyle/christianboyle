@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSWcoFIaClsBbQwu-O3vMHQ-t500x500.jpg">](https://soundcloud.com/the-games-we-play/hayabvsa-rewind-hardwave-chapter-three)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q6Bs5H5or0NryFYQ-izg7Gw-t500x500.jpg">](https://soundcloud.com/outby16/febclips2021)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: outby16 
 
-**Track**: HAYABVSA - REWIND [Hardwave Chapter Three]
+**Track**: february clips 2021 ft. Brodinski, Fifty Grand, Modulaw, evil giane, SOUDIERE, 4evr, Mike Frost +
 
-Last updated at 03/14/2021 08:17
+Last updated at 03/14/2021 08:19
