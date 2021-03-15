@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GR0NbjWxGkvhNDw4-5nIVjA-t500x500.jpg">](https://soundcloud.com/weplayitlouder/overspace-cashland-houseplant-canvas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lhLYSP9SlGoTRaz-yyvcsg-t500x500.jpg">](https://soundcloud.com/theblndr/equipe?in=theblndr/sets/infinity)
 
-**Artist**: Playitlouder 
+**Artist**: BLNDR 
 
-**Track**: Overspace & Cashland - Houseplant Canvas
+**Track**: 12nd - Equipe
 
-Last updated at 03/15/2021 16:46
+Last updated at 03/15/2021 16:48
