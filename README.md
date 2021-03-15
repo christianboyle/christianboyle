@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lAfupSDOzYTKFd6f-qcBpwg-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-dj-beverly-hill-heaven-club-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xulm7tPQjAImaP1k-3PRQAg-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-frank-heise-hydra-union-trance-mission)
 
 **Artist**: / CRUDE / 
 
-**Track**: CRUDE Exclusive: DJ BEVERLY HILL$ - Heaven (Club Mix)
+**Track**: CRUDE Premiere: Frank Heise - Hydra [UTMVA006]
 
-Last updated at 03/15/2021 10:29
+Last updated at 03/15/2021 10:36
