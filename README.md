@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKEUIFjYikVz7Kfi-fAawHw-t500x500.jpg">](https://soundcloud.com/wearestereofox/misc-inc-the-beauty-to-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8YdGPsFEhHPtn8D-WwBzEQ-t500x500.jpg">](https://soundcloud.com/benzi/maniac?in=squired/sets/maniac)
 
-**Artist**: Stereofox.com 
+**Artist**: BENZI 
 
-**Track**: misc.inc - The Beauty To Be
+**Track**: Michael Sembello - Maniac (Squired x BENZI Remix)
 
-Last updated at 03/15/2021 13:39
+Last updated at 03/15/2021 15:53
