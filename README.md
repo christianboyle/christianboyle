@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0cGdO3qsNSXMsA9T-A452Qw-t500x500.jpg">](https://soundcloud.com/arcade-blaster/arcadeboy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lhLYSP9SlGoTRaz-yyvcsg-t500x500.jpg">](https://soundcloud.com/theblndr/infinity?in=theblndr/sets/infinity)
 
-**Artist**: Arcade Blaster 
+**Artist**: BLNDR 
 
-**Track**: ARCADE BLASTER ► ARCADEBOY
+**Track**: 12nd - Infinity
 
-Last updated at 03/15/2021 16:09
+Last updated at 03/15/2021 16:28
