@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MEOmmU2rqYPMydVn-FoZB9w-t500x500.jpg">](https://soundcloud.com/westt_music/cya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OA093yGevy3XLC8I-RIZFfQ-t500x500.jpg">](https://soundcloud.com/broknnn/bliss)
 
-**Artist**: Westt 
+**Artist**: BROKN 
 
-**Track**: Cya
+**Track**: Bliss
 
-Last updated at 03/16/2021 09:34
+Last updated at 03/16/2021 09:38
