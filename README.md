@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WNaNE2H0UwqqYlf-NW20fw-t500x500.jpg">](https://soundcloud.com/dafuqex/the-hounds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jAujqn1v0YFWCq6s-3hBVCg-t500x500.jpg">](https://soundcloud.com/wearefrontier/fr205)
 
-**Artist**: Dafuqex 
+**Artist**: FRONTIER by AC 
 
-**Track**: The Hounds
+**Track**: Bren — Discombobulate
 
-Last updated at 03/16/2021 09:40
+Last updated at 03/16/2021 09:46
