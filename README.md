@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7rcSSryMr1YNMzp-3eeL9w-t500x500.jpg">](https://soundcloud.com/val1th/11-minutes-wonder-valith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jl4oDxohzs03-0-t500x500.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
 
-**Artist**: Valith 
+**Artist**: LIL LOTUS 
 
-**Track**: YUNGBLUD, Halsey - 11 Minutes Ft. Travis Barker (Wonder & Valith Remix)
+**Track**: Girl Next Door
 
-Last updated at 03/16/2021 16:50
+Last updated at 03/16/2021 16:54
