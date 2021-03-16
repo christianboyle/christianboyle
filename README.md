@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6BitBulL7jTrURo-uO6wZQ-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-440-afrojack-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGjjGyQJK2MpT90J-5zQrmw-t500x500.jpg">](https://soundcloud.com/houndtrack/scorched-earth)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: HOUNDTRACK 
 
-**Track**: CYB3RPVNK Radio 440 (Afrojack Guest Mix)
+**Track**: Scorched Earth
 
-Last updated at 03/16/2021 10:06
+Last updated at 03/16/2021 12:05
