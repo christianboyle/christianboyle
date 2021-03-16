@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jl4oDxohzs03-0-t500x500.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
 
-**Artist**: LIL LOTUS 
+**Artist**: POPSTARBILLS 💫 
 
-**Track**: Girl Next Door
+**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
 
-Last updated at 03/16/2021 16:54
+Last updated at 03/16/2021 16:56
