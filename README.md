@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OA093yGevy3XLC8I-RIZFfQ-t500x500.jpg">](https://soundcloud.com/broknnn/bliss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WNaNE2H0UwqqYlf-NW20fw-t500x500.jpg">](https://soundcloud.com/dafuqex/the-hounds)
 
-**Artist**: BROKN 
+**Artist**: Dafuqex 
 
-**Track**: Bliss
+**Track**: The Hounds
 
-Last updated at 03/16/2021 09:38
+Last updated at 03/16/2021 09:40
