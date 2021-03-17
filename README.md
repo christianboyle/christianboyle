@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNalICnHklUKeoRS-PJCBAg-t500x500.jpg">](https://soundcloud.com/lucalush/playboi-carti-rockstar-made-luca-lush-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KgPbzsBKFO57JqH-Jv7oig-t500x500.jpg">](https://soundcloud.com/djshimamura/from-produced-by-dj-shimamura)
 
-**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
+**Artist**: DJShimamura 
 
-**Track**: PLAYBOI CARTI - ROCKSTAR MADE [LUCA LUSH REMIX]
+**Track**: 星名はる from アイロボ - シンクロデイズ (Produced by DJ Shimamura)
 
-Last updated at 03/17/2021 08:57
+Last updated at 03/17/2021 08:59
