@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxClknTIkXyzBsS-zywfIA-t500x500.jpg">](https://soundcloud.com/agcook/today-dream-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR9zMyw7vAb53j93-3axD9w-t500x500.jpg">](https://soundcloud.com/alltrapnation/sbu-enrosa-let-the-rain-clouds-come?in=officialsbu/sets/sbu-enrosa-let-the-rain-clouds)
 
-**Artist**: A. G. Cook 
+**Artist**: Trap Nation 
 
-**Track**: Today (Dream Mix)
+**Track**: SBU & ENROSA - Let the Rain Clouds Come
 
-Last updated at 03/17/2021 06:09
+Last updated at 03/17/2021 06:13
