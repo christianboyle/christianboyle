@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR9zMyw7vAb53j93-3axD9w-t500x500.jpg">](https://soundcloud.com/alltrapnation/sbu-enrosa-let-the-rain-clouds-come?in=officialsbu/sets/sbu-enrosa-let-the-rain-clouds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNalICnHklUKeoRS-PJCBAg-t500x500.jpg">](https://soundcloud.com/lucalush/playboi-carti-rockstar-made-luca-lush-remix)
 
-**Artist**: Trap Nation 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: SBU & ENROSA - Let the Rain Clouds Come
+**Track**: PLAYBOI CARTI - ROCKSTAR MADE [LUCA LUSH REMIX]
 
-Last updated at 03/17/2021 06:13
+Last updated at 03/17/2021 06:15
