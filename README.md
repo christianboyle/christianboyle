@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lUdMdrtsSiYnK2K-r5Ei8Q-t500x500.jpg">](https://soundcloud.com/enforcerecords/theonlything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNalICnHklUKeoRS-PJCBAg-t500x500.jpg">](https://soundcloud.com/lucalush/playboi-carti-rockstar-made-luca-lush-remix)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: STAR SEED & JECHT - The Only Thing
+**Track**: PLAYBOI CARTI - ROCKSTAR MADE [LUCA LUSH REMIX]
 
-Last updated at 03/17/2021 08:55
+Last updated at 03/17/2021 08:57
