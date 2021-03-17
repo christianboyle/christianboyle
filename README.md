@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KgPbzsBKFO57JqH-Jv7oig-t500x500.jpg">](https://soundcloud.com/djshimamura/from-produced-by-dj-shimamura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoNNBSX9P6CBhCM7-V2eLMg-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps061-etch)
 
-**Artist**: DJShimamura 
+**Artist**: ILIAN TAPE 
 
-**Track**: 星名はる from アイロボ - シンクロデイズ (Produced by DJ Shimamura)
+**Track**: ITPS061 ETCH
 
-Last updated at 03/17/2021 08:59
+Last updated at 03/17/2021 09:01
