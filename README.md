@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IrFfgT5LypjsgJtc-QUDSqQ-t500x500.jpg">](https://soundcloud.com/tikitarec/d1-amandra-karim-sqala-3-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJkxXzQH72Suf4EH-HnKhQw-t500x500.png">](https://soundcloud.com/rinsefm/rupture100221)
 
-**Artist**: Tikita 
+**Artist**: Rinse FM 
 
-**Track**: D1. Amandra & Karim - Sqala 3 (Forest Drive West Remix)
+**Track**: Rupture with Double O & Forest Drive West - 10 February 2021
 
-Last updated at 03/18/2021 09:05
+Last updated at 03/18/2021 11:51
