@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xSTVXfzQoVxr8MzR-2aaGoQ-t500x500.jpg">](https://soundcloud.com/midgar_records/b1ricochetfelixkremix?in=midgar_records/sets/forest-drive-west-they-live-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sRW24VRctRG0hFTY-58TMsg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-forest-drive-west-they-live-pessimist-remixmidgar-records?in=midgar_records/sets/forest-drive-west-they-live-1)
 
-**Artist**: Midgar 
+**Artist**: Ransom Note 
 
-**Track**: Forest Drive West - Ricochet (Felix K Reinterpretation)
+**Track**: PREMIERE: Forest Drive West - They Live (Pessimist Remix)[Midgar Records]
 
-Last updated at 03/18/2021 07:45
+Last updated at 03/18/2021 07:57
