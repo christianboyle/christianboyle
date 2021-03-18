@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KDKQbifDlDApvbbG-zCbEGw-t500x500.jpg">](https://soundcloud.com/livity-sound/forest-drive-west-ritual-1?in=livity-sound/sets/forest-drive-west-dualism-ep-preview-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IrFfgT5LypjsgJtc-QUDSqQ-t500x500.jpg">](https://soundcloud.com/tikitarec/d1-amandra-karim-sqala-3-1)
 
-**Artist**: Livity Sound 
+**Artist**: Tikita 
 
-**Track**: Forest Drive West 'Ritual' preview clip LIVITY046
+**Track**: D1. Amandra & Karim - Sqala 3 (Forest Drive West Remix)
 
-Last updated at 03/18/2021 09:03
+Last updated at 03/18/2021 09:05
