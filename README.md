@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uKRZD9tx1Cw7Cz2R-eg6yzw-t500x500.jpg">](https://soundcloud.com/monument-podcast/mnmt-premiere-forest-drive-west-phosphenes-wata-igarashi-remix-mdg017x?in=midgar_records/sets/forest-drive-west-they-live-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xSTVXfzQoVxr8MzR-2aaGoQ-t500x500.jpg">](https://soundcloud.com/midgar_records/b1ricochetfelixkremix?in=midgar_records/sets/forest-drive-west-they-live-1)
 
-**Artist**: MONUMENT 
+**Artist**: Midgar 
 
-**Track**: MNMT Premiere: Forest Drive West – Phosphenes (Wata Igarashi Remix)
+**Track**: Forest Drive West - Ricochet (Felix K Reinterpretation)
 
-Last updated at 03/18/2021 08:13
+Last updated at 03/18/2021 08:19
