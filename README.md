@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000431327370-qdcawr-t500x500.jpg">](https://soundcloud.com/xlr8r/xlr8r-podcast-566-forest-drive-west?in=forest-drive-west/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AQjFtvnpzrofogYH-xuJnzw-t500x500.jpg">](https://soundcloud.com/midgar_records/forest-drive-west-mix?in=forest-drive-west/sets/mixes)
 
-**Artist**: XLR8R 
+**Artist**: Midgar 
 
-**Track**: XLR8R Podcast 566: Forest Drive West
+**Track**: Forest Drive West - Midgar Takeover on 9128.live
 
-Last updated at 03/19/2021 13:52
+Last updated at 03/20/2021 08:06
