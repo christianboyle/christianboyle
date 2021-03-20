@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzKorMNmDrZL8IJ0-cHj1Dg-t500x500.jpg">](https://soundcloud.com/samuraimusicgroup/donato-dozzy-samurai-music-podcast-46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZw3PRTbvzA51Qdj-JX4ZqA-t500x500.jpg">](https://soundcloud.com/nousklaeraudio/nousklaer-radio-28-mattikk)
 
-**Artist**: Samurai Music 
+**Artist**: Nous'klaer Audio 
 
-**Track**: Donato Dozzy - Samurai Music Podcast 46
+**Track**: Nous'klaer Radio #28 - Mattikk
 
-Last updated at 03/20/2021 10:56
+Last updated at 03/20/2021 11:38
