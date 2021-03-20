@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OyCracp2DrIrIXwD-Y1y5Lg-t500x500.jpg">](https://soundcloud.com/loj-2/loj-underdog-lyny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVkGsnz4tUjNtsWt-7THVOA-t500x500.jpg">](https://soundcloud.com/doghouseradio/dhr57)
 
-**Artist**: L*o*J 
+**Artist**: Doghouse Radio 
 
-**Track**: L*o*J - Underdog [LYNY Remix]
+**Track**: DOGHOUSE RADIO #057
 
-Last updated at 03/20/2021 15:40
+Last updated at 03/20/2021 15:41
