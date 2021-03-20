@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVkGsnz4tUjNtsWt-7THVOA-t500x500.jpg">](https://soundcloud.com/doghouseradio/dhr57)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueybY62cVtI4rBv0-h5JzaQ-t500x500.jpg">](https://soundcloud.com/monument-podcast/mnmt-247-forest-drive-west?in=forest-drive-west/sets/mixes)
 
-**Artist**: Doghouse Radio 
+**Artist**: MONUMENT 
 
-**Track**: DOGHOUSE RADIO #057
+**Track**: MNMT 247: Forest Drive West
 
-Last updated at 03/20/2021 15:41
+Last updated at 03/20/2021 15:49
