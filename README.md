@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoNNBSX9P6CBhCM7-V2eLMg-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps061-etch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
 
-**Artist**: ILIAN TAPE 
+**Artist**: A. G. Cook 
 
-**Track**: ITPS061 ETCH
+**Track**: Dream Logic
 
-Last updated at 03/22/2021 11:33
+Last updated at 03/22/2021 11:35
