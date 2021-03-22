@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sqNPkWUARTy8ANpo-MzM9UA-t500x500.jpg">](https://soundcloud.com/mau5trap/hvdes-oni)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoNNBSX9P6CBhCM7-V2eLMg-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps061-etch)
 
-**Artist**: mau5trap 
+**Artist**: ILIAN TAPE 
 
-**Track**: HVDES - Oni
+**Track**: ITPS061 ETCH
 
-Last updated at 03/22/2021 11:31
+Last updated at 03/22/2021 11:33
