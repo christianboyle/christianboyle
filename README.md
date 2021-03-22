@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jUCaqvN9p59O-0-t500x500.jpg">](https://soundcloud.com/danger-incorporated/danger-passion?in=danger-incorporated/sets/hackers-of-the-world-unite-1)
 
-**Artist**: A. G. Cook 
+**Artist**: Danger Incorporated 
 
-**Track**: Dream Logic
+**Track**: Danger (Passion)
 
-Last updated at 03/22/2021 11:35
+Last updated at 03/22/2021 11:43
