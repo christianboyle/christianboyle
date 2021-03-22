@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlYrNCkbLNQbf8GL-6KiKyA-t500x500.jpg">](https://soundcloud.com/liltexas/spring-hardcore-2021-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoNNBSX9P6CBhCM7-V2eLMg-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps061-etch)
 
-**Artist**: LIL TEXAS 
+**Artist**: ILIAN TAPE 
 
-**Track**: SPRING HARDCORE 2021 MIX
+**Track**: ITPS061 ETCH
 
-Last updated at 03/22/2021 10:12
+Last updated at 03/22/2021 10:20
