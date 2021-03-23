@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zmdXjkM6FVI-0-t500x500.png">](https://soundcloud.com/droeloemusic/broken-bricks-madnap-remix?in=saxurn/sets/real-i-ty-a/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH6SyICLFooM-0-t500x500.jpg">](https://soundcloud.com/partyfavormusic/party-favor-once-more-feat?in=saxurn/sets/real-i-ty-a/)
 
-**Artist**: DROELOE 
+**Artist**: PARTY FAVOR 
 
-**Track**: Broken Bricks (Madnap Remix)
+**Track**: Party Favor - ONCE MORE (feat. Georgia Ku)
 
-Last updated at 03/23/2021 14:27
+Last updated at 03/23/2021 14:47
