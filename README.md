@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DuRsm2EiWs2rZsjv-u7GoPA-t500x500.jpg">](https://soundcloud.com/curiosityshoppp/cole-longanecker-sv1-679)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6m0I2jF73ztvbwC-4rO0oA-t500x500.jpg">](https://soundcloud.com/whyel/fall-apart-anthem-whyel-mashup?in=saxurn/sets/real-i-ty-a/)
 
-**Artist**: 𝐂𝐮𝐫𝐢𝐨𝐬𝐢𝐭𝐲 𝐒𝐡𝐨𝐩 
+**Artist**: Whyel 
 
-**Track**: Cole Longanecker & sv1 - 679
+**Track**: Fall Apart Anthem (Whyel Mashup)
 
-Last updated at 03/23/2021 09:53
+Last updated at 03/23/2021 10:04
