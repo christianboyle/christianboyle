@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000651820561-w1ju4j-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrt-008-khaos-head-shot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9iMLkdf0nZzxkofq-z2lkyg-t500x500.jpg">](https://soundcloud.com/jadudala/msft-backup-jadu136)
 
-**Artist**: Quality Goods Records 
+**Artist**: Jadū Dala 
 
-**Track**: QGRT-008 | Khaos - Head Shot
+**Track**: msft - Backup (JADŪ136)
 
-Last updated at 03/23/2021 08:49
+Last updated at 03/23/2021 08:51
