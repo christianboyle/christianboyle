@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hnUdyQ0w0yz6hrMe-ogISJQ-t500x500.jpg">](https://soundcloud.com/weaverbeats/rolling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKA4SeUSSBxMxNjI-G69vuw-t500x500.jpg">](https://soundcloud.com/seven-lions/only-now-feat-tyler-graves)
 
-**Artist**: Weaver Beats 
+**Artist**: Seven Lions 
 
-**Track**: Rolling
+**Track**: Only Now (Feat. Tyler Graves)
 
-Last updated at 03/23/2021 09:26
+Last updated at 03/23/2021 09:28
