@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9QYLxmcE17jHl9nQ-B9oD2g-t500x500.jpg">](https://soundcloud.com/s3rl/dopamine-s3rl-ft-sara)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fztmJfUf8LA5hLAe-UdyV5A-t500x500.jpg">](https://soundcloud.com/letslinkmusic/age-of-love)
 
-**Artist**: S3RL 
+**Artist**: LINK 
 
-**Track**: Dopamine - S3RL Ft Sara
+**Track**: AGE OF LOVE
 
-Last updated at 03/23/2021 09:33
+Last updated at 03/23/2021 09:35
