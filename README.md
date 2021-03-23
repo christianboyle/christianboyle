@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbleKbRV0rvuL6wd-nDUU1Q-t500x500.jpg">](https://soundcloud.com/yitakulxiv/gracidea?in=saxurn/sets/real-i-ty-b/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/real-i-ty-b/)
 
-**Artist**: yitaku 
+**Artist**: texas baby 
 
-**Track**: Gracidea ft. Slyleaf
+**Track**: rmr - rascal (texas baby rmx)
 
-Last updated at 03/23/2021 09:37
+Last updated at 03/23/2021 09:41
