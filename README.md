@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fztmJfUf8LA5hLAe-UdyV5A-t500x500.jpg">](https://soundcloud.com/letslinkmusic/age-of-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbleKbRV0rvuL6wd-nDUU1Q-t500x500.jpg">](https://soundcloud.com/yitakulxiv/gracidea?in=saxurn/sets/real-i-ty-b/)
 
-**Artist**: LINK 
+**Artist**: yitaku 
 
-**Track**: AGE OF LOVE
+**Track**: Gracidea ft. Slyleaf
 
-Last updated at 03/23/2021 09:35
+Last updated at 03/23/2021 09:37
