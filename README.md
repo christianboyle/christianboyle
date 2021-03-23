@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evvY2sU8fZzyfNKo-kRTObg-t500x500.jpg">](https://soundcloud.com/murderclubmusik/murder-club-goodies-box-may)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9QYLxmcE17jHl9nQ-B9oD2g-t500x500.jpg">](https://soundcloud.com/s3rl/dopamine-s3rl-ft-sara)
 
-**Artist**: MURDER CLUB 
+**Artist**: S3RL 
 
-**Track**: MURDER CLUB GOODIES BOX MAY 2020 (YUMMY, FIREFLIES, NEVER MEANT)
+**Track**: Dopamine - S3RL Ft Sara
 
-Last updated at 03/23/2021 09:31
+Last updated at 03/23/2021 09:33
