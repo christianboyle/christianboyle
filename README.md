@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t500x500.jpg">](https://soundcloud.com/fish_narc/wildfire?in=saxurn/sets/real-i-ty-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsFqSswxSNaSEyrl-WUfcpw-t500x500.jpg">](https://soundcloud.com/bkayeofficial/justin-bieber-intentions-bkaye-remix-1?in=saxurn/sets/real-i-ty-b)
 
-**Artist**: fish narc 
+**Artist**: BKAYE 
 
-**Track**: WiLDFiRE
+**Track**: Justin Bieber - Intentions (BKAYE Remix)
 
-Last updated at 03/23/2021 15:17
+Last updated at 03/23/2021 15:19
