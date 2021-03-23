@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6m0I2jF73ztvbwC-4rO0oA-t500x500.jpg">](https://soundcloud.com/whyel/fall-apart-anthem-whyel-mashup?in=saxurn/sets/tester/)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: Whyel 
 
-**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
+**Track**: Fall Apart Anthem (Whyel Mashup)
 
-Last updated at 03/23/2021 08:13
+Last updated at 03/23/2021 08:15
