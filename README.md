@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676475836-6n81l8-t500x500.jpg">](https://soundcloud.com/fish_narc/wildfire?in=saxurn/sets/reality-body-side/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHQYD3evjSQS-0-t500x500.jpg">](https://soundcloud.com/youngbombs/loyal-phzes-remix-feat-gigi)
 
-**Artist**: fish narc 
+**Artist**: YOUNG BOMBS 
 
-**Track**: WiLDFiRE
+**Track**: Loyal (PHZES Remix) [feat. GiGi]
 
-Last updated at 03/24/2021 09:10
+Last updated at 03/24/2021 09:18
