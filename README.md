@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/reality-mind-side/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iXOrClkcrWMOb8sl-LzH3Dg-t500x500.jpg">](https://soundcloud.com/bennymayne/danny-devito-freestyle?in=saxurn/sets/reality-mind-side/)
 
-**Artist**: texas baby 
+**Artist**: benny mayne 
 
-**Track**: rmr - rascal (texas baby rmx)
+**Track**: danny devito (freestyle)
 
-Last updated at 03/24/2021 09:41
+Last updated at 03/24/2021 09:45
