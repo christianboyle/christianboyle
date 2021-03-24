@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zmdXjkM6FVI-0-t500x500.png">](https://soundcloud.com/droeloemusic/broken-bricks-madnap-remix?in=saxurn/sets/reality-body-side/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIOnvQTf8kawZjtL-Mn4uvQ-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc145)
 
-**Artist**: DROELOE 
+**Artist**: NON STOP NXC® 
 
-**Track**: Broken Bricks (Madnap Remix)
+**Track**: NXC145 - Future is Offline - #SELFIE
 
-Last updated at 03/24/2021 08:35
+Last updated at 03/24/2021 08:37
