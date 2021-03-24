@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQGVQUpgtySj-0-t500x500.jpg">](https://soundcloud.com/charlixcx/forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000533289033-gr5dpi-t500x500.jpg">](https://soundcloud.com/nocv/all-i-want-is-you)
 
-**Artist**: charlixcx 
+**Artist**: Noc.V 
 
-**Track**: forever
+**Track**: All I Want Is You
 
-Last updated at 03/24/2021 08:56
+Last updated at 03/24/2021 08:58
