@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8dMjPpz8wUz0UaF-jUdoHg-t500x500.jpg">](https://soundcloud.com/musichighcourt/ilasan-everdream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime)
 
-**Artist**: Music High Court (MHC) 
+**Artist**: Midnight Kids 
 
-**Track**: ilasan - Everdream [MHC Release]
+**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
 
-Last updated at 03/24/2021 09:22
+Last updated at 03/24/2021 09:24
