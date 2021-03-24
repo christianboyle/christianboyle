@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t500x500.jpg">](https://soundcloud.com/headasin/carti-flip?in=saxurn/sets/reality-body-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3z7U2IdTRrUW3mQ-3xLJrw-t500x500.jpg">](https://soundcloud.com/marshmellomusic/be-kind)
 
-**Artist**: headasin 
+**Artist**: marshmello 
 
-**Track**: carti flip
+**Track**: Marshmello & Halsey - Be Kind
 
-Last updated at 03/24/2021 13:39
+Last updated at 03/24/2021 13:41
