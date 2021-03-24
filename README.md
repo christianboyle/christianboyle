@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XKldCejgR6oFxeSr-xsqbzw-t500x500.jpg">](https://soundcloud.com/alrtmusic/marrakesh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime?in=saxurn/sets/reality-mind-side)
 
-**Artist**: ALRT 
+**Artist**: Midnight Kids 
 
-**Track**: Marrakesh
+**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
 
-Last updated at 03/24/2021 11:37
+Last updated at 03/24/2021 12:24
