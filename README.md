@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5igXNyiEsd7yzg52-tvROaw-t500x500.jpg">](https://soundcloud.com/whyel/brain-stew-whyel-cover-green-day-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6m0I2jF73ztvbwC-4rO0oA-t500x500.jpg">](https://soundcloud.com/whyel/fall-apart-anthem-whyel-mashup?in=saxurn/sets/reality-body-side/)
 
 **Artist**: Whyel 
 
-**Track**: Brain Stew (Whyel Cover) - Green Day
+**Track**: Fall Apart Anthem (Whyel Mashup)
 
-Last updated at 03/24/2021 08:31
+Last updated at 03/24/2021 08:33
