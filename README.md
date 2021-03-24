@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6x6Ba2D5fGvogHK9-EROqGw-t500x500.jpg">](https://soundcloud.com/ultravibes/dream-of-me-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/reality-mind-side/)
 
-**Artist**: Ultravibes 
+**Artist**: texas baby 
 
-**Track**: Dream Of Me (Radio Mix) *** OUT NOW
+**Track**: rmr - rascal (texas baby rmx)
 
-Last updated at 03/24/2021 09:39
+Last updated at 03/24/2021 09:41
