@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MMhDV99zye86G37F-HeXOFQ-t500x500.jpg">](https://soundcloud.com/omorimori/yello?in=saxurn/sets/reality-mind-side/)
 
-**Artist**: Midnight Kids 
+**Artist**: morimori 
 
-**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
+**Track**: Yello
 
-Last updated at 03/24/2021 09:24
+Last updated at 03/24/2021 09:28
