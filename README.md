@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4J4zo1ubnYuMooY-z71Egg-t500x500.jpg">](https://soundcloud.com/b3lladesu/glue-remix?in=saxurn/sets/reality-mind-side/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000554620083-zqbkdb-t500x500.jpg">](https://soundcloud.com/robokidonline/survive-2?in=saxurn/sets/reality-body-side/)
 
-**Artist**: B3LLA 
+**Artist**: robokid 
 
-**Track**: BKAYE - Glue (B3LLA Remix)
+**Track**: Survive 2.0
 
-Last updated at 03/24/2021 09:31
+Last updated at 03/24/2021 09:35
