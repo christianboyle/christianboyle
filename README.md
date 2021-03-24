@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIOnvQTf8kawZjtL-Mn4uvQ-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc145)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t500x500.jpg">](https://soundcloud.com/gravedgrmusic/mariavip)
 
-**Artist**: NON STOP NXC® 
+**Artist**: GRAVEDGR 
 
-**Track**: NXC145 - Future is Offline - #SELFIE
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 03/24/2021 08:37
+Last updated at 03/24/2021 08:39
