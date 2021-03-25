@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Egz026azHkhzSW8h-Y8WhLQ-t500x500.jpg">](https://soundcloud.com/jalayamusic/ashez-sound-jalaya-remix-final-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs)
 
-**Artist**: Jalaya 
+**Artist**: underscores 
 
-**Track**: ASHEZ - Sound (Jalaya Remix)
+**Track**: Your favorite sidekick (feat. 8485)
 
-Last updated at 03/25/2021 13:41
+Last updated at 03/25/2021 13:45
