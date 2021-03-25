@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEr8hf9rc4FxdAqw-zIlXpg-t500x500.jpg">](https://soundcloud.com/ophelia_records/ophelias-odyssey-episode-12-with-awakend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsnKcxVyxz9Uj6LR-k7zSXA-t500x500.jpg">](https://soundcloud.com/balamii/never-skip-radio-w-emmavie-march-2021)
 
-**Artist**: Ophelia Records 
+**Artist**: Balamii 
 
-**Track**: Ophelia's Odyssey - Episode 12 with Awakend
+**Track**: Never Skip Radio w/ Emmavie - March 2021
 
-Last updated at 03/25/2021 17:28
+Last updated at 03/25/2021 18:34
