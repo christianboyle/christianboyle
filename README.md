@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8QzdqbKGMKFHzM8E-l73p0Q-t500x500.jpg">](https://soundcloud.com/danielallantunes/there-for-you-with-sad-alex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3431U2PytrRLeVr-zZIuUg-t500x500.jpg">](https://soundcloud.com/datatransmissiondnb/nookie-kaeya96-mix-metalheadz)
 
-**Artist**: Daniel Allan 
+**Artist**: Data Transmission Drum & Bass 
 
-**Track**: There For You (with Sad Alex)
+**Track**: Nookie 'Kaeya'('96 Mix) [Metalheadz]
 
-Last updated at 03/25/2021 17:19
+Last updated at 03/25/2021 17:22
