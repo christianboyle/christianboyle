@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2ftzj7Hm6TgiGFR-ogmN4g-t500x500.jpg">](https://soundcloud.com/badvoid/ultra-buygore?in=seal-playlists/sets/badvoid-ultra-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rp83dGSzjV2cIwYM-EL7Gzw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dave-skywalker-w3-f0und-l0v3?in=nightcore4totalsluts/sets/dave-skywalker-nxc-revolution)
 
-**Artist**: BADVOID 
+**Artist**: nightcore4totalsluts 
 
-**Track**: BADVOID - ULTRA
+**Track**: Dave Skywalker - W3 F0UND L0V3
 
-Last updated at 03/25/2021 14:38
+Last updated at 03/25/2021 14:40
