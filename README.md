@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y0V4oUYzXvkoveZ3-YwMiig-t500x500.jpg">](https://soundcloud.com/sneakersocialclub/etch-shadows-passed-by?in=sneakersocialclub/sets/etch-anachronism-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pj7lziOnQYJhz0AT-ZFGp1A-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-dj-dynamax-feel-your-body-and-mind)
 
-**Artist**: Sneaker Social Club 
+**Artist**: M-Project 
 
-**Track**: Etch - Shadows Passed By
+**Track**: M-Project & DJ Dynamax - Feel Your Body And Mind
 
-Last updated at 03/25/2021 08:06
+Last updated at 03/25/2021 08:08
