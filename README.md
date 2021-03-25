@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2ftzj7Hm6TgiGFR-ogmN4g-t500x500.jpg">](https://soundcloud.com/badvoid/ultra-buygore?in=seal-playlists/sets/badvoid-ultra-5)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: BADVOID 
 
-**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
+**Track**: BADVOID - ULTRA
 
-Last updated at 03/25/2021 14:01
+Last updated at 03/25/2021 14:38
