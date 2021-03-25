@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000598058606-jynvzz-t500x500.jpg">](https://soundcloud.com/keithape/pumped-up-ketih-prod-wendigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y0V4oUYzXvkoveZ3-YwMiig-t500x500.jpg">](https://soundcloud.com/sneakersocialclub/etch-tyrant?in=sneakersocialclub/sets/etch-anachronism-ep)
 
-**Artist**: KEITH APE' 20⊕ 
+**Artist**: Sneaker Social Club 
 
-**Track**: PUMPED UP KEITH ! (prod. Wendigo)
+**Track**: Etch - Tyrant
 
-Last updated at 03/25/2021 08:00
+Last updated at 03/25/2021 08:02
