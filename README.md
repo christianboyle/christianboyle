@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-43SHqbDnmlL94pj8-KbP4VA-t500x500.jpg">](https://soundcloud.com/monstercat/tynan-ace-aura-stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIU7NkYVX87OFndd-7mdiNw-t500x500.jpg">](https://soundcloud.com/liquid-smoke-official/lean-swag-dip)
 
-**Artist**: Monstercat 
+**Artist**: Liquid $moke🍃 
 
-**Track**: TYNAN & Ace Aura - Stay
+**Track**: lean swag dip
 
-Last updated at 03/25/2021 07:50
+Last updated at 03/25/2021 07:54
