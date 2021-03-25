@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3431U2PytrRLeVr-zZIuUg-t500x500.jpg">](https://soundcloud.com/datatransmissiondnb/nookie-kaeya96-mix-metalheadz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEr8hf9rc4FxdAqw-zIlXpg-t500x500.jpg">](https://soundcloud.com/ophelia_records/ophelias-odyssey-episode-12-with-awakend)
 
-**Artist**: Data Transmission Drum & Bass 
+**Artist**: Ophelia Records 
 
-**Track**: Nookie 'Kaeya'('96 Mix) [Metalheadz]
+**Track**: Ophelia's Odyssey - Episode 12 with Awakend
 
-Last updated at 03/25/2021 17:22
+Last updated at 03/25/2021 17:28
