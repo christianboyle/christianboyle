@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJzlQ9zlOqzHeGQh-xziWHw-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/lazlow-keep-runnin-visuals-bvsskxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pj7lziOnQYJhz0AT-ZFGp1A-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-dj-dynamax-feel-your-body-and-mind)
 
-**Artist**: LAZLOW 
+**Artist**: M-Project 
 
-**Track**: KEEP RUNNIN'
+**Track**: M-Project & DJ Dynamax - Feel Your Body And Mind
 
-Last updated at 03/25/2021 09:10
+Last updated at 03/25/2021 09:22
