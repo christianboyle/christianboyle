@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0La4yNRhP1mRJY0-z90suQ-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-dead-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000598058606-jynvzz-t500x500.jpg">](https://soundcloud.com/keithape/pumped-up-ketih-prod-wendigo)
 
-**Artist**: 4*(JPN) 
+**Artist**: KEITH APE' 20⊕ 
 
-**Track**: 4* - Dead Love (Radio Edit)
+**Track**: PUMPED UP KEITH ! (prod. Wendigo)
 
-Last updated at 03/25/2021 08:36
+Last updated at 03/25/2021 08:42
