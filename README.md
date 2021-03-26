@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiRH5ElHSzrW3bRY-ZhNMiw-t500x500.jpg">](https://soundcloud.com/underscores/slb?in=underscores/sets/fishmonger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs?in=underscores/sets/fishmonger)
 
 **Artist**: underscores 
 
-**Track**: Spoiled little brat
+**Track**: Your favorite sidekick (feat. 8485)
 
-Last updated at 03/26/2021 07:57
+Last updated at 03/26/2021 08:02
