@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oKqmNc19rrOBWX2c-UI8AsA-t500x500.jpg">](https://soundcloud.com/liquidritual/teneki-sudoverse-fusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFRzOBaCxEAdkdCf-dvU6cg-t500x500.jpg">](https://soundcloud.com/craymakmusic/the-nights-feat-green-light-go-karate-kactus?in=craymakmusic/sets/adomania)
 
-**Artist**: Liquid Ritual 
+**Artist**: CRaymak 
 
-**Track**: Teneki & Sudoverse - FUSION
+**Track**: The Nights Feat. Green Light Go & Karate Kactus
 
-Last updated at 03/26/2021 09:25
+Last updated at 03/26/2021 10:07
