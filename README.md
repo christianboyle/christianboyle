@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0La4yNRhP1mRJY0-z90suQ-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-dead-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lUdMdrtsSiYnK2K-r5Ei8Q-t500x500.jpg">](https://soundcloud.com/enforcerecords/theonlything)
 
-**Artist**: 4*(JPN) 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: 4* - Dead Love (Radio Edit)
+**Track**: STAR SEED & JECHT - The Only Thing
 
-Last updated at 03/26/2021 13:03
+Last updated at 03/26/2021 13:07
