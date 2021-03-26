@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DruotI92Wu0RtFau-Lnyi6w-t500x500.jpg">](https://soundcloud.com/dreamtakers/dirty-ruvlo-dream-takers-boot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zauhjWLiXi5M9LVb-SPNsNg-t500x500.jpg">](https://soundcloud.com/90sravepodcast/episode-29-shutter-up-dance-the-wu-tang-snapper-hired-by-goldie-to-capture-90s-jungle)
 
-**Artist**: Dream Takers 
+**Artist**: ROAR: The '90s Rave Podcast 
 
-**Track**: Dirty - Ruvlo (Dream Takers x Boot Snake Flip)
+**Track**: Episode 29: Shutter Up & Dance - the Wu-Tang snapper hired by Goldie to capture '90s jungle
 
-Last updated at 03/26/2021 06:09
+Last updated at 03/26/2021 06:11
