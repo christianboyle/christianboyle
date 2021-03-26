@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuHeHQlsBznWEqDX-VT13LQ-t500x500.jpg">](https://soundcloud.com/bassweightcollective/bassweight-collective-ayuu-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEGVeOs8vEtkeMTy-7QLwug-t500x500.jpg">](https://soundcloud.com/thrivedeyes99/virtud-1)
 
-**Artist**: Bassweight Collective 
+**Artist**: thrivedeyes. 
 
-**Track**: Bassweight Collective - AYUU (FREE DOWNLOAD)
+**Track**: virtud
 
-Last updated at 03/26/2021 10:25
+Last updated at 03/26/2021 10:29
