@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yiItaE0YDfxk1ME-7O8Q5A-t500x500.jpg">](https://soundcloud.com/aqnb/aj-simons-umru-hate-it-love-it-2021-courtesy-aqnb-london-los-angeles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vCZmX7RgmRvkCBUE-6UpM8g-t500x500.jpg">](https://soundcloud.com/kggn/typo)
 
-**Artist**: AQNB 
+**Artist**: kuru 
 
-**Track**: Aj simons & umru, 'Hate it, love it' (2021). Courtesy AQNB, London; Los Angeles.
+**Track**: typo (ku + tgwog + litothedon)
 
-Last updated at 03/26/2021 08:24
+Last updated at 03/26/2021 08:26
