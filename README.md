@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMoIEDZjsrZ7rKNG-iOAUvQ-t500x500.jpg">](https://soundcloud.com/pincode8485/southview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yiItaE0YDfxk1ME-7O8Q5A-t500x500.jpg">](https://soundcloud.com/aqnb/aj-simons-umru-hate-it-love-it-2021-courtesy-aqnb-london-los-angeles)
 
-**Artist**: 8485 
+**Artist**: AQNB 
 
-**Track**: southview  +fish narc (blackwinterwells)
+**Track**: Aj simons & umru, 'Hate it, love it' (2021). Courtesy AQNB, London; Los Angeles.
 
-Last updated at 03/26/2021 08:21
+Last updated at 03/26/2021 08:24
