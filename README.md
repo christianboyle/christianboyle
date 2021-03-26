@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEGVeOs8vEtkeMTy-7QLwug-t500x500.jpg">](https://soundcloud.com/thrivedeyes99/virtud-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXOBzDiqMdHPburm-q8zZfA-t500x500.jpg">](https://soundcloud.com/trademarkbootlegs/the-pregame-series-march-052)
 
-**Artist**: thrivedeyes. 
+**Artist**: Trademark 
 
-**Track**: virtud
+**Track**: The Pregame Series (March 052)
 
-Last updated at 03/26/2021 10:29
+Last updated at 03/26/2021 10:31
