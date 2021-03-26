@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0La4yNRhP1mRJY0-z90suQ-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-dead-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pj7lziOnQYJhz0AT-ZFGp1A-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-dj-dynamax-feel-your-body-and-mind)
 
-**Artist**: 4*(JPN) 
+**Artist**: M-Project 
 
-**Track**: 4* - Dead Love (Radio Edit)
+**Track**: M-Project & DJ Dynamax - Feel Your Body And Mind
 
-Last updated at 03/26/2021 16:07
+Last updated at 03/26/2021 18:27
