@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lUdMdrtsSiYnK2K-r5Ei8Q-t500x500.jpg">](https://soundcloud.com/enforcerecords/theonlything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXsIk0oq9QqyKXl0-3AZLqw-t500x500.jpg">](https://soundcloud.com/kingdirtymup/letter-to-my-z)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: KING DIRTY MUP 
 
-**Track**: STAR SEED & JECHT - The Only Thing
+**Track**: Letter To My Z
 
-Last updated at 03/26/2021 18:37
+Last updated at 03/27/2021 08:34
