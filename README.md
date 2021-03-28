@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgXGEm4C3jf42hhN-V5Fj7g-t500x500.jpg">](https://soundcloud.com/metr-329875454/all-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWzRJOKI12qvDBUv-vwyo3Q-t500x500.jpg">](https://soundcloud.com/stellersounds/inmysoul?in=stellersounds/sets/day-dreaming-ep)
 
-**Artist**: METR 
+**Artist**: Steller 
 
-**Track**: All Right
+**Track**: In My Soul
 
-Last updated at 03/28/2021 13:58
+Last updated at 03/28/2021 14:00
