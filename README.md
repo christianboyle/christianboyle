@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jO12dg8qMYCcdZZz-VyfVRA-t500x500.jpg">](https://soundcloud.com/armnhmr/onesided)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
 
-**Artist**: ARMNHMR 
+**Artist**: Yonexx 
 
-**Track**: ARMNHMR & Miles Away - One Sided (feat. Mark Klaver)
+**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
 
-Last updated at 03/28/2021 14:02
+Last updated at 03/28/2021 17:18
