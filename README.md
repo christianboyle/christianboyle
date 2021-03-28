@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YDQdUWLRskQfPnW2-J5viFA-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-jolin-stars-align)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgXGEm4C3jf42hhN-V5Fj7g-t500x500.jpg">](https://soundcloud.com/metr-329875454/all-right)
 
-**Artist**: R3HAB 
+**Artist**: METR 
 
-**Track**: R3HAB x Jolin - Stars Align
+**Track**: All Right
 
-Last updated at 03/28/2021 13:56
+Last updated at 03/28/2021 13:58
