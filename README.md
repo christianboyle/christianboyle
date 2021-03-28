@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lUdMdrtsSiYnK2K-r5Ei8Q-t500x500.jpg">](https://soundcloud.com/enforcerecords/theonlything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izvoBkliu9io0M9y-CXMR6g-t500x500.jpg">](https://soundcloud.com/8ubblesmusic/tremendous-physique-ft-birthdayy-partyy)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: 8UBBLES 
 
-**Track**: STAR SEED & JECHT - The Only Thing
+**Track**: Tremendous Physique - 8ubbles x Birthdayy Partyy
 
-Last updated at 03/27/2021 20:58
+Last updated at 03/27/2021 21:19
