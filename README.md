@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izvoBkliu9io0M9y-CXMR6g-t500x500.jpg">](https://soundcloud.com/8ubblesmusic/tremendous-physique-ft-birthdayy-partyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngOmTCyPtM1JSR7D-vwX7Uw-t500x500.jpg">](https://soundcloud.com/yungskrrt/outsideremix)
 
-**Artist**: 8UBBLES 
+**Artist**: Yung Skrrt 
 
-**Track**: Tremendous Physique - 8ubbles x Birthdayy Partyy
+**Track**: Pritty - Outside // Yung Skrrt Remix
 
-Last updated at 03/27/2021 21:19
+Last updated at 03/27/2021 21:21
