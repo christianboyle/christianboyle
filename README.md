@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XYSDRJufQUV1y6fN-S3qNPg-t500x500.jpg">](https://soundcloud.com/abelationmusic/absolution-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5L5Lz2CUj15KN44-1kDofw-t500x500.jpg">](https://soundcloud.com/balamii/sofia-llyas-march-2021)
 
-**Artist**: Abelation 
+**Artist**: Balamii 
 
-**Track**: Absolution
+**Track**: Sofia llyas - March 2021
 
-Last updated at 03/29/2021 05:37
+Last updated at 03/29/2021 05:39
