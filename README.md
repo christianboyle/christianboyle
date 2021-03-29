@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XB0j7DVaEI1yAqhk-gUzHGQ-t500x500.jpg">](https://soundcloud.com/allthingstrap/drugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lxWWTKqNz8oJS6bN-9aYb1w-t500x500.jpg">](https://soundcloud.com/whoishaku/codeine)
 
-**Artist**: All Things Trap 
+**Artist**: haku 
 
-**Track**: Tygerz - D.R.U.G.S. (ft. D Lewis)
+**Track**: CODEINE
 
-Last updated at 03/29/2021 02:40
+Last updated at 03/29/2021 02:44
