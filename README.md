@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-anhVzWuTx1PzkOzX-MEllxA-t500x500.jpg">](https://soundcloud.com/wonkayrecords/beyond-repair-machine-gun-flow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqdJNVyV69C77BlP-uNrosA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/timian-tandem)
 
-**Artist**: WONK#AY RECORDS 
+**Artist**: THE GOBLINS LAIR 
 
-**Track**: Beyond Repair - Machine Gun Flow
+**Track**: TIMIAN - Tandem
 
-Last updated at 03/29/2021 05:17
+Last updated at 03/29/2021 05:19
