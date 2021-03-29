@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t500x500.jpg">](https://soundcloud.com/sublabmusic/love-error)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
 
-**Artist**: Sublab 
+**Artist**: Yonexx 
 
-**Track**: LOVE ERROR
+**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
 
-Last updated at 03/29/2021 10:22
+Last updated at 03/29/2021 10:42
