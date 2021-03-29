@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHTl6TdmaarZ08CY-d8ifRA-t500x500.jpg">](https://soundcloud.com/stizzzy/plug-walk-w-watermelt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ONQyeQ73JvVKImij-cgNzoA-t500x500.jpg">](https://soundcloud.com/morecreativityrecords/gehena-x-yiro-iced-tea-mcr)
 
-**Artist**: Stizzzy 
+**Artist**: more creativity records 
 
-**Track**: Plug Walk w/ wätermelt
+**Track**: Gehena x Yiro - Iced Tea
 
-Last updated at 03/28/2021 23:05
+Last updated at 03/28/2021 23:09
