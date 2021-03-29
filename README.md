@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YEmbQLq9UVVcINxh-cNqWHw-t500x500.jpg">](https://soundcloud.com/discipleroundtable/fusioncore?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jcylk6i2DwEj6TIU-Sw1WeA-t500x500.jpg">](https://soundcloud.com/eptic/shadowpeople?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: Disciple Round Table 
+**Artist**: EPTIC 
 
-**Track**: Barely Alive & Voltra - Fusion Core
+**Track**: Shadow People
 
-Last updated at 03/29/2021 03:05
+Last updated at 03/29/2021 03:09
