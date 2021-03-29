@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCTVXLlOAlvgdJnP-EbMwMA-t500x500.jpg">](https://soundcloud.com/kaidro/hurt-remix)
 
-**Artist**: Yonexx 
+**Artist**: Kaidro 
 
-**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
+**Track**: Nervo - Hurt Ft. Frida (Kaidro Remix)
 
-Last updated at 03/29/2021 10:42
+Last updated at 03/29/2021 10:44
