@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqdJNVyV69C77BlP-uNrosA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/timian-tandem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8osZtnZclPzQhwTp-2A0mhA-t500x500.jpg">](https://soundcloud.com/eroticcafe/watdadub)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: Erotic Cafe' 
 
-**Track**: TIMIAN - Tandem
+**Track**: Wat Da Dub
 
-Last updated at 03/29/2021 05:19
+Last updated at 03/29/2021 05:23
