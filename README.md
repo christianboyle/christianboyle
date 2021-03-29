@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5zdhkNtyyct02Mr-hIgHgA-t500x500.jpg">](https://soundcloud.com/tashabaxtersa/band-of-insanity-as-above-so-below?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzDEW0KXTcEKCp1U-e6BXbw-t500x500.jpg">](https://soundcloud.com/eliapollo/opening-her-eyes)
 
-**Artist**: ᴛᴀsʜᴀ ʙᴀxᴛᴇʀ 
+**Artist**: Luxyum 
 
-**Track**: Band Of Insanity -  As Above So Below
+**Track**: Opening her Eyes
 
-Last updated at 03/29/2021 04:39
+Last updated at 03/29/2021 04:41
