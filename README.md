@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zg5FMLiqDLkdShxu-NEyFcA-t500x500.jpg">](https://soundcloud.com/threedimensionsapart/never-trying-w-dolly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHTl6TdmaarZ08CY-d8ifRA-t500x500.jpg">](https://soundcloud.com/stizzzy/plug-walk-w-watermelt)
 
-**Artist**: threedimensionsapart 
+**Artist**: Stizzzy 
 
-**Track**: never trying w/ dolly
+**Track**: Plug Walk w/ wätermelt
 
-Last updated at 03/28/2021 23:03
+Last updated at 03/28/2021 23:05
