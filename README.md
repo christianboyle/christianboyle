@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmnhMSmJ2YQeY3PA-CdhxVA-t500x500.jpg">](https://soundcloud.com/illaloth_fficial/arius-x-akylla-what-i-need-killasloth-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDonyKUSOrORgLiL-LFzIPQ-t500x500.jpg">](https://soundcloud.com/danteinred/finale)
 
-**Artist**: KillaSlothmusic 
+**Artist**: dante red (ericdoa bitcrushed lol) 
 
-**Track**: ARIUS x AKYLLA - What I Need (KillaSloth Remix)
+**Track**: finale
 
-Last updated at 03/29/2021 08:50
+Last updated at 03/29/2021 08:52
