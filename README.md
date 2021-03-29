@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ia1h3wsYR9vBGxaq-9sIHfw-t500x500.jpg">](https://soundcloud.com/mustdiemusic/sorrowtech?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nKkxZCqbjOmxR6nt-p3a5PQ-t500x500.jpg">](https://soundcloud.com/blossomusic/ace-aura-x-trinergy-self-loveblosso-remix?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: MUST DIE! 
+**Artist**: BLOSSO 
 
-**Track**: SORROW TECH
+**Track**: Ace Aura x Trinergy - Self-Love (Blosso Remix)
 
-Last updated at 03/29/2021 03:11
+Last updated at 03/29/2021 03:15
