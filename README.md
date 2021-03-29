@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaIMPs2D8StHbH94-ZYJnqQ-t500x500.jpg">](https://soundcloud.com/signal49762/ayanamikawaiidubz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYaQiQqvIwqurjNn-mAhaiQ-t500x500.jpg">](https://soundcloud.com/signal4976/signal-start-end)
 
-**Artist**: Signal (Second 2 ) 
+**Artist**: Signal 
 
-**Track**: Utada Mash Up - Signal Edit (One Last Kiss X Here It Comes X Broke Bodies )
+**Track**: Signal - Start = End
 
-Last updated at 03/28/2021 20:05
+Last updated at 03/28/2021 20:07
