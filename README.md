@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JQIiqQlD9AIRVNcj-TYS4bg-t500x500.jpg">](https://soundcloud.com/s3rl/party-with-us-s3rl-ft-slen-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BMWBDDLi0j2ghp6-66BRQg-t500x500.jpg">](https://soundcloud.com/sublabmusic/love-error)
 
-**Artist**: S3RL 
+**Artist**: Sublab 
 
-**Track**: Party With Us - S3RL Ft Slen-D
+**Track**: LOVE ERROR
 
-Last updated at 03/29/2021 10:20
+Last updated at 03/29/2021 10:22
