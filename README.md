@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nKkxZCqbjOmxR6nt-p3a5PQ-t500x500.jpg">](https://soundcloud.com/blossomusic/ace-aura-x-trinergy-self-loveblosso-remix?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wurY3FXq17qMZWL5-20qlSQ-t500x500.jpg">](https://soundcloud.com/trivectamusic/elysian-moonchild-trivecta-remix?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: BLOSSO 
+**Artist**: Trivecta 
 
-**Track**: Ace Aura x Trinergy - Self-Love (Blosso Remix)
+**Track**: Elysian - Moonchild (Trivecta Remix)
 
-Last updated at 03/29/2021 03:15
+Last updated at 03/29/2021 03:19
