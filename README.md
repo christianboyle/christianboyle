@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0La4yNRhP1mRJY0-z90suQ-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-dead-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvNOItnvMFdx7pD5-smilNA-t500x500.jpg">](https://soundcloud.com/prodjai/shardem-jai-shimmer)
 
-**Artist**: 4*(JPN) 
+**Artist**: jai. 
 
-**Track**: 4* - Dead Love (Radio Edit)
+**Track**: shardem & jai. - Shimmer
 
-Last updated at 03/28/2021 19:44
+Last updated at 03/28/2021 19:46
