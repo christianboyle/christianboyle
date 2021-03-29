@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BMTreLy55Y1bsmO-KQP65Q-t500x500.jpg">](https://soundcloud.com/halfstepbeat/phao-x-kayzo-crankdat-hai-phut-hon-the-fire-halfstep-mashup-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XB0j7DVaEI1yAqhk-gUzHGQ-t500x500.jpg">](https://soundcloud.com/allthingstrap/drugs)
 
-**Artist**: HALFSTEP 
+**Artist**: All Things Trap 
 
-**Track**: Phao X Kayzo & Crankdat - Hai Phút Hơn The Fire (HALFSTEP Mashup)
+**Track**: Tygerz - D.R.U.G.S. (ft. D Lewis)
 
-Last updated at 03/29/2021 02:38
+Last updated at 03/29/2021 02:40
