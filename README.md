@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QNLeXQLVgesB3Q5r-UpcN3Q-t500x500.jpg">](https://soundcloud.com/balamii/kae-l-march-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r55Zqfazpx99zYl9-aqKDqQ-t500x500.jpg">](https://soundcloud.com/lildojamane/see-red-w-cody-valdez-kilfiger)
 
-**Artist**: Balamii 
+**Artist**: DOJAMANE 
 
-**Track**: Kae L - March 2021
+**Track**: SEE RED W/ CODY VALDEZ & KILFIGER
 
-Last updated at 03/28/2021 23:19
+Last updated at 03/29/2021 00:21
