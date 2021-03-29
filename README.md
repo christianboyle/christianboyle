@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaVNEwkeI4sK6lef-rNhOew-t500x500.jpg">](https://soundcloud.com/bleuclair/gold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s7EYzFtSemztIUSM-bfdhiQ-t500x500.jpg">](https://soundcloud.com/odeamsc/voices)
 
-**Artist**: Bleu Clair 
+**Artist**: ODEA 
 
-**Track**: Bleu Clair - Gold Feat. Rhiannon Roze
+**Track**: ODEA - Voices
 
-Last updated at 03/29/2021 05:29
+Last updated at 03/29/2021 05:33
