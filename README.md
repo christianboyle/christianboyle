@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0LLrTcapyGQInMQ-Hw9dDg-t500x500.jpg">](https://soundcloud.com/interval-audio/zeneth-knoir-hell-hounds?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N4w2EeRaLlWfVqR7-T1zsYw-t500x500.jpg">](https://soundcloud.com/zedsdead/zeds-dead-peekaboo-powa?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: Interval Audio 
+**Artist**: Zeds Dead 
 
-**Track**: Zeneth & Knoir - Hell Hounds
+**Track**: Zeds Dead & PEEKABOO - POWA
 
-Last updated at 03/29/2021 02:58
+Last updated at 03/29/2021 03:03
