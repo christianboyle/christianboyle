@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzwmBiLvyZFuGFfE-oPgyVw-t500x500.jpg">](https://soundcloud.com/spinninrecords-talentpool/bruno-pietri-pete-spruce-it-aint-right-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EKVFrZ7z6PHjuny-yIvuKg-t500x500.jpg">](https://soundcloud.com/spinnin-deep/seumas-norv-make-you-happy-out-now)
 
-**Artist**: Spinnin' Talent Pool 
+**Artist**: Spinnin' Deep 
 
-**Track**: Bruno Pietri, Pete Spruce - It Ain't Right [OUT NOW]
+**Track**: Seumas Norv - Make You Happy [OUT NOW]
 
-Last updated at 03/28/2021 20:09
+Last updated at 03/28/2021 20:11
