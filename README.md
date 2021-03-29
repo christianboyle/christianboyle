@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RWUYmF52uy3WMb0-DnlS2Q-t500x500.jpg">](https://soundcloud.com/jedwill1999/river-prod-ian-munro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LiwsnFSHwA17eFZF-UiEK9w-t500x500.jpg">](https://soundcloud.com/siximpala/bladee-mechatok-god-six-impala-remix-1)
 
-**Artist**: jedwill1999 
+**Artist**: six impala 
 
-**Track**: River (Prod. Ian Munro)
+**Track**: bladee & Mechatok - God (six impala remix)
 
-Last updated at 03/29/2021 18:04
+Last updated at 03/29/2021 18:06
