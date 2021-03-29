@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Egz026azHkhzSW8h-Y8WhLQ-t500x500.jpg">](https://soundcloud.com/jalayamusic/ashez-sound-jalaya-remix-final-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfnwNsMzyRiFZy1Z-EF173w-t500x500.jpg">](https://soundcloud.com/prodelxnce/heyhikbye)
 
-**Artist**: Jalaya 
+**Artist**: elxnce 
 
-**Track**: ASHEZ - Sound (Jalaya Remix)
+**Track**: Hey Hi K Bye (prod. Fortuneswan)
 
-Last updated at 03/29/2021 10:14
+Last updated at 03/29/2021 10:18
