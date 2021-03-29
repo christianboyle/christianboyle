@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNAZriIueiy17P2u-87ZAAg-t500x500.jpg">](https://soundcloud.com/spirittwin/stone-fortress-resonata-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaIMPs2D8StHbH94-ZYJnqQ-t500x500.jpg">](https://soundcloud.com/signal49762/ayanamikawaiidubz)
 
-**Artist**: Spirit Twin 
+**Artist**: Signal (Second 2 ) 
 
-**Track**: Stone Fortress (Resonata Remix)
+**Track**: Utada Mash Up - Signal Edit (One Last Kiss X Here It Comes X Broke Bodies )
 
-Last updated at 03/28/2021 19:59
+Last updated at 03/28/2021 20:05
