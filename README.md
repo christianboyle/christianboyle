@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkzCgPveEqgb717Y-Sy7DZg-t500x500.jpg">](https://soundcloud.com/trampa/your-luv?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hj7rHzGuHe76mzPt-v58K5w-t500x500.jpg">](https://soundcloud.com/space-laces/dominate?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: Trampa 
+**Artist**: SPACE LACES 
 
-**Track**: Your Luv
+**Track**: SPACE LACES - Dominate
 
-Last updated at 03/29/2021 02:48
+Last updated at 03/29/2021 02:52
