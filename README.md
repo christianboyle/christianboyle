@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hj7rHzGuHe76mzPt-v58K5w-t500x500.jpg">](https://soundcloud.com/space-laces/dominate?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NHvgGM2pe3n1L7ze-nzWQmg-t500x500.jpg">](https://soundcloud.com/killthenoise/scarlet-begonias-remix?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: SPACE LACES 
+**Artist**: Kill The Noise 
 
-**Track**: SPACE LACES - Dominate
+**Track**: Scarlet Begonias Remix
 
-Last updated at 03/29/2021 02:52
+Last updated at 03/29/2021 02:57
