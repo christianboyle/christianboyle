@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EKVFrZ7z6PHjuny-yIvuKg-t500x500.jpg">](https://soundcloud.com/spinnin-deep/seumas-norv-make-you-happy-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2gSEqujAyMN4JvZy-SWvVKA-t500x500.jpg">](https://soundcloud.com/balamii/poetry-credits-w-kukua-castalia-luna-lady-dane-maya-angelou-march-2021)
 
-**Artist**: Spinnin' Deep 
+**Artist**: Balamii 
 
-**Track**: Seumas Norv - Make You Happy [OUT NOW]
+**Track**: Poetry Credits w/ Kukua, Castalia Luna, Lady Dane, & Maya Angelou - March 2021
 
-Last updated at 03/28/2021 20:11
+Last updated at 03/28/2021 20:15
