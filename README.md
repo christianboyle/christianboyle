@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RkxL1IbBnJYEebgG-z2x1Ng-t500x500.jpg">](https://soundcloud.com/killthenoise/dazed-and-confused-ktn-flip?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkzCgPveEqgb717Y-Sy7DZg-t500x500.jpg">](https://soundcloud.com/trampa/your-luv?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: Kill The Noise 
+**Artist**: Trampa 
 
-**Track**: DAZED AND CONFUSED KTN FLIP
+**Track**: Your Luv
 
-Last updated at 03/29/2021 02:46
+Last updated at 03/29/2021 02:48
