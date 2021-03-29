@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvGdicJCgyOCJ2q6-S1zxxg-t500x500.jpg">](https://soundcloud.com/isvvcisvvcisvvc/face-2-face-wit-death)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BMTreLy55Y1bsmO-KQP65Q-t500x500.jpg">](https://soundcloud.com/halfstepbeat/phao-x-kayzo-crankdat-hai-phut-hon-the-fire-halfstep-mashup-2)
 
-**Artist**: ISVVC 
+**Artist**: HALFSTEP 
 
-**Track**: FACE 2 FACE WIT DEATH
+**Track**: Phao X Kayzo & Crankdat - Hai Phút Hơn The Fire (HALFSTEP Mashup)
 
-Last updated at 03/29/2021 02:36
+Last updated at 03/29/2021 02:38
