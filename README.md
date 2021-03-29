@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EmN7ONO13LKxwQja-eQedOQ-t500x500.jpg">](https://soundcloud.com/daniel7official/tokiositi_rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfU6yVrpK9AnN81m-n0O2QA-t500x500.jpg">](https://soundcloud.com/shinseiofficial/a-cruel-angels-thesis)
 
-**Artist**: Daniel Seven 
+**Artist**: Shinsei 
 
-**Track**: Laamaa & Oskill8 - Tokio Siti (Daniel Seven Remix) [FREE DOWNLOAD]
+**Track**: A Cruel Angel's Thesis [Neon Genesis Evangelion OP] (Shinsei Remix)
 
-Last updated at 03/29/2021 11:02
+Last updated at 03/29/2021 11:04
