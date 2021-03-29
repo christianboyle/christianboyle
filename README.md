@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDonyKUSOrORgLiL-LFzIPQ-t500x500.jpg">](https://soundcloud.com/danteinred/finale)
 
-**Artist**: underscores 
+**Artist**: dante red (ericdoa bitcrushed lol) 
 
-**Track**: Your favorite sidekick (feat. 8485)
+**Track**: finale
 
-Last updated at 03/29/2021 09:06
+Last updated at 03/29/2021 09:08
