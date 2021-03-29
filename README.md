@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5L5Lz2CUj15KN44-1kDofw-t500x500.jpg">](https://soundcloud.com/balamii/sofia-llyas-march-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmnhMSmJ2YQeY3PA-CdhxVA-t500x500.jpg">](https://soundcloud.com/illaloth_fficial/arius-x-akylla-what-i-need-killasloth-remix)
 
-**Artist**: Balamii 
+**Artist**: KillaSlothmusic 
 
-**Track**: Sofia llyas - March 2021
+**Track**: ARIUS x AKYLLA - What I Need (KillaSloth Remix)
 
-Last updated at 03/29/2021 05:39
+Last updated at 03/29/2021 08:50
