@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnXwwgEJDp5eLzBV-Vz6fgg-t500x500.jpg">](https://soundcloud.com/shonan-fps/still-alive-sho-nan-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EmN7ONO13LKxwQja-eQedOQ-t500x500.jpg">](https://soundcloud.com/daniel7official/tokiositi_rmx)
 
-**Artist**: Sho--nan 
+**Artist**: Daniel Seven 
 
-**Track**: Still Alive (Sho--nan Bootleg) [FREE DL]
+**Track**: Laamaa & Oskill8 - Tokio Siti (Daniel Seven Remix) [FREE DOWNLOAD]
 
-Last updated at 03/29/2021 10:58
+Last updated at 03/29/2021 11:02
