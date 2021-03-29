@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5drXGRO7q033zr8p-kH0lyw-t500x500.jpg">](https://soundcloud.com/cyclopsrecs/track-1-the-marble-room?in=killthenoise/sets/stuff-for-the-fam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5puGyYyLEasdPJu-DzAmeQ-t500x500.jpg">](https://soundcloud.com/killthenoise/book-of-the-dead-mixtape?in=killthenoise/sets/stuff-for-the-fam)
 
-**Artist**: Cyclops Recordings 
+**Artist**: Kill The Noise 
 
-**Track**: Space Wizard - The Marble Room
+**Track**: Book of The Dead Mixtape
 
-Last updated at 03/29/2021 03:33
+Last updated at 03/29/2021 03:35
