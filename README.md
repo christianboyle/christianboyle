@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYVFcTeJIU08-0-t500x500.png">](https://soundcloud.com/wearetwolanes/reflections)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaVNEwkeI4sK6lef-rNhOew-t500x500.jpg">](https://soundcloud.com/bleuclair/gold)
 
-**Artist**: TWO LANES 
+**Artist**: Bleu Clair 
 
-**Track**: Reflections
+**Track**: Bleu Clair - Gold Feat. Rhiannon Roze
 
-Last updated at 03/29/2021 05:25
+Last updated at 03/29/2021 05:29
