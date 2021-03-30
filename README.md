@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afxoQeJgc9Y8Kbec-YrpHFQ-t500x500.jpg">](https://soundcloud.com/itssodope/we-made-it-so-dope-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q9S3d4HmTUouIpsy-RzDzTA-t500x500.jpg">](https://soundcloud.com/bassrush/subshock-evangelos-runaway)
 
-**Artist**: So Dope 
+**Artist**: Bassrush 
 
-**Track**: We Made It (So Dope VIP)
+**Track**: Subshock & Evangelos - Runaway
 
-Last updated at 03/30/2021 14:26
+Last updated at 03/30/2021 14:28
