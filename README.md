@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F8JuBoFfBoHt-0-t500x500.jpg">](https://soundcloud.com/itskameron/up-there?in=itskameron/sets/kameron-worthy-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lzule0sYcYxy-0-t500x500.jpg">](https://soundcloud.com/cian-ducrot/crocodiles)
 
-**Artist**: Kameron 
+**Artist**: Cian Ducrot 
 
-**Track**: Up There
+**Track**: Crocodiles
 
-Last updated at 03/30/2021 14:42
+Last updated at 03/30/2021 14:44
