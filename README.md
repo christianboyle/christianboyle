@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F9XE9ep7XjNWRVDV-W9erqg-t500x500.jpg">](https://soundcloud.com/emengy/vrg-x-exemplr-grime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBaVtpQtVZgQTJzO-AiT9nA-t500x500.jpg">](https://soundcloud.com/greatrandommusic/far-away)
 
-**Artist**: Emengy 
+**Artist**: Great Random Music 
 
-**Track**: VRG x EXEMPLR - Grime
+**Track**: Kaiya & TYRAZ - Far Away
 
-Last updated at 03/30/2021 15:00
+Last updated at 03/30/2021 15:02
