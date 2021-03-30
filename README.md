@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hHHnNolu3TPa-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-oliver-tree-asshole)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
+**Track**: Lil Yachty, Oliver Tree - Asshole
 
-Last updated at 03/29/2021 19:36
+Last updated at 03/29/2021 19:40
