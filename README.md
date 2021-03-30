@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lzule0sYcYxy-0-t500x500.jpg">](https://soundcloud.com/cian-ducrot/crocodiles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJoPFoxYORPOi2KY-QzOcHQ-t500x500.jpg">](https://soundcloud.com/koastle/stay-close-koastle-dlg)
 
-**Artist**: Cian Ducrot 
+**Artist**: Koastle 
 
-**Track**: Crocodiles
+**Track**: Stay Close - Koastle & DLG.
 
-Last updated at 03/30/2021 14:44
+Last updated at 03/30/2021 14:48
