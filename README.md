@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJzlQ9zlOqzHeGQh-xziWHw-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/lazlow-keep-runnin-visuals-bvsskxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytwASkW7TTPKNGfc-WZfDCA-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast65-nastya-zimens)
 
-**Artist**: LAZLOW 
+**Artist**: Rave Alert 
 
-**Track**: KEEP RUNNIN'
+**Track**: RaveCast65 - Nastya Zimens
 
-Last updated at 03/29/2021 19:41
+Last updated at 03/30/2021 07:52
