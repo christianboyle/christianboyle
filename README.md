@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBaVtpQtVZgQTJzO-AiT9nA-t500x500.jpg">](https://soundcloud.com/greatrandommusic/far-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngOmTCyPtM1JSR7D-vwX7Uw-t500x500.jpg">](https://soundcloud.com/yungskrrt/outsideremix)
 
-**Artist**: Great Random Music 
+**Artist**: Yung Skrrt 
 
-**Track**: Kaiya & TYRAZ - Far Away
+**Track**: Pritty - Outside // Yung Skrrt Remix
 
-Last updated at 03/30/2021 15:02
+Last updated at 03/30/2021 15:04
