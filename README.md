@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhIduwDvKpX9VyVV-RsT2Pg-t500x500.jpg">](https://soundcloud.com/spaceyacht/jeanie-psychosis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UpGFPIM7H74J-0-t500x500.jpg">](https://soundcloud.com/itskameron/solitary-thoughts?in=itskameron/sets/kameron-worthy-ep)
 
-**Artist**: SPACE YACHT 
+**Artist**: Kameron 
 
-**Track**: JEANIE - Psychosis
+**Track**: Solitary Thoughts
 
-Last updated at 03/30/2021 14:32
+Last updated at 03/30/2021 14:36
