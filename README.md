@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pj7lziOnQYJhz0AT-ZFGp1A-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-dj-dynamax-feel-your-body-and-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UH3ihiFD0CTPFIB2-GsOURA-t500x500.jpg">](https://soundcloud.com/discoveryteam/alesso-armin-van-buuren-leave)
 
-**Artist**: M-Project 
+**Artist**: Discovery Team 
 
-**Track**: M-Project & DJ Dynamax - Feel Your Body And Mind
+**Track**: Alesso & Armin Van Buuren - Leave A Little Love (ZNZBR Festival Mix)
 
-Last updated at 03/30/2021 15:15
+Last updated at 03/31/2021 08:46
