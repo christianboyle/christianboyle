@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sm5tz6j3A7Q5-0-t500x500.png">](https://soundcloud.com/heatbeat/heatbeat-mortal-kombat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000472997850-lp5lt1-t500x500.jpg">](https://soundcloud.com/chrissalv/switch-technique-hidden-killah-strog-remix)
 
-**Artist**: heatbeat 
+**Artist**: Chriss 
 
-**Track**: Heatbeat - Mortal Kombat
+**Track**: Switch Technique - Hidden Killah (Strog Remix)
 
-Last updated at 03/31/2021 16:42
+Last updated at 03/31/2021 16:44
