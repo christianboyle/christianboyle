@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngOmTCyPtM1JSR7D-vwX7Uw-t500x500.jpg">](https://soundcloud.com/yungskrrt/outsideremix)
 
-**Artist**: / CRUDE / 
+**Artist**: Yung Skrrt 
 
-**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
+**Track**: Pritty - Outside // Yung Skrrt Remix
 
-Last updated at 03/31/2021 17:38
+Last updated at 03/31/2021 17:45
