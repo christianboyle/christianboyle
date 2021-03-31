@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGz3oeaLaiZyXyhT-MOcQ9w-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/egzod-lunis-leave-the-world-behind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H9eU882IkhSN13g5-TCw1YA-t500x500.jpg">](https://soundcloud.com/badneighbors/fuckyou)
 
-**Artist**: Future Generation 
+**Artist**: BAD NEiGHBORS 
 
-**Track**: Egzod & Lunis - Leave The World Behind
+**Track**: Fuck You (prod. Bugz Ronin)
 
-Last updated at 03/31/2021 08:48
+Last updated at 03/31/2021 08:49
