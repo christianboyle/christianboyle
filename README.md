@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lUdMdrtsSiYnK2K-r5Ei8Q-t500x500.jpg">](https://soundcloud.com/enforcerecords/theonlything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JcElaS5wQDbAebX-021d9w-t500x500.jpg">](https://soundcloud.com/sglily/all)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: @sglilyy 
 
-**Track**: STAR SEED & JECHT - The Only Thing
+**Track**: all（+with3r）
 
-Last updated at 03/31/2021 16:26
+Last updated at 03/31/2021 16:39
