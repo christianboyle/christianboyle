@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngOmTCyPtM1JSR7D-vwX7Uw-t500x500.jpg">](https://soundcloud.com/yungskrrt/outsideremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JcElaS5wQDbAebX-021d9w-t500x500.jpg">](https://soundcloud.com/sglily/all)
 
-**Artist**: Yung Skrrt 
+**Artist**: @sglilyy 
 
-**Track**: Pritty - Outside // Yung Skrrt Remix
+**Track**: all（+with3r）
 
-Last updated at 03/31/2021 11:17
+Last updated at 03/31/2021 12:21
