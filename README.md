@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000591783887-ta51q9-t500x500.jpg">](https://soundcloud.com/chrissalv/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZdVotOUs0oPasiy1-S8kSNg-t500x500.jpg">](https://soundcloud.com/green-muusic/fusionnfire-heart-in-debt-greeen-flip)
 
-**Artist**: Chriss 
+**Artist**: Green 
 
-**Track**: Current Value - Dark Rain
+**Track**: FusionNFire - Heart In Debt (Green Flip)
 
-Last updated at 03/31/2021 09:33
+Last updated at 03/31/2021 09:35
