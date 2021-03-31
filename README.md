@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMcwKnBR2yNfLsxZ-8S1jog-t500x500.jpg">](https://soundcloud.com/theenergyfield/darwin-dark-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
 
-**Artist**: Energy Field 
+**Artist**: Yonexx 
 
-**Track**: Darwin -  Dark World
+**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
 
-Last updated at 03/31/2021 16:10
+Last updated at 03/31/2021 16:14
