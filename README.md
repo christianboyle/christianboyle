@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I31XLagVv3lKDyp3-sgMwEA-t500x500.jpg">](https://soundcloud.com/daniel7official/b-the-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pirZ8RyBFq60Qufg-eusbIw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms25-dan-larkin)
 
-**Artist**: Daniel Seven 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: B The 1
+**Track**: HPHF MS26: DAN LARKIN
 
-Last updated at 03/31/2021 08:52
+Last updated at 03/31/2021 08:54
