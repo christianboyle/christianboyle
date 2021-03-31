@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pirZ8RyBFq60Qufg-eusbIw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms25-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JcElaS5wQDbAebX-021d9w-t500x500.jpg">](https://soundcloud.com/sglily/all)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: @sglilyy 
 
-**Track**: HPHF MS26: DAN LARKIN
+**Track**: all（+with3r）
 
-Last updated at 03/31/2021 09:13
+Last updated at 03/31/2021 09:15
