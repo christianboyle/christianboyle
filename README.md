@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHp6lgt2XaeoJ24e-AY43bw-t500x500.jpg">](https://soundcloud.com/rinsefm/clouds280321?in=pessimist/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtIur8o54NGzjyzy-YMVh3Q-t500x500.jpg">](https://soundcloud.com/arizsi/boyslikeu)
 
-**Artist**: Rinse FM 
+**Artist**: arizsi 
 
-**Track**: Clouds with Pessimist - 28 March 2021
+**Track**: boys like u
 
-Last updated at 04/01/2021 07:39
+Last updated at 04/01/2021 08:42
