@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sm5tz6j3A7Q5-0-t500x500.png">](https://soundcloud.com/heatbeat/heatbeat-mortal-kombat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
 
-**Artist**: heatbeat 
+**Artist**: / CRUDE / 
 
-**Track**: Heatbeat - Mortal Kombat
+**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
 
-Last updated at 04/01/2021 12:47
+Last updated at 04/01/2021 12:49
