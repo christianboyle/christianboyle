@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtIur8o54NGzjyzy-YMVh3Q-t500x500.jpg">](https://soundcloud.com/arizsi/boyslikeu)
 
-**Artist**: / CRUDE / 
+**Artist**: arizsi 
 
-**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
+**Track**: boys like u
 
-Last updated at 04/01/2021 09:40
+Last updated at 04/01/2021 09:42
