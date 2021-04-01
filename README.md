@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtIur8o54NGzjyzy-YMVh3Q-t500x500.jpg">](https://soundcloud.com/arizsi/boyslikeu)
 
-**Artist**: underscores 
+**Artist**: arizsi 
 
-**Track**: Your favorite sidekick (feat. 8485)
+**Track**: boys like u
 
-Last updated at 03/31/2021 17:59
+Last updated at 04/01/2021 07:36
