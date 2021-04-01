@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JcElaS5wQDbAebX-021d9w-t500x500.jpg">](https://soundcloud.com/sglily/all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
 
-**Artist**: @sglilyy 
+**Artist**: / CRUDE / 
 
-**Track**: all（+with3r）
+**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
 
-Last updated at 04/01/2021 09:34
+Last updated at 04/01/2021 09:40
