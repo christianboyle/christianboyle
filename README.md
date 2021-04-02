@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfUxogoUfCdM890F-ktjFBA-t500x500.jpg">](https://soundcloud.com/spinnin-deep/sander-van-doorn-drink-to-get-drunk-eli-fur-remix-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFC0JSWQEuD4Ekvf-Zjo4Pg-t500x500.jpg">](https://soundcloud.com/overeasyofficial/liar-liar-leondis-remix)
 
-**Artist**: Spinnin' Deep 
+**Artist**: OVER EASY 
 
-**Track**: Sander van Doorn - Drink To Get Drunk (Eli & Fur Remix) [OUT NOW]
+**Track**: Liar Liar (Leondis Remix)
 
-Last updated at 04/02/2021 08:59
+Last updated at 04/02/2021 09:01
