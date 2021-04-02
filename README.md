@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0La4yNRhP1mRJY0-z90suQ-t500x500.jpg">](https://soundcloud.com/4_jpn_official/4-dead-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-tOVl9nzLJOuZgv1b-y6mBzA-t500x500.jpg">](https://soundcloud.com/blackswancollective/whos-calling-black-swan-radio-002)
 
-**Artist**: 4*(JPN) 
+**Artist**: Black Swan International 
 
-**Track**: 4* - Dead Love (Radio Edit)
+**Track**: Who's Calling | Black Swan Radio 002
 
-Last updated at 04/02/2021 10:42
+Last updated at 04/02/2021 10:47
