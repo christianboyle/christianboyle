@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9xpMZ5xDrvUlwiLg-9bfP7w-t500x500.jpg">](https://soundcloud.com/vicetone/vicetone-outta-my-mind-feat-allison-kaplan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yaehBlCYDh23xemC-ZzTWWQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-470-feat-daniel-seven)
 
-**Artist**: Vicetone 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Vicetone - Outta My Mind (feat. Allison Kaplan)
+**Track**: KTRA Episode 470 feat. Daniel Seven
 
-Last updated at 04/02/2021 08:03
+Last updated at 04/02/2021 08:05
