@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XYCl7KLkVM75sAwr-lAarQA-t500x500.jpg">](https://soundcloud.com/petitbiscuit/parachute-tony-romera-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtIur8o54NGzjyzy-YMVh3Q-t500x500.jpg">](https://soundcloud.com/arizsi/boyslikeu)
 
-**Artist**: PETIT BISCUIT 
+**Artist**: arizsi 
 
-**Track**: Parachute (Tony Romera Remix)
+**Track**: boys like u
 
-Last updated at 04/02/2021 09:47
+Last updated at 04/02/2021 09:51
