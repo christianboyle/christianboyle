@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000257119487-6fxt99-t500x500.jpg">](https://soundcloud.com/nxcnov17/nxcnov15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxClknTIkXyzBsS-zywfIA-t500x500.jpg">](https://soundcloud.com/agcook/today-dream-mix?in=saxurn/sets/money-flips/)
 
-**Artist**: NXCNOV 2017 
+**Artist**: A. G. Cook 
 
-**Track**: DJ eSPORTS - HEAVEN
+**Track**: Today (Dream Mix)
 
-Last updated at 04/03/2021 15:20
+Last updated at 04/03/2021 15:22
