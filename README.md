@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz82lU1JwGxFFD6R-MMETwQ-t500x500.jpg">](https://soundcloud.com/oneseventy/b0unc3-2-b-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtIur8o54NGzjyzy-YMVh3Q-t500x500.jpg">](https://soundcloud.com/arizsi/boyslikeu)
 
-**Artist**: OneSeventy 
+**Artist**: arizsi 
 
-**Track**: B0UNC3 - 2 B Cool (Radio Edit)
+**Track**: boys like u
 
-Last updated at 04/03/2021 15:12
+Last updated at 04/03/2021 15:14
