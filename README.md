@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73Pez97cUCqaRoqc-Zbw8lQ-t500x500.jpg">](https://soundcloud.com/zuzyy/2-much-remix-zuzy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9BIfw2ykeyJ21MS-IXJvvA-t500x500.jpg">](https://soundcloud.com/misoyaramen/meso-blurrd-vzn-big-facts?in=blurrd_vzn/sets/precision-ep-w-meso)
 
-**Artist**: ZUZY 
+**Artist**: MeSo 
 
-**Track**: 2 Much Remix
+**Track**: MeSo & Blurrd Vzn - Big Facts
 
-Last updated at 04/03/2021 13:10
+Last updated at 04/03/2021 13:12
