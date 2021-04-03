@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gchFd0JkdttCWG6B-ogyUuQ-t500x500.jpg">](https://soundcloud.com/bodygaard/bodygaard-exodus1900-auto-salon-prod-skoolio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000257119487-6fxt99-t500x500.jpg">](https://soundcloud.com/nxcnov17/nxcnov15)
 
-**Artist**: bodyGaard 
+**Artist**: NXCNOV 2017 
 
-**Track**: bodyGaard & Exodus1900 - Auto Salon✱✱ (prod. ­skoolio)
+**Track**: DJ eSPORTS - HEAVEN
 
-Last updated at 04/03/2021 15:18
+Last updated at 04/03/2021 15:20
