@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-tOVl9nzLJOuZgv1b-y6mBzA-t500x500.jpg">](https://soundcloud.com/blackswancollective/whos-calling-black-swan-radio-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xdk0Sk6w6Mk41sxz-3GfI6g-t500x500.jpg">](https://soundcloud.com/1788-l/automaton)
 
-**Artist**: Black Swan International 
+**Artist**: 1788-L 
 
-**Track**: Who's Calling | Black Swan Radio 002
+**Track**: Automaton
 
-Last updated at 04/02/2021 11:45
+Last updated at 04/03/2021 13:04
