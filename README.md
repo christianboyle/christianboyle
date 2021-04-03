@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73qvuH3x0B4HmqpV-S9aYzA-t500x500.jpg">](https://soundcloud.com/5v11/march-samples)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTozRGalZlcL7wQS-fqCwKw-t500x500.jpg">](https://soundcloud.com/cgkin/perfect)
 
-**Artist**: ​5v11 
+**Artist**: CGkin 
 
-**Track**: march samples (+ shinjin, cozin, waifu, kojo, lb66, chillin, senritsu, jxlyy & odece)
+**Track**: perfect
 
-Last updated at 04/03/2021 13:58
+Last updated at 04/03/2021 14:08
