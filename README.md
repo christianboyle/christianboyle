@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G40cT3Nf9zyDKXwx-0pyCkg-t500x500.jpg">](https://soundcloud.com/historyofhappyhardcore/the-remix-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z2lbzDV860rDTzZI-yABEJg-t500x500.jpg">](https://soundcloud.com/dbpatrick-dnb/excession)
 
-**Artist**: History Of Happy Hardcore 
+**Artist**: db patrick 
 
-**Track**: The Remix Mix
+**Track**: Excession (ft The Ragga Twins & M-Tek)
 
-Last updated at 04/04/2021 08:59
+Last updated at 04/04/2021 09:29
