@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz82lU1JwGxFFD6R-MMETwQ-t500x500.jpg">](https://soundcloud.com/oneseventy/b0unc3-2-b-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
 
-**Artist**: OneSeventy 
+**Artist**: POPSTARBILLS 💫 
 
-**Track**: B0UNC3 - 2 B Cool (Radio Edit)
+**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
 
-Last updated at 04/05/2021 15:42
+Last updated at 04/05/2021 15:44
