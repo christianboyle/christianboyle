@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycsrN70i1KbyyAou-gFPzFg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-18-feat-kap-slap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAr6B7cbKGd1yIT4-uTS99w-t500x500.jpg">](https://soundcloud.com/wiwek/wiwek-ft-suraj-suren-dhol-life-1)
 
-**Artist**: syence experiments 
+**Artist**: WIWEK 
 
-**Track**: syence lab: volume 18 (feat. kap slap)
+**Track**: Dhol Life
 
-Last updated at 04/05/2021 11:01
+Last updated at 04/05/2021 12:02
