@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JqB4n09f424B-0-t500x500.jpg">](https://soundcloud.com/tommycashofficial/zuccenberg-feat-uicideboy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Aa8pQjynJFh9N4tz-z8yPag-t500x500.jpg">](https://soundcloud.com/kastramusic/kastra-fool-for-you?in=weareplusplus/sets/best-electronic-music-march-2)
 
-**Artist**: Tommy Cash 
+**Artist**: Kastra 
 
-**Track**: Zuccenberg (feat. $uicideboy$ & Diplo)
+**Track**: Kastra - Fool For You
 
-Last updated at 04/05/2021 10:59
+Last updated at 04/05/2021 11:00
