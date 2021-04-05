@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NAr6B7cbKGd1yIT4-uTS99w-t500x500.jpg">](https://soundcloud.com/wiwek/wiwek-ft-suraj-suren-dhol-life-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000057465713-l3f1se-t500x500.jpg">](https://soundcloud.com/steveaoki/steve-aoki-chris-lake-tujamo-1)
 
-**Artist**: WIWEK 
+**Artist**: Steve Aoki 
 
-**Track**: Dhol Life
+**Track**: Steve Aoki, Chris Lake, & Tujamo - Boneless (Keys N Krates Remix)
 
-Last updated at 04/05/2021 12:02
+Last updated at 04/05/2021 12:04
