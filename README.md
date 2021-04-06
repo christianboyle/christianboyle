@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DruotI92Wu0RtFau-Lnyi6w-t500x500.jpg">](https://soundcloud.com/dreamtakers/dirty-ruvlo-dream-takers-boot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxmX9MhmqpNE-0-t500x500.png">](https://soundcloud.com/niiko_swae/niiko-x-swae-feat-april-bender)
 
-**Artist**: Dream Takers 
+**Artist**: Niiko x SWAE 
 
-**Track**: Dirty - Ruvlo (Dream Takers x Boot Snake Flip)
+**Track**: Niiko x SWAE feat. April Bender - I Ain't Going Home
 
-Last updated at 04/05/2021 20:31
+Last updated at 04/05/2021 20:33
