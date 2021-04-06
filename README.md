@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjFPuwRy0MBpjJgP-CLCzEg-t500x500.jpg">](https://soundcloud.com/lowderz/bam-bam-lowderz-remix?in=lowderz/sets/bam-bam-lowderz-remix-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2m4Kf9G8pooziv1j-1LLrXg-t500x500.jpg">](https://soundcloud.com/beamermane/strange-addiction-ep)
 
-**Artist**: LOWDERZ 
+**Artist**: BEAMER MANE 
 
-**Track**: Bam Bam (Lowderz Remix)
+**Track**: STRANGE ADDICTION
 
-Last updated at 04/05/2021 19:56
+Last updated at 04/05/2021 19:58
