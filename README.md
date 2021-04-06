@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utHhnFJVqe6zbMtD-7i8kEw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/wylin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M6RcYGA4AslYMAIv-i81lqw-t500x500.jpg">](https://soundcloud.com/huskyyyy/pure-love)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: husky 
 
-**Track**: WYLIN ft. KENNEDYXOXO & KENNY ORLANDO [prod. POPSTARBILLS x REDLUKE]
+**Track**: Pure Love
 
-Last updated at 04/05/2021 15:44
+Last updated at 04/05/2021 19:54
