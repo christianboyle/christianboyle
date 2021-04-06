@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-knNlbB05SV7LOxMW-5U1ESw-t500x500.jpg">](https://soundcloud.com/dianpty/outcome?in=dianpty/sets/bloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qmf29FBy3tzZYd1B-QEDvFw-t500x500.jpg">](https://soundcloud.com/balamii/lounging-w-josh-april-2021)
 
-**Artist**: Dian 🌹 
+**Artist**: Balamii 
 
-**Track**: Outcome
+**Track**: Lounging w/ Josh - April 2021
 
-Last updated at 04/06/2021 08:08
+Last updated at 04/06/2021 08:09
