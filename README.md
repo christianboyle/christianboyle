@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wwMoftvpsernpMhJ-uCrAtQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/the-1975-if-youre-too-shy-let-me-know-fells-remix?in=saxurn/sets/reality-mind-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/reality-mind-side)
 
-**Artist**: Fells 
+**Artist**: texas baby 
 
-**Track**: The 1975 - If You're Too Shy (Let Me Know) [Fells Remix]
+**Track**: rmr - rascal (texas baby rmx)
 
-Last updated at 04/06/2021 16:40
+Last updated at 04/06/2021 16:44
