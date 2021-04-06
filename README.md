@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx?in=saxurn/sets/reality-mind-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5AHLDmdpR9PYw2g-N2Vyzw-t500x500.jpg">](https://soundcloud.com/gravedgrmusic/mariavip?in=saxurn/sets/reality-mind-side)
 
-**Artist**: texas baby 
+**Artist**: GRAVEDGR 
 
-**Track**: rmr - rascal (texas baby rmx)
+**Track**: MARIA (GRAVEDGR VIP)
 
-Last updated at 04/06/2021 16:44
+Last updated at 04/06/2021 16:48
