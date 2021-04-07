@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZWzCRK1C8xdfuOsc-QpdWww-t500x500.jpg">](https://soundcloud.com/djyungvampire13/die-trill-vol3-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t500x500.jpg">](https://soundcloud.com/baauer/boptape2?in=baauer/sets/the-boptape)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: Baauer • PLANET'S MAD 
 
-**Track**: DIE TRILL VOL.3 MIXTAPE (MUSIC VIDEO + SPOTIFY OUT NOW)
+**Track**: 2 - Yank 2 Diddy Style
 
-Last updated at 04/07/2021 11:21
+Last updated at 04/07/2021 11:23
