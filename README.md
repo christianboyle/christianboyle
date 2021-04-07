@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbUOI4SL5GlRTdFj-0rxVZA-t500x500.jpg">](https://soundcloud.com/longjawns/jawnsdigitalmiragefullset)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O7GO3CVjCtbTxW54-ZaGZWA-t500x500.jpg">](https://soundcloud.com/balamii/dre-digital-w-no_4mat-january-2021?in=no_4mat/sets/no_4mat-mixes)
 
-**Artist**: JAWNS 
+**Artist**: Balamii 
 
-**Track**: Digital Mirage Full Set 11/28/2020
+**Track**: Dre Digital w/ No_4mat - January 2021
 
-Last updated at 04/07/2021 12:03
+Last updated at 04/07/2021 13:08
