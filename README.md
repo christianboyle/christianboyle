@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oiEl8a2zfxjoLZyq-xNzaNw-t500x500.jpg">](https://soundcloud.com/levistrauck/road-trip-ft-grimyboi-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzOe3nmPHF9gmfno-I3OTIg-t500x500.jpg">](https://soundcloud.com/greenpiccolobeats/making-moves)
 
-**Artist**: levi strauck 
+**Artist**: GREEN PICCOLO 
 
-**Track**: road trip (ft. GRIMYBOi & Phaea)
+**Track**: Making Moves
 
-Last updated at 04/08/2021 15:18
+Last updated at 04/08/2021 15:20
