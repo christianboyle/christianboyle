@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzOe3nmPHF9gmfno-I3OTIg-t500x500.jpg">](https://soundcloud.com/greenpiccolobeats/making-moves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpmDee306Rx3nT0f-39HHcA-t500x500.jpg">](https://soundcloud.com/jakka-b/kr026)
 
-**Artist**: GREEN PICCOLO 
+**Artist**: Jakka-B 
 
-**Track**: Making Moves
+**Track**: Kontrast Radio #026 [DJ Shimamura Takeover]
 
-Last updated at 04/08/2021 15:20
+Last updated at 04/08/2021 15:22
