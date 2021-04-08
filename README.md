@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpmDee306Rx3nT0f-39HHcA-t500x500.jpg">](https://soundcloud.com/jakka-b/kr026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrZHln0t4Idl8Jtc-gePEzg-t500x500.jpg">](https://soundcloud.com/topdrawerdigital/kefford-back-to-yesterday-tddr085-top-drawer-digital)
 
-**Artist**: Jakka-B 
+**Artist**: Top Drawer Digital 
 
-**Track**: Kontrast Radio #026 [DJ Shimamura Takeover]
+**Track**: KEFFORD - Back To Yesterday [TDDR085 Top Drawer Digital ]
 
-Last updated at 04/08/2021 15:22
+Last updated at 04/08/2021 16:06
