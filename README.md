@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-radNTeocKWig2x5Z-fXyDMw-t500x500.jpg">](https://soundcloud.com/nollmusic/tongue_tied_rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzOe3nmPHF9gmfno-I3OTIg-t500x500.jpg">](https://soundcloud.com/greenpiccolobeats/making-moves)
 
-**Artist**: nøll 
+**Artist**: GREEN PICCOLO 
 
-**Track**: Marshmello, YUNGBLUD, blackbear - Tongue Tied (nøll Remix)
+**Track**: Making Moves
 
-Last updated at 04/08/2021 15:06
+Last updated at 04/08/2021 15:08
