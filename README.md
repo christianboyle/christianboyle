@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzOe3nmPHF9gmfno-I3OTIg-t500x500.jpg">](https://soundcloud.com/greenpiccolobeats/making-moves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CGSdWICQDHTqJCxl-OSAwWg-t500x500.jpg">](https://soundcloud.com/immnnt/teneki-tekne?in=teneki/sets/tekne-imminent)
 
-**Artist**: GREEN PICCOLO 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Making Moves
+**Track**: TENEKI — TEKNE
 
-Last updated at 04/08/2021 15:08
+Last updated at 04/08/2021 15:12
