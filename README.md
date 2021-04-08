@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000672461521-93amdn-t500x500.jpg">](https://soundcloud.com/m0llygum/have-you-eaten-featno_4mat?in=no_4mat/sets/no_4mat-mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDr5J1ZqZxYTSvNR-6G0Z2Q-t500x500.jpg">](https://soundcloud.com/autumninjune/cute-veins)
 
-**Artist**: M0llygum 
+**Artist**: Autumn In June 
 
-**Track**: Have you eaten. feat.No_4mat
+**Track**: Cute Veins
 
-Last updated at 04/08/2021 14:10
+Last updated at 04/08/2021 15:02
