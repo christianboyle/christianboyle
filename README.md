@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yiItaE0YDfxk1ME-7O8Q5A-t500x500.jpg">](https://soundcloud.com/aqnb/aj-simons-umru-hate-it-love-it-2021-courtesy-aqnb-london-los-angeles?in=umru/sets/umru-hard-listening)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybR9ZufQU5frSDBq-rhR2EQ-t500x500.jpg">](https://soundcloud.com/brodinskiofficial/3-reddo-brodinski-creek)
 
-**Artist**: AQNB 
+**Artist**: Brodinski 
 
-**Track**: Aj simons & umru, 'Hate it, love it' (2021). Courtesy AQNB, London; Los Angeles.
+**Track**: Reddo & Brodinski - Creek
 
-Last updated at 04/09/2021 11:44
+Last updated at 04/09/2021 11:46
