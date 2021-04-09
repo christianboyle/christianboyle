@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000650261884-efpidx-t500x500.jpg">](https://soundcloud.com/whoskid/daft-punk-doin-it-right-kid-remix-v2?in=saxurn/sets/money-flips/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000517384266-yhynif-t500x500.jpg">](https://soundcloud.com/teddycream/papa-roach-last-resort-teddy-cream-bootleg?in=saxurn/sets/money-flips/)
 
-**Artist**: k?d 
+**Artist**: Teddy Cream 
 
-**Track**: Daft Punk - Doin' It Right (k?d Remix V2)
+**Track**: Papa Roach - Last Resort (Teddy Cream Bootleg)
 
-Last updated at 04/09/2021 18:36
+Last updated at 04/09/2021 18:41
