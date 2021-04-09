@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime?in=saxurn/sets/reality-mind-side)
 
-**Artist**: Yonexx 
+**Artist**: Midnight Kids 
 
-**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
+**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
 
-Last updated at 04/09/2021 12:32
+Last updated at 04/09/2021 15:51
