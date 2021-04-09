@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000155934018-n9mai6-t500x500.jpg">](https://soundcloud.com/roland-bingham/huda-hudia-tony-faline-unified-funk-florida-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qsFPkNE2CMfis2o4-WW7Bew-t500x500.jpg">](https://soundcloud.com/balamii/elise-w-equiss-april-2021)
 
-**Artist**: Roland Bingham 
+**Artist**: Balamii 
 
-**Track**: Huda Hudia & Tony Faline - Unified Funk - Florida Breaks
+**Track**: ELISE w/ EQUISS - April 2021
 
-Last updated at 04/08/2021 16:08
+Last updated at 04/09/2021 08:17
