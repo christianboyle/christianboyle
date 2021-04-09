@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MPy6NVfzOgdw-0-t500x500.jpg">](https://soundcloud.com/smash-mouth-official/all-star-1?in=saxurn/sets/money-flips/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000663819142-ozkatn-t500x500.jpg">](https://soundcloud.com/itshellbound/betteroffalonehb?in=saxurn/sets/money-flips/)
 
-**Artist**: Smash Mouth 
+**Artist**: HELLBOUND! 
 
-**Track**: All Star (Breathe Carolina Remix)
+**Track**: BETTER OFF ALONE (HELLBOUND! REMIX)
 
-Last updated at 04/09/2021 18:27
+Last updated at 04/09/2021 18:31
