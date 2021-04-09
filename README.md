@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000472997850-lp5lt1-t500x500.jpg">](https://soundcloud.com/chrissalv/switch-technique-hidden-killah-strog-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZdVotOUs0oPasiy1-S8kSNg-t500x500.jpg">](https://soundcloud.com/green-muusic/fusionnfire-heart-in-debt-greeen-flip)
 
-**Artist**: Chriss 
+**Artist**: Green 
 
-**Track**: Switch Technique - Hidden Killah (Strog Remix)
+**Track**: FusionNFire - Heart In Debt (Green Flip)
 
-Last updated at 04/09/2021 12:03
+Last updated at 04/09/2021 12:09
