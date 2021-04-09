@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxClknTIkXyzBsS-zywfIA-t500x500.jpg">](https://soundcloud.com/agcook/today-dream-mix?in=saxurn/sets/money-flips/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsZ1T84klyPsaCUf-UhJnlA-t500x500.jpg">](https://soundcloud.com/plausibleunreleased/vengaboys-4-x-boom-plausibles-dnb-remix?in=saxurn/sets/money-flips/)
 
-**Artist**: A. G. Cook 
+**Artist**: PLAUSiBLE UNRELEASED 
 
-**Track**: Today (Dream Mix)
+**Track**: VENGABOYS - 4 X BOOM (PLAUSiBLE'S D'N'B REMiX)
 
-Last updated at 04/09/2021 18:45
+Last updated at 04/09/2021 18:49
