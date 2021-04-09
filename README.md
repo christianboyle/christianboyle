@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFkX22JzysyluEZq-h1CxCg-t500x500.jpg">](https://soundcloud.com/blvdmusic/marshmello-halsey-be-kind-blvd-remix?in=saxurn/sets/reality-body-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aRSydcCusVwUixt-hMBj0Q-t500x500.jpg">](https://soundcloud.com/yitakulxiv/jaded?in=saxurn/sets/reality-body-side)
 
-**Artist**: BLVD. 
+**Artist**: yitaku 
 
-**Track**: Marshmello x Halsey - Be Kind [BLVD. Remix]
+**Track**: Jaded
 
-Last updated at 04/09/2021 17:07
+Last updated at 04/09/2021 17:12
