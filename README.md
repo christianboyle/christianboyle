@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000028236591-avt8ee-t500x500.jpg">](https://soundcloud.com/nodoubt/sdbaauerremix?in=saxurn/sets/money-flips/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxClknTIkXyzBsS-zywfIA-t500x500.jpg">](https://soundcloud.com/agcook/today-dream-mix?in=saxurn/sets/money-flips/)
 
-**Artist**: No Doubt 
+**Artist**: A. G. Cook 
 
-**Track**: No Doubt - Settle Down (Baauer Remix)
+**Track**: Today (Dream Mix)
 
-Last updated at 04/09/2021 18:43
+Last updated at 04/09/2021 18:45
