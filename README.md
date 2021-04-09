@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime?in=saxurn/sets/reality-mind-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsFqSswxSNaSEyrl-WUfcpw-t500x500.jpg">](https://soundcloud.com/bkayeofficial/justin-bieber-intentions-bkaye-remix-1?in=saxurn/sets/reality-mind-side)
 
-**Artist**: Midnight Kids 
+**Artist**: BKAYE 
 
-**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
+**Track**: Justin Bieber - Intentions (BKAYE Remix)
 
-Last updated at 04/09/2021 15:51
+Last updated at 04/09/2021 15:54
