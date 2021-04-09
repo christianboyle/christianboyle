@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzTHCABZqkTSo6gr-DaVxiA-t500x500.jpg">](https://soundcloud.com/lucalush/juelz-ft-thelonious-pour-all-night-luca-lush-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gchFd0JkdttCWG6B-ogyUuQ-t500x500.jpg">](https://soundcloud.com/bodygaard/bodygaard-exodus1900-auto-salon-prod-skoolio)
 
-**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
+**Artist**: bodyGaard 
 
-**Track**: Juelz ft. Thelonious - Pour All Night (LUCA LUSH Remix)
+**Track**: bodyGaard & Exodus1900 - Auto Salon✱✱ (prod. ­skoolio)
 
-Last updated at 04/09/2021 11:50
+Last updated at 04/09/2021 11:54
