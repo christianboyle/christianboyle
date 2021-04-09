@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qmf29FBy3tzZYd1B-QEDvFw-t500x500.jpg">](https://soundcloud.com/balamii/lounging-w-josh-april-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360861243-dnz94h-t500x500.jpg">](https://soundcloud.com/msmsmsm/not-okay?in=umru/sets/umru-hard-listening)
 
-**Artist**: Balamii 
+**Artist**: SOPHIE 
 
-**Track**: Lounging w/ Josh - April 2021
+**Track**: Not Okay
 
-Last updated at 04/09/2021 08:31
+Last updated at 04/09/2021 11:42
