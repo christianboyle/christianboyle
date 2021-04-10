@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cc5SHzqkQMa1-0-t500x500.jpg">](https://soundcloud.com/bludetiger/vintage-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EeQfy61VqBRTEsBq-Oor3TA-t500x500.jpg">](https://soundcloud.com/stickybuds/lovestream)
 
-**Artist**: Blu DeTiger 
+**Artist**: Stickybuds 
 
-**Track**: Vintage
+**Track**: Stickybuds - Love Stream Mix (2021 Chill)
 
-Last updated at 04/10/2021 09:40
+Last updated at 04/10/2021 09:42
