@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbyCTGdm06bYx440-6PMtMA-t500x500.jpg">](https://soundcloud.com/balamii/stir-fry-w-d-vibes-april-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
 
-**Artist**: Balamii 
+**Artist**: Madjestic Kasual 
 
-**Track**: Stir Fry w/ D-Vibes - April 2021
+**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
 
-Last updated at 04/12/2021 08:38
+Last updated at 04/12/2021 08:44
