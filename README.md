@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRcJdwDN0cKqj3M0-6XNsSA-t500x500.jpg">](https://soundcloud.com/possessiontechno/tdj-possession-podcast)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Possession 
 
-**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
+**Track**: POSSESSION PODCAST #166 - TDJ
 
-Last updated at 04/12/2021 08:44
+Last updated at 04/12/2021 08:46
