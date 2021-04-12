@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CGSdWICQDHTqJCxl-OSAwWg-t500x500.jpg">](https://soundcloud.com/immnnt/teneki-tekne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3XIPskuMQ0cmhFq-yqK90Q-t500x500.jpg">](https://soundcloud.com/slimezmusic/another-level)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: Slimez 
 
-**Track**: TENEKI — TEKNE
+**Track**: Another Level
 
-Last updated at 04/12/2021 15:40
+Last updated at 04/12/2021 15:44
