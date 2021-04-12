@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O2zTyx1ysrb7uSN3-H7tvOg-t500x500.jpg">](https://soundcloud.com/fungeey/kj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOimlvyP8y3wn2z0-6Cp8WA-t500x500.jpg">](https://soundcloud.com/wuandss/6ixxx)
 
-**Artist**: fungeey 
+**Artist**: nvwvn 
 
-**Track**: Former Hero - KJ (Fungeey Remix)
+**Track**: 6IXXX
 
-Last updated at 04/12/2021 17:39
+Last updated at 04/12/2021 17:41
