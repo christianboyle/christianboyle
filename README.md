@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S4vdTvDyzpL9Ajvu-jIz9hQ-t500x500.jpg">](https://soundcloud.com/speedstrmusic/speedstr-break-the-house-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbyCTGdm06bYx440-6PMtMA-t500x500.jpg">](https://soundcloud.com/balamii/stir-fry-w-d-vibes-april-2021)
 
-**Artist**: SpeedStr 
+**Artist**: Balamii 
 
-**Track**: SpeedStr - Break The House Down
+**Track**: Stir Fry w/ D-Vibes - April 2021
 
-Last updated at 04/12/2021 18:12
+Last updated at 04/12/2021 18:14
