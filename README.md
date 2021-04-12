@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRcJdwDN0cKqj3M0-6XNsSA-t500x500.jpg">](https://soundcloud.com/possessiontechno/tdj-possession-podcast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000547993116-1md8hp-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-glacci-xtc-sunstroke-doctor-jeep-remix?in=goodenuff/sets/glacci-nightshade)
 
-**Artist**: Possession 
+**Artist**: Mixmag 
 
-**Track**: POSSESSION PODCAST #166 - TDJ
+**Track**: Premiere: Glacci 'XTC Sunstroke' (Doctor Jeep Remix)
 
-Last updated at 04/12/2021 08:46
+Last updated at 04/12/2021 09:45
