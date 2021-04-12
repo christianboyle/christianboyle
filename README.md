@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4Qg91u1zguF1QB5-QKbuzg-t500x500.jpg">](https://soundcloud.com/phzes/phzed-confused-mix-12-guest-mix-w-puffcorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-96TmioYebtTuSIQ3-r4K3UQ-t500x500.jpg">](https://soundcloud.com/pushingdaizies/on-my-own)
 
-**Artist**: PHZES 
+**Artist**: pushing daizies 
 
-**Track**: PHZED & Confused Mix 12: Guest Mix w/ PuFFcorn
+**Track**: On mY oWn (original mix)
 
-Last updated at 04/12/2021 13:44
+Last updated at 04/12/2021 15:38
