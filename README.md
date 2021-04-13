@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cbz09RR0cTLA7Y8Q-9SiaxQ-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/superheat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
 
-**Artist**: gyrofield 
+**Artist**: Madjestic Kasual 
 
-**Track**: Superheat
+**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
 
-Last updated at 04/12/2021 20:07
+Last updated at 04/12/2021 20:09
