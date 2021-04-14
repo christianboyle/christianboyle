@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ubEnfJbaTVXfy9yv-IF05ow-t500x500.jpg">](https://soundcloud.com/signal49762/slips-slurs-mihka-wifi-tears-hardcorerave-bootleg)
 
-**Artist**: glaive 
+**Artist**: Signal (Second 2 ) 
 
-**Track**: dnd
+**Track**: Slips & Slurs & Mihka! - WiFi Tears (HARDCORERAVE BOOTLEG )
 
-Last updated at 04/14/2021 08:49
+Last updated at 04/14/2021 08:51
