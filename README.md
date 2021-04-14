@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rOjmRdD0Dy7rOmrM-0JwRnQ-t500x500.jpg">](https://soundcloud.com/ilyacesavage/ace-savage-dear-best-friend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5vmxAp7wSyykhjW-HVcJKA-t500x500.jpg">](https://soundcloud.com/hailuresound/dnd)
 
-**Artist**: Ace Savage 
+**Artist**: Hailure 
 
-**Track**: Ace Savage - Dear Best Friend
+**Track**: glaive - dnd (Hailure Remix)
 
-Last updated at 04/14/2021 12:11
+Last updated at 04/14/2021 12:13
