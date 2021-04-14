@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000243746722-xp34vo-t500x500.jpg">](https://soundcloud.com/namasenda/ok-bye-3?in=namasenda/sets/hot_babe_93)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5vmxAp7wSyykhjW-HVcJKA-t500x500.jpg">](https://soundcloud.com/hailuresound/dnd)
 
-**Artist**: namasenda 
+**Artist**: Hailure 
 
-**Track**: OK Bye
+**Track**: glaive - dnd (Hailure Remix)
 
-Last updated at 04/14/2021 08:43
+Last updated at 04/14/2021 08:47
