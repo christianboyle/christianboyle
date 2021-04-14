@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afZkH1ViNUHDpAO0-2Ib4ag-t500x500.jpg">](https://soundcloud.com/ynxprod/wihtoutyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
 
-**Artist**: Yonexx 
+**Artist**: glaive 
 
-**Track**: The Kid LAROI - WITHOUT YOU (Yonexx Remix)
+**Track**: dnd
 
-Last updated at 04/14/2021 11:42
+Last updated at 04/14/2021 12:09
