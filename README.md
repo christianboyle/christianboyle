@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000547993116-1md8hp-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-glacci-xtc-sunstroke-doctor-jeep-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GutSQQq3egB-0-t500x500.jpg">](https://soundcloud.com/shallnotfade/otik-zero-sum-game)
 
-**Artist**: Mixmag 
+**Artist**: Shall Not Fade 
 
-**Track**: Premiere: Glacci 'XTC Sunstroke' (Doctor Jeep Remix)
+**Track**: Otik - Zero-Sum Game
 
-Last updated at 04/14/2021 12:25
+Last updated at 04/14/2021 15:32
