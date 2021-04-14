@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rOjmRdD0Dy7rOmrM-0JwRnQ-t500x500.jpg">](https://soundcloud.com/ilyacesavage/ace-savage-dear-best-friend)
 
-**Artist**: glaive 
+**Artist**: Ace Savage 
 
-**Track**: dnd
+**Track**: Ace Savage - Dear Best Friend
 
-Last updated at 04/14/2021 12:09
+Last updated at 04/14/2021 12:11
