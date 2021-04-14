@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rOjmRdD0Dy7rOmrM-0JwRnQ-t500x500.jpg">](https://soundcloud.com/ilyacesavage/ace-savage-dear-best-friend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZpqJjfqnGBvy-0-t500x500.jpg">](https://soundcloud.com/alice-longyu-gao/she-abunai?in=astraking/sets/astra-kings-observatory)
 
-**Artist**: Ace Savage 
+**Artist**: Alice Longyu Gao 
 
-**Track**: Ace Savage - Dear Best Friend
+**Track**: She Abunai
 
-Last updated at 04/14/2021 08:39
+Last updated at 04/14/2021 08:41
