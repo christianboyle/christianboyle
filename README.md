@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ubEnfJbaTVXfy9yv-IF05ow-t500x500.jpg">](https://soundcloud.com/signal49762/slips-slurs-mihka-wifi-tears-hardcorerave-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GutSQQq3egB-0-t500x500.jpg">](https://soundcloud.com/shallnotfade/otik-zero-sum-game)
 
-**Artist**: Signal (Second 2 ) 
+**Artist**: Shall Not Fade 
 
-**Track**: Slips & Slurs & Mihka! - WiFi Tears (HARDCORERAVE BOOTLEG )
+**Track**: Otik - Zero-Sum Game
 
-Last updated at 04/14/2021 12:17
+Last updated at 04/14/2021 12:19
