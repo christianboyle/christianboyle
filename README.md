@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5vmxAp7wSyykhjW-HVcJKA-t500x500.jpg">](https://soundcloud.com/hailuresound/dnd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
 
-**Artist**: Hailure 
+**Artist**: glaive 
 
-**Track**: glaive - dnd (Hailure Remix)
+**Track**: dnd
 
-Last updated at 04/14/2021 08:47
+Last updated at 04/14/2021 08:49
