@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaePwEVqLGJyIakd-fIgU3g-t500x500.jpg">](https://soundcloud.com/prodescobar/for-the-one-time-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ubEnfJbaTVXfy9yv-IF05ow-t500x500.jpg">](https://soundcloud.com/signal49762/slips-slurs-mihka-wifi-tears-hardcorerave-bootleg)
 
-**Artist**: 1.9.9.9 
+**Artist**: Signal (Second 2 ) 
 
-**Track**: 𝐅𝐎𝐑 𝐓𝐇𝐄 𝐎𝐍𝐄 𝐓𝐈𝐌𝐄
+**Track**: Slips & Slurs & Mihka! - WiFi Tears (HARDCORERAVE BOOTLEG )
 
-Last updated at 04/14/2021 08:27
+Last updated at 04/14/2021 08:29
