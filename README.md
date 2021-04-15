@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GutSQQq3egB-0-t500x500.jpg">](https://soundcloud.com/shallnotfade/otik-zero-sum-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydWYiVjZpnX5PThW-ryZjtQ-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-097-ship-sket)
 
-**Artist**: Shall Not Fade 
+**Artist**: Boiler Room 
 
-**Track**: Otik - Zero-Sum Game
+**Track**: Hard Dance 097: Ship Sket
 
-Last updated at 04/14/2021 15:32
+Last updated at 04/15/2021 08:03
