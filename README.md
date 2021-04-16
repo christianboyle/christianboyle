@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334681152-k6ym5t-t500x500.jpg">](https://soundcloud.com/universallaxiom/kach-ft-universall-axiom-kaleidoscope-motion-the-bearings?in=universallaxiom/sets/kach-ft-universall-axiom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
 
-**Artist**: UniversAll Axiom 
+**Artist**: glaive 
 
-**Track**: Kach ft. UniversAll Axiom - Kaleidoscope Motion The Bearings (Lo-Fi Mix)
+**Track**: dnd
 
-Last updated at 04/16/2021 08:30
+Last updated at 04/16/2021 08:32
