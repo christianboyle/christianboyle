@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000232190463-24lk95-t500x500.jpg">](https://soundcloud.com/breademoji/b-someone-else-b-yr-self)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000575673878-y5be6e-t500x500.jpg">](https://soundcloud.com/nightcorey/boyfriend)
 
-**Artist**: bread emoji 
+**Artist**: nightcorey 
 
-**Track**: b someone else, b yr self
+**Track**: boyfriend
 
-Last updated at 04/16/2021 19:39
+Last updated at 04/16/2021 19:41
