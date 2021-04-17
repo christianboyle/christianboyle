@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000083459601-4hq2lb-t500x500.jpg">](https://soundcloud.com/lilangelboi/guilty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzroGKKHtwwY2QN6-XjKFdw-t500x500.jpg">](https://soundcloud.com/leeraymondmusic/61-to-rose-lane-ft-roxze)
 
-**Artist**: lilangelboi 
+**Artist**: Lee Raymond 
 
-**Track**: guilty
+**Track**: 61 To Rose Lane (Ft. Roxze)
 
-Last updated at 04/16/2021 19:50
+Last updated at 04/16/2021 19:52
