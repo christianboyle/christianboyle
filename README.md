@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000103055377-97ogiz-t500x500.jpg">](https://soundcloud.com/dokomusic/doko-bubblegum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000144513130-un8vmu-t500x500.jpg">](https://soundcloud.com/ewanstrauss/bipp-sophie-cover-feat-hatsune-miku)
 
-**Artist**: DOKO 
+**Artist**: Ewan Strauss 
 
-**Track**: DOKO - BUBBLEGUM
+**Track**: Bipp (SOPHIE Cover Feat. Hatsune Miku)
 
-Last updated at 04/16/2021 19:28
+Last updated at 04/16/2021 19:30
