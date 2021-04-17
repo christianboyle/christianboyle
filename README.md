@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000088575917-i9m93p-t500x500.jpg">](https://soundcloud.com/ponibbi/heartskip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000103055377-97ogiz-t500x500.jpg">](https://soundcloud.com/dokomusic/doko-bubblegum)
 
-**Artist**: Ponibbi 
+**Artist**: DOKO 
 
-**Track**: HEARTSKIP
+**Track**: DOKO - BUBBLEGUM
 
-Last updated at 04/16/2021 19:26
+Last updated at 04/16/2021 19:28
