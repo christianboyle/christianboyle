@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000275659934-1lnqgx-t500x500.jpg">](https://soundcloud.com/crapface/sophie-hardcrapface-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vHKzConKAp1IcLcy-dBJTTg-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/starlyte-harley-bird-not-letting-go-1)
 
-**Artist**: CRAPFACE 
+**Artist**: Chill Planet 
 
-**Track**: Sophie - Hard(crapface remix)
+**Track**: STARLYTE & Harley Bird - Not Letting Go
 
-Last updated at 04/16/2021 19:45
+Last updated at 04/16/2021 19:48
