@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000142962957-h78esy-t500x500.jpg">](https://soundcloud.com/coolteens/goodbye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000232190463-24lk95-t500x500.jpg">](https://soundcloud.com/breademoji/b-someone-else-b-yr-self)
 
-**Artist**: Cool ✨ Teens 
+**Artist**: bread emoji 
 
-**Track**: SOPHIE - JUST LIKE WE NEVER SAID GOODBYE (Cool Teens IDL Rmx)
+**Track**: b someone else, b yr self
 
-Last updated at 04/16/2021 19:34
+Last updated at 04/16/2021 19:39
