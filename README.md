@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ull5YrpLGz1l0L4P-dkmIKQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/arctic-ops-creatine-frost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZHCcYWURgYzL45k-6Soqhw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/scene-kid-trance-anthem-2021)
 
 **Artist**: Hyde Park Hi-Fi 
 
-**Track**: Arctic Ops - Creatine Frost
+**Track**: Nicki Minaj 2 - scene kid trance anthem 2021! ° (^▿^) °
 
-Last updated at 04/17/2021 21:29
+Last updated at 04/18/2021 08:32
