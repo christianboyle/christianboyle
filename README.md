@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGgOcPLqvvepwGSZ-VKm7Vw-t500x500.jpg">](https://soundcloud.com/wevlth/come-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000614513485-i141ik-t500x500.jpg">](https://soundcloud.com/corevl/summerjam)
 
-**Artist**: WEVLTH 
+**Artist**: COREAL 🐬 
 
-**Track**: COME ALIVE
+**Track**: SUMMER JAM
 
-Last updated at 04/17/2021 20:39
+Last updated at 04/17/2021 20:41
