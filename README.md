@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzroGKKHtwwY2QN6-XjKFdw-t500x500.jpg">](https://soundcloud.com/leeraymondmusic/61-to-rose-lane-ft-roxze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xEMmJoJgA51XYyI2-0JC1Vw-t500x500.jpg">](https://soundcloud.com/pouya-kevin/pouya-fat-nick-big-glocks)
 
-**Artist**: Lee Raymond 
+**Artist**: Pouya . 
 
-**Track**: 61 To Rose Lane (Ft. Roxze)
+**Track**: Pouya & Fat Nick - Big Glocks
 
-Last updated at 04/16/2021 19:52
+Last updated at 04/17/2021 20:37
