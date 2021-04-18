@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000614338592-fx7tka-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/girl-tool-66)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
+**Track**: Girl Tool - #66
 
-Last updated at 04/17/2021 21:12
+Last updated at 04/17/2021 21:14
