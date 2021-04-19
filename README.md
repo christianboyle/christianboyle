@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500145102-ak6qsf-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/tool-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: underscores 
 
-**Track**: Girl Tool - #8
+**Track**: Your favorite sidekick (feat. 8485)
 
-Last updated at 04/19/2021 13:23
+Last updated at 04/19/2021 13:37
