@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXfcfqO5XDvhNyk7-sx7pTA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/memories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz82lU1JwGxFFD6R-MMETwQ-t500x500.jpg">](https://soundcloud.com/oneseventy/b0unc3-2-b-cool)
 
-**Artist**: Quickdrop 
+**Artist**: OneSeventy 
 
-**Track**: Memories (with B0UNC3 & QUB3)
+**Track**: B0UNC3 - 2 B Cool (Radio Edit)
 
-Last updated at 04/19/2021 13:47
+Last updated at 04/19/2021 13:49
