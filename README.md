@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzTHCABZqkTSo6gr-DaVxiA-t500x500.jpg">](https://soundcloud.com/lucalush/juelz-ft-thelonious-pour-all-night-luca-lush-remix)
 
-**Artist**: Madjestic Kasual 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
+**Track**: Juelz ft. Thelonious - Pour All Night (LUCA LUSH Remix)
 
-Last updated at 04/19/2021 10:10
+Last updated at 04/19/2021 10:13
