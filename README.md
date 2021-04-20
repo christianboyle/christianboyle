@@ -4,6 +4,6 @@
 
 **Artist**: George Harrison 
 
-**Track**: Got My Mind Set On You (Version I)
+**Track**: Got My Mind Set On You (Version II) [Official Music Video]
 
-Last updated at 04/20/2021 18:50
+Last updated at 04/20/2021 18:52
