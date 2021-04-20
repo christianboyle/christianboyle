@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJaZWOogSDVcVkgt-hZ9hJA-t500x500.jpg">](https://soundcloud.com/ktkrecords/cltx-bounce-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGYzzX8YT9nexWZs-tB1FzQ-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast68-clara)
 
-**Artist**: KTK RECORDS 
+**Artist**: Rave Alert 
 
-**Track**: CLTX - Bounce
+**Track**: RaveCast68 - Clara
 
-Last updated at 04/20/2021 07:53
+Last updated at 04/20/2021 08:15
