@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGYzzX8YT9nexWZs-tB1FzQ-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast68-clara)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnglsfBwCsr3f1ULHyRUCfk8y3Qy3LvyFPy7d4Qi2w=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCruKOlQdeAU0svDj0Bz54-A)
 
-**Artist**: Rave Alert 
+**Artist**: George Harrison 
 
-**Track**: RaveCast68 - Clara
+**Track**: Got My Mind Set On You (Version I)
 
-Last updated at 04/20/2021 14:57
+Last updated at 04/20/2021 18:50
