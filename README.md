@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJzlQ9zlOqzHeGQh-xziWHw-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/lazlow-keep-runnin-visuals-bvsskxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJaZWOogSDVcVkgt-hZ9hJA-t500x500.jpg">](https://soundcloud.com/ktkrecords/cltx-bounce-1)
 
-**Artist**: LAZLOW 
+**Artist**: KTK RECORDS 
 
-**Track**: KEEP RUNNIN'
+**Track**: CLTX - Bounce
 
-Last updated at 04/19/2021 13:57
+Last updated at 04/20/2021 07:53
