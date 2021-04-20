@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhqeW6LqaEW3fRk442Uj9M8dmkfysICfxe6uXTjnw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCgVCTlNEvc7at5cAkTsKWCA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGYzzX8YT9nexWZs-tB1FzQ-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast68-clara)
 
-**Artist**: glaive 
+**Artist**: Rave Alert 
 
-**Track**: i wanna slam my head against the wall (official video)
+**Track**: RaveCast68 - Clara
 
-Last updated at 04/20/2021 12:18
+Last updated at 04/20/2021 14:57
