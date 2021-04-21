@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride)
 
-**Artist**: Madjestic Kasual 
+**Artist**: HOLLA HERDI 
 
-**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
+**Track**: MXPX - Let's Ride
 
-Last updated at 04/21/2021 10:25
+Last updated at 04/21/2021 10:37
