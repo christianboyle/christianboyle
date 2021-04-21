@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALLYDJNylzHYyaSN-ZAHjww-t500x500.jpg">](https://soundcloud.com/presentlylifted/wllws-x-rederick-shake-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8rDwn5PsO7Whch1-aYViHA-t500x500.jpg">](https://soundcloud.com/scsi_disq/save-me-from-myself-hypertrap-rmx)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: SCSI_DisQ 
 
-**Track**: WLLWS x Rederick - Shake Down
+**Track**: SMOKEASAC - SAVE ME FROM MYSELF [HYPERTRAP RMX]
 
-Last updated at 04/21/2021 09:13
+Last updated at 04/21/2021 09:15
