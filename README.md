@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O4vO98yXNidQu4iJ-zbLKUA-t500x500.jpg">](https://soundcloud.com/nobodyhardcore/out-now-bridgey-b-nobody-i-can-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-80UdSPJYUjpnyUYx-NUuEhA-t500x500.jpg">](https://soundcloud.com/lucidmonday/chromonicci-destination?in=lucidmonday/sets/lm025)
 
-**Artist**: Nobody (Justice Hardcore) 
+**Artist**: Lucid Monday 
 
-**Track**: ⚠️OUT NOW⚠️ BRIDGEY-B & NOBODY - I CAN FEEL
+**Track**: Chromonicci - Destination
 
-Last updated at 04/21/2021 10:39
+Last updated at 04/21/2021 10:40
