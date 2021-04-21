@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh0ptksIu0vPE_HVi6oQoZ2DfUlGK9AC01gjIq_EA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCDBGKW_i7qM17LK17Orq7zw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride?in=dika-nugraha-451769543/sets/mxpx)
 
-**Artist**: MxPx 
+**Artist**: HOLLA HERDI 
 
-**Track**: Teenage Politics
+**Track**: MXPX - Let's Ride
 
-Last updated at 04/20/2021 21:10
+Last updated at 04/21/2021 06:38
