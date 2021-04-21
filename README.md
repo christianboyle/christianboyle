@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZpCKeb5OAtCrZwJU-yDd9uQ-t500x500.jpg">](https://soundcloud.com/wakaan/pierce-x-void0-wobble-vip-headbang-society-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LmpNt4pMCswQioy0-8Ti3Ng-t500x500.jpg">](https://soundcloud.com/lynyofficial/takeback)
 
-**Artist**: Wakaan 
+**Artist**: LYNY 
 
-**Track**: PIERCE x void(0)- WOBBLE VIP [Headbang Society Premiere]
+**Track**: Take Back [FUXWITHIT Premiere]
 
-Last updated at 04/20/2021 20:54
+Last updated at 04/20/2021 20:56
