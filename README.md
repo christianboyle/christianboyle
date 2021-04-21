@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZHCcYWURgYzL45k-6Soqhw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/scene-kid-trance-anthem-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zSk9L86s6XcJi1f-SLnViw-t500x500.jpg">](https://soundcloud.com/parv0/wicca-phase-springs-eternal-1)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Parv0 
 
-**Track**: Nicki Minaj 2 - scene kid trance anthem 2021! ° (^▿^) °
+**Track**: Wicca Phase Springs Eternal/Zubin/Parv0 - Lights Out
 
-Last updated at 04/21/2021 09:58
+Last updated at 04/21/2021 10:02
