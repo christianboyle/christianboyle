@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcokT8Ly5Dn8qEJQ-DPrMLw-t500x500.jpg">](https://soundcloud.com/addal/addal-angels?in=addal/sets/addal-angels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfzMizpNKNoadc3n-LUmHqw-t500x500.jpg">](https://soundcloud.com/isorin/alcyone)
 
-**Artist**: ADDAL 
+**Artist**: iSorin 
 
-**Track**: Addal - Angels
+**Track**: Alcyone
 
-Last updated at 04/20/2021 20:48
+Last updated at 04/20/2021 20:52
