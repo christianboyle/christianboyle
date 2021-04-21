@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh0ptksIu0vPE_HVi6oQoZ2DfUlGK9AC01gjIq_EA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCDBGKW_i7qM17LK17Orq7zw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j16rKYZlBNHJ6e2m-LN5Oog-t500x500.jpg">](https://soundcloud.com/squidiotic/full-speed)
 
-**Artist**: MxPx 
+**Artist**: SQUID 
 
-**Track**: "Let's Ride"
+**Track**: FULL SPEED
 
-Last updated at 04/21/2021 08:17
+Last updated at 04/21/2021 09:09
