@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hSobNvPMfRNGCk29-IHUHRw-t500x500.jpg">](https://soundcloud.com/djikeacanada/itsgood2beinlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride)
 
-**Artist**: DJ IKEA CANADA 
+**Artist**: HOLLA HERDI 
 
-**Track**: ITS GOOD TO BE IN LOVE
+**Track**: MXPX - Let's Ride
 
-Last updated at 04/21/2021 10:48
+Last updated at 04/21/2021 10:53
