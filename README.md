@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-80UdSPJYUjpnyUYx-NUuEhA-t500x500.jpg">](https://soundcloud.com/lucidmonday/chromonicci-destination?in=lucidmonday/sets/lm025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hSobNvPMfRNGCk29-IHUHRw-t500x500.jpg">](https://soundcloud.com/djikeacanada/itsgood2beinlove)
 
-**Artist**: Lucid Monday 
+**Artist**: DJ IKEA CANADA 
 
-**Track**: Chromonicci - Destination
+**Track**: ITS GOOD TO BE IN LOVE
 
-Last updated at 04/21/2021 10:40
+Last updated at 04/21/2021 10:42
