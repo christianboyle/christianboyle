@@ -4,6 +4,6 @@
 
 **Artist**: Avenged Sevenfold 
 
-**Track**: Beast And The Harlot [Official Music Video]
+**Track**: Afterlife [Official Music Video]
 
-Last updated at 04/20/2021 21:04
+Last updated at 04/20/2021 21:06
