@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0FgqXx729RnBeUK-jzyNmw-t500x500.jpg">](https://soundcloud.com/discoveryteam/tiesto-ty-dolla-ign-the-business-pt-ii-noto-remix?in=discoverysoundsmusic/sets/tiesto-ty-dolla-sign-the-business-noto-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWX5if6nFkz8nuuu-9FeEVA-t500x500.jpg">](https://soundcloud.com/platform/system-043-tra-tra-trax)
 
-**Artist**: Discovery Team 
+**Artist**: Boiler Room 
 
-**Track**: Tiesto & Ty Dolla $ign - The Business, Pt. II (NOTO Remix)
+**Track**: SYSTEM 043: Tra Tra Trax
 
-Last updated at 04/21/2021 09:27
+Last updated at 04/21/2021 09:29
