@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000175324740-awvpgu-t500x500.jpg">](https://soundcloud.com/hikariultra/zillakami-hellsing-station-ft-tekashi69?in=user-874665034/sets/zillakami-x-nycl-kai-type)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqPdQVzDq8QW-0-t500x500.jpg">](https://soundcloud.com/jahseh-onfroy/sad?in=user-135509316/sets/lil-peep-x-xxxtentaion-type-1)
 
-**Artist**: HIKARI-ULTRA 
+**Artist**: XXXTENTACION 
 
-**Track**: ZILLAKAMI - HELLSING STATION
+**Track**: SAD!
 
-Last updated at 04/20/2021 20:58
+Last updated at 04/20/2021 21:00
