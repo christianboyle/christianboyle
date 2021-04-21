@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8fx0Mg8XBYhx-0-t500x500.jpg">](https://soundcloud.com/chvrches/he-said-she-said)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZyVe3wpoTiKEQSJ-RV1GHQ-t500x500.jpg">](https://soundcloud.com/djikeacanada/garden-2)
 
-**Artist**: CHVRCHES 
+**Artist**: DJ IKEA CANADA 
 
-**Track**: He Said She Said
+**Track**: jedwill - garden (remix)
 
-Last updated at 04/21/2021 11:05
+Last updated at 04/21/2021 13:53
