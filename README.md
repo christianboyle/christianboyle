@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LmpNt4pMCswQioy0-8Ti3Ng-t500x500.jpg">](https://soundcloud.com/lynyofficial/takeback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000175324740-awvpgu-t500x500.jpg">](https://soundcloud.com/hikariultra/zillakami-hellsing-station-ft-tekashi69?in=user-874665034/sets/zillakami-x-nycl-kai-type)
 
-**Artist**: LYNY 
+**Artist**: HIKARI-ULTRA 
 
-**Track**: Take Back [FUXWITHIT Premiere]
+**Track**: ZILLAKAMI - HELLSING STATION
 
-Last updated at 04/20/2021 20:56
+Last updated at 04/20/2021 20:58
