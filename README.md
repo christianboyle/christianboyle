@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYlVapB47qmHUNSP-hbRhdA-t500x500.jpg">](https://soundcloud.com/kavern-beats/signals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcokT8Ly5Dn8qEJQ-DPrMLw-t500x500.jpg">](https://soundcloud.com/addal/addal-angels?in=addal/sets/addal-angels)
 
-**Artist**: KAVERN 
+**Artist**: ADDAL 
 
-**Track**: Signals
+**Track**: Addal - Angels
 
-Last updated at 04/20/2021 20:44
+Last updated at 04/20/2021 20:48
