@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j16rKYZlBNHJ6e2m-LN5Oog-t500x500.jpg">](https://soundcloud.com/squidiotic/full-speed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALLYDJNylzHYyaSN-ZAHjww-t500x500.jpg">](https://soundcloud.com/presentlylifted/wllws-x-rederick-shake-down)
 
-**Artist**: SQUID 
+**Artist**: Presently Lifted 👑 
 
-**Track**: FULL SPEED
+**Track**: WLLWS x Rederick - Shake Down
 
-Last updated at 04/21/2021 09:09
+Last updated at 04/21/2021 09:13
