@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride?in=dika-nugraha-451769543/sets/mxpx)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh0ptksIu0vPE_HVi6oQoZ2DfUlGK9AC01gjIq_EA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCDBGKW_i7qM17LK17Orq7zw)
 
-**Artist**: HOLLA HERDI 
+**Artist**: MxPx 
 
-**Track**: MXPX - Let's Ride
+**Track**: "Let's Ride"
 
-Last updated at 04/21/2021 06:38
+Last updated at 04/21/2021 08:17
