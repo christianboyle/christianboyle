@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc155?in=nonstopnxc/sets/non-stop-nxc-vs-weird-nxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/the-sky-fun-t0n1ght-2?in=weirdnxc/sets/weird-nxc-vs-non-stop-nxc)
 
-**Artist**: NON STOP NXC® 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: NXC155 - HITCHHIKeR - $10 (DJ eSPORTS ReMIX)
+**Track**: ⭐the sky⭐ - FUN T0N1GHT
 
-Last updated at 04/21/2021 21:14
+Last updated at 04/21/2021 21:16
