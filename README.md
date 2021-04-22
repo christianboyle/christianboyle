@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yc8MNvqPIOO5hGze-YyEunA-t500x500.png">](https://soundcloud.com/rinsefm/scdd170321)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RgPchyoG08MdKTyI-SjKnuw-t500x500.jpg">](https://soundcloud.com/almamater_recs/tre-oh-fie-dj-sliink-give-it-2-em-remix-ft-dj-jayhood-dj-tboogie)
 
-**Artist**: Rinse FM 
+**Artist**: Alma Mater Records 
 
-**Track**: Steel City Dance Discs with dameeeela & X CLUB. - 17 March 2021
+**Track**: DJ Sliink, Tre Oh Fie - Give It 2 Em Remix ft. DJ Jayhood, DJ TBoogie
 
-Last updated at 04/22/2021 06:52
+Last updated at 04/22/2021 16:57
