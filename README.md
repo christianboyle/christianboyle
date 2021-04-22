@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjqfYDm0MTZ8kvzb-KP4qVw-t500x500.jpg">](https://soundcloud.com/steelcitydancediscs/a3-6-million-ways-to-die-1?in=steelcitydancediscs/sets/scdd022-x-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LCdICS7AHkYCpyia-hnABtA-t500x500.jpg">](https://soundcloud.com/rinsefm/scdd210421)
 
-**Artist**: Steel City Dance Discs 
+**Artist**: Rinse FM 
 
-**Track**: A3. 6 Million Ways To Die
+**Track**: Steel City Dance Discs with Moktar & Yollks - 21 April 2021
 
-Last updated at 04/22/2021 06:48
+Last updated at 04/22/2021 06:50
