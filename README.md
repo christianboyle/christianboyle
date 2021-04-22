@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/bonus-fallen-shrine-nameless?in=weirdnxc/sets/weird-nxc-vs-non-stop-nxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LXMycYLzvdriko9X-wE5Azw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-098-michiko)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Boiler Room 
 
-**Track**: (bonus) Fallen Shrine - nameless
+**Track**: Hard Dance 098: Michiko
 
-Last updated at 04/21/2021 21:20
+Last updated at 04/22/2021 06:24
