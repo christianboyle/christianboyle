@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LXMycYLzvdriko9X-wE5Azw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-098-michiko)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwxGrmSMmv89Ht5a-X5Ci6A-t500x500.jpg">](https://soundcloud.com/stripess/ifieverplayafestivalagain)
 
-**Artist**: Boiler Room 
+**Artist**: 「 stripess 」 
 
-**Track**: Hard Dance 098: Michiko
+**Track**: if I ever play a festival again this is the first song
 
-Last updated at 04/22/2021 06:24
+Last updated at 04/22/2021 06:26
