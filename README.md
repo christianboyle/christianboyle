@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674333503-2wytwo-t500x500.jpg">](https://soundcloud.com/kurtains/crowbar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668672821-jekl3l-t500x500.jpg">](https://soundcloud.com/crapface/nelly-grillz-crapface-remix)
 
-**Artist**: kurtains 
+**Artist**: CRAPFACE 
 
-**Track**: crowbars w/ glaive
+**Track**: nelly - grillz (crapface remix)
 
-Last updated at 04/22/2021 17:13
+Last updated at 04/22/2021 17:15
