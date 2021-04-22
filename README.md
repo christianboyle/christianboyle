@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwxGrmSMmv89Ht5a-X5Ci6A-t500x500.jpg">](https://soundcloud.com/stripess/ifieverplayafestivalagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0UaTNhcKv3c-0-t500x500.png">](https://soundcloud.com/latejune/driveway-1)
 
-**Artist**: 「 stripess 」 
+**Artist**: Late June 
 
-**Track**: if I ever play a festival again this is the first song
+**Track**: Driveway
 
-Last updated at 04/22/2021 06:26
+Last updated at 04/22/2021 06:28
