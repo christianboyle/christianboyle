@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668672821-jekl3l-t500x500.jpg">](https://soundcloud.com/crapface/nelly-grillz-crapface-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000667670371-al9say-t500x500.jpg">](https://soundcloud.com/kayzo-music/kayzo-atreyu-battle-drums)
 
-**Artist**: CRAPFACE 
+**Artist**: KAYZO 
 
-**Track**: nelly - grillz (crapface remix)
+**Track**: Kayzo & Atreyu - Battle Drums
 
-Last updated at 04/22/2021 17:15
+Last updated at 04/22/2021 17:17
