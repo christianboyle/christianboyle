@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WEzTqyYSD043p41-3A6QPg-t500x500.jpg">](https://soundcloud.com/goodnight_anthony/something-for-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zth6xSeAg0BESFCV-8bbnTw-t500x500.jpg">](https://soundcloud.com/jimbobastic/mstk1i)
 
-**Artist**: goodnight, anthony 
+**Artist**: Grip.girl:) 
 
-**Track**: something for myself
+**Track**: M**Stk.1I[[-*._
 
-Last updated at 04/22/2021 22:43
+Last updated at 04/22/2021 22:45
