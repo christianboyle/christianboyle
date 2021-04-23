@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143205167-d36sbe-t500x500.jpg">](https://soundcloud.com/lovejanlevel/i-believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu)
 
-**Artist**: Jan Level 
+**Artist**: queer nxc 
 
-**Track**: I Believe
+**Track**: nvr-mnt-2-hrt-me </3
 
-Last updated at 04/22/2021 20:24
+Last updated at 04/22/2021 20:28
