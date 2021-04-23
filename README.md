@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/future-is-offline-stay-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc154)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: NON STOP NXC® 
 
-**Track**: Future Is Offline - Stay
+**Track**: NXC154 - kara & nijikon - yachttt
 
-Last updated at 04/22/2021 23:27
+Last updated at 04/22/2021 23:31
