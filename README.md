@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCBCYo5n2YBL3tQW-1zPosA-t500x500.jpg">](https://soundcloud.com/ssavi98/the-dawn-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRiMDqMZQTtxnSgy-lqz8Bg-t500x500.jpg">](https://soundcloud.com/gloounreleased/little-lockii)
 
-**Artist**: GNB CHILEE ✪ 
+**Artist**: GLOO UNRELEASED 
 
-**Track**: THE DAWN
+**Track**: Little Lockii
 
-Last updated at 04/22/2021 22:07
+Last updated at 04/22/2021 22:13
