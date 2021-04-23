@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIBkTSxFwfZj-0-t500x500.jpg">](https://soundcloud.com/knifepartyinc/knife-party-sleaze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562677993-5c7x83-t500x500.jpg">](https://soundcloud.com/enotrope/01-platform-shoes)
 
-**Artist**: Knife Party 
+**Artist**: 🤠 
 
-**Track**: Sleaze (feat. Mistajam)
+**Track**: Slayyyter - Platform Shoes (Nightcore Edit)
 
-Last updated at 04/22/2021 19:46
+Last updated at 04/22/2021 20:16
