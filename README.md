@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bqJ6CyAqOZVKNNJZ-wycJ3w-t500x500.jpg">](https://soundcloud.com/manap00l/mmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-piUZVNjf7wCXeFyZ-lIbe6A-t500x500.jpg">](https://soundcloud.com/hollow_love/thoughts-about-an-angel-who-came-from-paradise-to-fall-in-love-with-me)
 
-**Artist**: MANAPOOL 
+**Artist**: Coping mechanism 
 
-**Track**: MMX
+**Track**: thoughts about an angel who came from paradise to fall in love with me
 
-Last updated at 04/23/2021 01:31
+Last updated at 04/23/2021 01:33
