@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dwvs2aPPEMPbnMmK-yo8yuA-t500x500.jpg">](https://soundcloud.com/untitledexe/everlasting-sunset)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PCBCYo5n2YBL3tQW-1zPosA-t500x500.jpg">](https://soundcloud.com/ssavi98/the-dawn-1)
 
-**Artist**: lava_girl99 
+**Artist**: GNB CHILEE ✪ 
 
-**Track**: everlasting sunset
+**Track**: THE DAWN
 
-Last updated at 04/22/2021 22:03
+Last updated at 04/22/2021 22:07
