@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4BUysIgYPS4ZEybF-zZn4Wg-t500x500.jpg">](https://soundcloud.com/manap00l/regina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDTi1LWh9mBJO4Zc-HjO58Q-t500x500.jpg">](https://soundcloud.com/gojiiflex/02-goodbye-lonneker-remix)
 
-**Artist**: MANAPOOL 
+**Artist**: ♥ GOJII ♥ 
 
-**Track**: 𝘙𝘌𝘎𝘐𝘕𝘈
+**Track**: ♥ GOJII ♥ - GOODBYE (Lonneker Remix)
 
-Last updated at 04/23/2021 00:35
+Last updated at 04/23/2021 00:37
