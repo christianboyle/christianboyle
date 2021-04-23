@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytHSkjZMFvyNl78U-cEoMTw-t500x500.jpg">](https://soundcloud.com/loxsu/badgermin-redial-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwuwSSEEv5SCdy9l-1d501A-t500x500.jpg">](https://soundcloud.com/electric-alien-guy/dont-let-me-alone-guys)
 
-**Artist**: LOXLEY SOUND UNIT 📌 
+**Artist**: ERROR IN PROGRESS 
 
-**Track**: Badgermin - Redial [2020]
+**Track**: don't let me alone, guys
 
-Last updated at 04/22/2021 23:17
+Last updated at 04/22/2021 23:21
