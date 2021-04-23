@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJjnOFSnF3WCyR2C-KVA9Bw-t500x500.jpg">](https://soundcloud.com/aidensucks/thosmoser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQ8MNiGKzj6dG9cY-zKSgSQ-t500x500.jpg">](https://soundcloud.com/hollow_love/im-going-to-kill-myself-after-berlin)
 
-**Artist**: Aiden✧ 
+**Artist**: Coping mechanism 
 
-**Track**: Aids Moser
+**Track**: Im going to kill myself after berlin.
 
-Last updated at 04/22/2021 22:21
+Last updated at 04/22/2021 22:23
