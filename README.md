@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DtN51zp5jZQvkLTc-s44ZHQ-t500x500.jpg">](https://soundcloud.com/010p/mud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytHSkjZMFvyNl78U-cEoMTw-t500x500.jpg">](https://soundcloud.com/loxsu/badgermin-redial-2020)
 
-**Artist**: 10p 
+**Artist**: LOXLEY SOUND UNIT 📌 
 
-**Track**: 00mud
+**Track**: Badgermin - Redial [2020]
 
-Last updated at 04/22/2021 23:15
+Last updated at 04/22/2021 23:17
