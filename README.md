@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBS5ffPQvBX9BrN8-sd9h6g-t500x500.jpg">](https://soundcloud.com/taffaonline/taffa-synesthesia-009)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4BUysIgYPS4ZEybF-zZn4Wg-t500x500.jpg">](https://soundcloud.com/manap00l/regina)
 
-**Artist**: taffa 
+**Artist**: MANAPOOL 
 
-**Track**: taffa @ synesthesia 009 2021.03.26
+**Track**: 𝘙𝘌𝘎𝘐𝘕𝘈
 
-Last updated at 04/22/2021 23:41
+Last updated at 04/23/2021 00:35
