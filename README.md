@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-piUZVNjf7wCXeFyZ-lIbe6A-t500x500.jpg">](https://soundcloud.com/hollow_love/thoughts-about-an-angel-who-came-from-paradise-to-fall-in-love-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6gRXoI8mgF8QzOv5-zoAzUA-t500x500.jpg">](https://soundcloud.com/nayami-dream-entity/stage-1)
 
-**Artist**: Coping mechanism 
+**Artist**: nayami 
 
-**Track**: thoughts about an angel who came from paradise to fall in love with me
+**Track**: STAGE 1
 
-Last updated at 04/23/2021 01:33
+Last updated at 04/23/2021 01:35
