@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc150)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dROVNedyzUI9aIJ8-ZFDLsg-t500x500.jpg">](https://soundcloud.com/eva-0nline/mix-arena-dodriodo)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Eternal Virtual Ascension (EVA) 
 
-**Track**: NXC150 - Madeon - Nonsense (Arne Bootleg)
+**Track**: Dodriodo - Mix Arena
 
-Last updated at 04/22/2021 23:33
+Last updated at 04/22/2021 23:35
