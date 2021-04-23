@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPHDqqy2z34wbzTX-cgT5jg-t500x500.jpg">](https://soundcloud.com/nonstopblast/leftcheekandrightcheek)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5OnG6OZnty2bAHbc-6QmRBA-t500x500.jpg">](https://soundcloud.com/dodriodo/a-mothers-last-words)
 
-**Artist**: KIRA600 
+**Artist**: Dodriodo 
 
-**Track**: OTHERHALF [Popping Bottles Like WHAAT?!?]
+**Track**: Digital Opus
 
-Last updated at 04/23/2021 01:11
+Last updated at 04/23/2021 01:13
