@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000416023383-0vhc6a-t500x500.jpg">](https://soundcloud.com/weirdnxc/dont-cha-fallen-shrine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000153617924-7xyzvl-t500x500.jpg">](https://soundcloud.com/the-percussionz/block-rockin-beats-the-percussionz-mix)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: the percussionz 
 
-**Track**: 02  -  Fallen Shrine - Don't Cha
+**Track**: Block Rockin' Beats  (the Percussionz Mix)
 
-Last updated at 04/22/2021 19:38
+Last updated at 04/22/2021 19:40
