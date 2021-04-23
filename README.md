@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAhQy47VleKztcQL-A0JduA-t500x500.jpg">](https://soundcloud.com/hvnsense/hell-wips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-poU8SN1KFFqxpeM3-yCWJOQ-t500x500.jpg">](https://soundcloud.com/paulineherr/selfish-1)
 
-**Artist**: heavensense 
+**Artist**: Pauline Herr 
 
-**Track**: another wip dump. its long because i didnt bother trimming them
+**Track**: Selfish
 
-Last updated at 04/23/2021 11:20
+Last updated at 04/23/2021 11:21
