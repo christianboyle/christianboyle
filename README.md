@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x1INKFnpizyegvKm-liTVDw-t500x500.jpg">](https://soundcloud.com/user-934673009/sudoversetenekimailto-florescence-x-porter-robinson-something-comforting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oKpVbRzknrhKoJZP-5prwSw-t500x500.jpg">](https://soundcloud.com/sizhin/mikes-hard-w-america-loves-me)
 
-**Artist**: user-934673009!!!!!!!! 
+**Artist**: sizhin 
 
-**Track**: Sudoverse;Teneki;Mailto - Florescence x Porter Robinson - Something Comforting [DAY21EDIT]
+**Track**: mike's hard (w/ america loves me)
 
-Last updated at 04/22/2021 22:59
+Last updated at 04/22/2021 23:03
