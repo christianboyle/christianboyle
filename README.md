@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTv1DJJyHChhV5ci-uXrmlg-t500x500.jpg">](https://soundcloud.com/deadwint3r/erase-w-akiaura?in=akiaura/sets/buy-flp-or-drumkit-on-payhip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t2zI5ky0S4CyFyx4-FhxxDg-t500x500.jpg">](https://soundcloud.com/villainrecords/side-b-06-faint-call)
 
-**Artist**: deadwinter 
+**Artist**: VILL4IN 
 
-**Track**: ERASE w/ akiaura
+**Track**: MVEJIMV - Faint Call
 
-Last updated at 04/23/2021 08:54
+Last updated at 04/23/2021 09:06
