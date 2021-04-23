@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnii7-X0i4wmweUaJeB4s2Zp0kgLoO-AFh868OJn6w=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC9tgfOmxF1LLy-RMuDVsJZQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls)
 
-**Artist**: Heather Sommer 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: you heard me (Official Music Video)
+**Track**: nightcorey - DLS
 
-Last updated at 04/22/2021 20:30
+Last updated at 04/22/2021 20:32
