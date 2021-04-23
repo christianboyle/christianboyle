@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc148)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDTi1LWh9mBJO4Zc-HjO58Q-t500x500.jpg">](https://soundcloud.com/gojiiflex/08-sorry-elevation-remix)
 
-**Artist**: NON STOP NXC® 
+**Artist**: ♥ GOJII ♥ 
 
-**Track**: NXC148 - VΛLKYRIE - CΛLCIUM
+**Track**: ♥ GOJII ♥ - SORRY (Elevation Remix)
 
-Last updated at 04/22/2021 21:25
+Last updated at 04/22/2021 21:27
