@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaXPfskLnOTyxLFy-CaesJA-t500x500.jpg">](https://soundcloud.com/cooltweens/socoolrightnow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dwvs2aPPEMPbnMmK-yo8yuA-t500x500.jpg">](https://soundcloud.com/untitledexe/everlasting-sunset)
 
-**Artist**: cool ✨ tweens 
+**Artist**: lava_girl99 
 
-**Track**: so cool right now
+**Track**: everlasting sunset
 
-Last updated at 04/22/2021 22:01
+Last updated at 04/22/2021 22:03
