@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3gyXp8H8wibqDk2e-PUjS2w-t500x500.jpg">](https://soundcloud.com/cdr123456789/dam-162)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000001754611-j5gfz9-t500x500.jpg">](https://soundcloud.com/anyrec-mo/tell-me)
 
-**Artist**: CDR 
+**Artist**: anyrec-MO 
 
-**Track**: Dam 162
+**Track**: Tell Me
 
-Last updated at 04/22/2021 22:25
+Last updated at 04/22/2021 22:29
