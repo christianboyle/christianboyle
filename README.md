@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJXycVmwfmn1tpdS-gdc8Zg-t500x500.jpg">](https://soundcloud.com/cyran/take-you-where-its-sunny)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Cyran 
 
-**Track**: nightcorey - DLS
+**Track**: Take You Where It's Sunny
 
-Last updated at 04/23/2021 12:09
+Last updated at 04/24/2021 08:35
