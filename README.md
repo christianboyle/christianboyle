@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozkz82MK5BJz1biO-4p3SOg-t500x500.jpg">](https://soundcloud.com/kranesessions/coastal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r1VG01EmTdMTnjMB-P2XdMA-t500x500.jpg">](https://soundcloud.com/scales495/i-need-my-blanket-prod-siu?in=scales495/sets/495-answers)
 
-**Artist**: SESSIONS 
+**Artist**: SCALE$ 
 
-**Track**: KRANE & Capshun - Coastal
+**Track**: i need my blanket (prod. Siü)
 
-Last updated at 04/25/2021 11:42
+Last updated at 04/25/2021 11:44
