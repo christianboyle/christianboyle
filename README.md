@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmvE4AovToDbZw36-KsRysg-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/replacethis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzRSonXBKMR22rZS-v8V5yA-t500x500.jpg">](https://soundcloud.com/nazaarmusic/headspace)
 
-**Artist**: INF1N1TE 
+**Artist**: NAZAAR 
 
-**Track**: INF1N1TE X PERSES - REPLACE THIS (prod. PERSES)
+**Track**: NAZAAR - HEADSPACE (ft. GLNNA)
 
-Last updated at 04/25/2021 13:16
+Last updated at 04/25/2021 13:20
