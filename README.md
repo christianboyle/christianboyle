@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VIzouKkJCEflR4X8-Be3UfA-t500x500.jpg">](https://soundcloud.com/willixbeats/hellsgate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E1lybj8zgJiuef4Z-KeDF9g-t500x500.jpg">](https://soundcloud.com/remnantsofyore/event-horizon)
 
-**Artist**: Willix 
+**Artist**: REMNANT.exe 
 
-**Track**: Ascension To Hell's Gate.
+**Track**: EVENT HORIZON
 
-Last updated at 04/25/2021 11:20
+Last updated at 04/25/2021 11:22
