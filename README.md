@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhQHy2g1PAW6QRZT-FeHavA-t500x500.jpg">](https://soundcloud.com/erykgee/the-business-eryk-gee-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOspqisGJrvO1dPw-xK1s6w-t500x500.jpg">](https://soundcloud.com/warecollective/wavm8s-058-dan-larkin)
 
-**Artist**: ERYK GEE 
+**Artist**: WARE 
 
-**Track**: Tiesto, WeDamnz - The Business (Eryk Gee Edit)
+**Track**: WAV.M8'S 058 - Dan Larkin
 
-Last updated at 04/25/2021 12:04
+Last updated at 04/25/2021 12:08
