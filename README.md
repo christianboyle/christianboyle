@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zv7HQZXnBQ8GiJAZ-FZxdSA-t500x500.jpg">](https://soundcloud.com/plukomusic/your-skin-adrobski-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sl7JSEG5OgPz4uv4-B0CzhA-t500x500.jpg">](https://soundcloud.com/sekai-collective/seraph-x-c-a-l-i-c-r-y-nemesis)
 
-**Artist**: pluko 
+**Artist**: Sekai Collective 
 
-**Track**: your skin (Adrobski Remix)
+**Track**: Seraph.  x   c a l i c r y - Nemesis
 
-Last updated at 04/25/2021 13:24
+Last updated at 04/25/2021 13:26
