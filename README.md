@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZHCcYWURgYzL45k-6Soqhw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/the-summer-slipped-us?in=hydeparkhifi/sets/nicki-minaj-2-the-musical)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IfiQV8YQ7MtXMbjZ-lsTL8g-t500x500.jpg">](https://soundcloud.com/bnmbootlegs/bnm-and-friends-pack-1)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: BNM 
 
-**Track**: Nicki Minaj 2 - the summer slipped us underneath her tongue. 👅
+**Track**: BNM & Friends House Bootleg/Mashup/Edit Pack Ft Ben Phillips, Jean Luc, Rivas
 
-Last updated at 04/25/2021 13:00
+Last updated at 04/25/2021 13:04
