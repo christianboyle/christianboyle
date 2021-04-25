@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IW3yAQ0PyQVK4srX-WY859g-t500x500.jpg">](https://soundcloud.com/madjestickasual/06-part-of-me?in=hydeparkhifi/sets/nicki-minaj-2-the-musical)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZHCcYWURgYzL45k-6Soqhw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/scene-kid-trance-anthem-2021?in=hydeparkhifi/sets/nicki-minaj-2-the-musical)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Nicki Minaj 2 - Part Of Me {[MK PREMIERE]}
+**Track**: Nicki Minaj 2 - scene kid trance anthem 2021! ° (^▿^) °
 
-Last updated at 04/25/2021 12:48
+Last updated at 04/25/2021 12:52
