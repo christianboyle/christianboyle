@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwxGrmSMmv89Ht5a-X5Ci6A-t500x500.jpg">](https://soundcloud.com/stripess/ifieverplayafestivalagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD1e01MEdpNMdzsB-G4r1VQ-t500x500.jpg">](https://soundcloud.com/phuturecollective/jkuch-endure)
 
-**Artist**: 「 stripess 」 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: if I ever play a festival again this is the first song
+**Track**: JKuch - Endure
 
-Last updated at 04/25/2021 13:30
+Last updated at 04/25/2021 13:36
