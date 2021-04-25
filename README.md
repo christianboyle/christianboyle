@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-cC9giDg8AoH2PsyV-8fnTxA-t500x500.jpg">](https://soundcloud.com/helosac/wwwwwww?in=helosac/sets/gktqkbcn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161591973-csn7jz-t500x500.jpg">](https://soundcloud.com/edmworldsc/linkin-park-numb-studio-acapella)
 
-**Artist**: helosac 
+**Artist**: EDM WORLD 
 
-**Track**: 'cntnbrf ltdzyjcns[ [ekt
+**Track**: Linkin Park - Numb (Studio Acapella)
 
-Last updated at 04/25/2021 11:36
+Last updated at 04/25/2021 11:38
