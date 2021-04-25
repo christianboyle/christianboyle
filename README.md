@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cz0NdVsP4lW6fHI6-PdtzkQ-t500x500.jpg">](https://soundcloud.com/petsmpi/petsway-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jZJH7LAlNIW0LmTY-twtmXw-t500x500.jpg">](https://soundcloud.com/vskymusic/vesky-liam-thomas-aura)
 
-**Artist**: PET$MPI 
+**Artist**: Vesky 
 
-**Track**: PET$WAY VOL.1
+**Track**: Vesky & Liam Thomas - Aura
 
-Last updated at 04/25/2021 10:56
+Last updated at 04/25/2021 11:14
