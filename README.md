@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BR4gAYIhFn0Vt1d9-8EjdBA-t500x500.jpg">](https://soundcloud.com/underzoneco/uz-100-jastice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzRSonXBKMR22rZS-v8V5yA-t500x500.jpg">](https://soundcloud.com/nazaarmusic/headspace)
 
-**Artist**: 𝙐𝙣𝙙𝙚𝙧𝙯𝙤𝙣𝙚 
+**Artist**: NAZAAR 
 
-**Track**: 𝙐𝙕 100 - Jastice
+**Track**: NAZAAR - HEADSPACE (ft. GLNNA)
 
-Last updated at 04/25/2021 14:20
+Last updated at 04/25/2021 16:47
