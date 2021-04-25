@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IfiQV8YQ7MtXMbjZ-lsTL8g-t500x500.jpg">](https://soundcloud.com/bnmbootlegs/bnm-and-friends-pack-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IaP9qZlypfcum5X-VHyD8Q-t500x500.jpg">](https://soundcloud.com/greatrandommusic/imma-be)
 
-**Artist**: BNM 
+**Artist**: Great Random Music 
 
-**Track**: BNM & Friends House Bootleg/Mashup/Edit Pack Ft Ben Phillips, Jean Luc, Rivas
+**Track**: senazo - Imma Be
 
-Last updated at 04/25/2021 13:04
+Last updated at 04/25/2021 13:14
