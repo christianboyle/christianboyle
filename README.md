@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzRSonXBKMR22rZS-v8V5yA-t500x500.jpg">](https://soundcloud.com/nazaarmusic/headspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zv7HQZXnBQ8GiJAZ-FZxdSA-t500x500.jpg">](https://soundcloud.com/plukomusic/your-skin-adrobski-remix)
 
-**Artist**: NAZAAR 
+**Artist**: pluko 
 
-**Track**: NAZAAR - HEADSPACE (ft. GLNNA)
+**Track**: your skin (Adrobski Remix)
 
-Last updated at 04/25/2021 13:20
+Last updated at 04/25/2021 13:24
