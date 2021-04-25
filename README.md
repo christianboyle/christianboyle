@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yTFPWxtEMqeMyTz-E57rMg-t500x500.jpg">](https://soundcloud.com/justicehardcore/kisakacky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zzJrmnQtrp3Q2H3-kejiWA-t500x500.jpg">](https://soundcloud.com/sxmpra/rampage)
 
-**Artist**: Justice Hardcore 
+**Artist**: SXMPRA 
 
-**Track**: Dougal & Gammer Feat. Hannah Faulkner - Knight In Shining Armour(Kacky Bootleg) ✅FREE DOWNLOAD✅
+**Track**: RAMPAGE (Prod. SXMPRA)
 
-Last updated at 04/25/2021 11:28
+Last updated at 04/25/2021 11:32
