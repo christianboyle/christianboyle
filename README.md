@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOspqisGJrvO1dPw-xK1s6w-t500x500.jpg">](https://soundcloud.com/warecollective/wavm8s-058-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AwVygd10LLHJKbgI-m0K9EQ-t500x500.jpg">](https://soundcloud.com/itsrestricted/whoopty-itsrestricted-edit)
 
-**Artist**: WARE 
+**Artist**: Restricted 
 
-**Track**: WAV.M8'S 058 - Dan Larkin
+**Track**: Whoopty (Restricted Edit)
 
-Last updated at 04/25/2021 12:08
+Last updated at 04/25/2021 12:40
