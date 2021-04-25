@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BR4gAYIhFn0Vt1d9-8EjdBA-t500x500.jpg">](https://soundcloud.com/underzoneco/uz-100-jastice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cz0NdVsP4lW6fHI6-PdtzkQ-t500x500.jpg">](https://soundcloud.com/petsmpi/petsway-vol1)
 
-**Artist**: 𝙐𝙣𝙙𝙚𝙧𝙯𝙤𝙣𝙚 
+**Artist**: PET$MPI 
 
-**Track**: 𝙐𝙕 100 - Jastice
+**Track**: PET$WAY VOL.1
 
-Last updated at 04/24/2021 08:37
+Last updated at 04/25/2021 10:56
