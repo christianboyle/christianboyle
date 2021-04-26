@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5GrUgzU8okrMmN1i-aydyyA-t500x500.jpg">](https://soundcloud.com/hihelix/insideout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afxz3SUetg62uREX-dkwA4g-t500x500.jpg">](https://soundcloud.com/buygore/typhon-elude)
 
-**Artist**: hélix 
+**Artist**: Buygore 
 
-**Track**: INSIDE OUT
+**Track**: Typhon - Elude
 
-Last updated at 04/26/2021 07:24
+Last updated at 04/26/2021 07:26
