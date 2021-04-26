@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzRSonXBKMR22rZS-v8V5yA-t500x500.jpg">](https://soundcloud.com/nazaarmusic/headspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAEvALHGTUGU9Ple-W35CEQ-t500x500.jpg">](https://soundcloud.com/alt_edm/justin-bieber-forever-feat-post-malone-clever-cyran-remix)
 
-**Artist**: NAZAAR 
+**Artist**: Alt EDM 
 
-**Track**: NAZAAR - HEADSPACE (ft. GLNNA)
+**Track**: Justin Bieber - Forever (feat. Post Malone & Clever) [CYRAN REMIX]
 
-Last updated at 04/25/2021 16:47
+Last updated at 04/26/2021 07:08
