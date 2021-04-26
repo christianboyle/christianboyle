@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405326925-07r39l-t500x500.jpg">](https://soundcloud.com/octbr/demons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-261Z25aI4rsGjsis-er46jA-t500x500.jpg">](https://soundcloud.com/catmom4/progression-140bpm?in=catmom4/sets/vol-1-41221)
 
-**Artist**: octbr 
+**Artist**: cat mother 
 
-**Track**: DEMONS
+**Track**: progression (140bpm)
 
-Last updated at 04/26/2021 07:32
+Last updated at 04/26/2021 07:34
