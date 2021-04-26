@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-261Z25aI4rsGjsis-er46jA-t500x500.jpg">](https://soundcloud.com/catmom4/toothpaste-140bpm-1?in=catmom4/sets/vol-1-41221)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4M0Ie5dF36YQ3Y2-ILOz4g-t500x500.jpg">](https://soundcloud.com/catmom4/2011-1s)
 
 **Artist**: cat mother 
 
-**Track**: toothpaste (140bpm)
+**Track**: 2011
 
-Last updated at 04/26/2021 07:44
+Last updated at 04/26/2021 07:46
