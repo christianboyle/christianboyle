@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000643724875-n7hiv2-t500x500.jpg">](https://soundcloud.com/cyran/im-on-one-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyTrL4kgEhyjnA8n-LMP9vg-t500x500.jpg">](https://soundcloud.com/skan_official/skan-glory)
 
-**Artist**: Cyran 
+**Artist**: SKAN 
 
-**Track**: I'm On One VIP
+**Track**: Skan & Krale - Glory (No Glory II) (feat. M.I.M.E & Drama B)
 
-Last updated at 04/26/2021 07:16
+Last updated at 04/26/2021 07:20
