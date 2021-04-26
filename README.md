@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAEvALHGTUGU9Ple-W35CEQ-t500x500.jpg">](https://soundcloud.com/alt_edm/justin-bieber-forever-feat-post-malone-clever-cyran-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585635132-mnwwwo-t500x500.jpg">](https://soundcloud.com/cyran/outrun-air-cyran-remix?in=circusrecords/sets/outrun-air-cyran-remix)
 
-**Artist**: Alt EDM 
+**Artist**: Cyran 
 
-**Track**: Justin Bieber - Forever (feat. Post Malone & Clever) [CYRAN REMIX]
+**Track**: Outrun - Air (Cyran Remix)
 
-Last updated at 04/26/2021 07:08
+Last updated at 04/26/2021 07:10
