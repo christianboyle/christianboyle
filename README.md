@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000585635132-mnwwwo-t500x500.jpg">](https://soundcloud.com/cyran/outrun-air-cyran-remix?in=circusrecords/sets/outrun-air-cyran-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJXycVmwfmn1tpdS-gdc8Zg-t500x500.jpg">](https://soundcloud.com/cyran/take-you-where-its-sunny)
 
 **Artist**: Cyran 
 
-**Track**: Outrun - Air (Cyran Remix)
+**Track**: Take You Where It's Sunny
 
-Last updated at 04/26/2021 07:10
+Last updated at 04/26/2021 07:12
