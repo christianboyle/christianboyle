@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y0V4oUYzXvkoveZ3-YwMiig-t500x500.jpg">](https://soundcloud.com/sneakersocialclub/etch-x-luo-amygdala?in=sneakersocialclub/sets/etch-anachronism-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XKldCejgR6oFxeSr-xsqbzw-t500x500.jpg">](https://soundcloud.com/alrtmusic/marrakesh?in=alrtmusic/sets/nrg-vol-2)
 
-**Artist**: Sneaker Social Club 
+**Artist**: ALRT 
 
-**Track**: Etch x Luo - Amygdala
+**Track**: Marrakesh
 
-Last updated at 04/27/2021 11:14
+Last updated at 04/27/2021 11:15
