@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Wkx2IocOWECk5io-mqku1Q-t500x500.jpg">](https://soundcloud.com/lil_rocketman/knicks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv2rfTOKt6i81xnn-2nF2Jg-t500x500.jpg">](https://soundcloud.com/sheltr666/lotta-stink-w-feeney)
 
-**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
+**Artist**: SHELTR. 
 
-**Track**: KNICKEL BAGS W/ JASON RICH
+**Track**: LOTTA STINK W/ FEENEY
 
-Last updated at 04/27/2021 07:27
+Last updated at 04/27/2021 07:29
