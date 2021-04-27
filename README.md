@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000308888064-f5ua8m-t500x500.jpg">](https://soundcloud.com/nitecorp/underd0g-where-we-want-to-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000208254654-y0p4ju-t500x500.jpg">](https://soundcloud.com/hakaisdead/haka47-underd0g-resist4nce-underd0ge)
 
-**Artist**: NITE CORP. 
+**Artist**: HAKA [@HAKAisDEAD] 
 
-**Track**: underd0g - where we want to be
+**Track**: HAKA47 - underd0g - resist4nce -@underd0ge
 
-Last updated at 04/27/2021 16:26
+Last updated at 04/27/2021 16:28
