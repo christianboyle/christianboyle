@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv2rfTOKt6i81xnn-2nF2Jg-t500x500.jpg">](https://soundcloud.com/sheltr666/lotta-stink-w-feeney)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000083459601-4hq2lb-t500x500.jpg">](https://soundcloud.com/lilangelboi/guilty)
 
-**Artist**: SHELTR. 
+**Artist**: lilangelboi 
 
-**Track**: LOTTA STINK W/ FEENEY
+**Track**: guilty
 
-Last updated at 04/27/2021 07:29
+Last updated at 04/27/2021 07:33
