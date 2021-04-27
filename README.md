@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XKldCejgR6oFxeSr-xsqbzw-t500x500.jpg">](https://soundcloud.com/alrtmusic/marrakesh?in=alrtmusic/sets/nrg-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Egp5VhbOXyg8Jv6-TE40hQ-t500x500.jpg">](https://soundcloud.com/alltrapnation/noga-erez-end-of-the-road-stereotype-remix)
 
-**Artist**: ALRT 
+**Artist**: Trap Nation 
 
-**Track**: Marrakesh
+**Track**: Noga Erez - End of the Road (Stereotype Remix)
 
-Last updated at 04/27/2021 11:15
+Last updated at 04/27/2021 16:09
