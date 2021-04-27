@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBwcPVB07qAQjhQP-ZlrEww-t500x500.jpg">](https://soundcloud.com/dj-cafdaly/s3rl-spoiler-alert-cafdaly-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWqx7mGhKkdfiAc9-ItLxgw-t500x500.jpg">](https://soundcloud.com/s3rl/endless-summer-s3rl-dj-satomi-ft-ukiko)
 
-**Artist**: CAFDALY© 
+**Artist**: S3RL 
 
-**Track**: S3RL - SPOILER ALERT (CAFDALY Remix) Free Download
+**Track**: Endless Summer - S3RL & DJ Satomi ft Ukiko
 
-Last updated at 04/26/2021 19:30
+Last updated at 04/26/2021 19:32
