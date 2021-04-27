@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpZlJtnKs7pyXqsw-ybVb0A-t500x500.jpg">](https://soundcloud.com/trndytrndy/falling-on-to-concrete-at-mach-5-tbh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000308888064-f5ua8m-t500x500.jpg">](https://soundcloud.com/nitecorp/underd0g-where-we-want-to-be)
 
-**Artist**: trndytrndy 
+**Artist**: NITE CORP. 
 
-**Track**: funny song
+**Track**: underd0g - where we want to be
 
-Last updated at 04/27/2021 16:25
+Last updated at 04/27/2021 16:26
