@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t500x500.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv2rfTOKt6i81xnn-2nF2Jg-t500x500.jpg">](https://soundcloud.com/sheltr666/lotta-stink-w-feeney)
 
-**Artist**: NOT RAVE TOOLZ 
+**Artist**: SHELTR. 
 
-**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
+**Track**: LOTTA STINK W/ FEENEY
 
-Last updated at 04/27/2021 16:15
+Last updated at 04/27/2021 16:19
