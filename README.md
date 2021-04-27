@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv2rfTOKt6i81xnn-2nF2Jg-t500x500.jpg">](https://soundcloud.com/sheltr666/lotta-stink-w-feeney)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13IRasSsFKdPeWGH-BrMghA-t500x500.jpg">](https://soundcloud.com/nelyom/new-beginning)
 
-**Artist**: SHELTR. 
+**Artist**: nelyom 
 
-**Track**: LOTTA STINK W/ FEENEY
+**Track**: new beginning (nelyom 'domain of prosperity' mix)
 
-Last updated at 04/27/2021 16:19
+Last updated at 04/27/2021 16:22
