@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000593703684-uom9as-t500x500.jpg">](https://soundcloud.com/alstorm/247hc183-rob-iyf-euphoria-2019)
 
-**Artist**: queer nxc 
+**Artist**: 24/7 Hardcore / Al Storm 
 
-**Track**: nvr-mnt-2-hrt-me </3
+**Track**: 247HC183 : Rob IYF - Euphoria (2019 Mix)
 
-Last updated at 04/27/2021 10:16
+Last updated at 04/27/2021 10:26
