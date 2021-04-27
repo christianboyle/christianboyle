@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13IRasSsFKdPeWGH-BrMghA-t500x500.jpg">](https://soundcloud.com/nelyom/new-beginning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpZlJtnKs7pyXqsw-ybVb0A-t500x500.jpg">](https://soundcloud.com/trndytrndy/falling-on-to-concrete-at-mach-5-tbh)
 
-**Artist**: nelyom 
+**Artist**: trndytrndy 
 
-**Track**: new beginning (nelyom 'domain of prosperity' mix)
+**Track**: funny song
 
-Last updated at 04/27/2021 16:22
+Last updated at 04/27/2021 16:25
