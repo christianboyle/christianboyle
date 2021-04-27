@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493255440-vekr8x-t500x500.jpg">](https://soundcloud.com/danny-r-core/lange-i-believe-danny-r-core-remix-fin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000593703684-uom9as-t500x500.jpg">](https://soundcloud.com/alstorm/247hc183-rob-iyf-euphoria-2019)
 
-**Artist**: Danny r-core 
+**Artist**: 24/7 Hardcore / Al Storm 
 
-**Track**: Lange - I Believe - Danny R - Core Remix
+**Track**: 247HC183 : Rob IYF - Euphoria (2019 Mix)
 
-Last updated at 04/27/2021 07:53
+Last updated at 04/27/2021 07:59
