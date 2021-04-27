@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv2rfTOKt6i81xnn-2nF2Jg-t500x500.jpg">](https://soundcloud.com/sheltr666/lotta-stink-w-feeney)
 
-**Artist**: HOLLA HERDI 
+**Artist**: SHELTR. 
 
-**Track**: MXPX - Let's Ride
+**Track**: LOTTA STINK W/ FEENEY
 
-Last updated at 04/27/2021 08:15
+Last updated at 04/27/2021 08:19
