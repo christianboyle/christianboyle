@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Egp5VhbOXyg8Jv6-TE40hQ-t500x500.jpg">](https://soundcloud.com/alltrapnation/noga-erez-end-of-the-road-stereotype-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pj7lziOnQYJhz0AT-ZFGp1A-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-dj-dynamax-feel-your-body-and-mind)
 
-**Artist**: Trap Nation 
+**Artist**: M-Project 
 
-**Track**: Noga Erez - End of the Road (Stereotype Remix)
+**Track**: M-Project & DJ Dynamax - Feel Your Body And Mind
 
-Last updated at 04/27/2021 16:09
+Last updated at 04/27/2021 16:11
