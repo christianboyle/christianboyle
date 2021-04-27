@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j16rKYZlBNHJ6e2m-LN5Oog-t500x500.jpg">](https://soundcloud.com/squidiotic/full-speed?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ull5YrpLGz1l0L4P-dkmIKQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/arctic-ops-creatine-frost?in=saxurn/sets/fetti)
 
-**Artist**: SQUID 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: FULL SPEED
+**Track**: Arctic Ops - Creatine Frost
 
-Last updated at 04/27/2021 10:45
+Last updated at 04/27/2021 10:47
