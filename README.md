@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc158)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls?in=saxurn/sets/fetti)
 
-**Artist**: NON STOP NXC® 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: NXC158 - GRAZ - BL1ND3D L1GHT5 (bonus track)
+**Track**: nightcorey - DLS
 
-Last updated at 04/27/2021 10:33
+Last updated at 04/27/2021 10:37
