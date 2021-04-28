@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmmxo9uq2ZnF-0-t500x500.jpg">](https://soundcloud.com/tate-mcrae/slower-moore-kismet-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtU0DkFcbSe1gMcM-0SyGoQ-t500x500.jpg">](https://soundcloud.com/werhduk/hduk-podcast-episode-17-cally-shocker-ft-mike-enemy)
 
-**Artist**: Tate McRae 
+**Artist**: HDUK 
 
-**Track**: slower (Moore Kismet Remix)
+**Track**: HDUK Podcast Episode 17 - Cally & Shocker ft. Mike Enemy | Free Download
 
-Last updated at 04/28/2021 08:45
+Last updated at 04/28/2021 08:48
