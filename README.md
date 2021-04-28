@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kXafuqUA21T1yuKs-kYbX7Q-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast69-riot-code)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzbOIqwQDhvEy0AS-uVCEew-t500x500.jpg">](https://soundcloud.com/chomppadub/chomppa-superave-portal1)
 
-**Artist**: Rave Alert 
+**Artist**: CHOMPPA 
 
-**Track**: RaveCast69 - Riot Code
+**Track**: CHOMPPA & SuperAve. - Portal [Deadbeats]
 
-Last updated at 04/28/2021 09:12
+Last updated at 04/28/2021 16:24
