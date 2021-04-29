@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000593703684-uom9as-t500x500.jpg">](https://soundcloud.com/alstorm/247hc183-rob-iyf-euphoria-2019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc153)
 
-**Artist**: 24/7 Hardcore / Al Storm 
+**Artist**: NON STOP NXC® 
 
-**Track**: 247HC183 : Rob IYF - Euphoria (2019 Mix)
+**Track**: NXC153 - lumious - 7yrsXX
 
-Last updated at 04/29/2021 12:41
+Last updated at 04/29/2021 12:45
