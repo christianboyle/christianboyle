@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4K2jjx04hl-0-t500x500.jpg">](https://soundcloud.com/agcook/the-darkness-remix-feat-hannah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkGPpBrL2zygNvJF-tbvVCA-t500x500.jpg">](https://soundcloud.com/iamthreesixty/nightfall)
 
-**Artist**: A. G. Cook 
+**Artist**: THREESIXTY 
 
-**Track**: The Darkness
+**Track**: Nightfall
 
-Last updated at 04/29/2021 07:41
+Last updated at 04/29/2021 07:45
