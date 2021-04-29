@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kY4uLpQGsdPHK1x3-Fr1nnQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/this-sucks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xsFVaC0JQIpI3W8q-yB3HAA-t500x500.jpg">](https://soundcloud.com/hoviss/push)
 
-**Artist**: trndytrndy 
+**Artist**: hovis 
 
-**Track**: this sucks
+**Track**: push [p. reesoo]
 
-Last updated at 04/29/2021 09:01
+Last updated at 04/29/2021 09:03
