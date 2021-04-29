@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0FgqXx729RnBeUK-jzyNmw-t500x500.jpg">](https://soundcloud.com/discoveryteam/tiesto-ty-dolla-ign-the-business-pt-ii-noto-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j16rKYZlBNHJ6e2m-LN5Oog-t500x500.jpg">](https://soundcloud.com/squidiotic/full-speed)
 
-**Artist**: Discovery Team 
+**Artist**: SQUID 
 
-**Track**: Tiesto & Ty Dolla $ign - The Business, Pt. II (NOTO Remix)
+**Track**: FULL SPEED
 
-Last updated at 04/29/2021 08:53
+Last updated at 04/29/2021 08:55
