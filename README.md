@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhNyrl5eDlC4Sh1BXVI-F_bhsSvUqRXCdTb4z7fNA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC7IZbkKDd20v6Ni_vFX63rQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: The Prodigy 
+**Artist**: trndytrndy 
 
-**Track**: Everybody In The Place (Official Video)
+**Track**: be nice to me (cover)
 
-Last updated at 04/29/2021 15:21
+Last updated at 04/29/2021 15:49
