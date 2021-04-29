@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hLbZFhaConjks4fU-fNLPOQ-t500x500.jpg">](https://soundcloud.com/petalsupply/anyway-heres-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kY4uLpQGsdPHK1x3-Fr1nnQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/this-sucks)
 
-**Artist**: Petal Supply 
+**Artist**: trndytrndy 
 
-**Track**: 1 (feat. umru, Himera & trndytrndy)
+**Track**: this sucks
 
-Last updated at 04/29/2021 08:17
+Last updated at 04/29/2021 08:19
