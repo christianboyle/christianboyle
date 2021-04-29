@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAVrapAj5MKK-0-t500x500.jpg">](https://soundcloud.com/jordananye/push-me-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4K2jjx04hl-0-t500x500.jpg">](https://soundcloud.com/agcook/the-darkness-remix-feat-hannah)
 
-**Artist**: Jordana 
+**Artist**: A. G. Cook 
 
-**Track**: Push Me Away
+**Track**: The Darkness
 
-Last updated at 04/29/2021 07:37
+Last updated at 04/29/2021 07:41
