@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkGPpBrL2zygNvJF-tbvVCA-t500x500.jpg">](https://soundcloud.com/iamthreesixty/nightfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ts5zs9pN2vahO7ca-i7xcwQ-t500x500.jpg">](https://soundcloud.com/coolteens/chroma)
 
-**Artist**: THREESIXTY 
+**Artist**: Cool ✨ Teens 
 
-**Track**: Nightfall
+**Track**: Chroma
 
-Last updated at 04/29/2021 07:45
+Last updated at 04/29/2021 07:47
