@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kY4uLpQGsdPHK1x3-Fr1nnQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/this-sucks)
 
 **Artist**: trndytrndy 
 
-**Track**: be nice to me (cover)
+**Track**: this sucks
 
-Last updated at 04/29/2021 12:29
+Last updated at 04/29/2021 12:31
