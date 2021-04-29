@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhyyuu0olYhY5zTu-aUwIRw-t500x500.jpg">](https://soundcloud.com/sanriorose/ithinkimdoingbetter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: d0llywood1 
+**Artist**: trndytrndy 
 
-**Track**: dolly - ithinkimdoingbetter
+**Track**: be nice to me (cover)
 
-Last updated at 04/29/2021 08:13
+Last updated at 04/29/2021 08:15
