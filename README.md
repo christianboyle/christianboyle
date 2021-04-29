@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6urIqv2ZSj4I-0-t500x500.jpg">](https://soundcloud.com/notfolie/clean2-feat-bean-boy?in=umru/sets/umru-hard-listening)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAVrapAj5MKK-0-t500x500.jpg">](https://soundcloud.com/jordananye/push-me-away)
 
-**Artist**: folie 
+**Artist**: Jordana 
 
-**Track**: clean2 (feat. Bean Boy)
+**Track**: Push Me Away
 
-Last updated at 04/29/2021 07:35
+Last updated at 04/29/2021 07:37
