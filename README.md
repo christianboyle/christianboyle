@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4K2jjx04hl-0-t500x500.jpg">](https://soundcloud.com/agcook/the-darkness-remix-feat-hannah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wUsDRVEeknzeQu81-TCnfWA-t500x500.jpg">](https://soundcloud.com/pendarr/fyf-feat-calliope-mori)
 
-**Artist**: A. G. Cook 
+**Artist**: Pendarr 
 
-**Track**: The Darkness
+**Track**: FYF feat. Calliope Mori
 
-Last updated at 04/29/2021 08:03
+Last updated at 04/29/2021 08:07
