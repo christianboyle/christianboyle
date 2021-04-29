@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ts5zs9pN2vahO7ca-i7xcwQ-t500x500.jpg">](https://soundcloud.com/coolteens/chroma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xsFVaC0JQIpI3W8q-yB3HAA-t500x500.jpg">](https://soundcloud.com/hoviss/push)
 
-**Artist**: Cool ✨ Teens 
+**Artist**: hovis 
 
-**Track**: Chroma
+**Track**: push [p. reesoo]
 
-Last updated at 04/29/2021 07:55
+Last updated at 04/29/2021 07:57
