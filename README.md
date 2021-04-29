@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4K2jjx04hl-0-t500x500.jpg">](https://soundcloud.com/agcook/the-darkness-remix-feat-hannah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: A. G. Cook 
+**Artist**: trndytrndy 
 
-**Track**: The Darkness
+**Track**: be nice to me (cover)
 
-Last updated at 04/29/2021 09:05
+Last updated at 04/29/2021 12:29
