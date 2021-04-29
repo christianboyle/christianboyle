@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hLbZFhaConjks4fU-fNLPOQ-t500x500.jpg">](https://soundcloud.com/petalsupply/anyway-heres-1)
 
-**Artist**: trndytrndy 
+**Artist**: Petal Supply 
 
-**Track**: be nice to me (cover)
+**Track**: 1 (feat. umru, Himera & trndytrndy)
 
-Last updated at 04/29/2021 08:15
+Last updated at 04/29/2021 08:17
