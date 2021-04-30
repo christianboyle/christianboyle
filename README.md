@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w04NxrZ5IJvmMzLf-qnzzrA-t500x500.jpg">](https://soundcloud.com/shamanabeats/off-the-henny?in=shamanabeats/sets/to-all-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmYA6GEjMzvQTgVQ-Wx9Q9g-t500x500.jpg">](https://soundcloud.com/shamanabeats/joel-kynan-sample?in=shamanabeats/sets/to-all-hell)
 
 **Artist**: shamana 
 
-**Track**: Off the Henny
+**Track**: Joel Kynan Sample
 
-Last updated at 04/30/2021 07:24
+Last updated at 04/30/2021 07:26
