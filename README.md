@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKyvXPiWVhiV9pNS-XwikcA-t500x500.jpg">](https://soundcloud.com/elysianrecords/juelz-akimbo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZieCfCyOp7Fja5h6-vGKwsA-t500x500.jpg">](https://soundcloud.com/shamanabeats/ahna-3?in=shamanabeats/sets/to-all-hell)
 
-**Artist**: Elysian Records 
+**Artist**: shamana 
 
-**Track**: Juelz - Akimbo
+**Track**: Ahna 3
 
-Last updated at 04/30/2021 07:02
+Last updated at 04/30/2021 07:06
