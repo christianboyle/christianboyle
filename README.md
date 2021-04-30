@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2vfbdYGpaevAGJj-wugKFQ-t500x500.jpg">](https://soundcloud.com/loudkult/solven-x-lena-luisa-paradise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HehPasud5biZB4Dr-LavnNA-t500x500.jpg">](https://soundcloud.com/loudkult/modern-culture-alex-de-los-reyes-falling-for-love)
 
 **Artist**: LoudKult 
 
-**Track**: Solven x Lena Luisa - Paradise
+**Track**: Modern Culture, Alex De los Reyes - Falling for love
 
-Last updated at 04/30/2021 06:31
+Last updated at 04/30/2021 06:33
