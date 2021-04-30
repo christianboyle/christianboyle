@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z57KKyiJUiLtrwH8-bwfDpA-t500x500.jpg">](https://soundcloud.com/ssteev/better-than-ever-monte-kit)
 
-**Artist**: trndytrndy 
+**Artist**: $teev 
 
-**Track**: be nice to me (cover)
+**Track**: better than ever [monte kit]
 
-Last updated at 04/29/2021 15:49
+Last updated at 04/29/2021 20:42
