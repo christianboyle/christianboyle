@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3QTAtX3oCyjuFMk-xo2hKQ-t500x500.jpg">](https://soundcloud.com/jgrxxn/jgrxxn-x-sxmpra-inferno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jt5LpwsTcDADPp5g-uSNBqQ-t500x500.jpg">](https://soundcloud.com/sotiristziortziotis/you-happy)
 
-**Artist**: JGRXXN 
+**Artist**: Sotgore 
 
-**Track**: JGRXXN x Sxmpra - Inferno
+**Track**: You Happy (MF DOOM Tribute)
 
-Last updated at 04/30/2021 06:56
+Last updated at 04/30/2021 06:58
