@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ow5enraxeInLP11K-0Py2LA-t500x500.jpg">](https://soundcloud.com/viqmusic/unravel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62yOyXSzcXt7nyMR-9fHnQg-t500x500.jpg">](https://soundcloud.com/alis_on/traveler?in=alis_on/sets/eternite)
 
-**Artist**: VIQ 
+**Artist**: A.L.I.S.O.N 
 
-**Track**: Unravel
+**Track**: Traveler
 
-Last updated at 04/30/2021 07:58
+Last updated at 04/30/2021 08:02
