@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ifJyNoV9SWBVhX5-ZbK9Kw-t500x500.jpg">](https://soundcloud.com/yungscuff/yung-scuff-x-jakkyboi-u-dont)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBwn781hGjht-0-t500x500.png">](https://soundcloud.com/smrtdeath/too-far-gone?in=smrtdeath/sets/somethjngs-wrong)
 
-**Artist**: Yung Scuff 
+**Artist**: smrtdeath 
 
-**Track**: Yung Scuff x Jakkyboí - U dont even kno m3
+**Track**: Too Far Gone
 
-Last updated at 04/29/2021 20:44
+Last updated at 04/29/2021 20:46
