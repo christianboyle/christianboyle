@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JL5pdIYoSa3N1BkB-vV9EZw-t500x500.jpg">](https://soundcloud.com/loudkult/felix-samuel-this-isnt-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLvoeyObaucRyJyR-EMlpmw-t500x500.jpg">](https://soundcloud.com/loudkult/bassbears-x-benlon-dont-wanna-go-home)
 
 **Artist**: LoudKult 
 
-**Track**: Felix Samuel - This Isn’t Love
+**Track**: BassBears x Benlon - Don't Wanna Go Home
 
-Last updated at 04/30/2021 06:43
+Last updated at 04/30/2021 06:45
