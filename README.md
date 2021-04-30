@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o9yNnyxITolh0zeQ-0tg8Iw-t500x500.jpg">](https://soundcloud.com/loudkult/leo-762)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dErn86sTkSvJEbc5-9P2nKQ-t500x500.jpg">](https://soundcloud.com/sotiristziortziotis/embrace-the-demons)
 
-**Artist**: LoudKult 
+**Artist**: Sotgore 
 
-**Track**: Lëo - 762
+**Track**: EMBRACE THE DEMONS
 
-Last updated at 04/30/2021 06:51
+Last updated at 04/30/2021 06:53
