@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhNyrl5eDlC4Sh1BXVI-F_bhsSvUqRXCdTb4z7fNA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC7IZbkKDd20v6Ni_vFX63rQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix)
 
-**Artist**: The Prodigy 
+**Artist**: namasenda 
 
-**Track**: Everybody In The Place (Official Video)
+**Track**: Wanted (Aamourocean Remix)
 
-Last updated at 04/30/2021 09:44
+Last updated at 04/30/2021 14:35
