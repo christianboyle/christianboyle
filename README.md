@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMCfoAzQLfh4PlaW-I3yylw-t500x500.jpg">](https://soundcloud.com/sotiristziortziotis/killing-spree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKyvXPiWVhiV9pNS-XwikcA-t500x500.jpg">](https://soundcloud.com/elysianrecords/juelz-akimbo)
 
-**Artist**: Sotgore 
+**Artist**: Elysian Records 
 
-**Track**: KILLING SPREE
+**Track**: Juelz - Akimbo
 
-Last updated at 04/30/2021 07:00
+Last updated at 04/30/2021 07:02
