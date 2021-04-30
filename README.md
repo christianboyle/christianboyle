@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCaf8zqpLGCQXiKS-sbGJYA-t500x500.jpg">](https://soundcloud.com/loudkult/vyg-sarey-savy-slow-motion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ehSUioOG3wDbjyt-s45rRQ-t500x500.jpg">](https://soundcloud.com/loudkult/dayfox-complicated)
 
 **Artist**: LoudKult 
 
-**Track**: VYG & Sarey Savy - Slow Motion
+**Track**: DayFox - Complicated
 
-Last updated at 04/30/2021 06:14
+Last updated at 04/30/2021 06:17
