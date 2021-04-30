@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybP3JGIJMzOpFSKk-HD1zcQ-t500x500.jpg">](https://soundcloud.com/denalimusicrecords/kazantzakis-obida)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ow5enraxeInLP11K-0Py2LA-t500x500.jpg">](https://soundcloud.com/viqmusic/unravel)
 
-**Artist**: DENALI 
+**Artist**: VIQ 
 
-**Track**: Kazantzakis - OBIDA
+**Track**: Unravel
 
-Last updated at 04/30/2021 07:54
+Last updated at 04/30/2021 07:58
