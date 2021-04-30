@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000243746735-v1kb4q-t500x500.jpg">](https://soundcloud.com/namasenda/what-u-got-2?in=namasenda/sets/hot_babe_93)
 
 **Artist**: namasenda 
 
-**Track**: Wanted (Aamourocean Remix)
+**Track**: What U Got
 
-Last updated at 04/29/2021 20:47
+Last updated at 04/29/2021 20:48
