@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-98GxUJQRirNuARzb-hUez7A-t500x500.jpg">](https://soundcloud.com/loudkult/kastra-trivd-r4jay-savage-r4jay-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O4z2tqLbprEZpXBz-sIe6dA-t500x500.jpg">](https://soundcloud.com/loudkult/rolipso-aericsn-feat-clayra-alex-buck-flames)
 
 **Artist**: LoudKult 
 
-**Track**: Kastra, TRIVD, R4JAY - Savage (R4JAY Remix)
+**Track**: Rolipso & aericsn feat. Clayra & Alex Buck - Flames
 
-Last updated at 04/30/2021 06:24
+Last updated at 04/30/2021 06:27
