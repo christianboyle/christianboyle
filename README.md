@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: namasenda 
+**Artist**: trndytrndy 
 
-**Track**: Wanted (Aamourocean Remix)
+**Track**: be nice to me (cover)
 
-Last updated at 04/30/2021 14:35
+Last updated at 04/30/2021 14:39
