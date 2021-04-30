@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dFztQielVGxZ4zuS-FaBcoA-t500x500.jpg">](https://soundcloud.com/shamanabeats/god-bless-you-you-beautiful-creature?in=shamanabeats/sets/to-all-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5FQx78JwTwla7FC-k4eSsQ-t500x500.jpg">](https://soundcloud.com/shamanabeats/inexpensive?in=shamanabeats/sets/to-all-hell)
 
 **Artist**: shamana 
 
-**Track**: God Bless You, You Beautiful Creature
+**Track**: Inexpensive
 
-Last updated at 04/30/2021 07:14
+Last updated at 04/30/2021 07:18
