@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dErn86sTkSvJEbc5-9P2nKQ-t500x500.jpg">](https://soundcloud.com/sotiristziortziotis/embrace-the-demons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3QTAtX3oCyjuFMk-xo2hKQ-t500x500.jpg">](https://soundcloud.com/jgrxxn/jgrxxn-x-sxmpra-inferno)
 
-**Artist**: Sotgore 
+**Artist**: JGRXXN 
 
-**Track**: EMBRACE THE DEMONS
+**Track**: JGRXXN x Sxmpra - Inferno
 
-Last updated at 04/30/2021 06:53
+Last updated at 04/30/2021 06:56
