@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244926718-zn7o1i-t500x500.jpg">](https://soundcloud.com/helveticandoom/freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
 
-**Artist**: Helvetican 
+**Artist**: UNICORN KID 
 
-**Track**: MISSY ELLIOTT - GET UR FREAK ON (HELVETICAN REMIX)
+**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
 
-Last updated at 04/30/2021 22:22
+Last updated at 04/30/2021 22:24
