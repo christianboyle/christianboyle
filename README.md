@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfkpzyzy4nOIiCQN-vVGUcA-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-ruuth-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QbKMSnRByTxeLmAj-yivZgA-t500x500.jpg">](https://soundcloud.com/blackboxrecs/juhyung-miko-versy-newtro)
 
-**Artist**: syence 
+**Artist**: BLVCKBØX 
 
-**Track**: a little bit bored (feat. ruuth) [club edit]
+**Track**: JuHyung & Miko Versy - Newtro
 
-Last updated at 05/01/2021 10:11
+Last updated at 05/01/2021 10:13
