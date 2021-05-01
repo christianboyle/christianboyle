@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAR52uT5YiBx-0-t500x500.jpg">](https://soundcloud.com/flameemojimusic/time-flies-by-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244926718-zn7o1i-t500x500.jpg">](https://soundcloud.com/helveticandoom/freak)
 
-**Artist**: Gucci Mane 
+**Artist**: Helvetican 
 
-**Track**: Time Flies By
+**Track**: MISSY ELLIOTT - GET UR FREAK ON (HELVETICAN REMIX)
 
-Last updated at 04/30/2021 22:20
+Last updated at 04/30/2021 22:22
