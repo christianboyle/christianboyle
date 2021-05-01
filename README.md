@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000026308516-55gifu-t500x500.jpg">](https://soundcloud.com/unicornkid/the-very-best-kondaine-unicorn)
 
 **Artist**: UNICORN KID 
 
-**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
+**Track**: The Very Best - Kondaine (Unicorn Kid's Space Drift mix)
 
-Last updated at 05/01/2021 08:26
+Last updated at 05/01/2021 08:35
