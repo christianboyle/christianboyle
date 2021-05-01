@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032060929-mmzst6-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-mini-mix-annie-mac)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
 
 **Artist**: UNICORN KID 
 
-**Track**: Unicorn Kid Mini Mix - Annie Mac BBC Radio  1
+**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
 
-Last updated at 04/30/2021 22:28
+Last updated at 05/01/2021 08:26
