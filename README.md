@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032060929-mmzst6-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-mini-mix-annie-mac)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfkpzyzy4nOIiCQN-vVGUcA-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-ruuth-club-edit)
 
-**Artist**: UNICORN KID 
+**Artist**: syence 
 
-**Track**: Unicorn Kid Mini Mix - Annie Mac BBC Radio  1
+**Track**: a little bit bored (feat. ruuth) [club edit]
 
-Last updated at 05/01/2021 09:27
+Last updated at 05/01/2021 10:11
