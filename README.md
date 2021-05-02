@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykYST6vCQTpgVAj1-9JdYfA-t500x500.jpg">](https://soundcloud.com/balamii/inner-totality-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DIzUTa6zWDUE8rml-oNXpwQ-t500x500.jpg">](https://soundcloud.com/djdmind/timmy-trumpet-venga-boys-up-down-d-mind-reverse-bass-edit)
 
-**Artist**: Balamii 
+**Artist**: D-MIND 
 
-**Track**: Inner Totality - May 2021
+**Track**: Timmy Trumpet & Venga Boys - Up & Down (D-Mind Reverse Bass Edit)
 
-Last updated at 05/01/2021 10:15
+Last updated at 05/02/2021 09:40
