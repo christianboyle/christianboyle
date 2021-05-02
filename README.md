@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAoy1IwOYrzd5Bdx-NPrnkA-t500x500.jpg">](https://soundcloud.com/jakazid/now-or-never)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vh6HynlgbEIbHQtL-re62mw-t500x500.jpg">](https://soundcloud.com/balamii/3-swords-republic-may-2021)
 
-**Artist**: JAKAZiD 
+**Artist**: Balamii 
 
-**Track**: JAKAZiD - Now Or Never [OUT NOW on RaveStation Records]
+**Track**: 3 Swords Republic - May 2021
 
-Last updated at 05/02/2021 09:44
+Last updated at 05/02/2021 09:46
