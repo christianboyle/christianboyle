@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2sG5aNQOj54iR7xF-ADzvuQ-t500x500.jpg">](https://soundcloud.com/berrymane/risky-bizness?in=berrymane/sets/dont-sleep-on-a-new-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAoy1IwOYrzd5Bdx-NPrnkA-t500x500.jpg">](https://soundcloud.com/jakazid/now-or-never)
 
-**Artist**: BERRYMANE 
+**Artist**: JAKAZiD 
 
-**Track**: RISKY BIZNESS
+**Track**: JAKAZiD - Now Or Never [OUT NOW on RaveStation Records]
 
-Last updated at 05/02/2021 09:42
+Last updated at 05/02/2021 09:44
