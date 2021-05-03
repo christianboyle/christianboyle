@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls?in=saxurn/sets/fetti)
 
-**Artist**: trndytrndy 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: be nice to me (cover)
+**Track**: nightcorey - DLS
 
-Last updated at 05/03/2021 10:49
+Last updated at 05/03/2021 10:51
