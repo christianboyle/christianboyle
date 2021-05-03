@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5vmxAp7wSyykhjW-HVcJKA-t500x500.jpg">](https://soundcloud.com/hailuresound/dnd?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0FgqXx729RnBeUK-jzyNmw-t500x500.jpg">](https://soundcloud.com/discoveryteam/tiesto-ty-dolla-ign-the-business-pt-ii-noto-remix?in=saxurn/sets/fetti)
 
-**Artist**: Hailure 
+**Artist**: Discovery Team 
 
-**Track**: glaive - dnd (Hailure Remix)
+**Track**: Tiesto & Ty Dolla $ign - The Business, Pt. II (NOTO Remix)
 
-Last updated at 05/03/2021 11:10
+Last updated at 05/03/2021 11:13
