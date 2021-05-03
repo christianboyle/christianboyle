@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ACizqydzkwX32C1d-QhRyrw-t500x500.jpg">](https://soundcloud.com/electric_hawk/dioxide-evolve-ft-alicia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAVy1ZvaAHqFFIeS-YoPyZw-t500x500.jpg">](https://soundcloud.com/jadudala/stuca-where-we-are-jadu155)
 
-**Artist**: Electric Hawk 
+**Artist**: Jadū Dala 
 
-**Track**: Dioxide - Evolve ft. Alicia
+**Track**: STUCA - Where We Are (JADŪ155)
 
-Last updated at 05/03/2021 16:25
+Last updated at 05/03/2021 16:27
