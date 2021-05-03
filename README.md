@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gchFd0JkdttCWG6B-ogyUuQ-t500x500.jpg">](https://soundcloud.com/bodygaard/bodygaard-exodus1900-auto-salon-prod-skoolio?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride?in=saxurn/sets/fetti)
 
-**Artist**: bodyGaard 
+**Artist**: HOLLA HERDI 
 
-**Track**: bodyGaard & Exodus1900 - Auto Salon✱✱ (prod. ­skoolio)
+**Track**: MXPX - Let's Ride
 
-Last updated at 05/03/2021 11:02
+Last updated at 05/03/2021 11:04
