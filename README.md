@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sK8TeIDE03Q1Kizy-qBUXOw-t500x500.jpg">](https://soundcloud.com/futurevibes/digital-smug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: Future Vibes 
+**Artist**: trndytrndy 
 
-**Track**: Colorparade - Digital Smug
+**Track**: be nice to me (cover)
 
-Last updated at 05/03/2021 10:47
+Last updated at 05/03/2021 10:49
