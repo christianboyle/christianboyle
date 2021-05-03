@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAVy1ZvaAHqFFIeS-YoPyZw-t500x500.jpg">](https://soundcloud.com/jadudala/stuca-where-we-are-jadu155)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh9c-l_1P5cPYmlBFXr_TAhzjCU4UgW9GlwV62BSw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC4KjBGVXDWJJY-YoOSovJoQ)
 
-**Artist**: Jadū Dala 
+**Artist**: tobi lou 
 
-**Track**: STUCA - Where We Are (JADŪ155)
+**Track**: Ice Cream Girl (Audio)
 
-Last updated at 05/03/2021 16:27
+Last updated at 05/03/2021 16:29
