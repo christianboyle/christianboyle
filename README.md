@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pkhQaYa6HK9lS4Ba-fdVfhg-t500x500.jpg">](https://soundcloud.com/quixofficial/tiger-drool-saber-tooth-quix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t6zURscTnnCt3huw-nFTtmg-t500x500.jpg">](https://soundcloud.com/balamii/jaime-rosso-may-2021)
 
-**Artist**: QUIX 
+**Artist**: Balamii 
 
-**Track**: TIGER DROOL - SABER TOOTH (QUIX Remix)
+**Track**: Jaime Rosso - May 2021
 
-Last updated at 05/03/2021 07:48
+Last updated at 05/03/2021 07:50
