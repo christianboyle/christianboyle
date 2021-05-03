@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu?in=saxurn/sets/fetti)
 
-**Artist**: HOLLA HERDI 
+**Artist**: queer nxc 
 
-**Track**: MXPX - Let's Ride
+**Track**: nvr-mnt-2-hrt-me </3
 
-Last updated at 05/03/2021 11:04
+Last updated at 05/03/2021 11:08
