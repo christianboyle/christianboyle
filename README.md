@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i7gTu7VOiB2EIZQ2-IHsjkA-t500x500.jpg">](https://soundcloud.com/djmag/premiere-special-request-elysian-fields-tim-reaper-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQ3JzofXOuF4F8L6-4tfUkA-t500x500.jpg">](https://soundcloud.com/futureretrolondon/meeting-of-the-minds-vol-3-frmotm003)
 
-**Artist**: djmag 
+**Artist**: Future Retro London 
 
-**Track**: Premiere: Special Request ‘Elysian Fields (Tim Reaper Remix)’
+**Track**: Meeting Of The Minds Vol. 3 [FRMOTM003]
 
-Last updated at 05/03/2021 11:45
+Last updated at 05/03/2021 11:51
