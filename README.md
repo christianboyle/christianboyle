@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OS5MmWizeMszfYZi-jSK9Lw-t500x500.jpg">](https://soundcloud.com/grantsongs/grant-emily-vaughn-move-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBoDbQiusFMl-0-t500x500.png">](https://soundcloud.com/adamturleymusic/pure-bliss)
 
-**Artist**: Grant 
+**Artist**: adamturley 
 
-**Track**: Grant & Emily Vaughn - Move On
+**Track**: Pure Bliss
 
-Last updated at 05/04/2021 13:00
+Last updated at 05/04/2021 14:41
