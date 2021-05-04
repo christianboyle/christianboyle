@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz82lU1JwGxFFD6R-MMETwQ-t500x500.jpg">](https://soundcloud.com/oneseventy/b0unc3-2-b-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PpZOKrd8vCTuvBkD-TWEctg-t500x500.jpg">](https://soundcloud.com/oneseventy/ak47-x-inquisitive-turn-me-on-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: B0UNC3 - 2 B Cool (Radio Edit)
+**Track**: AK47 x Inquisitive - Turn Me On (Radio Edit)
 
-Last updated at 05/04/2021 09:34
+Last updated at 05/04/2021 09:46
