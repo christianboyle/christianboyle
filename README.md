@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXyONjW7VQa0QN2H-affsbA-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-weaver-feat-lokka-vox-find-you-now-game-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6KI73AQSu9qMVBy-EHkuug-t500x500.jpg">](https://soundcloud.com/oneseventy/quickdrop-qub3-memories-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: Technikore & Weaver feat. Lokka Vox - Find You Now (Game Remix)
+**Track**: Quickdrop & QUB3 - Memories (Radio Edit)
 
-Last updated at 05/04/2021 10:46
+Last updated at 05/04/2021 10:50
