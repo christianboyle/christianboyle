@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RQWHFSCsE5BVWyEg-mwYHUQ-t500x500.jpg">](https://soundcloud.com/cidmusic/cid-peaches-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
 
-**Artist**: CID Music 
+**Artist**: UNICORN KID 
 
-**Track**: Peaches (CID Flip) - Justin Bieber ft. Daniel Caesar, Giveon
+**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
 
-Last updated at 05/04/2021 08:14
+Last updated at 05/04/2021 08:16
