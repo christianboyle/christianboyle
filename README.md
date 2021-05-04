@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnhd7edYcnvP6g9jPYfZpiC73axg-gaRep1SSAsd=s48-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UCbSAYU9A4L4JbUkGmy4BN5Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBoDbQiusFMl-0-t500x500.png">](https://soundcloud.com/adamturleymusic/pure-bliss)
 
-**Artist**: Steely Dan 
+**Artist**: adamturley 
 
-**Track**: Reelin' In The Years
+**Track**: Pure Bliss
 
-Last updated at 05/04/2021 12:50
+Last updated at 05/04/2021 12:58
