@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B51PnWyzQr6l-0-t500x500.jpg">](https://soundcloud.com/jacku/whereareunowrustie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YiofCo1pYSN7-0-t500x500.png">](https://soundcloud.com/bronson/heart-attack-set-mo-remix-feat?in=ninja-tune/sets/bronson-bronson-remixes-n-3)
 
-**Artist**: Jack Ü 
+**Artist**: BRONSON 
 
-**Track**: Where Are Ü Now (with Justin Bieber) (Rustie Remix)
+**Track**: HEART ATTACK (Set Mo Remix) [feat. lau.ra]
 
-Last updated at 05/03/2021 20:11
+Last updated at 05/03/2021 20:15
