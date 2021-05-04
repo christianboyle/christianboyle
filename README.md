@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000012685503-uwhu9f-t500x500.jpg">](https://soundcloud.com/charlixcx/charlixcx-nuclear-seasons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000175326352-n5zf06-t500x500.jpg">](https://soundcloud.com/user-393228562/grimes-medieval-warfare)
 
-**Artist**: charlixcx 
+**Artist**: Chrystina Moreno 
 
-**Track**: Charli XCX - Nuclear Seasons
+**Track**: Grimes -  David
 
-Last updated at 05/04/2021 08:20
+Last updated at 05/04/2021 08:24
