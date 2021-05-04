@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz82lU1JwGxFFD6R-MMETwQ-t500x500.jpg">](https://soundcloud.com/oneseventy/b0unc3-2-b-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymyyD3M45yRkMNl6-hT5Elg-t500x500.jpg">](https://soundcloud.com/oneseventy/macks-wolf-hit-em-like-this-two-minds-project-remix)
 
 **Artist**: OneSeventy 
 
-**Track**: B0UNC3 - 2 B Cool (Radio Edit)
+**Track**: Macks Wolf - Hit Em Like This (Two Minds Project Remix)
 
-Last updated at 05/04/2021 10:11
+Last updated at 05/04/2021 10:13
