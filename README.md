@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500685327-v0d2rf-t500x500.jpg">](https://soundcloud.com/uiceheidd/fast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000276491492-h99ork-t500x500.jpg">](https://soundcloud.com/jeffofficial/kayzo-whyel-this-revolt-jeffup)
 
-**Artist**: Juice WRLD 
+**Artist**: JEFF?! 
 
-**Track**: Fast
+**Track**: KAYZO & WHYEL - This Revolt (JEFFup)
 
-Last updated at 05/03/2021 19:57
+Last updated at 05/03/2021 19:59
