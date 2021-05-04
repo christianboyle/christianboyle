@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qlaUcRpW9ea0DAt-lhLdVA-t500x500.jpg">](https://soundcloud.com/abitan/lucky_lotus_final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3zkdK6mElbItlze-ACd6UQ-t500x500.jpg">](https://soundcloud.com/future-intel/know-va-future-intel-04-23-2021)
 
-**Artist**: Abitan 
+**Artist**: Future Intel 
 
-**Track**: Lucky Lotus Festival 8 - The Final Festival (Abitan Mix)
+**Track**: Know V.A. ╚═ Future Intel ═╗ 04 23 2021
 
-Last updated at 05/03/2021 21:00
+Last updated at 05/04/2021 08:12
