@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000156457718-k6z6o7-t500x500.jpg">](https://soundcloud.com/daniel-mcmartin/dj-spree-rollercoaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVNv0rxikiyDCf8v-yhLnNQ-t500x500.jpg">](https://soundcloud.com/3kate2-sankatetsu/hcg01-a)
 
-**Artist**: Dabuel 
+**Artist**: 3KATE2(Sankatetsu) 
 
-**Track**: Dj Spree - Rollercoaster
+**Track**: [ #HCG01 ] HARDCORE GEMS Vol.1 -DJ Rëgret & MC DAYOx2-
 
-Last updated at 05/03/2021 20:52
+Last updated at 05/03/2021 20:54
