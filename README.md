@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6KI73AQSu9qMVBy-EHkuug-t500x500.jpg">](https://soundcloud.com/oneseventy/quickdrop-qub3-memories-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aA0aTXHMbJf1FbYL-d4G5TA-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-x-ak47-control-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: Quickdrop & QUB3 - Memories (Radio Edit)
+**Track**: Technikore x AK47 - Control (Radio Edit)
 
-Last updated at 05/04/2021 10:50
+Last updated at 05/04/2021 10:52
