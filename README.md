@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3zkdK6mElbItlze-ACd6UQ-t500x500.jpg">](https://soundcloud.com/future-intel/know-va-future-intel-04-23-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RQWHFSCsE5BVWyEg-mwYHUQ-t500x500.jpg">](https://soundcloud.com/cidmusic/cid-peaches-flip)
 
-**Artist**: Future Intel 
+**Artist**: CID Music 
 
-**Track**: Know V.A. ╚═ Future Intel ═╗ 04 23 2021
+**Track**: Peaches (CID Flip) - Justin Bieber ft. Daniel Caesar, Giveon
 
-Last updated at 05/04/2021 08:12
+Last updated at 05/04/2021 08:14
