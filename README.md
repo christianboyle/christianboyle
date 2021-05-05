@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sK8TeIDE03Q1Kizy-qBUXOw-t500x500.jpg">](https://soundcloud.com/futurevibes/digital-smug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfkpzyzy4nOIiCQN-vVGUcA-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-ruuth-club-edit)
 
-**Artist**: Future Vibes 
+**Artist**: syence 
 
-**Track**: Colorparade - Digital Smug
+**Track**: a little bit bored (feat. ruuth) [club edit]
 
-Last updated at 05/05/2021 15:50
+Last updated at 05/05/2021 15:54
