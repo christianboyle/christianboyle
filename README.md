@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFoevxRyk6mXCkGM-RYBFZA-t500x500.jpg">](https://soundcloud.com/latersleeperr/rosequartz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znGQbCbFI3mUCSLT-659hYw-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-feat-dan-larkin-guestmix-05032021)
 
-**Artist**: latesleeper 
+**Artist**: datafruits 
 
-**Track**: gyrofield & latesleeper - Rosequartz
+**Track**: Radio Show With Cralias (Feat Dan Larkin Guestmix) 05032021
 
-Last updated at 05/05/2021 08:18
+Last updated at 05/05/2021 08:31
