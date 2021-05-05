@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OS5MmWizeMszfYZi-jSK9Lw-t500x500.jpg">](https://soundcloud.com/grantsongs/grant-emily-vaughn-move-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYTomL1OEZ861T8L-Nc9J6Q-t500x500.jpg">](https://soundcloud.com/dreamdnvr/whats-up)
 
-**Artist**: Grant 
+**Artist**: DREAMDNVR 
 
-**Track**: Grant & Emily Vaughn - Move On
+**Track**: WHAT'S UP?
 
-Last updated at 05/05/2021 12:24
+Last updated at 05/05/2021 15:28
