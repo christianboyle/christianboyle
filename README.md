@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsUTUy1DUfPvzeHW-3viLjw-t500x500.jpg">](https://soundcloud.com/33brendan33/samedamnsong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYTomL1OEZ861T8L-Nc9J6Q-t500x500.jpg">](https://soundcloud.com/dreamdnvr/whats-up)
 
-**Artist**: Brendan Bennett 
+**Artist**: DREAMDNVR 
 
-**Track**: SAME DAMN SONG
+**Track**: WHAT'S UP?
 
-Last updated at 05/05/2021 09:06
+Last updated at 05/05/2021 09:08
