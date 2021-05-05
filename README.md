@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znGQbCbFI3mUCSLT-659hYw-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-feat-dan-larkin-guestmix-05032021)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwng-bN-5FL5yIVZqxFW202zHTChd1Re2Nx-u1P7ilg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC3tg0XIy-VL4z1rVJOtllFA)
 
-**Artist**: datafruits 
+**Artist**: Taio Cruz 
 
-**Track**: Radio Show With Cralias (Feat Dan Larkin Guestmix) 05032021
+**Track**: Dynamite (UK Version)
 
-Last updated at 05/05/2021 08:31
+Last updated at 05/05/2021 08:33
