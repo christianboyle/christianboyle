@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQ3JzofXOuF4F8L6-4tfUkA-t500x500.jpg">](https://soundcloud.com/futureretrolondon/meeting-of-the-minds-vol-3-frmotm003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sK8TeIDE03Q1Kizy-qBUXOw-t500x500.jpg">](https://soundcloud.com/futurevibes/digital-smug)
 
-**Artist**: Future Retro London 
+**Artist**: Future Vibes 
 
-**Track**: Meeting Of The Minds Vol. 3 [FRMOTM003]
+**Track**: Colorparade - Digital Smug
 
-Last updated at 05/05/2021 09:22
+Last updated at 05/05/2021 09:38
