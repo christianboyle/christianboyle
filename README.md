@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4cyQexIJYjdRUsn-oGrcBA-t500x500.jpg">](https://soundcloud.com/nikademismusic/ive-got-the-1?in=seal-playlists/sets/nikademis-ive-got-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znGQbCbFI3mUCSLT-659hYw-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-feat-dan-larkin-guestmix-05032021)
 
-**Artist**: Nikademis 
+**Artist**: datafruits 
 
-**Track**: I've Got The
+**Track**: Radio Show With Cralias (Feat Dan Larkin Guestmix) 05032021
 
-Last updated at 05/05/2021 07:48
+Last updated at 05/05/2021 07:52
