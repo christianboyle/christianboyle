@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYTomL1OEZ861T8L-Nc9J6Q-t500x500.jpg">](https://soundcloud.com/dreamdnvr/whats-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygZwQDEiun6Q8u7w-D0CO0Q-t500x500.jpg">](https://soundcloud.com/juliawolfnyc/hight-waist-jeans-1)
 
-**Artist**: DREAMDNVR 
+**Artist**: WOLF 
 
-**Track**: WHAT'S UP?
+**Track**: High Waist Jeans
 
-Last updated at 05/05/2021 09:02
+Last updated at 05/05/2021 09:04
