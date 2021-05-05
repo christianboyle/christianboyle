@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tzgaS7f1U9y0WTnT-3vDsxg-t500x500.jpg">](https://soundcloud.com/scutoidmusic/stonebank-ripped-to-pieces-scutoid-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9WtzEiRvXQeuEDTn-6r1Fug-t500x500.jpg">](https://soundcloud.com/p-vg-ot/lost)
 
-**Artist**: Scutoid 
+**Artist**: pexØt 
 
-**Track**: Stonebank - Ripped To Pieces (Scutoid Bootleg)
+**Track**: Lost
 
-Last updated at 05/05/2021 07:42
+Last updated at 05/05/2021 07:44
