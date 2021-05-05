@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygZwQDEiun6Q8u7w-D0CO0Q-t500x500.jpg">](https://soundcloud.com/juliawolfnyc/hight-waist-jeans-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsUTUy1DUfPvzeHW-3viLjw-t500x500.jpg">](https://soundcloud.com/33brendan33/samedamnsong)
 
-**Artist**: WOLF 
+**Artist**: Brendan Bennett 
 
-**Track**: High Waist Jeans
+**Track**: SAME DAMN SONG
 
-Last updated at 05/05/2021 09:04
+Last updated at 05/05/2021 09:06
