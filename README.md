@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nMzb17yStibNsT0-0SYjgQ-t500x500.jpg">](https://soundcloud.com/kloudbug/outerlimits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
 
-**Artist**: kloudbug 
+**Artist**: / CRUDE / 
 
-**Track**: OUTER LIMITS (A Chilling Narrative)
+**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
 
-Last updated at 05/05/2021 11:32
+Last updated at 05/05/2021 11:38
