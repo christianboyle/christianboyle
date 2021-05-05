@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8euM3eruGzQq1tM-4iAydw-t500x500.jpg">](https://soundcloud.com/warecollective/last-sundown-otang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFoevxRyk6mXCkGM-RYBFZA-t500x500.jpg">](https://soundcloud.com/latersleeperr/rosequartz)
 
-**Artist**: WARE 
+**Artist**: latesleeper 
 
-**Track**: Otang - Last Sundown
+**Track**: gyrofield & latesleeper - Rosequartz
 
-Last updated at 05/05/2021 08:12
+Last updated at 05/05/2021 08:18
