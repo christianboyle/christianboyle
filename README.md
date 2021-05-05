@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0FgqXx729RnBeUK-jzyNmw-t500x500.jpg">](https://soundcloud.com/discoveryteam/tiesto-ty-dolla-ign-the-business-pt-ii-noto-remix)
 
-**Artist**: HOLLA HERDI 
+**Artist**: Discovery Team 
 
-**Track**: MXPX - Let's Ride
+**Track**: Tiesto & Ty Dolla $ign - The Business, Pt. II (NOTO Remix)
 
-Last updated at 05/05/2021 10:18
+Last updated at 05/05/2021 10:20
