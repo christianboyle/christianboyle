@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znGQbCbFI3mUCSLT-659hYw-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-feat-dan-larkin-guestmix-05032021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBoDbQiusFMl-0-t500x500.png">](https://soundcloud.com/adamturleymusic/pure-bliss)
 
-**Artist**: datafruits 
+**Artist**: adamturley 
 
-**Track**: Radio Show With Cralias (Feat Dan Larkin Guestmix) 05032021
+**Track**: Pure Bliss
 
-Last updated at 05/05/2021 08:42
+Last updated at 05/05/2021 09:00
