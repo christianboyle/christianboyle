@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpYp3DDNqlRLERzp-FJYxyg-t500x500.jpg">](https://soundcloud.com/balamii/soul-stew-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RaZLRypJUGk4YPkQ-uxoJbQ-t500x500.jpg">](https://soundcloud.com/balamii/technical-glitch-w-human-logo-and-marian-may-2021)
 
 **Artist**: Balamii 
 
-**Track**: Soul Stew - May 2021
+**Track**: Technical Glitch w/ Human Logo and Marian - May 2021
 
-Last updated at 05/06/2021 13:35
+Last updated at 05/06/2021 14:17
