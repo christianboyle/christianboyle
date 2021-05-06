@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375488112-jl4lyk-t500x500.jpg">](https://soundcloud.com/pictureus/falling-for-nanobii-love)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwng-bN-5FL5yIVZqxFW202zHTChd1Re2Nx-u1P7ilg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC3tg0XIy-VL4z1rVJOtllFA)
 
-**Artist**: PictureUs 
+**Artist**: Taio Cruz 
 
-**Track**: Falling For Nanobii
+**Track**: Dynamite (UK Version)
 
-Last updated at 05/06/2021 18:42
+Last updated at 05/06/2021 18:50
