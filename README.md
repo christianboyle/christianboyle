@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-60xW75aLswftpyej-tyrkqg-t500x500.jpg">](https://soundcloud.com/kevmth/soul-w-sway55)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WTakBg2e6zvGiozM-lSKE4Q-t500x500.jpg">](https://soundcloud.com/shogunmoryo/visions)
 
-**Artist**: kvvv3 
+**Artist**: PRDSHOGUN 
 
-**Track**: Soul w/ Sway55
+**Track**: VISIONS
 
-Last updated at 05/06/2021 07:43
+Last updated at 05/06/2021 07:45
