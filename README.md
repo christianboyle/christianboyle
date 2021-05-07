@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDkbC4cGIfuIDjLo-V1ZBkA-t500x500.jpg">](https://soundcloud.com/basscon/starx-monster-feat-tara-louise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYmNvky4gi7QiRrL-QARyqA-t500x500.jpg">](https://soundcloud.com/anjunadeep/durante-hana-whisper-cell-1?in=anjunadeep/sets/durante-hana-celestia-ep)
 
-**Artist**: BASSCON 
+**Artist**: Anjunadeep 
 
-**Track**: STARX - Monster (feat. Tara Louise)
+**Track**: Durante & HANA - Whisper Cell
 
-Last updated at 05/07/2021 12:08
+Last updated at 05/07/2021 12:10
