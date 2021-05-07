@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458070318-qd7ufw-t500x500.jpg">](https://soundcloud.com/teez-official/anarbor-sassy-bad-royale-teez-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452376552-ja8331-t500x500.jpg">](https://soundcloud.com/tastynetwork/oneohkay-last-7-letters)
 
-**Artist**: Teez 
+**Artist**: Tasty 
 
-**Track**: Sassy (Bad Royale & Teez Remix)
+**Track**: oneohkay - Last 7 Letters
 
-Last updated at 05/07/2021 15:52
+Last updated at 05/07/2021 15:54
