@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500685327-v0d2rf-t500x500.jpg">](https://soundcloud.com/uiceheidd/fast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000473257245-tf256o-t500x500.jpg">](https://soundcloud.com/subraver/subraver-give-me-all-your-love-now-radio-mix)
 
-**Artist**: Juice WRLD 
+**Artist**: Subraver 
 
-**Track**: Fast
+**Track**: Subraver - Give Me All Your Love Now (Radio Mix)
 
-Last updated at 05/07/2021 15:48
+Last updated at 05/07/2021 15:50
