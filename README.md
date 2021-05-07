@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452376552-ja8331-t500x500.jpg">](https://soundcloud.com/tastynetwork/oneohkay-last-7-letters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452737608-d6ygtr-t500x500.jpg">](https://soundcloud.com/doubtsmusic/i-wanna-know-doubts-remix-rl-grime)
 
-**Artist**: Tasty 
+**Artist**: Doubts 
 
-**Track**: oneohkay - Last 7 Letters
+**Track**: I Wanna Know (Doubts Remix) - RL Grime (feat. Daya)
 
-Last updated at 05/07/2021 15:54
+Last updated at 05/07/2021 15:56
