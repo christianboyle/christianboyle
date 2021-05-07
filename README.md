@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DRVy2tbgfDAwxQ2T-2ytxHg-t500x500.jpg">](https://soundcloud.com/dubstepfbi/jinx-riot-control-radio-032?in=jinxwrld/sets/mixes)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnh0xwvpnZZ2XC4Co3Iy7EyDmr6M1MH4jSMx-kQYQQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC8iAV2sa8UQNXU__jVQpFzQ)
 
-**Artist**: DUBSTEP FBI 
+**Artist**: getter 
 
-**Track**: jinx - Riot Control Radio 032
+**Track**: GETTER - ADHD
 
-Last updated at 05/07/2021 12:15
+Last updated at 05/07/2021 12:17
