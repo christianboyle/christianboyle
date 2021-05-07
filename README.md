@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4zBOJU6ILbbft9m-53IKSQ-t500x500.jpg">](https://soundcloud.com/dumbcollective/kazantzakis-breathing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500685327-v0d2rf-t500x500.jpg">](https://soundcloud.com/uiceheidd/fast)
 
-**Artist**: dumb collective. 
+**Artist**: Juice WRLD 
 
-**Track**: kazantzakis - breathing.
+**Track**: Fast
 
-Last updated at 05/07/2021 15:44
+Last updated at 05/07/2021 15:48
