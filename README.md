@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRYWRHFzvnElNKHW-J6XRpA-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/p-a-r-t-i-k-l-distance?in=ghettoghettorecords/sets/ghetto-ghetto-x-sub-49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WI7Wozv3i1Z3Om68-8NCcpg-t500x500.jpg">](https://soundcloud.com/resurgencelabel/monoxide?in=strangerinspace/sets/monoxide)
 
-**Artist**: GHETTO GHETTO 
+**Artist**: resurgence 
 
-**Track**: P A R T I K L - Distance
+**Track**: Space Stranger - Monoxide
 
-Last updated at 05/07/2021 22:07
+Last updated at 05/07/2021 22:11
