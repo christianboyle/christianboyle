@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4zBOJU6ILbbft9m-53IKSQ-t500x500.jpg">](https://soundcloud.com/dumbcollective/kazantzakis-breathing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YdYXmAiswNUX0skH-DqoxRg-t500x500.jpg">](https://soundcloud.com/thefactory93/weska-meru?in=iamweska/sets/weska-meru-ep-factory-93)
 
-**Artist**: dumb collective. 
+**Artist**: Factory 93 
 
-**Track**: kazantzakis - breathing.
+**Track**: Weska - Meru
 
-Last updated at 05/08/2021 00:28
+Last updated at 05/08/2021 00:30
