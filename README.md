@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPZnL1UzKyvuFKN3-uRSsYA-t500x500.jpg">](https://soundcloud.com/bitbird/tails-last-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GS8lzvOG6EgsowMg-LYrCmg-t500x500.jpg">](https://soundcloud.com/ookaymusic/weekends)
 
-**Artist**: bitbird 
+**Artist**: Ookay 
 
-**Track**: Tails - last night (eclipse) [feat. AYA YVES]
+**Track**: Weekends
 
-Last updated at 05/08/2021 01:28
+Last updated at 05/08/2021 01:30
