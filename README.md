@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4P0Rlfq15pin3JN-6V3wXw-t500x500.jpg">](https://soundcloud.com/junkedd/the-bassmasters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J0M53nrmiKnIEadL-w7gzCA-t500x500.jpg">](https://soundcloud.com/imaeneas/drumkit)
 
-**Artist**: JUNKED 
+**Artist**: AENEΛS 
 
-**Track**: JUNKED x SYREDU - THE BASSMASTERS (Full Tape)
+**Track**: SOUNDS OF AENEΛS VOL. I
 
-Last updated at 05/07/2021 22:24
+Last updated at 05/07/2021 22:44
