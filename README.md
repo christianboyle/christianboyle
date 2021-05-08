@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JlxZoq04mP76-0-t500x500.png">](https://soundcloud.com/arkpatrol/let-go-robotaki-remix-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRYWRHFzvnElNKHW-J6XRpA-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/1-minor-ft-hherb-dominatrix?in=ghettoghettorecords/sets/ghetto-ghetto-x-sub-49)
 
-**Artist**: Ark Patrol 
+**Artist**: GHETTO GHETTO 
 
-**Track**: Let Go (Robotaki Remix) [feat. Veronika Redd]
+**Track**: Minør (ft. Hherb) - Dominatrix
 
-Last updated at 05/07/2021 21:45
+Last updated at 05/07/2021 21:49
