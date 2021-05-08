@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VIBX6QP3CcfywtzX-0Z47Yw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-19-feat-young-bombs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYmNvky4gi7QiRrL-QARyqA-t500x500.jpg">](https://soundcloud.com/anjunadeep/durante-hana-away-home-1?in=durante/sets/durante-hana-celestia-ep)
 
-**Artist**: syence experiments 
+**Artist**: Anjunadeep 
 
-**Track**: syence lab: volume 19 (feat. young bombs)
+**Track**: Durante & HANA - Away Home
 
-Last updated at 05/08/2021 05:45
+Last updated at 05/08/2021 06:48
