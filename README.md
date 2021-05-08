@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MltNPSB2RhSxbbw2-lz0g6w-t500x500.jpg">](https://soundcloud.com/wearetar/garrett-gleason-ethan-snyder?in=wearetar/sets/house-up-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NdgC8MHXXNBT-0-t500x500.png">](https://soundcloud.com/ghostdragonofficial/darker-days)
 
-**Artist**: TAR 
+**Artist**: GhostDragon 
 
-**Track**: Garrett Gleason & Ethan Snyder - "Creator Wears a Blindfold"
+**Track**: Darker Days
 
-Last updated at 05/08/2021 00:07
+Last updated at 05/08/2021 00:13
