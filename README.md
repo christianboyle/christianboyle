@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lAXILQKSzIReiUGi-Mq0FFw-t500x500.jpg">](https://soundcloud.com/weplayitlouder/overspace-cashland-worth-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWrYZEzodzrzpAyK-zU0UFA-t500x500.jpg">](https://soundcloud.com/ophelia_records/star-seed-ultraviolet-with-tsu-nami)
 
-**Artist**: Playitlouder 
+**Artist**: Ophelia Records 
 
-**Track**: Overspace & Cashland - Worth It (feat. SH1NOB1, Boba Boyz, Kwajo & LoneMoon)
+**Track**: STAR SEED - Ultraviolet (with Tsu Nami)
 
-Last updated at 05/07/2021 20:24
+Last updated at 05/07/2021 20:28
