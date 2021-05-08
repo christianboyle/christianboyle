@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AnVM9shkTMcbpntD-j2Xs0Q-t500x500.jpg">](https://soundcloud.com/johndunder/john-dunder-krosia-cold-warm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bM4N7KDDTaIbzsLd-PVscMg-t500x500.jpg">](https://soundcloud.com/thebeamon/gundam)
 
-**Artist**: John Dunder 
+**Artist**: BEAMON 
 
-**Track**: John Dunder & Krosia - Cold Warm
+**Track**: BEAMON - Gundam Man (produced by Lennon Empire)
 
-Last updated at 05/08/2021 01:18
+Last updated at 05/08/2021 01:22
