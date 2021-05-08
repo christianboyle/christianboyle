@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pkhQaYa6HK9lS4Ba-fdVfhg-t500x500.jpg">](https://soundcloud.com/quixofficial/tiger-drool-saber-tooth-quix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8y7DjNRRqTEdxTt-Azhnlw-t500x500.jpg">](https://soundcloud.com/shyghyofficial/fly-high)
 
-**Artist**: QUIX 
+**Artist**: ShyGhy 
 
-**Track**: TIGER DROOL - SABER TOOTH (QUIX Remix)
+**Track**: Fly High
 
-Last updated at 05/08/2021 00:48
+Last updated at 05/08/2021 00:50
