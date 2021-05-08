@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bM4N7KDDTaIbzsLd-PVscMg-t500x500.jpg">](https://soundcloud.com/thebeamon/gundam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzgTMmtYEOiEyzHz-pSwNLg-t500x500.jpg">](https://soundcloud.com/katebi/roud3)
 
-**Artist**: BEAMON 
+**Artist**: KATEBI 
 
-**Track**: BEAMON - Gundam Man (produced by Lennon Empire)
+**Track**: Roud3
 
-Last updated at 05/08/2021 01:22
+Last updated at 05/08/2021 01:26
