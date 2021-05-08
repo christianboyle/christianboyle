@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDkbC4cGIfuIDjLo-V1ZBkA-t500x500.jpg">](https://soundcloud.com/basscon/starx-monster-feat-tara-louise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IpO9aK38AyzHlTyq-0nR3Tw-t500x500.jpg">](https://soundcloud.com/noirsurblancrecords/pokeyz-this)
 
-**Artist**: BASSCON 
+**Artist**: noir sur blanc 
 
-**Track**: STARX - Monster (feat. Tara Louise)
+**Track**: Pokeyz - This
 
-Last updated at 05/07/2021 22:58
+Last updated at 05/07/2021 23:02
