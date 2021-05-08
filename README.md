@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7kwU3uvwufssyiqI-D5Juyw-t500x500.jpg">](https://soundcloud.com/thatdudebrb/ciucixx-x-pold-x-baribal-your-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lAXILQKSzIReiUGi-Mq0FFw-t500x500.jpg">](https://soundcloud.com/weplayitlouder/overspace-cashland-worth-it)
 
-**Artist**: Baribal 
+**Artist**: Playitlouder 
 
-**Track**: Ciucixx x Pold x Baribal - Your Body
+**Track**: Overspace & Cashland - Worth It (feat. SH1NOB1, Boba Boyz, Kwajo & LoneMoon)
 
-Last updated at 05/07/2021 20:20
+Last updated at 05/07/2021 20:24
