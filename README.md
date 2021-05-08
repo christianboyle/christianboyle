@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZIkaN6TGOK7ZLvk-b9XOCA-t500x500.jpg">](https://soundcloud.com/sleepynixie/dead-on-my-feet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7yKIEdBCQHs9nrw-pHyByg-t500x500.jpg">](https://soundcloud.com/cyclopsrecs/wileycoyote-x-jordnmoody-x)
 
-**Artist**: sleepy nixie 
+**Artist**: Cyclops Recordings 
 
-**Track**: dead on my feet
+**Track**: Wiley x jordnmoody x Wreckno - Acidears
 
-Last updated at 05/08/2021 05:23
+Last updated at 05/08/2021 05:25
