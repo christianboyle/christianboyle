@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGaN7fIB0eslglJ0-EI6Rwg-t500x500.jpg">](https://soundcloud.com/balamii/alex-virgo-w-mayans-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZRSh0pRE3As02Exw-zm1Yzw-t500x500.jpg">](https://soundcloud.com/onpointnetwork/melody)
 
-**Artist**: Balamii 
+**Artist**: On Point Records 
 
-**Track**: Alex Virgo w/ Mayans -  May 2021
+**Track**: Hizone - Melody
 
-Last updated at 05/08/2021 03:01
+Last updated at 05/08/2021 05:02
