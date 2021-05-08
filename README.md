@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J0M53nrmiKnIEadL-w7gzCA-t500x500.jpg">](https://soundcloud.com/imaeneas/drumkit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HHrW4x6OPENQg0S-XRTC5A-t500x500.jpg">](https://soundcloud.com/nollmusic/carriedaway)
 
-**Artist**: AENEΛS 
+**Artist**: nøll 
 
-**Track**: SOUNDS OF AENEΛS VOL. I
+**Track**: Surf Mesa, Madison Beer - Carried Away (nøll Remix)
 
-Last updated at 05/07/2021 22:44
+Last updated at 05/07/2021 22:54
