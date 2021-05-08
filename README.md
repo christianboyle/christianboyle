@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xkrGUOPyqXBQmXF8-2TsSTQ-t500x500.jpg">](https://soundcloud.com/thewavestage/djedi-feels-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VIBX6QP3CcfywtzX-0Z47Yw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-19-feat-young-bombs)
 
-**Artist**: The Wave Stage 🌊 
+**Artist**: syence experiments 
 
-**Track**: Djedi - Feels Right [TWS011]
+**Track**: syence lab: volume 19 (feat. young bombs)
 
-Last updated at 05/08/2021 05:42
+Last updated at 05/08/2021 05:45
