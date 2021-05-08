@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01ySQc0q3s19LTnc-hqXMTg-t500x500.jpg">](https://soundcloud.com/elozi/ether)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xkrGUOPyqXBQmXF8-2TsSTQ-t500x500.jpg">](https://soundcloud.com/thewavestage/djedi-feels-right)
 
-**Artist**: elozi 
+**Artist**: The Wave Stage 🌊 
 
-**Track**: Ether
+**Track**: Djedi - Feels Right [TWS011]
 
-Last updated at 05/08/2021 05:39
+Last updated at 05/08/2021 05:42
