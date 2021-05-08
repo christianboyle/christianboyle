@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzgTMmtYEOiEyzHz-pSwNLg-t500x500.jpg">](https://soundcloud.com/katebi/roud3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPZnL1UzKyvuFKN3-uRSsYA-t500x500.jpg">](https://soundcloud.com/bitbird/tails-last-night)
 
-**Artist**: KATEBI 
+**Artist**: bitbird 
 
-**Track**: Roud3
+**Track**: Tails - last night (eclipse) [feat. AYA YVES]
 
-Last updated at 05/08/2021 01:26
+Last updated at 05/08/2021 01:28
