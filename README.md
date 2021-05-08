@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRYWRHFzvnElNKHW-J6XRpA-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/graymatter-avenue-slik-vik-mori-velle?in=ghettoghettorecords/sets/ghetto-ghetto-x-sub-49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRYWRHFzvnElNKHW-J6XRpA-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/spacewalk-instinct?in=ghettoghettorecords/sets/ghetto-ghetto-x-sub-49)
 
 **Artist**: GHETTO GHETTO 
 
-**Track**: GRAYMATTER, Avenue, Slik Vik - Mori Velle
+**Track**: SPACEWALK. - Instinct
 
-Last updated at 05/07/2021 21:59
+Last updated at 05/07/2021 22:03
