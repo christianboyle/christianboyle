@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CKY77jQTBpsPFx2p-CtzkiA-t500x500.jpg">](https://soundcloud.com/datboiodd/nightshift-w-svopu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JlxZoq04mP76-0-t500x500.png">](https://soundcloud.com/arkpatrol/let-go-robotaki-remix-feat)
 
-**Artist**: ODD 1 OUT 
+**Artist**: Ark Patrol 
 
-**Track**: NIGHTSHIFT w. SVOPU
+**Track**: Let Go (Robotaki Remix) [feat. Veronika Redd]
 
-Last updated at 05/07/2021 21:41
+Last updated at 05/07/2021 21:45
