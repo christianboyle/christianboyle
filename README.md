@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sELChIPSaXdD6s7s-sIebpw-t500x500.jpg">](https://soundcloud.com/jaycenamour/streetmantra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zunFzCuPhEp2Moh5-ykOHyA-t500x500.jpg">](https://soundcloud.com/codeko/cursed-ft-becca-krueger-thrive)
 
-**Artist**: Jaycen A'mour 
+**Artist**: CODEKO 
 
-**Track**: Jaycen A'mour x Downlowd - Street Mantra
+**Track**: Cursed ft. Becca Krueger [THRIVE]
 
-Last updated at 05/08/2021 00:54
+Last updated at 05/08/2021 00:56
