@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naJjCNAZx5Ics2W9-SKUSEA-t500x500.jpg">](https://soundcloud.com/juuku/porter-robinson-mother-juuku-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-huzIKrJ9k8xk-0-t500x500.jpg">](https://soundcloud.com/cian-ducrot/know-me-again-feat-cate)
 
-**Artist**: juuku 
+**Artist**: Cian Ducrot 
 
-**Track**: porter robinson - mother (juuku flip)
+**Track**: Know Me Again (feat. Cate)
 
-Last updated at 05/08/2021 00:17
+Last updated at 05/08/2021 00:20
