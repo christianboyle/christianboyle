@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv5H4x4ZUEywM7Pg-SetYFw-t500x500.jpg">](https://soundcloud.com/alaguan/love-u-anyway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHbvSrTjSu7Lt1sh-fu3big-t500x500.jpg">](https://soundcloud.com/ap11beat/shrill)
 
-**Artist**: Alaguan 
+**Artist**: AP11 
 
-**Track**: Love U Anyway
+**Track**: shrill - Omfu Drumkit Vol.1 Promo
 
-Last updated at 05/08/2021 05:08
+Last updated at 05/08/2021 05:10
