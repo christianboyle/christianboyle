@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trvovcB0cxX1K0mY-xKzM6g-t500x500.jpg">](https://soundcloud.com/flamingoflamingoflamingo/2am-with-hugo-1?in=flamingoflamingoflamingo/sets/2am-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LJdM4NkpCWiYuTul-lfXkMg-t500x500.jpg">](https://soundcloud.com/teethyrecords/luke-andy-low-limbo?in=teethyrecords/sets/morelia-friends-ii)
 
-**Artist**: Flawed Mangoes 
+**Artist**: Teethy 
 
-**Track**: 2am (with HUGO)
+**Track**: Luke Andy - Low Limbo
 
-Last updated at 05/08/2021 01:40
+Last updated at 05/08/2021 01:42
