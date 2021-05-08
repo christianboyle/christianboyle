@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZRSh0pRE3As02Exw-zm1Yzw-t500x500.jpg">](https://soundcloud.com/onpointnetwork/melody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jdmR1C8W7OhYSPcv-dvzAyA-t500x500.jpg">](https://soundcloud.com/byjonahwhite/unlock-cloud-9-jonah-white-x-elphi-x-charli-xcx)
 
-**Artist**: On Point Records 
+**Artist**: Jonah White 
 
-**Track**: Hizone - Melody
+**Track**: Unlock Cloud 9 (Jonah White x Elphi x Charli XCX)
 
-Last updated at 05/08/2021 05:02
+Last updated at 05/08/2021 05:06
