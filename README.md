@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QbnmbGolz8VU5lbP-qL7WyA-t500x500.jpg">](https://soundcloud.com/denzelmoiz/where-it-brings-me-with-walter-jr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AnVM9shkTMcbpntD-j2Xs0Q-t500x500.jpg">](https://soundcloud.com/johndunder/john-dunder-krosia-cold-warm)
 
-**Artist**: Denzel Moiz 
+**Artist**: John Dunder 
 
-**Track**: Where It Brings Me (with Walter Jr.)
+**Track**: John Dunder & Krosia - Cold Warm
 
-Last updated at 05/08/2021 01:16
+Last updated at 05/08/2021 01:18
