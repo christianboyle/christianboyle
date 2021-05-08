@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7yKIEdBCQHs9nrw-pHyByg-t500x500.jpg">](https://soundcloud.com/cyclopsrecs/wileycoyote-x-jordnmoody-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EZBBPaW0X66-0-t500x500.jpg">](https://soundcloud.com/apedrums/delete-feat-beam?in=apedrums/sets/soundboy)
 
-**Artist**: Cyclops Recordings 
+**Artist**: Ape Drums 
 
-**Track**: Wiley x jordnmoody x Wreckno - Acidears
+**Track**: Delete (feat. BEAM)
 
-Last updated at 05/08/2021 05:25
+Last updated at 05/08/2021 05:29
