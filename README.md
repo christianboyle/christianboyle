@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTc9Cbd7BDw1A1Kt-VJmXWg-t500x500.jpg">](https://soundcloud.com/grvdncr/klown-x-steez-what-u-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rd9pWfery9dr1ake-DGb5Fw-t500x500.jpg">](https://soundcloud.com/powerglove/wolf)
 
-**Artist**: GRVDNCR 
+**Artist**: Power Glove 
 
-**Track**: KLOWN x STEEZ - What U Know
+**Track**: WOLF
 
-Last updated at 05/08/2021 02:56
+Last updated at 05/08/2021 02:58
