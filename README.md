@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LJdM4NkpCWiYuTul-lfXkMg-t500x500.jpg">](https://soundcloud.com/teethyrecords/fantom-freq-minor-in-your-arms?in=teethyrecords/sets/morelia-friends-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Fc5XTX2LyizE0O7-56KQpg-t500x500.jpg">](https://soundcloud.com/stizzzy/growing-up-ep)
 
-**Artist**: Teethy 
+**Artist**: Stizzzy 
 
-**Track**: Fantom Freq & Minør - In Your Arms
+**Track**: Growing Up EP
 
-Last updated at 05/08/2021 02:35
+Last updated at 05/08/2021 02:41
