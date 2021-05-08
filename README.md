@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jdmR1C8W7OhYSPcv-dvzAyA-t500x500.jpg">](https://soundcloud.com/byjonahwhite/unlock-cloud-9-jonah-white-x-elphi-x-charli-xcx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv5H4x4ZUEywM7Pg-SetYFw-t500x500.jpg">](https://soundcloud.com/alaguan/love-u-anyway)
 
-**Artist**: Jonah White 
+**Artist**: Alaguan 
 
-**Track**: Unlock Cloud 9 (Jonah White x Elphi x Charli XCX)
+**Track**: Love U Anyway
 
-Last updated at 05/08/2021 05:06
+Last updated at 05/08/2021 05:08
