@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAPoqJ5dSvZL0aBU-GHK6mA-t500x500.jpg">](https://soundcloud.com/tyronfrmusic/joel-corry-vs-botnek-the-spaceman-parade-tyron-taz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyGLVNWmghqi-0-t500x500.jpg">](https://soundcloud.com/samgellaitry/duo)
 
-**Artist**: TYRON [FR] 
+**Artist**: sam gellaitry 
 
-**Track**: Joel Corry vs Botnek - The Spaceman Parade ( Tyron Taz Edit )
+**Track**: Duo
 
-Last updated at 05/07/2021 20:16
+Last updated at 05/07/2021 20:18
