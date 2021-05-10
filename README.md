@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CItzxrqyG8p3SyMp-AsRSLA-t500x500.jpg">](https://soundcloud.com/viewtifulday/viewtifulday-my-sunshine-out-now-on-hptg-music?in=hptgmusic/sets/ravekick-005-chain-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKWiE6h5RcrkbgHz-C37qyQ-t500x500.jpg">](https://soundcloud.com/4tef/amped?in=hptgmusic/sets/ravekick-005-chain-reaction)
 
-**Artist**: viewtifulday 
+**Artist**: Atef 
 
-**Track**: viewtifulday - My Sunshine (OUT NOW on HPTG Music)
+**Track**: Amped
 
-Last updated at 05/10/2021 09:09
+Last updated at 05/10/2021 09:11
