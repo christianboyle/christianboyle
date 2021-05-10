@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xKWiE6h5RcrkbgHz-C37qyQ-t500x500.jpg">](https://soundcloud.com/4tef/amped?in=hptgmusic/sets/ravekick-005-chain-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cR8zUbB2JdFvUNy1-MwcSKw-t500x500.jpg">](https://soundcloud.com/lalou-hard/full-moon-by-lalou-may-2021-exclusive-tribute-to-avi8)
 
-**Artist**: Atef 
+**Artist**: Lalou 
 
-**Track**: Amped
+**Track**: FULL MOON by LALOU - May 2021 (Exclusive Tribute to Avi8)
 
-Last updated at 05/10/2021 09:11
+Last updated at 05/10/2021 09:33
