@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WNkpi6O4Xd6DlFmr-YuP2xQ-t500x500.jpg">](https://soundcloud.com/electroass/dj-please-hasse-de-moor-vs-kreayshawn-vs-neana-vs-nederkant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vHdBZ033uyzyt1Ei-up0inQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/surati-r0ar-x-when-the-sun-dnt-shine?in=nightcore4totalsluts/sets/suratis-club-classics-ep-1)
 
-**Artist**: DJ Please (aka ElectroAss) 
+**Artist**: nightcore4totalsluts 
 
-**Track**: DJ PLEASE - Hasse De Moor Vs Kreayshawn Vs Neana Vs NEDERKANT (HIGHLY ILLEGAL BOOTLEG)
+**Track**: Surati - R0ar X When The Sun Dnt Shine
 
-Last updated at 05/10/2021 08:53
+Last updated at 05/10/2021 08:57
