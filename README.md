@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000149534833-zlwnz4-t500x500.jpg">](https://soundcloud.com/shiftyrhythms/headstone-thug)
 
-**Artist**: trndytrndy 
+**Artist**: Shifty Rhythms 
 
-**Track**: be nice to me (cover)
+**Track**: headstone - Thug
 
-Last updated at 05/10/2021 18:11
+Last updated at 05/10/2021 18:13
