@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zk6J028UuVWQlklw-kiIecQ-t500x500.jpg">](https://soundcloud.com/sudoverse/fatalism)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hJroS09BN4xAxOxd-nD27Fg-t500x500.jpg">](https://soundcloud.com/xotixmusic/skrillex-butterflies-xotix-remix)
 
-**Artist**: Sudoverse 
+**Artist**: Xotix 
 
-**Track**: Fatalism
+**Track**: Skrillex- Butterflies (Xotix Remix)
 
-Last updated at 05/11/2021 10:07
+Last updated at 05/11/2021 10:11
