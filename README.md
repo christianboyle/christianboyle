@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7U9wQrOdAuxCYnAe-gLM0GQ-t500x500.jpg">](https://soundcloud.com/shallnotfade/snfsslp002-interstate-dominion-swing-lp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOms4gmCD6Jzbz6I-BG2u8w-t500x500.jpg">](https://soundcloud.com/rusuitor/slow-sense-ebonne-sometimes)
 
-**Artist**: Shall Not Fade 
+**Artist**: [ SUITOR ] 
 
-**Track**: SNFSSLP002 // Interstate - Dominion Swing LP
+**Track**: Slow Sense & Ebonne - Sometimes [ FREE DOWNLOAD ]
 
-Last updated at 05/11/2021 10:15
+Last updated at 05/11/2021 12:06
