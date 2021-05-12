@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFIbs1FSXwVnoAPs-Y1x0SA-t500x500.jpg">](https://soundcloud.com/hindie-corporation/thc-podcast-series-085-cltx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRAqXg9SYCPmp4sC-gGVhFw-t500x500.jpg">](https://soundcloud.com/projectbrand/homage-w-riot-code-07-may-2021)
 
-**Artist**: The Hindie Corporation 
+**Artist**: Project Radio 
 
-**Track**: THC Podcast Series 085 - CLTX
+**Track**: HOMAGE w/ Riot Code - 07 May 2021
 
-Last updated at 05/11/2021 16:15
+Last updated at 05/12/2021 06:47
