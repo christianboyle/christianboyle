@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MbelfkOsG8y3MZx7-hu21Pg-t500x500.jpg">](https://soundcloud.com/rinsefm/hixxy110521)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g4gyoEDz8vTk8Orz-Vbo04g-t500x500.jpg">](https://soundcloud.com/ravescience/rave-science-fm-episode-6)
 
-**Artist**: Rinse FM 
+**Artist**: Rave Science 
 
-**Track**: Hixxy with Technikore & JTS - 11 May 2021
+**Track**: RAVE SCIENCE FM EPISODE 6
 
-Last updated at 05/13/2021 07:59
+Last updated at 05/13/2021 08:32
