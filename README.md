@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyV6T0zAqbVy75Zf-xhjdmg-t500x500.jpg">](https://soundcloud.com/souzouteki_iketuozuos/avenir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MbelfkOsG8y3MZx7-hu21Pg-t500x500.jpg">](https://soundcloud.com/rinsefm/hixxy110521)
 
-**Artist**: Souzouteki 
+**Artist**: Rinse FM 
 
-**Track**: AVENIR
+**Track**: Hixxy with Technikore & JTS - 11 May 2021
 
-Last updated at 05/13/2021 07:57
+Last updated at 05/13/2021 07:59
