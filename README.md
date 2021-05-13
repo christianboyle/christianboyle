@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g4gyoEDz8vTk8Orz-Vbo04g-t500x500.jpg">](https://soundcloud.com/ravescience/rave-science-fm-episode-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUG7ZChgoR3qNzCl-iDAVyA-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-168-prospa)
 
-**Artist**: Rave Science 
+**Artist**: Lobster Theremin 
 
-**Track**: RAVE SCIENCE FM EPISODE 6
+**Track**: LT Podcast 168 // Prospa
 
-Last updated at 05/13/2021 08:32
+Last updated at 05/13/2021 09:49
