@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G3o2Lce81icziRy-vYPdGg-t500x500.jpg">](https://soundcloud.com/corevl/palmsprings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ut9MjsSMQVqqc0Qa-1zJU7w-t500x500.jpg">](https://soundcloud.com/loudkult/elie-curtis-cymba-boy-u-look-so-pretty)
 
-**Artist**: COREAL 🐬 
+**Artist**: LoudKult 
 
-**Track**: PALM SPRINGS
+**Track**: elie curtis, Cymba - boy u look so pretty
 
-Last updated at 05/14/2021 11:11
+Last updated at 05/14/2021 11:15
