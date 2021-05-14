@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SoF5FBYdGyamy79K-hiN4QQ-t500x500.jpg">](https://soundcloud.com/loudkult/tullio-august-kid-something-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glGlePRd8LOw8Cz5-vmvtCg-t500x500.jpg">](https://soundcloud.com/loudkult/cpx-mert-can-hymn-for-the-weekend)
 
 **Artist**: LoudKult 
 
-**Track**: Tullio, August Kid - Something More
+**Track**: CPX & Mert Can - Hymn For The Weekend
 
-Last updated at 05/14/2021 11:25
+Last updated at 05/14/2021 11:27
