@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFj33flI3OySPqqa-S6jjaQ-t500x500.jpg">](https://soundcloud.com/theskulkids/blink-182-i-miss-you-the-skulkids-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udy8QXtx3kvIlFu2-c0gy0A-t500x500.jpg">](https://soundcloud.com/whoispurge/home)
 
-**Artist**: SkulKids 
+**Artist**: PURGE 
 
-**Track**: Blink 182 - I Miss You (SkulKids Remix)
+**Track**: Home (feat. Lizzy Jane)
 
-Last updated at 05/14/2021 15:56
+Last updated at 05/14/2021 15:58
