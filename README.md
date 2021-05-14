@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JeWcAsUPpMaGgAe-76l70A-t500x500.jpg">](https://soundcloud.com/bkayeofficial/dj-khaled-ft-justin-biber-21-savage-let-it-go-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBrKAVperH44qzet-rLEz4w-t500x500.jpg">](https://soundcloud.com/jackieplatinum/2-my-letter-to-boston-prod)
 
-**Artist**: BKAYE 
+**Artist**: Jackie Platinum 
 
-**Track**: DJ Khaled feat. Justin Bieber & 21 Savage - LET IT GO (BKAYE Remix)
+**Track**: 2.) My Letter To Boston (Prod. remghost & Sam Thraxx)
 
-Last updated at 05/14/2021 16:08
+Last updated at 05/14/2021 18:28
