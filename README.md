@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dRlqh2LejVTUbVB1-tKqPsg-t500x500.jpg">](https://soundcloud.com/destinuna/ives-iris-time-to-reach-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBrKAVperH44qzet-rLEz4w-t500x500.jpg">](https://soundcloud.com/jackieplatinum/1-october-snow-prod-in-soo?in=jackieplatinum/sets/my-letter-to-boston-1)
 
-**Artist**: Destinuna 
+**Artist**: Jackie Platinum 
 
-**Track**: IVES' IRIS - Time To Reach You
+**Track**: 1.) October Snow (Prod. In Soo)
 
-Last updated at 05/14/2021 09:38
+Last updated at 05/14/2021 10:00
