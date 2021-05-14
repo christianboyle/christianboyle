@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udy8QXtx3kvIlFu2-c0gy0A-t500x500.jpg">](https://soundcloud.com/whoispurge/home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpG1AJp8HnzRBXsX-d1vE4w-t500x500.jpg">](https://soundcloud.com/warehouse_rave/frazer-ray-cadenza)
 
-**Artist**: PURGE 
+**Artist**: Warehouse_rave 
 
-**Track**: Home (feat. Lizzy Jane)
+**Track**: Frazer Ray - Cadenza
 
-Last updated at 05/14/2021 15:58
+Last updated at 05/14/2021 16:00
