@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRfsuvEz9yRSb5Sb-mz1o7A-t500x500.jpg">](https://soundcloud.com/lilburtdogg/waves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JeWcAsUPpMaGgAe-76l70A-t500x500.jpg">](https://soundcloud.com/bkayeofficial/dj-khaled-ft-justin-biber-21-savage-let-it-go-bkaye-remix)
 
-**Artist**: Burt Dogg 
+**Artist**: BKAYE 
 
-**Track**: waves
+**Track**: DJ Khaled feat. Justin Bieber & 21 Savage - LET IT GO (BKAYE Remix)
 
-Last updated at 05/14/2021 11:41
+Last updated at 05/14/2021 15:54
