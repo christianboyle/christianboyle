@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBrKAVperH44qzet-rLEz4w-t500x500.jpg">](https://soundcloud.com/jackieplatinum/2-my-letter-to-boston-prod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000601502689-o3lev0-t500x500.jpg">](https://soundcloud.com/grinless/skrillex-puppy-grinless-flip)
 
-**Artist**: Jackie Platinum 
+**Artist**: grinless 
 
-**Track**: 2.) My Letter To Boston (Prod. remghost & Sam Thraxx)
+**Track**: Skrillex- Puppy (grinless flip)
 
-Last updated at 05/14/2021 18:28
+Last updated at 05/14/2021 18:31
