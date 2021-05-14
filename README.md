@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPZnL1UzKyvuFKN3-uRSsYA-t500x500.jpg">](https://soundcloud.com/bitbird/tails-last-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRfsuvEz9yRSb5Sb-mz1o7A-t500x500.jpg">](https://soundcloud.com/lilburtdogg/waves)
 
-**Artist**: bitbird 
+**Artist**: Burt Dogg 
 
-**Track**: Tails - last night (eclipse) [feat. AYA YVES]
+**Track**: waves
 
-Last updated at 05/14/2021 11:37
+Last updated at 05/14/2021 11:41
