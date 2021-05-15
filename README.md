@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiRH5ElHSzrW3bRY-ZhNMiw-t500x500.jpg">](https://soundcloud.com/underscores/slb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SaQLWg62IiEyFTpM-DJQU1w-t500x500.jpg">](https://soundcloud.com/jeffkush/numb-prodzizibeats)
 
-**Artist**: underscores 
+**Artist**: JEFF KUSH 
 
-**Track**: Spoiled little brat
+**Track**: Numb (Prod.ZiZiBeats)
 
-Last updated at 05/14/2021 18:41
+Last updated at 05/15/2021 06:51
