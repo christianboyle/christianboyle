@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WafTWBnj2FRmUku0-AnaCNw-t500x500.jpg">](https://soundcloud.com/oddyssi/wdy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7zeXA8zzdqvAm7u-TyAjDA-t500x500.jpg">](https://soundcloud.com/p3pper/hallucination)
 
-**Artist**: oddyssi 
+**Artist**: P3PPER 
 
-**Track**: why did you
+**Track**: Hallucination ft. 닮 w/ Milkoi
 
-Last updated at 05/15/2021 06:53
+Last updated at 05/15/2021 06:55
