@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtPyH8J4nitPETQg-4yvqUA-t500x500.jpg">](https://soundcloud.com/balamii/habibti-nation-w-luma-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzheV5HnyEzKDKWx-cq2bXQ-t500x500.jpg">](https://soundcloud.com/balamii/eich-w-martyn-henry-greenleaf-may-2021)
 
 **Artist**: Balamii 
 
-**Track**: Habibti Nation w/ LUMA - May 2021
+**Track**: Eich w/ Martyn & Henry Greenleaf - May 2021
 
-Last updated at 05/15/2021 06:57
+Last updated at 05/16/2021 07:13
