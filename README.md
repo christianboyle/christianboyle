@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJ3C4GqRyrGQAtyn-UXwHnA-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-b2b-heartbeat-ft-cowgirl-clue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpElSazhyS3CoYwE-YjLDww-t500x500.jpg">](https://soundcloud.com/pygmalionxxx/x-4-luv)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: pygmalion 
 
-**Track**: Donatachi - B2B Heartbeat ft. Cowgirl Clue
+**Track**: X 4 LUV
 
-Last updated at 05/16/2021 08:52
+Last updated at 05/16/2021 08:54
