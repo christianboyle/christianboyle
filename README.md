@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ceCBvQgaFqNuxIyR-X6l07g-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-steel-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDJMNLUK9kJlJEIQ-FPNkfw-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-feat-flyckt-feel-something)
 
 **Artist**: Galantis 
 
-**Track**: Galantis - Steel
+**Track**: Galantis feat. flyckt - Feel Something
 
-Last updated at 05/17/2021 15:00
+Last updated at 05/17/2021 15:02
