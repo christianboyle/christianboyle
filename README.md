@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYcEAkzIiQhoWvZU-0gOifQ-t500x500.jpg">](https://soundcloud.com/evolatedj/evolate-revelations-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cIz0JwSEn8J031rP-MWMboQ-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-wrabel-the-lake)
 
-**Artist**: Evolate 
+**Artist**: Galantis 
 
-**Track**: Evolate - Revelations [Free Download]
+**Track**: Galantis & Wrabel - The Lake
 
-Last updated at 05/17/2021 12:23
+Last updated at 05/17/2021 12:25
