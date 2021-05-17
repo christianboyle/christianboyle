@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYcEAkzIiQhoWvZU-0gOifQ-t500x500.jpg">](https://soundcloud.com/evolatedj/evolate-revelations-radio-edit)
 
-**Artist**: kmoe 
+**Artist**: Evolate 
 
-**Track**: gloves
+**Track**: Evolate - Revelations [Free Download]
 
-Last updated at 05/17/2021 12:21
+Last updated at 05/17/2021 12:23
