@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJjELbPURvjG9JoW-4TMMmQ-t500x500.jpg">](https://soundcloud.com/balamii/haws-w-rhodri-price-warwick-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkh7fXeEoz9gtNof-kRU8jw-t500x500.jpg">](https://soundcloud.com/evolatedj/alice-deejay-better-off-alone-evolate-bootleg-2021)
 
-**Artist**: Balamii 
+**Artist**: Evolate 
 
-**Track**: Haŵs w/ Rhodri Price & Warwick - May 2021
+**Track**: Alice Deejay - Better Off Alone (Evolate Bootleg 2021)
 
-Last updated at 05/17/2021 08:29
+Last updated at 05/17/2021 12:17
