@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkh7fXeEoz9gtNof-kRU8jw-t500x500.jpg">](https://soundcloud.com/evolatedj/alice-deejay-better-off-alone-evolate-bootleg-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
 
-**Artist**: Evolate 
+**Artist**: kmoe 
 
-**Track**: Alice Deejay - Better Off Alone (Evolate Bootleg 2021)
+**Track**: gloves
 
-Last updated at 05/17/2021 12:17
+Last updated at 05/17/2021 12:21
