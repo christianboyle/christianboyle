@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zE1NFRaydXcHMiSN-OyVjOw-t500x500.jpg">](https://soundcloud.com/tofuumusic/allthewrongthings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQzHhc016GBlU5fq-teK4qw-t500x500.jpg">](https://soundcloud.com/paraleven/lucid)
 
-**Artist**: tofû 
+**Artist**: paraleven 
 
-**Track**: tofû x Hoober - all the wrong things (feat. Meggie York)
+**Track**: Lucid ft. Nathan Ball
 
-Last updated at 05/18/2021 08:14
+Last updated at 05/18/2021 08:16
