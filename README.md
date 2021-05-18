@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Xgsj6XmCpXLHCBJ-3k6ZuQ-t500x500.jpg">](https://soundcloud.com/hiseph/enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zE1NFRaydXcHMiSN-OyVjOw-t500x500.jpg">](https://soundcloud.com/tofuumusic/allthewrongthings)
 
-**Artist**: seph 
+**Artist**: tofû 
 
-**Track**: enough w psyche tezzu & genc471
+**Track**: tofû x Hoober - all the wrong things (feat. Meggie York)
 
-Last updated at 05/18/2021 08:47
+Last updated at 05/18/2021 08:49
