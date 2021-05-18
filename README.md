@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBrKAVperH44qzet-rLEz4w-t500x500.jpg">](https://soundcloud.com/jackieplatinum/2-my-letter-to-boston-prod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
 
-**Artist**: Jackie Platinum 
+**Artist**: kmoe 
 
-**Track**: 2.) My Letter To Boston (Prod. remghost & Sam Thraxx)
+**Track**: gloves
 
-Last updated at 05/17/2021 19:43
+Last updated at 05/18/2021 08:05
