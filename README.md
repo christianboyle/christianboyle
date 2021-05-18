@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enjOxozySj6Cqc2s-iyH0WQ-t500x500.jpg">](https://soundcloud.com/kmoethekid/2267-ericdoa)
 
 **Artist**: kmoe 
 
-**Track**: gloves
+**Track**: 2267 (ft. ericdoa)
 
-Last updated at 05/18/2021 08:05
+Last updated at 05/18/2021 08:08
