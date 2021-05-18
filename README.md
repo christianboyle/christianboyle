@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MNK9cX9o599d-0-t500x500.jpg">](https://soundcloud.com/prospauk/want-need-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cIz0JwSEn8J031rP-MWMboQ-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-wrabel-the-lake)
 
-**Artist**: Prospa 
+**Artist**: Galantis 
 
-**Track**: WANT NEED LOVE
+**Track**: Galantis & Wrabel - The Lake
 
-Last updated at 05/17/2021 17:21
+Last updated at 05/17/2021 19:35
