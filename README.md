@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O2pNK3vwKlkAhH71-yhgaEw-t500x500.jpg">](https://soundcloud.com/jadudala/farrah-osins-omen-jadu161)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RzSA8FPjw15l2zYs-suzeOg-t500x500.jpg">](https://soundcloud.com/dolfinboy/dolfinboy-jakazid-presents-not-my-birthday-nmb1605)
 
-**Artist**: Jadū Dala 
+**Artist**: dolfinboy 
 
-**Track**: Farrah & Osins - Omen (JADŪ161)
+**Track**: DOLFINBOY @ JAKAZiD Presents 🙅🏻‍♂️ NOT MY BIRTHDAY 🙅🏻‍♂️ #nmb1605  [full tracklist w/ tags].x.o
 
-Last updated at 05/19/2021 08:23
+Last updated at 05/19/2021 08:31
