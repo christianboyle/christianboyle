@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uHzxzqhzKi9QRgLo-W8od8A-t500x500.jpg">](https://soundcloud.com/blackwavelt/black-wave-036-mousedown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O2pNK3vwKlkAhH71-yhgaEw-t500x500.jpg">](https://soundcloud.com/jadudala/farrah-osins-omen-jadu161)
 
-**Artist**: Black Wave 
+**Artist**: Jadū Dala 
 
-**Track**: Black Wave 036 - mouseDown
+**Track**: Farrah & Osins - Omen (JADŪ161)
 
-Last updated at 05/18/2021 11:24
+Last updated at 05/19/2021 08:23
