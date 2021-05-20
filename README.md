@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCXS2F3Xq0bFHSS3-avNpdA-t500x500.jpg">](https://soundcloud.com/triplestar/michael-sembello-maniac-triplestar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CSzxYIRyU7H4f5Yf-BQa0yQ-t500x500.jpg">](https://soundcloud.com/dukeandjones/duke-jones-x-sam-day-hold-on)
 
-**Artist**: Triplestar 
+**Artist**: Duke & Jones 
 
-**Track**: Michael Sembello - Maniac (Triplestar Remix) | FREE✨
+**Track**: Duke & Jones X Sam Day - Hold On
 
-Last updated at 05/20/2021 08:01
+Last updated at 05/20/2021 08:03
