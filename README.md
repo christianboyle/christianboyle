@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ya2WPYXEyyP3cueP-oxvt0A-t500x500.jpg">](https://soundcloud.com/rinsefm/scdd190521)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHfwevyHrEOXCyi-mS0gAg-t500x500.jpg">](https://soundcloud.com/girl_irl/girlboss-girl_irl-zhone-gozling)
 
-**Artist**: Rinse FM 
+**Artist**: Girl_irl 
 
-**Track**: Steel City Dance Discs with Dexorcist & Nite Fleit - 19 May 2021
+**Track**: girlboss - girl_irl, Zhone, Gozling
 
-Last updated at 05/19/2021 20:52
+Last updated at 05/19/2021 20:54
