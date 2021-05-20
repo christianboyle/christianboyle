@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZWrroncQ3B2LSLJ-PhqmsQ-t500x500.jpg">](https://soundcloud.com/imalvarodelgado/drowning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCXS2F3Xq0bFHSS3-avNpdA-t500x500.jpg">](https://soundcloud.com/triplestar/michael-sembello-maniac-triplestar-remix)
 
-**Artist**: Alvaro Delgado 
+**Artist**: Triplestar 
 
-**Track**: Drowning (with Rion)
+**Track**: Michael Sembello - Maniac (Triplestar Remix) | FREE✨
 
-Last updated at 05/19/2021 20:59
+Last updated at 05/20/2021 08:01
