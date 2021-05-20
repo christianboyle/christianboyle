@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHfwevyHrEOXCyi-mS0gAg-t500x500.jpg">](https://soundcloud.com/girl_irl/girlboss-girl_irl-zhone-gozling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JeWcAsUPpMaGgAe-76l70A-t500x500.jpg">](https://soundcloud.com/bkayeofficial/dj-khaled-ft-justin-biber-21-savage-let-it-go-bkaye-remix)
 
-**Artist**: Girl_irl 
+**Artist**: BKAYE 
 
-**Track**: girlboss - girl_irl, Zhone, Gozling
+**Track**: DJ Khaled feat. Justin Bieber & 21 Savage - LET IT GO (BKAYE Remix)
 
-Last updated at 05/20/2021 08:05
+Last updated at 05/20/2021 09:11
