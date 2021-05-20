@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JeWcAsUPpMaGgAe-76l70A-t500x500.jpg">](https://soundcloud.com/bkayeofficial/dj-khaled-ft-justin-biber-21-savage-let-it-go-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfNHqutzyK3pXWON-qKYChQ-t500x500.jpg">](https://soundcloud.com/abtomal/skrillex-dirty-vibe-abtomal-fresh-stuff-flip)
 
-**Artist**: BKAYE 
+**Artist**: AbtomAL 
 
-**Track**: DJ Khaled feat. Justin Bieber & 21 Savage - LET IT GO (BKAYE Remix)
+**Track**: SKRILLEX - DIRTY VIBE (ABTOMAL & FRESH STUFF FLIP)
 
-Last updated at 05/20/2021 09:11
+Last updated at 05/20/2021 09:13
