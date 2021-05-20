@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfNHqutzyK3pXWON-qKYChQ-t500x500.jpg">](https://soundcloud.com/abtomal/skrillex-dirty-vibe-abtomal-fresh-stuff-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udy8QXtx3kvIlFu2-c0gy0A-t500x500.jpg">](https://soundcloud.com/whoispurge/home)
 
-**Artist**: AbtomAL 
+**Artist**: PURGE 
 
-**Track**: SKRILLEX - DIRTY VIBE (ABTOMAL & FRESH STUFF FLIP)
+**Track**: Home (feat. Lizzy Jane)
 
-Last updated at 05/20/2021 09:13
+Last updated at 05/20/2021 09:15
