@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-48PEWIxyWLjQDuZx-CcxEHA-t500x500.jpg">](https://soundcloud.com/pendarr/a-place-just-for-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9S6TfPqzJM5zlHI-lbfpyQ-t500x500.jpg">](https://soundcloud.com/theskulkids/cute-without-the-e)
 
-**Artist**: Pendarr 
+**Artist**: SkulKids 
 
-**Track**: A Place Just For Us
+**Track**: Cute Without The 'E'
 
-Last updated at 05/21/2021 10:03
+Last updated at 05/21/2021 10:08
