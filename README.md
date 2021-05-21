@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tz9DKxiCiQGskjMb-fs8lIQ-t500x500.jpg">](https://soundcloud.com/addal/addal-sexational-3?in=addal/sets/addal-sexational-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GV54xIxlhZ0iqHUj-cLb3WQ-t500x500.jpg">](https://soundcloud.com/exodus1900/w0rk-w0rk_remix)
 
-**Artist**: ADDAL 
+**Artist**: Exodus1900 
 
-**Track**: ADDAL - SEXATIONAL #3
+**Track**: w0rk-w0rk_remix*FREESTYLE
 
-Last updated at 05/21/2021 10:16
+Last updated at 05/21/2021 11:57
