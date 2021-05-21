@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pECDziJSpVbIlXlu-pKAoKg-t500x500.jpg">](https://soundcloud.com/sm1lo/sm1lo-about-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Iy82rpvwXvYs3Hv-TnyV8A-t500x500.jpg">](https://soundcloud.com/blendermsc/montero-call-me-by-your-name-blender-flip)
 
-**Artist**: SM1LO 
+**Artist**: BLENDER 
 
-**Track**: SM1LO - About You
+**Track**: Lil Nas X - MONTERO (Call Me By Your Name) - BLENDER Remix
 
-Last updated at 05/20/2021 21:06
+Last updated at 05/21/2021 09:55
