@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9S6TfPqzJM5zlHI-lbfpyQ-t500x500.jpg">](https://soundcloud.com/theskulkids/cute-without-the-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHRz9Onabyzq8Ldn-y94FgQ-t500x500.jpg">](https://soundcloud.com/imhiraeth/amore)
 
-**Artist**: SkulKids 
+**Artist**: hiræth✨ 
 
-**Track**: Cute Without The 'E'
+**Track**: amore
 
-Last updated at 05/21/2021 10:08
+Last updated at 05/21/2021 10:12
