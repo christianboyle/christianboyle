@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228779471-kdwot6-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc087)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t500x500.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Goodnight Cody 
 
-**Track**: NXC087 - FAN FICTION - rucku5
+**Track**: Quack Quack Quack Quack QUACK
 
-Last updated at 05/22/2021 00:09
+Last updated at 05/22/2021 00:11
