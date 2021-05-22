@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000664532878-ot4si3-t500x500.jpg">](https://soundcloud.com/facade/two-friends-good-for-you-facade-remix?in=saxurn/sets/hexy-as-shell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000671609023-7owaed-t500x500.jpg">](https://soundcloud.com/yehme2/la-da-dee?in=saxurn/sets/hexy-as-shell)
 
-**Artist**: Facade 
+**Artist**: YehMe2 
 
-**Track**: Two Friends - Good For You ft. JUSCOVA (Facade Remix)
+**Track**: ☻ LA DA DEE ☻
 
-Last updated at 05/22/2021 02:01
+Last updated at 05/22/2021 02:05
