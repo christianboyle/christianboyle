@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673361614-e9kc2w-t500x500.jpg">](https://soundcloud.com/ruindkid/drown?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000426402222-plc31h-t500x500.jpg">](https://soundcloud.com/youth_yu_s/come-back-to-those-days?in=saxurn/sets/chromodynamics)
 
-**Artist**: RUINDKID 
+**Artist**: youth ( @youth_yu_s ) 
 
-**Track**: Bring Me The Horizon - Drown (RUINDKID Remix)
+**Track**: Come back to those days
 
-Last updated at 05/22/2021 01:50
+Last updated at 05/22/2021 01:52
