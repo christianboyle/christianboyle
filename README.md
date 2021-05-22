@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000601502689-o3lev0-t500x500.jpg">](https://soundcloud.com/grinless/skrillex-puppy-grinless-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ze2dqYMciBgU-0-t500x500.jpg">](https://soundcloud.com/samgellaitry/duo)
 
-**Artist**: grinless 
+**Artist**: sam gellaitry 
 
-**Track**: Skrillex- Puppy (grinless flip)
+**Track**: Duo
 
-Last updated at 05/21/2021 21:25
+Last updated at 05/21/2021 21:29
