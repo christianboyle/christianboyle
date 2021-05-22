@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190824005-xsdep0-t500x500.jpg">](https://soundcloud.com/bottlednotes/copperknob-x-wavvy-frog-r-u-high)
 
-**Artist**: NITE CORP. 
+**Artist**: Bottled Notes 
 
-**Track**: aamourocean - u're not alone
+**Track**: Copperknob x WAVVY FROG - R U HIGH
 
-Last updated at 05/21/2021 21:31
+Last updated at 05/21/2021 21:35
