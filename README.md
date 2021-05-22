@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBm29iUVirJg-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/holy-water?in=saxurn/sets/lego-eggo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000634615690-0rmek4-t500x500.jpg">](https://soundcloud.com/tarroofficial/blood-moon-ft-micah?in=saxurn/sets/lego-eggo)
 
-**Artist**: Galantis 
+**Artist**: tarro 
 
-**Track**: Galantis - Holy Water
+**Track**: Blood Moon Ft. Micah Martin
 
-Last updated at 05/22/2021 03:11
+Last updated at 05/22/2021 03:13
