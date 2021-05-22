@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t500x500.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
 
-**Artist**: Goodnight Cody 
+**Artist**: syence 
 
-**Track**: Quack Quack Quack Quack QUACK
+**Track**: a little bit bored (feat. ruuth)
 
-Last updated at 05/22/2021 00:11
+Last updated at 05/22/2021 00:13
