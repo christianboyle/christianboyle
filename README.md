@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596648957-r9xpym-t500x500.jpg">](https://soundcloud.com/pootyh/on-da-hunt?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249054760-dxrcos-t500x500.jpg">](https://soundcloud.com/wedidit-collective/juice-jackal-looney-toon?in=saxurn/sets/fat-planet)
 
-**Artist**: POOTY 
+**Artist**: WEDIDIT COLLECTIVE 
 
-**Track**: ON DA HUNT w/ YUG1
+**Track**: Juice Jackal - Looney Toon
 
-Last updated at 05/22/2021 04:27
+Last updated at 05/22/2021 04:31
