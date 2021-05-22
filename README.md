@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KTYd2KUJXKIs-0-t500x500.jpg">](https://soundcloud.com/elliegoulding/ellie-goulding-hate-me-r3hab?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000589880399-7fnqwq-t500x500.jpg">](https://soundcloud.com/wakaan/inzo-multiverse?in=saxurn/sets/fat-planet)
 
-**Artist**: Ellie Goulding 
+**Artist**: Wakaan 
 
-**Track**: Ellie Goulding - Hate Me (R3HAB Remix) [feat. Juice WRLD]
+**Track**: INZO - Multiverse
 
-Last updated at 05/22/2021 04:43
+Last updated at 05/22/2021 04:45
