@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t500x500.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain?in=saxurn/sets/reality-body-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668034718-6myw02-t500x500.jpg">](https://soundcloud.com/usmidnightkids/goodtime?in=saxurn/sets/reality-mind-side)
 
-**Artist**: Gen1910 
+**Artist**: Midnight Kids 
 
-**Track**: Current Value - Dark Rain
+**Track**: Owl City & Carly Rae Jepsen - Good Time (Midnight Kids Remix)
 
-Last updated at 05/21/2021 22:52
+Last updated at 05/21/2021 22:58
