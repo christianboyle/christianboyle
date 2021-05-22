@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j16rKYZlBNHJ6e2m-LN5Oog-t500x500.jpg">](https://soundcloud.com/squidiotic/full-speed?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gchFd0JkdttCWG6B-ogyUuQ-t500x500.jpg">](https://soundcloud.com/bodygaard/bodygaard-exodus1900-auto-salon-prod-skoolio?in=saxurn/sets/fetti)
 
-**Artist**: SQUID 
+**Artist**: bodyGaard 
 
-**Track**: FULL SPEED
+**Track**: bodyGaard & Exodus1900 - Auto Salon✱✱ (prod. ­skoolio)
 
-Last updated at 05/21/2021 21:56
+Last updated at 05/21/2021 21:58
