@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535474143-rmgkr2-t500x500.jpg">](https://soundcloud.com/fgsn/lewis-capaldi-someone-you-love-fgsn-remix?in=saxurn/sets/reality-mind-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6x6Ba2D5fGvogHK9-EROqGw-t500x500.jpg">](https://soundcloud.com/ultravibes/dream-of-me-radio-mix?in=saxurn/sets/reality-mind-side)
 
-**Artist**: FGSN 
+**Artist**: Ultravibes 
 
-**Track**: Lewis Capaldi - Someone You Loved (FGSN Remix)
+**Track**: Dream Of Me (Radio Mix) *** OUT NOW
 
-Last updated at 05/21/2021 23:22
+Last updated at 05/21/2021 23:26
