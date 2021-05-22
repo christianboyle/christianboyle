@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THaFyz044538P287-sJjxsA-t500x500.jpg">](https://soundcloud.com/lilaaron911/that-one-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oWzibHZKPd5KKzYt-DZDlYw-t500x500.jpg">](https://soundcloud.com/funeral/idwbh)
 
-**Artist**: lil aaron 
+**Artist**: funeral 
 
-**Track**: THAT ONE SONG ft LiL Lotus
+**Track**: i don't wanna be here
 
-Last updated at 05/21/2021 21:13
+Last updated at 05/21/2021 21:15
