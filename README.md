@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000640625605-w1j0xb-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/blastem?in=saxurn/sets/psi-not-psi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000598500116-ojz320-t500x500.jpg">](https://soundcloud.com/magic_flowers/ricky?in=saxurn/sets/druid-fluids)
 
-**Artist**: GEO 
+**Artist**: Magic Flowers 
 
-**Track**: GEO x TYEGUYS - BLAST EM
+**Track**: Ricky
 
-Last updated at 05/22/2021 03:49
+Last updated at 05/22/2021 03:53
