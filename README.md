@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t500x500.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133471446-0tw2jy-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-life-is-calling)
 
-**Artist**: sethany 
+**Artist**: NITE CORP. 
 
-**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
+**Track**: aamourocean - life is calling
 
-Last updated at 05/22/2021 00:01
+Last updated at 05/22/2021 00:03
