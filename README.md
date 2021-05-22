@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjkWelc1zIyftObK-K3znRA-t500x500.jpg">](https://soundcloud.com/flexlord443/the-cover-to-end-all-covers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228779471-kdwot6-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc087)
 
-**Artist**: rifleman 
+**Artist**: NON STOP NXC® 
 
-**Track**: the cover to end all covers
+**Track**: NXC087 - FAN FICTION - rucku5
 
-Last updated at 05/22/2021 00:07
+Last updated at 05/22/2021 00:09
