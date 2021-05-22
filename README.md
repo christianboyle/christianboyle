@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JeWcAsUPpMaGgAe-76l70A-t500x500.jpg">](https://soundcloud.com/bkayeofficial/dj-khaled-ft-justin-biber-21-savage-let-it-go-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
 
-**Artist**: BKAYE 
+**Artist**: trndytrndy 
 
-**Track**: DJ Khaled feat. Justin Bieber & 21 Savage - LET IT GO (BKAYE Remix)
+**Track**: be nice to me (cover)
 
-Last updated at 05/21/2021 21:21
+Last updated at 05/21/2021 21:23
