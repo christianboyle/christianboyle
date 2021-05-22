@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190824005-xsdep0-t500x500.jpg">](https://soundcloud.com/bottlednotes/copperknob-x-wavvy-frog-r-u-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
 
-**Artist**: Bottled Notes 
+**Artist**: UNICORN KID 
 
-**Track**: Copperknob x WAVVY FROG - R U HIGH
+**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
 
-Last updated at 05/21/2021 21:35
+Last updated at 05/21/2021 21:37
