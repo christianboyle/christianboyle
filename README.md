@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000671315914-oj6nsd-t500x500.jpg">](https://soundcloud.com/joy-lennart-penheiro/two-friends-bandaid-lennart-jp-remix?in=saxurn/sets/chromodynamics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNquvXIKqSwv-0-t500x500.png">](https://soundcloud.com/jasonrossofficial/atlas-jason-ross-future-edit?in=saxurn/sets/chromodynamics)
 
-**Artist**: LENNART_JP 
+**Artist**: Jason Ross 
 
-**Track**: Two Friends - Bandaid (LENNART JP Remix)
+**Track**: Atlas (Jason Ross Future Edit)
 
-Last updated at 05/22/2021 01:24
+Last updated at 05/22/2021 01:26
