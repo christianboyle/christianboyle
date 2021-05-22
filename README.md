@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592289411-s62we6-t500x500.jpg">](https://soundcloud.com/tpain/a-million-times-juelz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452112237-lmjide-t500x500.jpg">](https://soundcloud.com/thebeamon/angels)
 
-**Artist**: T-Pain 
+**Artist**: BEAMON 
 
-**Track**: A Million Times feat. O.T. Genasis (Juelz Remix)
+**Track**: BEAMON - Angels Crying In Toronto (produced by G M A K I N)
 
-Last updated at 05/21/2021 23:38
+Last updated at 05/21/2021 23:42
