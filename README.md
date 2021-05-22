@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000027025200-l6ucv2-t500x500.jpg">](https://soundcloud.com/unicornkid/unicorn-kid-phone-sex-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000208254654-y0p4ju-t500x500.jpg">](https://soundcloud.com/hakaisdead/haka47-underd0g-resist4nce-underd0ge)
 
-**Artist**: UNICORN KID 
+**Artist**: HAKA [@HAKAisDEAD] 
 
-**Track**: Blood Diamonds ft. Grimes - Phone Sex (Unicorn Kid remix)
+**Track**: HAKA47 - underd0g - resist4nce -@underd0ge
 
-Last updated at 05/21/2021 21:37
+Last updated at 05/21/2021 21:41
