@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000511697265-2tdqp8-t500x500.jpg">](https://soundcloud.com/droeloemusic/arizona-remix?in=saxurn/sets/entropy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000327325770-ropel0-t500x500.jpg">](https://soundcloud.com/itsmelvv/talk?in=saxurn/sets/entropy)
 
-**Artist**: DROELOE 
+**Artist**: MELVV 
 
-**Track**: A R I Z O N A - Find Someone (DROELOE Remix)
+**Track**: I Don't Wanna Talk About It (with Grant & McCALL)
 
-Last updated at 05/22/2021 02:22
+Last updated at 05/22/2021 02:26
