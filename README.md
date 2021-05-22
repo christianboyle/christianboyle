@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000643539523-u6q4ln-t500x500.jpg">](https://soundcloud.com/ariannanxc/pull-me-down?in=saxurn/sets/psi-not-psi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000637572358-ktbgpe-t500x500.jpg">](https://soundcloud.com/shuiwithme/ups-downs-master?in=saxurn/sets/psi-not-psi)
 
-**Artist**: arianna 
+**Artist**: Shui 
 
-**Track**: pull me down
+**Track**: Ups & Downs (w/ Denae)
 
-Last updated at 05/22/2021 03:34
+Last updated at 05/22/2021 03:36
