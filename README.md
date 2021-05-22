@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5vmxAp7wSyykhjW-HVcJKA-t500x500.jpg">](https://soundcloud.com/hailuresound/dnd?in=saxurn/sets/fetti)
 
-**Artist**: queer nxc 
+**Artist**: Hailure 
 
-**Track**: nvr-mnt-2-hrt-me </3
+**Track**: glaive - dnd (Hailure Remix)
 
-Last updated at 05/21/2021 22:04
+Last updated at 05/21/2021 22:06
