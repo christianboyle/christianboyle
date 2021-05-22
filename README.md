@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t500x500.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls?in=saxurn/sets/fetti)
 
-**Artist**: NOT RAVE TOOLZ 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
+**Track**: nightcorey - DLS
 
-Last updated at 05/21/2021 21:43
+Last updated at 05/21/2021 21:47
