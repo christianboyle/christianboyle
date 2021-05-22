@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000083459601-4hq2lb-t500x500.jpg">](https://soundcloud.com/lilangelboi/guilty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
 
-**Artist**: lilangelboi 
+**Artist**: glaive 
 
-**Track**: guilty
+**Track**: dnd
 
-Last updated at 05/21/2021 22:14
+Last updated at 05/21/2021 22:16
