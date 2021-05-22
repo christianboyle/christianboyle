@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000644626342-gk5zpm-t500x500.jpg">](https://soundcloud.com/pairymusic/constant-thoughts-pairy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t500x500.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: PAIRY 
+**Artist**: sethany 
 
-**Track**: Constant Thoughts - Pairy
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 05/21/2021 23:57
+Last updated at 05/22/2021 00:01
