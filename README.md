@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jl4oDxohzs03-0-t500x500.png">](https://soundcloud.com/lilxlotus/girl-next-door-feat-lil-aaron)
 
-**Artist**: syence 
+**Artist**: LIL LOTUS 
 
-**Track**: a little bit bored (feat. ruuth)
+**Track**: Girl Next Door
 
-Last updated at 05/22/2021 00:13
+Last updated at 05/22/2021 00:17
