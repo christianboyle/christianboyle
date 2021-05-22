@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000663789514-16qbrt-t500x500.jpg">](https://soundcloud.com/lucalush/griztronics-luca-lush-remix?in=saxurn/sets/entropy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000597256271-12ndsk-t500x500.jpg">](https://soundcloud.com/lemonlust/daemonium?in=saxurn/sets/entropy)
 
-**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
+**Artist**: Lemonlust 
 
-**Track**: GRIZTRONICS (LUCA LUSH REMIX)
+**Track**: DÆMONIUM
 
-Last updated at 05/22/2021 02:46
+Last updated at 05/22/2021 02:50
