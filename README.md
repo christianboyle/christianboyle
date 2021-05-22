@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000247031788-bu7do1-t500x500.jpg">](https://soundcloud.com/jupelife/some-hours?in=saxurn/sets/hexy-as-shell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000663819142-ozkatn-t500x500.jpg">](https://soundcloud.com/itshellbound/betteroffalonehb?in=saxurn/sets/hexy-as-shell)
 
-**Artist**: jupe 
+**Artist**: HELLBOUND! 
 
-**Track**: Jupe & HYPRESSION - Some Hours
+**Track**: BETTER OFF ALONE (HELLBOUND! REMIX)
 
-Last updated at 05/22/2021 02:10
+Last updated at 05/22/2021 02:14
