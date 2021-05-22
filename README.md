@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HmmZAZK2s6YY-0-t500x500.png">](https://soundcloud.com/tycho/skate-feat-saint-sinner-pluko-remix?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485592108-w0oyz1-t500x500.jpg">](https://soundcloud.com/krypt/saturn?in=saxurn/sets/fat-planet)
 
-**Artist**: Tycho 
+**Artist**: krypt 
 
-**Track**: Skate (pluko Remix) [feat. Saint Sinner]
+**Track**: saturn
 
-Last updated at 05/22/2021 04:20
+Last updated at 05/22/2021 04:22
