@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnhSaDH7HtO4-0-t500x500.jpg">](https://soundcloud.com/halseymusic/graveyard?in=saxurn/sets/fat-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596648957-r9xpym-t500x500.jpg">](https://soundcloud.com/pootyh/on-da-hunt?in=saxurn/sets/fat-planet)
 
-**Artist**: HalseyMusic 
+**Artist**: POOTY 
 
-**Track**: Halsey - Graveyard
+**Track**: ON DA HUNT w/ YUG1
 
-Last updated at 05/22/2021 04:25
+Last updated at 05/22/2021 04:27
