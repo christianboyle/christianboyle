@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032286052-ojwqhj-t500x500.jpg">](https://soundcloud.com/darnell-yancey/lil-ugly-mane-serious-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085863027-2ti2z8-t500x500.jpg">](https://soundcloud.com/ice-underlord/ariana-grande-guap-with-beat)
 
-**Artist**: ItsNeezy 
+**Artist**: ICEUNDERLORD 
 
-**Track**: Lil Ugly Mane | Serious Shit
+**Track**: Ariana Grande Guap With Beat
 
-Last updated at 05/21/2021 23:44
+Last updated at 05/21/2021 23:47
