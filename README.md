@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCXS2F3Xq0bFHSS3-avNpdA-t500x500.jpg">](https://soundcloud.com/triplestar/michael-sembello-maniac-triplestar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHfwevyHrEOXCyi-mS0gAg-t500x500.jpg">](https://soundcloud.com/girl_irl/girlboss-girl_irl-zhone-gozling)
 
-**Artist**: Triplestar 
+**Artist**: Girl_irl 
 
-**Track**: Michael Sembello - Maniac (Triplestar Remix) | FREE✨
+**Track**: girlboss - girl_irl, Zhone, Gozling
 
-Last updated at 05/24/2021 12:12
+Last updated at 05/24/2021 12:14
