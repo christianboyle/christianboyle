@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6Oqi27tYa0OAJGQ-tXqGVg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/fiesta-soundsystem-hows-that-previews)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDJMNLUK9kJlJEIQ-FPNkfw-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-feat-flyckt-feel-something)
 
-**Artist**: Scuffed Recordings 
+**Artist**: Galantis 
 
-**Track**: Fiesta Soundsystem - How's That? EP (Previews)
+**Track**: Galantis feat. flyckt - Feel Something
 
-Last updated at 05/24/2021 12:16
+Last updated at 05/24/2021 12:22
