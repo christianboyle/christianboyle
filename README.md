@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwDMnJErrMdzzjOy-H1x8IA-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LNTVaojTxBrOEJSb-OfRmcA-t500x500.jpg">](https://soundcloud.com/sablevalley/singularity)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: MiniMix 010: Rohaan
+**Track**: REMNANT.exe - Singularity
 
-Last updated at 05/24/2021 15:36
+Last updated at 05/24/2021 15:38
