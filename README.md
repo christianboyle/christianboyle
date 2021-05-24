@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpHBQBh4SSIS-0-t500x500.jpg">](https://soundcloud.com/shallnotfade/dj-psychiatre-drifting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfNHqutzyK3pXWON-qKYChQ-t500x500.jpg">](https://soundcloud.com/abtomal/skrillex-dirty-vibe-abtomal-fresh-stuff-flip)
 
-**Artist**: Shall Not Fade 
+**Artist**: AbtomAL 
 
-**Track**: DJ Psychiatre - Drifting
+**Track**: SKRILLEX - DIRTY VIBE (ABTOMAL & FRESH STUFF FLIP)
 
-Last updated at 05/24/2021 11:58
+Last updated at 05/24/2021 12:10
