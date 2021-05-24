@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K7TvNzjFZ96Ek0FA-KjO0Yw-t500x500.png">](https://soundcloud.com/weekendworkout/weekend-workout-243)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000583320191-3tcyi0-t500x500.jpg">](https://soundcloud.com/enokalypse/green-dream-1)
 
-**Artist**: Weekend Workout 
+**Artist**: ENOKALYPSE 
 
-**Track**: Weekend Workout 243: Felix Cartal & Parry Athletics Quality Control Mixtape
+**Track**: GREEN DREAM
 
-Last updated at 05/22/2021 08:40
+Last updated at 05/24/2021 08:43
