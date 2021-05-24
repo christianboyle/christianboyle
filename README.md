@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHfwevyHrEOXCyi-mS0gAg-t500x500.jpg">](https://soundcloud.com/girl_irl/girlboss-girl_irl-zhone-gozling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6Oqi27tYa0OAJGQ-tXqGVg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/fiesta-soundsystem-hows-that-previews)
 
-**Artist**: Girl_irl 
+**Artist**: Scuffed Recordings 
 
-**Track**: girlboss - girl_irl, Zhone, Gozling
+**Track**: Fiesta Soundsystem - How's That? EP (Previews)
 
-Last updated at 05/24/2021 12:14
+Last updated at 05/24/2021 12:16
