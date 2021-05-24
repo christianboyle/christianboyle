@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDJMNLUK9kJlJEIQ-FPNkfw-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-feat-flyckt-feel-something)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkh7fXeEoz9gtNof-kRU8jw-t500x500.jpg">](https://soundcloud.com/evolatedj/alice-deejay-better-off-alone-evolate-bootleg-2021)
 
-**Artist**: Galantis 
+**Artist**: Evolate 
 
-**Track**: Galantis feat. flyckt - Feel Something
+**Track**: Alice Deejay - Better Off Alone (Evolate Bootleg 2021)
 
-Last updated at 05/24/2021 12:22
+Last updated at 05/24/2021 12:24
