@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506685897-a4kmqn-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-001?in=sablevalley/sets/minimixes)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjKS30Po5B3iaJZ6Gr2ZRqqEdDbizd8qR5Ls0A9=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCBRgoMHBoElamw4iYsgxujg)
 
-**Artist**: SABLE VALLEY 
+**Artist**: lil aaron 
 
-**Track**: MiniMix 001: Jackal
+**Track**: THAT ONE SONG ft LiL Lotus [OFFICIAL MUSIC VIDEO]
 
-Last updated at 05/24/2021 15:42
+Last updated at 05/24/2021 15:52
