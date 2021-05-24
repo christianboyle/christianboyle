@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkh7fXeEoz9gtNof-kRU8jw-t500x500.jpg">](https://soundcloud.com/evolatedj/alice-deejay-better-off-alone-evolate-bootleg-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VY7zgr9tdXcckz6b-OjcxCw-t500x500.jpg">](https://soundcloud.com/killmesumday/prettyflowers)
 
-**Artist**: Evolate 
+**Artist**: killmesumday 
 
-**Track**: Alice Deejay - Better Off Alone (Evolate Bootleg 2021)
+**Track**: pretty flowers (prod.dutchrevz)
 
-Last updated at 05/24/2021 12:24
+Last updated at 05/24/2021 13:11
