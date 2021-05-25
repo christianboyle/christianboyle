@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0xwNzRBsRdlOccs-CHB4jQ-t500x500.jpg">](https://soundcloud.com/flynninho/fall-out-boy-thnks-fr-th-mmrs-flynninho-fkk-up)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjsUpz9lxVNR5pl3nLBkc991vO2br8MMuLqHpJV=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC2qWxZHgnlwDvcmLqP23jrA)
 
-**Artist**: FLYNNINHO 
+**Artist**: Fall Out Boy 
 
-**Track**: FALL OUT BOY- THNKS FR TH MMRS (FLYNNINHO F*KK UP)*STARTS AT 1:01*
+**Track**: Thnks fr th Mmrs (Live at KROQ)
 
-Last updated at 05/25/2021 09:32
+Last updated at 05/25/2021 09:34
