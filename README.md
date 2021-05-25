@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5f7XRWhznpFwyKh-2n7w3w-t500x500.jpg">](https://soundcloud.com/ontherecradio/mark-reeve-on-the-record-067)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THaFyz044538P287-sJjxsA-t500x500.jpg">](https://soundcloud.com/lilaaron911/that-one-song)
 
-**Artist**: On The Record 
+**Artist**: lil aaron 
 
-**Track**: Mark Reeve - On The Record #067
+**Track**: THAT ONE SONG ft LiL Lotus
 
-Last updated at 05/25/2021 12:13
+Last updated at 05/25/2021 12:19
