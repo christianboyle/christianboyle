@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12Hal2zKlMqzf9gm-vRCsKg-t500x500.jpg">](https://soundcloud.com/balamii/abu-recordings-w-minos-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5f7XRWhznpFwyKh-2n7w3w-t500x500.jpg">](https://soundcloud.com/ontherecradio/mark-reeve-on-the-record-067)
 
-**Artist**: Balamii 
+**Artist**: On The Record 
 
-**Track**: Abu Recordings w/ MINOS - May 2021
+**Track**: Mark Reeve - On The Record #067
 
-Last updated at 05/25/2021 11:00
+Last updated at 05/25/2021 12:13
