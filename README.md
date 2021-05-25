@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j71FFXGUDSloongC-wqRFMA-t500x500.jpg">](https://soundcloud.com/mustdiemusic/error)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy1EcICKzrSjTc0t-RWSjFQ-t500x500.jpg">](https://soundcloud.com/goodsociety/heartbreak101)
 
-**Artist**: MUST DIE! 
+**Artist**: Good Society 
 
-**Track**: MUST DIE! x onumi - ERROR
+**Track**: ZenAware - Heartbreak 101 (feat. Isaiah Brown)
 
-Last updated at 05/25/2021 10:52
+Last updated at 05/25/2021 10:54
