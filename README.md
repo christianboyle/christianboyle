@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xCAEd1pQCTmzmQTq-uz2g8A-t500x500.jpg">](https://soundcloud.com/jasemoney/nightfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12Hal2zKlMqzf9gm-vRCsKg-t500x500.jpg">](https://soundcloud.com/balamii/abu-recordings-w-minos-may-2021)
 
-**Artist**: Jase Money 
+**Artist**: Balamii 
 
-**Track**: 𝙽 𝚒 𝚐 𝚑 𝚝 𝚏 𝚊 𝚕 𝚕
+**Track**: Abu Recordings w/ MINOS - May 2021
 
-Last updated at 05/25/2021 10:58
+Last updated at 05/25/2021 11:00
