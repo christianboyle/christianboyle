@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUTxzOLQ84DLJPSw-7whDEQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-7-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0xwNzRBsRdlOccs-CHB4jQ-t500x500.jpg">](https://soundcloud.com/flynninho/fall-out-boy-thnks-fr-th-mmrs-flynninho-fkk-up)
 
-**Artist**: Beat106Scotland 
+**Artist**: FLYNNINHO 
 
-**Track**: Bonkers Beats #7 on Beat 106 Scotland with Sharkey & Guests 210521 (Hour 1)
+**Track**: FALL OUT BOY- THNKS FR TH MMRS (FLYNNINHO F*KK UP)*STARTS AT 1:01*
 
-Last updated at 05/25/2021 09:30
+Last updated at 05/25/2021 09:32
