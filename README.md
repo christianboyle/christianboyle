@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCUYuTRHKIuB2zRg-9qt6Vg-t500x500.jpg">](https://soundcloud.com/pika5onic/pikasonic-tatsunoshin-lockdown-ft-neona)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUTxzOLQ84DLJPSw-7whDEQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-7-on-beat-106-1)
 
-**Artist**: PIKASONIC 
+**Artist**: Beat106Scotland 
 
-**Track**: PIKASONIC & Tatsunoshin - Lockdown (Ft. NEONA)
+**Track**: Bonkers Beats #7 on Beat 106 Scotland with Sharkey & Guests 210521 (Hour 1)
 
-Last updated at 05/25/2021 07:48
+Last updated at 05/25/2021 09:30
