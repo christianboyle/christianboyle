@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IMg9RaLnrWLfEWej-BIXHvg-t500x500.jpg">](https://soundcloud.com/below_the_surface/gehena-przm-whatcha-gon-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d68xiCsfYE4qE9eE-dmEBrA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/egzod-emm-game-over-ncs-release)
 
-**Artist**: Below 
+**Artist**: NCS 
 
-**Track**: Gehena & PRZM - Whatcha Gon' Do
+**Track**: Egzod, EMM - Game Over [NCS Release]
 
-Last updated at 05/25/2021 10:45
+Last updated at 05/25/2021 10:47
