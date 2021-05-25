@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjsUpz9lxVNR5pl3nLBkc991vO2br8MMuLqHpJV=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC2qWxZHgnlwDvcmLqP23jrA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V5WzSdC3nVz52yg6-RZy06w-t500x500.jpg">](https://soundcloud.com/djjam305/let-me-snap-soflojook-djjam305)
 
-**Artist**: Fall Out Boy 
+**Artist**: DJJam305 
 
-**Track**: Thnks fr th Mmrs (Live at KROQ)
+**Track**: Let Me Snap #SoFloJook - DJJam305
 
-Last updated at 05/25/2021 09:34
+Last updated at 05/25/2021 10:15
