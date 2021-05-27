@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4KfIMgyK7UhHipB0-OrsLNA-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-478-feat-lady-faith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOQmgpTc1a9u-0-t500x500.jpg">](https://soundcloud.com/88rising/88rising-rich-brian-niki)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: 88rising 
 
-**Track**: KTRA Episode 478 feat. Lady Faith
+**Track**: 88rising, Rich Brian, & NIKI - California (feat. Warren Hue)
 
-Last updated at 05/27/2021 09:47
+Last updated at 05/27/2021 11:29
