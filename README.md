@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFoIzMZVX1EeGXzp-Mu1zAw-t500x500.jpg">](https://soundcloud.com/signal4976/signal-2666-11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wn80riwGJk1BXnHT-GUcSiQ-t500x500.jpg">](https://soundcloud.com/vauboy/rule-the-world)
 
-**Artist**: Signal 
+**Artist**: Vau Boy 
 
-**Track**: Signal - 2666 1/1
+**Track**: Rule The World
 
-Last updated at 05/27/2021 09:37
+Last updated at 05/27/2021 09:39
