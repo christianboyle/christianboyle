@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWgpttg1NU2cUmWV-8OP1jA-t500x500.jpg">](https://soundcloud.com/sixtroke/i-love-you-so-sixtroke-remix?in=sixtroke/sets/i-love-you-so-sixtroke-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fFoIzMZVX1EeGXzp-Mu1zAw-t500x500.jpg">](https://soundcloud.com/signal4976/signal-2666-11)
 
-**Artist**: Sixtroke 
+**Artist**: Signal 
 
-**Track**: Schnuffel Bunny - I Love You So (Sixtroke Remix)
+**Track**: Signal - 2666 1/1
 
-Last updated at 05/27/2021 09:35
+Last updated at 05/27/2021 09:37
