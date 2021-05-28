@@ -4,6 +4,6 @@
 
 **Artist**: White Panda 
 
-**Track**: Nightcub (Continuous Mix)
+**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
 
-Last updated at 05/28/2021 10:26
+Last updated at 05/28/2021 16:58
