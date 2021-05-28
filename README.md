@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XdYBYf11lAIRzfMg-t3mcgw-t500x500.jpg">](https://soundcloud.com/lootaveli/fuck-the-sub-up-prod-mikey-the-magician)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYKjmzGjOjfE1JDT-HVQIHg-t500x500.jpg">](https://soundcloud.com/avit69/fiction)
 
-**Artist**: BOOBIE LOOTAVELI 
+**Artist**: AViT 
 
-**Track**: FUCK THE SUB UP (Prod. MIKEY THE MAGICIAN)
+**Track**: fiction w/ starfall (mistmurk + avit + rift)
 
-Last updated at 05/28/2021 07:52
+Last updated at 05/28/2021 07:54
