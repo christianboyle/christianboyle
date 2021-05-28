@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000200021976-353el8-t500x500.jpg">](https://soundcloud.com/at-the-drive-in/lopsided)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XdYBYf11lAIRzfMg-t3mcgw-t500x500.jpg">](https://soundcloud.com/lootaveli/fuck-the-sub-up-prod-mikey-the-magician)
 
-**Artist**: At The Drive In 
+**Artist**: BOOBIE LOOTAVELI 
 
-**Track**: Lopsided
+**Track**: FUCK THE SUB UP (Prod. MIKEY THE MAGICIAN)
 
-Last updated at 05/28/2021 07:50
+Last updated at 05/28/2021 07:52
