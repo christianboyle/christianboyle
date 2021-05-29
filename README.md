@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJg6zu4eRktG-0-t500x500.jpg">](https://soundcloud.com/shakewell818/5-ways)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkBtJBcpzYJ7zdD9-T0UKFA-t500x500.jpg">](https://soundcloud.com/rossykate/x-gon-give-it-to-ya-x-neon-rossy-tribute-edit)
 
-**Artist**: Shakewell 
+**Artist**: ROSSY 
 
-**Track**: 5 Ways
+**Track**: X Gon' Give It To Ya X N.EON (ROSSY TRIBUTE EDIT)
 
-Last updated at 05/29/2021 10:02
+Last updated at 05/29/2021 10:04
