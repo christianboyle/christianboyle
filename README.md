@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on Spotify
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkBtJBcpzYJ7zdD9-T0UKFA-t500x500.jpg">](https://soundcloud.com/rossykate/x-gon-give-it-to-ya-x-neon-rossy-tribute-edit)
+[<img align="left" width="100" src="https://i.scdn.co/image/ab6765630000f68dc380696f2503acc803d8ff89">](https://open.spotify.com/episode/6A1QJRWS1u2oM06APk42D3)
 
-**Artist**: ROSSY 
+**Artist**:  
 
-**Track**: X Gon' Give It To Ya X N.EON (ROSSY TRIBUTE EDIT)
+**Track**: Ep 5 - How Jack + Bilal Got Into Crypto + Thoughts On The Recent Sell-Off // Not Investment Advice
 
-Last updated at 05/29/2021 10:04
+Last updated at 05/29/2021 19:24
