@@ -1,9 +1,9 @@
-## Currently Playing on Spotify
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab6765630000f68dc380696f2503acc803d8ff89">](https://open.spotify.com/episode/6A1QJRWS1u2oM06APk42D3)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngFX_yyuer98GrnkcpLbJTTOEm--RtfUC1r3HnJmQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCEdvpU2pFRCVqU6yIPyTpMQ)
 
-**Artist**:  
+**Artist**: Marshmello 
 
-**Track**: Ep 5 - How Jack + Bilal Got Into Crypto + Thoughts On The Recent Sell-Off // Not Investment Advice
+**Track**: Marshmello x Jonas Brothers - Leave Before You Love Me (Official Music Video)
 
-Last updated at 05/29/2021 19:24
+Last updated at 05/29/2021 20:12
