@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngFX_yyuer98GrnkcpLbJTTOEm--RtfUC1r3HnJmQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCEdvpU2pFRCVqU6yIPyTpMQ)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngONU2qgN4d3SeqWO_vgsdrA3onTRHbo5xjO-IL=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCwodgWLBaJ11UYpcWezh2Ng)
 
-**Artist**: Marshmello 
+**Artist**: metricmusic 
 
-**Track**: Marshmello x Jonas Brothers - Leave Before You Love Me (Official Music Video)
+**Track**: Metric - Now or Never Now (Official Video)
 
-Last updated at 05/29/2021 20:12
+Last updated at 05/30/2021 07:28
