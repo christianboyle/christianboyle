@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4ytqqj4gMNJ7HnX-FLfeUQ-t500x500.jpg">](https://soundcloud.com/patternsofperception/patterns-of-perception-83-diskonnected)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000437217681-9puyar-t500x500.jpg">](https://soundcloud.com/skeetsmusic/dollar-in-heavn)
 
-**Artist**: Patterns of Perception 
+**Artist**: Skeets 
 
-**Track**: Patterns of Perception 83 - Diskonnected
+**Track**: Dollar$ In Heav€n MA$H €DIT
 
-Last updated at 05/31/2021 07:10
+Last updated at 05/31/2021 10:15
