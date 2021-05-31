@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngONU2qgN4d3SeqWO_vgsdrA3onTRHbo5xjO-IL=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCwodgWLBaJ11UYpcWezh2Ng)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwnjlbAq637kELOuh66nxbtnG70FDb8BYcygfVdE-IA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: metricmusic 
+**Artist**: S3RL 
 
-**Track**: Metric - Now or Never Now (Official Video)
+**Track**: Little Sis Nora - MDMA (S3RL Remix)
 
-Last updated at 05/30/2021 07:28
+Last updated at 05/31/2021 07:02
