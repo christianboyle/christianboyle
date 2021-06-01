@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K7CkwhHjO4RWWg6x-98fX0g-t500x500.jpg">](https://soundcloud.com/beatsbyfate/while-you-paint-me-so-vile-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HHrW4x6OPENQg0S-XRTC5A-t500x500.jpg">](https://soundcloud.com/nollmusic/carriedaway)
 
-**Artist**: FATE 
+**Artist**: nøll 
 
-**Track**: WHILE YOU PAINT ME SO VILE (Remix)
+**Track**: Surf Mesa, Madison Beer - Carried Away (nøll Remix)
 
-Last updated at 06/01/2021 15:53
+Last updated at 06/01/2021 15:55
