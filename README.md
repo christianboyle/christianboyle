@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8d79DS3vdDaL6aS-CSbLbw-t500x500.jpg">](https://soundcloud.com/itscasinoroyale/casino-royale-down-the-rabbit-hole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CMX1e0MyzOwwaBao-OUp90A-t500x500.jpg">](https://soundcloud.com/misterperson/bandit)
 
-**Artist**: Casino Royale 
+**Artist**: 𝖒𝖗. 𝖕𝖗𝖘𝖓🥀​ 
 
-**Track**: Casino Royale - Down the Rabbit Hole
+**Track**: Juice WRLD - Bandit (mr prsп🥀 Flip)
 
-Last updated at 06/01/2021 08:57
+Last updated at 06/01/2021 08:59
