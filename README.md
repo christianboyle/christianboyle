@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iy0v4XbyPzEHspXd-jB8UTA-t500x500.jpg">](https://soundcloud.com/lxcalstranger/get-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GOwgWLdDuS01Hi6g-aiQDLA-t500x500.jpg">](https://soundcloud.com/soundmuseum/lewcid-infinite)
 
-**Artist**: LOCAL STRANGER 
+**Artist**: Sound Museum 
 
-**Track**: GET DOWN
+**Track**: Lewcid - Infinite
 
-Last updated at 06/01/2021 10:55
+Last updated at 06/01/2021 10:57
