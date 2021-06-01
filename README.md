@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iLpbwXdvlTsWhEGa-0cqJ8Q-t500x500.jpg">](https://soundcloud.com/jayeem_music/shuto-expressway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iy0v4XbyPzEHspXd-jB8UTA-t500x500.jpg">](https://soundcloud.com/lxcalstranger/get-down)
 
-**Artist**: hidden jayeem 
+**Artist**: LOCAL STRANGER 
 
-**Track**: Shuto Expressway
+**Track**: GET DOWN
 
-Last updated at 06/01/2021 10:51
+Last updated at 06/01/2021 10:55
