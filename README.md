@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HHrW4x6OPENQg0S-XRTC5A-t500x500.jpg">](https://soundcloud.com/nollmusic/carriedaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hm55UD5wt48Bm0JI-98Njyg-t500x500.jpg">](https://soundcloud.com/yultron/no-fear)
 
-**Artist**: nøll 
+**Artist**: YULTRON 
 
-**Track**: Surf Mesa, Madison Beer - Carried Away (nøll Remix)
+**Track**: No Fear (feat. Amber Liu & Kellin Quinn)
 
-Last updated at 06/01/2021 15:55
+Last updated at 06/01/2021 15:57
