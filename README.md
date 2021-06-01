@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4ytqqj4gMNJ7HnX-FLfeUQ-t500x500.jpg">](https://soundcloud.com/patternsofperception/patterns-of-perception-83-diskonnected)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8d79DS3vdDaL6aS-CSbLbw-t500x500.jpg">](https://soundcloud.com/itscasinoroyale/casino-royale-down-the-rabbit-hole)
 
-**Artist**: Patterns of Perception 
+**Artist**: Casino Royale 
 
-**Track**: Patterns of Perception 83 - Diskonnected
+**Track**: Casino Royale - Down the Rabbit Hole
 
-Last updated at 05/31/2021 10:24
+Last updated at 06/01/2021 08:57
