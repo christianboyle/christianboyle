@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRGLvMDzt9ezwmoJ-NdQ9FQ-t500x500.jpg">](https://soundcloud.com/bounceheavenofficial/dev1se-let-me-show-you-bounceheavencouk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pumqyNyeux2J8RF-ppuozA-t500x500.jpg">](https://soundcloud.com/squatch_music/lost-boy-ft-moia-bri)
 
-**Artist**: BOUNCE HEAVEN with Andy Whitby 
+**Artist**: SQUATCH 
 
-**Track**: DeV1Se - Let Me Show You - BounceHeaven.co.uk
+**Track**: SQUATCH X Coldwall - Lost Boy (ft. Moia Bri)
 
-Last updated at 06/02/2021 08:24
+Last updated at 06/02/2021 08:26
