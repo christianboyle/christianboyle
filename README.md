@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4hveoliUG3O94gUQ-RVSuaQ-t500x500.jpg">](https://soundcloud.com/wearekloud/take?in=weareplusplus/sets/best-electronic-music-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000019784404-m35ibu-t500x500.jpg">](https://soundcloud.com/honey-claws/digital-animal)
 
-**Artist**: KLOUD 
+**Artist**: Honey Claws Music 
 
-**Track**: TAKE
+**Track**: Digital Animal
 
-Last updated at 06/02/2021 08:30
+Last updated at 06/02/2021 08:32
