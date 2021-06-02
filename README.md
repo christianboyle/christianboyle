@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E7QkUqyAdL9VkrkO-HevfxQ-t500x500.jpg">](https://soundcloud.com/peopleofvalley/waka-festival-m-e-s-h-x-ether?in=peopleofvalley/sets/estoc-valleyb00-bblendbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nldlHxMtCsr8SMpI-T9bVXg-t500x500.jpg">](https://soundcloud.com/peopleofvalley/valley-rado-057-severine-i-am-coastal-dj?in=peopleofvalley/sets/valley-radio)
 
 **Artist**: Valley 
 
-**Track**: estoc - WAKA FESTIVAL (M.E.S.H. x Ether Da Connect feat. Fivio Foreign & Mr.Swipey)
+**Track**: Valley Radio 057 - séverine - 'I AM COASTAL DJ'
 
-Last updated at 06/02/2021 10:04
+Last updated at 06/02/2021 10:08
