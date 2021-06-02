@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rLWj0s2hl2j5zQut-uPc8Fg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc159)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDiomvAmZd7F-0-t500x500.jpg">](https://soundcloud.com/22bullets/mr-bigboom)
 
-**Artist**: NON STOP NXC® 
+**Artist**: 22Bullets 
 
-**Track**: NXC159 - Porter Robinson - Divinity (Yohex Clubcore Mix)
+**Track**: Mr. BigBoom
 
-Last updated at 06/02/2021 08:19
+Last updated at 06/02/2021 08:23
