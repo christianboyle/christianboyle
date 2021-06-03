@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSnt7eyY5V0a-0-t500x500.jpg">](https://soundcloud.com/yungbabytate/eenie-meenie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZQJgSYOQ4REzSPZ-bJFvsg-t500x500.jpg">](https://soundcloud.com/chiefjuno/obsessed-hallow)
 
-**Artist**: Yung Baby Tate 
+**Artist**: juno 
 
-**Track**: Eenie Meenie
+**Track**: obsessed (hallow)
 
-Last updated at 06/03/2021 16:44
+Last updated at 06/03/2021 16:46
