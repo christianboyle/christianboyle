@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nj4aOwa3dOJB-0-t500x500.png">](https://soundcloud.com/au5/was-it-you-mazare-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SZcWyuzFhteLV2Da-Jylmjw-t500x500.jpg">](https://soundcloud.com/dontlistenofficial/dawn)
 
-**Artist**: Au5 
+**Artist**: don't listen 
 
-**Track**: Was It You (Mazare Remix)
+**Track**: Afrosamuraiist - Dawn
 
-Last updated at 06/03/2021 07:57
+Last updated at 06/03/2021 07:59
