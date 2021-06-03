@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwniREWC1bZMgPe7NostEqC7BP56f0jPfMHKEU6_fxg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPiOvk9Hhcgks7rSZlLmUQQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSnt7eyY5V0a-0-t500x500.jpg">](https://soundcloud.com/yungbabytate/eenie-meenie)
 
 **Artist**: Yung Baby Tate 
 
-**Track**: Eenie Meenie [Official Music Video]
+**Track**: Eenie Meenie
 
-Last updated at 06/03/2021 08:15
+Last updated at 06/03/2021 08:28
