@@ -4,6 +4,6 @@
 
 **Artist**: glaive 
 
-**Track**: i wanna slam my head against the wall (official video)
+**Track**: detest me (official video)
 
-Last updated at 06/02/2021 20:41
+Last updated at 06/02/2021 20:43
