@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676630459-dcylj3-t500x500.jpg">](https://soundcloud.com/djdmind/halsey-finally-beautiful-stranger-d-mind-bootleg)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngaE2INWNlL4UJ9fjy79mN0aYcL_nRdH3ud5jJsBQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCgVCTlNEvc7at5cAkTsKWCA)
 
-**Artist**: D-MIND 
+**Artist**: glaive 
 
-**Track**: Halsey - Finally / Beautiful Stranger (D-Mind Bootleg)
+**Track**: i wanna slam my head against the wall (official video)
 
-Last updated at 06/02/2021 20:39
+Last updated at 06/02/2021 20:41
