@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nifRkO2ZbrlU4tPs-CvFDbg-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-479-feat-murdock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000033020700-tr66x3-t500x500.jpg">](https://soundcloud.com/triplestack-1/derb-coole-sau-dj-isaac-remix)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: triplestack 
 
-**Track**: KTRA Episode 479 feat. Murdock
+**Track**: Derb - Coole Sau (DJ Isaac Remix)
 
-Last updated at 06/03/2021 07:51
+Last updated at 06/03/2021 07:53
