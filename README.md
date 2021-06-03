@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngaE2INWNlL4UJ9fjy79mN0aYcL_nRdH3ud5jJsBQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCgVCTlNEvc7at5cAkTsKWCA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nifRkO2ZbrlU4tPs-CvFDbg-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-479-feat-murdock)
 
-**Artist**: glaive 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: detest me (official video)
+**Track**: KTRA Episode 479 feat. Murdock
 
-Last updated at 06/02/2021 20:43
+Last updated at 06/03/2021 07:51
