@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e2L0bnP7DUN3UMk-6KQxUw-t500x500.jpg">](https://soundcloud.com/itspilton/a-little-bit-longer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676630459-dcylj3-t500x500.jpg">](https://soundcloud.com/djdmind/halsey-finally-beautiful-stranger-d-mind-bootleg)
 
-**Artist**: pilton 
+**Artist**: D-MIND 
 
-**Track**: a little bit longer
+**Track**: Halsey - Finally / Beautiful Stranger (D-Mind Bootleg)
 
-Last updated at 06/03/2021 08:36
+Last updated at 06/03/2021 08:40
