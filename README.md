@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJWzDIxJWrfnfa9A-yyqa4Q-t500x500.jpg">](https://soundcloud.com/meduzamusic/headrush?in=weareplusplus/sets/best-electronic-music-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KIiJYrLzREnz-0-t500x500.jpg">](https://soundcloud.com/coldplay/higher-power-zhu-remix?in=weareplusplus/sets/best-electronic-music-may-2021)
 
-**Artist**: MEDUZA 
+**Artist**: coldplayofficial 
 
-**Track**: Meduza feat Elroii - Headrush
+**Track**: Higher Power (ZHU Remix)
 
-Last updated at 06/08/2021 13:43
+Last updated at 06/08/2021 13:45
