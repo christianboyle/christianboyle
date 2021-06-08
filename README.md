@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000118959122-hhr8za-t500x500.jpg">](https://soundcloud.com/whosaazar/dillonfrancis-djsnake-get-low-aazar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456043248-73m1k1-t500x500.jpg">](https://soundcloud.com/wukileaks/jaxx-da-fishworks-dance)
 
-**Artist**: AAZAR 
+**Artist**: WUKILEAKS 
 
-**Track**: Dillon Francis & Dj Snake - Get Low (AAZAR REMIX)
+**Track**: JAXX DA FISHWORKS - Dance
 
-Last updated at 06/08/2021 18:36
+Last updated at 06/08/2021 18:40
