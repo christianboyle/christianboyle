@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rw5lzDdTm4Ze-0-t500x500.jpg">](https://soundcloud.com/iloilofeel/sugar?in=weareplusplus/sets/best-electronic-music-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEnDgDVvRRoBcJbV-Oy8C5g-t500x500.jpg">](https://soundcloud.com/bkbeats/iffy)
 
-**Artist**: ilo ilo 
+**Artist**: bk beats 
 
-**Track**: Sugar
+**Track**: iffy (w/ Fluke Nukes)
 
-Last updated at 06/08/2021 13:51
+Last updated at 06/08/2021 13:53
