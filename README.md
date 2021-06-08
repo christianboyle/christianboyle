@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000511574208-faq42l-t500x500.jpg">](https://soundcloud.com/dogblood/dog-blood-turn-off-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMfVmXFJ0Zxh-0-t500x500.jpg">](https://soundcloud.com/dogblood/middle-finger-the-m-machine)
 
 **Artist**: dogblood 
 
-**Track**: Dog Blood - TURN OFF THE LIGHTS
+**Track**: Middle Finger (The M Machine Remix)
 
-Last updated at 06/08/2021 18:16
+Last updated at 06/08/2021 18:20
