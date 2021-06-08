@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cWr1C3Fi7981emen-DHLEqg-t500x500.jpg">](https://soundcloud.com/whitepanda/closer-without-you-tegan-and-sara-avicii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpfJ2cNeu4L1y7AT-zzEsew-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/komuz-get-loose)
 
-**Artist**: White Panda 
+**Artist**: DramaClubRecs 
 
-**Track**: Closer Without You (Tegan and Sara // Avicii)
+**Track**: Komuz - Get Loose!
 
-Last updated at 06/08/2021 16:36
+Last updated at 06/08/2021 16:38
