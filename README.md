@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456043248-73m1k1-t500x500.jpg">](https://soundcloud.com/wukileaks/jaxx-da-fishworks-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500348859-upe1qt-t500x500.jpg">](https://soundcloud.com/spinninrecords/wuki-igd-out-now)
 
-**Artist**: WUKILEAKS 
+**Artist**: Spinnin' Records 
 
-**Track**: JAXX DA FISHWORKS - Dance
+**Track**: Wuki - IGD [OUT NOW]
 
-Last updated at 06/08/2021 18:40
+Last updated at 06/08/2021 18:45
