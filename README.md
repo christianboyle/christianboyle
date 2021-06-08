@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000329175255-504jpl-t500x500.jpg">](https://soundcloud.com/youth_yu_s/playback-want-you-to-say-youth-jersey-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218163046-8g44e7-t500x500.jpg">](https://soundcloud.com/hyperforms/vices)
 
-**Artist**: youth ( @youth_yu_s ) 
+**Artist**: hyperforms 
 
-**Track**: Want You To Say(말 해 줘) (VIP)
+**Track**: VICES
 
-Last updated at 06/08/2021 17:51
+Last updated at 06/08/2021 17:53
