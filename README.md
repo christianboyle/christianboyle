@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000033020700-tr66x3-t500x500.jpg">](https://soundcloud.com/triplestack-1/derb-coole-sau-dj-isaac-remix)
 
-**Artist**: White Panda 
+**Artist**: triplestack 
 
-**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
+**Track**: Derb - Coole Sau (DJ Isaac Remix)
 
-Last updated at 06/07/2021 19:37
+Last updated at 06/07/2021 21:08
