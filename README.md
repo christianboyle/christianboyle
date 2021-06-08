@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000665399881-a4ijxv-t500x500.jpg">](https://soundcloud.com/frankynuts/flux-pavilion-somebody-else-feat-glnna-franky-nuts-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CN34e8cDoI4d-0-t500x500.jpg">](https://soundcloud.com/terrorjr/little-bit)
 
-**Artist**: FRANKY NUTS 
+**Artist**: Terror Jr 
 
-**Track**: Flux Pavilion - Somebody Else Feat. GLNNA (Franky Nuts Remix)
+**Track**: Little Bit
 
-Last updated at 06/08/2021 17:55
+Last updated at 06/08/2021 17:57
