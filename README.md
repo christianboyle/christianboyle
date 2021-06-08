@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZmJoVK2uUJjIvm2Z-z9aS5g-t500x500.jpg">](https://soundcloud.com/sam-segan/sideways-remix)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngaE2INWNlL4UJ9fjy79mN0aYcL_nRdH3ud5jJsBQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCgVCTlNEvc7at5cAkTsKWCA)
 
-**Artist**: Segan 
+**Artist**: glaive 
 
-**Track**: ILLENIUM, Valerie Broussard, & Nurko - Sideways (Segan Remix)
+**Track**: i wanna slam my head against the wall (official video)
 
-Last updated at 06/08/2021 16:40
+Last updated at 06/08/2021 16:42
