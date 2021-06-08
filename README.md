@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RsRR4pH0q9cgizYs-aYiJXA-t500x500.jpg">](https://soundcloud.com/equitycollective/mistrrr-out-of-place-in-a-lost-reality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9OGXi5CEZjBw2E5-2xiSlQ-t500x500.jpg">](https://soundcloud.com/balamii/bloc-w-toof-june-2021)
 
-**Artist**: Equity 
+**Artist**: Balamii 
 
-**Track**: Mistrrr - Out of Place in a Lost Reality
+**Track**: Bloc w/ Toof - June 2021
 
-Last updated at 06/08/2021 11:23
+Last updated at 06/08/2021 11:27
