@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZQJgSYOQ4REzSPZ-bJFvsg-t500x500.jpg">](https://soundcloud.com/chiefjuno/obsessed-hallow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
 
-**Artist**: juno 
+**Artist**: White Panda 
 
-**Track**: obsessed (hallow)
+**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
 
-Last updated at 06/03/2021 16:46
+Last updated at 06/07/2021 19:37
