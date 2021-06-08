@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9beS20yAtxVgRBhX-QH6BJg-t500x500.jpg">](https://soundcloud.com/yvngdrilla/how-it-feel-eating-pizza-but)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQBiZs6BymrTMXYZ-xqxAVQ-t500x500.jpg">](https://soundcloud.com/winter/schooldays2)
 
-**Artist**: yvngdrilla 
+**Artist**: winter 
 
-**Track**: awful
+**Track**: sd2
 
-Last updated at 06/07/2021 21:32
+Last updated at 06/08/2021 08:44
