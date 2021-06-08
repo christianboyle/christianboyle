@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QA0n35YvHN9s-0-t500x500.jpg">](https://soundcloud.com/lastlings/false-reactions-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RsRR4pH0q9cgizYs-aYiJXA-t500x500.jpg">](https://soundcloud.com/equitycollective/mistrrr-out-of-place-in-a-lost-reality)
 
-**Artist**: LASTLINGS 
+**Artist**: Equity 
 
-**Track**: False Reactions
+**Track**: Mistrrr - Out of Place in a Lost Reality
 
-Last updated at 06/08/2021 11:17
+Last updated at 06/08/2021 11:23
