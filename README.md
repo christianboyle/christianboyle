@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpfJ2cNeu4L1y7AT-zzEsew-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/komuz-get-loose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QA0n35YvHN9s-0-t500x500.jpg">](https://soundcloud.com/lastlings/false-reactions-2)
 
-**Artist**: DramaClubRecs 
+**Artist**: LASTLINGS 
 
-**Track**: Komuz - Get Loose!
+**Track**: False Reactions
 
-Last updated at 06/08/2021 11:14
+Last updated at 06/08/2021 11:17
