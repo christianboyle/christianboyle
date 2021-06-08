@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500348859-upe1qt-t500x500.jpg">](https://soundcloud.com/spinninrecords/wuki-igd-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000469392366-xgwgjc-t500x500.jpg">](https://soundcloud.com/wukileaks/circle-of-life-wuki-edit-wukileak)
 
-**Artist**: Spinnin' Records 
+**Artist**: WUKILEAKS 
 
-**Track**: Wuki - IGD [OUT NOW]
+**Track**: The Circle Of Life (Wuki Edit) [wukileak]
 
-Last updated at 06/08/2021 18:45
+Last updated at 06/08/2021 18:49
