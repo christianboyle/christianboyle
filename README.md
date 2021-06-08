@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000676630459-dcylj3-t500x500.jpg">](https://soundcloud.com/djdmind/halsey-finally-beautiful-stranger-d-mind-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rLWj0s2hl2j5zQut-uPc8Fg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc159)
 
-**Artist**: D-MIND 
+**Artist**: NON STOP NXC® 
 
-**Track**: Halsey - Finally / Beautiful Stranger (D-Mind Bootleg)
+**Track**: NXC159 - Porter Robinson - Divinity (Yohex Clubcore Mix)
 
-Last updated at 06/08/2021 14:21
+Last updated at 06/08/2021 14:23
