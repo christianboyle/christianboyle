@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZmJoVK2uUJjIvm2Z-z9aS5g-t500x500.jpg">](https://soundcloud.com/sam-segan/sideways-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbUBgBIQ3TkDTFID-1KtYhA-t500x500.jpg">](https://soundcloud.com/destinuna/chaz-stimulate)
 
-**Artist**: Segan 
+**Artist**: Destinuna 
 
-**Track**: ILLENIUM, Valerie Broussard, & Nurko - Sideways (Segan Remix)
+**Track**: CHAZ - Stimulate
 
-Last updated at 06/07/2021 21:14
+Last updated at 06/07/2021 21:16
