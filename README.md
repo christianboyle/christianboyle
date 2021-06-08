@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cWr1C3Fi7981emen-DHLEqg-t500x500.jpg">](https://soundcloud.com/whitepanda/closer-without-you-tegan-and-sara-avicii)
 
 **Artist**: White Panda 
 
-**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
+**Track**: Closer Without You (Tegan and Sara // Avicii)
 
-Last updated at 06/08/2021 14:33
+Last updated at 06/08/2021 16:36
