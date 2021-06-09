@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000169740534-hu2dbp-t500x500.jpg">](https://soundcloud.com/djcarnageofficial/carnage-mase-in-97-ft-lil-yachty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000219051585-td03b1-t500x500.jpg">](https://soundcloud.com/auxparis/xylo)
 
-**Artist**: DJ Carnage 
+**Artist**: Aux Paris 
 
-**Track**: Carnage - Mase In '97 Ft. Lil Yachty (Prod. By Carnage & Charlie Heat)
+**Track**: XYLØ - I Still Wait For You (Nolan van Linth x Felix Palmqvist Remix)
 
-Last updated at 06/08/2021 18:59
+Last updated at 06/08/2021 19:01
