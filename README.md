@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000462715377-lnaiwx-t500x500.jpg">](https://soundcloud.com/otodayo/mob-mind-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000479103933-lhca7d-t500x500.jpg">](https://soundcloud.com/hvppyhour/all-the-time-hvppy-hour-twist)
 
-**Artist**: OTODAYO Records 
+**Artist**: HVPPY HOUR 
 
-**Track**: Mob Mind - VIP
+**Track**: All The Time (HVPPY HOUR Twist)
 
-Last updated at 06/09/2021 02:22
+Last updated at 06/09/2021 02:26
