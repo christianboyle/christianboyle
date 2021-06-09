@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489637875-648k1m-t500x500.jpg">](https://soundcloud.com/maddecent/party-favor-2012-4b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000446167053-bo48me-t500x500.jpg">](https://soundcloud.com/itsjaydonlewis/mia)
 
-**Artist**: Mad Decent 
+**Artist**: Jaydon Lewis 
 
-**Track**: Party Favor - 2012 (4B Remix)
+**Track**: Bad Bunny feat. Drake - Mia (BEAUZ & Jaydon Lewis Remix)
 
-Last updated at 06/08/2021 21:13
+Last updated at 06/08/2021 21:15
