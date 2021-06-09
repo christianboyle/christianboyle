@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEV5l9Xri7gykwUc-II8QXA-t500x500.jpg">](https://soundcloud.com/maximo-v-477296276/the-future)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vcOvmCx3FIAEQkNk-dAffHA-t500x500.jpg">](https://soundcloud.com/fericz-25689569/gryffin-illenium-ft-daya-feel-good-fericz-x-sphericz-bootleg)
 
-**Artist**: MaximoVallejo 
+**Artist**: Fericz 
 
-**Track**: The Future
+**Track**: Gryffin, Illenium Ft. Daya - Feel Good (Fericz x Sphericz Bootleg)
 
-Last updated at 06/09/2021 11:18
+Last updated at 06/09/2021 11:20
