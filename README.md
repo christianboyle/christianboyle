@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456242883-kl4ola-t500x500.jpg">](https://soundcloud.com/lightsoutsounds/tujamo-say-what-you-wanna-lights-out-rose-dawn-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000423982113-q22mvo-t500x500.jpg">](https://soundcloud.com/imsoalone/if-i-die-1)
 
-**Artist**: LIGHTS OUT 
+**Artist**: SoLonely 
 
-**Track**: Tujamo - Say What You Wanna (Lights Out & Rose Dawn Flip)
+**Track**: if i die (NOW ON SPOTIFY)
 
-Last updated at 06/09/2021 03:56
+Last updated at 06/09/2021 03:59
