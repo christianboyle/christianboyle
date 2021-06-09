@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000418011273-xmr7nt-t500x500.jpg">](https://soundcloud.com/sinewavesurfers/pepper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456684822-hs9hu3-t500x500.jpg">](https://soundcloud.com/nectarcollective/furo-dutty)
 
-**Artist**: Sine Wave Surfers 🌊 
+**Artist**: Nectar Collective 
 
-**Track**: TUO - Pepper
+**Track**: Furo - Dutty
 
-Last updated at 06/09/2021 06:46
+Last updated at 06/09/2021 06:48
