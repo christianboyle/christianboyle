@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000492936891-aesbid-t500x500.jpg">](https://soundcloud.com/manilakilla/skin-feat-outsideoutside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000492293268-dr6tuf-t500x500.jpg">](https://soundcloud.com/lilpump/ion-ft-smokepurpp)
 
-**Artist**: Manila Killa 
+**Artist**: Lil Pump 
 
-**Track**: Skin (feat. OutsideOUTSIDE)
+**Track**: ION ft. Smokepurpp
 
-Last updated at 06/08/2021 21:31
+Last updated at 06/08/2021 21:35
