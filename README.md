@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433381263-hm4lgn-t500x500.jpg">](https://soundcloud.com/marxofficial/rickyxsan-poppin-marx-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000456242883-kl4ola-t500x500.jpg">](https://soundcloud.com/lightsoutsounds/tujamo-say-what-you-wanna-lights-out-rose-dawn-remix)
 
-**Artist**: Marx 
+**Artist**: LIGHTS OUT 
 
-**Track**: Rickyxsan - Poppin' [Marx Flip]
+**Track**: Tujamo - Say What You Wanna (Lights Out & Rose Dawn Flip)
 
-Last updated at 06/09/2021 03:54
+Last updated at 06/09/2021 03:56
