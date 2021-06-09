@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEnDgDVvRRoBcJbV-Oy8C5g-t500x500.jpg">](https://soundcloud.com/bkbeats/max)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpfJ2cNeu4L1y7AT-zzEsew-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/komuz-get-loose)
 
-**Artist**: bk beats 
+**Artist**: DramaClubRecs 
 
-**Track**: max (w/ Fluke Nukes)
+**Track**: Komuz - Get Loose!
 
-Last updated at 06/09/2021 11:02
+Last updated at 06/09/2021 11:07
