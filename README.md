@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8oFoYPIdklz-0-t500x500.jpg">](https://soundcloud.com/youasidepiece/together-guz-remix)
 
-**Artist**: White Panda 
+**Artist**: SIDEPIECE 
 
-**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
+**Track**: Together (Guz Remix)
 
-Last updated at 06/09/2021 10:19
+Last updated at 06/09/2021 10:33
