@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8oFoYPIdklz-0-t500x500.jpg">](https://soundcloud.com/youasidepiece/together-guz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
 
-**Artist**: SIDEPIECE 
+**Artist**: Dear Evergreen 
 
-**Track**: Together (Guz Remix)
+**Track**: A Thousand Miles
 
-Last updated at 06/09/2021 10:33
+Last updated at 06/09/2021 10:56
