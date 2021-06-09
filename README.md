@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000112346410-uelhqt-t500x500.jpg">](https://soundcloud.com/sunglasseskid/feel-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000135120602-1k7vgl-t500x500.jpg">](https://soundcloud.com/jordanpaterson/like-the-cool-kids-bounce)
 
-**Artist**: Sunglasses Kid 
+**Artist**: Paterson96 
 
-**Track**: FEEL IT
+**Track**: Like The Cool Kids (bounce)
 
-Last updated at 06/09/2021 01:04
+Last updated at 06/09/2021 01:08
