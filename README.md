@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000490697835-kaxnjv-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/clearmyhead_v6wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000488392317-za0jox-t500x500.jpg">](https://soundcloud.com/uiceheidd/robbery)
 
-**Artist**: NCS 
+**Artist**: Juice WRLD 
 
-**Track**: Ellis - Clear My Head [NCS Release]
+**Track**: Robbery
 
-Last updated at 06/08/2021 21:49
+Last updated at 06/08/2021 21:53
