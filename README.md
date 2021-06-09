@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248465953-38jxqv-t500x500.jpg">](https://soundcloud.com/jeffofficial/4b-aazar-pop-dat-not-alone-jeff-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157488320-hp8g2w-t500x500.jpg">](https://soundcloud.com/harshrecordslabel/starx-vvl-hard-psy-original-mix)
 
-**Artist**: JEFF?! 
+**Artist**: HARSH RECORDS 
 
-**Track**: 4b & Aazar - POP DAT (Not Alone! & JEFF?! Remix)
+**Track**: STARX, VVL - Hard Psy (Original Mix)
 
-Last updated at 06/08/2021 20:46
+Last updated at 06/08/2021 20:48
