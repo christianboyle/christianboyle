@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000276491492-h99ork-t500x500.jpg">](https://soundcloud.com/jeffofficial/kayzo-whyel-this-revolt-jeffup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000310255095-1u4uxw-t500x500.jpg">](https://soundcloud.com/esomusic2000/daddy-mix)
 
-**Artist**: JEFF?! 
+**Artist**: ETERNAL SAFETY ONLINE 
 
-**Track**: KAYZO & WHYEL - This Revolt (JEFFup)
+**Track**: DADDY - ESOGUEST_MIX
 
-Last updated at 06/08/2021 19:52
+Last updated at 06/08/2021 19:56
