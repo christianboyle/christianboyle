@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485341491-brop3t-t500x500.jpg">](https://soundcloud.com/r3hab/this-is-how-we-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000490697835-kaxnjv-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/clearmyhead_v6wav)
 
-**Artist**: R3HAB 
+**Artist**: NCS 
 
-**Track**: This Is How We Party
+**Track**: Ellis - Clear My Head [NCS Release]
 
-Last updated at 06/08/2021 21:47
+Last updated at 06/08/2021 21:49
