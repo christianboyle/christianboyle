@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000478635234-l0fzym-t500x500.jpg">](https://soundcloud.com/weekendworkout/weekend-workout-216-julius-jetson-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000473436576-ned2y4-t500x500.jpg">](https://soundcloud.com/trademarkbootlegs/on-your-own-halsey-x-justin-caruso)
 
-**Artist**: Weekend Workout 
+**Artist**: Trademark 
 
-**Track**: Weekend Workout 216: Julius Jetson Guest Mix
+**Track**: On Your Own (Halsey X Justin Caruso)
 
-Last updated at 06/09/2021 02:32
+Last updated at 06/09/2021 03:33
