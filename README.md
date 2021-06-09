@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493147314-5jp38e-t500x500.jpg">](https://soundcloud.com/spencerbarnettmusic/seventeen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvoUQPMbfj8c-0-t500x500.png">](https://soundcloud.com/cherry-beach/easy-feat-elle-winter)
 
-**Artist**: Spencer Barnett 
+**Artist**: CHERRY BEACH 
 
-**Track**: 17
+**Track**: Easy (feat. Elle Winter)
 
-Last updated at 06/08/2021 21:21
+Last updated at 06/08/2021 21:25
