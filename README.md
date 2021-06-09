@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000124871550-per4fi-t500x500.jpg">](https://soundcloud.com/iloveninamusic/heart-of-glass-cover-version-by-nina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000112346410-uelhqt-t500x500.jpg">](https://soundcloud.com/sunglasseskid/feel-it)
 
-**Artist**: N I N A 
+**Artist**: Sunglasses Kid 
 
-**Track**: HEART OF GLASS (Blondie) - Cover Version by NINA
+**Track**: FEEL IT
 
-Last updated at 06/09/2021 00:59
+Last updated at 06/09/2021 01:04
