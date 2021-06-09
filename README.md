@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000224193964-wf1s2g-t500x500.jpg">](https://soundcloud.com/g59/venom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000418011273-xmr7nt-t500x500.jpg">](https://soundcloud.com/sinewavesurfers/pepper)
 
-**Artist**: $UICIDEBOY$ 
+**Artist**: Sine Wave Surfers 🌊 
 
-**Track**: VENOM (FEAT. SHAKEWELL)
+**Track**: TUO - Pepper
 
-Last updated at 06/09/2021 06:44
+Last updated at 06/09/2021 06:46
