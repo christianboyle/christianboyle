@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228540196-8ozg50-t500x500.jpg">](https://soundcloud.com/petitbiscuit/petit-biscuit-sunset-lover-slow-hours-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500685327-v0d2rf-t500x500.jpg">](https://soundcloud.com/uiceheidd/fast)
 
-**Artist**: PETIT BISCUIT 
+**Artist**: Juice WRLD 
 
-**Track**: Sunset Lover (Slow Hours Remix)
+**Track**: Fast
 
-Last updated at 06/08/2021 19:42
+Last updated at 06/08/2021 19:47
