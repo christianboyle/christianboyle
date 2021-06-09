@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466509273-o968be-t500x500.jpg">](https://soundcloud.com/ramirez_187/ramirez-x-boobie-van-glock-prodby-zane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380100438-tcep66-t500x500.jpg">](https://soundcloud.com/platform/dj-rush)
 
-**Artist**: RAMIREZ. 
+**Artist**: Boiler Room 
 
-**Track**: RAMIREZ x Boobie - Van Glock [Prod.By Zane]
+**Track**: DJ Rush | Boiler Room Rotterdam
 
-Last updated at 06/09/2021 04:48
+Last updated at 06/09/2021 04:50
