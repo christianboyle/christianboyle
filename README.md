@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3M0fwdPilhoaJVc-NHyQNQ-t500x500.jpg">](https://soundcloud.com/raizel-havoc/xavier-wulf-so-it-seems)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485401776-bj6q31-t500x500.jpg">](https://soundcloud.com/raitobeats/raito-live-at-sub-club)
 
-**Artist**: raizel 
+**Artist**: Raito 
 
-**Track**: xavier wulf - so it seems (prod mr sisco)
+**Track**: Raito Live @ Sub Club
 
-Last updated at 06/08/2021 22:21
+Last updated at 06/08/2021 22:25
