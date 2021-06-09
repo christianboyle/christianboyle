@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000478105290-dy5ofy-t500x500.jpg">](https://soundcloud.com/itswaitwhat/sugar-were-going-down-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000124871550-per4fi-t500x500.jpg">](https://soundcloud.com/iloveninamusic/heart-of-glass-cover-version-by-nina)
 
-**Artist**: waitwhat 
+**Artist**: N I N A 
 
-**Track**: Fall Out Boy - Sugar We're Goin Down (waitwhat & SEPPIE Remix)
+**Track**: HEART OF GLASS (Blondie) - Cover Version by NINA
 
-Last updated at 06/09/2021 00:57
+Last updated at 06/09/2021 00:59
