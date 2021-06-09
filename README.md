@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334784754-npfawz-t500x500.jpg">](https://soundcloud.com/strangefruitsmusic/sf031r16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000417567393-0hveaf-t500x500.jpg">](https://soundcloud.com/beauzworld/happy-now)
 
-**Artist**: Strange Fruits 
+**Artist**: BEAUZ 
 
-**Track**: Steve Void & TELYKast – Comfortable (ft. Natalie Major)(Midas Remix)🍉
+**Track**: Zedd & Elley Duhé - Happy Now (BEAUZ Remix)
 
-Last updated at 06/09/2021 06:28
+Last updated at 06/09/2021 06:32
