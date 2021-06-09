@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGa4XQ3S4Wad-0-t500x500.jpg">](https://soundcloud.com/rickybobby-slumpgod/foot-fungus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000503280522-yw8bya-t500x500.jpg">](https://soundcloud.com/thehotellobby/here-with-me-the-hotel-lobby-remix)
 
-**Artist**: SKI MASK THE SLUMP GOD 
+**Artist**: THE HOTEL LOBBY 
 
-**Track**: Foot Fungus
+**Track**: Marshmello - Here With Me Feat. CHVRCHES (THE HOTEL LOBBY Remix)
 
-Last updated at 06/08/2021 19:34
+Last updated at 06/08/2021 19:36
