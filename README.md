@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562677993-5c7x83-t500x500.jpg">](https://soundcloud.com/enotrope/01-platform-shoes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228540196-8ozg50-t500x500.jpg">](https://soundcloud.com/petitbiscuit/petit-biscuit-sunset-lover-slow-hours-remix)
 
-**Artist**: 🤠 
+**Artist**: PETIT BISCUIT 
 
-**Track**: Slayyyter - Platform Shoes (Nightcore Edit)
+**Track**: Sunset Lover (Slow Hours Remix)
 
-Last updated at 06/08/2021 19:40
+Last updated at 06/08/2021 19:42
