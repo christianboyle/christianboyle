@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466282278-0kw8cg-t500x500.jpg">](https://soundcloud.com/iamlick/skrillex-x-wolfgang-gartner-devils-den-lick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032286052-ojwqhj-t500x500.jpg">](https://soundcloud.com/darnell-yancey/lil-ugly-mane-serious-shit)
 
-**Artist**: LICK 
+**Artist**: ItsNeezy 
 
-**Track**: SKRILLEX X WOLFGANG GARTNER - DEVILS DEN (LICK REMIX)
+**Track**: Lil Ugly Mane | Serious Shit
 
-Last updated at 06/09/2021 06:36
+Last updated at 06/09/2021 06:38
