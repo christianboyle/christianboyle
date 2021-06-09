@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000483842442-5ojfao-t500x500.jpg">](https://soundcloud.com/drakkofficial/drakk-feel-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000484490622-c7gr6y-t500x500.jpg">](https://soundcloud.com/diplo/diplo-new-shapes-feat-octavian)
 
-**Artist**: 𝐃𝐑𝐀𝐊𝐊 
+**Artist**: Diplo 
 
-**Track**: DRAKK -  Feel Me
+**Track**: Diplo - New Shapes (feat. Octavian)
 
-Last updated at 06/08/2021 23:27
+Last updated at 06/08/2021 23:32
