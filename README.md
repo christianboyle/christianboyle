@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vcOvmCx3FIAEQkNk-dAffHA-t500x500.jpg">](https://soundcloud.com/fericz-25689569/gryffin-illenium-ft-daya-feel-good-fericz-x-sphericz-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
 
-**Artist**: Fericz 
+**Artist**: Dear Evergreen 
 
-**Track**: Gryffin, Illenium Ft. Daya - Feel Good (Fericz x Sphericz Bootleg)
+**Track**: A Thousand Miles
 
-Last updated at 06/09/2021 11:20
+Last updated at 06/09/2021 11:24
