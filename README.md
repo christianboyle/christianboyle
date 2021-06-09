@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000479740755-a23qu3-t500x500.jpg">](https://soundcloud.com/hegemon/dabl-off-my-mind-feat-alex-marie-brinkley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000481791978-x05r7e-t500x500.jpg">](https://soundcloud.com/inextremis/answers)
 
-**Artist**: Hegemon Select 
+**Artist**: Inextremis 
 
-**Track**: dabl - Off My Mind (feat. Alex Marie Brinkley)
+**Track**: Bendel & Lizdek - Answers (ft. FETH)
 
-Last updated at 06/09/2021 00:00
+Last updated at 06/09/2021 00:03
