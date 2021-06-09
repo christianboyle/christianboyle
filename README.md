@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458957208-1li8hd-t500x500.jpg">](https://soundcloud.com/absolute-terror/snow-everywhere-w-vmenses-brvnd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000464011800-d6mio0-t500x500.jpg">](https://soundcloud.com/strangefruitsmusic/nf065)
 
-**Artist**: Absolute Terror 
+**Artist**: Strange Fruits 
 
-**Track**: SNOW EVERYWHERE w/ VMENSES BRVND
+**Track**: T.L.I.D - Come To Life 🍉
 
-Last updated at 06/09/2021 04:21
+Last updated at 06/09/2021 04:23
