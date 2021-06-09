@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500363952-do94r3-t500x500.jpg">](https://soundcloud.com/samgroove/kocombo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000504156822-fmz32s-t500x500.jpg">](https://soundcloud.com/korpus9records/confluence-caravan-k9f004-free-download)
 
-**Artist**: Sam Groove 
+**Artist**: Korpus 9 
 
-**Track**: Sam Groove - Knockout Combo
+**Track**: Confluence - Caravan - [K9F004] - Free Download
 
-Last updated at 06/08/2021 19:12
+Last updated at 06/08/2021 19:16
