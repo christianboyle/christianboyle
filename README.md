@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000313004241-rqj7p7-t500x500.jpg">](https://soundcloud.com/esomusic2000/partymonster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500392002-1yvik7-t500x500.jpg">](https://soundcloud.com/trixyourmind/theres-no-way-feat-jessie-rae)
 
-**Artist**: ETERNAL SAFETY ONLINE 
+**Artist**: MINDTRIX 
 
-**Track**: CHARLiE666 - PARTY_MONSTER_MIX
+**Track**: THERE'S NO WAY (FT. JESSiE RAE) [LAUV COVER]
 
-Last updated at 06/08/2021 20:14
+Last updated at 06/08/2021 20:38
