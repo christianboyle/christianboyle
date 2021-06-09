@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000349488438-ga09gm-t500x500.jpg">](https://soundcloud.com/shakewell818/10-homies-ft-pouya-prod-flexatelli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466509273-o968be-t500x500.jpg">](https://soundcloud.com/ramirez_187/ramirez-x-boobie-van-glock-prodby-zane)
 
-**Artist**: Shakewell 
+**Artist**: RAMIREZ. 
 
-**Track**: 10 Homies Ft. Pouya (Prod. Flexatelli)
+**Track**: RAMIREZ x Boobie - Van Glock [Prod.By Zane]
 
-Last updated at 06/09/2021 04:44
+Last updated at 06/09/2021 04:48
