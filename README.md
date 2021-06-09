@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000168405678-wjxxhp-t500x500.jpg">](https://soundcloud.com/bitbird/taska-black-leave-me-bb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458661372-iaqyc9-t500x500.jpg">](https://soundcloud.com/iamonlytom/talkingbody)
 
-**Artist**: bitbird 
+**Artist**: onlytom 
 
-**Track**: Taska Black - Leave Me
+**Track**: talking body (onlytom bootleg)
 
-Last updated at 06/09/2021 07:21
+Last updated at 06/09/2021 07:25
