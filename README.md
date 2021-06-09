@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000497093838-fkt5i1-t500x500.jpg">](https://soundcloud.com/hartshorn303/borgeous-zack-martino-make-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489637875-648k1m-t500x500.jpg">](https://soundcloud.com/maddecent/party-favor-2012-4b-remix)
 
-**Artist**: Hartshorn 
+**Artist**: Mad Decent 
 
-**Track**: Borgeous & Zack Martino- Make Me Yours (Outforce & Hartshorn Remix)
+**Track**: Party Favor - 2012 (4B Remix)
 
-Last updated at 06/08/2021 21:10
+Last updated at 06/08/2021 21:13
