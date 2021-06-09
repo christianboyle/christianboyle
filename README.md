@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000242538552-ul4tww-t500x500.jpg">](https://soundcloud.com/gommiofficial/yellow-claw-do-you-like-bass-gommi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000223212285-stzprx-t500x500.jpg">](https://soundcloud.com/gommiofficial/kayzo-this-time-gommi-x-tyeguys-remix)
 
 **Artist**: GOMMI 
 
-**Track**: YELLOW CLAW & JUYEN SEBULBA - DO YOU LIKE BASS? (GOMMI REMIX)
+**Track**: KAYZO - THIS TIME (GOMMI X TYEGUYS REMIX)
 
-Last updated at 06/08/2021 20:58
+Last updated at 06/08/2021 21:02
