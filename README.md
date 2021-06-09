@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000471709431-cc4q7i-t500x500.jpg">](https://soundcloud.com/czdoe/cz-diplo-friends-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000483242544-lzkudx-t500x500.jpg">](https://soundcloud.com/thebeamon/wiredjaw)
 
-**Artist**: C.Z. 
+**Artist**: BEAMON 
 
-**Track**: C.Z. Diplo & Friends Show
+**Track**: BEAMON - KanyesWiredJaw (prod. by sauron) w/ Trippy tha Kid
 
-Last updated at 06/09/2021 01:12
+Last updated at 06/09/2021 02:13
