@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405455586-yo62fc-t500x500.jpg">](https://soundcloud.com/vrg_vault/boombox-cartel-jefe-vip-vrg-re-vip-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000259999478-a9cl3s-t500x500.jpg">](https://soundcloud.com/officialbassreaper/freaked-dolphin)
 
-**Artist**: THE VRG VAULT 
+**Artist**: bassReaper 
 
-**Track**: BOOMBOX CARTEL - JEFE (VIP) (VRG RE - VIP) (VIP)
+**Track**: Freaked Dolphin
 
-Last updated at 06/09/2021 07:02
+Last updated at 06/09/2021 07:04
