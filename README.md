@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000446167053-bo48me-t500x500.jpg">](https://soundcloud.com/itsjaydonlewis/mia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000400616433-0k4mur-t500x500.jpg">](https://soundcloud.com/brednbutterrec/beauz-ghostdragon-bring-me-down-feat-addie-nicole)
 
-**Artist**: Jaydon Lewis 
+**Artist**: brednbutter 
 
-**Track**: Bad Bunny feat. Drake - Mia (BEAUZ & Jaydon Lewis Remix)
+**Track**: BEAUZ & GhostDragon - Bring Me Down (feat. Addie Nicole)
 
-Last updated at 06/08/2021 21:15
+Last updated at 06/08/2021 21:19
