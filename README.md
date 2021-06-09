@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000382347867-e97az1-t500x500.jpg">](https://soundcloud.com/s3rl/beat-all-the-odds-s3rl-ft-kitty-lovely)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000453364335-vd4zln-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-always-presents)
 
 **Artist**: S3RL 
 
-**Track**: Beat All The Odds - S3RL ft Kitty & Lovely
+**Track**: S3RL Always Presents...
 
-Last updated at 06/09/2021 00:09
+Last updated at 06/09/2021 00:11
