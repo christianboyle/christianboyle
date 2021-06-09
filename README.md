@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000475460379-tk1txg-t500x500.jpg">](https://soundcloud.com/spinninrecords-talentpool/aarre-drunk-in-love-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000345792099-bec4pe-t500x500.jpg">](https://soundcloud.com/guardinmusic/cool)
 
-**Artist**: Spinnin' Talent Pool 
+**Artist**: guardin 
 
-**Track**: Aarre - Drunk In Love [OUT NOW]
+**Track**: i think you're really cool
 
-Last updated at 06/09/2021 03:48
+Last updated at 06/09/2021 03:51
