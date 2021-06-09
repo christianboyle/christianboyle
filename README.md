@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000475791528-qbmlte-t500x500.jpg">](https://soundcloud.com/yitakulxiv/allthetime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000377038188-z3jm7h-t500x500.jpg">](https://soundcloud.com/porter-robinson/virtual-self-angel-voices)
 
-**Artist**: yitaku 
+**Artist**: Porter Robinson 
 
-**Track**: Kim Petras - All The Time (yitaku & underscores Remix)
+**Track**: VIRTUAL SELF - ANGEL VOICES
 
-Last updated at 06/09/2021 04:09
+Last updated at 06/09/2021 04:11
