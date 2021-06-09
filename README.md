@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000219051585-td03b1-t500x500.jpg">](https://soundcloud.com/auxparis/xylo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000388184589-ywcfof-t500x500.jpg">](https://soundcloud.com/kayvianremixes/loud-luxury-feat-brando-body-kayvian-remix)
 
-**Artist**: Aux Paris 
+**Artist**: KAYVIAN Remixes 
 
-**Track**: XYLØ - I Still Wait For You (Nolan van Linth x Felix Palmqvist Remix)
+**Track**: Loud Luxury feat. brando - Body (KAYVIAN Remix)
 
-Last updated at 06/08/2021 19:01
+Last updated at 06/08/2021 19:06
