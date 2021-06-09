@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000483242544-lzkudx-t500x500.jpg">](https://soundcloud.com/thebeamon/wiredjaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000505308906-aa7hlr-t500x500.jpg">](https://soundcloud.com/punkfanatic/punk-fanatic-komb-shivaya-original-mix)
 
-**Artist**: BEAMON 
+**Artist**: Punk Fanatic 
 
-**Track**: BEAMON - KanyesWiredJaw (prod. by sauron) w/ Trippy tha Kid
+**Track**: Punk Fanatic & Komb - Shivaya (Original Mix) Bourne Recordings
 
-Last updated at 06/09/2021 02:13
+Last updated at 06/09/2021 02:15
