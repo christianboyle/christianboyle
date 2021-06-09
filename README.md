@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000113025892-mvmwiz-t500x500.jpg">](https://soundcloud.com/teamsesh/bones-heregoesnothing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371963901-m5xqwm-t500x500.jpg">](https://soundcloud.com/alphainception/lethal)
 
-**Artist**: TeamSESH 
+**Artist**: GENESIS 
 
-**Track**: Bones - HereGoesNothing (Prod. by Stereoryze)
+**Track**: LETHAL 🚀 (w/WIN32 + SUGGS + ZENOPHAZE)
 
-Last updated at 06/09/2021 06:56
+Last updated at 06/09/2021 06:58
