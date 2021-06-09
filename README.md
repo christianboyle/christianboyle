@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000028236591-avt8ee-t500x500.jpg">](https://soundcloud.com/nodoubt/sdbaauerremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500626614-13smez-t500x500.jpg">](https://soundcloud.com/robokidonline/seventeen)
 
-**Artist**: No Doubt 
+**Artist**: robokid 
 
-**Track**: No Doubt - Settle Down (Baauer Remix)
+**Track**: 17 (feat. Manila Killa & AObeats)
 
-Last updated at 06/09/2021 06:20
+Last updated at 06/09/2021 06:24
