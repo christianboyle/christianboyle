@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000484490622-c7gr6y-t500x500.jpg">](https://soundcloud.com/diplo/diplo-new-shapes-feat-octavian)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000478687422-rikvvz-t500x500.jpg">](https://soundcloud.com/moonbeams_uk/glacci-blue-illuzion)
 
-**Artist**: Diplo 
+**Artist**: MOONBEAMS Ⓡ 
 
-**Track**: Diplo - New Shapes (feat. Octavian)
+**Track**: Glacci - Blue Illuzion
 
-Last updated at 06/08/2021 23:32
+Last updated at 06/08/2021 23:34
