@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501354750-obvmmw-t500x500.jpg">](https://soundcloud.com/dj-ron-1993/stl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000276491492-h99ork-t500x500.jpg">](https://soundcloud.com/jeffofficial/kayzo-whyel-this-revolt-jeffup)
 
-**Artist**: ♍︎ RON UZUMAKI ♍︎ Zukakushimoto 
+**Artist**: JEFF?! 
 
-**Track**: S.T.L
+**Track**: KAYZO & WHYEL - This Revolt (JEFFup)
 
-Last updated at 06/08/2021 19:50
+Last updated at 06/08/2021 19:52
