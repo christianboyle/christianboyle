@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000476433648-tqyowg-t500x500.jpg">](https://soundcloud.com/defflz/function-feat-auto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000482669589-p4wjkt-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-37-waking-up)
 
-**Artist**: serenity 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: FUNCTION (FEAT. AUTO)
+**Track**: Episode 37 - Waking Up
 
-Last updated at 06/08/2021 23:39
+Last updated at 06/08/2021 23:41
