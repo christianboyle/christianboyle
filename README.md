@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432989982-spv7c6-t500x500.jpg">](https://soundcloud.com/lil_peep/fingers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000429125763-pp6fk1-t500x500.jpg">](https://soundcloud.com/xavierwulf/the-real-folk-blues-prod-marcelo)
 
-**Artist**: ☆LiL PEEP☆ 
+**Artist**: XavierWulf 
 
-**Track**: Fingers
+**Track**: The Real Folk Blues (Prod. Marcelo)
 
-Last updated at 06/08/2021 21:39
+Last updated at 06/08/2021 21:43
