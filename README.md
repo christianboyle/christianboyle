@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000118872199-fdj6qi-t500x500.jpg">](https://soundcloud.com/xavierwulf/02-akina-speed-star)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3M0fwdPilhoaJVc-NHyQNQ-t500x500.jpg">](https://soundcloud.com/raizel-havoc/xavier-wulf-so-it-seems)
 
-**Artist**: XavierWulf 
+**Artist**: raizel 
 
-**Track**: Xavier Wulf - Akina Speed Star (Prod. KurtisBased)
+**Track**: xavier wulf - so it seems (prod mr sisco)
 
-Last updated at 06/08/2021 22:19
+Last updated at 06/08/2021 22:21
