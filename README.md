@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000500685327-v0d2rf-t500x500.jpg">](https://soundcloud.com/uiceheidd/fast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501354750-obvmmw-t500x500.jpg">](https://soundcloud.com/dj-ron-1993/stl)
 
-**Artist**: Juice WRLD 
+**Artist**: ♍︎ RON UZUMAKI ♍︎ Zukakushimoto 
 
-**Track**: Fast
+**Track**: S.T.L
 
-Last updated at 06/08/2021 19:47
+Last updated at 06/08/2021 19:50
