@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oupc9M5TgVcwgvaj-h71t7Q-t500x500.jpg">](https://soundcloud.com/catgirlresearchlab/dj-kuroneko-x-kirai-yes-yes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyKokNWUvTlxOmVd-Dy1mPg-t500x500.jpg">](https://soundcloud.com/rinsefm/hixxy080621)
 
-**Artist**: Catgirl Research Lab. 
+**Artist**: Rinse FM 
 
-**Track**: DJ Kuroneko X kirai - Yes Yes
+**Track**: Hixxy - 08 June 2021
 
-Last updated at 06/09/2021 07:47
+Last updated at 06/09/2021 07:51
