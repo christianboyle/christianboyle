@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000464859642-hlfk7h-t500x500.jpg">](https://soundcloud.com/trapsourceremixes/bailo-gladez-dale-taving-jersey-club-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458957208-1li8hd-t500x500.jpg">](https://soundcloud.com/absolute-terror/snow-everywhere-w-vmenses-brvnd)
 
-**Artist**: TrapSource Remixes 
+**Artist**: Absolute Terror 
 
-**Track**: Bailo & Gladez - Dalé (Taving Jersey Club Flip)
+**Track**: SNOW EVERYWHERE w/ VMENSES BRVND
 
-Last updated at 06/09/2021 04:17
+Last updated at 06/09/2021 04:21
