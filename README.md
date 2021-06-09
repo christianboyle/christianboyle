@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000503280522-yw8bya-t500x500.jpg">](https://soundcloud.com/thehotellobby/here-with-me-the-hotel-lobby-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562677993-5c7x83-t500x500.jpg">](https://soundcloud.com/enotrope/01-platform-shoes)
 
-**Artist**: THE HOTEL LOBBY 
+**Artist**: 🤠 
 
-**Track**: Marshmello - Here With Me Feat. CHVRCHES (THE HOTEL LOBBY Remix)
+**Track**: Slayyyter - Platform Shoes (Nightcore Edit)
 
-Last updated at 06/08/2021 19:36
+Last updated at 06/08/2021 19:40
