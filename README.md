@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439948713-67orwp-t500x500.jpg">](https://soundcloud.com/bendefekt/sigala-lullaby-feat-paloma-faith-defekt-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000168405678-wjxxhp-t500x500.jpg">](https://soundcloud.com/bitbird/taska-black-leave-me-bb)
 
-**Artist**: Ben Defekt 
+**Artist**: bitbird 
 
-**Track**: Sigala - Lullaby Feat Paloma Faith (Defekt Remix)
+**Track**: Taska Black - Leave Me
 
-Last updated at 06/09/2021 07:14
+Last updated at 06/09/2021 07:21
