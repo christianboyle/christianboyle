@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000429125763-pp6fk1-t500x500.jpg">](https://soundcloud.com/xavierwulf/the-real-folk-blues-prod-marcelo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000487283625-n2fjn4-t500x500.jpg">](https://soundcloud.com/astonedpoet/fools-gold)
 
-**Artist**: XavierWulf 
+**Artist**: A $toned Poet 
 
-**Track**: The Real Folk Blues (Prod. Marcelo)
+**Track**: Fool's Gold (Prod By D'Artizt & Lonestarrmuzik)
 
-Last updated at 06/08/2021 21:43
+Last updated at 06/08/2021 21:45
