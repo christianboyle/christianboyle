@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000482669589-p4wjkt-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-37-waking-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000176590128-7vlisk-t500x500.jpg">](https://soundcloud.com/iamlocksmith/locksmith-black-hole-12)
 
-**Artist**: SoCal Nightcore Podcast 
+**Artist**: DaLocksmith 
 
-**Track**: Episode 37 - Waking Up
+**Track**: Locksmith - Black Hole
 
-Last updated at 06/08/2021 23:41
+Last updated at 06/08/2021 23:57
