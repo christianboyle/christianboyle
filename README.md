@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371963901-m5xqwm-t500x500.jpg">](https://soundcloud.com/alphainception/lethal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405455586-yo62fc-t500x500.jpg">](https://soundcloud.com/vrg_vault/boombox-cartel-jefe-vip-vrg-re-vip-vip)
 
-**Artist**: GENESIS 
+**Artist**: THE VRG VAULT 
 
-**Track**: LETHAL 🚀 (w/WIN32 + SUGGS + ZENOPHAZE)
+**Track**: BOOMBOX CARTEL - JEFE (VIP) (VRG RE - VIP) (VIP)
 
-Last updated at 06/09/2021 06:58
+Last updated at 06/09/2021 07:02
