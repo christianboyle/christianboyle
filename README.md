@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000377038188-z3jm7h-t500x500.jpg">](https://soundcloud.com/porter-robinson/virtual-self-angel-voices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000464859642-hlfk7h-t500x500.jpg">](https://soundcloud.com/trapsourceremixes/bailo-gladez-dale-taving-jersey-club-flip)
 
-**Artist**: Porter Robinson 
+**Artist**: TrapSource Remixes 
 
-**Track**: VIRTUAL SELF - ANGEL VOICES
+**Track**: Bailo & Gladez - Dalé (Taving Jersey Club Flip)
 
-Last updated at 06/09/2021 04:11
+Last updated at 06/09/2021 04:17
