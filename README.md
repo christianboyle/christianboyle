@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000492293268-dr6tuf-t500x500.jpg">](https://soundcloud.com/lilpump/ion-ft-smokepurpp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3mWok1scNYGC-0-t500x500.jpg">](https://soundcloud.com/uiceheidd/armed-dangerous)
 
-**Artist**: Lil Pump 
+**Artist**: Juice WRLD 
 
-**Track**: ION ft. Smokepurpp
+**Track**: Armed And Dangerous
 
-Last updated at 06/08/2021 21:35
+Last updated at 06/08/2021 21:37
