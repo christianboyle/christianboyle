@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000487283625-n2fjn4-t500x500.jpg">](https://soundcloud.com/astonedpoet/fools-gold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485341491-brop3t-t500x500.jpg">](https://soundcloud.com/r3hab/this-is-how-we-party)
 
-**Artist**: A $toned Poet 
+**Artist**: R3HAB 
 
-**Track**: Fool's Gold (Prod By D'Artizt & Lonestarrmuzik)
+**Track**: This Is How We Party
 
-Last updated at 06/08/2021 21:45
+Last updated at 06/08/2021 21:47
