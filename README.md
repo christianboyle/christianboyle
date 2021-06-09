@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000377947755-td2d1i-t500x500.jpg">](https://soundcloud.com/eddybaker/ready2rumbleproduced-by-888)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000462111318-0h7c8s-t500x500.jpg">](https://soundcloud.com/teamsesh/bones-encoding)
 
-**Artist**: Eddy Baker 
+**Artist**: TeamSESH 
 
-**Track**: READY2RUMBLE(Produced By 888)
+**Track**: Bones - Encoding
 
-Last updated at 06/09/2021 06:53
+Last updated at 06/09/2021 06:55
