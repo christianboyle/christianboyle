@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000481933632-9q89ua-t500x500.jpg">](https://soundcloud.com/hylasgeist/ashes-ft-weepingwolfprod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-apCR6dRAB7gj-0-t500x500.jpg">](https://soundcloud.com/rickybobby-slumpgod/cat-piss-feat-lil-yachty)
 
-**Artist**: hylas 
+**Artist**: SKI MASK THE SLUMP GOD 
 
-**Track**: ashes (ft. weepingwolf) [prod. 4evr]
+**Track**: Cat Piss (feat. Lil Yachty)
 
-Last updated at 06/08/2021 19:28
+Last updated at 06/08/2021 19:32
