@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bL212RkO9b1yZRZi-QDXvxg-t500x500.jpg">](https://soundcloud.com/alstorm/8-al-storm-all-over-again-jack-in-box-dbl-remix?in=alstorm/sets/24-7-the-remix-collection-part)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-igHNeZgCVbgI087n-D7X3Vg-t500x500.jpg">](https://soundcloud.com/quannnic/buried)
 
-**Artist**: 24/7 Hardcore / Al Storm 
+**Artist**: quannnic 
 
-**Track**: 8 Al Storm - All Over Again (Jack In Box & DBL Remix)
+**Track**: buried
 
-Last updated at 06/10/2021 08:16
+Last updated at 06/10/2021 15:03
