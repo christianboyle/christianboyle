@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2t7tjU9HyuDS56l-pUvcAg-t500x500.jpg">](https://soundcloud.com/rave_alert/p-a-t-r-o-n-v-s-fooling-no-one-but-yourself-the-rave-school)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD1e01MEdpNMdzsB-G4r1VQ-t500x500.jpg">](https://soundcloud.com/phuturecollective/lhomie-forsaken?in=phuturecollective/sets/forsaken-by-lhomie)
 
-**Artist**: Rave Alert 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: [PREMIERE] P A T R O N V S - Fooling No One But Yourself (The Rave School)
+**Track**: L'homie - Forsaken
 
-Last updated at 06/10/2021 07:06
+Last updated at 06/10/2021 07:10
