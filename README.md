@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTke04e3u8yCGnQK-LqfbGA-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-good-times-ahead-rapido-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJHPkf2eLPJ52C3A-SC5OBQ-t500x500.jpg">](https://soundcloud.com/motztechno/motz-premiere-zorenlo-brenta-nick-leon-aleteo-remix)
 
-**Artist**: Dabow 
+**Artist**: MOTZ 
 
-**Track**: Dabow & Good Times Ahead - Rapido
+**Track**: MOTZ Premiere: zorenLo - Brenta (Nick León Aleteo Remix)
 
-Last updated at 06/10/2021 07:28
+Last updated at 06/10/2021 07:30
