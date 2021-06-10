@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD1e01MEdpNMdzsB-G4r1VQ-t500x500.jpg">](https://soundcloud.com/phuturecollective/lhomie-forsaken?in=phuturecollective/sets/forsaken-by-lhomie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGzTt0cNVORGaOd5-GL36UQ-t500x500.jpg">](https://soundcloud.com/user-859281250/facading-freefalling?in=nocopyrightsounds/sets/ncs-gaming-music-2021)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Cour Nation 
 
-**Track**: L'homie - Forsaken
+**Track**: Facading - Freefalling
 
-Last updated at 06/10/2021 07:10
+Last updated at 06/10/2021 07:14
