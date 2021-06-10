@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJHPkf2eLPJ52C3A-SC5OBQ-t500x500.jpg">](https://soundcloud.com/motztechno/motz-premiere-zorenlo-brenta-nick-leon-aleteo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2u5HbaRLMbgYtIk5-RIldWQ-t500x500.jpg">](https://soundcloud.com/lil_motor/patentpending)
 
-**Artist**: MOTZ 
+**Artist**: MOTOR (Lil Motor) 
 
-**Track**: MOTZ Premiere: zorenLo - Brenta (Nick León Aleteo Remix)
+**Track**: ∞©PATENT PENDING©∞ *DirtyCleanInstrument* (Guv’nor Remix)
 
-Last updated at 06/10/2021 07:30
+Last updated at 06/10/2021 07:32
