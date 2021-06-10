@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3vWZ8jktbwB-0-t500x500.jpg">](https://soundcloud.com/jacku/skrillex-and-diplo-present-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000010060933-1c5rto-t500x500.jpg">](https://soundcloud.com/dillonfrancis/dwntwn-transition-dillon)
 
-**Artist**: Jack Ü 
+**Artist**: DILLONFRANCIS 
 
-**Track**: Where Are Ü Now (with Justin Bieber)
+**Track**: DWNTWN - Transition (Dillon Francis Remix)
 
-Last updated at 06/10/2021 17:11
+Last updated at 06/10/2021 17:15
