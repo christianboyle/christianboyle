@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2u5HbaRLMbgYtIk5-RIldWQ-t500x500.jpg">](https://soundcloud.com/lil_motor/patentpending)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLRggIczqnhBPQA5-jDxUEw-t500x500.jpg">](https://soundcloud.com/vavomusic/pieces-feat-tyler-mann-twiig-remix)
 
-**Artist**: MOTOR (Lil Motor) 
+**Artist**: VAVO 
 
-**Track**: ∞©PATENT PENDING©∞ *DirtyCleanInstrument* (Guv’nor Remix)
+**Track**: Pieces (feat. Tyler Mann) (TWIIG Remix)
 
-Last updated at 06/10/2021 07:32
+Last updated at 06/10/2021 07:34
