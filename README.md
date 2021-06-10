@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-agQ0vXzKy9lYy9Q3-yPAQ9Q-t500x500.jpg">](https://soundcloud.com/balamii/footnotes-w-grace-wang-music-for-summer-reading-june-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEnDgDVvRRoBcJbV-Oy8C5g-t500x500.jpg">](https://soundcloud.com/bkbeats/iffy)
 
-**Artist**: Balamii 
+**Artist**: bk beats 
 
-**Track**: Footnotes w/ Grace Wang: Music For Summer Reading - June 2021
+**Track**: iffy (w/ Fluke Nukes)
 
-Last updated at 06/10/2021 15:55
+Last updated at 06/10/2021 15:57
