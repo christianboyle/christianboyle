@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swsF2u5mOtIcfgau-CbbnkA-t500x500.jpg">](https://soundcloud.com/mabi-songs/im-so-hyped-right-now)
 
-**Artist**: queer nxc 
+**Artist**: Mabi 
 
-**Track**: nvr-mnt-2-hrt-me </3
+**Track**: i'm so hyped right now (Prod. Hi Tom)
 
-Last updated at 06/11/2021 09:36
+Last updated at 06/11/2021 10:28
