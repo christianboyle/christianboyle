@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9YeL5diu4An-0-t500x500.jpg">](https://soundcloud.com/bornsmusic/electric-love-oliver-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oQvVDPJupjU8zj4z-A2zUKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/jeff-diamonds)
 
-**Artist**: BØRNS 
+**Artist**: JEFF?! 
 
-**Track**: Electric Love (Oliver Remix)
+**Track**: JEFF?! - Diamonds
 
-Last updated at 06/11/2021 06:40
+Last updated at 06/11/2021 06:42
