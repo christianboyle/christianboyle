@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swsF2u5mOtIcfgau-CbbnkA-t500x500.jpg">](https://soundcloud.com/mabi-songs/im-so-hyped-right-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2IZv7vXzrBwzdke-tNNSRw-t500x500.jpg">](https://soundcloud.com/wearewiredsky/redford)
 
-**Artist**: Mabi 
+**Artist**: WIRED SKY 
 
-**Track**: i'm so hyped right now (Prod. Hi Tom)
+**Track**: REDFORD
 
-Last updated at 06/11/2021 14:43
+Last updated at 06/11/2021 14:45
