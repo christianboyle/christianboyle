@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2IZv7vXzrBwzdke-tNNSRw-t500x500.jpg">](https://soundcloud.com/wearewiredsky/redford)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEnDgDVvRRoBcJbV-Oy8C5g-t500x500.jpg">](https://soundcloud.com/bkbeats/max)
 
-**Artist**: WIRED SKY 
+**Artist**: bk beats 
 
-**Track**: REDFORD
+**Track**: max (w/ Fluke Nukes)
 
-Last updated at 06/11/2021 14:45
+Last updated at 06/11/2021 15:29
