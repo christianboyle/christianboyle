@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ull5YrpLGz1l0L4P-dkmIKQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/arctic-ops-creatine-frost?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gvzz6jRwreS1-0-t500x500.jpg">](https://soundcloud.com/1glaive/i-wanna-slam-my-head-against?in=saxurn/sets/fetti)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: glaive 
 
-**Track**: Arctic Ops - Creatine Frost
+**Track**: i wanna slam my head against the wall
 
-Last updated at 06/11/2021 09:18
+Last updated at 06/11/2021 09:20
