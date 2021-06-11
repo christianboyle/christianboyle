@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swsF2u5mOtIcfgau-CbbnkA-t500x500.jpg">](https://soundcloud.com/mabi-songs/im-so-hyped-right-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ymE7G0MaSukXZw9-V2TsLg-t500x500.jpg">](https://soundcloud.com/nitepunk/mtv)
 
-**Artist**: Mabi 
+**Artist**: Nitepunk 
 
-**Track**: i'm so hyped right now (Prod. Hi Tom)
+**Track**: MTV
 
-Last updated at 06/11/2021 10:28
+Last updated at 06/11/2021 14:26
