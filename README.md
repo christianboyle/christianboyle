@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vH8koiwuFjSP-0-t500x500.jpg">](https://soundcloud.com/bigdatabigdata/big-data-dangerous-oliver-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9YeL5diu4An-0-t500x500.jpg">](https://soundcloud.com/bornsmusic/electric-love-oliver-remix)
 
-**Artist**: Big Data 
+**Artist**: BØRNS 
 
-**Track**: Dangerous (feat. Joywave) (Oliver Remix)
+**Track**: Electric Love (Oliver Remix)
 
-Last updated at 06/11/2021 06:36
+Last updated at 06/11/2021 06:40
