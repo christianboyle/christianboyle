@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
 
-**Artist**: Dear Evergreen 
+**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
 
-**Track**: A Thousand Miles
+**Track**: deathtrap (arey)
 
-Last updated at 06/11/2021 19:58
+Last updated at 06/11/2021 20:00
