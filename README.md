@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jd0G1973KobZ-0-t500x500.jpg">](https://soundcloud.com/yungbabytate/eenie-meenie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
 
-**Artist**: Yung Baby Tate 
+**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
 
-**Track**: Eenie Meenie
+**Track**: deathtrap (arey)
 
-Last updated at 06/12/2021 09:10
+Last updated at 06/12/2021 09:12
