@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKg1sIfF36m5p6IG-WOggDg-t500x500.jpg">](https://soundcloud.com/djikeacanada/danger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
 
-**Artist**: DJ IKEA CANADA 
+**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
 
-**Track**: DANGER
+**Track**: deathtrap (arey)
 
-Last updated at 06/11/2021 19:52
+Last updated at 06/11/2021 19:56
