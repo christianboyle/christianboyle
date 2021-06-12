@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6T5FaaIFyTAKOpHy-gwwwRw-t500x500.jpg">](https://soundcloud.com/monstercat/mazare-machine-age-scared)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m8SfPmZDovgEIwwC-Im4P6g-t500x500.jpg">](https://soundcloud.com/hardfest/hsmf-2021-official-mixtape-series-bijou-dancing-astronaut-premiere)
 
-**Artist**: Monstercat 
+**Artist**: HARD hardfest.com 
 
-**Track**: Mazare & Machine Age - Scared
+**Track**: HSMF 2021 Official Mixtape Series: Bijou (Dancing Astronaut Premiere)
 
-Last updated at 06/11/2021 19:40
+Last updated at 06/11/2021 19:42
