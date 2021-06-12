@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8vOP1Rtc3bh-0-t500x500.png">](https://soundcloud.com/autografmusic/autograf-win-and-woo-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swsF2u5mOtIcfgau-CbbnkA-t500x500.jpg">](https://soundcloud.com/mabi-songs/im-so-hyped-right-now)
 
-**Artist**: Autograf 
+**Artist**: Mabi 
 
-**Track**: Autograf & Win and Woo feat. SINGA - Break Me Down
+**Track**: i'm so hyped right now (Prod. Hi Tom)
 
-Last updated at 06/12/2021 08:39
+Last updated at 06/12/2021 08:41
