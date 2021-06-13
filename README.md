@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000240842982-0hbzjl-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc102)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000261291230-c25v1x-t500x500.jpg">](https://soundcloud.com/davirtualbrat/nxc-theory)
 
-**Artist**: NON STOP NXC® 
+**Artist**: virtual brat 
 
-**Track**: NXC102 - AOSHI - bby
+**Track**: [ NXC THEORY ]
 
-Last updated at 06/12/2021 23:13
+Last updated at 06/13/2021 09:51
