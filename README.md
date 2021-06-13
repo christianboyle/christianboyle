@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fb9jRfvAZw27lPUU-hdyz3A-t500x500.jpg">](https://soundcloud.com/itssodope/never-gonna-find)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DDZagYz81vuclBTK-sPwTiQ-t500x500.jpg">](https://soundcloud.com/musicazura/look-at-the-sky-azura-remix)
 
-**Artist**: So Dope 
+**Artist**: AZURA 
 
-**Track**: Never Gonna Find
+**Track**: Porter Robinson - Look at the Sky (AZURA Remix)
 
-Last updated at 06/13/2021 10:25
+Last updated at 06/13/2021 10:27
