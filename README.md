@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nG7lC4nvLaHiOiyc-cQz7Xg-t500x500.jpg">](https://soundcloud.com/onismmm/nosedive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fb9jRfvAZw27lPUU-hdyz3A-t500x500.jpg">](https://soundcloud.com/itssodope/never-gonna-find)
 
-**Artist**: ONISM 
+**Artist**: So Dope 
 
-**Track**: Nosedive
+**Track**: Never Gonna Find
 
-Last updated at 06/13/2021 09:57
+Last updated at 06/13/2021 10:21
