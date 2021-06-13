@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2IZv7vXzrBwzdke-tNNSRw-t500x500.jpg">](https://soundcloud.com/wearewiredsky/redford)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
 
-**Artist**: WIRED SKY 
+**Artist**: Dear Evergreen 
 
-**Track**: REDFORD
+**Track**: A Thousand Miles
 
-Last updated at 06/13/2021 10:45
+Last updated at 06/13/2021 10:51
