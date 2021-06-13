@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gKn7GqrADApYqSjD-FtLprg-t500x500.jpg">](https://soundcloud.com/trapcity/hyperforms-antent-find-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
 
-**Artist**: Trap City 
+**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
 
-**Track**: hyperforms & Antent - FIND ME
+**Track**: deathtrap (arey)
 
-Last updated at 06/12/2021 14:19
+Last updated at 06/12/2021 23:05
