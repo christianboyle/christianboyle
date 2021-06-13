@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XP9qJgstWY2rEXp0-wtVQ5w-t500x500.jpg">](https://soundcloud.com/adampearcemedia/saving-your-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NooMEnK0Xwfdr0gx-gGow2g-t500x500.jpg">](https://soundcloud.com/djplayatendo/shes-a-very-freaky-gurl)
 
-**Artist**: Adam Pearce 
+**Artist**: DJ PLAYATENDO 
 
-**Track**: Saving Your Day (ft. Akacia)
+**Track**: SHE'S A VERY FREAKY GURL
 
-Last updated at 06/13/2021 13:25
+Last updated at 06/13/2021 13:27
