@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8l8a1qENclkFHnS5-aHItLw-t500x500.jpg">](https://soundcloud.com/ghostdragonofficial/stillinlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dk1qLY3grbZEtyj0-Adv7zA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-summer-mix-2021)
 
-**Artist**: GhostDragon 
+**Artist**: syence experiments 
 
-**Track**: GhostDragon & YERINMYWAY - Still In Love (ft. Nate Mitchell)
+**Track**: syence summer mix 2021
 
-Last updated at 06/13/2021 13:21
+Last updated at 06/13/2021 13:23
