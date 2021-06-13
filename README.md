@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000261291230-c25v1x-t500x500.jpg">](https://soundcloud.com/davirtualbrat/nxc-theory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8owVjZ62Yhb8x31-HLlGog-t500x500.jpg">](https://soundcloud.com/vowlmusic/cold)
 
-**Artist**: virtual brat 
+**Artist**: vowl. 
 
-**Track**: [ NXC THEORY ]
+**Track**: cold
 
-Last updated at 06/13/2021 09:51
+Last updated at 06/13/2021 09:53
