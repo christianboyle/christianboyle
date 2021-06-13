@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000240842978-uy4daw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc101)
 
-**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
+**Artist**: NON STOP NXC® 
 
-**Track**: deathtrap (arey)
+**Track**: NXC101 - T5UMUT5UMU - Worst Work
 
-Last updated at 06/12/2021 23:05
+Last updated at 06/12/2021 23:07
