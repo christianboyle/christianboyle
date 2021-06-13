@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uh05Qy2fyzBPQOHB-qPIS5A-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/repeatthecycle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fb9jRfvAZw27lPUU-hdyz3A-t500x500.jpg">](https://soundcloud.com/itssodope/never-gonna-find)
 
-**Artist**: INF1N1TE 
+**Artist**: So Dope 
 
-**Track**: INF1N1TE X SADGIRLSDUB - REPEAT THE CYCLE
+**Track**: Never Gonna Find
 
-Last updated at 06/13/2021 10:23
+Last updated at 06/13/2021 10:25
