@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hXd6zTkomIjuxZXi-rxaQqA-t500x500.jpg">](https://soundcloud.com/tsu_nami/juuku-manila-killa-just-lost-tsu-nami-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCLJGOgHBO1RjIZN-oTgIeg-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-ft-relyt-mc-raving-nation)
 
-**Artist**: TSU NAMI 
+**Artist**: Hartshorn 
 
-**Track**: Juuku & Manila Killa - Just Lost (Tsu Nami Remix)
+**Track**: Hartshorn Ft. Relyt MC - Raving Nation
 
-Last updated at 06/14/2021 12:09
+Last updated at 06/14/2021 12:13
