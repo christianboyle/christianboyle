@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBaTOFELOFij9Adi-MxEFnQ-t500x500.jpg">](https://soundcloud.com/datatransmission/ht-management-podcast-with-xtrick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFdSrCp945Z8-0-t500x500.png">](https://soundcloud.com/kaidro/never-fade)
 
-**Artist**: Data Transmission Radio 
+**Artist**: Kaidro 
 
-**Track**: HT Management Podcast with X&trick
+**Track**: Never Fade
 
-Last updated at 06/14/2021 06:49
+Last updated at 06/14/2021 12:07
