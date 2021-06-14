@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTLjBW2V1oX9oEJw-AwI3Pg-t500x500.jpg">](https://soundcloud.com/nightcub/walkin-on-jackie-chan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssDl0c12teEzf8P0-yFvo3g-t500x500.jpg">](https://soundcloud.com/nightcub/too-much-sickness?in=whitepanda/sets/nightcub-singles)
 
 **Artist**: Nightcub Singles 
 
-**Track**: Walkin' On Jackie Chan (Smash Mouth // Tiësto, Dzeko)
+**Track**: Too Much Sickness (Disturbed // Carly Rae Jepsen)
 
-Last updated at 06/14/2021 12:17
+Last updated at 06/14/2021 12:19
