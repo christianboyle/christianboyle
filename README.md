@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3C5pEl7WDbVY-0-t500x500.png">](https://soundcloud.com/notlieu/fail-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybCc81ss5B28EdLK-iRJszg-t500x500.jpg">](https://soundcloud.com/merca-bae/merca-bae-bk-beats-29-hotel-surf-team)
 
-**Artist**: lieu 
+**Artist**: Merca Bae 
 
-**Track**: Fail
+**Track**: Merca Bae, bk beats & 29 Hotel - Surf Team
 
-Last updated at 06/14/2021 16:17
+Last updated at 06/14/2021 16:19
