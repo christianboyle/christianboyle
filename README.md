@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000508096920-kl55uy-t500x500.jpg">](https://soundcloud.com/dj-set-dj-set/dj-set-01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awD6mtCMYFvxG6Xg-OAfqOw-t500x500.jpg">](https://soundcloud.com/superybf/life-or-death-xmichaelwarren)
 
-**Artist**: DJ Set 
+**Artist**: superybf! 
 
-**Track**: DJ SET 01
+**Track**: life or death (xmichaelwarren)
 
-Last updated at 06/14/2021 16:23
+Last updated at 06/14/2021 16:55
