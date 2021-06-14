@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qdz1xScLydJKUET5-LR1IMA-t500x500.jpg">](https://soundcloud.com/deorro/deorro-x-iamchino-x-elvis-crespo-napoleona-final-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3C5pEl7WDbVY-0-t500x500.png">](https://soundcloud.com/notlieu/fail-2)
 
-**Artist**: Deorro 
+**Artist**: lieu 
 
-**Track**: Deorro x Elvis Crespo x IAmChino - Napoleona (Original Mix)
+**Track**: Fail
 
-Last updated at 06/14/2021 16:15
+Last updated at 06/14/2021 16:17
