@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIAKRBIO03z49MRW-Tk3KyQ-t500x500.jpg">](https://soundcloud.com/superybf/runnin-diewdior-yungspoiler-x-guala-beatz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awD6mtCMYFvxG6Xg-OAfqOw-t500x500.jpg">](https://soundcloud.com/superybf/life-or-death-xmichaelwarren)
 
 **Artist**: superybf! 
 
-**Track**: ##runnin + diewdior (yungspoiler x guala beatz)
+**Track**: life or death (xmichaelwarren)
 
-Last updated at 06/14/2021 14:03
+Last updated at 06/14/2021 16:13
