@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwGvAwVQkCZaNyJy-HpkhUQ-t500x500.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-174-parrish-smith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWzV3bahBPFVFRzl-OriV0w-t500x500.jpg">](https://soundcloud.com/rawppl/rawcast076-ntbr)
 
-**Artist**: Possession 
+**Artist**: RAW 
 
-**Track**: POSSESSION PODCAST #174 - PARRISH SMITH
+**Track**: RAWCAST076 • NTBR
 
-Last updated at 06/15/2021 08:38
+Last updated at 06/15/2021 09:46
