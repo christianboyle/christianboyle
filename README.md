@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1md6tqUBlxPWqDFZ-gpzYpg-t500x500.jpg">](https://soundcloud.com/gary-stoppard/morseborg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0uXu1ov1VK9yFya-jeArqg-t500x500.jpg">](https://soundcloud.com/openlabradio/youngethics-june-2021)
 
-**Artist**: Stopyral 
+**Artist**: OpenLab Radio 
 
-**Track**: Morseborg
+**Track**: Young Ethics 021 - DJ Seinfeld
 
-Last updated at 06/16/2021 09:34
+Last updated at 06/16/2021 09:36
