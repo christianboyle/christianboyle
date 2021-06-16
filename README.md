@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Den6ih74gyBNo7gm-oLS3WA-t500x500.jpg">](https://soundcloud.com/steelcitydancediscs/destroy-schizophrenia?in=steelcitydancediscs/sets/gutter003-destroy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsM064EtqP0V3ygD-yhp9IA-t500x500.jpg">](https://soundcloud.com/freshonespark/psyche-rouri404-vaeo-xmichaelwarren-fhonit-exclusive)
 
-**Artist**: Steel City Dance Discs 
+**Artist**: FRESH ONES PARK 
 
-**Track**: DESTROY - Schizophrenia
+**Track**: psyche - rouri404 + vaeo (xmichaelwarren) [@FHONIT EXCLUSIVE]
 
-Last updated at 06/16/2021 06:26
+Last updated at 06/16/2021 07:02
