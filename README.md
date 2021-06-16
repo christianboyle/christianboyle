@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i8HlCiHwMOeEiXgQ-2iCV4A-t500x500.jpg">](https://soundcloud.com/kc_gilmore/souljam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhSjmhLooHoVO85R-uLaWVg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/one-more-time)
 
-**Artist**: KC Gilmore 
+**Artist**: Trapical Music 
 
-**Track**: KC Gilmore - Soul Jam
+**Track**: Finnet & Stay Up Late - One More Time
 
-Last updated at 06/15/2021 21:56
+Last updated at 06/16/2021 06:22
