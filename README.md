@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eWeD9YyzAAwXDbIt-8IN23A-t500x500.jpg">](https://soundcloud.com/ka7s666/u-aint-mad-whnkt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0wEuCfHh8mpKn8d2-gkG4NQ-t500x500.jpg">](https://soundcloud.com/jadudala/hendrik-joerges-october-feat-paniik-jadu162)
 
-**Artist**: KA7'S 
+**Artist**: Jadū Dala 
 
-**Track**: U AIN'T MAD w/HNKT
+**Track**: Hendrik Joerges - October (feat. PANIIK) (JADŪ162)
 
-Last updated at 06/17/2021 07:22
+Last updated at 06/17/2021 07:24
