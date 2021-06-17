@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgAki5beQhDpJWPR-NxQChQ-t500x500.jpg">](https://soundcloud.com/gazgazgazgaz/3-litres-of-wine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygI458O7tk7rz9vD-OqRqBg-t500x500.jpg">](https://soundcloud.com/iamhearteyes/fua-ft-8485)
 
-**Artist**: gaz 
+**Artist**: hearteyes 
 
-**Track**: 3 litres of wine
+**Track**: F.U.A. (ft. 8485)
 
-Last updated at 06/17/2021 15:06
+Last updated at 06/17/2021 15:16
