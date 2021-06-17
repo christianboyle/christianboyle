@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6PZpGCc7MhJSq1E-NdH1VQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/oklou-fall-george-michelle-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool?in=softbodyheartthrob/sets/unreleased)
 
 **Artist**: George Michelle 
 
-**Track**: oklou - fall (george michelle edit)
+**Track**: lil uzi tool
 
-Last updated at 06/17/2021 09:12
+Last updated at 06/17/2021 09:16
