@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awD6mtCMYFvxG6Xg-OAfqOw-t500x500.jpg">](https://soundcloud.com/superybf/life-or-death-xmichaelwarren)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
 
-**Artist**: superybf! 
+**Artist**: George Michelle 
 
-**Track**: life or death (xmichaelwarren)
+**Track**: lil uzi tool
 
-Last updated at 06/17/2021 15:20
+Last updated at 06/17/2021 15:22
