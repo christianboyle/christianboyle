@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktz9447PLFsCAihU-ub0cxw-t500x500.jpg">](https://soundcloud.com/motztechno/blame-the-mono-stereo-saved-us-remco-beekwilder-cold-wave-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oSQs4zKillhyii1L-vuRk6w-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-ya-booty-fuxwithit-premiere)
 
-**Artist**: MOTZ 
+**Artist**: Dabow 
 
-**Track**: Blame The Mono - Stereo Saved Us (Remco Beekwilder Cold Wave Remix)
+**Track**: Dabow - Ya Booty [FUXWITHIT Premiere]
 
-Last updated at 06/17/2021 07:30
+Last updated at 06/17/2021 07:32
