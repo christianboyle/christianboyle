@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0uXu1ov1VK9yFya-jeArqg-t500x500.jpg">](https://soundcloud.com/openlabradio/youngethics-june-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eWeD9YyzAAwXDbIt-8IN23A-t500x500.jpg">](https://soundcloud.com/ka7s666/u-aint-mad-whnkt)
 
-**Artist**: OpenLab Radio 
+**Artist**: KA7'S 
 
-**Track**: Young Ethics 021 - DJ Seinfeld
+**Track**: U AIN'T MAD w/HNKT
 
-Last updated at 06/16/2021 09:36
+Last updated at 06/17/2021 07:22
