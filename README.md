@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c4y4FJJCzOA7yWEa-QpCtPg-t500x500.jpg">](https://soundcloud.com/jamesbangura/black-lazarus-tunnel-trip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LypgEpYfCDMKfFXs-WLF58Q-t500x500.jpg">](https://soundcloud.com/ossx/ossx-liteskin-starter-pack)
 
-**Artist**: JamesBangura 
+**Artist**: OSSX 
 
-**Track**: JamesBangura - Black Lazarus (Tunnel Trip) [OUT NOW ON HOA011]
+**Track**: LITESKIN STARTER PACK
 
-Last updated at 06/17/2021 15:29
+Last updated at 06/17/2021 15:35
