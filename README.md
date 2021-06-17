@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDdjy6szFdJYOWNb-4ywWug-t500x500.jpg">](https://soundcloud.com/stacemp/2-on-staceys-break-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c4y4FJJCzOA7yWEa-QpCtPg-t500x500.jpg">](https://soundcloud.com/jamesbangura/black-lazarus-tunnel-trip)
 
-**Artist**: StacEmp 
+**Artist**: JamesBangura 
 
-**Track**: 2 On (Staceys Break Edit)
+**Track**: JamesBangura - Black Lazarus (Tunnel Trip) [OUT NOW ON HOA011]
 
-Last updated at 06/17/2021 15:24
+Last updated at 06/17/2021 15:29
