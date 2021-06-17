@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/janet-jacksn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgAki5beQhDpJWPR-NxQChQ-t500x500.jpg">](https://soundcloud.com/gazgazgazgaz/3-litres-of-wine)
 
-**Artist**: George Michelle 
+**Artist**: gaz 
 
-**Track**: janet jacksn
+**Track**: 3 litres of wine
 
-Last updated at 06/17/2021 15:00
+Last updated at 06/17/2021 15:06
