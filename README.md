@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDdjy6szFdJYOWNb-4ywWug-t500x500.jpg">](https://soundcloud.com/stacemp/2-on-staceys-break-edit)
 
-**Artist**: George Michelle 
+**Artist**: StacEmp 
 
-**Track**: lil uzi tool
+**Track**: 2 On (Staceys Break Edit)
 
-Last updated at 06/17/2021 15:22
+Last updated at 06/17/2021 15:24
