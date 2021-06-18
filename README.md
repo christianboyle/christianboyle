@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry85qJfezAgitfoR-j3noBw-t500x500.jpg">](https://soundcloud.com/banoffee-pies/premiere-pinballspider-in-one-ear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y78FZgV4xDj9Oy3O-gn8CuA-t500x500.jpg">](https://soundcloud.com/if-only-uk/premiere-rabu-mazda-mago-mazda-discos-extendes)
 
-**Artist**: Banoffee Pies Records 
+**Artist**: If-Only 
 
-**Track**: PREMIERE: PinballSpider - In One Ear
+**Track**: Premiere: Rabu Mazda - Mago Mazda [Discos Extendes]
 
-Last updated at 06/18/2021 11:13
+Last updated at 06/18/2021 11:17
