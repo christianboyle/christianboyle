@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7fMz5Kx2TL24b3j-9d5zzg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/amps-step-by-step)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQkGAXTX8TsHbSXs-7yhA9w-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-vinyl-sessions-vol1-06-17-2021)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: Seimei 
 
-**Track**: Amps - Step By Step
+**Track**: Seimei Vinyl Sessions Vol.1 06-17-2021
 
-Last updated at 06/18/2021 09:16
+Last updated at 06/18/2021 09:17
