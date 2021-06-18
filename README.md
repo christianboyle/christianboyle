@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qUNKDlMcsjNZm7mY-bxk0iQ-t500x500.jpg">](https://soundcloud.com/electromngr/realitycheck-hoax-low-mix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzaUsCCv6jvYlzzS-zq9Pbw-t500x500.jpg">](https://soundcloud.com/hurfyd/yushh-fidget-spanner-banoffee-pies)
 
-**Artist**: Electroménager 
+**Artist**: hurfyd 
 
-**Track**: Realitycheck - Hoax (Low Mix)
+**Track**: Yushh - Fidget Spanner [Banoffee Pies]
 
-Last updated at 06/18/2021 11:03
+Last updated at 06/18/2021 11:07
