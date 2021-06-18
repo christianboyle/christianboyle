@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVOXk4xFkqHqePuM-phoTpQ-t500x500.jpg">](https://soundcloud.com/cpurecords/london-modular-alliance-cracked-dice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nlmmU0M2cDpsrgw-wFM8dQ-t500x500.jpg">](https://soundcloud.com/untitled909/premiere-pepe-elle-sink-resources)
 
-**Artist**: CPU RECORDS 
+**Artist**: Untitled #909 
 
-**Track**: London Modular Alliance - Cracked Dice
+**Track**: Premiere: Pépé Elle - Sink [[re]sources]
 
-Last updated at 06/18/2021 11:25
+Last updated at 06/18/2021 11:33
