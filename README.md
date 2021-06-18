@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzaUsCCv6jvYlzzS-zq9Pbw-t500x500.jpg">](https://soundcloud.com/hurfyd/yushh-fidget-spanner-banoffee-pies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry85qJfezAgitfoR-j3noBw-t500x500.jpg">](https://soundcloud.com/banoffee-pies/premiere-pinballspider-in-one-ear)
 
-**Artist**: hurfyd 
+**Artist**: Banoffee Pies Records 
 
-**Track**: Yushh - Fidget Spanner [Banoffee Pies]
+**Track**: PREMIERE: PinballSpider - In One Ear
 
-Last updated at 06/18/2021 11:07
+Last updated at 06/18/2021 11:13
