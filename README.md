@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-smzHBPZxZfF6aN2V-dMavLA-t500x500.jpg">](https://soundcloud.com/cozykevvv/24a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QANRyuiZG71AfNO-qGMUfw-t500x500.jpg">](https://soundcloud.com/4runnr/4runnr-missinu)
 
-**Artist**: cozy kev 
+**Artist**: 4RUNNR 
 
-**Track**: 24
+**Track**: 4RUNNR - Missin U
 
-Last updated at 06/18/2021 16:43
+Last updated at 06/18/2021 16:45
