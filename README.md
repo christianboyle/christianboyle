@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjRxrDB3kdbXtBVv-SV77sg-t500x500.jpg">](https://soundcloud.com/musicismysanctuary/skyway-uplink-show-003-w-special-guest-guchon-hosted-by-dileta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: Music Is My Sanctuary 
+**Artist**: Funimation 
 
-**Track**: SKYWAY UPLINK — Show #003 w/ special guest Guchon (Hosted by dileta)
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/18/2021 14:01
+Last updated at 06/18/2021 14:27
