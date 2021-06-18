@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKV0sismv29TBrEP-PgKgVQ-t500x500.jpg">](https://soundcloud.com/djgenderfluid/inspiration)
 
-**Artist**: Funimation 
+**Artist**: dj genderfluid 
 
-**Track**: Summer Season 2021 Mix
+**Track**: inspiration
 
-Last updated at 06/18/2021 12:08
+Last updated at 06/18/2021 12:30
