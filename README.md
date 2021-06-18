@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3E7zOvh5tSYXriz-vwD2mw-t500x500.jpg">](https://soundcloud.com/ben-sims/ben-sims-pres-run-it-red-77-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: ben sims 
+**Artist**: Funimation 
 
-**Track**: BEN SIMS Pres RUN IT RED 77. May 2021
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/18/2021 12:55
+Last updated at 06/18/2021 13:28
