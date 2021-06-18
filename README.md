@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000084789674-cwx75a-t500x500.jpg">](https://soundcloud.com/dj_att/maurice-joshua-with-hot-hands-hula-this-is-acid-dj-att-crazy-mashup-from-david-moleon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: dj_att 
+**Artist**: Funimation 
 
-**Track**: [CM012] This Is Acid (DJ ATT Crazy Mashup)
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/18/2021 09:53
+Last updated at 06/18/2021 09:57
