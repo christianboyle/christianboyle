@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fp7zeLGCkP9vK8vA-KhUR3w-t500x500.jpg">](https://soundcloud.com/xuitcasecity/slaves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTyyDzfvyCh8SiP2-nrvPjQ-t500x500.jpg">](https://soundcloud.com/soulr_x/syence-live-at-soulr-fest-may-2021)
 
-**Artist**: XUITCASECITY 
+**Artist**: SOULR X 
 
-**Track**: SLAVES
+**Track**: syence - Live at SOULR FEST May 2021
 
-Last updated at 06/18/2021 16:47
+Last updated at 06/18/2021 16:49
