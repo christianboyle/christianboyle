@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYYi0D3VLJcl6ZyS-gNGoWg-t500x500.jpg">](https://soundcloud.com/blackboxrecs/puma-reyes-drizon-jungle-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-smzHBPZxZfF6aN2V-dMavLA-t500x500.jpg">](https://soundcloud.com/cozykevvv/24a)
 
-**Artist**: BLVCKBØX 
+**Artist**: cozy kev 
 
-**Track**: Puma Reyes & Drizon - Jungle Rave
+**Track**: 24
 
-Last updated at 06/18/2021 16:41
+Last updated at 06/18/2021 16:43
