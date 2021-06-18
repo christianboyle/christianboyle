@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JOoW4zpdmv6ejAqr-1kZepg-t500x500.jpg">](https://soundcloud.com/noradrum/something-safe-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0uXu1ov1VK9yFya-jeArqg-t500x500.jpg">](https://soundcloud.com/openlabradio/youngethics-june-2021)
 
-**Artist**: NORA DRUM 
+**Artist**: OpenLab Radio 
 
-**Track**: SOMETHING SAFE
+**Track**: Young Ethics 021 - DJ Seinfeld
 
-Last updated at 06/17/2021 15:49
+Last updated at 06/17/2021 21:04
