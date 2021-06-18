@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fcr9M0YDPfaHJcXK-Sxg6gg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/roska-feat-nakamura-minami-pree-me-remixes-official-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQkGAXTX8TsHbSXs-7yhA9w-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-vinyl-sessions-vol1-06-17-2021)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: Seimei 
 
-**Track**: Roska feat. Nakamura Minami - Pree Me Remixes [Official Teaser]
+**Track**: Seimei Vinyl Sessions Vol.1 06-17-2021
 
-Last updated at 06/18/2021 07:50
+Last updated at 06/18/2021 07:51
