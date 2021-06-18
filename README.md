@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b92wIlw59CUYqDKG-Fh8IEQ-t500x500.jpg">](https://soundcloud.com/utaemon/4y49cykwkjqn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0facmEFzQrgvcszy-VHGmeQ-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-chlar-forgot-to-dream)
 
-**Artist**: Utae 
+**Artist**: RAW 
 
-**Track**: さいごになっていいや
+**Track**: Premiere: Chlär - Forgot To Dream [LT087]
 
-Last updated at 06/18/2021 12:45
+Last updated at 06/18/2021 12:49
