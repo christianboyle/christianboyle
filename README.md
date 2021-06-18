@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nlmmU0M2cDpsrgw-wFM8dQ-t500x500.jpg">](https://soundcloud.com/untitled909/premiere-pepe-elle-sink-resources)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: Untitled #909 
+**Artist**: Funimation 
 
-**Track**: Premiere: Pépé Elle - Sink [[re]sources]
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/18/2021 11:33
+Last updated at 06/18/2021 12:08
