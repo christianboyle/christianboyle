@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnIi0Q32QBySmpYY-SRyaaw-t500x500.jpg">](https://soundcloud.com/countahblessing/downplay-prod-dimeee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQkGAXTX8TsHbSXs-7yhA9w-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-vinyl-sessions-vol1-06-17-2021)
 
-**Artist**: Count A Blessin (ig @countablessin) 
+**Artist**: Seimei 
 
-**Track**: Downplay ( prod dimeee )
+**Track**: Seimei Vinyl Sessions Vol.1 06-17-2021
 
-Last updated at 06/18/2021 07:30
+Last updated at 06/18/2021 07:32
