@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9WHhvuzjIBaz6C4Y-gP0mzg-t500x500.jpg">](https://soundcloud.com/jkjmetasco/ran-off-prod-jkj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbugNn36oaEELsRF-N0pzGg-t500x500.jpg">](https://soundcloud.com/vonstorm/lyk)
 
-**Artist**: JKJMETASCO 
+**Artist**: VON STORM 
 
-**Track**: ran off (prod. jkj)
+**Track**: LYK
 
-Last updated at 06/19/2021 16:17
+Last updated at 06/19/2021 16:18
