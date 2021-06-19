@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTyyDzfvyCh8SiP2-nrvPjQ-t500x500.jpg">](https://soundcloud.com/soulr_x/syence-live-at-soulr-fest-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQkGAXTX8TsHbSXs-7yhA9w-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-vinyl-sessions-vol1-06-17-2021)
 
-**Artist**: SOULR X 
+**Artist**: Seimei 
 
-**Track**: syence - Live at SOULR FEST May 2021
+**Track**: Seimei Vinyl Sessions Vol.1 06-17-2021
 
-Last updated at 06/18/2021 16:49
+Last updated at 06/19/2021 08:32
