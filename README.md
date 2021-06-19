@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000019784404-m35ibu-t500x500.jpg">](https://soundcloud.com/honey-claws/digital-animal)
 
-**Artist**: George Michelle 
+**Artist**: Honey Claws Music 
 
-**Track**: lil uzi tool
+**Track**: Digital Animal
 
-Last updated at 06/19/2021 16:20
+Last updated at 06/19/2021 16:22
