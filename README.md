@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GkXdc2ksdEomqEsr-1WC1mA-t500x500.jpg">](https://soundcloud.com/nakura-1/ailurus-stay-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i268Tjc5K3j1smbv-xrZYUA-t500x500.jpg">](https://soundcloud.com/dvskrecords/modjo-on-fire-proxyma-edit)
 
-**Artist**: Nakura / Audio Vitamin 
+**Artist**: Dusk Records 
 
-**Track**: Ailurus - Stay With Me
+**Track**: Modjo - On Fire (PROXYMA EDIT)
 
-Last updated at 06/20/2021 07:19
+Last updated at 06/20/2021 07:21
