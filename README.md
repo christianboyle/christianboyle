@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000019784404-m35ibu-t500x500.jpg">](https://soundcloud.com/honey-claws/digital-animal)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngX5J-z077wnHtYo1t96w7bfpmbSEU5BTxs52pVSg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCtHMF4z_UYzHf1-RrwwtMDQ)
 
-**Artist**: Honey Claws Music 
+**Artist**: RAMIREZ 
 
-**Track**: Digital Animal
+**Track**: THE FINER THINGS [Prod.By Kendrick]
 
-Last updated at 06/19/2021 16:22
+Last updated at 06/19/2021 20:27
