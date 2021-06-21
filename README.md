@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngNYzosJ34qaeNg1Gp04Wm3PxFMIMttAN0-bRGJzA=s48-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UCOOhGn7_-Jm63TRNAY-_6gw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G3o2Lce81icziRy-vYPdGg-t500x500.jpg">](https://soundcloud.com/corevl/palmsprings)
 
-**Artist**: BASEMENT 
+**Artist**: COREAL 🐬 
 
-**Track**: Whole
+**Track**: PALM SPRINGS
 
-Last updated at 06/20/2021 20:02
+Last updated at 06/21/2021 08:12
