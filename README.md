@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngzwIBxQlqO1tR4q3pSN2XSNJ5r_nJ-YdMWXbhACw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPmfaXPGbC03r30Q5eR5atw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
 
-**Artist**: Oklou 
+**Artist**: Nadsat 
 
-**Track**: Forever (Official Video)
+**Track**: NADCAST #3 - AAMOUROCEAN
 
-Last updated at 06/21/2021 10:21
+Last updated at 06/21/2021 10:41
