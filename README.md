@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T9yVBYnoTUyM5K3z-VfARfQ-t500x500.jpg">](https://soundcloud.com/aamourocean/oklou-forever-live-session-remix)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngzwIBxQlqO1tR4q3pSN2XSNJ5r_nJ-YdMWXbhACw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPmfaXPGbC03r30Q5eR5atw)
 
-**Artist**: aamourocean 
+**Artist**: Oklou 
 
-**Track**: Oklou - Forever Live Session ヾ(-_- )ゞ remix
+**Track**: Forever (Official Video)
 
-Last updated at 06/21/2021 10:19
+Last updated at 06/21/2021 10:21
