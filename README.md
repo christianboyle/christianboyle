@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BeaaClGhuD2N1KWr-iZuLGw-t500x500.jpg">](https://soundcloud.com/aamourocean/undrgrnd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
 
-**Artist**: aamourocean 
+**Artist**: Nadsat 
 
-**Track**: UNDRGRND
+**Track**: NADCAST #3 - AAMOUROCEAN
 
-Last updated at 06/21/2021 08:26
+Last updated at 06/21/2021 08:30
