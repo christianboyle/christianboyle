@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6T5FaaIFyTAKOpHy-gwwwRw-t500x500.jpg">](https://soundcloud.com/monstercat/mazare-cloudnone-promises)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyJgtYFyBkHgKqlb-n9QyUg-t500x500.jpg">](https://soundcloud.com/ivorydubz/ivory-x-bizo-x-the-arcturians-beast)
 
-**Artist**: Monstercat 
+**Artist**: IVORY 
 
-**Track**: Mazare & CloudNone - Promises
+**Track**: IVORY X Bizo X The Arcturians - Beast
 
-Last updated at 06/22/2021 09:22
+Last updated at 06/22/2021 13:10
