@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngzwIBxQlqO1tR4q3pSN2XSNJ5r_nJ-YdMWXbhACw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPmfaXPGbC03r30Q5eR5atw)
 
-**Artist**: Tkay Maidza 
+**Artist**: Oklou 
 
-**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
+**Track**: Forever (Official Video)
 
-Last updated at 06/22/2021 13:23
+Last updated at 06/22/2021 13:27
