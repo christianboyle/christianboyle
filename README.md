@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix?in=aamourocean/sets/namasenda-wanted-aamourocean)
 
-**Artist**: Nadsat 
+**Artist**: namasenda 
 
-**Track**: NADCAST #3 - AAMOUROCEAN
+**Track**: Wanted (Aamourocean Remix)
 
-Last updated at 06/22/2021 07:23
+Last updated at 06/22/2021 08:03
