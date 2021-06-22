@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AAUvwngzwIBxQlqO1tR4q3pSN2XSNJ5r_nJ-YdMWXbhACw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPmfaXPGbC03r30Q5eR5atw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000183764098-8xr72i-t500x500.jpg">](https://soundcloud.com/dubbeldutch/olamide-who-you-epp-dubbel-dutch-edit)
 
-**Artist**: Oklou 
+**Artist**: dubbel dutch 
 
-**Track**: galore (A. G. Cook Remix)
+**Track**: Olamide - Who You Epp (Dubbel Dutch Edit)
 
-Last updated at 06/22/2021 13:29
+Last updated at 06/22/2021 13:36
