@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P6GBuFXkgO28z6Tz-EIwedw-t500x500.jpg">](https://soundcloud.com/hardfest/hsmf-2021-official-mixtape-series-holly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wvor3B44JdON-0-t500x500.jpg">](https://soundcloud.com/oklou93/forever)
 
-**Artist**: HARD hardfest.com 
+**Artist**: oklou 
 
-**Track**: HSMF 2021 Official Mixtape Series: Holly (This Song Is Sick Premiere)
+**Track**: Forever
 
-Last updated at 06/22/2021 15:05
+Last updated at 06/22/2021 15:07
