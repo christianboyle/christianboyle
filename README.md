@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000266989652-f6ju3g-t500x500.jpg">](https://soundcloud.com/ice-underlord/iceunderlord-stero-love-x-mc-2k-elas-vao-no-pelo)
 
-**Artist**: George Michelle 
+**Artist**: ICEUNDERLORD 
 
-**Track**: lil uzi tool
+**Track**: STEREO LOVE x MC 2K - ELAS VÃO NO PELO (ICEUNDERLORDS RETURN THE SAGA OF ICE)
 
-Last updated at 06/22/2021 13:18
+Last updated at 06/22/2021 13:20
