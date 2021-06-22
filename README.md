@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQwpnYJPqbLL-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/the-finer-things)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: RAMIREZ. 
+**Artist**: Funimation 
 
-**Track**: The Finer Things
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/22/2021 16:54
+Last updated at 06/22/2021 16:56
