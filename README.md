@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170692119-dxdl25-t500x500.jpg">](https://soundcloud.com/dubbeldutch/deebs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
 
-**Artist**: dubbel dutch 
+**Artist**: Tkay Maidza 
 
-**Track**: Deebs Remix
+**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
 
-Last updated at 06/22/2021 13:38
+Last updated at 06/22/2021 13:39
