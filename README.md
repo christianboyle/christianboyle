@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P6GBuFXkgO28z6Tz-EIwedw-t500x500.jpg">](https://soundcloud.com/hardfest/hsmf-2021-official-mixtape-series-holly)
 
-**Artist**: Tkay Maidza 
+**Artist**: HARD hardfest.com 
 
-**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
+**Track**: HSMF 2021 Official Mixtape Series: Holly (This Song Is Sick Premiere)
 
-Last updated at 06/22/2021 13:39
+Last updated at 06/22/2021 15:05
