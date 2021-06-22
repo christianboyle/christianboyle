@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000088007721-9o2jks-t500x500.jpg">](https://soundcloud.com/dubbeldutch/pitchfork-moma-ps1-warm-up-mixes-8-dubbel-dutch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
 
-**Artist**: dubbel dutch 
+**Artist**: Tkay Maidza 
 
-**Track**: Pitchfork // MoMA PS1 Warm Up Mixes #8: Dubbel Dutch
+**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
 
-Last updated at 06/22/2021 13:21
+Last updated at 06/22/2021 13:23
