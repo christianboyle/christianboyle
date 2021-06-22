@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000266989652-f6ju3g-t500x500.jpg">](https://soundcloud.com/ice-underlord/iceunderlord-stero-love-x-mc-2k-elas-vao-no-pelo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000088007721-9o2jks-t500x500.jpg">](https://soundcloud.com/dubbeldutch/pitchfork-moma-ps1-warm-up-mixes-8-dubbel-dutch)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: dubbel dutch 
 
-**Track**: STEREO LOVE x MC 2K - ELAS VÃO NO PELO (ICEUNDERLORDS RETURN THE SAGA OF ICE)
+**Track**: Pitchfork // MoMA PS1 Warm Up Mixes #8: Dubbel Dutch
 
-Last updated at 06/22/2021 13:20
+Last updated at 06/22/2021 13:21
