@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix?in=aamourocean/sets/namasenda-wanted-aamourocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t500x500.jpg">](https://soundcloud.com/casualgabberz/aamourocean-parmi-les-mortels?in=aamourocean/sets/aamourocean-parmi-les-mortels)
 
-**Artist**: namasenda 
+**Artist**: CASUAL GABBERZ 
 
-**Track**: Wanted (Aamourocean Remix)
+**Track**: aamourocean - Parmi les Mortels
 
-Last updated at 06/22/2021 08:03
+Last updated at 06/22/2021 08:07
