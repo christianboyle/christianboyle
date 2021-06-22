@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3zw0mOCim7DzzsD-YU3MJQ-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-1-sentimental-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
 
 **Artist**: Nadsat 
 
-**Track**: NADCAST #1 - SENTIMENTAL RAVE
+**Track**: NADCAST #3 - AAMOUROCEAN
 
-Last updated at 06/22/2021 07:17
+Last updated at 06/22/2021 07:23
