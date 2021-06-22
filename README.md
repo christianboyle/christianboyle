@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
 
-**Artist**: Funimation 
+**Artist**: George Michelle 
 
-**Track**: Summer Season 2021 Mix
+**Track**: lil uzi tool
 
-Last updated at 06/22/2021 13:15
+Last updated at 06/22/2021 13:18
