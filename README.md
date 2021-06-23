@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKeGrhjaRvE88cyX-tOfh7A-t500x500.jpg">](https://soundcloud.com/meteo0o0/meteo-science-performance-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T9yVBYnoTUyM5K3z-VfARfQ-t500x500.jpg">](https://soundcloud.com/aamourocean/oklou-forever-live-session-remix)
 
-**Artist**: METEO 
+**Artist**: aamourocean 
 
-**Track**: METEO SCIENCE PERFORMANCE part.4 - AAMOUROCEAN
+**Track**: Oklou - Forever Live Session ヾ(-_- )ゞ remix
 
-Last updated at 06/23/2021 15:49
+Last updated at 06/23/2021 15:55
