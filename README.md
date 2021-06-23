@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BeaaClGhuD2N1KWr-iZuLGw-t500x500.jpg">](https://soundcloud.com/aamourocean/undrgrnd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
 
-**Artist**: aamourocean 
+**Artist**: Funimation 
 
-**Track**: UNDRGRND
+**Track**: Summer Season 2021 Mix
 
-Last updated at 06/23/2021 08:44
+Last updated at 06/23/2021 08:55
