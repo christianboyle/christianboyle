@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUhBRW7a7Z2nicz5-HYRe7w-t500x500.jpg">](https://soundcloud.com/funimationofficial/summermix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wvor3B44JdON-0-t500x500.jpg">](https://soundcloud.com/oklou93/forever)
 
-**Artist**: Funimation 
+**Artist**: oklou 
 
-**Track**: Summer Season 2021 Mix
+**Track**: Forever
 
-Last updated at 06/22/2021 16:56
+Last updated at 06/23/2021 08:37
