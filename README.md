@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dz3lyQZf0OgJfdRf-z9KK6A-t500x500.jpg">](https://soundcloud.com/dukeandjones/siriusxm-bpm-mix-dance-again-virtual-festival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vw8n0m75HzagwP1L-4OkY2w-t500x500.jpg">](https://soundcloud.com/octaverecs/replicant-bang-the-undergroundfree-download)
 
-**Artist**: Duke & Jones 
+**Artist**: octaverecs 
 
-**Track**: SiriusXM BPM Mix (Dance Again Virtual Festival)
+**Track**: Replicant - Bang The Underground(Free Download)
 
-Last updated at 06/24/2021 09:03
+Last updated at 06/24/2021 09:05
