@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIANRF8c9yYAXzzd-XKSylw-t500x500.jpg">](https://soundcloud.com/area3000/georgemichelle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdXq7rLrb6PqEz7Q-csnFcQ-t500x500.jpg">](https://soundcloud.com/jenryh/summer-samples-2021-ft-nskyi-rigi_otw-2love800)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Jenry 
 
-**Track**: A3K113 George Michelle - February 18th, 2021
+**Track**: Summer Samples 2021 (Ft. @nskyi, @rigi_otw, @2love800)
 
-Last updated at 06/23/2021 15:59
+Last updated at 06/24/2021 07:48
