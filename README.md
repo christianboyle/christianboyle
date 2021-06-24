@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xYkYgiZXbex066f4-6hHB9Q-t500x500.jpg">](https://soundcloud.com/onegrimori/sunset-staircase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dz3lyQZf0OgJfdRf-z9KK6A-t500x500.jpg">](https://soundcloud.com/dukeandjones/siriusxm-bpm-mix-dance-again-virtual-festival)
 
-**Artist**: Grimori 
+**Artist**: Duke & Jones 
 
-**Track**: sunset staircase
+**Track**: SiriusXM BPM Mix (Dance Again Virtual Festival)
 
-Last updated at 06/24/2021 07:51
+Last updated at 06/24/2021 09:03
