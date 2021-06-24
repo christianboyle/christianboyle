@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vw8n0m75HzagwP1L-4OkY2w-t500x500.jpg">](https://soundcloud.com/octaverecs/replicant-bang-the-undergroundfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7S0vK1PoSyvGwGt-ZJkV4w-t500x500.jpg">](https://soundcloud.com/lobsta-b/bounce-down-south-promo-mix)
 
-**Artist**: octaverecs 
+**Artist**: LOBSTA B 
 
-**Track**: Replicant - Bang The Underground(Free Download)
+**Track**: BOUNCE DOWN SOUTH - PROMO MIX
 
-Last updated at 06/24/2021 09:05
+Last updated at 06/24/2021 09:07
