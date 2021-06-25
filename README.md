@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMCkdFdCPmIPo9Rh-gaqBYg-t500x500.jpg">](https://soundcloud.com/stizzzy/bought-a-bottle-w-spw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mpvj2WzpKdJmpcSI-RCVtDg-t500x500.jpg">](https://soundcloud.com/xopurp/insecure)
 
-**Artist**: Stizzzy 
+**Artist**: xo purp 
 
-**Track**: Bought a Bottle w/ SPW
+**Track**: insecure (with blackwinterwells)
 
-Last updated at 06/25/2021 15:44
+Last updated at 06/25/2021 18:57
