@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AMIjw9pTJfMS7rrJ-p3BpIQ-t500x500.jpg">](https://soundcloud.com/liquiddnbftws/leniz-wrap-me-up-vip?in=lenizdnb/sets/wrap-me-up-vip-differential)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UGsU8HD46KI8f93f-jIylkw-t500x500.jpg">](https://soundcloud.com/robokidonline/without-me)
 
-**Artist**: Liquiddnbftw 
+**Artist**: robokid 
 
-**Track**: Leniz - Wrap Me Up VIP
+**Track**: WITHOUT ME
 
-Last updated at 06/25/2021 13:38
+Last updated at 06/25/2021 13:42
