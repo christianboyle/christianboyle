@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCYt8HhsyXCP-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut?in=tylerthecreatorofficial/sets/call-me-if-you-get-lost-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y1gbaavoQ345FZQY-z1pr4w-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-020)
 
-**Artist**: Tyler, The Creator 
+**Artist**: Future Generation Radio 
 
-**Track**: Tyler, The Creator - JUGGERNAUT
+**Track**: Future Generation Radio #020 [Trap & Bass Power Mix]
 
-Last updated at 06/25/2021 07:38
+Last updated at 06/25/2021 09:15
