@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCYt8HhsyXCP-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wvor3B44JdON-0-t500x500.jpg">](https://soundcloud.com/oklou93/forever)
 
-**Artist**: Tyler, The Creator 
+**Artist**: oklou 
 
-**Track**: Tyler, The Creator - JUGGERNAUT
+**Track**: Forever
 
-Last updated at 06/25/2021 14:50
+Last updated at 06/25/2021 14:54
