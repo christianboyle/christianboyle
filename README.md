@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUkjMFlAfKetpjPC-nPMT5A-t500x500.jpg">](https://soundcloud.com/shadowsareforever/ivoryghost-truth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCYt8HhsyXCP-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut?in=tylerthecreatorofficial/sets/call-me-if-you-get-lost-1)
 
-**Artist**: Ivoryghost 
+**Artist**: Tyler, The Creator 
 
-**Track**: Truth
+**Track**: Tyler, The Creator - JUGGERNAUT
 
-Last updated at 06/25/2021 07:36
+Last updated at 06/25/2021 07:38
