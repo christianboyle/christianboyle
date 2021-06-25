@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1Qp3830lWeVoFar-cvqYNw-t500x500.jpg">](https://soundcloud.com/habstrakt/the-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RofCzFPMm3vU26Qv-9yiF8Q-t500x500.jpg">](https://soundcloud.com/monstercat/crankdat-ace-aura-the-feeling)
 
-**Artist**: Habstrakt 
+**Artist**: Monstercat 
 
-**Track**: The Sound
+**Track**: Crankdat & Ace Aura - The Feeling
 
-Last updated at 06/25/2021 15:25
+Last updated at 06/25/2021 15:28
