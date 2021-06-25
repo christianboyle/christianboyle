@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ew0uQvHyWZOM-0-t500x500.png">](https://soundcloud.com/audien/audien-blue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpII1sZj7TQKnGfQ-FdE8mw-t500x500.jpg">](https://soundcloud.com/blazinghazeaudio1/milgram-woa-free-download)
 
-**Artist**: Audien 
+**Artist**: Blazing Haze Audio 
 
-**Track**: Audien - Blue
+**Track**: Milgram - Woa (FREE DOWNLOAD)
 
-Last updated at 06/25/2021 15:32
+Last updated at 06/25/2021 15:36
