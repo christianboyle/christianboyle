@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpII1sZj7TQKnGfQ-FdE8mw-t500x500.jpg">](https://soundcloud.com/blazinghazeaudio1/milgram-ego-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zb6pcIyLx2zcGiAa-xXGCmg-t500x500.jpg">](https://soundcloud.com/bitbird/rome-in-silver-never-be-the-one-feat-lhasa-petik)
 
-**Artist**: Blazing Haze Audio 
+**Artist**: bitbird 
 
-**Track**: Milgram - Ego (FREE DOWNLOAD)
+**Track**: Rome in Silver - Never Be The One (feat. Lhasa Petik)
 
-Last updated at 06/25/2021 15:17
+Last updated at 06/25/2021 15:21
