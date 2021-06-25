@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zb6pcIyLx2zcGiAa-xXGCmg-t500x500.jpg">](https://soundcloud.com/bitbird/rome-in-silver-never-be-the-one-feat-lhasa-petik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1Qp3830lWeVoFar-cvqYNw-t500x500.jpg">](https://soundcloud.com/habstrakt/the-sound)
 
-**Artist**: bitbird 
+**Artist**: Habstrakt 
 
-**Track**: Rome in Silver - Never Be The One (feat. Lhasa Petik)
+**Track**: The Sound
 
-Last updated at 06/25/2021 15:21
+Last updated at 06/25/2021 15:25
