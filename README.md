@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7S0vK1PoSyvGwGt-ZJkV4w-t500x500.jpg">](https://soundcloud.com/lobsta-b/bounce-down-south-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUkjMFlAfKetpjPC-nPMT5A-t500x500.jpg">](https://soundcloud.com/shadowsareforever/ivoryghost-truth)
 
-**Artist**: LOBSTA B 
+**Artist**: Ivoryghost 
 
-**Track**: BOUNCE DOWN SOUTH - PROMO MIX
+**Track**: Truth
 
-Last updated at 06/24/2021 09:07
+Last updated at 06/25/2021 07:36
