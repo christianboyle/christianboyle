@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGRAHyBKe8GK9kzZ-RUkBqQ-t500x500.jpg">](https://soundcloud.com/marshmellomusic/shockwave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMCkdFdCPmIPo9Rh-gaqBYg-t500x500.jpg">](https://soundcloud.com/stizzzy/bought-a-bottle-w-spw)
 
-**Artist**: marshmello 
+**Artist**: Stizzzy 
 
-**Track**: Marshmello - Shockwave
+**Track**: Bought a Bottle w/ SPW
 
-Last updated at 06/25/2021 15:42
+Last updated at 06/25/2021 15:44
