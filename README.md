@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UGsU8HD46KI8f93f-jIylkw-t500x500.jpg">](https://soundcloud.com/robokidonline/without-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mpvj2WzpKdJmpcSI-RCVtDg-t500x500.jpg">](https://soundcloud.com/xopurp/insecure)
 
-**Artist**: robokid 
+**Artist**: xo purp 
 
-**Track**: WITHOUT ME
+**Track**: insecure (with blackwinterwells)
 
-Last updated at 06/25/2021 13:42
+Last updated at 06/25/2021 14:48
