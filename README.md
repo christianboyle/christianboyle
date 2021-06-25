@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Otexz6RUPKwk-0-t500x500.jpg">](https://soundcloud.com/yfrnco/come-thru-feat-sonreal-jalmar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGRAHyBKe8GK9kzZ-RUkBqQ-t500x500.jpg">](https://soundcloud.com/marshmellomusic/shockwave)
 
-**Artist**: Young Franco 
+**Artist**: marshmello 
 
-**Track**: Come Thru (feat. SonReal & Jalmar)
+**Track**: Marshmello - Shockwave
 
-Last updated at 06/25/2021 15:40
+Last updated at 06/25/2021 15:42
