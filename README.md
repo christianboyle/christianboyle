@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGokNF2J14O1SECb-YeV1jg-t500x500.jpg">](https://soundcloud.com/boofbby/fashooo-w-jackie-platinum-prod-nightclub20xx-deathnotes-boofbby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7AiFu6IBojyVV7Cc-HyaiYw-t500x500.jpg">](https://soundcloud.com/tarocco/pooltoy-equinox-2021)
 
-**Artist**: boofbby ♡ 
+**Artist**: tarocco 
 
-**Track**: fashooo w/ jackie platinum (prod. nightclub20xx + deathnotes + boofbby)
+**Track**: TAROCCO @ POOLTOY EQUINOX 2021
 
-Last updated at 06/26/2021 17:07
+Last updated at 06/26/2021 17:09
