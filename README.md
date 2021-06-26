@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AePs6L7fCPKOIBRz-VWq2sA-t500x500.jpg">](https://soundcloud.com/motztechno/motz-premiere-madora-unlock-the-rave-unlockedbcn002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7AiFu6IBojyVV7Cc-HyaiYw-t500x500.jpg">](https://soundcloud.com/tarocco/pooltoy-equinox-2021)
 
-**Artist**: MOTZ 
+**Artist**: tarocco 
 
-**Track**: MOTZ Premiere: Madora - Unlock The Rave [UNLOCKEDBCN002]
+**Track**: TAROCCO @ POOLTOY EQUINOX 2021
 
-Last updated at 06/26/2021 17:25
+Last updated at 06/26/2021 17:29
