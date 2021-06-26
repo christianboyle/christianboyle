@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/G2zq2ilSAwT5CE9Bxe3SUyJY5EmFg9Qtjpktxo-ZHJtgX1oM2sayA5bcCANXxBM8WqqS8xpgOQ=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCP_4jCsGVDPauX_N5UlhaWw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzPAzkKMNDUnXzye-d3ka3Q-t500x500.jpg">](https://soundcloud.com/piccolo115115/piccolo-kato-massacre_20210602_mix)
 
-**Artist**: Chromeo 
+**Artist**: pìccolo 
 
-**Track**: Chromeo – Clorox Wipe [Official Video]
+**Track**: pìccolo - K/A/T/O MASSACRE_20210602_mix
 
-Last updated at 06/26/2021 09:27
+Last updated at 06/26/2021 10:05
