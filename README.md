@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mpvj2WzpKdJmpcSI-RCVtDg-t500x500.jpg">](https://soundcloud.com/xopurp/insecure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbxBxUfZx7I46O4v-w9xfqw-t500x500.jpg">](https://soundcloud.com/om3gen/gc-concrete-2)
 
-**Artist**: xo purp 
+**Artist**: OM3 
 
-**Track**: insecure (with blackwinterwells)
+**Track**: Live at GHOSTCLUB // CONCRETE 2 // Elektron Set
 
-Last updated at 06/26/2021 08:11
+Last updated at 06/26/2021 08:13
