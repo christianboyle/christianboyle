@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzPAzkKMNDUnXzye-d3ka3Q-t500x500.jpg">](https://soundcloud.com/piccolo115115/piccolo-kato-massacre_20210602_mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgEuqNJ77RStkpzn-o4WJng-t500x500.jpg">](https://soundcloud.com/om3gen/live-ghostweek)
 
-**Artist**: pìccolo 
+**Artist**: OM3 
 
-**Track**: pìccolo - K/A/T/O MASSACRE_20210602_mix
+**Track**: Live // GHOSTCLUB IN VR // 4.30.21
 
-Last updated at 06/26/2021 10:05
+Last updated at 06/26/2021 10:35
