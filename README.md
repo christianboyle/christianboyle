@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbxBxUfZx7I46O4v-w9xfqw-t500x500.jpg">](https://soundcloud.com/om3gen/gc-concrete-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzPAzkKMNDUnXzye-d3ka3Q-t500x500.jpg">](https://soundcloud.com/piccolo115115/piccolo-kato-massacre_20210602_mix)
 
-**Artist**: OM3 
+**Artist**: pìccolo 
 
-**Track**: Live at GHOSTCLUB // CONCRETE 2 // Elektron Set
+**Track**: pìccolo - K/A/T/O MASSACRE_20210602_mix
 
-Last updated at 06/26/2021 08:13
+Last updated at 06/26/2021 08:17
