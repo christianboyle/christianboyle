@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000569753591-4x0va8-t500x500.jpg">](https://soundcloud.com/nanobii/children-of-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ISIngaLBy14o4uf-OcjN6A-t500x500.png">](https://soundcloud.com/nanobii/butterfly)
 
 **Artist**: nanobii 
 
-**Track**: Children of the Sky
+**Track**: Butterfly
 
-Last updated at 06/27/2021 14:02
+Last updated at 06/27/2021 14:04
