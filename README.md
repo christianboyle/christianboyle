@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CCZPnvDAGkRXRegB-GGdvJQ-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-kelvin-jones-downtown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GHThjPsveF5vFJK-BklUfw-t500x500.jpg">](https://soundcloud.com/balamii/flyo-june-2021)
 
-**Artist**: R3HAB 
+**Artist**: Balamii 
 
-**Track**: R3HAB x Kelvin Jones - Downtown
+**Track**: Flyo - June 2021
 
-Last updated at 06/27/2021 08:27
+Last updated at 06/27/2021 08:29
