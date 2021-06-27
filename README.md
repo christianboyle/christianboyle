@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQ5imSlbxNS0zfrC-Ma8Pcw-t500x500.jpg">](https://soundcloud.com/dossyx/souvenir)
 
-**Artist**: George Michelle 
+**Artist**: DossyX 
 
-**Track**: lil uzi tool
+**Track**: SOUVENIR (EDIT)
 
-Last updated at 06/27/2021 09:15
+Last updated at 06/27/2021 09:17
