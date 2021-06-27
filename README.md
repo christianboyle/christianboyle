@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x82YFHsrsOBRNzmI-q7x2dQ-t500x500.png">](https://soundcloud.com/nanobii/luv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-48PEWIxyWLjQDuZx-CcxEHA-t500x500.jpg">](https://soundcloud.com/pendarr-archive/a-place-just-for-us)
 
-**Artist**: nanobii 
+**Artist**: Pendarr (Archive) 
 
-**Track**: LUV
+**Track**: A Place Just For Us
 
-Last updated at 06/27/2021 14:14
+Last updated at 06/27/2021 18:06
