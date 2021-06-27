@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ppjad5nkbQTmi4ys-2a2bww-t500x500.jpg">](https://soundcloud.com/loudkult/david-shane-x-over-easy-x-wyle-it-goes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CCZPnvDAGkRXRegB-GGdvJQ-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-kelvin-jones-downtown)
 
-**Artist**: LoudKult 
+**Artist**: R3HAB 
 
-**Track**: David Shane x Over Easy x Wyle - It Goes
+**Track**: R3HAB x Kelvin Jones - Downtown
 
-Last updated at 06/26/2021 17:35
+Last updated at 06/27/2021 08:27
