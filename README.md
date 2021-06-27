@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HX7l9Q15HzJNynAK-yNnQzw-t500x500.jpg">](https://soundcloud.com/dossyx/fireflies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQ5imSlbxNS0zfrC-Ma8Pcw-t500x500.jpg">](https://soundcloud.com/dossyx/souvenir)
 
 **Artist**: DossyX 
 
-**Track**: FIREFLIES
+**Track**: SOUVENIR (EDIT)
 
-Last updated at 06/27/2021 18:32
+Last updated at 06/27/2021 18:36
