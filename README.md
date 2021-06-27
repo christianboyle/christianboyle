@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a1mhzNtOIq5lDVLD-gKcs3w-t500x500.jpg">](https://soundcloud.com/kiddodust/floataway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043404155-srguyy-t500x500.jpg">](https://soundcloud.com/killershadow/crush-jellyhead-cd-hd-motiv8-1)
 
-**Artist**: Kiddo Dust 
+**Artist**: Killershadow 
 
-**Track**: Float Away (Prod. Kiddo Dust)
+**Track**: CRUSH - Jellyhead [CD HD] (MOTIV8 EXTENDED CLUB CUT)
 
-Last updated at 06/27/2021 18:16
+Last updated at 06/27/2021 18:18
