@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSGNZ8L8XuEt8Z5iia-NYrwK0VUG6QXbferSccMbQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCKAtbNtZNyqBWH1FG1Kvmnw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GHThjPsveF5vFJK-BklUfw-t500x500.jpg">](https://soundcloud.com/balamii/flyo-june-2021)
 
-**Artist**: Freddie Gibbs 
+**Artist**: Balamii 
 
-**Track**: Freddie Gibbs & The Alchemist - Babies & Fools featuring Conway The Machine (Official Video)
+**Track**: Flyo - June 2021
 
-Last updated at 06/27/2021 08:31
+Last updated at 06/27/2021 08:37
