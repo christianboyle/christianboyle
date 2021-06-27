@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ISIngaLBy14o4uf-OcjN6A-t500x500.png">](https://soundcloud.com/nanobii/butterfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043404155-srguyy-t500x500.jpg">](https://soundcloud.com/killershadow/crush-jellyhead-cd-hd-motiv8-1)
 
-**Artist**: nanobii 
+**Artist**: Killershadow 
 
-**Track**: Butterfly
+**Track**: CRUSH - Jellyhead [CD HD] (MOTIV8 EXTENDED CLUB CUT)
 
-Last updated at 06/27/2021 14:04
+Last updated at 06/27/2021 14:06
