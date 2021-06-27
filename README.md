@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GHThjPsveF5vFJK-BklUfw-t500x500.jpg">](https://soundcloud.com/balamii/flyo-june-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZD2fjezt5Gm2-0-t500x500.png">](https://soundcloud.com/chromeo/old-45s-live-in-portland)
 
-**Artist**: Balamii 
+**Artist**: Chromeo 
 
-**Track**: Flyo - June 2021
+**Track**: Old 45s (live in Portland)
 
-Last updated at 06/27/2021 08:37
+Last updated at 06/27/2021 09:09
