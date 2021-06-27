@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HX7l9Q15HzJNynAK-yNnQzw-t500x500.jpg">](https://soundcloud.com/dossyx/fireflies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZD2fjezt5Gm2-0-t500x500.png">](https://soundcloud.com/chromeo/old-45s-live-in-portland)
 
-**Artist**: DossyX 
+**Artist**: Chromeo 
 
-**Track**: FIREFLIES
+**Track**: Old 45s (live in Portland)
 
-Last updated at 06/27/2021 13:45
+Last updated at 06/27/2021 13:47
