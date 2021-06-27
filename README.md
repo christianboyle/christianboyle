@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSGNZ8L8XuEt8Z5iia-NYrwK0VUG6QXbferSccMbQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCKAtbNtZNyqBWH1FG1Kvmnw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2NjsSW0tdF4f-0-t500x500.jpg">](https://soundcloud.com/felixcartal/felix-cartal-fjord-the-life)
 
-**Artist**: Freddie Gibbs 
+**Artist**: FELIX CARTAL 
 
-**Track**: Freddie Gibbs & The Alchemist - Babies & Fools featuring Conway The Machine (Official Video)
+**Track**: Felix Cartal, Fjord - The Life
 
-Last updated at 06/27/2021 11:35
+Last updated at 06/27/2021 13:43
