@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZD2fjezt5Gm2-0-t500x500.png">](https://soundcloud.com/chromeo/old-45s-live-in-portland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
 
-**Artist**: Chromeo 
+**Artist**: George Michelle 
 
-**Track**: Old 45s (live in Portland)
+**Track**: lil uzi tool
 
-Last updated at 06/27/2021 09:09
+Last updated at 06/27/2021 09:15
