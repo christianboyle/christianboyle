@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ISIngaLBy14o4uf-OcjN6A-t500x500.png">](https://soundcloud.com/nanobii/butterfly?in=nanobii/sets/euro-rave-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x82YFHsrsOBRNzmI-q7x2dQ-t500x500.png">](https://soundcloud.com/nanobii/luv)
 
 **Artist**: nanobii 
 
-**Track**: Butterfly
+**Track**: LUV
 
-Last updated at 06/27/2021 14:12
+Last updated at 06/27/2021 14:14
