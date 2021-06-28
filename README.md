@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygI458O7tk7rz9vD-OqRqBg-t500x500.jpg">](https://soundcloud.com/iamhearteyes/fua-ft-8485)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0uXu1ov1VK9yFya-jeArqg-t500x500.jpg">](https://soundcloud.com/openlabradio/youngethics-june-2021)
 
-**Artist**: hearteyes 
+**Artist**: OpenLab Radio 
 
-**Track**: F.U.A. (ft. 8485)
+**Track**: Young Ethics 021 - DJ Seinfeld
 
-Last updated at 06/27/2021 21:58
+Last updated at 06/27/2021 22:00
