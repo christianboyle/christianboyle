@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHuj2nQkJh1vfyKZ-151HgQ-t500x500.jpg">](https://soundcloud.com/wearelostkings/welcome-to-lost-angeles-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
 
-**Artist**: Lost Kings 
+**Artist**: ROLAND JONES 
 
-**Track**: WELCOME TO LOST ANGELES VOL. 9
+**Track**: MURDA SEASON VOL 4
 
-Last updated at 06/28/2021 09:13
+Last updated at 06/28/2021 09:24
