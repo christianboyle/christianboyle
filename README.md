@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CSzxYIRyU7H4f5Yf-BQa0yQ-t500x500.jpg">](https://soundcloud.com/dukeandjones/duke-jones-x-sam-day-hold-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
 
-**Artist**: Duke & Jones 
+**Artist**: White Panda 
 
-**Track**: Duke & Jones X Sam Day - Hold On
+**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
 
-Last updated at 06/28/2021 02:02
+Last updated at 06/28/2021 02:04
