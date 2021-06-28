@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCUYuTRHKIuB2zRg-9qt6Vg-t500x500.jpg">](https://soundcloud.com/pika5onic/pikasonic-tatsunoshin-lockdown-ft-neona)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyH0ibCdXEt54jnd-VynjZw-t500x500.jpg">](https://soundcloud.com/sablevalley/enter-the-world)
 
-**Artist**: PIKASONIC 
+**Artist**: SABLE VALLEY 
 
-**Track**: PIKASONIC & Tatsunoshin - Lockdown (ft. NEONA)
+**Track**: Juelz & JAWNS - Enter The World
 
-Last updated at 06/28/2021 03:19
+Last updated at 06/28/2021 03:23
