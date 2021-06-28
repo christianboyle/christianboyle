@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZQJgSYOQ4REzSPZ-bJFvsg-t500x500.jpg">](https://soundcloud.com/chiefjuno/obsessed-hallow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000033020700-tr66x3-t500x500.jpg">](https://soundcloud.com/triplestack-1/derb-coole-sau-dj-isaac-remix)
 
-**Artist**: juno 
+**Artist**: triplestack 
 
-**Track**: obsessed (hallow)
+**Track**: Derb - Coole Sau (DJ Isaac Remix)
 
-Last updated at 06/28/2021 01:42
+Last updated at 06/28/2021 01:44
