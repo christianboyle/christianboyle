@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNyZ7oAROgUyvjee-ylbpRQ-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-amazingblaze-stratosphere-ismus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fv4RxkiUsmGzvsKi-Jhh3hw-t500x500.jpg">](https://soundcloud.com/bassrush/ahee-killer-thriller)
 
-**Artist**: / CRUDE / 
+**Artist**: Bassrush 
 
-**Track**: CRUDE Premiere: Amazingblaze - Stratosphere [Ismus]
+**Track**: Ahee - Killer Thriller
 
-Last updated at 06/28/2021 06:39
+Last updated at 06/28/2021 08:43
