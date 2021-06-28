@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NooMEnK0Xwfdr0gx-gGow2g-t500x500.jpg">](https://soundcloud.com/djplayatendo/shes-a-very-freaky-gurl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000217134788-j6sufx-t500x500.jpg">](https://soundcloud.com/wearebigbeat/broccolicpremix)
 
-**Artist**: DJ PLAYATENDO 
+**Artist**: Big Beat Records 
 
-**Track**: SHE'S A VERY FREAKY GURL
+**Track**: D.R.A.M. - Broccoli (feat. Lil Yachty) [Chet Porter Remix]
 
-Last updated at 06/28/2021 00:50
+Last updated at 06/28/2021 00:52
