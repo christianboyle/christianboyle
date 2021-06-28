@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5J7T3sF7xICo-0-t500x500.png">](https://soundcloud.com/chromeo/juice-live-in-vancouver?in=chromeo/sets/date-night-chromeo-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2ddvEyS7VkU-0-t500x500.png">](https://soundcloud.com/chromeo/hot-mess-live-in-seattle?in=chromeo/sets/date-night-chromeo-live)
 
 **Artist**: Chromeo 
 
-**Track**: Juice (live in Vancouver)
+**Track**: Hot Mess (live in Seattle)
 
-Last updated at 06/28/2021 12:57
+Last updated at 06/28/2021 13:01
