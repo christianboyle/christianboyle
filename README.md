@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2PKfwnSpx2L-0-t500x500.jpg">](https://soundcloud.com/namasenda/wanted-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKeGrhjaRvE88cyX-tOfh7A-t500x500.jpg">](https://soundcloud.com/meteo0o0/meteo-science-performance-1)
 
-**Artist**: namasenda 
+**Artist**: METEO 
 
-**Track**: Wanted (Aamourocean Remix)
+**Track**: METEO SCIENCE PERFORMANCE part.4 - AAMOUROCEAN
 
-Last updated at 06/28/2021 15:49
+Last updated at 06/28/2021 15:55
