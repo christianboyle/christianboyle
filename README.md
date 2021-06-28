@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBCJbdFyRz0xmNq2-yDGEsQ-t500x500.jpg">](https://soundcloud.com/itstraye/going-down-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
 
-**Artist**: TRAYE 
+**Artist**: ROLAND JONES 
 
-**Track**: Going Down
+**Track**: MURDA SEASON VOL 4
 
-Last updated at 06/28/2021 08:54
+Last updated at 06/28/2021 08:55
