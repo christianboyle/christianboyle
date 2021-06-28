@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwGvAwVQkCZaNyJy-HpkhUQ-t500x500.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-174-parrish-smith)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qdz1xScLydJKUET5-LR1IMA-t500x500.jpg">](https://soundcloud.com/deorro/deorro-x-iamchino-x-elvis-crespo-napoleona-final-3)
 
-**Artist**: Possession 
+**Artist**: Deorro 
 
-**Track**: POSSESSION PODCAST #174 - PARRISH SMITH
+**Track**: Deorro x Elvis Crespo x IAmChino - Napoleona (Original Mix)
 
-Last updated at 06/27/2021 23:02
+Last updated at 06/28/2021 00:10
