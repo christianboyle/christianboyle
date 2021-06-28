@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0uXu1ov1VK9yFya-jeArqg-t500x500.jpg">](https://soundcloud.com/openlabradio/youngethics-june-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbugNn36oaEELsRF-N0pzGg-t500x500.jpg">](https://soundcloud.com/vonstorm/lyk)
 
-**Artist**: OpenLab Radio 
+**Artist**: VON STORM 
 
-**Track**: Young Ethics 021 - DJ Seinfeld
+**Track**: LYK
 
-Last updated at 06/27/2021 22:00
+Last updated at 06/27/2021 23:00
