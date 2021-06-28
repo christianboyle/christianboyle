@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8SntUOVpip4l2Ot-bjfFtQ-t500x500.jpg">](https://soundcloud.com/sebseb122/bonerr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYTomL1OEZ861T8L-Nc9J6Q-t500x500.jpg">](https://soundcloud.com/dreamdnvr/whats-up)
 
-**Artist**: SEBii💫 
+**Artist**: DREAMDNVR 
 
-**Track**: BONErr [p. vvspipes + kimj]
+**Track**: WHAT'S UP?
 
-Last updated at 06/28/2021 04:21
+Last updated at 06/28/2021 04:23
