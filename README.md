@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G3o2Lce81icziRy-vYPdGg-t500x500.jpg">](https://soundcloud.com/corevl/palmsprings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQwpnYJPqbLL-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/the-finer-things)
 
-**Artist**: COREAL 🐬 
+**Artist**: RAMIREZ. 
 
-**Track**: PALM SPRINGS
+**Track**: The Finer Things
 
-Last updated at 06/27/2021 19:16
+Last updated at 06/27/2021 19:20
