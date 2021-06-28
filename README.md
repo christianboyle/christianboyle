@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIANRF8c9yYAXzzd-XKSylw-t500x500.jpg">](https://soundcloud.com/area3000/georgemichelle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygI458O7tk7rz9vD-OqRqBg-t500x500.jpg">](https://soundcloud.com/iamhearteyes/fua-ft-8485)
 
-**Artist**: Area 3000 Radio 
+**Artist**: hearteyes 
 
-**Track**: A3K113 George Michelle - February 18th, 2021
+**Track**: F.U.A. (ft. 8485)
 
-Last updated at 06/27/2021 20:58
+Last updated at 06/27/2021 21:58
