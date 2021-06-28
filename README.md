@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000508096920-kl55uy-t500x500.jpg">](https://soundcloud.com/dj-set-dj-set/dj-set-01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NooMEnK0Xwfdr0gx-gGow2g-t500x500.jpg">](https://soundcloud.com/djplayatendo/shes-a-very-freaky-gurl)
 
-**Artist**: DJ Set 
+**Artist**: DJ PLAYATENDO 
 
-**Track**: DJ SET 01
+**Track**: SHE'S A VERY FREAKY GURL
 
-Last updated at 06/28/2021 00:20
+Last updated at 06/28/2021 00:50
