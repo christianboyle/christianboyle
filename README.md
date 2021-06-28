@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nG7lC4nvLaHiOiyc-cQz7Xg-t500x500.jpg">](https://soundcloud.com/onismmm/nosedive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yruCyCegQfSQi5D8-Hn0Y0w-t500x500.jpg">](https://soundcloud.com/kennedysucks/deathtrap-arey)
 
-**Artist**: ONISM 
+**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
 
-**Track**: Nosedive
+**Track**: deathtrap (arey)
 
-Last updated at 06/28/2021 01:04
+Last updated at 06/28/2021 01:06
