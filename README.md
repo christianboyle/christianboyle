@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XdYBYf11lAIRzfMg-t3mcgw-t500x500.jpg">](https://soundcloud.com/lootaveli/fuck-the-sub-up-prod-mikey-the-magician)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oUDsvQRh0vmtKinI-3CBetw-t500x500.jpg">](https://soundcloud.com/merca-bae/merca-bae-bk-beats-braintear-spookie-salute)
 
-**Artist**: BOOBIE LOOTAVELI 
+**Artist**: Merca Bae 
 
-**Track**: FUCK THE SUB UP (Prod. MIKEY THE MAGICIAN)
+**Track**: Merca Bae, bk beats & Braintear Spookie - Salute
 
-Last updated at 06/28/2021 03:03
+Last updated at 06/28/2021 03:05
