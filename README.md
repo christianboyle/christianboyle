@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzKtSyvZxODt6CJW-fw1tdg-t500x500.jpg">](https://soundcloud.com/signal4976/signal-vack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBCJbdFyRz0xmNq2-yDGEsQ-t500x500.jpg">](https://soundcloud.com/itstraye/going-down-1)
 
-**Artist**: Signal 
+**Artist**: TRAYE 
 
-**Track**: Signal - Vack
+**Track**: Going Down
 
-Last updated at 06/28/2021 08:45
+Last updated at 06/28/2021 08:54
