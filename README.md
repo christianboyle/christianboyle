@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZD2fjezt5Gm2-0-t500x500.png">](https://soundcloud.com/chromeo/old-45s-live-in-portland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
 
-**Artist**: Chromeo 
+**Artist**: ROLAND JONES 
 
-**Track**: Old 45s (live in Portland)
+**Track**: MURDA SEASON VOL 4
 
-Last updated at 06/28/2021 10:42
+Last updated at 06/28/2021 11:12
