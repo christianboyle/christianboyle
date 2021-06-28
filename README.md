@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZyVe3wpoTiKEQSJ-RV1GHQ-t500x500.jpg">](https://soundcloud.com/djikeacanada/garden-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375625071-aw9qn5-t500x500.jpg">](https://soundcloud.com/hollaherdi/mxpx-lets-ride)
 
-**Artist**: DJ IKEA CANADA 
+**Artist**: HOLLA HERDI 
 
-**Track**: jedwill - garden (remix)
+**Track**: MXPX - Let's Ride
 
-Last updated at 06/28/2021 05:15
+Last updated at 06/28/2021 05:17
