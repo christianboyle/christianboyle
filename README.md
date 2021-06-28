@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043404155-srguyy-t500x500.jpg">](https://soundcloud.com/killershadow/crush-jellyhead-cd-hd-motiv8-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x82YFHsrsOBRNzmI-q7x2dQ-t500x500.png">](https://soundcloud.com/nanobii/luv)
 
-**Artist**: Killershadow 
+**Artist**: nanobii 
 
-**Track**: CRUSH - Jellyhead [CD HD] (MOTIV8 EXTENDED CLUB CUT)
+**Track**: LUV
 
-Last updated at 06/28/2021 14:40
+Last updated at 06/28/2021 14:48
