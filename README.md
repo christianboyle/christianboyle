@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5tf85ywUzxgiqOz-fmomuQ-t500x500.jpg">](https://soundcloud.com/coffymusic/coffy-almond?in=coffymusic/sets/beats-to-study-relax-to-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u9TgT67fJ4jF7pUh-UlF7XA-t500x500.jpg">](https://soundcloud.com/sofflee/sofflee-sink-her-feat-dnakm?in=coffymusic/sets/beats-to-study-relax-to-1)
 
-**Artist**: Coffy 
+**Artist**: Sofflee 
 
-**Track**: Coffy - Almond
+**Track**: Sofflee - Sink Her (feat. DNAKM)
 
-Last updated at 06/28/2021 11:47
+Last updated at 06/28/2021 11:50
