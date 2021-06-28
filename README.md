@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8A7WHcDyxp1eCqeH-WIvtcw-t500x500.jpg">](https://soundcloud.com/yungkkun/pamyu-02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfNHqutzyK3pXWON-qKYChQ-t500x500.jpg">](https://soundcloud.com/abtomal/skrillex-dirty-vibe-abtomal-fresh-stuff-flip)
 
-**Artist**: K.Kun 
+**Artist**: AbtomAL 
 
-**Track**: *PAMYU 02*
+**Track**: SKRILLEX - DIRTY VIBE (ABTOMAL & FRESH STUFF FLIP)
 
-Last updated at 06/28/2021 03:35
+Last updated at 06/28/2021 03:39
