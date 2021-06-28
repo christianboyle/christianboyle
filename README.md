@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AiTz6CRv2zUdcjBp-UhvXaA-t500x500.jpg">](https://soundcloud.com/vauboy/you-were-with-a-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JI5TmrDIxOch-0-t500x500.png">](https://soundcloud.com/bruiser-music/double-blind)
 
-**Artist**: Vau Boy 
+**Artist**: bruiser 
 
-**Track**: You Were With A Boy
+**Track**: DOUBLE BLIND
 
-Last updated at 06/28/2021 03:13
+Last updated at 06/28/2021 03:17
