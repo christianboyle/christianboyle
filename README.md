@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enFKzQoMjptG-0-t500x500.png">](https://soundcloud.com/chromeo/jealous-i-aint-with-it-live-in?in=chromeo/sets/date-night-chromeo-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
 
-**Artist**: Chromeo 
+**Artist**: ROLAND JONES 
 
-**Track**: Jealous (I Ain't With It) (live in New York City)
+**Track**: MURDA SEASON VOL 4
 
-Last updated at 06/28/2021 14:17
+Last updated at 06/28/2021 14:22
