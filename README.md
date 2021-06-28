@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CBN4ZnSILy6CJNX-kfHhJQ-t500x500.jpg">](https://soundcloud.com/trndytrndy/be-nice-to-me-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xsFVaC0JQIpI3W8q-yB3HAA-t500x500.jpg">](https://soundcloud.com/hoviss/push)
 
-**Artist**: trndytrndy 
+**Artist**: hovis 
 
-**Track**: be nice to me (cover)
+**Track**: push (reesoo)
 
-Last updated at 06/28/2021 04:51
+Last updated at 06/28/2021 04:53
