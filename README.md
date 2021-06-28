@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000529414740-himcbz-t500x500.jpg">](https://soundcloud.com/cupidomusic/cupido-crazy?in=coffymusic/sets/beats-to-study-relax-to-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000473271510-syw389-t500x500.jpg">](https://soundcloud.com/emotionalmusicofficial/emotional-alba)
 
-**Artist**: Cupido 
+**Artist**: EMOTIONAL 
 
-**Track**: Cupido - Crazy
+**Track**: EMOTIONAL - Alba
 
-Last updated at 06/28/2021 12:18
+Last updated at 06/28/2021 12:22
