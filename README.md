@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000033020700-tr66x3-t500x500.jpg">](https://soundcloud.com/triplestack-1/derb-coole-sau-dj-isaac-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e2L0bnP7DUN3UMk-6KQxUw-t500x500.jpg">](https://soundcloud.com/itspilton/a-little-bit-longer)
 
-**Artist**: triplestack 
+**Artist**: pilton 
 
-**Track**: Derb - Coole Sau (DJ Isaac Remix)
+**Track**: a little bit longer
 
-Last updated at 06/28/2021 01:44
+Last updated at 06/28/2021 01:48
