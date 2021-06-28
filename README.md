@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000217134788-j6sufx-t500x500.jpg">](https://soundcloud.com/wearebigbeat/broccolicpremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DDZagYz81vuclBTK-sPwTiQ-t500x500.jpg">](https://soundcloud.com/musicazura/look-at-the-sky-azura-remix)
 
-**Artist**: Big Beat Records 
+**Artist**: AZURA 
 
-**Track**: D.R.A.M. - Broccoli (feat. Lil Yachty) [Chet Porter Remix]
+**Track**: Porter Robinson - Look at the Sky (AZURA Remix)
 
-Last updated at 06/28/2021 00:52
+Last updated at 06/28/2021 00:56
