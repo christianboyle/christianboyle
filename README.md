@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zSk9L86s6XcJi1f-SLnViw-t500x500.jpg">](https://soundcloud.com/parv0/wicca-phase-springs-eternal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZEzODluS9ghm-0-t500x500.jpg">](https://soundcloud.com/1glaive/dnd-1)
 
-**Artist**: Parv0 
+**Artist**: glaive 
 
-**Track**: Wicca Phase Springs Eternal/Zubin/Parv0 - Lights Out
+**Track**: dnd
 
-Last updated at 06/28/2021 05:45
+Last updated at 06/28/2021 05:47
