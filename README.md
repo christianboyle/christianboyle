@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy8xjFnqtKPOcL8D-XR20cw-t500x500.jpg">](https://soundcloud.com/rolandjones/murda-season-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043404155-srguyy-t500x500.jpg">](https://soundcloud.com/killershadow/crush-jellyhead-cd-hd-motiv8-1)
 
-**Artist**: ROLAND JONES 
+**Artist**: Killershadow 
 
-**Track**: MURDA SEASON VOL 4
+**Track**: CRUSH - Jellyhead [CD HD] (MOTIV8 EXTENDED CLUB CUT)
 
-Last updated at 06/28/2021 09:24
+Last updated at 06/28/2021 10:32
