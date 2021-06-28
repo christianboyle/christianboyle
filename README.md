@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ze2dqYMciBgU-0-t500x500.jpg">](https://soundcloud.com/samgellaitry/duo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8SntUOVpip4l2Ot-bjfFtQ-t500x500.jpg">](https://soundcloud.com/sebseb122/bonerr)
 
-**Artist**: sam gellaitry 
+**Artist**: SEBii💫 
 
-**Track**: Duo
+**Track**: BONErr [p. vvspipes + kimj]
 
-Last updated at 06/28/2021 04:19
+Last updated at 06/28/2021 04:21
