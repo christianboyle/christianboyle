@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKVRFWpRMwhkVEwk-PX0y5w-t500x500.jpg">](https://soundcloud.com/queer-nxc/uuuuuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZyVe3wpoTiKEQSJ-RV1GHQ-t500x500.jpg">](https://soundcloud.com/djikeacanada/garden-2)
 
-**Artist**: queer nxc 
+**Artist**: DJ IKEA CANADA 
 
-**Track**: nvr-mnt-2-hrt-me </3
+**Track**: jedwill - garden (remix)
 
-Last updated at 06/28/2021 05:13
+Last updated at 06/28/2021 05:15
