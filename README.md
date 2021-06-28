@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkBtJBcpzYJ7zdD9-T0UKFA-t500x500.jpg">](https://soundcloud.com/rossykate/x-gon-give-it-to-ya-x-neon-rossy-tribute-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AiTz6CRv2zUdcjBp-UhvXaA-t500x500.jpg">](https://soundcloud.com/vauboy/you-were-with-a-boy)
 
-**Artist**: ROSSY 
+**Artist**: Vau Boy 
 
-**Track**: X Gon' Give It To Ya X N.EON (ROSSY TRIBUTE EDIT)
+**Track**: You Were With A Boy
 
-Last updated at 06/28/2021 03:11
+Last updated at 06/28/2021 03:13
