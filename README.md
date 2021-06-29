@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uaI6CcotQF7zFSz-9iMfqg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/primeshock-rewind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Odz9ogt9nMluAucc-65fLAQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/horyzon-beyond)
 
 **Artist**: Dirty Workz 
 
-**Track**: Primeshock - Rewind
+**Track**: Horyzon - Beyond
 
-Last updated at 06/29/2021 12:24
+Last updated at 06/29/2021 12:26
