@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUNhcVpBXmI8-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-love-music)
 
-**Artist**: Dan Larkin 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
+**Track**: Lil Yachty - Love Music
 
-Last updated at 06/29/2021 16:00
+Last updated at 06/29/2021 16:02
