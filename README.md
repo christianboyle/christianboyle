@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DCIBL6ccvWaAsVb3-DyZyog-t500x500.jpg">](https://soundcloud.com/indirapaganotto/indira-paganotto-presents-pan-pot-maxximum-radio-paris-epvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTyzb2QygVVoLXzt-CVGrfw-t500x500.jpg">](https://soundcloud.com/southpointmusic/tvu-malign)
 
-**Artist**: Indira Paganotto 
+**Artist**: Southpoint 
 
-**Track**: Indira Paganotto presents Pan-Pot : Maxximum Radio, Paris
+**Track**: TVU - Malign
 
-Last updated at 06/29/2021 14:34
+Last updated at 06/29/2021 15:36
