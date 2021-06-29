@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRyqiWfPy_LuYpRn12AXfnXMmNaW8Q33hnWGN_ugg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCPraHWkiGzZ_5dTeStNr01w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
 
-**Artist**: TheMightyMightyBossToneS 
+**Artist**: Dan Larkin 
 
-**Track**: The Mighty Mighty Bosstones - Someday I Suppose
+**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
 
-Last updated at 06/28/2021 20:18
+Last updated at 06/28/2021 21:26
