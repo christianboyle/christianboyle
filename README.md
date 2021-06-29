@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DCIBL6ccvWaAsVb3-DyZyog-t500x500.jpg">](https://soundcloud.com/indirapaganotto/indira-paganotto-presents-pan-pot-maxximum-radio-paris-epvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YVWDJLjunBt8zgGz-IjT2RQ-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin021-bakey-bring-it-back-ep)
 
-**Artist**: Indira Paganotto 
+**Artist**: Shall Not Fade 
 
-**Track**: Indira Paganotto presents Pan-Pot : Maxximum Radio, Paris
+**Track**: TIN021 // Bakey - Bring It Back EP
 
-Last updated at 06/29/2021 07:07
+Last updated at 06/29/2021 08:23
