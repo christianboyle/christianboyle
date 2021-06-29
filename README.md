@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYECXgRjd7zX1sLB-vz1bBA-t500x500.jpg">](https://soundcloud.com/speedstrmusic/speedstr-redlights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHH90JIffYA0TxMt-KRq5vA-t500x500.jpg">](https://soundcloud.com/nedud/peaches)
 
-**Artist**: SpeedStr 
+**Artist**: Nedud 
 
-**Track**: SpeedStr - RedLights
+**Track**: Justin Bieber - Peaches ft. Daniel Caesar, Giveon (Nedud Remix)
 
-Last updated at 06/29/2021 08:33
+Last updated at 06/29/2021 08:37
