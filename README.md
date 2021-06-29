@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YVWDJLjunBt8zgGz-IjT2RQ-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin021-bakey-bring-it-back-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYECXgRjd7zX1sLB-vz1bBA-t500x500.jpg">](https://soundcloud.com/speedstrmusic/speedstr-redlights)
 
-**Artist**: Shall Not Fade 
+**Artist**: SpeedStr 
 
-**Track**: TIN021 // Bakey - Bring It Back EP
+**Track**: SpeedStr - RedLights
 
-Last updated at 06/29/2021 08:23
+Last updated at 06/29/2021 08:33
