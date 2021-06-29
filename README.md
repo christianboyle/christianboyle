@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHuj2nQkJh1vfyKZ-151HgQ-t500x500.jpg">](https://soundcloud.com/wearelostkings/welcome-to-lost-angeles-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cG4ctNzeAp0K5UsN-F0YPbw-t500x500.jpg">](https://soundcloud.com/circuithour/grow)
 
-**Artist**: Lost Kings 
+**Artist**: Circuit Hour 
 
-**Track**: WELCOME TO LOST ANGELES VOL. 9
+**Track**: GROW
 
-Last updated at 06/29/2021 09:54
+Last updated at 06/29/2021 11:40
