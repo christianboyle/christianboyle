@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qtlayLkYNYzhFyHx-12n2yA-t500x500.jpg">](https://soundcloud.com/avoyy/harry-styles-adore-you-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1SKuuhnMxsqzBlt-YBt5sw-t500x500.jpg">](https://soundcloud.com/avoyy/blackbear-hot-girl-bummer-remix)
 
 **Artist**: Avoy 
 
-**Track**: Harry Styles - Adore You (Remix)
+**Track**: blackbear - hot girl bummer (Remix)
 
-Last updated at 06/29/2021 09:44
+Last updated at 06/29/2021 09:48
