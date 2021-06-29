@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Odz9ogt9nMluAucc-65fLAQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/horyzon-beyond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000634198540-nlthjy-t500x500.jpg">](https://soundcloud.com/coffymusic/coffy-silky?in=coffymusic/sets/beats-to-study-relax-to-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Coffy 
 
-**Track**: Horyzon - Beyond
+**Track**: Coffy - Silky
 
-Last updated at 06/29/2021 12:26
+Last updated at 06/29/2021 13:20
