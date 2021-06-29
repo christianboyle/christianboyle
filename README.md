@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcokT8Ly5Dn8qEJQ-DPrMLw-t500x500.jpg">](https://soundcloud.com/addal/addal-angels?in=coffymusic/sets/beats-to-study-relax-to-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WMJkZrNpGqANXYl5-QvEgrw-t500x500.jpg">](https://soundcloud.com/cupidomusic/cupido-babe-1?in=coffymusic/sets/beats-to-study-relax-to-1)
 
-**Artist**: ADDAL 
+**Artist**: Cupido 
 
-**Track**: Addal - Angels
+**Track**: Cupido - Babe
 
-Last updated at 06/29/2021 13:44
+Last updated at 06/29/2021 13:46
