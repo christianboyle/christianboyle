@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043404155-srguyy-t500x500.jpg">](https://soundcloud.com/killershadow/crush-jellyhead-cd-hd-motiv8-1)
 
-**Artist**: Dan Larkin 
+**Artist**: Killershadow 
 
-**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
+**Track**: CRUSH - Jellyhead [CD HD] (MOTIV8 EXTENDED CLUB CUT)
 
-Last updated at 06/29/2021 11:46
+Last updated at 06/29/2021 11:50
