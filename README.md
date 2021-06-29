@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTyzb2QygVVoLXzt-CVGrfw-t500x500.jpg">](https://soundcloud.com/southpointmusic/tvu-malign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohunyHWrXeM3HZVe-BhsBEQ-t500x500.jpg">](https://soundcloud.com/nectarcollective/ok-kevin-smokzart-deucey-the-sauce)
 
-**Artist**: Southpoint 
+**Artist**: Nectar Collective 
 
-**Track**: TVU - Malign
+**Track**: OK. Kevin & Smokzart Deucey - The Sauce
 
-Last updated at 06/29/2021 06:57
+Last updated at 06/29/2021 06:59
