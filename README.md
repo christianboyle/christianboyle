@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cG4ctNzeAp0K5UsN-F0YPbw-t500x500.jpg">](https://soundcloud.com/circuithour/grow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWHCgiROfo3S-0-t500x500.png">](https://soundcloud.com/lilxlotus/think-of-me-tonight)
 
-**Artist**: Circuit Hour 
+**Artist**: LIL LOTUS 
 
-**Track**: GROW
+**Track**: Think Of Me Tonight
 
-Last updated at 06/29/2021 06:31
+Last updated at 06/29/2021 06:53
