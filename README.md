@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRszFNoLGW8pLynA-BqZNVQ-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-094-highly-minogue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUNhcVpBXmI8-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-love-music)
 
-**Artist**: Novel 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Novelcast 94: Highly Minogue
+**Track**: Lil Yachty - Love Music
 
-Last updated at 06/30/2021 12:21
+Last updated at 06/30/2021 17:13
