@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRszFNoLGW8pLynA-BqZNVQ-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-094-highly-minogue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WvnlHIbbRHFGwsw5-RaiLSw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-20-feat-telykast)
 
-**Artist**: Novel 
+**Artist**: syence experiments 
 
-**Track**: Novelcast 94: Highly Minogue
+**Track**: syence lab: volume 20 (feat. telykast)
 
-Last updated at 06/30/2021 06:50
+Last updated at 06/30/2021 10:19
