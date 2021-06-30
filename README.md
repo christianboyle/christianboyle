@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUNhcVpBXmI8-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-love-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUDn5x8kNTXH0yco-Hm5DUw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/star-seed-chasing-stars-ncs-release)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: NCS 
 
-**Track**: Lil Yachty - Love Music
+**Track**: STAR SEED - Chasing Stars [NCS Release]
 
-Last updated at 06/30/2021 17:13
+Last updated at 06/30/2021 17:15
