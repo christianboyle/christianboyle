@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2qBUOHKmzzvPQfCh-GEPHiQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/andy-garvey-daisychain-180)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRszFNoLGW8pLynA-BqZNVQ-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-094-highly-minogue)
 
-**Artist**: Daisychain 
+**Artist**: Novel 
 
-**Track**: Daisychain 180 - Andy Garvey
+**Track**: Novelcast 94: Highly Minogue
 
-Last updated at 06/30/2021 06:35
+Last updated at 06/30/2021 06:50
