@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000529969971-btspnf-t500x500.jpg">](https://soundcloud.com/yellowtael/machinewithadream?in=yellowtael/sets/alleviate-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7Ivb4exNK9y-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-love-music)
 
-**Artist**: Yellowtael 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Yellowtael - Machine with a Dream
+**Track**: Lil Yachty - Love Music
 
-Last updated at 07/01/2021 08:00
+Last updated at 07/01/2021 08:38
