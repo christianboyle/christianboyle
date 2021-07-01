@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygI458O7tk7rz9vD-OqRqBg-t500x500.jpg">](https://soundcloud.com/iamhearteyes/fua-ft-8485)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awD6mtCMYFvxG6Xg-OAfqOw-t500x500.jpg">](https://soundcloud.com/superybf/life-or-death-xmichaelwarren)
 
-**Artist**: hearteyes 
+**Artist**: superybf! 
 
-**Track**: F.U.A. (ft. 8485)
+**Track**: life or death (xmichaelwarren)
 
-Last updated at 07/01/2021 09:17
+Last updated at 07/01/2021 09:21
