@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7Ivb4exNK9y-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-love-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWHCgiROfo3S-0-t500x500.png">](https://soundcloud.com/lilxlotus/think-of-me-tonight)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: LIL LOTUS 
 
-**Track**: Lil Yachty - Love Music
+**Track**: Think Of Me Tonight
 
-Last updated at 07/01/2021 08:38
+Last updated at 07/01/2021 08:40
