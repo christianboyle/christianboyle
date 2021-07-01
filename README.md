@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nulbgH3n0Tpisy0g-FutJ3w-t500x500.jpg">](https://soundcloud.com/theuntz/saas-when-it-rains?in=arkadiaproject/sets/circles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KngoFUTI2ooRL3Hi-eQutrA-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/smol-rubix-that-nasty?in=arkadiaproject/sets/circles)
 
-**Artist**: TheUntz.com 
+**Artist**: Wavecraft Collective 
 
-**Track**: SAAS - When It Rains [PREMIERE]
+**Track**: smol & RUBiX - That Nasty
 
-Last updated at 07/01/2021 16:05
+Last updated at 07/01/2021 16:09
