@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xklZiqorEMVn-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
 
-**Artist**: Tyler, The Creator 
+**Artist**: Tkay Maidza 
 
-**Track**: Tyler, The Creator feat. Lil Uzi Vert and Pharrell Williams - JUGGERNAUT
+**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
 
-Last updated at 07/01/2021 09:09
+Last updated at 07/01/2021 09:13
