@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQwpnYJPqbLL-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/the-finer-things)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygI458O7tk7rz9vD-OqRqBg-t500x500.jpg">](https://soundcloud.com/iamhearteyes/fua-ft-8485)
 
-**Artist**: RAMIREZ. 
+**Artist**: hearteyes 
 
-**Track**: The Finer Things
+**Track**: F.U.A. (ft. 8485)
 
-Last updated at 07/01/2021 09:15
+Last updated at 07/01/2021 09:17
