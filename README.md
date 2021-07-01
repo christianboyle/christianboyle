@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LIQTj5fCzrOpwXJ-DOwPmg-t500x500.jpg">](https://soundcloud.com/haresoff/hares-armada?in=arkadiaproject/sets/circles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AJpdOdSoggZvE5Y-QHADKA-t500x500.jpg">](https://soundcloud.com/hotcaller/drowning-rip-hotcaller?in=arkadiaproject/sets/circles)
 
-**Artist**: 𝐇𝐀𝐑𝐄𝐒 
+**Artist**: Hotcaller 
 
-**Track**: Armada
+**Track**: DROWNING [RIP] - HOTCALLER
 
-Last updated at 07/01/2021 15:54
+Last updated at 07/01/2021 15:57
