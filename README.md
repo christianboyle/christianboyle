@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FBYyJLQo53YrE2QE-oafaQQ-t500x500.jpg">](https://soundcloud.com/powerdolls/glass-canary)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEMexFkd4Fh4TTdk-ll5YHg-t500x500.jpg">](https://soundcloud.com/enforcerecords/duckashaninmyhead)
 
-**Artist**: powerdoll 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: glass canary
+**Track**: Ducka Shan & Tsebster - In My Head (feat. Britt Lari)
 
-Last updated at 07/01/2021 16:15
+Last updated at 07/01/2021 16:19
