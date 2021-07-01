@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LdzUZqozYQN-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQwpnYJPqbLL-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/the-finer-things)
 
-**Artist**: Tkay Maidza 
+**Artist**: RAMIREZ. 
 
-**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
+**Track**: The Finer Things
 
-Last updated at 07/01/2021 09:13
+Last updated at 07/01/2021 09:15
