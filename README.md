@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEMexFkd4Fh4TTdk-ll5YHg-t500x500.jpg">](https://soundcloud.com/enforcerecords/duckashaninmyhead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T3h0Jz0MphgOzFQI-awyoiA-t500x500.jpg">](https://soundcloud.com/up_records/children-of-zeus-i-want-you-turna-x-ledouix-remix)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: Up. 
 
-**Track**: Ducka Shan & Tsebster - In My Head (feat. Britt Lari)
+**Track**: Children Of Zeus - I Want You (TURNA X LeDouix Remix)
 
-Last updated at 07/01/2021 16:19
+Last updated at 07/01/2021 16:21
