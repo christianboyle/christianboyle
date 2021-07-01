@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eHaBmSEzm7UmKiSR-fmal0g-t500x500.jpg">](https://soundcloud.com/paurush-kumar/saiyaan-1?in=arkadiaproject/sets/circles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FBYyJLQo53YrE2QE-oafaQQ-t500x500.jpg">](https://soundcloud.com/powerdolls/glass-canary)
 
-**Artist**: Rusha & Blizza 
+**Artist**: powerdoll 
 
-**Track**: Saiyaan
+**Track**: glass canary
 
-Last updated at 07/01/2021 16:13
+Last updated at 07/01/2021 16:15
