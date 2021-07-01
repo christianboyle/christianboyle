@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HX7l9Q15HzJNynAK-yNnQzw-t500x500.jpg">](https://soundcloud.com/dossyx/fireflies)
 
-**Artist**: Dan Larkin 
+**Artist**: DossyX 
 
-**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
+**Track**: FIREFLIES
 
-Last updated at 07/01/2021 08:48
+Last updated at 07/01/2021 08:50
