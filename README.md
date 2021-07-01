@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4DQRnhztzyAgjMM-sqFB0w-t500x500.jpg">](https://soundcloud.com/wakaan/sully-malfunction?in=wakaan/sets/sully-malfunction-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duDHuSRF0ZXNGwJa-BPLM3Q-t500x500.jpg">](https://soundcloud.com/flawless-vibe/indoor-smoke-bday-drop)
 
-**Artist**: Wakaan 
+**Artist**: flawle$ vibe 
 
-**Track**: Sully - Malfunction
+**Track**: Indoor Smoke (B day drop)
 
-Last updated at 07/01/2021 15:46
+Last updated at 07/01/2021 15:50
