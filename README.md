@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q6Kzqx6yQsPvXDwH-YV4sgg-t500x500.jpg">](https://soundcloud.com/justicehardcore/loveonfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL6yi4yLUuQMxDmy-WpsRMg-t500x500.jpg">](https://soundcloud.com/justicehardcore/notthistime)
 
 **Artist**: Justice Hardcore 
 
-**Track**: O1RA - Love On Fire ✅FREE DOWNLOAD✅
+**Track**: HiroHiro - Not This Time ⚠️OUT NOW⚠️
 
-Last updated at 07/01/2021 17:35
+Last updated at 07/01/2021 17:37
