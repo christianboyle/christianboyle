@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cG4ctNzeAp0K5UsN-F0YPbw-t500x500.jpg">](https://soundcloud.com/circuithour/grow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
 
-**Artist**: Circuit Hour 
+**Artist**: Dan Larkin 
 
-**Track**: GROW
+**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
 
-Last updated at 07/01/2021 08:44
+Last updated at 07/01/2021 08:48
