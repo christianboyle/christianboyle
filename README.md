@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T3h0Jz0MphgOzFQI-awyoiA-t500x500.jpg">](https://soundcloud.com/up_records/children-of-zeus-i-want-you-turna-x-ledouix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEqvTWUzMZYu71jq-nu9fHg-t500x500.jpg">](https://soundcloud.com/beatlabradio/ivoryghost-exclusive-mix-beat-lab-radio-343)
 
-**Artist**: Up. 
+**Artist**: Beat Lab Radio 
 
-**Track**: Children Of Zeus - I Want You (TURNA X LeDouix Remix)
+**Track**: Ivoryghost - Exclusive Mix - Beat Lab Radio 343
 
-Last updated at 07/01/2021 16:21
+Last updated at 07/01/2021 16:27
