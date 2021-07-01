@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ANO89I2IezlUCG4-MZwSuQ-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-shaquille-oneal-posterize)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4DQRnhztzyAgjMM-sqFB0w-t500x500.jpg">](https://soundcloud.com/wakaan/sully-bumps?in=wakaan/sets/sully-malfunction-ep)
 
-**Artist**: BLVD. 
+**Artist**: Wakaan 
 
-**Track**: BLVD. & Shaquille O'Neal - Posterize
+**Track**: Sully - Bumps
 
-Last updated at 07/01/2021 15:33
+Last updated at 07/01/2021 15:37
