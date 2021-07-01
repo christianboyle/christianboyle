@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duDHuSRF0ZXNGwJa-BPLM3Q-t500x500.jpg">](https://soundcloud.com/flawless-vibe/indoor-smoke-bday-drop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zhzcHEH5g0gEmvX-6bzgjw-t500x500.jpg">](https://soundcloud.com/helixtears/door)
 
-**Artist**: flawle$ vibe 
+**Artist**: helix tears 
 
-**Track**: Indoor Smoke (B day drop)
+**Track**: stef + dolly - kdyd (bhristo+nineteyniiine)
 
-Last updated at 07/01/2021 15:50
+Last updated at 07/01/2021 15:52
