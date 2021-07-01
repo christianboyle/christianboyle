@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KngoFUTI2ooRL3Hi-eQutrA-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/smol-rubix-that-nasty?in=arkadiaproject/sets/circles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eHaBmSEzm7UmKiSR-fmal0g-t500x500.jpg">](https://soundcloud.com/paurush-kumar/saiyaan-1?in=arkadiaproject/sets/circles)
 
-**Artist**: Wavecraft Collective 
+**Artist**: Rusha & Blizza 
 
-**Track**: smol & RUBiX - That Nasty
+**Track**: Saiyaan
 
-Last updated at 07/01/2021 16:09
+Last updated at 07/01/2021 16:13
