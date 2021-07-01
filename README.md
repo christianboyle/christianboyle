@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL6yi4yLUuQMxDmy-WpsRMg-t500x500.jpg">](https://soundcloud.com/justicehardcore/notthistime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uTza8wfi5Urp6yy2-fOv6ZA-t500x500.jpg">](https://soundcloud.com/coolteens/darkwell?in=coolteens/sets/new-mix-please-enjoy)
 
-**Artist**: Justice Hardcore 
+**Artist**: Cool ✨ Teens 
 
-**Track**: HiroHiro - Not This Time ⚠️OUT NOW⚠️
+**Track**: Darkwell
 
-Last updated at 07/01/2021 17:37
+Last updated at 07/01/2021 17:43
