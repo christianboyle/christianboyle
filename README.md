@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ZXcJRYv8PGJnTu6-qxwqOg-t500x500.jpg">](https://soundcloud.com/zaandr/authentic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DR3WM7nFYvYJZQei-uCvGMQ-t500x500.jpg">](https://soundcloud.com/dartokki/dartokki-hyperbeam)
 
-**Artist**: ZAANDR 
+**Artist**: DarTokki✨ 
 
-**Track**: Authentic
+**Track**: DarTokki - HyperBeam
 
-Last updated at 07/02/2021 17:57
+Last updated at 07/02/2021 18:01
