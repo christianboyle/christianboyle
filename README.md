@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRszFNoLGW8pLynA-BqZNVQ-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-094-highly-minogue)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRTBymV-Xkjw8MZcgIGtUXUP26jD_9rXGZ-CEEF=s48-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UC0eBaEhPFgFoxMp7vMolCEA)
 
-**Artist**: Novel 
+**Artist**: Jimmy Buffett Official 
 
-**Track**: Novelcast 94: Highly Minogue
+**Track**: A Pirate Looks At Forty
 
-Last updated at 07/02/2021 08:50
+Last updated at 07/02/2021 10:00
