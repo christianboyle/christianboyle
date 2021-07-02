@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLScUSxx6tXbeq3Yz2NfSH02VhGSpP9ascT3asew=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCfyMRvpoxHI5xiFKZYa-iHA)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQLB7EGFRiTmHZK_uubUXpCU379f-hUxa4zow9H=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC5zU9uDbWQh6YW8qY5JsTXw)
 
-**Artist**: Loverboy 
+**Artist**: Sum 41 
 
-**Track**: Working for the Weekend (Official Video)
+**Track**: Fatlip (Official Music Video)
 
-Last updated at 07/02/2021 17:22
+Last updated at 07/02/2021 17:26
