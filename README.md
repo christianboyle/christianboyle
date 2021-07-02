@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryZXTqWn7LYnjT30-D98zAw-t500x500.jpg">](https://soundcloud.com/allenafs/resenbonzakura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5JCxxSHAjkS7KcF-nJg09g-t500x500.jpg">](https://soundcloud.com/phuturecollective/fidus-achates-fools-paradise-w-lil-kimmy-b)
 
-**Artist**: ı||ııı||ı|allenafsı||ııı||ı| 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: * (re)senbonzakura * w/ gasoiid, hatsune miku, ia
+**Track**: Fidus Achates x  lil kimmy b - Fool's Paradise
 
-Last updated at 07/02/2021 17:51
+Last updated at 07/02/2021 17:53
