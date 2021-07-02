@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t500x500.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLScUSxx6tXbeq3Yz2NfSH02VhGSpP9ascT3asew=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCfyMRvpoxHI5xiFKZYa-iHA)
 
-**Artist**: umru 
+**Artist**: Loverboy 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: Working for the Weekend (Official Video)
 
-Last updated at 07/02/2021 17:08
+Last updated at 07/02/2021 17:22
