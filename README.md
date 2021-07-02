@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WvnlHIbbRHFGwsw5-RaiLSw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-20-feat-telykast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2zIMWtjVChV1kmz-sivKWg-t500x500.jpg">](https://soundcloud.com/hyperpoprecords/hupsu-syzygy?in=hyperpoprecords/sets/hupsu-augury)
 
-**Artist**: syence experiments 
+**Artist**: HYPERPOP RECORDS 
 
-**Track**: syence lab: volume 20 (feat. telykast)
+**Track**: HUPSU - SYZYGY
 
-Last updated at 07/02/2021 16:15
+Last updated at 07/02/2021 16:47
