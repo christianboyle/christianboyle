@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t500x500.jpg">](https://soundcloud.com/wopak/private-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryZXTqWn7LYnjT30-D98zAw-t500x500.jpg">](https://soundcloud.com/allenafs/resenbonzakura)
 
-**Artist**: Wopak 
+**Artist**: ı||ııı||ı|allenafsı||ııı||ı| 
 
-**Track**: Private Edit
+**Track**: * (re)senbonzakura * w/ gasoiid, hatsune miku, ia
 
-Last updated at 07/02/2021 17:46
+Last updated at 07/02/2021 17:51
