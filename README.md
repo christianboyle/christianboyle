@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t500x500.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ab07SqKQQtvmH15X-xfeyvg-t500x500.jpg">](https://soundcloud.com/kessleruk/a2-lotus?in=kessleruk/sets/foul-play-ep-hhands018)
 
-**Artist**: umru 
+**Artist**: 𝒌𝒆𝒔𝒔𝒍𝒆𝒓 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: A2. Lotus
 
-Last updated at 07/02/2021 16:57
+Last updated at 07/02/2021 17:06
