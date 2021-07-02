@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mCBbEBYyPjon2yOB-BI2RuQ-t500x500.jpg">](https://soundcloud.com/aqnb/brodinski-sebastien-forrester-mmb-2021-courtesy-broyal-afraa-france)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeWNomiZSJAcrNmy-xPJ0Ow-t500x500.jpg">](https://soundcloud.com/trademarkbootlegs/the-pregame-series-mixed-in-america-july-055)
 
-**Artist**: AQNB 
+**Artist**: Trademark 
 
-**Track**: Brodinski & Sébastien Forrester, 'MMB' (2021). Courtesy Broyal & Afraa, France.
+**Track**: The Pregame Series (Mixed In America) [July 055]
 
-Last updated at 07/02/2021 10:06
+Last updated at 07/02/2021 10:08
