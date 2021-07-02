@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jka8WpgCURaWhPA2-nAMYQQ-t500x500.jpg">](https://soundcloud.com/defflz/fears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNDXW7cKLCY3kDTz-1ZL5mw-t500x500.jpg">](https://soundcloud.com/fishskale666/fishskale-big-pimpin)
 
-**Artist**: serenity 
+**Artist**: Fi$HSK*LE 
 
-**Track**: Fears
+**Track**: Fi$HSK*LE - BIG PIMPIN'
 
-Last updated at 07/02/2021 07:02
+Last updated at 07/02/2021 07:04
