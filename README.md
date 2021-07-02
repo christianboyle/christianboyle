@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQLB7EGFRiTmHZK_uubUXpCU379f-hUxa4zow9H=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC5zU9uDbWQh6YW8qY5JsTXw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUDn5x8kNTXH0yco-Hm5DUw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/star-seed-chasing-stars-ncs-release)
 
-**Artist**: Sum 41 
+**Artist**: NCS 
 
-**Track**: Fatlip (Official Music Video)
+**Track**: STAR SEED - Chasing Stars [NCS Release]
 
-Last updated at 07/02/2021 17:26
+Last updated at 07/02/2021 17:28
