@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRTBymV-Xkjw8MZcgIGtUXUP26jD_9rXGZ-CEEF=s48-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UC0eBaEhPFgFoxMp7vMolCEA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mCBbEBYyPjon2yOB-BI2RuQ-t500x500.jpg">](https://soundcloud.com/aqnb/brodinski-sebastien-forrester-mmb-2021-courtesy-broyal-afraa-france)
 
-**Artist**: Jimmy Buffett Official 
+**Artist**: AQNB 
 
-**Track**: Son Of A Son Of A Sailor
+**Track**: Brodinski & Sébastien Forrester, 'MMB' (2021). Courtesy Broyal & Afraa, France.
 
-Last updated at 07/02/2021 10:04
+Last updated at 07/02/2021 10:06
