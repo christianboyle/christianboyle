@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNDXW7cKLCY3kDTz-1ZL5mw-t500x500.jpg">](https://soundcloud.com/fishskale666/fishskale-big-pimpin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRszFNoLGW8pLynA-BqZNVQ-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-094-highly-minogue)
 
-**Artist**: Fi$HSK*LE 
+**Artist**: Novel 
 
-**Track**: Fi$HSK*LE - BIG PIMPIN'
+**Track**: Novelcast 94: Highly Minogue
 
-Last updated at 07/02/2021 08:48
+Last updated at 07/02/2021 08:50
