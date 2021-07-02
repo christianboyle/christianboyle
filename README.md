@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUDn5x8kNTXH0yco-Hm5DUw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/star-seed-chasing-stars-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
 
-**Artist**: NCS 
+**Artist**: Dear Evergreen 
 
-**Track**: STAR SEED - Chasing Stars [NCS Release]
+**Track**: A Thousand Miles
 
-Last updated at 07/02/2021 17:28
+Last updated at 07/02/2021 17:30
