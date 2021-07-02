@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5JCxxSHAjkS7KcF-nJg09g-t500x500.jpg">](https://soundcloud.com/phuturecollective/fidus-achates-fools-paradise-w-lil-kimmy-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ZXcJRYv8PGJnTu6-qxwqOg-t500x500.jpg">](https://soundcloud.com/zaandr/authentic)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: ZAANDR 
 
-**Track**: Fidus Achates x  lil kimmy b - Fool's Paradise
+**Track**: Authentic
 
-Last updated at 07/02/2021 17:53
+Last updated at 07/02/2021 17:57
