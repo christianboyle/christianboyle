@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nv58HW5neyKy3B7W-jHuxXw-t500x500.jpg">](https://soundcloud.com/nuum/nuum-sakidasumi-angst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hGxIFDXGRTnqnDTQ-avS2zg-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-i-dont-need-you)
 
-**Artist**: nuum 
+**Artist**: Lucha 
 
-**Track**: nuum & Sakidasumi - Angst
+**Track**: I Don't Need You
 
-Last updated at 07/02/2021 10:29
+Last updated at 07/02/2021 15:59
