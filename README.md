@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mMZFfsiiLjaI5ZjV-Lsx3yg-t500x500.jpg">](https://soundcloud.com/rohaanofficial/blue-rohaan-dnb-edit)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Rohaan 
 
-**Track**: Dj CHRISTIAN NXC - S1X FLAGS
+**Track**: Blue (Rohaan DNB EDIT)
 
-Last updated at 07/02/2021 17:40
+Last updated at 07/02/2021 17:44
