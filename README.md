@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNDXW7cKLCY3kDTz-1ZL5mw-t500x500.jpg">](https://soundcloud.com/fishskale666/fishskale-big-pimpin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQONwMflpsvJyYJk-9VGT9Q-t500x500.jpg">](https://soundcloud.com/dropcentral/bounce?in=dropcentral/sets/gangnambass)
 
-**Artist**: Fi$HSK*LE 
+**Artist**: Drop Central 💧 
 
-**Track**: Fi$HSK*LE - BIG PIMPIN'
+**Track**: Bashment Yc, MeekMatt - Bounce
 
-Last updated at 07/02/2021 07:04
+Last updated at 07/02/2021 07:08
