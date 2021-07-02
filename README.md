@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2zIMWtjVChV1kmz-sivKWg-t500x500.jpg">](https://soundcloud.com/hyperpoprecords/hupsu-syzygy?in=hyperpoprecords/sets/hupsu-augury)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-excQBPLqMALINNrf-pfHJdA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc162)
 
-**Artist**: HYPERPOP RECORDS 
+**Artist**: NON STOP NXC® 
 
-**Track**: HUPSU - SYZYGY
+**Track**: NXC162 - Paramore - That's What You Get (trndytrndy edit)
 
-Last updated at 07/02/2021 16:47
+Last updated at 07/02/2021 16:49
