@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OB6DTzyNa0la6WhG-lIhzrQ-t500x500.jpg">](https://soundcloud.com/tomorrowland/unreleased-with-austin-kramer-11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
 
-**Artist**: Tomorrowland 
+**Artist**: Giuseppe Ottaviani 
 
-**Track**: UNreleased With Austin Kramer #11
+**Track**: Giuseppe Ottaviani & Cari - Beautiful
 
-Last updated at 07/02/2021 07:12
+Last updated at 07/02/2021 08:17
