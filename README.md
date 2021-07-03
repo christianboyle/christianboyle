@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NHojM1rzqRP1d7qm-PiZzqw-t500x500.jpg">](https://soundcloud.com/rusuitor/malik-mustache-domme-feat-sevenever-do-it-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mYvo2eA7Jz3pFRcE-fTbRsw-t500x500.jpg">](https://soundcloud.com/y4ndere/recollection)
 
-**Artist**: [ SUITOR ] 
+**Artist**: yandere 
 
-**Track**: Malik Mustache & DOMME feat. SevenEver - Do It Again [ FREE DOWNLOAD ]
+**Track**: recollection
 
-Last updated at 07/03/2021 08:21
+Last updated at 07/03/2021 08:23
