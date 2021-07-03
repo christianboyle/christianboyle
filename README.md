@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJ0hfMCVScQcgZk7-wyC4lg-t500x500.jpg">](https://soundcloud.com/balamii/still-life-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ua7oIs5rYCuGDsE-lB6HHw-t500x500.jpg">](https://soundcloud.com/hakopdetaknl/vamosremix)
 
-**Artist**: Balamii 
+**Artist**: HAK OP DE TAK 
 
-**Track**: Still Life - July 2021
+**Track**: Hak op de Tak & Barry Fest - Vamos A La Playa (Dr. Rude Remix)
 
-Last updated at 07/03/2021 09:13
+Last updated at 07/03/2021 11:21
