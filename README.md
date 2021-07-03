@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x82YFHsrsOBRNzmI-q7x2dQ-t500x500.png">](https://soundcloud.com/nanobii/luv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZD2fjezt5Gm2-0-t500x500.png">](https://soundcloud.com/chromeo/old-45s-live-in-portland)
 
-**Artist**: nanobii 
+**Artist**: Chromeo 
 
-**Track**: LUV
+**Track**: Old 45s (live in Portland)
 
-Last updated at 07/03/2021 12:08
+Last updated at 07/03/2021 12:12
