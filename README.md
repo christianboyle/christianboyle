@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NSRx8w95KrkytSxm-LxxWMQ-t500x500.jpg">](https://soundcloud.com/makeshftofficial/the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJ0hfMCVScQcgZk7-wyC4lg-t500x500.jpg">](https://soundcloud.com/balamii/still-life-july-2021)
 
-**Artist**: 𝙈𝘼𝙆𝙀𝙎𝙃𝙁𝙏 
+**Artist**: Balamii 
 
-**Track**: THE MACHINE
+**Track**: Still Life - July 2021
 
-Last updated at 07/03/2021 09:10
+Last updated at 07/03/2021 09:13
