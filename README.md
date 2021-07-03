@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIANRF8c9yYAXzzd-XKSylw-t500x500.jpg">](https://soundcloud.com/area3000/georgemichelle)
 
-**Artist**: George Michelle 
+**Artist**: Area 3000 Radio 
 
-**Track**: lil uzi tool
+**Track**: A3K113 George Michelle - February 18th, 2021
 
-Last updated at 07/03/2021 14:39
+Last updated at 07/03/2021 14:43
