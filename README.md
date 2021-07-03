@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mpvj2WzpKdJmpcSI-RCVtDg-t500x500.jpg">](https://soundcloud.com/xopurp/insecure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcDU8hoTkuoq-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut)
 
-**Artist**: xo purp 
+**Artist**: Tyler, The Creator 
 
-**Track**: insecure (with blackwinterwells)
+**Track**: Tyler, The Creator feat. Lil Uzi Vert and Pharrell Williams - JUGGERNAUT
 
-Last updated at 07/03/2021 12:30
+Last updated at 07/03/2021 12:34
