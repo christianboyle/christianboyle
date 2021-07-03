@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQkGAXTX8TsHbSXs-7yhA9w-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-vinyl-sessions-vol1-06-17-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsrFOo7SfOUz5UTO-5I0ObQ-t500x500.jpg">](https://soundcloud.com/softbodyheartthrob/lil-uzi-tool)
 
-**Artist**: Seimei 
+**Artist**: George Michelle 
 
-**Track**: Seimei Vinyl Sessions Vol.1 06-17-2021
+**Track**: lil uzi tool
 
-Last updated at 07/03/2021 13:39
+Last updated at 07/03/2021 14:39
