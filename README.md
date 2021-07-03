@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcDU8hoTkuoq-0-t500x500.jpg">](https://soundcloud.com/tylerthecreatorofficial/tyler-the-creator-juggernaut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wvor3B44JdON-0-t500x500.jpg">](https://soundcloud.com/oklou93/forever)
 
-**Artist**: Tyler, The Creator 
+**Artist**: oklou 
 
-**Track**: Tyler, The Creator feat. Lil Uzi Vert and Pharrell Williams - JUGGERNAUT
+**Track**: Forever
 
-Last updated at 07/03/2021 12:34
+Last updated at 07/03/2021 12:36
