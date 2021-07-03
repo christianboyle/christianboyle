@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJ0hfMCVScQcgZk7-wyC4lg-t500x500.jpg">](https://soundcloud.com/balamii/still-life-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClgQ0JyGp7kyS5e6-2ETcjg-t500x500.jpg">](https://soundcloud.com/khronemusic/sad-girl-charlotte-cardin-khrone-remix)
 
-**Artist**: Balamii 
+**Artist**: Khrøne 
 
-**Track**: Still Life - July 2021
+**Track**: Sad Girl - Charlotte Cardin (Khrøne Remix)
 
-Last updated at 07/03/2021 08:25
+Last updated at 07/03/2021 09:06
