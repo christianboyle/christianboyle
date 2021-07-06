@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTyzb2QygVVoLXzt-CVGrfw-t500x500.jpg">](https://soundcloud.com/southpointmusic/tvu-malign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DczNYInnkKxz9yNW-7sSJHQ-t500x500.jpg">](https://soundcloud.com/spuke/icantstop)
 
-**Artist**: Southpoint 
+**Artist**: spüke 
 
-**Track**: TVU - Malign
+**Track**: Flux Pavilion - I Can't Stop (spüke remix)
 
-Last updated at 07/06/2021 12:24
+Last updated at 07/06/2021 14:18
