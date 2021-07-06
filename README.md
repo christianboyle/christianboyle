@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQ5imSlbxNS0zfrC-Ma8Pcw-t500x500.jpg">](https://soundcloud.com/dossyx/souvenir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
 
-**Artist**: DossyX 
+**Artist**: Giuseppe Ottaviani 
 
-**Track**: SOUVENIR (EDIT)
+**Track**: Giuseppe Ottaviani & Cari - Beautiful
 
-Last updated at 07/06/2021 11:35
+Last updated at 07/06/2021 12:11
