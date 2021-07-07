@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTyzb2QygVVoLXzt-CVGrfw-t500x500.jpg">](https://soundcloud.com/southpointmusic/tvu-malign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWHCgiROfo3S-0-t500x500.png">](https://soundcloud.com/lilxlotus/think-of-me-tonight)
 
-**Artist**: Southpoint 
+**Artist**: LIL LOTUS 
 
-**Track**: TVU - Malign
+**Track**: Think Of Me Tonight
 
-Last updated at 07/07/2021 17:22
+Last updated at 07/07/2021 17:27
