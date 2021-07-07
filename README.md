@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZl2GuPaDCCbcwPn-zyru0A-t500x500.jpg">](https://soundcloud.com/rubbyvalentin/solo-wristtboi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGClf865QKYQzAO-9W4tkg-t500x500.jpg">](https://soundcloud.com/spuke/peaches)
 
-**Artist**: Rubby 
+**Artist**: spüke 
 
-**Track**: Solo - Wristtboi Remix
+**Track**: peaches (spüke remix)
 
-Last updated at 07/06/2021 20:10
+Last updated at 07/06/2021 20:26
