@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dW60CRRn962sNRrk-ctAHeQ-t500x500.jpg">](https://soundcloud.com/avamax/every-time-i-cry-pink-panda-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQSsdqogU4PTIVgM-wyo1yA-t500x500.jpg">](https://soundcloud.com/spuke/tell-me)
 
-**Artist**: AVA MAX 
+**Artist**: spüke 
 
-**Track**: Every Time I Cry ( Pink Panda Remix )
+**Track**: tell me
 
-Last updated at 07/07/2021 15:21
+Last updated at 07/07/2021 15:23
