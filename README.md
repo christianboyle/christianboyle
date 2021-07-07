@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMT2ntRyivV7U7pq-xImUzQ-t500x500.jpg">](https://soundcloud.com/yerbownik/lightspeed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZl2GuPaDCCbcwPn-zyru0A-t500x500.jpg">](https://soundcloud.com/rubbyvalentin/solo-wristtboi-remix)
 
-**Artist**: yerbownik 
+**Artist**: Rubby 
 
-**Track**: LIGHTSPEED
+**Track**: Solo - Wristtboi Remix
 
-Last updated at 07/06/2021 20:08
+Last updated at 07/06/2021 20:10
