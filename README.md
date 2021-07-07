@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVAzBS1171qcbtAZ-RT1Wvw-t500x500.jpg">](https://soundcloud.com/pog22/y2ks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1KrVFiRvc2QVhi5-ZbYaOw-t500x500.jpg">](https://soundcloud.com/tomorrowland/core-mix-006-by-dino-lenny)
 
-**Artist**: Pog (@p.o.g._) 
+**Artist**: Tomorrowland 
 
-**Track**: Y2KS
+**Track**: CORE Mix 006 - By Dino Lenny
 
-Last updated at 07/07/2021 07:10
+Last updated at 07/07/2021 07:12
