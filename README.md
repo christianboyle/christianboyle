@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dW60CRRn962sNRrk-ctAHeQ-t500x500.jpg">](https://soundcloud.com/avamax/every-time-i-cry-pink-panda-remix)
 
-**Artist**: Trapical Music 
+**Artist**: AVA MAX 
 
-**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
+**Track**: Every Time I Cry ( Pink Panda Remix )
 
-Last updated at 07/07/2021 15:19
+Last updated at 07/07/2021 15:21
