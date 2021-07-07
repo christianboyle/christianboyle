@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0s2yahiYNMrKynUG-aDPZZQ-t500x500.jpg">](https://soundcloud.com/balamii/lt-boards-of-canada-special-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGClf865QKYQzAO-9W4tkg-t500x500.jpg">](https://soundcloud.com/spuke/peaches)
 
-**Artist**: Balamii 
+**Artist**: spüke 
 
-**Track**: LT: Boards of Canada Special -July 2021
+**Track**: peaches (spüke remix)
 
-Last updated at 07/07/2021 15:27
+Last updated at 07/07/2021 16:38
