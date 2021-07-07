@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQSsdqogU4PTIVgM-wyo1yA-t500x500.jpg">](https://soundcloud.com/spuke/tell-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
 
-**Artist**: spüke 
+**Artist**: Trapical Music 
 
-**Track**: tell me
+**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
 
-Last updated at 07/07/2021 11:36
+Last updated at 07/07/2021 15:19
