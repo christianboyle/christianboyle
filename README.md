@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGClf865QKYQzAO-9W4tkg-t500x500.jpg">](https://soundcloud.com/spuke/peaches)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVAzBS1171qcbtAZ-RT1Wvw-t500x500.jpg">](https://soundcloud.com/pog22/y2ks)
 
-**Artist**: spüke 
+**Artist**: Pog (@p.o.g._) 
 
-**Track**: peaches (spüke remix)
+**Track**: Y2KS
 
-Last updated at 07/06/2021 20:26
+Last updated at 07/07/2021 07:10
