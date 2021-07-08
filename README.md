@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUDn5x8kNTXH0yco-Hm5DUw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/star-seed-chasing-stars-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTyzb2QygVVoLXzt-CVGrfw-t500x500.jpg">](https://soundcloud.com/southpointmusic/tvu-malign)
 
-**Artist**: NCS 
+**Artist**: Southpoint 
 
-**Track**: STAR SEED - Chasing Stars [NCS Release]
+**Track**: TVU - Malign
 
-Last updated at 07/08/2021 08:42
+Last updated at 07/08/2021 08:44
