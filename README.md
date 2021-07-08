@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cG4ctNzeAp0K5UsN-F0YPbw-t500x500.jpg">](https://soundcloud.com/circuithour/grow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGClf865QKYQzAO-9W4tkg-t500x500.jpg">](https://soundcloud.com/spuke/peaches)
 
-**Artist**: Circuit Hour 
+**Artist**: spüke 
 
-**Track**: GROW
+**Track**: peaches (spüke remix)
 
-Last updated at 07/07/2021 17:29
+Last updated at 07/07/2021 19:01
