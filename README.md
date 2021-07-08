@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EXhwxOYeyFddyuVx-2HVhqw-t500x500.jpg">](https://soundcloud.com/lucaspot/neverglow-losing-control)
 
-**Artist**: Giuseppe Ottaviani 
+**Artist**: Lucas Pot Records 
 
-**Track**: Giuseppe Ottaviani & Cari - Beautiful
+**Track**: NEVERGLOW - Losing Control
 
-Last updated at 07/08/2021 09:38
+Last updated at 07/08/2021 12:07
