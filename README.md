@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000711705751-dl5xfb-t500x500.jpg">](https://soundcloud.com/rolexzofficial/s3rl-marceline-the-vampire-queen-rolexz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rS6T0lKcXPYZtrRa-Is1rXQ-t500x500.jpg">](https://soundcloud.com/lidafans/ali-uli-feat-s3rl)
 
-**Artist**: Rolexz 
+**Artist**: LIDA 
 
-**Track**: S3RL - Marceline The Vampire Queen (Rolexz Remix)
+**Track**: Али Ули [feat. S3RL]
 
-Last updated at 07/08/2021 07:33
+Last updated at 07/08/2021 07:35
