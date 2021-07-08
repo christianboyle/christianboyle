@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVgRlIf8safrLz5z-LbcSZA-t500x500.jpg">](https://soundcloud.com/snarewaves/04a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQtrgb8HCCZ5yiUu-RtpO3Q-t500x500.jpg">](https://soundcloud.com/justicehardcore/kacky-bad-chick-out-now)
 
-**Artist**: snarewaves 
+**Artist**: Justice Hardcore 
 
-**Track**: 04 マナーモード
+**Track**: Kacky - Bad Chick ⚠️OUT NOW⚠️
 
-Last updated at 07/08/2021 08:00
+Last updated at 07/08/2021 08:04
