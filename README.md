@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNDXW7cKLCY3kDTz-1ZL5mw-t500x500.jpg">](https://soundcloud.com/fishskale666/fishskale-big-pimpin)
 
-**Artist**: Giuseppe Ottaviani 
+**Artist**: Fi$HSK*LE 
 
-**Track**: Giuseppe Ottaviani & Cari - Beautiful
+**Track**: Fi$HSK*LE - BIG PIMPIN'
 
-Last updated at 07/08/2021 08:31
+Last updated at 07/08/2021 08:35
