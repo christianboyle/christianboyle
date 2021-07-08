@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQSsdqogU4PTIVgM-wyo1yA-t500x500.jpg">](https://soundcloud.com/spuke/tell-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGClf865QKYQzAO-9W4tkg-t500x500.jpg">](https://soundcloud.com/spuke/peaches)
 
 **Artist**: spüke 
 
-**Track**: tell me
+**Track**: peaches (spüke remix)
 
-Last updated at 07/08/2021 08:20
+Last updated at 07/08/2021 08:24
