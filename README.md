@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4UqzAiPQOVA82Xx-9camdw-t500x500.jpg">](https://soundcloud.com/vonstorm/madaf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrIyGizLZNRy1tr0-GMGaxQ-t500x500.jpg">](https://soundcloud.com/s3rl/not-alone-s3rl-ft-ella)
 
-**Artist**: VON STORM 
+**Artist**: S3RL 
 
-**Track**: MAD AF
+**Track**: Not Alone - S3RL ft Ella
 
-Last updated at 07/08/2021 09:20
+Last updated at 07/08/2021 09:22
