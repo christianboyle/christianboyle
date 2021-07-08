@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVgRlIf8safrLz5z-LbcSZA-t500x500.jpg">](https://soundcloud.com/snarewaves/04a)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSG5IwzLAdWq_JB78cQ_-VRy-wyvE1y-qYMtIQoEQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: snarewaves 
+**Artist**: S3RL 
 
-**Track**: 04 マナーモード
+**Track**: Not Alone - S3RL ft Ella
 
-Last updated at 07/07/2021 19:03
+Last updated at 07/08/2021 07:16
