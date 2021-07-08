@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-GF1m73M2jURp5rUw-5aqobg-t500x500.jpg">](https://soundcloud.com/x-up/s3rl-ft-lexi-earth-b-kaylife-sejixmusic-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000711705751-dl5xfb-t500x500.jpg">](https://soundcloud.com/rolexzofficial/s3rl-marceline-the-vampire-queen-rolexz-remix)
 
-**Artist**: KayLife! 
+**Artist**: Rolexz 
 
-**Track**: S3rl Ft Lexi - Earth B ( KayLife! & Sejixmusic Promo )
+**Track**: S3RL - Marceline The Vampire Queen (Rolexz Remix)
 
-Last updated at 07/08/2021 07:30
+Last updated at 07/08/2021 07:33
