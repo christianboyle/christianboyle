@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQtrgb8HCCZ5yiUu-RtpO3Q-t500x500.jpg">](https://soundcloud.com/justicehardcore/kacky-bad-chick-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFchop9u4J56qNtY-zrHCSw-t500x500.jpg">](https://soundcloud.com/moshemechant/real-life-cappin)
 
-**Artist**: Justice Hardcore 
+**Artist**: MOSHÉ 
 
-**Track**: Kacky - Bad Chick ⚠️OUT NOW⚠️
+**Track**: REAL LIFE CAPPIN W/FLOM
 
-Last updated at 07/08/2021 08:04
+Last updated at 07/08/2021 08:06
