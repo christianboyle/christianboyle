@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nv58HW5neyKy3B7W-jHuxXw-t500x500.jpg">](https://soundcloud.com/nuum/nuum-sakidasumi-angst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zohLtd3iKsCFx18-7pv1Zg-t500x500.jpg">](https://soundcloud.com/danlrk/goldfiish-remix)
 
-**Artist**: nuum 
+**Artist**: Dan Larkin 
 
-**Track**: nuum & Sakidasumi - Angst
+**Track**: SEBii - GOLDFiiSH (Dan Larkin Remix)
 
-Last updated at 07/08/2021 08:56
+Last updated at 07/08/2021 08:58
