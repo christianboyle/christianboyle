@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGX43Gf6YXwUNZNp-4uKM8A-t500x500.jpg">](https://soundcloud.com/user-956581289/s3rl-feat-kayliana-mc-riddle-all-that-i-need-vhs-sound-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-GF1m73M2jURp5rUw-5aqobg-t500x500.jpg">](https://soundcloud.com/x-up/s3rl-ft-lexi-earth-b-kaylife-sejixmusic-promo)
 
-**Artist**: VHS SOUND 
+**Artist**: KayLife! 
 
-**Track**: S3RL feat. Kayliana & MC Riddle - All That I Need (VHS SOUND remix)
+**Track**: S3rl Ft Lexi - Earth B ( KayLife! & Sejixmusic Promo )
 
-Last updated at 07/08/2021 07:28
+Last updated at 07/08/2021 07:30
