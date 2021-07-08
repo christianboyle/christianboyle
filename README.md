@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrIyGizLZNRy1tr0-GMGaxQ-t500x500.jpg">](https://soundcloud.com/s3rl/not-alone-s3rl-ft-ella)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EXhwxOYeyFddyuVx-2HVhqw-t500x500.jpg">](https://soundcloud.com/lucaspot/neverglow-losing-control)
 
-**Artist**: S3RL 
+**Artist**: Lucas Pot Records 
 
-**Track**: Not Alone - S3RL ft Ella
+**Track**: NEVERGLOW - Losing Control
 
-Last updated at 07/08/2021 12:13
+Last updated at 07/08/2021 15:53
