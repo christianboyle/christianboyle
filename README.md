@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSG5IwzLAdWq_JB78cQ_-VRy-wyvE1y-qYMtIQoEQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OXFvUL99Scynb8Mp-lhNtXA-t500x500.jpg">](https://soundcloud.com/s3rl/tripping-on-mushrooms-s3rl-ft-krystal)
 
 **Artist**: S3RL 
 
-**Track**: Not Alone - S3RL ft Ella
+**Track**: Tripping on Mushrooms - S3RL ft Krystal
 
-Last updated at 07/08/2021 07:16
+Last updated at 07/08/2021 07:20
