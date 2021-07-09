@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EXhwxOYeyFddyuVx-2HVhqw-t500x500.jpg">](https://soundcloud.com/lucaspot/neverglow-losing-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jT9m4b6zalLdg6yg-Ksl5zg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/stones-taro-to-rave-farsight-remix)
 
-**Artist**: Lucas Pot Records 
+**Artist**: Scuffed Recordings 
 
-**Track**: NEVERGLOW - Losing Control
+**Track**: Stones Taro - To Rave (Farsight Remix)
 
-Last updated at 07/08/2021 15:53
+Last updated at 07/09/2021 08:26
