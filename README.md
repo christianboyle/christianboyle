@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeW4T1mKXiBz2KUm-yZ2hFg-t500x500.jpg">](https://soundcloud.com/emojiheap/lost-sounds-2017-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMQSv4uOJ8eLz4G8-iTth9A-t500x500.jpg">](https://soundcloud.com/neyvo/destiny-1)
 
-**Artist**: Emoji Heap 
+**Artist**: NEYVO 
 
-**Track**: Lost Sounds 2017 mix
+**Track**: DESTINY
 
-Last updated at 07/09/2021 09:44
+Last updated at 07/09/2021 10:27
