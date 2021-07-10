@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586422209-nrovg7-t500x500.jpg">](https://soundcloud.com/gravedgrmusic/gravedgr-dabow-don-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000451070634-tbfzah-t500x500.jpg">](https://soundcloud.com/freakyofficial/4b-teez-whistle-freaky-flip-1)
 
-**Artist**: GRAVEDGR 
+**Artist**: FREAKY 
 
-**Track**: GRAVEDGR - DON (Ft. Dabow)
+**Track**: 4B & Teez - Whistle [FREAKY FLIP]
 
-Last updated at 07/10/2021 12:40
+Last updated at 07/10/2021 12:46
