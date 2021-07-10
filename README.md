@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ModvJaQIvjh0CeQ-jzUTdA-t500x500.jpg">](https://soundcloud.com/seal-network/070killzone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K52FI3ojcorB-0-t500x500.jpg">](https://soundcloud.com/strangefruitsmusic/steve-void-strange-fruits)
 
-**Artist**: Seal Network 
+**Artist**: Strange Fruits 
 
-**Track**: Nic Johnston X Stepuz - Killzone
+**Track**: Steve Void, Strange Fruits Music, & Koosen - Blue (Da Ba Dee)
 
-Last updated at 07/10/2021 10:25
+Last updated at 07/10/2021 10:27
