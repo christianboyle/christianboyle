@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000241843155-nu932n-t500x500.jpg">](https://soundcloud.com/festivaltrap/jefevipvargorevip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000583564622-ncypvf-t500x500.jpg">](https://soundcloud.com/dirtyaudio/dirty-audio-ft-karra-west-coaststoutty-remix)
 
-**Artist**: FESTIVAL TRAP 
+**Artist**: Dirty Audio 
 
-**Track**: Boombox Cartel - Jefe (VIP) [vargo's Jersey Re - VIP]
+**Track**: Dirty Audio ft. Karra - West Coast (Stoutty Remix)
 
-Last updated at 07/10/2021 11:32
+Last updated at 07/10/2021 11:33
