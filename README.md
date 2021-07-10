@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574985504-bmibdu-t500x500.jpg">](https://soundcloud.com/mybadfuckups/dj-snake-x-zomboy-quiet-storm-my-bad-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxkEclCkIo9DWEp7-WZPaFA-t500x500.jpg">](https://soundcloud.com/justicehardcore/loveonfireflip?in=justicehardcore/sets/o1ra-love-on-fire-kacky-uk)
 
-**Artist**: MY BAD F#*K UPS 
+**Artist**: Justice Hardcore 
 
-**Track**: DJ Snake x Zomboy - Quiet Storm (MY BAD Remix)
+**Track**: O1RA - Love On Fire (Kacky UK Hardcore Flip) ✅FREE DOWNLOAD✅
 
-Last updated at 07/10/2021 13:26
+Last updated at 07/10/2021 17:41
