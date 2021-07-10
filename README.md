@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000188376468-uey7e7-t500x500.jpg">](https://soundcloud.com/wavedeshsecret/rickyxsan-julius-c-breaking)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535590855-5md2rk-t500x500.jpg">](https://soundcloud.com/adamannella/star-power-flip-final)
 
-**Artist**: Pedro 
+**Artist**: Adam Annella 
 
-**Track**: Rickyxsan & Julius C. - Breaking that (ID)
+**Track**: WAVEDASH & QUEST - Star Power (Adam Annella Remix)
 
-Last updated at 07/10/2021 12:32
+Last updated at 07/10/2021 12:36
