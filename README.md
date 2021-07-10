@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lGeZe3bUzHsy5mqn-IvrFzQ-t500x500.jpg">](https://soundcloud.com/futurevibes/sslowly-flavour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-luGDg6gL3bjkap6z-CEfQlg-t500x500.jpg">](https://soundcloud.com/tsunderefanclubworldwide/emotegi-tokyo-bonito)
 
-**Artist**: Future Vibes 
+**Artist**: Tsundere Fan Club 
 
-**Track**: sSlowly - Flavour
+**Track**: emotegi - tokyo bonito
 
-Last updated at 07/10/2021 09:57
+Last updated at 07/10/2021 09:59
