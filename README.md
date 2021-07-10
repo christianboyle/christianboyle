@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506088510-a5d43k-t500x500.jpg">](https://soundcloud.com/authenticzmusic/oddprophet-check-authenticz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641350999-dhvvrm-t500x500.jpg">](https://soundcloud.com/djmi973/mi-stoutty-rock-like-this)
 
-**Artist**: AUTHENTICZ 
+**Artist**: djmi973 
 
-**Track**: ODDPROPHET - CHECK (AUTHENTICZ REMIX) [PLAYED AT ULTRA MIAMI, ULTRA EUROPE, EDC ORLANDO]
+**Track**: M.I. & Stoutty - Rock Like This
 
-Last updated at 07/10/2021 11:48
+Last updated at 07/10/2021 11:50
