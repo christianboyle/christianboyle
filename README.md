@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000437752797-kflx8g-t500x500.jpg">](https://soundcloud.com/vulturofficial/the-drop-wooli-flip-vs-the-drop-4b-x-nvrleft-remix-vs-jefe-seek-n-destroy-chief-street-remix-vs-deathwish-dj-snake-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574985504-bmibdu-t500x500.jpg">](https://soundcloud.com/mybadfuckups/dj-snake-x-zomboy-quiet-storm-my-bad-remix)
 
-**Artist**: VULTUR. 
+**Artist**: MY BAD F#*K UPS 
 
-**Track**: The Drop (Wooli Flip) vs. The Drop (4B X NvrLeft Remix) vs. Jefe vs. Deathwish (DJ Snake Edit)
+**Track**: DJ Snake x Zomboy - Quiet Storm (MY BAD Remix)
 
-Last updated at 07/10/2021 13:04
+Last updated at 07/10/2021 13:05
