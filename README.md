@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0AG1rXHENpHnAsRF-Bz4ONA-t500x500.jpg">](https://soundcloud.com/balamii/yam-records-w-95bones-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bmzg2l506MDvXogq-cNU7jA-t500x500.jpg">](https://soundcloud.com/coastrmusic/bad-habits-coastr-remix)
 
-**Artist**: Balamii 
+**Artist**: COASTR. 
 
-**Track**: YAM Records w/ 95Bones - July 2021
+**Track**: Ed Sheeran - Bad Habits (COASTR. Remix)
 
-Last updated at 07/10/2021 10:32
+Last updated at 07/10/2021 10:57
