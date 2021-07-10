@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000451070634-tbfzah-t500x500.jpg">](https://soundcloud.com/freakyofficial/4b-teez-whistle-freaky-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000526385745-kb99jm-t500x500.jpg">](https://soundcloud.com/saymynameofficial/down)
 
-**Artist**: FREAKY 
+**Artist**: SAYMYNAME 
 
-**Track**: 4B & Teez - Whistle [FREAKY FLIP]
+**Track**: DOWN
 
-Last updated at 07/10/2021 12:46
+Last updated at 07/10/2021 12:48
