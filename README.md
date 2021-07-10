@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000280371281-7x96dt-t500x500.jpg">](https://soundcloud.com/kauanphellipe/core-x-club-action-x-final-boss-dion-timmer-lost-lands-2017-mashup-kauan-phellipe-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000224237686-my2yx2-t500x500.jpg">](https://soundcloud.com/iamwkndwarrior/lil-uzi-vert-vs-crossnaders-x-voviii-money-longer-pound-that-pussy)
 
-**Artist**: KAUAN PHELLIPE ✪ 
+**Artist**: WKND Warrior 
 
-**Track**: Core x Club Action x Final Boss (Dion Timmer Lost Lands 2017 Mashup) [Kauan Phellipe Remake]
+**Track**: Lil Uzi Vert Vs Crossnaders X VOVIII - Money Longer So Pound That (WKND Warrior Edit)
 
-Last updated at 07/10/2021 12:26
+Last updated at 07/10/2021 12:28
