@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DvaIx1v8eaTPfyWU-NJ89JA-t500x500.jpg">](https://soundcloud.com/elijahsoltan/tongue-tied-pony-elijah-soltan-edit-mant-jesse-perez-da-baby-og-mix-in-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfdpjcSypdXvWs58-dJSSDg-t500x500.jpg">](https://soundcloud.com/mybadfuckups/the-kid-laroi-x-justin-bieber-stay-my-bad-remix)
 
-**Artist**: ELIJAH SOLTAN 
+**Artist**: MY BAD F#*K UPS 
 
-**Track**: TONGUE TIED / PONY - ELIJAH SOLTAN EDIT - MANT / JESSE PEREZ / DA BABY (OG MIX IN DL)
+**Track**: The Kid LAROI x Justin Bieber - Stay (MY BAD Remix)
 
-Last updated at 07/10/2021 10:03
+Last updated at 07/10/2021 10:07
