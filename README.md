@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000512055480-6jlin8-t500x500.jpg">](https://soundcloud.com/djafterfab/chicken-southside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000570977105-qbl9ip-t500x500.jpg">](https://soundcloud.com/mikeybarreneche/no-bystanders-re-crank-vs-zoom-mikey-barreneche-edit)
 
-**Artist**: afterfab 
+**Artist**: MIKEY BARRENECHE 
 
-**Track**: DJ SNAKE x EPTIC x Skrillex x Habstrakt - Chicken Southside (Afterfab Flip) [PLAYED @ EDC BY RAWTEK]
+**Track**: No Bystanders (Re-Crank) vs Zoom (Mikey Barreneche Edit)
 
-Last updated at 07/10/2021 11:23
+Last updated at 07/10/2021 11:25
