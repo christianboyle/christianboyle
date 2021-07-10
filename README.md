@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000570977105-qbl9ip-t500x500.jpg">](https://soundcloud.com/mikeybarreneche/no-bystanders-re-crank-vs-zoom-mikey-barreneche-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000367023048-25qdqk-t500x500.jpg">](https://soundcloud.com/moosubi/gammer-the-drop-moosubi-remix)
 
-**Artist**: MIKEY BARRENECHE 
+**Artist**: MOOSUBI 
 
-**Track**: No Bystanders (Re-Crank) vs Zoom (Mikey Barreneche Edit)
+**Track**: Gammer - The Drop (Moosubi Remix)
 
-Last updated at 07/10/2021 11:25
+Last updated at 07/10/2021 11:29
