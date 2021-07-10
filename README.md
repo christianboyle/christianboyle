@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360299487-m7tv92-t500x500.jpg">](https://soundcloud.com/wearefomomusic/nitti-gritti-crack-fomo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000405455586-yo62fc-t500x500.jpg">](https://soundcloud.com/vrg_vault/boombox-cartel-jefe-vip-vrg-re-vip-vip)
 
-**Artist**: FOMO 
+**Artist**: THE VRG VAULT 
 
-**Track**: Nitti Gritti - Crack (FOMO Remix)
+**Track**: BOOMBOX CARTEL - JEFE (VIP) (VRG RE - VIP) (VIP)
 
-Last updated at 07/10/2021 12:03
+Last updated at 07/10/2021 12:05
