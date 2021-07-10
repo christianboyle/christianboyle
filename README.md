@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000297390549-6ab3nx-t500x500.jpg">](https://soundcloud.com/itsbrisky/trampa-runners-blvk-sheep-edit-sirenz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228088129-g1x5bh-t500x500.jpg">](https://soundcloud.com/janu_music/get-right-propawawa-janu-flip)
 
-**Artist**: BRISKY 
+**Artist**: JANU 
 
-**Track**: Trampa - Runners (Blvk Sheep Edit) [BRISKY JERSEY FLIP]
+**Track**: Get Right PropaWawa (JANU Flip)
 
-Last updated at 07/10/2021 12:20
+Last updated at 07/10/2021 12:24
