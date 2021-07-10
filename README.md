@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000584456879-r0edax-t500x500.jpg">](https://soundcloud.com/itsbraveaux/the-devils-den-andor-x-braveaux-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641259784-3mzxyn-t500x500.jpg">](https://soundcloud.com/jstjr/jstjr-x-rawtek-go-stoopid-1)
 
-**Artist**: BRAVEAUX 
+**Artist**: JSTJR 
 
-**Track**: The Devil's Den (AND//OR x BRAVEAUX REMIX)
+**Track**: JSTJR x Rawtek - Go Stoopid
 
-Last updated at 07/10/2021 12:07
+Last updated at 07/10/2021 12:11
