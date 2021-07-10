@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000573104303-vhcr53-t500x500.jpg">](https://soundcloud.com/stylesandcomplete/05-tisoki-watgood-relate-etc-etc-stylescomplete-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-T8QSeORyfHj3o0hK-g6elww-t500x500.jpg">](https://soundcloud.com/dj-unidentified_song/rl-grime-core-dion-timmer-edit-dj-id-extended-mix)
 
-**Artist**: SNC 
+**Artist**: Quadacity 
 
-**Track**: Tisoki & Watgood - Relate (ETC! ETC! & Styles&Complete Remix) (OUT ON DIM MAK)
+**Track**: RL Grime - Core (Dion Timmer Edit) [DJ I.D. Extended Mix]
 
-Last updated at 07/10/2021 11:56
+Last updated at 07/10/2021 11:59
