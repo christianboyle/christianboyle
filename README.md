@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RkJz8le9QOYiUzAe-MSQALQ-t500x500.jpg">](https://soundcloud.com/subsidia/inhuman-omas-rapture)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ZBqfLRAuTrZ5Q13-F8e6Pw-t500x500.jpg">](https://soundcloud.com/kagwe/who-dealt-it)
 
-**Artist**: Subsidia 
+**Artist**: KΛGWΣ 
 
-**Track**: INHUMAN & OMAS - Rapture ft. Les Gold & Snowhite
+**Track**: who dealt it?
 
-Last updated at 07/10/2021 10:19
+Last updated at 07/10/2021 10:23
