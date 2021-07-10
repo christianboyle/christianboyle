@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000454396146-70wj51-t500x500.jpg">](https://soundcloud.com/hybrid-v/dmvu-bloccd-hybrid-v-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000471533526-u6p56e-t500x500.jpg">](https://soundcloud.com/barongfamily/freekill-bomb-preview)
 
-**Artist**: HYBRID V 
+**Artist**: Barong Family 
 
-**Track**: DMVU - Bloccd (Hybrid V Remix)
+**Track**: Freekill - Bomb [OUT NOW]
 
-Last updated at 07/10/2021 12:58
+Last updated at 07/10/2021 13:02
