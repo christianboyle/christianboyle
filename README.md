@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeW4T1mKXiBz2KUm-yZ2hFg-t500x500.jpg">](https://soundcloud.com/emojiheap/lost-sounds-2017-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lGeZe3bUzHsy5mqn-IvrFzQ-t500x500.jpg">](https://soundcloud.com/futurevibes/sslowly-flavour)
 
-**Artist**: Emoji Heap 
+**Artist**: Future Vibes 
 
-**Track**: Lost Sounds 2017 mix
+**Track**: sSlowly - Flavour
 
-Last updated at 07/09/2021 10:31
+Last updated at 07/10/2021 09:57
