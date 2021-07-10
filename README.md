@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-luGDg6gL3bjkap6z-CEfQlg-t500x500.jpg">](https://soundcloud.com/tsunderefanclubworldwide/emotegi-tokyo-bonito)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DvaIx1v8eaTPfyWU-NJ89JA-t500x500.jpg">](https://soundcloud.com/elijahsoltan/tongue-tied-pony-elijah-soltan-edit-mant-jesse-perez-da-baby-og-mix-in-dl)
 
-**Artist**: Tsundere Fan Club 
+**Artist**: ELIJAH SOLTAN 
 
-**Track**: emotegi - tokyo bonito
+**Track**: TONGUE TIED / PONY - ELIJAH SOLTAN EDIT - MANT / JESSE PEREZ / DA BABY (OG MIX IN DL)
 
-Last updated at 07/10/2021 09:59
+Last updated at 07/10/2021 10:03
