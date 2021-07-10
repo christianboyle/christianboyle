@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dc7iQqiBYUUeQ12l-J2qLUw-t500x500.jpg">](https://soundcloud.com/vulkansound/4b-x-aazar-pop-dat-vulkan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380861418-chmrtk-t500x500.jpg">](https://soundcloud.com/itsbraveaux/rl-grime-era-braveaux-remix-free-dl)
 
-**Artist**: VULKAN 
+**Artist**: BRAVEAUX 
 
-**Track**: 4B X AAZAR - Pop Dat (VulKan Remix)
+**Track**: RL Grime - Era (BRAVEAUX REMIX)
 
-Last updated at 07/10/2021 11:17
+Last updated at 07/10/2021 11:19
