@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8TjIT41C19ELwAp-bS1qww-t500x500.jpg">](https://soundcloud.com/zeusfeedz/12-gauge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q7jE1ANbkoRFFu2r-1dpZ0w-t500x500.jpg">](https://soundcloud.com/bsterthegawd/4evr-w-pandi)
 
-**Artist**: ZEU$ 
+**Artist**: bsterthegawd 
 
-**Track**: 12 GAUGE
+**Track**: 4evr w/ pandi
 
-Last updated at 07/10/2021 10:59
+Last updated at 07/10/2021 11:01
