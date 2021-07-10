@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535590855-5md2rk-t500x500.jpg">](https://soundcloud.com/adamannella/star-power-flip-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000442710996-0gwe42-t500x500.jpg">](https://soundcloud.com/authenticzmusic/gld-vrg-monsters-in-our-head-authenticz-remix)
 
-**Artist**: Adam Annella 
+**Artist**: AUTHENTICZ 
 
-**Track**: WAVEDASH & QUEST - Star Power (Adam Annella Remix)
+**Track**: GLD & VRG - MONSTERS IN OUR HEAD [AUTHENTICZ REMIX]
 
-Last updated at 07/10/2021 12:36
+Last updated at 07/10/2021 12:38
