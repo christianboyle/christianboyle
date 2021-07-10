@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000604484140-n2moy7-t500x500.jpg">](https://soundcloud.com/maca-music/michael-sparks-cash-out-stoutty-x-rose-dawn-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574985504-bmibdu-t500x500.jpg">](https://soundcloud.com/mybadfuckups/dj-snake-x-zomboy-quiet-storm-my-bad-remix)
 
-**Artist**: MACA 
+**Artist**: MY BAD F#*K UPS 
 
-**Track**: Michael Sparks - Cash Out (Stoutty X Rose Dawn Remix)
+**Track**: DJ Snake x Zomboy - Quiet Storm (MY BAD Remix)
 
-Last updated at 07/10/2021 13:24
+Last updated at 07/10/2021 13:26
