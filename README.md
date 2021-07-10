@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfdpjcSypdXvWs58-dJSSDg-t500x500.jpg">](https://soundcloud.com/mybadfuckups/the-kid-laroi-x-justin-bieber-stay-my-bad-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000574985504-bmibdu-t500x500.jpg">](https://soundcloud.com/mybadfuckups/dj-snake-x-zomboy-quiet-storm-my-bad-remix)
 
 **Artist**: MY BAD F#*K UPS 
 
-**Track**: The Kid LAROI x Justin Bieber - Stay (MY BAD Remix)
+**Track**: DJ Snake x Zomboy - Quiet Storm (MY BAD Remix)
 
-Last updated at 07/10/2021 10:07
+Last updated at 07/10/2021 10:09
