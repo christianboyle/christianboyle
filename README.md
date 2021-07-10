@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000545978100-66owfl-t500x500.jpg">](https://soundcloud.com/thelitlords/old-town-road-lit-lords-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000506088510-a5d43k-t500x500.jpg">](https://soundcloud.com/authenticzmusic/oddprophet-check-authenticz-remix)
 
-**Artist**: Lit Lords 
+**Artist**: AUTHENTICZ 
 
-**Track**: Lil Nas X, Billy Ray Cyrus - Old Town Road (Lit Lords Remix)
+**Track**: ODDPROPHET - CHECK (AUTHENTICZ REMIX) [PLAYED AT ULTRA MIAMI, ULTRA EUROPE, EDC ORLANDO]
 
-Last updated at 07/10/2021 11:46
+Last updated at 07/10/2021 11:48
