@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000224237686-my2yx2-t500x500.jpg">](https://soundcloud.com/iamwkndwarrior/lil-uzi-vert-vs-crossnaders-x-voviii-money-longer-pound-that-pussy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000188376468-uey7e7-t500x500.jpg">](https://soundcloud.com/wavedeshsecret/rickyxsan-julius-c-breaking)
 
-**Artist**: WKND Warrior 
+**Artist**: Pedro 
 
-**Track**: Lil Uzi Vert Vs Crossnaders X VOVIII - Money Longer So Pound That (WKND Warrior Edit)
+**Track**: Rickyxsan & Julius C. - Breaking that (ID)
 
-Last updated at 07/10/2021 12:28
+Last updated at 07/10/2021 12:32
