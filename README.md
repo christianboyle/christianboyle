@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zupwaXvLktpzgQxp-NKRazg-t500x500.jpg">](https://soundcloud.com/bunny_jp/bella-poarch-build-a-bitch-bunny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lGeZe3bUzHsy5mqn-IvrFzQ-t500x500.jpg">](https://soundcloud.com/futurevibes/sslowly-flavour)
 
-**Artist**: ///BUNNY/// NEW ACCOUNT 
+**Artist**: Future Vibes 
 
-**Track**: Bella Poarch - Build a B*tch (BUNNY "Alt-Rock" Remix)
+**Track**: sSlowly - Flavour
 
-Last updated at 07/11/2021 10:02
+Last updated at 07/11/2021 14:22
