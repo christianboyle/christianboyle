@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQT7bazUvAnETDjW-9aGqQqZw_frRbAUrTs1bIGwQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCbcUt4SAP587pHR4v9O60aA)
 
-**Artist**: Giuseppe Ottaviani 
+**Artist**: Jamie xx 
 
-**Track**: Giuseppe Ottaviani & Cari - Beautiful
+**Track**: Gosh (Official Music Video)
 
-Last updated at 07/11/2021 16:36
+Last updated at 07/11/2021 18:48
