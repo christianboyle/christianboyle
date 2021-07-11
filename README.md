@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKHX8O0tcpe72WlY-5QSjFQ-t500x500.jpg">](https://soundcloud.com/calliereiff/heart-aint-safe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EXhwxOYeyFddyuVx-2HVhqw-t500x500.jpg">](https://soundcloud.com/lucaspot/neverglow-losing-control)
 
-**Artist**: Callie Reiff 
+**Artist**: Lucas Pot Records 
 
-**Track**: Callie Reiff and Kaeyra - Heart Ain't Safe
+**Track**: NEVERGLOW - Losing Control
 
-Last updated at 07/11/2021 16:12
+Last updated at 07/11/2021 16:16
