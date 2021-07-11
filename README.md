@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lGeZe3bUzHsy5mqn-IvrFzQ-t500x500.jpg">](https://soundcloud.com/futurevibes/sslowly-flavour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fy2Nzkg1idKWpDTH-zWgWQw-t500x500.jpg">](https://soundcloud.com/delusional-dan/therapy)
 
-**Artist**: Future Vibes 
+**Artist**: Delusionaldan 
 
-**Track**: sSlowly - Flavour
+**Track**: Therapy prod. Wolph
 
-Last updated at 07/11/2021 14:22
+Last updated at 07/11/2021 14:24
