@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVgRlIf8safrLz5z-LbcSZA-t500x500.jpg">](https://soundcloud.com/snarewaves/04a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAhy80EcAQUH-0-t500x500.png">](https://soundcloud.com/giuseppeottaviani/giuseppe-ottaviani-cari)
 
-**Artist**: snarewaves 
+**Artist**: Giuseppe Ottaviani 
 
-**Track**: 04 マナーモード
+**Track**: Giuseppe Ottaviani & Cari - Beautiful
 
-Last updated at 07/11/2021 16:32
+Last updated at 07/11/2021 16:36
