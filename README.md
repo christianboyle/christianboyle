@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hE9gqCGMpkxdZ1ZM-N6o2zQ-t500x500.jpg">](https://soundcloud.com/sofflee/faye-sofflee-screams-and-dreams-staying-friends?in=addal/sets/chill-summer-songs-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000529414740-himcbz-t500x500.jpg">](https://soundcloud.com/cupidomusic/cupido-crazy?in=addal/sets/chill-summer-songs-2021)
 
-**Artist**: Sofflee 
+**Artist**: Cupido 
 
-**Track**: Faye & Sofflee - Screams and Dreams (Staying Friends)
+**Track**: Cupido - Crazy
 
-Last updated at 07/12/2021 08:25
+Last updated at 07/12/2021 08:27
