@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY8Re5lHDYJ7fZ9z-4Wse7g-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-mix-94)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-howTa0cN90rDuJvC-faaeXA-t500x500.jpg">](https://soundcloud.com/hierophant/3rd-july)
 
-**Artist**: Novel 
+**Artist**: paul hierophant 
 
-**Track**: Novelcast 95: Freddie Fiasco
+**Track**: State of Play 03/07/2021 - ADJ cratedigs.com
 
-Last updated at 07/12/2021 08:40
+Last updated at 07/12/2021 13:12
