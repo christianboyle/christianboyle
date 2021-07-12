@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLTuVRR4W4jQPHugGHaYIyV10OLRKsme3pNYKQXl=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCD53U3HUF8CJW2cRdLzQexQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY8Re5lHDYJ7fZ9z-4Wse7g-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-mix-94)
 
-**Artist**: The xx 
+**Artist**: Novel 
 
-**Track**: Sunset (Jamie xx Edit)
+**Track**: Novelcast 95: Freddie Fiasco
 
-Last updated at 07/11/2021 19:28
+Last updated at 07/12/2021 07:40
