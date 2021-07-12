@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY8Re5lHDYJ7fZ9z-4Wse7g-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-mix-94)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5VXkDUFnyYVNTU4-9EcPIg-t500x500.jpg">](https://soundcloud.com/perditioinc/pando-g-your-soul)
 
-**Artist**: Novel 
+**Artist**: Perditio 
 
-**Track**: Novelcast 95: Freddie Fiasco
+**Track**: Pando G - Your Soul (Original Mix)
 
-Last updated at 07/12/2021 07:40
+Last updated at 07/12/2021 07:54
