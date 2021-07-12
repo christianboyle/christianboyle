@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5VXkDUFnyYVNTU4-9EcPIg-t500x500.jpg">](https://soundcloud.com/perditioinc/pando-g-your-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WMJkZrNpGqANXYl5-QvEgrw-t500x500.jpg">](https://soundcloud.com/cupidomusic/cupido-babe-1?in=addal/sets/chill-summer-songs-2021)
 
-**Artist**: Perditio 
+**Artist**: Cupido 
 
-**Track**: Pando G - Your Soul (Original Mix)
+**Track**: Cupido - Babe
 
-Last updated at 07/12/2021 07:54
+Last updated at 07/12/2021 07:56
