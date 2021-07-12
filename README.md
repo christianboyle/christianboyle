@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rY8Re5lHDYJ7fZ9z-4Wse7g-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-mix-94)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3hUEjUPEZGKuDBf-97aq1A-t500x500.jpg">](https://soundcloud.com/milkfish4k4k4k/can-you-fast-my-furious)
 
-**Artist**: Novel 
+**Artist**: Milkfish 
 
-**Track**: Novelcast 95: Freddie Fiasco
+**Track**: CAN YOU FAST MY FURIOUS
 
-Last updated at 07/12/2021 15:05
+Last updated at 07/12/2021 18:20
