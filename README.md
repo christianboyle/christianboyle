@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcokT8Ly5Dn8qEJQ-DPrMLw-t500x500.jpg">](https://soundcloud.com/addal/addal-angels?in=addal/sets/chill-summer-songs-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hE9gqCGMpkxdZ1ZM-N6o2zQ-t500x500.jpg">](https://soundcloud.com/sofflee/faye-sofflee-screams-and-dreams-staying-friends?in=addal/sets/chill-summer-songs-2021)
 
-**Artist**: ADDAL 
+**Artist**: Sofflee 
 
-**Track**: Addal - Angels
+**Track**: Faye & Sofflee - Screams and Dreams (Staying Friends)
 
-Last updated at 07/12/2021 08:00
+Last updated at 07/12/2021 08:25
