@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SxRfN0NVvgaPcZD-N1juQQ-t500x500.jpg">](https://soundcloud.com/dropcentral/madden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7NzW2QcdRTJzXVl-z78avg-t500x500.jpg">](https://soundcloud.com/historyofhappyhardcore/euros-final-mini-sesh-live-on-twitch-11721)
 
-**Artist**: Drop Central 💧 
+**Artist**: History Of Happy Hardcore 
 
-**Track**: Lionç - Madden
+**Track**: Euros Final Mini Sesh (Live On Twitch 11/7/21)
 
-Last updated at 07/13/2021 17:35
+Last updated at 07/13/2021 17:39
