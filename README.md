@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7AWsWKg10Nd2RzZ8-sG2XyA-t500x500.jpg">](https://soundcloud.com/balamii/slug-club-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cxg4L79GMB4zVHF5-4np4PA-t500x500.jpg">](https://soundcloud.com/nightcub/physical-kryptonite)
 
-**Artist**: Balamii 
+**Artist**: Nightcub Singles 
 
-**Track**: Slug Club - July 2021
+**Track**: Physical Kryptonite (Purple Ribbon All-Stars // Dua Lipa)
 
-Last updated at 07/13/2021 09:33
+Last updated at 07/13/2021 17:33
