@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cxg4L79GMB4zVHF5-4np4PA-t500x500.jpg">](https://soundcloud.com/nightcub/physical-kryptonite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SxRfN0NVvgaPcZD-N1juQQ-t500x500.jpg">](https://soundcloud.com/dropcentral/madden)
 
-**Artist**: Nightcub Singles 
+**Artist**: Drop Central 💧 
 
-**Track**: Physical Kryptonite (Purple Ribbon All-Stars // Dua Lipa)
+**Track**: Lionç - Madden
 
-Last updated at 07/13/2021 17:33
+Last updated at 07/13/2021 17:35
