@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZDKVFPScIbNKM3rw-ZBb3Sw-t500x500.jpg">](https://soundcloud.com/shallnotfade/tinwhite007-frankel-harper-time-is-now-white-vol7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTOD3XtHFYPqquU0-z7ZBEA-t500x500.jpg">](https://soundcloud.com/arivamusic/ng-feat-runn-where-i-belong-am-remix)
 
-**Artist**: Shall Not Fade 
+**Artist**: Ariva Music 
 
-**Track**: TINWHITE007 // Frankel & Harper - Time Is Now White Vol.7
+**Track**: NG FEAT. RUNN - WHERE I BELONG (AM REMIX)
 
-Last updated at 07/13/2021 08:31
+Last updated at 07/13/2021 08:39
