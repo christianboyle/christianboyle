@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JZYGvps4egjyhXQr-vfL7dg-t500x500.jpg">](https://soundcloud.com/balamii/dansu-discs-w-hutch-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNYCsiKEzGFa5aS9-h60p8w-t500x500.jpg">](https://soundcloud.com/colson_xl/you-still-alone-w-eazyly-rvchl-nsolo)
 
-**Artist**: Balamii 
+**Artist**: Colson XL 
 
-**Track**: Dansu Discs w/ Hutch - July 2021
+**Track**: You Still Alone w/ Eazyly, RVCHL, Nsolo
 
-Last updated at 07/12/2021 19:24
+Last updated at 07/13/2021 07:55
