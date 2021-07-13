@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WfbEnEnUtNzKtnvP-fiSXWQ-t500x500.jpg">](https://soundcloud.com/highrollersonly/wated-loud-luxury-nxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEqvTWUzMZYu71jq-nu9fHg-t500x500.jpg">](https://soundcloud.com/beatlabradio/ivoryghost-exclusive-mix-beat-lab-radio-343)
 
-**Artist**: highrollersonly 
+**Artist**: Beat Lab Radio 
 
-**Track**: WA$TED NXC
+**Track**: Ivoryghost - Exclusive Mix - Beat Lab Radio 343
 
-Last updated at 07/12/2021 18:26
+Last updated at 07/12/2021 19:10
