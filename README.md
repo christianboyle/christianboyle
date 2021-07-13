@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9z5uxS2ycFlIISs-tCT7fw-t500x500.jpg">](https://soundcloud.com/dnballstars/dnb-allstars-mix-030-w-napes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZDKVFPScIbNKM3rw-ZBb3Sw-t500x500.jpg">](https://soundcloud.com/shallnotfade/tinwhite007-frankel-harper-time-is-now-white-vol7)
 
-**Artist**: DnB Allstars 
+**Artist**: Shall Not Fade 
 
-**Track**: DNB Allstars Mix 030 w/ Napes
+**Track**: TINWHITE007 // Frankel & Harper - Time Is Now White Vol.7
 
-Last updated at 07/13/2021 07:57
+Last updated at 07/13/2021 08:31
