@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N1HP00yoHtB9jj5V-v0U3LA-t500x500.jpg">](https://soundcloud.com/brokensyndicate/reginald-leftright-windows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m6nlRmUtRykcPHUV-ytXtjw-t500x500.jpg">](https://soundcloud.com/robokidonline/on-my-knees)
 
-**Artist**: BRØKEN 
+**Artist**: robokid 
 
-**Track**: REGINALD, LEFT/RIGHT | WINDOWS
+**Track**: ON MY KNEES
 
-Last updated at 07/14/2021 14:25
+Last updated at 07/14/2021 14:27
