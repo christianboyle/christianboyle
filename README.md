@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CUyIibWk6b4hG6o3-3LQylA-t500x500.jpg">](https://soundcloud.com/overviewuk/gyrofield-popcorn?in=gyrofieldmusic/sets/afters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKJGQHGJdJa9k2tr-YPTvqA-t500x500.png">](https://soundcloud.com/rinsefm/mallgrab070721)
 
-**Artist**: Overview Music 
+**Artist**: Rinse FM 
 
-**Track**: gyrofield - Popcorn
+**Track**: Mall Grab b2b KETTAMA - 07 July 2021
 
-Last updated at 07/14/2021 07:09
+Last updated at 07/14/2021 07:11
