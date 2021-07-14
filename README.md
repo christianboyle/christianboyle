@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSGaa91TAjbwYI5JOtx015zQLNFnmMMPJ_sqSPMUA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCjNpCOBtNDyk7kcs-wrX_dg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKJGQHGJdJa9k2tr-YPTvqA-t500x500.png">](https://soundcloud.com/rinsefm/mallgrab070721)
 
-**Artist**: Chris Luno 
+**Artist**: Rinse FM 
 
-**Track**: house & deep house melodic vinyl mix
+**Track**: Mall Grab b2b KETTAMA - 07 July 2021
 
-Last updated at 07/14/2021 08:47
+Last updated at 07/14/2021 08:57
