@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m6nlRmUtRykcPHUV-ytXtjw-t500x500.jpg">](https://soundcloud.com/robokidonline/on-my-knees)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0AG1rXHENpHnAsRF-Bz4ONA-t500x500.jpg">](https://soundcloud.com/balamii/yam-records-w-95bones-july-2021)
 
-**Artist**: robokid 
+**Artist**: Balamii 
 
-**Track**: ON MY KNEES
+**Track**: YAM Records w/ 95Bones - July 2021
 
-Last updated at 07/14/2021 14:27
+Last updated at 07/14/2021 14:34
