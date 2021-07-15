@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-alzgnz2AMNksDiQF-3rG8rQ-t500x500.jpg">](https://soundcloud.com/shmittee/falling-down-shmittee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BbaDoDwa7QZZeFKK-ppZxBg-t500x500.jpg">](https://soundcloud.com/usbbo1/globoy-run-it)
 
-**Artist**: Shmittee 
+**Artist**: usbbo1 
 
-**Track**: Falling Down
+**Track**: we really dont prod heroindior x yuno
 
-Last updated at 07/15/2021 14:09
+Last updated at 07/15/2021 14:11
