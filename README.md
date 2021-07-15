@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669087241-tbzazm-t500x500.jpg">](https://soundcloud.com/baynk/down-feat-golden-vessel-akurei?in=baynk/sets/a-study-in-movement)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nuuv6uoIPjdnMo6j-qx0dtA-t500x500.jpg">](https://soundcloud.com/openlabradio/young-ethics-022-dj-seinfeld)
 
-**Artist**: BAYNK 
+**Artist**: OpenLab Radio 
 
-**Track**: DOWN (feat. Golden Vessel & Akurei)
+**Track**: Young Ethics 022 - DJ Seinfeld
 
-Last updated at 07/15/2021 08:46
+Last updated at 07/15/2021 08:48
