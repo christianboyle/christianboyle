@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydrOhdntXYK0oLXR-Q0KY0g-t500x500.jpg">](https://soundcloud.com/baynk/esther-feat-tinashe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669087241-tbzazm-t500x500.jpg">](https://soundcloud.com/baynk/down-feat-golden-vessel-akurei?in=baynk/sets/a-study-in-movement)
 
 **Artist**: BAYNK 
 
-**Track**: Esther feat Tinashe
+**Track**: DOWN (feat. Golden Vessel & Akurei)
 
-Last updated at 07/15/2021 08:44
+Last updated at 07/15/2021 08:46
