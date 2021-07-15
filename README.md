@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4bWrlK9KXEmny5fu-0fbZ1g-t500x500.jpg">](https://soundcloud.com/killabiteofficial/rickie-nolls-learning-how-to-love-feat-troves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xuWcb2ckjw2iXoWs-kFBBhg-t500x500.jpg">](https://soundcloud.com/yawdel/cr468-03-yawdel-my-own-feat?in=yawdel/sets/soul-curation)
 
-**Artist**: Killabite Media 
+**Artist**: YAWDEL 
 
-**Track**: Rickie Nolls - Learning How To Love (feat. TRØVES)
+**Track**: My Own Feat Justo The MC
 
-Last updated at 07/15/2021 14:13
+Last updated at 07/15/2021 14:15
