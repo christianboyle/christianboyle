@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbp3yoXM1qd7ZAzq-vXWyVA-t500x500.jpg">](https://soundcloud.com/dukeandjones/reflection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nuuv6uoIPjdnMo6j-qx0dtA-t500x500.jpg">](https://soundcloud.com/openlabradio/young-ethics-022-dj-seinfeld)
 
-**Artist**: Duke & Jones 
+**Artist**: OpenLab Radio 
 
-**Track**: Reflection
+**Track**: Young Ethics 022 - DJ Seinfeld
 
-Last updated at 07/15/2021 15:43
+Last updated at 07/15/2021 15:47
