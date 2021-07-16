@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiQOzjge8REeENqZ-uyLGoQ-t500x500.jpg">](https://soundcloud.com/officialnohero/the-kid-laroi-justin-bieber-stay-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mo85bmSmNMsbnRwN-dXurJw-t500x500.jpg">](https://soundcloud.com/belaircollectif/la-darude-mix-series-08-lobsta-b)
 
-**Artist**: No Hero 
+**Artist**: BEL AIR Sounds 
 
-**Track**: The Kid LAROI, Justin Bieber - Stay (No Hero Remix)
+**Track**: La Darude Mix Series 08: Lobsta B
 
-Last updated at 07/16/2021 08:51
+Last updated at 07/16/2021 08:53
