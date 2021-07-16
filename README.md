@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLT2U3HkpOARJ2yP1JxtbmbX3APLO0_7PPjfQuuQgg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCxuYPUdTZHRZKVRZ1km1plw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyYUTrec5q4OzoqG-TXfM3w-t500x500.jpg">](https://soundcloud.com/officialmedasin/africa-1)
 
-**Artist**: Bryan Adams 
+**Artist**: medasin 
 
-**Track**: Summer Of '69 (Official Music Video)
+**Track**: Africa
 
-Last updated at 07/16/2021 17:12
+Last updated at 07/16/2021 17:14
