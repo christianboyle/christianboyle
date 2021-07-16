@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLT2U3HkpOARJ2yP1JxtbmbX3APLO0_7PPjfQuuQgg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCxuYPUdTZHRZKVRZ1km1plw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mo85bmSmNMsbnRwN-dXurJw-t500x500.jpg">](https://soundcloud.com/belaircollectif/la-darude-mix-series-08-lobsta-b)
 
-**Artist**: 
-  
-    Bryan Adams
-  
-  
-  
-    Bryan Adams
-  
+**Artist**: BEL AIR Sounds 
 
+**Track**: La Darude Mix Series 08: Lobsta B
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Bryan Adams - Summer Of '69 (Official Music Video)
-
-Last updated at 07/16/2021 10:11
+Last updated at 07/16/2021 10:22
