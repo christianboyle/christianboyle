@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mo85bmSmNMsbnRwN-dXurJw-t500x500.jpg">](https://soundcloud.com/belaircollectif/la-darude-mix-series-08-lobsta-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNb358zrjYJku5S3-bksI0Q-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/knightrider)
 
-**Artist**: BEL AIR Sounds 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: La Darude Mix Series 08: Lobsta B
+**Track**: ERBES - Knight Rider
 
-Last updated at 07/16/2021 10:22
+Last updated at 07/16/2021 12:18
