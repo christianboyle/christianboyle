@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQ-A9Tf3ATzC8Il1D0I5Wxn-SDTnuW8kUJQf3Kg-g=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCMasYklV4R1r6q3-YeBSnwQ)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLT2U3HkpOARJ2yP1JxtbmbX3APLO0_7PPjfQuuQgg=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCxuYPUdTZHRZKVRZ1km1plw)
 
-**Artist**: Prospa 
+**Artist**: Bryan Adams 
 
-**Track**: WANT NEED LOVE (Official Video)
+**Track**: Summer Of '69 (Official Music Video)
 
-Last updated at 07/16/2021 17:04
+Last updated at 07/16/2021 17:12
