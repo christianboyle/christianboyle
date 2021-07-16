@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNb358zrjYJku5S3-bksI0Q-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/knightrider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1uVg5LOgQ5ai-0-t500x500.png">](https://soundcloud.com/audien/audien-fall-into-place-album?in=audien/sets/fall-into-place-5)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Audien 
 
-**Track**: ERBES - Knight Rider
+**Track**: Audien - Fall Into Place
 
-Last updated at 07/16/2021 12:18
+Last updated at 07/16/2021 12:20
