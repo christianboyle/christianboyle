@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XWcUFrVzPrioofNi-BUYJaw-t500x500.jpg">](https://soundcloud.com/untalentedtapes/ocean-scary-phunky-killa?in=untalentedtapes/sets/summa-wit-dis-click)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiQOzjge8REeENqZ-uyLGoQ-t500x500.jpg">](https://soundcloud.com/officialnohero/the-kid-laroi-justin-bieber-stay-no-hero-remix)
 
-**Artist**: UNTALENTED TAPES 
+**Artist**: No Hero 
 
-**Track**: OCEAN SCARY - PHUNKY KILLA
+**Track**: The Kid LAROI, Justin Bieber - Stay (No Hero Remix)
 
-Last updated at 07/15/2021 17:13
+Last updated at 07/16/2021 08:51
