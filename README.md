@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nuuv6uoIPjdnMo6j-qx0dtA-t500x500.jpg">](https://soundcloud.com/openlabradio/young-ethics-022-dj-seinfeld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRnC0yMu1XTDbQJN-eY0EkQ-t500x500.jpg">](https://soundcloud.com/nakura-1/jump-jump-remix)
 
-**Artist**: OpenLab Radio 
+**Artist**: Nakura / Audio Vitamin 
 
-**Track**: Young Ethics 022 - DJ Seinfeld
+**Track**: Nordic Stars - Jump Jump (Nakura Remix) [FREE DOWNLOAD]
 
-Last updated at 07/17/2021 11:19
+Last updated at 07/17/2021 18:21
