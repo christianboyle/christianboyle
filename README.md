@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSG5IwzLAdWq_JB78cQ_-VRy-wyvE1y-qYMtIQoEQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nuuv6uoIPjdnMo6j-qx0dtA-t500x500.jpg">](https://soundcloud.com/openlabradio/young-ethics-022-dj-seinfeld)
 
-**Artist**: S3RL 
+**Artist**: OpenLab Radio 
 
-**Track**: Not Alone - S3RL ft Ella
+**Track**: Young Ethics 022 - DJ Seinfeld
 
-Last updated at 07/16/2021 17:18
+Last updated at 07/17/2021 11:19
