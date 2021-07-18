@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIFnZbG9R2XJm3e-ICDCQQ-t500x500.jpg">](https://soundcloud.com/headasin/carti-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U61ZpX9DCfykQIzk-xvCz1Q-t500x500.jpg">](https://soundcloud.com/2mainey/sick-of-myself)
 
-**Artist**: headasin 
+**Artist**: 2mainey 
 
-**Track**: carti flip
+**Track**: Sick Of Myself
 
-Last updated at 07/17/2021 20:01
+Last updated at 07/17/2021 20:37
