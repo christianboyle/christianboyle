@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGLkaSzy0Q3aUX70-TZW8GQ-t500x500.jpg">](https://soundcloud.com/synesuk/synes-radio-045-w-remnantexe-ravver-on-subtle-030721)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
 
-**Artist**: SYNES 
+**Artist**: Juelz 
 
-**Track**: SYNES Radio 045: w/ REMNANT.exe & Ravver on Subtle 03/07/21
+**Track**: Colours (ft. Pauline Herr)
 
-Last updated at 07/17/2021 19:00
+Last updated at 07/17/2021 19:47
