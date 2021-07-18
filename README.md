@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NiVEp9uS2Y9ze1Oz-Wi1p1w-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrv-005-floret-loret-silva-glacier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avcJeqzHWyDP7XQm-QcQH7g-t500x500.jpg">](https://soundcloud.com/squidiotic/in-her-eyes)
 
-**Artist**: Quality Goods Records 
+**Artist**: SQUID 
 
-**Track**: QGRV-005 | Floret Loret & Silva - Glacier
+**Track**: IN HER EYES
 
-Last updated at 07/18/2021 13:24
+Last updated at 07/18/2021 13:26
