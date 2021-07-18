@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U61ZpX9DCfykQIzk-xvCz1Q-t500x500.jpg">](https://soundcloud.com/2mainey/sick-of-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZY9N05W7dc9goxI-7ezoPg-t500x500.jpg">](https://soundcloud.com/2mainey/gas)
 
 **Artist**: 2mainey 
 
-**Track**: Sick Of Myself
+**Track**: GAS
 
-Last updated at 07/17/2021 20:37
+Last updated at 07/17/2021 21:05
