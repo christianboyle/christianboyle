@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiQOzjge8REeENqZ-uyLGoQ-t500x500.jpg">](https://soundcloud.com/officialnohero/the-kid-laroi-justin-bieber-stay-no-hero-remix)
 
-**Artist**: Juelz 
+**Artist**: No Hero 
 
-**Track**: Colours (ft. Pauline Herr)
+**Track**: The Kid LAROI, Justin Bieber - Stay (No Hero Remix)
 
-Last updated at 07/18/2021 18:47
+Last updated at 07/18/2021 18:51
