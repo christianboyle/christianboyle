@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGLkaSzy0Q3aUX70-TZW8GQ-t500x500.jpg">](https://soundcloud.com/synesuk/synes-radio-045-w-remnantexe-ravver-on-subtle-030721)
 
-**Artist**: JEFF?! 
+**Artist**: SYNES 
 
-**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
+**Track**: SYNES Radio 045: w/ REMNANT.exe & Ravver on Subtle 03/07/21
 
-Last updated at 07/17/2021 18:23
+Last updated at 07/17/2021 19:00
