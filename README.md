@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqkxVjL5HJPJezsP-XdRc0Q-t500x500.jpg">](https://soundcloud.com/dovescry/ultraclub4k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avcJeqzHWyDP7XQm-QcQH7g-t500x500.jpg">](https://soundcloud.com/squidiotic/in-her-eyes)
 
-**Artist**: døves 
+**Artist**: SQUID 
 
-**Track**: ULTRACLUB4K
+**Track**: IN HER EYES
 
-Last updated at 07/18/2021 08:01
+Last updated at 07/18/2021 13:22
