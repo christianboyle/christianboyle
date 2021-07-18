@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U61ZpX9DCfykQIzk-xvCz1Q-t500x500.jpg">](https://soundcloud.com/2mainey/sick-of-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
 
-**Artist**: 2mainey 
+**Artist**: Juelz 
 
-**Track**: Sick Of Myself
+**Track**: Colours (ft. Pauline Herr)
 
-Last updated at 07/18/2021 18:25
+Last updated at 07/18/2021 18:27
