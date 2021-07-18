@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRnC0yMu1XTDbQJN-eY0EkQ-t500x500.jpg">](https://soundcloud.com/nakura-1/jump-jump-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/supernaturelle)
 
-**Artist**: Nakura / Audio Vitamin 
+**Artist**: Terror Jr 
 
-**Track**: Nordic Stars - Jump Jump (Nakura Remix) [FREE DOWNLOAD]
+**Track**: Supernaturelle
 
-Last updated at 07/18/2021 18:31
+Last updated at 07/18/2021 18:35
