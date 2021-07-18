@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fFyRX83qlqXFkzr-fDyG0A-t500x500.jpg">](https://soundcloud.com/2mainey/2mainey-x-terror-jr-hollywood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRnC0yMu1XTDbQJN-eY0EkQ-t500x500.jpg">](https://soundcloud.com/nakura-1/jump-jump-remix)
 
-**Artist**: 2mainey 
+**Artist**: Nakura / Audio Vitamin 
 
-**Track**: 2mainey x Terror Jr - HOLLYWOOD
+**Track**: Nordic Stars - Jump Jump (Nakura Remix) [FREE DOWNLOAD]
 
-Last updated at 07/17/2021 19:57
+Last updated at 07/17/2021 19:59
