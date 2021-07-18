@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRnC0yMu1XTDbQJN-eY0EkQ-t500x500.jpg">](https://soundcloud.com/nakura-1/jump-jump-remix)
 
-**Artist**: Juelz 
+**Artist**: Nakura / Audio Vitamin 
 
-**Track**: Colours (ft. Pauline Herr)
+**Track**: Nordic Stars - Jump Jump (Nakura Remix) [FREE DOWNLOAD]
 
-Last updated at 07/17/2021 19:47
+Last updated at 07/17/2021 19:51
