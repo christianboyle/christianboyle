@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-esc2f7ZLnvLOL9a0-OmHvWQ-t500x500.jpg">](https://soundcloud.com/cool7rack/kronikk-hwx-who-original-mix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R0GVn7NmkCGDm6s4-S2EqFQ-t500x500.jpg">](https://soundcloud.com/balamii/lucid-july-2021)
 
-**Artist**: Cool 7rack 
+**Artist**: Balamii 
 
-**Track**: Kronikk & HwX - Who (Original Mix) Free download
+**Track**: Lucid - July 2021
 
-Last updated at 07/19/2021 08:03
+Last updated at 07/19/2021 08:07
