@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9F5ayNAR25SpCvZ0-zPAfGw-t500x500.jpg">](https://soundcloud.com/adrien-mccarter/we-cant-stop-prod-ad-ad2txmes-soflojook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqKRNlWHRbjgYujP-y0S6rg-t500x500.jpg">](https://soundcloud.com/gasoiid/sedated)
 
-**Artist**: AD IG:@ad2txmes (Page 2) 
+**Artist**: gasoiid 
 
-**Track**: We Can't Stop - Prod. AD @ad2txmes #SoFloJook
+**Track**: sedated (ddertbag)
 
-Last updated at 07/19/2021 07:52
+Last updated at 07/19/2021 07:54
