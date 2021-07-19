@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgK1cGkikO39Vkmo-lgAUFQ-t500x500.jpg">](https://soundcloud.com/pls-ty/rideordie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzZPlregVmD8ITQy-1zfjIw-t500x500.jpg">](https://soundcloud.com/xotixmusic/xotix-dalfin-heart-attack)
 
-**Artist**: PLS&TY 
+**Artist**: Xotix 
 
-**Track**: PLS&TY - Ride or Die (ft. Bobby Saint)
+**Track**: Xotix & Dalfin - Heart Attack (Feat. Niko Otis)
 
-Last updated at 07/19/2021 09:51
+Last updated at 07/19/2021 09:55
