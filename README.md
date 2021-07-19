@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r41JAzJBzBtkqm81-CyubWA-t500x500.jpg">](https://soundcloud.com/danlrk/your-favorite-sidekick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqKRNlWHRbjgYujP-y0S6rg-t500x500.jpg">](https://soundcloud.com/gasoiid/sedated)
 
-**Artist**: Dan Larkin 
+**Artist**: gasoiid 
 
-**Track**: underscores (ft. 8485) - Your favorite sidekick [Dan Larkin Remix]
+**Track**: sedated (ddertbag)
 
-Last updated at 07/19/2021 11:32
+Last updated at 07/19/2021 11:36
