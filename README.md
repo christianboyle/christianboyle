@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzZPlregVmD8ITQy-1zfjIw-t500x500.jpg">](https://soundcloud.com/xotixmusic/xotix-dalfin-heart-attack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFEVsqVQAzylPqJc-ewa4rw-t500x500.jpg">](https://soundcloud.com/balamii/equinox-w-fortresses-july-2021)
 
-**Artist**: Xotix 
+**Artist**: Balamii 
 
-**Track**: Xotix & Dalfin - Heart Attack (Feat. Niko Otis)
+**Track**: Equinox w/ Fortresses - July 2021
 
-Last updated at 07/19/2021 09:55
+Last updated at 07/19/2021 09:59
