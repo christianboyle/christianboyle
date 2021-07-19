@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFEVsqVQAzylPqJc-ewa4rw-t500x500.jpg">](https://soundcloud.com/balamii/equinox-w-fortresses-july-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgK1cGkikO39Vkmo-lgAUFQ-t500x500.jpg">](https://soundcloud.com/pls-ty/rideordie)
 
-**Artist**: Balamii 
+**Artist**: PLS&TY 
 
-**Track**: Equinox w/ Fortresses - July 2021
+**Track**: PLS&TY - Ride or Die (ft. Bobby Saint)
 
-Last updated at 07/19/2021 08:52
+Last updated at 07/19/2021 09:51
