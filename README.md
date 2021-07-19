@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1dSYK7gTFMtt6Yl-Io4xkw-t500x500.jpg">](https://soundcloud.com/sludgemusicofficial/orthodox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h5nzZaOrzBPztnnQ-trK24w-t500x500.jpg">](https://soundcloud.com/exobolt/i-dont-know?in=exobolt/sets/exobolt-008-full-album)
 
-**Artist**: SLUDGE 
+**Artist**: Exobolt 
 
-**Track**: SLUDGE & VRG - ORTHODOX
+**Track**: PLEEG - I Don't Know
 
-Last updated at 07/19/2021 07:45
+Last updated at 07/19/2021 07:46
