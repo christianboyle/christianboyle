@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhzSl9Ab61rdqlIx-9YgDcw-t500x500.jpg">](https://soundcloud.com/jockshit/jockeduppt2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
 
-**Artist**: VARSITY 
+**Artist**: Juelz 
 
-**Track**: JOCKED UP PT.2 (popstarbills + jackie platinum) [prod. RACE1 x SYNTHETIC]
+**Track**: Colours (ft. Pauline Herr)
 
-Last updated at 07/19/2021 15:26
+Last updated at 07/19/2021 15:34
