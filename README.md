@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVoMpdzGoeLLR6rx-CyV9qw-t500x500.jpg">](https://soundcloud.com/bbjuelz/colours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r41JAzJBzBtkqm81-CyubWA-t500x500.jpg">](https://soundcloud.com/danlrk/your-favorite-sidekick-remix)
 
-**Artist**: Juelz 
+**Artist**: Dan Larkin 
 
-**Track**: Colours (ft. Pauline Herr)
+**Track**: underscores (ft. 8485) - Your favorite sidekick [Dan Larkin Remix]
 
-Last updated at 07/19/2021 15:34
+Last updated at 07/19/2021 15:38
