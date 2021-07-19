@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzZqRnLUmEshNEjW-07cYUw-t500x500.jpg">](https://soundcloud.com/rusuitor/arcuri-ebonne-bad-bad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r41JAzJBzBtkqm81-CyubWA-t500x500.jpg">](https://soundcloud.com/danlrk/your-favorite-sidekick-remix)
 
-**Artist**: [ SUITOR ] 
+**Artist**: Dan Larkin 
 
-**Track**: Arcuri & Ebonne - Bad Bad [ FREE DOWNLOAD ]
+**Track**: underscores (ft. 8485) - Your favorite sidekick [Dan Larkin Remix]
 
-Last updated at 07/19/2021 11:30
+Last updated at 07/19/2021 11:32
