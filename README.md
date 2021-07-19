@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1dSYK7gTFMtt6Yl-Io4xkw-t500x500.jpg">](https://soundcloud.com/sludgemusicofficial/orthodox)
 
-**Artist**: JEFF?! 
+**Artist**: SLUDGE 
 
-**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
+**Track**: SLUDGE & VRG - ORTHODOX
 
-Last updated at 07/18/2021 18:55
+Last updated at 07/19/2021 07:45
