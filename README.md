@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBvAyq9tMhN6Rgg7-MvPIzA-t500x500.jpg">](https://soundcloud.com/koastle/phone-numbers-koastle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqKRNlWHRbjgYujP-y0S6rg-t500x500.jpg">](https://soundcloud.com/gasoiid/sedated)
 
-**Artist**: Koastle 
+**Artist**: gasoiid 
 
-**Track**: Dominic Fike - Phone Numbers (Koastle Remix)
+**Track**: sedated (ddertbag)
 
-Last updated at 07/20/2021 10:23
+Last updated at 07/20/2021 10:25
