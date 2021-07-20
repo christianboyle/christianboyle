@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avcJeqzHWyDP7XQm-QcQH7g-t500x500.jpg">](https://soundcloud.com/squidiotic/in-her-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTNHBcZ3ipcyJZ75-EhD45w-t500x500.jpg">](https://soundcloud.com/kusolarm/tamolarm-heatwave-hijack-2021-mix)
 
-**Artist**: SQUID 
+**Artist**: SublarM 
 
-**Track**: IN HER EYES
+**Track**: TamolarM Heatwave Hijack 2021 Mix
 
-Last updated at 07/19/2021 15:51
+Last updated at 07/20/2021 08:26
