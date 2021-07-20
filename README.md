@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqKRNlWHRbjgYujP-y0S6rg-t500x500.jpg">](https://soundcloud.com/gasoiid/sedated)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7n7VWbpFCv5puWUB-wRwTmg-t500x500.jpg">](https://soundcloud.com/fvtl/stepback-viizzi-dylanlongworth)
 
-**Artist**: gasoiid 
+**Artist**: fvtal 
 
-**Track**: sedated (ddertbag)
+**Track**: #STEPBACK+VIIZZI+DYLANLONGWORTH (BRAYAM X KIMI)
 
-Last updated at 07/20/2021 10:25
+Last updated at 07/20/2021 10:27
