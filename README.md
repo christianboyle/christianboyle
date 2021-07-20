@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d4agmhZZMwnx-0-t500x500.jpg">](https://soundcloud.com/gladesmusicau/blonde-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/hit-me-back?in=terrorjr/sets/rancho_catastrophe)
 
-**Artist**: GLADES 
+**Artist**: Terror Jr 
 
-**Track**: Blonde
+**Track**: Hit Me Back
 
-Last updated at 07/20/2021 10:08
+Last updated at 07/20/2021 10:10
