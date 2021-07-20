@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQTuJU7MT8ICVQT63cUBZAWEqPsj6P_EVFmVWt5=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCZNflYqHlrhaSFFClR267LA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/finishlines?in=terrorjr/sets/rancho_catastrophe)
 
 **Artist**: Terror Jr 
 
-**Track**: Immortality (Official Music Video)
+**Track**: Finish Lines
 
-Last updated at 07/20/2021 09:03
+Last updated at 07/20/2021 09:14
