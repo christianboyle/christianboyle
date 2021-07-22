@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/supernaturelle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAsZ9TII9szTq75O-zH2zKA-t500x500.jpg">](https://soundcloud.com/iffoundmusic/outwild-one-night-feat-kc-if-found-remix)
 
-**Artist**: Terror Jr 
+**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
 
-**Track**: Supernaturelle
+**Track**: Outwild - One Night (feat. KC) (if found Remix)
 
-Last updated at 07/22/2021 12:57
+Last updated at 07/22/2021 14:05
