@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5Cp716Dknaig8KN-z9p39g-t500x500.jpg">](https://soundcloud.com/pootyh/in-my-nature)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qyyQtwWI1CyitIw1-eIzhRQ-t500x500.jpg">](https://soundcloud.com/813/kakoska-okean-prod-by-813)
 
-**Artist**: POOTY 
+**Artist**: Eight One Three 🍭 
 
-**Track**: IN MY NATURE
+**Track**: kakOska - Океан ( prod by 813 )
 
-Last updated at 07/22/2021 11:36
+Last updated at 07/22/2021 11:38
