@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAsZ9TII9szTq75O-zH2zKA-t500x500.jpg">](https://soundcloud.com/iffoundmusic/outwild-one-night-feat-kc-if-found-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r41JAzJBzBtkqm81-CyubWA-t500x500.jpg">](https://soundcloud.com/danlrk/your-favorite-sidekick-remix)
 
-**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
+**Artist**: Dan Larkin 
 
-**Track**: Outwild - One Night (feat. KC) (if found Remix)
+**Track**: underscores (ft. 8485) - Your favorite sidekick [Dan Larkin Remix]
 
-Last updated at 07/22/2021 11:42
+Last updated at 07/22/2021 11:46
