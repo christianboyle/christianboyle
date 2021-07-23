@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AhcQj7TGoOc6lBOu-mjIZbg-t500x500.jpg">](https://soundcloud.com/akatsuki-chopmusic/adness-my-boku-lp-mix?in=akatsuki-chopmusic/sets/myoboku-lp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAsZ9TII9szTq75O-zH2zKA-t500x500.jpg">](https://soundcloud.com/iffoundmusic/outwild-one-night-feat-kc-if-found-remix)
 
-**Artist**: ☁The Akatsuki✖ChopMusic☁ 
+**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
 
-**Track**: $ADNESS - Myōboku LP (MIX)
+**Track**: Outwild - One Night (feat. KC) (if found Remix)
 
-Last updated at 07/23/2021 09:20
+Last updated at 07/23/2021 09:22
