@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqKRNlWHRbjgYujP-y0S6rg-t500x500.jpg">](https://soundcloud.com/gasoiid/sedated)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRb8DoUa7Lvir9pA0sxu2pXXGunFa8BSoH5Ovji=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCney_E5ANuRPZqOaIuAwz2A)
 
-**Artist**: gasoiid 
+**Artist**: SMASH MOUTH 
 
-**Track**: sedated (ddertbag)
+**Track**: Smash Mouth - All Star
 
-Last updated at 07/23/2021 09:30
+Last updated at 07/23/2021 10:25
