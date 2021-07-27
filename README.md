@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLTKwkiuIDMtT7w-C55QJm3-FxExhi3So7EWofYGuQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCIwFjwMjI0y7PDBVEO9-bkQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/supernaturelle)
 
-**Artist**: Justin Bieber 
+**Artist**: Terror Jr 
 
-**Track**: Intentions (Live On Saturday Night Live / 2020)
+**Track**: Supernaturelle
 
-Last updated at 07/27/2021 16:37
+Last updated at 07/27/2021 17:05
