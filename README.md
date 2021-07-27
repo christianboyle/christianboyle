@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avcJeqzHWyDP7XQm-QcQH7g-t500x500.jpg">](https://soundcloud.com/squidiotic/in-her-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZY9N05W7dc9goxI-7ezoPg-t500x500.jpg">](https://soundcloud.com/2mainey/gas)
 
-**Artist**: SQUID 
+**Artist**: 2mainey 
 
-**Track**: IN HER EYES
+**Track**: GAS
 
-Last updated at 07/27/2021 17:09
+Last updated at 07/27/2021 17:12
