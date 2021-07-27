@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/supernaturelle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avcJeqzHWyDP7XQm-QcQH7g-t500x500.jpg">](https://soundcloud.com/squidiotic/in-her-eyes)
 
-**Artist**: Terror Jr 
+**Artist**: SQUID 
 
-**Track**: Supernaturelle
+**Track**: IN HER EYES
 
-Last updated at 07/27/2021 17:05
+Last updated at 07/27/2021 17:09
