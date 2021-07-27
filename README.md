@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCHzlcv5403YNPti-O3kU6w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-190-ian-dpm)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQ13BPbE2PmDChMCYxlpWY3W3xCnHwThAEADwqe=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCEJ-A6sXsxg0PxdUjgrF2Jw)
 
-**Artist**: Lobster Theremin 
+**Artist**: TheofficialSublime 
 
-**Track**: LT Podcast 190 // Ian DPM
+**Track**: Sublime - D.J.s (Live At The Palace/1995)
 
-Last updated at 07/27/2021 13:25
+Last updated at 07/27/2021 15:43
