@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGIEnQkQQIw7CuLm-xd7VAg-t500x500.jpg">](https://soundcloud.com/terrorjr/hit-me-back?in=terrorjr/sets/rancho_catastrophe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCHzlcv5403YNPti-O3kU6w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-190-ian-dpm)
 
-**Artist**: Terror Jr 
+**Artist**: Lobster Theremin 
 
-**Track**: Hit Me Back
+**Track**: LT Podcast 190 // Ian DPM
 
-Last updated at 07/27/2021 10:58
+Last updated at 07/27/2021 13:25
