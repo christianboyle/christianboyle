@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCHzlcv5403YNPti-O3kU6w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-190-ian-dpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ls7wAtIDzZVT2hvv-2eBQTA-t500x500.jpg">](https://soundcloud.com/bleep_bot/bleep-mix-197-cignol)
 
-**Artist**: Lobster Theremin 
+**Artist**: Bleep 
 
-**Track**: LT Podcast 190 // Ian DPM
+**Track**: Bleep Mix #197 - Cignol
 
-Last updated at 07/26/2021 10:21
+Last updated at 07/27/2021 08:40
