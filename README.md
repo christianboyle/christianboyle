@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U61ZpX9DCfykQIzk-xvCz1Q-t500x500.jpg">](https://soundcloud.com/2mainey/sick-of-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiQOzjge8REeENqZ-uyLGoQ-t500x500.jpg">](https://soundcloud.com/officialnohero/the-kid-laroi-justin-bieber-stay-no-hero-remix)
 
-**Artist**: 2mainey 
+**Artist**: No Hero 
 
-**Track**: Sick Of Myself
+**Track**: The Kid LAROI, Justin Bieber - Stay (No Hero Remix)
 
-Last updated at 07/27/2021 17:16
+Last updated at 07/27/2021 17:17
