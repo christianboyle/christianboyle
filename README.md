@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lggIO4ebULCsIP1A-u8ATLw-t500x500.jpg">](https://soundcloud.com/simplifyrecs/adam-jasim-sarah-kitching-lonely)
 
-**Artist**: JEFF?! 
+**Artist**: Simplify. 
 
-**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
+**Track**: Adam Jasim & Sarah Kitching - Lonely
 
-Last updated at 07/27/2021 17:21
+Last updated at 07/28/2021 08:19
