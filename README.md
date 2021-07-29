@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQqqRwweZO87oPTjzYleKmTkvQhHvnbW5ALXm34QA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCs2exSrWeaiCnrmJk_YzBHw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHw7quWFa4yRJU5G-NQywRQ-t500x500.jpg">](https://soundcloud.com/area3000/flip-flopping-003-w-aj-fresh-dj-netburner-21-july-2021)
 
-**Artist**: Rustie 
+**Artist**: Area 3000 Radio 
 
-**Track**: First Mythz (Official Video)
+**Track**: Flip Flopping w. AJ Fresh & DJ Netburner - 21 July 2021
 
-Last updated at 07/28/2021 21:24
+Last updated at 07/29/2021 08:41
