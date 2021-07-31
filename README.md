@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz4z3hvt8B2qhAlS-CDgj6g-t500x500.jpg">](https://soundcloud.com/trndytrndy/its-out-4-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tyei5BwCeEiip0x-MM7ptg-t500x500.jpg">](https://soundcloud.com/neversleeplife/money-lang-treviso-mare-mixtape)
 
-**Artist**: trndytrndy 
+**Artist**: Never Sleep 
 
-**Track**: its out 4 u
+**Track**: Money Lang - Treviso Mare Mixtape [NSR005]
 
-Last updated at 07/30/2021 16:30
+Last updated at 07/31/2021 07:43
