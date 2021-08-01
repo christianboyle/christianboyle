@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tyei5BwCeEiip0x-MM7ptg-t500x500.jpg">](https://soundcloud.com/neversleeplife/money-lang-treviso-mare-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lc1X6GmScDScynle-KrViKg-t500x500.jpg">](https://soundcloud.com/audien/summer-mix-2021)
 
-**Artist**: Never Sleep 
+**Artist**: Audien 
 
-**Track**: Money Lang - Treviso Mare Mixtape [NSR005]
+**Track**: Audien - Summer Mix 2021
 
-Last updated at 07/31/2021 08:07
+Last updated at 08/01/2021 09:28
