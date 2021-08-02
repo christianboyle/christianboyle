@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGY6znqqELLjXQHS-bJTzSw-t500x500.jpg">](https://soundcloud.com/fellsofficial/fells-transcend-feat-micah-martin?in=weareplusplus/sets/best-electronic-music-july-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-giwrhBtxG8Ll-0-t500x500.jpg">](https://soundcloud.com/kaskade/hypnotized?in=weareplusplus/sets/best-electronic-music-july-2)
 
-**Artist**: Fells 
+**Artist**: Kaskade 
 
-**Track**: Fells - Transcend (feat. Micah Martin)
+**Track**: Hypnotized
 
-Last updated at 08/02/2021 16:48
+Last updated at 08/02/2021 16:52
