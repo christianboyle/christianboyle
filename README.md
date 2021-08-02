@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1SyJRAonh3l8WJn-2re8SQ-t500x500.jpg">](https://soundcloud.com/uprisemusicofficial/speedstr-jump-in-feat-kozze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QGiSeMJIiY1EV2il-zZ2d2w-t500x500.jpg">](https://soundcloud.com/soberrob/dive)
 
-**Artist**: Uprise Music 
+**Artist**: sober rob 
 
-**Track**: SpeedStr - Jump In (Feat. Kozze)
+**Track**: DIVE
 
-Last updated at 08/02/2021 16:58
+Last updated at 08/02/2021 17:00
