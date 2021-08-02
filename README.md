@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86AdKST0Y9uEjIng-eSC1Ag-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-191-zarya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jvZZ0UM3CrlUKQvx-GuYrTA-t500x500.jpg">](https://soundcloud.com/balamii/paduan-w-ario-august-2021)
 
-**Artist**: Lobster Theremin 
+**Artist**: Balamii 
 
-**Track**: LT Podcast 191 // Zarya
+**Track**: Paduan w/ Ario - August 2021
 
-Last updated at 08/02/2021 07:52
+Last updated at 08/02/2021 08:50
