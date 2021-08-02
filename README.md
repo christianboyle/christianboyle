@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86AdKST0Y9uEjIng-eSC1Ag-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-191-zarya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OljW4pEGYtuRPv1E-zNWrXg-t500x500.jpg">](https://soundcloud.com/bitbird/duskus-hardtimes-music-video-in-description)
 
-**Artist**: Lobster Theremin 
+**Artist**: bitbird 
 
-**Track**: LT Podcast 191 // Zarya
+**Track**: Duskus - Hard Times (music video in description!)
 
-Last updated at 08/02/2021 09:10
+Last updated at 08/02/2021 16:42
