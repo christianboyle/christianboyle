@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBazBcOSaqORIdS5-1fXLnw-t500x500.jpg">](https://soundcloud.com/enormoustunes/me-my-toothbrush-i-take-whats-mine?in=weareplusplus/sets/best-electronic-music-july-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1SyJRAonh3l8WJn-2re8SQ-t500x500.jpg">](https://soundcloud.com/uprisemusicofficial/speedstr-jump-in-feat-kozze)
 
-**Artist**: EnormousTunes 
+**Artist**: Uprise Music 
 
-**Track**: Me & My Toothbrush - I Take What's Mine
+**Track**: SpeedStr - Jump In (Feat. Kozze)
 
-Last updated at 08/02/2021 16:56
+Last updated at 08/02/2021 16:58
