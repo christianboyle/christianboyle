@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-giwrhBtxG8Ll-0-t500x500.jpg">](https://soundcloud.com/kaskade/hypnotized?in=weareplusplus/sets/best-electronic-music-july-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBazBcOSaqORIdS5-1fXLnw-t500x500.jpg">](https://soundcloud.com/enormoustunes/me-my-toothbrush-i-take-whats-mine?in=weareplusplus/sets/best-electronic-music-july-2)
 
-**Artist**: Kaskade 
+**Artist**: EnormousTunes 
 
-**Track**: Hypnotized
+**Track**: Me & My Toothbrush - I Take What's Mine
 
-Last updated at 08/02/2021 16:52
+Last updated at 08/02/2021 16:56
