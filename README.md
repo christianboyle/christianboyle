@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXyZf8VgDwxHy5r0-QzAx5Q-t500x500.jpg">](https://soundcloud.com/jupitamusic/s-o-u-n-d-s-back-around?in=saxurn/sets/virii)
 
-**Artist**: Trapical Music 
+**Artist**: Jupita | No Copyright Music 
 
-**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
+**Track**: S O U N D S - Back Around
 
-Last updated at 08/03/2021 15:21
+Last updated at 08/03/2021 17:25
