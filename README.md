@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000029683099-hgzuol-t500x500.jpg">](https://soundcloud.com/djgeremy/collage-ill-be-loving-you-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33ASgrFK6Ixg-0-t500x500.jpg">](https://soundcloud.com/officialswedishhousemafia/it-gets-better)
 
-**Artist**: DJ Geremy 
+**Artist**: Swedish House Mafia 
 
-**Track**: Collage - I'll Be Loving You (DJ Geremy Freestyle Club Mix) (2009)
+**Track**: It Gets Better
 
-Last updated at 08/03/2021 11:19
+Last updated at 08/03/2021 11:24
