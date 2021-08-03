@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xH1Ulh7TWLPzgpj1-qJOXWg-t500x500.jpg">](https://soundcloud.com/balamii/rhythm-sister-w-georgia-girl-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
 
-**Artist**: Balamii 
+**Artist**: Trapical Music 
 
-**Track**: Rhythm Sister w/ Georgia Girl - August 2021
+**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
 
-Last updated at 08/03/2021 14:30
+Last updated at 08/03/2021 14:42
