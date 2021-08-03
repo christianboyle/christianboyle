@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yi9gIOtzj4p806hH-pPhMtQ-t500x500.jpg">](https://soundcloud.com/jasmineinfiniti/tazadone-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000037127446-menrmh-t500x500.jpg">](https://soundcloud.com/katkrazymusic/coldplay-hurts-like-heaven)
 
-**Artist**: Jasmine Infiniti 
+**Artist**: Kat Krazy 
 
-**Track**: Sex With A Grudge Mix
+**Track**: Coldplay - Hurts Like Heaven (Kat Krazy Remix) OFFICIAL
 
-Last updated at 08/03/2021 10:51
+Last updated at 08/03/2021 10:53
