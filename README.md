@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000037127446-menrmh-t500x500.jpg">](https://soundcloud.com/katkrazymusic/coldplay-hurts-like-heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000029683099-hgzuol-t500x500.jpg">](https://soundcloud.com/djgeremy/collage-ill-be-loving-you-dj)
 
-**Artist**: Kat Krazy 
+**Artist**: DJ Geremy 
 
-**Track**: Coldplay - Hurts Like Heaven (Kat Krazy Remix) OFFICIAL
+**Track**: Collage - I'll Be Loving You (DJ Geremy Freestyle Club Mix) (2009)
 
-Last updated at 08/03/2021 10:53
+Last updated at 08/03/2021 11:19
