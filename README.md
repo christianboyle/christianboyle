@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Imk0YlTvxVAkP0PG-9VlBmQ-t500x500.jpg">](https://soundcloud.com/paulineherr/no-goodbyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92ViYYnHuieX-0-t500x500.jpg">](https://soundcloud.com/officialswedishhousemafia/lifetime-feat-ty-dolla-ign-070)
 
-**Artist**: Pauline Herr 
+**Artist**: Swedish House Mafia 
 
-**Track**: No Goodbyes
+**Track**: Lifetime (feat. Ty Dolla $ign & 070 Shake)
 
-Last updated at 08/02/2021 17:02
+Last updated at 08/02/2021 20:36
