@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tyei5BwCeEiip0x-MM7ptg-t500x500.jpg">](https://soundcloud.com/neversleeplife/money-lang-treviso-mare-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mt4Vd2WTVq8LtRnc-lKQ1Sg-t500x500.jpg">](https://soundcloud.com/jona-g-yong/terror-jr-enemies-prod-by-cole)
 
-**Artist**: Never Sleep 
+**Artist**: Jona Yong 
 
-**Track**: Money Lang - Treviso Mare Mixtape [NSR005]
+**Track**: Terror Jr - Enemies (prod by Cole M.G.N.)
 
-Last updated at 08/04/2021 11:28
+Last updated at 08/04/2021 14:44
