@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000029683099-hgzuol-t500x500.jpg">](https://soundcloud.com/djgeremy/collage-ill-be-loving-you-dj)
 
-**Artist**: Trapical Music 
+**Artist**: DJ Geremy 
 
-**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
+**Track**: Collage - I'll Be Loving You (DJ Geremy Freestyle Club Mix) (2009)
 
-Last updated at 08/04/2021 10:49
+Last updated at 08/04/2021 10:53
