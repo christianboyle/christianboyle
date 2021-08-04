@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33ASgrFK6Ixg-0-t500x500.jpg">](https://soundcloud.com/officialswedishhousemafia/it-gets-better)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86AdKST0Y9uEjIng-eSC1Ag-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-191-zarya)
 
-**Artist**: Swedish House Mafia 
+**Artist**: Lobster Theremin 
 
-**Track**: It Gets Better
+**Track**: LT Podcast 191 // Zarya
 
-Last updated at 08/04/2021 14:56
+Last updated at 08/04/2021 15:00
