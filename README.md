@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mt4Vd2WTVq8LtRnc-lKQ1Sg-t500x500.jpg">](https://soundcloud.com/jona-g-yong/terror-jr-enemies-prod-by-cole)
 
-**Artist**: Trapical Music 
+**Artist**: Jona Yong 
 
-**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
+**Track**: Terror Jr - Enemies (prod by Cole M.G.N.)
 
-Last updated at 08/03/2021 18:51
+Last updated at 08/03/2021 19:15
