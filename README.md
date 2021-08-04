@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJmbKp0b36uEB6MW-4vk8yg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/ghost-in-the-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCHzlcv5403YNPti-O3kU6w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-190-ian-dpm)
 
-**Artist**: Trapical Music 
+**Artist**: Lobster Theremin 
 
-**Track**: Trivecta - Ghost In The Machine (Meddus Remix)
+**Track**: LT Podcast 190 // Ian DPM
 
-Last updated at 08/04/2021 09:36
+Last updated at 08/04/2021 09:38
