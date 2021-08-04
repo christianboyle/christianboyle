@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86AdKST0Y9uEjIng-eSC1Ag-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-191-zarya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mt4Vd2WTVq8LtRnc-lKQ1Sg-t500x500.jpg">](https://soundcloud.com/jona-g-yong/terror-jr-enemies-prod-by-cole)
 
-**Artist**: Lobster Theremin 
+**Artist**: Jona Yong 
 
-**Track**: LT Podcast 191 // Zarya
+**Track**: Terror Jr - Enemies (prod by Cole M.G.N.)
 
-Last updated at 08/04/2021 15:00
+Last updated at 08/04/2021 15:18
