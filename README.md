@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2ejRuQcr0IHIzLe-ca930g-t500x500.jpg">](https://soundcloud.com/kickback/x-amnt-show-eruption-radio-june-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mt4Vd2WTVq8LtRnc-lKQ1Sg-t500x500.jpg">](https://soundcloud.com/jona-g-yong/terror-jr-enemies-prod-by-cole)
 
-**Artist**: Kickback 
+**Artist**: Jona Yong 
 
-**Track**: X-AMNT Show - Eruption  Radio - EP 4
+**Track**: Terror Jr - Enemies (prod by Cole M.G.N.)
 
-Last updated at 08/04/2021 09:08
+Last updated at 08/04/2021 09:16
