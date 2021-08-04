@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCHzlcv5403YNPti-O3kU6w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-190-ian-dpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mt4Vd2WTVq8LtRnc-lKQ1Sg-t500x500.jpg">](https://soundcloud.com/jona-g-yong/terror-jr-enemies-prod-by-cole)
 
-**Artist**: Lobster Theremin 
+**Artist**: Jona Yong 
 
-**Track**: LT Podcast 190 // Ian DPM
+**Track**: Terror Jr - Enemies (prod by Cole M.G.N.)
 
-Last updated at 08/04/2021 09:38
+Last updated at 08/04/2021 10:46
