@@ -4,6 +4,6 @@
 
 **Artist**: Kickback 
 
-**Track**: X-AMNT Show - Eruption  Radio - June 2021
+**Track**: X-AMNT Show - Eruption  Radio - EP 4
 
-Last updated at 08/04/2021 07:12
+Last updated at 08/04/2021 09:08
