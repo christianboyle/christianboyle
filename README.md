@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ykh1zK2dtIWe1D9Y-aLY49w-t500x500.jpg">](https://soundcloud.com/justicehardcore/reborn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYVTy9Vht74fOgyA-p5kV7w-t500x500.jpg">](https://soundcloud.com/bounceheavenofficial/dave-curtis-dynamite-bounceheavencouk)
 
-**Artist**: Justice Hardcore 
+**Artist**: BOUNCE HEAVEN with Andy Whitby 
 
-**Track**: ARForest & OptiU - Reborn (Kacky Remix) ✅𝗙𝗥𝗘𝗘 𝗗𝗢𝗪𝗡𝗟𝗢𝗔𝗗✅
+**Track**: Dave Curtis - Dynamite - BounceHeaven.co.uk
 
-Last updated at 08/05/2021 12:27
+Last updated at 08/05/2021 12:31
