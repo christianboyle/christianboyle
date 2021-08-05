@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000655969597-d1dvv1-t500x500.jpg">](https://soundcloud.com/disruptauk/nrg-i-need-your-love-disrupta-j-select-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
 
-**Artist**: Disrupta 
+**Artist**: Daisychain 
 
-**Track**: N.R.G. - I NEED YOUR LOVE (DISRUPTA & J SELECT BOOTLEG) [FREE DOWNLOAD]
+**Track**: Daisychain 185 - Hannah D
 
-Last updated at 08/05/2021 16:07
+Last updated at 08/05/2021 16:11
