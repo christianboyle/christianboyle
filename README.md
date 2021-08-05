@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000515442561-45hngx-t500x500.jpg">](https://soundcloud.com/user-157763167/aqua-iro-palette-last-kiss-mash-up-edit?in=kkoosk/sets/5haletyedmig)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ykh1zK2dtIWe1D9Y-aLY49w-t500x500.jpg">](https://soundcloud.com/justicehardcore/reborn)
 
-**Artist**: ぽっくん 
+**Artist**: Justice Hardcore 
 
-**Track**: Aqua Iro Palette (Last Kiss Mash Up Edit)
+**Track**: ARForest & OptiU - Reborn (Kacky Remix) ✅𝗙𝗥𝗘𝗘 𝗗𝗢𝗪𝗡𝗟𝗢𝗔𝗗✅
 
-Last updated at 08/05/2021 12:25
+Last updated at 08/05/2021 12:27
