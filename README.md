@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyIncv7lHNna-0-t500x500.jpg">](https://soundcloud.com/wandw/this-is-our-legacy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1VGICWESvoJoXFsx-sc9d5A-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-with-you-radio-edit)
 
-**Artist**: W&W 
+**Artist**: Tatsunoshin 
 
-**Track**: This Is Our Legacy
+**Track**: Tatsunoshin - With You (Radio Edit)
 
-Last updated at 08/06/2021 07:05
+Last updated at 08/06/2021 07:07
