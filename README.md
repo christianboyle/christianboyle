@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tyei5BwCeEiip0x-MM7ptg-t500x500.jpg">](https://soundcloud.com/neversleeplife/money-lang-treviso-mare-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
 
-**Artist**: Never Sleep 
+**Artist**: Daisychain 
 
-**Track**: Money Lang - Treviso Mare Mixtape [NSR005]
+**Track**: Daisychain 185 - Hannah D
 
-Last updated at 08/06/2021 13:02
+Last updated at 08/06/2021 13:18
