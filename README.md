@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yu3gOgnspSzKFVbh-lXupQA-t500x500.jpg">](https://soundcloud.com/goodnightcody/who-is-me-yeah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQYvgAa2OFomjxWq-ZGDdfQ-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/pajane-eltiv-keep?in=ghettoghettorecords/sets/pajane-keep-g_79-ghetto-ghetto)
 
-**Artist**: Goodnight Cody 
+**Artist**: GHETTO GHETTO 
 
-**Track**: who is me, yeah?
+**Track**: Pajane & Eltiv - Keep
 
-Last updated at 08/06/2021 16:04
+Last updated at 08/06/2021 16:05
