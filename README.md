@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RN3uvWVCOSwGNBJY-rJ7XZA-t500x500.jpg">](https://soundcloud.com/balamii/nancy-june-w-paige-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UbMLIcEVTXteDh5I-t2LayQ-t500x500.jpg">](https://soundcloud.com/thefinesttechno/premiere-cltx-warrior-gomb44?in=gombocrec/sets/gomb44-cltx-eternally-yours-ep)
 
-**Artist**: Balamii 
+**Artist**: The Finest Techno 
 
-**Track**: Nancy June w/ Paige - August 2021
+**Track**: Premiere: CLTX - Warrior [GOMB44]
 
-Last updated at 08/05/2021 20:02
+Last updated at 08/06/2021 07:02
