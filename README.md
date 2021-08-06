@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86AdKST0Y9uEjIng-eSC1Ag-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-191-zarya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tyei5BwCeEiip0x-MM7ptg-t500x500.jpg">](https://soundcloud.com/neversleeplife/money-lang-treviso-mare-mixtape)
 
-**Artist**: Lobster Theremin 
+**Artist**: Never Sleep 
 
-**Track**: LT Podcast 191 // Zarya
+**Track**: Money Lang - Treviso Mare Mixtape [NSR005]
 
-Last updated at 08/06/2021 12:06
+Last updated at 08/06/2021 13:02
