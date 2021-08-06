@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IkojzFYDKMf9QgFM-PMhvpg-t500x500.jpg">](https://soundcloud.com/g-soiid/dvnots-x-gasoiid-clubq-full-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RN3uvWVCOSwGNBJY-rJ7XZA-t500x500.jpg">](https://soundcloud.com/balamii/nancy-june-w-paige-august-2021)
 
-**Artist**: gasoiid's goodie bag! 
+**Artist**: Balamii 
 
-**Track**: DVNOTS X GASOIID @ CLUBQ (FULL MIX)
+**Track**: Nancy June w/ Paige - August 2021
 
-Last updated at 08/06/2021 07:11
+Last updated at 08/06/2021 08:36
