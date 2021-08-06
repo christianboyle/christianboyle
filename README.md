@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQYvgAa2OFomjxWq-ZGDdfQ-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/pajane-eltiv-keep?in=ghettoghettorecords/sets/pajane-keep-g_79-ghetto-ghetto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ6EN3wQAnSK0y5-SlDDsA-t500x500.jpg">](https://soundcloud.com/colson_xl/dreamgirl-cxl)
 
-**Artist**: GHETTO GHETTO 
+**Artist**: Colson XL 
 
-**Track**: Pajane & Eltiv - Keep
+**Track**: Dreamgirl (w/ ero808) [FUXWITHIT PREMIERE]
 
-Last updated at 08/06/2021 16:05
+Last updated at 08/06/2021 16:07
