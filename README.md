@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000176655295-ofgy4o-t500x500.jpg">](https://soundcloud.com/snakedrocks/jersey-legends-free-dl)
 
-**Artist**: Daisychain 
+**Artist**: SNAKED 
 
-**Track**: Daisychain 185 - Hannah D
+**Track**: BON JOVI - LIVIN' ON A PRAYER (SNAKED REMIX) (FREE DL)
 
-Last updated at 08/06/2021 13:18
+Last updated at 08/06/2021 15:47
