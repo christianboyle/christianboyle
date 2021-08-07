@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix)
 
-**Artist**: Daisychain 
+**Artist**: BKAYE 
 
-**Track**: Daisychain 185 - Hannah D
+**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
 
-Last updated at 08/07/2021 10:05
+Last updated at 08/07/2021 16:39
