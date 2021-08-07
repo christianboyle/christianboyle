@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RN3uvWVCOSwGNBJY-rJ7XZA-t500x500.jpg">](https://soundcloud.com/balamii/nancy-june-w-paige-august-2021)
+[<img align="left" width="100" src="https://yt3.ggpht.com/hFir_o97Zm3whSijdv35I9GAqdEVPVyaKulwt2oXLDul-wg3qTRQBX1YfO0XT9e4pHda8er8yJw=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCTiNWm_Qfiulu45VYWXrHsA)
 
-**Artist**: Balamii 
+**Artist**: Unknown Mortal Orchestra 
 
-**Track**: Nancy June w/ Paige - August 2021
+**Track**: That Life
 
-Last updated at 08/07/2021 17:07
+Last updated at 08/07/2021 17:11
