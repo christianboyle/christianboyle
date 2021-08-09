@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
 
-**Artist**: Daisychain 
+**Artist**: Wax'o Paradiso 
 
-**Track**: Daisychain 185 - Hannah D
+**Track**: 9am - 12pm at Lovejoy
 
-Last updated at 08/08/2021 13:25
+Last updated at 08/09/2021 08:26
