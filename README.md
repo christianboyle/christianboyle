@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i7BUUufWOw4RhoJC-9fOSVA-t500x500.jpg">](https://soundcloud.com/yehme2/trap-history-live-digital-mirage-3)
 
-**Artist**: Wax'o Paradiso 
+**Artist**: YehMe2 
 
-**Track**: 9am - 12pm at Lovejoy
+**Track**: TRAP HISTORY LIVE @ DIGITAL MIRAGE FRIENDSGIVING
 
-Last updated at 08/09/2021 08:26
+Last updated at 08/09/2021 09:07
