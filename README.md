@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNb5I3G0vQGZZOf0-9LYSqw-t500x500.jpg">](https://soundcloud.com/etller/dektop)
 
-**Artist**: Wax'o Paradiso 
+**Artist**: Etller 
 
-**Track**: 9am - 12pm at Lovejoy
+**Track**: Etller X Lamp DX - DEKTOP
 
-Last updated at 08/09/2021 09:19
+Last updated at 08/10/2021 07:52
