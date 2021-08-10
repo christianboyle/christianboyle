@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuGkDTuOpB7qUKTd-61uypA-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-belela-chimera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
 
-**Artist**: Sublab 
+**Artist**: Wax'o Paradiso 
 
-**Track**: Sublab & Belela - Chimera
+**Track**: 9am - 12pm at Lovejoy
 
-Last updated at 08/10/2021 10:17
+Last updated at 08/10/2021 10:21
