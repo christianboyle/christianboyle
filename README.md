@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GK82LpynSZVEo2jY-ZekyyA-t500x500.jpg">](https://soundcloud.com/dossyx/garden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHvteh3GNjPm699k-SPIhbg-t500x500.jpg">](https://soundcloud.com/dearevergreen/a-thousand-miles)
 
-**Artist**: DossyX 
+**Artist**: Dear Evergreen 
 
-**Track**: GARDEN (REMIX)
+**Track**: A Thousand Miles
 
-Last updated at 08/10/2021 07:58
+Last updated at 08/10/2021 08:00
