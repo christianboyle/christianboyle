@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yu3gOgnspSzKFVbh-lXupQA-t500x500.jpg">](https://soundcloud.com/goodnightcody/who-is-me-yeah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000147061459-sahez2-t500x500.jpg">](https://soundcloud.com/snakedrocks/rocker-bitch)
 
-**Artist**: Goodnight Cody 
+**Artist**: SNAKED 
 
-**Track**: who is me, yeah?
+**Track**: ROCKER BITCH
 
-Last updated at 08/10/2021 15:20
+Last updated at 08/10/2021 15:22
