@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuGkDTuOpB7qUKTd-61uypA-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-belela-chimera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6bnfH8v85FoqJHg-bjyJVg-t500x500.jpg">](https://soundcloud.com/balamii/k2k-august-2022)
 
-**Artist**: Sublab 
+**Artist**: Balamii 
 
-**Track**: Sublab & Belela - Chimera
+**Track**: k2k - August 2021
 
-Last updated at 08/10/2021 16:48
+Last updated at 08/10/2021 17:04
