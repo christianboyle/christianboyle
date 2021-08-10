@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNb5I3G0vQGZZOf0-9LYSqw-t500x500.jpg">](https://soundcloud.com/etller/dektop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dlb3p45Yz5M89Bk4-yIysCA-t500x500.jpg">](https://soundcloud.com/dameeeela/cartirmx)
 
-**Artist**: Etller 
+**Artist**: dameeeela 
 
-**Track**: Etller X Lamp DX - DEKTOP
+**Track**: cartirmx
 
-Last updated at 08/10/2021 07:52
+Last updated at 08/10/2021 07:54
