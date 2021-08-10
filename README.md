@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RN3uvWVCOSwGNBJY-rJ7XZA-t500x500.jpg">](https://soundcloud.com/balamii/nancy-june-w-paige-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpTiYdpGWRyPfIMn-ozsDGQ-t500x500.jpg">](https://soundcloud.com/a_2/vision4507-im-smoke-girl-blunt-at-carlton-gardens-ft-virgil-abloh-smosh-ecco2k)
 
-**Artist**: Balamii 
+**Artist**: aston 
 
-**Track**: Nancy June w/ Paige - August 2021
+**Track**: vision4507 - im smoke girl blunt at carlton gardens ft. virgil abloh + smosh + ecco2k
 
-Last updated at 08/10/2021 15:32
+Last updated at 08/10/2021 16:42
