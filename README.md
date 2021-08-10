@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtaTwgUTtJv2xo2h-aOTsrA-t500x500.jpg">](https://soundcloud.com/casement/wifey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix)
 
-**Artist**: Casement 
+**Artist**: BKAYE 
 
-**Track**: Wifey
+**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
 
-Last updated at 08/10/2021 14:54
+Last updated at 08/10/2021 15:10
