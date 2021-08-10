@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jyo6iPOb3VIx1Vtw-gehzOA-t500x500.jpg">](https://soundcloud.com/almogfx/mist001-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GK82LpynSZVEo2jY-ZekyyA-t500x500.jpg">](https://soundcloud.com/dossyx/garden)
 
-**Artist**: almogfx 
+**Artist**: DossyX 
 
-**Track**: mist001 (EP)
+**Track**: GARDEN (REMIX)
 
-Last updated at 08/10/2021 07:56
+Last updated at 08/10/2021 07:58
