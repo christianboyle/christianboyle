@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpTiYdpGWRyPfIMn-ozsDGQ-t500x500.jpg">](https://soundcloud.com/a_2/vision4507-im-smoke-girl-blunt-at-carlton-gardens-ft-virgil-abloh-smosh-ecco2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H77wAP4ULr4pZia7-MfysBQ-t500x500.jpg">](https://soundcloud.com/destinuna/twin-nemesis-in-my-feelings)
 
-**Artist**: aston 
+**Artist**: Destinuna 
 
-**Track**: vision4507 - im smoke girl blunt at carlton gardens ft. virgil abloh + smosh + ecco2k
+**Track**: Twin Nemesis - In My Feelings
 
-Last updated at 08/10/2021 16:42
+Last updated at 08/10/2021 16:46
