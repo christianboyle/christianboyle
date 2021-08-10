@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpTiYdpGWRyPfIMn-ozsDGQ-t500x500.jpg">](https://soundcloud.com/a_2/vision4507-im-smoke-girl-blunt-at-carlton-gardens-ft-virgil-abloh-smosh-ecco2k)
 
-**Artist**: Wax'o Paradiso 
+**Artist**: aston 
 
-**Track**: 9am - 12pm at Lovejoy
+**Track**: vision4507 - im smoke girl blunt at carlton gardens ft. virgil abloh + smosh + ecco2k
 
-Last updated at 08/10/2021 11:27
+Last updated at 08/10/2021 14:44
