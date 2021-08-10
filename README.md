@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/A77rIF-BIsPBdIPoxpS4tRdti8hd2_OR4YpJbTDg3yObLaMh8fItq2WQXCEWagotNEzXB9ot=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCXCfOEJFMa40s-57zxw9MYw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3dMrWLW4A7P4oyi-9ES2yA-t500x500.jpg">](https://soundcloud.com/waxo-paradiso/9am-12pm-at-lovejoy)
 
-**Artist**: CHVRCHES 
+**Artist**: Wax'o Paradiso 
 
-**Track**: CHVRCHES, Robert Smith - How Not To Drown (Official Video)
+**Track**: 9am - 12pm at Lovejoy
 
-Last updated at 08/10/2021 10:33
+Last updated at 08/10/2021 11:27
