@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJJaTPzlcQYkUVrc-xH6ExQ-t500x500.jpg">](https://soundcloud.com/saint-bazarov/tatu-not-gonna-get-us-saint-bazarov-girls-on-acid-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UhjL0CGaupTzzI4I-hlj9fA-t500x500.jpg">](https://soundcloud.com/allhardnation/hands-up)
 
-**Artist**: Saint Bazarov 
+**Artist**: Hard Nation 
 
-**Track**: t.A.T.u. - Not Gonna Get Us (Saint Bazarov Girls On Acid Remix) FREE DOWNLOAD
+**Track**: SickBoy - Hands Up [HN Release]
 
-Last updated at 08/11/2021 18:18
+Last updated at 08/11/2021 18:24
