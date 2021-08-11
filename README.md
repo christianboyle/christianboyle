@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6PuVtz9igYRjqXL5-Ogt75g-t500x500.jpg">](https://soundcloud.com/goodvibesonly/gv089)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OtzzHRF9XsEg62K4-t6CHOQ-t500x500.jpg">](https://soundcloud.com/shyghyofficial/cant-let-go-1)
 
-**Artist**: Good Vibes Only 
+**Artist**: ShyGhy 
 
-**Track**: Forbidden Candys, Aderal - Tequila #GV089
+**Track**: Cant Let Go
 
-Last updated at 08/11/2021 17:00
+Last updated at 08/11/2021 17:02
