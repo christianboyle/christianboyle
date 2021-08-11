@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RqcSWszFxvmjYibU-yKpECw-t500x500.jpg">](https://soundcloud.com/nmrproject/makination-the-annual-vol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nSPhtCOLA4GitPZ-cO3rSQ-t500x500.jpg">](https://soundcloud.com/electric-station-label/mishel-risk-break-it-down)
 
-**Artist**: NMR Project - WWW.MAKINANOIZE.CO.UK 
+**Artist**: EDM label |Electric Station Label| 
 
-**Track**: Makination - The Annual Vol.2
+**Track**: Mishel Risk - Break It Down
 
-Last updated at 08/11/2021 18:08
+Last updated at 08/11/2021 18:12
