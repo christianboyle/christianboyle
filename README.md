@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86gy48wtlapHO4Vl-fResYw-t500x500.jpg">](https://soundcloud.com/djlogangarrett/staylaroibieber)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvlaVys5LMfq3RW8-LxQouQ-t500x500.jpg">](https://soundcloud.com/jadudala/dank-frank-delta-jadu167)
 
-**Artist**: Logan Garrett 
+**Artist**: Jadū Dala 
 
-**Track**: Stay - The Kid Laroi x Justin Bieber (Logan Garrett Remix)
+**Track**: Dank Frank - Delta (JADŪ167)
 
-Last updated at 08/11/2021 16:54
+Last updated at 08/11/2021 16:56
