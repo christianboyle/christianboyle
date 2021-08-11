@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NTZpwKfrCKuPXfOU-QSyrDQ-t500x500.jpg">](https://soundcloud.com/bingoplayers/hysteria-radio-280)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyA7csgTe04MDIoO-U4Oyjw-t500x500.jpg">](https://soundcloud.com/byxco/byxco-show-me)
 
-**Artist**: Bingo Players 
+**Artist**: BYXCO 
 
-**Track**: Hysteria Radio 280 (Felguk Guest Mix)
+**Track**: BYXCO - Show Me
 
-Last updated at 08/11/2021 17:05
+Last updated at 08/11/2021 18:06
