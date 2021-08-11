@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyA7csgTe04MDIoO-U4Oyjw-t500x500.jpg">](https://soundcloud.com/byxco/byxco-show-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RqcSWszFxvmjYibU-yKpECw-t500x500.jpg">](https://soundcloud.com/nmrproject/makination-the-annual-vol2)
 
-**Artist**: BYXCO 
+**Artist**: NMR Project - WWW.MAKINANOIZE.CO.UK 
 
-**Track**: BYXCO - Show Me
+**Track**: Makination - The Annual Vol.2
 
-Last updated at 08/11/2021 18:06
+Last updated at 08/11/2021 18:08
