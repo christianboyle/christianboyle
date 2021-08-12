@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3F0cNMqz0Ft9foHW-GvzAnw-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bxa4fauo4ybpUYoD-CTzgTw-t500x500.jpg">](https://soundcloud.com/eatdislabel/zwansound-produkt)
 
-**Artist**: Future Generation Radio 
+**Artist**: EAT DIS 
 
-**Track**: Future Generation Radio #021 [B3RROR Takeover]
+**Track**: ZWANSOUND - PRODUKT
 
-Last updated at 08/12/2021 00:02
+Last updated at 08/12/2021 00:30
