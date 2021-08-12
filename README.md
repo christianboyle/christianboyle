@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmLoy1Leubn6-0-t500x500.png">](https://soundcloud.com/watevawateva/disposable-society)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XdcKq8kPX176PJLa-AmgXZA-t500x500.jpg">](https://soundcloud.com/sxlvr/nightcall)
 
-**Artist**: WATEVA 
+**Artist**: sxlvr 
 
-**Track**: Disposable Society (with Manna)
+**Track**: NIGHT///CALL
 
-Last updated at 08/11/2021 21:42
+Last updated at 08/11/2021 21:46
