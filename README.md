@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OdOuA8JiXOqcr9n1-ValpDg-t500x500.jpg">](https://soundcloud.com/n2nmusic/swiperight21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WTu56EHDBAc-0-t500x500.jpg">](https://soundcloud.com/kamiyada/ride-n-die)
 
-**Artist**: N2N 
+**Artist**: Kamiyada+ 
 
-**Track**: SWIPE RIGHT TO FUNK 21
+**Track**: RIDE N DIE
 
-Last updated at 08/12/2021 02:55
+Last updated at 08/12/2021 04:03
