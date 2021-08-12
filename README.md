@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jP88K3nrJTEr6Uot-ZH0yeQ-t500x500.jpg">](https://soundcloud.com/fullspectrumdnb/fullspectrum-series-vol17-mixed-by-yerzy-cz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SfduCKeLTpdwHlb6-0yx5jw-t500x500.jpg">](https://soundcloud.com/vayretunes/manda)
 
-**Artist**: FULLSPECTRUM (DNB) 
+**Artist**: Vayre 
 
-**Track**: FULLSPECTRUM series VoL.17 mixed by YERZY (CZ)
+**Track**: Manda
 
-Last updated at 08/11/2021 18:30
+Last updated at 08/11/2021 19:08
