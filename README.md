@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHyD2WkORHX9HNtc-iylhcg-t500x500.jpg">](https://soundcloud.com/balamii/club-glow-radio-w-club-glow-b4b-triple-point-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyqnUh6VjGstgSME-TAnEdA-t500x500.jpg">](https://soundcloud.com/ayzlynn/grape-milk-pilagra?in=ayzlynn/sets/pilagra)
 
-**Artist**: Balamii 
+**Artist**: Ayzlynn. 
 
-**Track**: Club Glow Radio w/ Club Glow B4B & Triple Point - August 2021
+**Track**: grape milk - PILAGRA (Ayzlynn + Rootnote Collective)
 
-Last updated at 08/11/2021 21:52
+Last updated at 08/11/2021 23:54
