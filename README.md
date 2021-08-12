@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmIjGLU8ggDHsRJM-fljUjg-t500x500.jpg">](https://soundcloud.com/berrymane/powder-packs?in=berrymane/sets/out-on-spotify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8XUMREo3Y9Cfz7zP-mzKA0w-t500x500.jpg">](https://soundcloud.com/sorsari/orbital-frame)
 
-**Artist**: BERRYMANE 
+**Artist**: SORSARI 
 
-**Track**: POWDER PACKS
+**Track**: Orbital Frame
 
-Last updated at 08/12/2021 00:36
+Last updated at 08/12/2021 00:38
