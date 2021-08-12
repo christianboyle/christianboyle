@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NW1Viwilh5bLzMzm-VNvmxQ-t500x500.jpg">](https://soundcloud.com/armnhmr/nevergetsyouback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hc1uSQumzBerpQH-z4FuCg-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/tyh-stuck-on-you-hypermetrik-remix?in=chillplanetmusic/sets/tyh-stuck-on-you-remixes-2)
 
-**Artist**: ARMNHMR 
+**Artist**: Chill Planet 
 
-**Track**: ARMNHMR & Caslow - Never Gets You Back (feat. Kwesi)
+**Track**: Tyh - Stuck On You (hypermetrik Remix)
 
-Last updated at 08/11/2021 21:30
+Last updated at 08/11/2021 21:34
