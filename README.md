@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yl4HZluhIKF7lFu-OsXkHQ-t500x500.jpg">](https://soundcloud.com/cooltweens/shine-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPG0v8y3RGbntCE7-qFnPoQ-t500x500.jpg">](https://soundcloud.com/eliminamusic/elimina-radiance)
 
-**Artist**: cool ✨ tweens 
+**Artist**: ELIMINA 
 
-**Track**: shine forever
+**Track**: ELIMINA - Radiance
 
-Last updated at 08/12/2021 00:42
+Last updated at 08/12/2021 00:47
