@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CjaqSjWRHBugcRom-heTqQg-t500x500.jpg">](https://soundcloud.com/omarcameup/no-sleep-w-shaah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBGeKC3sIEAew4cj-zXf1Ng-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/rewildz-ft-meryll-infinity-dwx-copyright-free)
 
-**Artist**: OmarCameUp 
+**Artist**: Dirty Workz 
 
-**Track**: NO SLEEP w/ SHAAH
+**Track**: Rewildz ft. Meryll - Infinity (DWX Copyright Free)
 
-Last updated at 08/12/2021 04:47
+Last updated at 08/12/2021 04:49
