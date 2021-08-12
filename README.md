@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vc7FaFEogtoAqnyB-nRpjzg-t500x500.jpg">](https://soundcloud.com/yu-dachi/from-arcaea-yu-dachi-paper-witch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPkjxpCozD6uKDSM-hycDlg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms35)
 
-**Artist**: Yu-dachi / Yu＊dachi 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: [From Arcaea] Yu-dachi - Paper Witch
+**Track**: HPHF MS35: YOUNGPEAS
 
-Last updated at 08/12/2021 09:08
+Last updated at 08/12/2021 09:09
