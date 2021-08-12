@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPkjxpCozD6uKDSM-hycDlg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms35)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idISPfbKChl2PVIb-XPGAPQ-t500x500.jpg">](https://soundcloud.com/jacknifemusic/leotrix-tokyo-bounce-jacknife-recut)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: JACKNIFE 
 
-**Track**: HPHF MS35: YOUNGPEAS
+**Track**: LEOTRIX - TOKYO BOUNCE (JACKNIFE Recut)
 
-Last updated at 08/12/2021 07:51
+Last updated at 08/12/2021 09:04
