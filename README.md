@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g2i7lTxbLgEznuEz-pqxugg-t500x500.jpg">](https://soundcloud.com/loudkult/mvca-lissa-miss-you-like-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XryuwwTVjJKdT4Yj-zd6RIg-t500x500.jpg">](https://soundcloud.com/umru/honey)
 
-**Artist**: LoudKult 
+**Artist**: umru 
 
-**Track**: MVCA & LissA - Miss You (Like Hell)
+**Track**: That Kid & umru ― Honey
 
-Last updated at 08/13/2021 08:41
+Last updated at 08/13/2021 08:43
