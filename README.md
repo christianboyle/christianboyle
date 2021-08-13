@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pirZ8RyBFq60Qufg-eusbIw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms25-dan-larkin?in=hydeparkhifi/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g2i7lTxbLgEznuEz-pqxugg-t500x500.jpg">](https://soundcloud.com/loudkult/mvca-lissa-miss-you-like-hell)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: LoudKult 
 
-**Track**: HPHF MS26: DAN LARKIN
+**Track**: MVCA & LissA - Miss You (Like Hell)
 
-Last updated at 08/12/2021 09:29
+Last updated at 08/13/2021 08:41
