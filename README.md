@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UY4vzvvFS3Lq0ga9-BbUkoQ-t500x500.jpg">](https://soundcloud.com/balamii/haws-w-sub-rosa-fyi-robyn-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rgx8Go3z3rrUsQ96-7V8e3g-t500x500.jpg">](https://soundcloud.com/m1ssjay/floor-function)
 
-**Artist**: Balamii 
+**Artist**: miss jay 
 
-**Track**: Haŵs w/ Sub Rosa & FYI Robyn - August 2021
+**Track**: Miss Jay Guestmix for Floor Function
 
-Last updated at 08/13/2021 08:49
+Last updated at 08/13/2021 17:24
