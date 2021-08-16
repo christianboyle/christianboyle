@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000540351792-xq31bi-t500x500.jpg">](https://soundcloud.com/middlechildmusica/euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zv0HWJEaeqpMVMtd-yf7s7g-t500x500.jpg">](https://soundcloud.com/sir-rexington/bender-in-the-back-seat-mixtape)
 
-**Artist**: middle child 
+**Artist**: Sir Rexington 
 
-**Track**: Middle Child x S E S H - Euphoria [Free Download]
+**Track**: bender in the back seat mixtape
 
-Last updated at 08/15/2021 19:43
+Last updated at 08/15/2021 19:45
