@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UY4vzvvFS3Lq0ga9-BbUkoQ-t500x500.jpg">](https://soundcloud.com/balamii/haws-w-sub-rosa-fyi-robyn-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000540351792-xq31bi-t500x500.jpg">](https://soundcloud.com/middlechildmusica/euphoria)
 
-**Artist**: Balamii 
+**Artist**: middle child 
 
-**Track**: Haŵs w/ Sub Rosa & FYI Robyn - August 2021
+**Track**: Middle Child x S E S H - Euphoria [Free Download]
 
-Last updated at 08/15/2021 10:15
+Last updated at 08/15/2021 19:43
