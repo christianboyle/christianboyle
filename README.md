@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jrxIXwRPNWMcWnNc-5eMVoQ-t500x500.jpg">](https://soundcloud.com/balamii/equinox-w-fortresses-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9aERTfxRgQyYgcw-oGIAmQ-t500x500.jpg">](https://soundcloud.com/not_pepsi_max/gawntek-pepsi-mixtape)
 
-**Artist**: Balamii 
+**Artist**: Not Pepsi MAX 
 
-**Track**: Equinox w/ Fortresses - August 2021
+**Track**: GAWNTEK  - (lost pepsi mixtape)
 
-Last updated at 08/15/2021 19:47
+Last updated at 08/15/2021 19:49
