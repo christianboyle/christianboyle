@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdnAoY6NyShzSKZp-fg7WIQ-t500x500.jpg">](https://soundcloud.com/not_pepsi_max/pepsi-chart-hits-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9aERTfxRgQyYgcw-oGIAmQ-t500x500.jpg">](https://soundcloud.com/not_pepsi_max/gawntek-pepsi-mixtape)
 
 **Artist**: Not Pepsi MAX 
 
-**Track**: Pepsi Chart Hits Vol. 4
+**Track**: GAWNTEK  - (lost pepsi mixtape)
 
-Last updated at 08/16/2021 09:56
+Last updated at 08/16/2021 10:38
