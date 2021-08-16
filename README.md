@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000186728114-271nq2-t500x500.jpg">](https://soundcloud.com/not_pepsi/i-love-you-always-forever-pepsi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000203281011-w4dzsf-t500x500.jpg">](https://soundcloud.com/ultrasoundevents/we-are-hardcore-podcast-episode2-mixed-by-dj-s3rl)
 
-**Artist**: Not Pepsi 
+**Artist**: ULTRASOUND Entertainment(Official) 
 
-**Track**: I Love You Always Forever - (pepsi edit)
+**Track**: WE ARE HARDCORE PODCAST Episode#2 - Mixed by DJ S3RL
 
-Last updated at 08/16/2021 10:59
+Last updated at 08/16/2021 11:03
