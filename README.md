@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179881836-sd9lfe-t500x500.jpg">](https://soundcloud.com/powerpup/paris-hilton-i-want-you-powerpups-headspin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9aERTfxRgQyYgcw-oGIAmQ-t500x500.jpg">](https://soundcloud.com/not_pepsi_max/gawntek-pepsi-mixtape)
 
-**Artist**: Powerpup 
+**Artist**: Not Pepsi MAX 
 
-**Track**: Paris Hilton - I Want You (Powerpup's Headspin Remix)
+**Track**: GAWNTEK  - (lost pepsi mixtape)
 
-Last updated at 08/16/2021 08:15
+Last updated at 08/16/2021 08:17
