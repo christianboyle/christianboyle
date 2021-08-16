@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198587596-8tttcr-t500x500.jpg">](https://soundcloud.com/staminarecords/ab-vs-finnbarr-stick-together-s3rl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000203281011-w4dzsf-t500x500.jpg">](https://soundcloud.com/ultrasoundevents/we-are-hardcore-podcast-episode2-mixed-by-dj-s3rl)
 
-**Artist**: Stamina Records 
+**Artist**: ULTRASOUND Entertainment(Official) 
 
-**Track**: A.B Vs Finnbarr - Stick Together (S3RL Remix)
+**Track**: WE ARE HARDCORE PODCAST Episode#2 - Mixed by DJ S3RL
 
-Last updated at 08/16/2021 11:48
+Last updated at 08/16/2021 16:15
