@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZ5P8WxlukLkQYhQ-12sB8A-t500x500.jpg">](https://soundcloud.com/nightcorey/charli-xcx-forever-nightcorey-remix?in_system_playlist=track-stations%3A747928675)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkpKYSTpFUSRTVq2-VZK1sg-t500x500.jpg">](https://soundcloud.com/djikeacanada/for-your-eyes-only)
 
-**Artist**: nightcorey 
+**Artist**: DJ IKEA CANADA 
 
-**Track**: Charli XCX 'Forever' (nightcorey remix)
+**Track**: FOR YOUR EYES ONLY
 
-Last updated at 08/16/2021 09:37
+Last updated at 08/16/2021 09:41
