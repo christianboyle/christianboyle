@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000203281011-w4dzsf-t500x500.jpg">](https://soundcloud.com/ultrasoundevents/we-are-hardcore-podcast-episode2-mixed-by-dj-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6f2RA5DjveNaj3r-MgsEqg-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt092-ray-kandinski-garant)
 
-**Artist**: ULTRASOUND Entertainment(Official) 
+**Artist**: Lobster Theremin 
 
-**Track**: WE ARE HARDCORE PODCAST Episode#2 - Mixed by DJ S3RL
+**Track**: LT092 // Ray Kandinski - Garant
 
-Last updated at 08/16/2021 16:15
+Last updated at 08/17/2021 06:59
