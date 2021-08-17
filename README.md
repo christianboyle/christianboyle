@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198587596-8tttcr-t500x500.jpg">](https://soundcloud.com/staminarecords/ab-vs-finnbarr-stick-together-s3rl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133487530-gfefy1-t500x500.jpg">](https://soundcloud.com/robokidonline/i-need-u)
 
-**Artist**: Stamina Records 
+**Artist**: robokid 
 
-**Track**: A.B Vs Finnbarr - Stick Together (S3RL Remix)
+**Track**: I Need U
 
-Last updated at 08/17/2021 12:13
+Last updated at 08/17/2021 12:15
