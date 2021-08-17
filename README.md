@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160375538-ffjn56-t500x500.jpg">](https://soundcloud.com/not_pepsi/robyn-fembot-pepsi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jywdRvDKfoQNe5ie-Sc9hiA-t500x500.jpg">](https://soundcloud.com/dj-shield/beats-from-the-basement-vol-1)
 
-**Artist**: Not Pepsi 
+**Artist**: Shield 
 
-**Track**: Robyn - Fembot (pepsi edit)
+**Track**: 'Beats from the basement' Vol. 1
 
-Last updated at 08/17/2021 12:19
+Last updated at 08/17/2021 15:16
