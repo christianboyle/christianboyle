@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPlHHwPzSFsL0RZL-e13ZlQ-t500x500.jpg">](https://soundcloud.com/iffoundmusic/juice-wrld-the-kid-laroi-reminds-me-of-you-if-found-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198587596-8tttcr-t500x500.jpg">](https://soundcloud.com/staminarecords/ab-vs-finnbarr-stick-together-s3rl-remix)
 
-**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
+**Artist**: Stamina Records 
 
-**Track**: Juice WRLD, The Kid Laroi - Reminds Me Of You (if found Flip)
+**Track**: A.B Vs Finnbarr - Stick Together (S3RL Remix)
 
-Last updated at 08/17/2021 10:34
+Last updated at 08/17/2021 12:13
