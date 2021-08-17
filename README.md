@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJE3T92XJ13Y2Op1-TeCjaA-t500x500.jpg">](https://soundcloud.com/trapicalradio/tr001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPlHHwPzSFsL0RZL-e13ZlQ-t500x500.jpg">](https://soundcloud.com/iffoundmusic/juice-wrld-the-kid-laroi-reminds-me-of-you-if-found-flip)
 
-**Artist**: Trapical Radio 
+**Artist**: 𝖎𝖋 𝖋𝖔𝖚𝖓𝖉 
 
-**Track**: Best Remixes of Popular EDM Songs 2021 | Trapical Mix #001
+**Track**: Juice WRLD, The Kid Laroi - Reminds Me Of You (if found Flip)
 
-Last updated at 08/17/2021 08:31
+Last updated at 08/17/2021 10:34
