@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ssAHeWS4iXSQy8f-irXFXQ-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin023-dj-pantha-cheese-bun-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QJyPRdRVI3mt5N5r-JxEUZg-t500x500.jpg">](https://soundcloud.com/edmidentity/a-conversation-with-spuke-ep-61)
 
-**Artist**: Shall Not Fade 
+**Artist**: EDM Identity 
 
-**Track**: TIN023 // DJ Pantha - Cheese & Bun EP
+**Track**: A Conversation With Spuke - Ep. 61
 
-Last updated at 08/18/2021 07:36
+Last updated at 08/18/2021 07:38
