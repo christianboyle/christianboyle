@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QJyPRdRVI3mt5N5r-JxEUZg-t500x500.jpg">](https://soundcloud.com/edmidentity/a-conversation-with-spuke-ep-61)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWZo1m1Ie3cVHe68-8qfYxQ-t500x500.jpg">](https://soundcloud.com/gunfightmusic/fully-loaded-vol-20)
 
-**Artist**: EDM Identity 
+**Artist**: 𝒢𝓊𝓃𝐹𝒾𝑔𝒽𝓉 🔫👊 
 
-**Track**: A Conversation With Spuke - Ep. 61
+**Track**: Fully Loaded Vol 20
 
-Last updated at 08/18/2021 07:38
+Last updated at 08/18/2021 07:52
