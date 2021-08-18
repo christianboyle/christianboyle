@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWZo1m1Ie3cVHe68-8qfYxQ-t500x500.jpg">](https://soundcloud.com/gunfightmusic/fully-loaded-vol-20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pz7G5YuRZTrSyAI3-Lgi0QA-t500x500.jpg">](https://soundcloud.com/jtstanhope/the-kid-laroi-without-you-jts-flip)
 
-**Artist**: 𝒢𝓊𝓃𝐹𝒾𝑔𝒽𝓉 🔫👊 
+**Artist**: JTS 
 
-**Track**: Fully Loaded Vol 20
+**Track**: The Kid LAROI - Without You (JTS FLIP)
 
-Last updated at 08/18/2021 09:06
+Last updated at 08/18/2021 10:44
