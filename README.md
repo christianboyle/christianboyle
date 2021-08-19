@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6WDCTqk4hEkkLMh5-xU7jNg-t500x500.jpg">](https://soundcloud.com/angelcutlass/notice-w-sleye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i38HqvSrpieGzEli-U6EQnQ-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-doctor-jeep-necka-pill-1?in=drjeep/sets/doctor-jeep-reflexing-ep)
 
-**Artist**: angel cutlass 
+**Artist**: Mixmag 
 
-**Track**: notice w/ sleye (prod. angel cutlass)
+**Track**: Premiere: Doctor Jeep 'Necka Pill'
 
-Last updated at 08/19/2021 07:59
+Last updated at 08/19/2021 08:01
