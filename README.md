@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ioudyeNfAp25M1yh-E48beQ-t500x500.jpg">](https://soundcloud.com/sambingamusic/fracture-sam-binga-chessington-astrophonica-air?in=astrophonica/sets/fracture-sam-binga-on-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Ks3JqLPT2OheZGX-sLRYhg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-04-lmajor)
 
-**Artist**: sam binga 
+**Artist**: Astrophonica 
 
-**Track**: Fracture & Sam Binga - Chessington - Astrophonica AIR
+**Track**: Astrophonica Podcast 04 - LMajor
 
-Last updated at 08/19/2021 09:41
+Last updated at 08/19/2021 09:45
