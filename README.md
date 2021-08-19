@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8cwhZC6TU994RojL-pe9KOA-t500x500.jpg">](https://soundcloud.com/astrophonica/philip-d-kick-clouds?in=astrophonica/sets/philip-d-kick-as-we-continue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5UQVrC5Lya5Z7Oq1-JGy2TQ-t500x500.jpg">](https://soundcloud.com/fracture-official/fracture-sam-binga-on-right-now-air001?in=astrophonica/sets/fracture-sam-binga-on-right)
 
-**Artist**: Astrophonica 
+**Artist**: Fracture 
 
-**Track**: Philip D Kick - Clouds (APHA022DDS2)
+**Track**: Fracture & Sam Binga - On Right Now (AIR001)
 
-Last updated at 08/19/2021 09:32
+Last updated at 08/19/2021 09:37
