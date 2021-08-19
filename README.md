@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yga7jzeM2a07liM-HJzHYw-t500x500.jpg">](https://soundcloud.com/cloudnightcor3/zax40yekpssf)
 
-**Artist**: Astrophonica 
+**Artist**: SKY☁️NXC 
 
-**Track**: Astrophonica Podcast 03 - Sully
+**Track**: ??????
 
-Last updated at 08/19/2021 09:52
+Last updated at 08/19/2021 15:37
