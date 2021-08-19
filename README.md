@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TmJNaILerqwn4lbU-3fxbOQ-t500x500.jpg">](https://soundcloud.com/bounceheavenofficial/ben-jammin-sick-tired-bounceheavencouk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOeLSkZxoitZEzgI-sUMoEw-t500x500.jpg">](https://soundcloud.com/speedmgmt/freespeed-sonia-version-ii)
 
-**Artist**: BOUNCE HEAVEN with Andy Whitby 
+**Artist**: SPEED 
 
-**Track**: Ben Jammin - Sick & Tired - BounceHeaven.co.uk
+**Track**: FREESPEED: SONIA - Version II
 
-Last updated at 08/19/2021 07:38
+Last updated at 08/19/2021 07:40
