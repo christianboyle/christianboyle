@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179881836-sd9lfe-t500x500.jpg">](https://soundcloud.com/powerpup/paris-hilton-i-want-you-powerpups-headspin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIjJEkFHuFufdEdH-fclWeA-t500x500.jpg">](https://soundcloud.com/nakurar/summer-mix-2021)
 
-**Artist**: Powerpup 
+**Artist**: NakuRAR 
 
-**Track**: Paris Hilton - I Want You (Powerpup's Headspin Remix)
+**Track**: Nakura - Summer Mix 2021
 
-Last updated at 08/19/2021 15:55
+Last updated at 08/19/2021 15:57
