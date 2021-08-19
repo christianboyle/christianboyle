@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOeLSkZxoitZEzgI-sUMoEw-t500x500.jpg">](https://soundcloud.com/speedmgmt/freespeed-sonia-version-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IycRRX0sQtbk-0-t500x500.png">](https://soundcloud.com/sofia-kourtesis/la-perla-tourist-remix)
 
-**Artist**: SPEED 
+**Artist**: Sofia Kourtesis 
 
-**Track**: FREESPEED: SONIA - Version II
+**Track**: La Perla (Tourist Remix)
 
-Last updated at 08/19/2021 07:40
+Last updated at 08/19/2021 07:46
