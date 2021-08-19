@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160375538-ffjn56-t500x500.jpg">](https://soundcloud.com/not_pepsi/robyn-fembot-pepsi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzJwyjiz3ZBaXV3o-SdvdqQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/decoded-flows-moved-on?in=nightcore4totalsluts/sets/decoded-flows-moved-on-2-ep)
 
-**Artist**: Not Pepsi 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Robyn - Fembot (pepsi edit)
+**Track**: Decoded Flows - MOVED ON
 
-Last updated at 08/18/2021 11:53
+Last updated at 08/19/2021 07:36
