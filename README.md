@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bbQbkHOjCaMKL254-PyVLVQ-t500x500.jpg">](https://soundcloud.com/billyisterrible/indie-pop-type-beat-music-video-in-description)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SvZhGKwNriXHOIAt-aokI0g-t500x500.jpg">](https://soundcloud.com/44blonde/sldilh)
 
-**Artist**: Billy Marchiafava 
+**Artist**: 44Blonde 
 
-**Track**: Indie Pop Type Beat [MUSIC VIDEO IN DESCRIPTION]
+**Track**: She Loves Drugs (I Like Her)
 
-Last updated at 08/20/2021 17:28
+Last updated at 08/20/2021 17:30
