@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Ks3JqLPT2OheZGX-sLRYhg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-04-lmajor)
 
 **Artist**: Astrophonica 
 
-**Track**: Astrophonica Podcast 03 - Sully
+**Track**: Astrophonica Podcast 04 - LMajor
 
-Last updated at 08/20/2021 08:48
+Last updated at 08/20/2021 09:40
