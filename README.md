@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SvZhGKwNriXHOIAt-aokI0g-t500x500.jpg">](https://soundcloud.com/44blonde/sldilh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWZo1m1Ie3cVHe68-8qfYxQ-t500x500.jpg">](https://soundcloud.com/gunfightmusic/fully-loaded-vol-20)
 
-**Artist**: 44Blonde 
+**Artist**: 𝒢𝓊𝓃𝐹𝒾𝑔𝒽𝓉 🔫👊 
 
-**Track**: She Loves Drugs (I Like Her)
+**Track**: Fully Loaded Vol 20
 
-Last updated at 08/20/2021 17:30
+Last updated at 08/20/2021 17:32
