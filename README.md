@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SvZhGKwNriXHOIAt-aokI0g-t500x500.jpg">](https://soundcloud.com/44blonde/sldilh)
 
-**Artist**: Astrophonica 
+**Artist**: 44Blonde 
 
-**Track**: Astrophonica Podcast 03 - Sully
+**Track**: She Loves Drugs (I Like Her)
 
-Last updated at 08/20/2021 20:59
+Last updated at 08/20/2021 21:11
