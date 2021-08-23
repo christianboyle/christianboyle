@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJw4g1woZHWaei1O-GLUYtQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-193-dj-pgz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsZ4n8yo0MFryNqG-bS6T0w-t500x500.png">](https://soundcloud.com/rinsefm/scdd180821)
 
-**Artist**: Lobster Theremin 
+**Artist**: Rinse FM 
 
-**Track**: LT Podcast 193 // dj pgz
+**Track**: Steel City Dance Discs with Pates & Spi Derman - 18 August 2021
 
-Last updated at 08/23/2021 07:46
+Last updated at 08/23/2021 11:41
