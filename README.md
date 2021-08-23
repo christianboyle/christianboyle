@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gwl1efQzeyQfDP1X-O1jxmA-t500x500.jpg">](https://soundcloud.com/studiodrumandbass/subdue-resonate-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdizGuHurB8KnJ0F-zsYy4A-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf-mix-50-daffy)
 
-**Artist**: Studio Drum & Bass 
+**Artist**: Shall Not Fade 
 
-**Track**: Subdue - Resonate [Premiere]
+**Track**: SNF Mix 50 // Daffy
 
-Last updated at 08/23/2021 07:36
+Last updated at 08/23/2021 07:40
