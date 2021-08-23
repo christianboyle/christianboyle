@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yWewt9HIbJowEIK-fYqt2Q-t500x500.jpg">](https://soundcloud.com/phuturecollective/paark-modern-euphoric?in=paarkdtc/sets/paark-modern-euphoric)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zcQkzaZ5VndzJDI-ebNTmw-t500x500.jpg">](https://soundcloud.com/tholos_records/slime-coca-gag-24-bit)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Tholos Records 
 
-**Track**: Paark - Modern Euphoric
+**Track**: FREE DOWNLOAD SERIES - Slime Coca - GAG [TFD005]
 
-Last updated at 08/23/2021 07:32
+Last updated at 08/23/2021 07:34
