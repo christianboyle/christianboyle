@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pM4MxlNB6mfCCoKa-78CFng-t500x500.jpg">](https://soundcloud.com/derekd2edm/tsu-nami-juuku-presents?in_system_playlist=track-stations%3A1112073451)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000589642823-ndk4kk-t500x500.jpg">](https://soundcloud.com/grapemane/baddaz-abrakadaniel?in=abrakadanieluk/sets/baddaz-w-grape-mane)
 
-**Artist**: DerekD2🌙 
+**Artist**: grapemane 
 
-**Track**: TSU NAMI - Juuku Presents Another World
+**Track**: BADDAZ🏄🏿ABRAKADANIEL
 
-Last updated at 08/25/2021 15:16
+Last updated at 08/25/2021 15:18
