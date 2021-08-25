@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/wishing-well)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88bkRoZ4HVSMXNec-5SjlGQ-t500x500.jpg">](https://soundcloud.com/puppet/yokohama)
 
-**Artist**: Juice WRLD 
+**Artist**: Puppet 
 
-**Track**: Wishing Well
+**Track**: Yokohama
 
-Last updated at 08/25/2021 15:24
+Last updated at 08/25/2021 15:28
