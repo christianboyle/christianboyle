@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YmTQBlUJRFtQJRZi-XL4qqA-t500x500.jpg">](https://soundcloud.com/lovelybonesmusic/welcome-to-jamrocklovelybones-kickflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ew7Cc4yqIEHjugXy-xIYvNQ-t500x500.jpg">](https://soundcloud.com/novafuture/ottomangruw-cometa-crash-full-track)
 
-**Artist**: LovelyBones 
+**Artist**: NovaFuture 
 
-**Track**: Welcome To Jamrock(LovelyBones Flip)
+**Track**: ottoman.grüw - Cometa // Crash [DURCHDIGI005 | Premiere]
 
-Last updated at 08/25/2021 14:26
+Last updated at 08/25/2021 14:28
