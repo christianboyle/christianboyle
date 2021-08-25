@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxwZzzzfdP528sKF-rgcVIw-t500x500.jpg">](https://soundcloud.com/bvlvncemusic/juice-wrld-wishing-well-bvlvnce-vocal-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/wishing-well)
 
-**Artist**: BΛLΛNCE 
+**Artist**: Juice WRLD 
 
-**Track**: Juice WRLD - Wishing Well (BVLVNCE Vocal Cover)
+**Track**: Wishing Well
 
-Last updated at 08/25/2021 15:00
+Last updated at 08/25/2021 15:02
