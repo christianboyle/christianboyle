@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ew7Cc4yqIEHjugXy-xIYvNQ-t500x500.jpg">](https://soundcloud.com/novafuture/ottomangruw-cometa-crash-full-track)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H4xpjTqb0ZPWV6v-9ESzYQ-t500x500.jpg">](https://soundcloud.com/alexandarsmash/his-hers-alexandar-smash-remix)
 
-**Artist**: NovaFuture 
+**Artist**: Alexandar Smash 
 
-**Track**: ottoman.grüw - Cometa // Crash [DURCHDIGI005 | Premiere]
+**Track**: His & Hers (Alexandar Smash Remix)
 
-Last updated at 08/25/2021 14:28
+Last updated at 08/25/2021 14:30
