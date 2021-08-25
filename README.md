@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0krQar0NILSuRiL-ThG9Dw-t500x500.jpg">](https://soundcloud.com/manilakilla/chet-porter-the-longest-day-ever-manila-killa-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pM4MxlNB6mfCCoKa-78CFng-t500x500.jpg">](https://soundcloud.com/derekd2edm/tsu-nami-juuku-presents?in_system_playlist=track-stations%3A1112073451)
 
-**Artist**: Manila Killa 
+**Artist**: DerekD2🌙 
 
-**Track**: CHET PORTER - THE LONGEST DAY EVER (MANILA KILLA EDIT)
+**Track**: TSU NAMI - Juuku Presents Another World
 
-Last updated at 08/25/2021 15:10
+Last updated at 08/25/2021 15:16
