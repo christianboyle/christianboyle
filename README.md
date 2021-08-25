@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88bkRoZ4HVSMXNec-5SjlGQ-t500x500.jpg">](https://soundcloud.com/puppet/yokohama)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxwZzzzfdP528sKF-rgcVIw-t500x500.jpg">](https://soundcloud.com/bvlvncemusic/juice-wrld-wishing-well-bvlvnce-vocal-cover)
 
-**Artist**: Puppet 
+**Artist**: BΛLΛNCE 
 
-**Track**: Yokohama
+**Track**: Juice WRLD - Wishing Well (BVLVNCE Vocal Cover)
 
-Last updated at 08/25/2021 14:50
+Last updated at 08/25/2021 15:00
