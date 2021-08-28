@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IiSB5ECw3zwWZxRU-WuJdLg-t500x500.jpg">](https://soundcloud.com/dropcentral/overdose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdVCPD4wExzgfxzQ-AchZFQ-t500x500.jpg">](https://soundcloud.com/geminibullmusic/geminibull-better-off-ft-dnd-roxy)
 
-**Artist**: Drop Central 💧 
+**Artist**: Geminibull 
 
-**Track**: NEZIEL - Overdose
+**Track**: Geminibull - Better Off Ft. Dnd Roxy
 
-Last updated at 08/28/2021 17:17
+Last updated at 08/28/2021 17:19
