@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0SeMVbXnxmkJVZm-Vft53g-t500x500.jpg">](https://soundcloud.com/duckashanofficial/duckashan-livesetlasvegas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000428400708-dr84ve-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-vii)
 
-**Artist**: Ducka Shan 
+**Artist**: RL Grime 
 
-**Track**: Ducka Shan Live Set @ Las Vegas 7/17/21
+**Track**: Halloween VII
 
-Last updated at 08/28/2021 17:23
+Last updated at 08/28/2021 22:43
