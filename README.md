@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pvMcACjJ246Kw7Y3-MHvQQg-t500x500.jpg">](https://soundcloud.com/takatashawty/hold-on-me-down?in_system_playlist=track-stations%3A953678197)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXHe6NiyjKR8S8zZ-JIiaLA-t500x500.jpg">](https://soundcloud.com/sippinleandaddy/trappin-on-fols-forthcoming-ep)
 
-**Artist**: TAKATASHAWTY 
+**Artist**: SIPPINLEANDADDY 
 
-**Track**: HOLD ON ME DOWN
+**Track**: TRAPPIN ON FOOLS [FORTHCOMING EP]
 
-Last updated at 08/28/2021 23:03
+Last updated at 08/28/2021 23:05
