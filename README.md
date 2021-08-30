@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bTQyvETxLA84kHL6-O0gjFA-t500x500.jpg">](https://soundcloud.com/ethanplus/ethanplus-pop-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMA0EAccBTswamtu-3jdXOg-t500x500.jpg">](https://soundcloud.com/balamii/al-wootton-august-2021)
 
-**Artist**: ethanplus 
+**Artist**: Balamii 
 
-**Track**: Pop That!
+**Track**: Al Wootton - August 2021
 
-Last updated at 08/30/2021 13:33
+Last updated at 08/30/2021 15:03
