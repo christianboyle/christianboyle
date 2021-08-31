@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2LQxyU76OYwFfPx-vzUSsA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/diviners-izecold-tim-beeren-this-time-ft-crvn-molly-ann-ncs-release)
 
-**Artist**: TRUKADI 
+**Artist**: NCS 
 
-**Track**: Pick and choose (w/ Paivan)
+**Track**: Diviners, IZECOLD, Tim Beeren - This Time (ft. CRVN & Molly Ann) [NCS10 Release]
 
-Last updated at 08/31/2021 08:52
+Last updated at 08/31/2021 11:30
