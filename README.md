@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXHe6NiyjKR8S8zZ-JIiaLA-t500x500.jpg">](https://soundcloud.com/sippinleandaddy/trappin-on-fols-forthcoming-ep)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: SIPPINLEANDADDY 
 
-**Track**: HPHF MS38: PROXOXIE
+**Track**: TRAPPIN ON FOOLS [FORTHCOMING EP]
 
-Last updated at 09/01/2021 17:03
+Last updated at 09/01/2021 17:23
