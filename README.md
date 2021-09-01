@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/wishing-well)
 
-**Artist**: TRUKADI 
+**Artist**: Juice WRLD 
 
-**Track**: Pick and choose (w/ Paivan)
+**Track**: Wishing Well
 
-Last updated at 09/01/2021 09:44
+Last updated at 09/01/2021 09:46
