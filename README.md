@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RHQlXqpczp0HzJ5f-1JBFKw-t500x500.jpg">](https://soundcloud.com/lenizdnb/chicama-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqu2SionutbZ7mvO-YyK12Q-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-1)
 
-**Artist**: Leniz DnB 
+**Artist**: Nikademis 
 
-**Track**: Chicama [OUT NOW]
+**Track**: NIKADEMIS EDITS VOL. 1 - MASHUPS & EDITS - BASS, MIDTEMPO, DUBSTEP - FREE DOWNLOAD
 
-Last updated at 09/01/2021 07:56
+Last updated at 09/01/2021 08:02
