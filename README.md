@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMA0EAccBTswamtu-3jdXOg-t500x500.jpg">](https://soundcloud.com/balamii/al-wootton-august-2021)
+[<img align="left" width="100" src="https://yt3.ggpht.com/XaH-L9tbTLHrqTc0Ik_kksrG4qRhjXUZ9IIUy9X8dltml3aKZlqFNPL8sXzncXU_ENcCkwpScw=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCGPI7zCpQYpPhDLdOAmpAww)
 
-**Artist**: Balamii 
+**Artist**: rebecca 
 
-**Track**: Al Wootton - August 2021
+**Track**: Rebecca Black - Friday (Remix) ft Dorian Electra, Big Freedia & 3OH!3 [Official Video]
 
-Last updated at 09/01/2021 10:00
+Last updated at 09/01/2021 16:21
