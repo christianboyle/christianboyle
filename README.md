@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RHQlXqpczp0HzJ5f-1JBFKw-t500x500.jpg">](https://soundcloud.com/lenizdnb/chicama-out-now)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Leniz DnB 
 
-**Track**: HPHF MS38: PROXOXIE
+**Track**: Chicama [OUT NOW]
 
-Last updated at 09/01/2021 07:34
+Last updated at 09/01/2021 07:56
