@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMA0EAccBTswamtu-3jdXOg-t500x500.jpg">](https://soundcloud.com/balamii/al-wootton-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
 
-**Artist**: Balamii 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Al Wootton - August 2021
+**Track**: HPHF MS38: PROXOXIE
 
-Last updated at 08/31/2021 11:32
+Last updated at 09/01/2021 07:34
