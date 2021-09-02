@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88bkRoZ4HVSMXNec-5SjlGQ-t500x500.jpg">](https://soundcloud.com/puppet/yokohama)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PSB6SJ8xl6QuvxW-PFzEbg-t500x500.jpg">](https://soundcloud.com/rebelscummusic/bonfire)
 
-**Artist**: Puppet 
+**Artist**: Rebel Scum 
 
-**Track**: Yokohama
+**Track**: Knife Party - Bonfire (Rebel Scum Remix)
 
-Last updated at 09/02/2021 15:45
+Last updated at 09/02/2021 15:47
