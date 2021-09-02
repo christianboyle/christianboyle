@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLS_1_5haSPuy4x-jFQlAoTbutYEkgGnBq8qxiWP=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCU5AbNuMPGB491GcqXuzwKw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQHWJTxMZ5MZVWIS-OCyq0g-t500x500.jpg">](https://soundcloud.com/g59/if-self-destruction-was-an-olympic-event-id-be-tonya-harding)
 
-**Artist**: SUICIDEBOYS 
+**Artist**: $UICIDEBOY$ 
 
-**Track**: $UICIDEBOY$ - If Self-Destruction Was an Olympic Event, I'd Be Tonya Harding (Lyric Video)
+**Track**: IF SELF-DESTRUCTION WAS AN OLYMPIC EVENT, I'D BE TONYA HARDING
 
-Last updated at 09/01/2021 17:41
+Last updated at 09/02/2021 14:21
