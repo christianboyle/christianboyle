@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t500x500.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
 
-**Artist**: BKAYE 
+**Artist**: SNAKED 
 
-**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
+**Track**: PAUL STANLEY [Nest HQ Premiere]
 
-Last updated at 09/02/2021 16:11
+Last updated at 09/02/2021 16:13
