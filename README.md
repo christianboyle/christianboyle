@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t500x500.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykwEI3i1dMHPyNes-QbZdaQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/hannah-d-daisychain-185)
 
-**Artist**: SNAKED 
+**Artist**: Daisychain 
 
-**Track**: PAUL STANLEY [Nest HQ Premiere]
+**Track**: Daisychain 185 - Hannah D
 
-Last updated at 09/02/2021 16:13
+Last updated at 09/02/2021 16:17
