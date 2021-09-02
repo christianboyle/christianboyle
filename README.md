@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/psa-1?in=lilaaron911/sets/year-of-the-dog)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: lil aaron 
 
-**Track**: HPHF MS38: PROXOXIE
+**Track**: PSA
 
-Last updated at 09/02/2021 14:23
+Last updated at 09/02/2021 14:27
