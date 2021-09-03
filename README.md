@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1gIo5xPW6T0MTDhx-TC38rA-t500x500.jpg">](https://soundcloud.com/bloody_bloom/lorde-mood-ring-bloody-bloom-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g0krQar0NILSuRiL-ThG9Dw-t500x500.jpg">](https://soundcloud.com/manilakilla/chet-porter-the-longest-day-ever-manila-killa-edit)
 
-**Artist**: bloody bloom 
+**Artist**: Manila Killa 
 
-**Track**: Lorde - Mood Ring (bloody bloom remix)
+**Track**: CHET PORTER - THE LONGEST DAY EVER (MANILA KILLA EDIT)
 
-Last updated at 09/03/2021 13:14
+Last updated at 09/03/2021 13:20
