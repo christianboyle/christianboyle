@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqu2SionutbZ7mvO-YyK12Q-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
 
-**Artist**: Nikademis 
+**Artist**: lil aaron 
 
-**Track**: NIKADEMIS EDITS VOL. 1 - MASHUPS & EDITS - BASS, MIDTEMPO, DUBSTEP - FREE DOWNLOAD
+**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
 
-Last updated at 09/03/2021 12:06
+Last updated at 09/03/2021 12:30
