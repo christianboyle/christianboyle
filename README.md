@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDgiq7YV5OoZ0yBI-FFMpaA-t500x500.jpg">](https://soundcloud.com/scuffedrecs/ayesha-potentialenergy)
 
-**Artist**: lil aaron 
+**Artist**: Scuffed Recordings 
 
-**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
+**Track**: Ayesha - Potential Energy
 
-Last updated at 09/02/2021 22:14
+Last updated at 09/03/2021 09:38
