@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/jqWDIvcOj3VlDksJ2aPxr7KlwoO0GRDsRadmbV7OWT84nERx1S-FYGi3RcIytN3glkkKOlggHQ=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCU5AbNuMPGB491GcqXuzwKw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
 
-**Artist**: SUICIDEBOYS 
+**Artist**: lil aaron 
 
-**Track**: $UICIDEBOY$ - If Self-Destruction Was an Olympic Event, I'd Be Tonya Harding (Lyric Video)
+**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
 
-Last updated at 09/02/2021 22:08
+Last updated at 09/02/2021 22:14
