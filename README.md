@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0SeMVbXnxmkJVZm-Vft53g-t500x500.jpg">](https://soundcloud.com/duckashanofficial/duckashan-livesetlasvegas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000589642823-ndk4kk-t500x500.jpg">](https://soundcloud.com/grapemane/baddaz-abrakadaniel)
 
-**Artist**: Ducka Shan 
+**Artist**: grapemane 
 
-**Track**: Ducka Shan Live Set @ Las Vegas 7/17/21
+**Track**: BADDAZ🏄🏿ABRAKADANIEL
 
-Last updated at 09/03/2021 12:36
+Last updated at 09/03/2021 13:06
