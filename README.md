@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqu2SionutbZ7mvO-YyK12Q-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-1)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Nikademis 
 
-**Track**: HPHF MS38: PROXOXIE
+**Track**: NIKADEMIS EDITS VOL. 1 - MASHUPS & EDITS - BASS, MIDTEMPO, DUBSTEP - FREE DOWNLOAD
 
-Last updated at 09/03/2021 11:44
+Last updated at 09/03/2021 12:06
