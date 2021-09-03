@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMA0EAccBTswamtu-3jdXOg-t500x500.jpg">](https://soundcloud.com/balamii/al-wootton-august-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
 
-**Artist**: Balamii 
+**Artist**: lil aaron 
 
-**Track**: Al Wootton - August 2021
+**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
 
-Last updated at 09/03/2021 13:24
+Last updated at 09/03/2021 16:46
