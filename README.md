@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000589642823-ndk4kk-t500x500.jpg">](https://soundcloud.com/grapemane/baddaz-abrakadaniel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/wishing-well)
 
-**Artist**: grapemane 
+**Artist**: Juice WRLD 
 
-**Track**: BADDAZ🏄🏿ABRAKADANIEL
+**Track**: Wishing Well
 
-Last updated at 09/03/2021 13:06
+Last updated at 09/03/2021 13:10
