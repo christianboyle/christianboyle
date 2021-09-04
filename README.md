@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000547857216-0dbg6i-t500x500.jpg">](https://soundcloud.com/lovejumex/billie-eilish?in=lovejumex/sets/loner-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dghp24JWOkhitGja-CyAqqA-t500x500.jpg">](https://soundcloud.com/olivergrind/so-paid-so-fly)
 
-**Artist**: LOVEJUMEX 
+**Artist**: OLIVER GRIND 
 
-**Track**: BILLIE EILISH
+**Track**: SO PAID SO FLY
 
-Last updated at 09/04/2021 08:50
+Last updated at 09/04/2021 09:14
