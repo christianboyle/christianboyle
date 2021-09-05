@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhzSl9Ab61rdqlIx-9YgDcw-t500x500.jpg">](https://soundcloud.com/jockshit/jockeduppt2?in_system_playlist=track-stations%3A1101470848)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXHe6NiyjKR8S8zZ-JIiaLA-t500x500.jpg">](https://soundcloud.com/sippinleandaddy/trappin-on-fols-forthcoming-ep)
 
-**Artist**: VARSITY 
+**Artist**: SIPPINLEANDADDY 
 
-**Track**: JOCKED UP PT.2 (popstarbills + jackie platinum) [prod. RACE1 x SYNTHETIC]
+**Track**: TRAPPIN ON FOOLS [FORTHCOMING EP]
 
-Last updated at 09/04/2021 16:56
+Last updated at 09/05/2021 11:22
