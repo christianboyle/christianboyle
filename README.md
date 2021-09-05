@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpxlhCQ93u2D9jO2-m6Yh4g-t500x500.jpg">](https://soundcloud.com/sippinleandaddy/be-smoked-out-in-da-jag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0SeMVbXnxmkJVZm-Vft53g-t500x500.jpg">](https://soundcloud.com/duckashanofficial/duckashan-livesetlasvegas)
 
-**Artist**: SIPPINLEANDADDY 
+**Artist**: Ducka Shan 
 
-**Track**: BE SMOKED OUT IN DA JAG
+**Track**: Ducka Shan Live Set @ Las Vegas 7/17/21
 
-Last updated at 09/05/2021 11:26
+Last updated at 09/05/2021 11:28
