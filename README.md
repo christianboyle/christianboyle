@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdxk3oeBuFLwoJny-0xkMRw-t500x500.jpg">](https://soundcloud.com/nickleon/xanax-damage-nick-leon-pfizer-edit?in=nickleon/sets/2021-edits-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m4P8lO1UR4wlmx19-t7khrQ-t500x500.jpg">](https://soundcloud.com/wearelostkings/jail-pt-2lost-kings-remix)
 
-**Artist**: Nick León 
+**Artist**: Lost Kings 
 
-**Track**: X*n*x D*m*ge (Nick León Pfizer Edit)
+**Track**: Kanye West - Jail Pt. 2 (Lost Kings Remix)
 
-Last updated at 09/05/2021 15:26
+Last updated at 09/05/2021 16:40
