@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c1DfZW1LHMmR6k0J-abta5A-t500x500.jpg">](https://soundcloud.com/moonbeams_uk/glacci-elysian-fields)
 
-**Artist**: TRUKADI 
+**Artist**: MOONBEAMS Ⓡ 
 
-**Track**: Pick and choose (w/ Paivan)
+**Track**: Glacci - Elysian Fields
 
-Last updated at 09/06/2021 10:02
+Last updated at 09/06/2021 11:58
