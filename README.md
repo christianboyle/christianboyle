@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL44oBV4g4F5ZRGG-ZjcTEg-t500x500.jpg">](https://soundcloud.com/grimyboi/fuck-you-feat-ssappyy-grimyboi-the-boogerz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l16glE3kxXp4RIaY-PFoEJg-t500x500.jpg">](https://soundcloud.com/area3000/261-moondog)
 
-**Artist**: GRIMYBOI 
+**Artist**: Area 3000 Radio 
 
-**Track**: FUCK YOU (feat. SSAPPYY)
+**Track**: A3K261 Moondog - 2 September 2021
 
-Last updated at 09/05/2021 21:34
+Last updated at 09/05/2021 21:36
