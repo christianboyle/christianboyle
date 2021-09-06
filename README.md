@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXHe6NiyjKR8S8zZ-JIiaLA-t500x500.jpg">](https://soundcloud.com/sippinleandaddy/trappin-on-fols-forthcoming-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000428400708-dr84ve-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-vii)
 
-**Artist**: SIPPINLEANDADDY 
+**Artist**: RL Grime 
 
-**Track**: TRAPPIN ON FOOLS [FORTHCOMING EP]
+**Track**: Halloween VII
 
-Last updated at 09/06/2021 09:02
+Last updated at 09/06/2021 09:04
