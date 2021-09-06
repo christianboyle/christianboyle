@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c1DfZW1LHMmR6k0J-abta5A-t500x500.jpg">](https://soundcloud.com/moonbeams_uk/glacci-elysian-fields)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL44oBV4g4F5ZRGG-ZjcTEg-t500x500.jpg">](https://soundcloud.com/grimyboi/fuck-you-feat-ssappyy-grimyboi-the-boogerz)
 
-**Artist**: MOONBEAMS Ⓡ 
+**Artist**: GRIMYBOI 
 
-**Track**: Glacci - Elysian Fields
+**Track**: FUCK YOU (feat. SSAPPYY)
 
-Last updated at 09/05/2021 21:40
+Last updated at 09/06/2021 08:00
