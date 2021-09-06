@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL44oBV4g4F5ZRGG-ZjcTEg-t500x500.jpg">](https://soundcloud.com/grimyboi/fuck-you-feat-ssappyy-grimyboi-the-boogerz?in=grimyboi/sets/goober)
+[<img align="left" width="100" src="https://yt3.ggpht.com/HeTTYGbMqrbQyDMLEDhhZxD-v2lB9ZcDVZjswIzEZH7Mrh43FGUWh6fIkrjOWa_nPrU5TL3o6kU=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCraBSzUabipEJ2-5K1YUc7g)
 
-**Artist**: GRIMYBOI 
+**Artist**: LOVEJUMEX 
 
-**Track**: FUCK YOU (feat. SSAPPYY)
+**Track**: JUMEX - SPRAYPAINT FT. TRAVIS BARKER (DIR. BY @JUMEX & JASON LESTER)
 
-Last updated at 09/05/2021 21:22
+Last updated at 09/05/2021 21:24
