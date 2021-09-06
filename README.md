@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000428400708-dr84ve-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-vii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
 
-**Artist**: RL Grime 
+**Artist**: TRUKADI 
 
-**Track**: Halloween VII
+**Track**: Pick and choose (w/ Paivan)
 
-Last updated at 09/06/2021 09:04
+Last updated at 09/06/2021 10:02
