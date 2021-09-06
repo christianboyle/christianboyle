@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQHWJTxMZ5MZVWIS-OCyq0g-t500x500.jpg">](https://soundcloud.com/g59/if-self-destruction-was-an-olympic-event-id-be-tonya-harding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlkwldTLQpcuUzov-EVbwaA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms38-proxoxie)
 
-**Artist**: $UICIDEBOY$ 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: IF SELF-DESTRUCTION WAS AN OLYMPIC EVENT, I'D BE TONYA HARDING
+**Track**: HPHF MS38: PROXOXIE
 
-Last updated at 09/06/2021 08:14
+Last updated at 09/06/2021 08:16
