@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m4P8lO1UR4wlmx19-t7khrQ-t500x500.jpg">](https://soundcloud.com/wearelostkings/jail-pt-2lost-kings-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL44oBV4g4F5ZRGG-ZjcTEg-t500x500.jpg">](https://soundcloud.com/grimyboi/fuck-you-feat-ssappyy-grimyboi-the-boogerz?in=grimyboi/sets/goober)
 
-**Artist**: Lost Kings 
+**Artist**: GRIMYBOI 
 
-**Track**: Kanye West - Jail Pt. 2 (Lost Kings Remix)
+**Track**: FUCK YOU (feat. SSAPPYY)
 
-Last updated at 09/05/2021 16:40
+Last updated at 09/05/2021 21:18
