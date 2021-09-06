@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/HeTTYGbMqrbQyDMLEDhhZxD-v2lB9ZcDVZjswIzEZH7Mrh43FGUWh6fIkrjOWa_nPrU5TL3o6kU=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCraBSzUabipEJ2-5K1YUc7g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F98qX9N1Tjn8Sg9N-rmh0sw-t500x500.jpg">](https://soundcloud.com/grimyboi/jaded-feat-hellishh3x)
 
-**Artist**: LOVEJUMEX 
+**Artist**: GRIMYBOI 
 
-**Track**: JUMEX - SPRAYPAINT FT. TRAVIS BARKER (DIR. BY @JUMEX & JASON LESTER)
+**Track**: JADED feat. HellishH3x
 
-Last updated at 09/05/2021 21:24
+Last updated at 09/05/2021 21:32
