@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDgiq7YV5OoZ0yBI-FFMpaA-t500x500.jpg">](https://soundcloud.com/scuffedrecs/ayesha-potential-energy-ep?in=scuffedrecs/sets/ayesha-potential-energy-ep-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFgRhYJzpFOkbxWe-I3mFxw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf-mix-51-meg-ward)
 
-**Artist**: Scuffed Recordings 
+**Artist**: Shall Not Fade 
 
-**Track**: Ayesha - Potential Energy EP(Previews)
+**Track**: SNF Mix 51 // Meg Ward
 
-Last updated at 09/07/2021 08:16
+Last updated at 09/07/2021 08:20
