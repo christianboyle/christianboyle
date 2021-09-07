@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFgRhYJzpFOkbxWe-I3mFxw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf-mix-51-meg-ward)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxvyNA1K3QyOUhYI-8Hfz7Q-t500x500.jpg">](https://soundcloud.com/djyungvampire13/glock-45-came-with-30-shots)
 
-**Artist**: Shall Not Fade 
+**Artist**: DJ YUNG VAMP 
 
-**Track**: SNF Mix 51 // Meg Ward
+**Track**: GLOCK 45 CAME WITH 30 SHOTS
 
-Last updated at 09/07/2021 09:20
+Last updated at 09/07/2021 17:44
