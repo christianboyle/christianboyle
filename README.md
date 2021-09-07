@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0sxFC3v9bZ7Ew9J-sZiDVA-t500x500.jpg">](https://soundcloud.com/beatlabradio/rance-riley-exclusive-mix-beat-lab-radio-352)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqQPyP7wMEUq7Q6D-aLGisA-t500x500.jpg">](https://soundcloud.com/ff240dbx/old-money)
 
-**Artist**: Beat Lab Radio 
+**Artist**: AEII! 
 
-**Track**: Rance Riley - Exclusive Mix - Beat Lab Radio 352
+**Track**: OLD MONEY
 
-Last updated at 09/06/2021 21:54
+Last updated at 09/06/2021 22:54
