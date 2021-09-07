@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGRq43Rl8Uy2weW6-lC8yEA-t500x500.jpg">](https://soundcloud.com/itssodope/lovin-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDMfPb6S5MKHBjDC-wPRlrA-t500x500.jpg">](https://soundcloud.com/balamii/max-wyatt-w-jamie-morrison-september-2021)
 
-**Artist**: So Dope 
+**Artist**: Balamii 
 
-**Track**: Lovin U
+**Track**: Max Wyatt w/ Jamie Morrison - September 2021
 
-Last updated at 09/07/2021 02:08
+Last updated at 09/07/2021 02:10
