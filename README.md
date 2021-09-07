@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mecr6lKBR8d2Wuly-8R4o1w-t500x500.jpg">](https://soundcloud.com/ducksondrugs/dscvr-presents-ducks-on-drugs-mephi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0sxFC3v9bZ7Ew9J-sZiDVA-t500x500.jpg">](https://soundcloud.com/beatlabradio/rance-riley-exclusive-mix-beat-lab-radio-352)
 
-**Artist**: Ducks On Drugs 
+**Artist**: Beat Lab Radio 
 
-**Track**: DSCVR Presents 'Ducks On Drugs' - MEPHI
+**Track**: Rance Riley - Exclusive Mix - Beat Lab Radio 352
 
-Last updated at 09/06/2021 21:32
+Last updated at 09/06/2021 21:54
