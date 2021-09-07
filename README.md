@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGGY34gjXjZX2pOc-hni7Pw-t500x500.jpg">](https://soundcloud.com/airsh4d3/essence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iql3Tcg8hM2d-0-t500x500.jpg">](https://soundcloud.com/stripess/be-mine-3)
 
-**Artist**: airshade 
+**Artist**: 「 stripess 」 
 
-**Track**: essence
+**Track**: be mine
 
-Last updated at 09/07/2021 04:10
+Last updated at 09/07/2021 04:12
