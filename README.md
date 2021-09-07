@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfX4rn6z99HsGeoy-hht6Vw-t500x500.jpg">](https://soundcloud.com/balamii/fade-to-zaire-w-beg-4-cred-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGRq43Rl8Uy2weW6-lC8yEA-t500x500.jpg">](https://soundcloud.com/itssodope/lovin-u)
 
-**Artist**: Balamii 
+**Artist**: So Dope 
 
-**Track**: Fade To Zaire w/ Beg 4 Cred - September 2021
+**Track**: Lovin U
 
-Last updated at 09/07/2021 00:12
+Last updated at 09/07/2021 02:08
