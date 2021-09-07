@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAZwk1HnT0q869hY-dmlmQg-t500x500.jpg">](https://soundcloud.com/balamii/lounging-w-josh-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UROobooR8kKMjTry-SQXg6Q-t500x500.jpg">](https://soundcloud.com/staminarecords/stamina-records-radio-038-hosted-by-digital-commandos)
 
-**Artist**: Balamii 
+**Artist**: Stamina Records 
 
-**Track**: Lounging w/ Josh - September 2021
+**Track**: Stamina Records Radio 038 - Hosted By Digital Commandos
 
-Last updated at 09/07/2021 05:30
+Last updated at 09/07/2021 08:08
