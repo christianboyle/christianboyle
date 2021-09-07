@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QJhw89JX7CfC8c35-SNd02Q-t500x500.jpg">](https://soundcloud.com/greatrandommusic/face-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mecr6lKBR8d2Wuly-8R4o1w-t500x500.jpg">](https://soundcloud.com/ducksondrugs/dscvr-presents-ducks-on-drugs-mephi)
 
-**Artist**: Great Random Music 
+**Artist**: Ducks On Drugs 
 
-**Track**: that boi retrol - Face It (ft. Selina Alicia Lilian) (Bass Nation Premiere)
+**Track**: DSCVR Presents 'Ducks On Drugs' - MEPHI
 
-Last updated at 09/06/2021 21:30
+Last updated at 09/06/2021 21:32
