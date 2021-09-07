@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-57WbqAMp3s0Or56K-IXSEIA-t500x500.jpg">](https://soundcloud.com/bassrush/dirty-audio-tell-me?in=bassrush/sets/dirty-audio-no-stoppin-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000424400352-b6rk2o-t500x500.jpg">](https://soundcloud.com/attaqmusic/ime-remix)
 
-**Artist**: Bassrush 
+**Artist**: ATTAQ 
 
-**Track**: Dirty Audio - Tell Me
+**Track**: Moss - I & Me (The Regrowth) [ATTAQ REMIX] *FREE DL*
 
-Last updated at 09/06/2021 23:02
+Last updated at 09/06/2021 23:04
