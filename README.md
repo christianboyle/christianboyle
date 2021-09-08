@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJtpy6EQTlywbun9-f5RX3A-t500x500.jpg">](https://soundcloud.com/mood_ids/retrovision-id-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjO8HGvnvG20hC0j-dd0Fzw-t500x500.jpg">](https://soundcloud.com/balamii/patrisha-trance-special-september-2021)
 
-**Artist**: Mood ID's 
+**Artist**: Balamii 
 
-**Track**: RetroVision - ID
+**Track**: Patrisha: Trance Special - September 2021
 
-Last updated at 09/08/2021 08:12
+Last updated at 09/08/2021 08:14
