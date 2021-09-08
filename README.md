@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yz7en9XrzF80bI7J-71bAjA-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/pepas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-surkbHAXZBLg0kr3-bJZYQg-t500x500.jpg">](https://soundcloud.com/bingoplayers/hysteria-radio-284)
 
-**Artist**: GEO 
+**Artist**: Bingo Players 
 
-**Track**: FARRUKO - PEPAS - (GEO REMIX)
+**Track**: Hysteria Radio 284
 
-Last updated at 09/08/2021 17:02
+Last updated at 09/08/2021 17:04
