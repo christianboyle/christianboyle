@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJQExMyOmyHjqWa7-FDm8jQ-t500x500.jpg">](https://soundcloud.com/area3000/hot-girl-summer-hannah-dj-luv-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yz7en9XrzF80bI7J-71bAjA-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/pepas)
 
-**Artist**: Area 3000 Radio 
+**Artist**: GEO 
 
-**Track**: Hot Girl Summer w. Hannah D & DJ Luv You (Luna Blessings Live @ Milney's) - 8 September 2021
+**Track**: FARRUKO - PEPAS - (GEO REMIX)
 
-Last updated at 09/08/2021 17:00
+Last updated at 09/08/2021 17:02
