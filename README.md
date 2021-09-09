@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNnm7LoJYq2045Om-DisoiQ-t500x500.jpg">](https://soundcloud.com/balamii/sumgii-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmULc4nA41YBGHK0-8ROczg-t500x500.jpg">](https://soundcloud.com/lowlypalace/synchronice-out-there?in=synchronice/sets/out-there)
 
-**Artist**: Balamii 
+**Artist**: Lowly. 
 
-**Track**: Sumgii - September 2021
+**Track**: Synchronice - Out There
 
-Last updated at 09/09/2021 08:11
+Last updated at 09/09/2021 12:37
