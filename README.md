@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-surkbHAXZBLg0kr3-bJZYQg-t500x500.jpg">](https://soundcloud.com/bingoplayers/hysteria-radio-284)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZWM1hZUgKLEi80R9-MPzogw-t500x500.jpg">](https://soundcloud.com/wakaan/shanghai-doom-leet-murky)
 
-**Artist**: Bingo Players 
+**Artist**: Wakaan 
 
-**Track**: Hysteria Radio 284
+**Track**: Shanghai Doom, leet - Murky
 
-Last updated at 09/08/2021 17:04
+Last updated at 09/09/2021 07:57
