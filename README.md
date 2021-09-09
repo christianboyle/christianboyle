@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mVxhh5GPqeHdltp6-5jmWog-t500x500.jpg">](https://soundcloud.com/txrecords/fabrizio-de-santis-budokai-tenkaichi-tx017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tCz85zk84j8X3Igi-xZxzAw-t500x500.jpg">](https://soundcloud.com/lucydaydream/where-i-need-to-be-1)
 
-**Artist**: Tx Records 
+**Artist**: Lucy Daydream 
 
-**Track**: Fabrizio De Santis - Budokai Tenkaichi [TX017]
+**Track**: Where I Need To Be
 
-Last updated at 09/09/2021 12:39
+Last updated at 09/09/2021 12:41
