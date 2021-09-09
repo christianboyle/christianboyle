@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yP7uXCP0XfSoIaEz-XuSDXw-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/matheny-mythm-sinner?in=wormhole-music-group/sets/matheny-mythm-reflex-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNnm7LoJYq2045Om-DisoiQ-t500x500.jpg">](https://soundcloud.com/balamii/sumgii-september-2021)
 
-**Artist**: Wormhole Music Group 
+**Artist**: Balamii 
 
-**Track**: Matheny & MYTHM - Sinner
+**Track**: Sumgii - September 2021
 
-Last updated at 09/09/2021 08:09
+Last updated at 09/09/2021 08:11
