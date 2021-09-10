@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBPRbIZIqZTUd3Ep-dflyzA-t500x500.jpg">](https://soundcloud.com/enjoii/niya-brothel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
 
-**Artist**: enjoii 
+**Artist**: TRUKADI 
 
-**Track**: brothel. x enjoii - NIYA
+**Track**: Pick and choose (w/ Paivan)
 
-Last updated at 09/10/2021 17:19
+Last updated at 09/10/2021 17:21
