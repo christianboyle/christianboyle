@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tCz85zk84j8X3Igi-xZxzAw-t500x500.jpg">](https://soundcloud.com/lucydaydream/where-i-need-to-be-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xlg2aVnaCQq9mxRQ-vhKS9w-t500x500.jpg">](https://soundcloud.com/trademarkbootlegs/the-pregame-series-september-057)
 
-**Artist**: Lucy Daydream 
+**Artist**: Trademark 
 
-**Track**: Where I Need To Be
+**Track**: The Pregame Series (September 057)
 
-Last updated at 09/09/2021 12:41
+Last updated at 09/10/2021 08:35
