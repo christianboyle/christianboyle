@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRTj1UpyoNy6hLgO-Bo8m9A-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-195-plain-sailing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pyclqXN4z7KzL4F5-dqNJ0w-t500x500.jpg">](https://soundcloud.com/mixmag-1/scene-plain-sailing-belfast?in=plainsailingbelfast/sets/plain-sailing-resident-mixes)
 
-**Artist**: Lobster Theremin 
+**Artist**: Mixmag 
 
-**Track**: LT Podcast 195 // Plain Sailing
+**Track**: Scene: Plain Sailing // Belfast
 
-Last updated at 09/10/2021 08:39
+Last updated at 09/10/2021 09:49
