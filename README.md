@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7ja8omm5XOMuLI1-VjwdWw-t500x500.jpg">](https://soundcloud.com/trukadi/pick-and-choose-w-paivan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Csy3UkceVGTxWM3z-4HgluA-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-163-spuke)
 
-**Artist**: TRUKADI 
+**Artist**: FUXWITHIT 
 
-**Track**: Pick and choose (w/ Paivan)
+**Track**: FUXWITHIT Guest Mix: 163 - spüke
 
-Last updated at 09/10/2021 17:21
+Last updated at 09/10/2021 17:23
