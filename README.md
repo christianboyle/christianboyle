@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QKZk1TTDEVv7vpx1-EigPAA-t500x500.jpg">](https://soundcloud.com/dolcevitaofficial/dolce-vita-nel-blu-dipinto-di-blu?in=dolcevitaofficial/sets/dolce-vita-nel-blu-dipinto-di)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBPRbIZIqZTUd3Ep-dflyzA-t500x500.jpg">](https://soundcloud.com/enjoii/niya-brothel)
 
-**Artist**: DOLCE VITA 
+**Artist**: enjoii 
 
-**Track**: DOLCE VITA - Nel Blu Dipinto Di Blu (Volare)
+**Track**: brothel. x enjoii - NIYA
 
-Last updated at 09/10/2021 17:15
+Last updated at 09/10/2021 17:19
