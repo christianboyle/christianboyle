@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Csy3UkceVGTxWM3z-4HgluA-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-163-spuke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqu2SionutbZ7mvO-YyK12Q-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-1)
 
-**Artist**: FUXWITHIT 
+**Artist**: Nikademis 
 
-**Track**: FUXWITHIT Guest Mix: 163 - spüke
+**Track**: NIKADEMIS EDITS VOL. 1 - MASHUPS & EDITS - BASS, MIDTEMPO, DUBSTEP - FREE DOWNLOAD
 
-Last updated at 09/10/2021 17:23
+Last updated at 09/10/2021 17:27
