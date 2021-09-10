@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZurbQnmgMwzDTjBK-i97HlA-t500x500.jpg">](https://soundcloud.com/yunggrunge/laidbackmusic-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRTj1UpyoNy6hLgO-Bo8m9A-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-195-plain-sailing)
 
-**Artist**: YUNGGRUNGE 
+**Artist**: Lobster Theremin 
 
-**Track**: LAIDBACKMUSIC VOL. I (FULL TAPE)
+**Track**: LT Podcast 195 // Plain Sailing
 
-Last updated at 09/10/2021 08:37
+Last updated at 09/10/2021 08:39
