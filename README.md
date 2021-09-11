@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnwF4l0Ugrgg5Rcm-1E2G9A-t500x500.jpg">](https://soundcloud.com/kittenbear/twentypercent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aW8LbLVUzkdddIyR-0Rptyg-t500x500.jpg">](https://soundcloud.com/youasidepiece/sidepiece-acrobatic-j-worra-remix)
 
-**Artist**: kittenbear // [era_azure] 
+**Artist**: SIDEPIECE 
 
-**Track**: 2o% pure luv
+**Track**: SIDEPIECE - Acrobatic (J. Worra Remix)
 
-Last updated at 09/11/2021 11:25
+Last updated at 09/11/2021 11:27
