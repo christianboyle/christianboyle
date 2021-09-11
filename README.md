@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqu2SionutbZ7mvO-YyK12Q-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vQA8TuH7j3UmuMz-ABHHIg-t500x500.jpg">](https://soundcloud.com/fractalfantasy/kid-cudi)
 
-**Artist**: Nikademis 
+**Artist**: FRACTAL FANTASY 
 
-**Track**: NIKADEMIS EDITS VOL. 1 - MASHUPS & EDITS - BASS, MIDTEMPO, DUBSTEP - FREE DOWNLOAD
+**Track**: Kid Cudi (Sinjin Hawke Bootleg)
 
-Last updated at 09/10/2021 17:27
+Last updated at 09/11/2021 09:35
