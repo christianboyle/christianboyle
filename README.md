@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Omm7opFv5Dx4atmN-I7lYeQ-t500x500.jpg">](https://soundcloud.com/area3000/anemia-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBkUcVRLRzosbW2a-dtEP9w-t500x500.jpg">](https://soundcloud.com/wmnatwrk/temping-w-wmnatwrk-mumz-the-word)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Women At Work 
 
-**Track**: anemia - 10 September 2021
+**Track**: Temping w/ WMNATWRK - Mumz the Word
 
-Last updated at 09/11/2021 09:37
+Last updated at 09/11/2021 10:27
