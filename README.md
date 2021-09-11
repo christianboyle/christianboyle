@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzrLQXhhHF4Co0hq-B2nxuA-t500x500.jpg">](https://soundcloud.com/2siik/inside-out-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWhZnjuxBavH1z3M-MDDriw-t500x500.jpg">](https://soundcloud.com/balamii/bastami-september-2021)
 
-**Artist**: 2SiiK 
+**Artist**: Balamii 
 
-**Track**: Inside Out (Original Mix)
+**Track**: Bastami - September 2021
 
-Last updated at 09/11/2021 11:33
+Last updated at 09/11/2021 11:37
