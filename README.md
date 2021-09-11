@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBkUcVRLRzosbW2a-dtEP9w-t500x500.jpg">](https://soundcloud.com/wmnatwrk/temping-w-wmnatwrk-mumz-the-word)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnwF4l0Ugrgg5Rcm-1E2G9A-t500x500.jpg">](https://soundcloud.com/kittenbear/twentypercent)
 
-**Artist**: Women At Work 
+**Artist**: kittenbear // [era_azure] 
 
-**Track**: Temping w/ WMNATWRK - Mumz the Word
+**Track**: 2o% pure luv
 
-Last updated at 09/11/2021 10:27
+Last updated at 09/11/2021 11:25
