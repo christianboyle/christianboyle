@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vQA8TuH7j3UmuMz-ABHHIg-t500x500.jpg">](https://soundcloud.com/fractalfantasy/kid-cudi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Omm7opFv5Dx4atmN-I7lYeQ-t500x500.jpg">](https://soundcloud.com/area3000/anemia-002)
 
-**Artist**: FRACTAL FANTASY 
+**Artist**: Area 3000 Radio 
 
-**Track**: Kid Cudi (Sinjin Hawke Bootleg)
+**Track**: anemia - 10 September 2021
 
-Last updated at 09/11/2021 09:35
+Last updated at 09/11/2021 09:37
