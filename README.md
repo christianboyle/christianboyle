@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qBJoVXtnYi4JBVh-JiGawQ-t500x500.jpg">](https://soundcloud.com/dubplates-vinyls/harmony-get-down-dat042-clip?in=dubplates-vinyls/sets/harmony-get-down-dreaming-caulk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zgYz9yQ3Rh3Rpm7Q-ffi36Q-t500x500.jpg">](https://soundcloud.com/balamii/people-places-w-henry-september-2021)
 
-**Artist**: Deep Jungle Records 
+**Artist**: Balamii 
 
-**Track**: Harmony - Get Down [DAT042] clip
+**Track**: People & Places w/ HENRY - September 2021
 
-Last updated at 09/12/2021 08:41
+Last updated at 09/12/2021 08:43
