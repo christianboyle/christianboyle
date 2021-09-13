@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5TTA29gO0AcGhufw-UcbTNg-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra797-dj-pitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNLly2d3LkdCe4a9-HojsuA-t500x500.jpg">](https://soundcloud.com/balamii/methods-of-mellow-september-2021)
 
-**Artist**: Resident Advisor 
+**Artist**: Balamii 
 
-**Track**: RA.797 DJ Pitch
+**Track**: Methods of Mellow - September 2021
 
-Last updated at 09/13/2021 08:11
+Last updated at 09/13/2021 09:31
