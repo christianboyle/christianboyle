@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7dxZiEskyYl2LrA-qPtuzg-t500x500.jpg">](https://soundcloud.com/rudeservice/omas-x-misdom-when-its-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD1e01MEdpNMdzsB-G4r1VQ-t500x500.jpg">](https://soundcloud.com/phuturecollective/jkuch-endure?in=phuturecollective/sets/issue-seventeen-empathy)
 
-**Artist**: Rude Service 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: OMAS x Misdom - When It's Over
+**Track**: JKuch - Endure
 
-Last updated at 09/13/2021 07:55
+Last updated at 09/13/2021 07:57
