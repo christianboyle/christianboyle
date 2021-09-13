@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrwUGLzvDMLOYKyM-aXzuvQ-t500x500.jpg">](https://soundcloud.com/witchhotel/killmesumday-witch-hotel-desire-prod-discent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SwHQ2rSrlHKdnCBK-ynvMJg-t500x500.jpg">](https://soundcloud.com/l_shawn/gleam-prodby-thanksrayray)
 
-**Artist**: witch hotel 
+**Artist**: L’shawn (@lshawnny) 
 
-**Track**: killmesumday & witch hotel - desire (prod. discent)
+**Track**: gleam (prodby.thanksrayray)
 
-Last updated at 09/13/2021 07:47
+Last updated at 09/13/2021 07:49
