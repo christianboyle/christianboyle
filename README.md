@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6C8txZzvYlpJEnQD-oiWT8A-t500x500.jpg">](https://soundcloud.com/ducksondrugs/dscvr-presents-ducks-on-drugs-george-z)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBIRCuGINjzWboRa-qb24FQ-t500x500.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-marie-montexier)
 
-**Artist**: Ducks On Drugs 
+**Artist**: Possession 
 
-**Track**: DSCVR Presents 'Ducks On Drugs' - George Z
+**Track**: POSSESSION PODCAST #186 - Summer of Tribal Mix - MARIE MONTEXIER
 
-Last updated at 09/13/2021 15:45
+Last updated at 09/14/2021 09:15
