@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBIRCuGINjzWboRa-qb24FQ-t500x500.jpg">](https://soundcloud.com/possessiontechno/possession-podcast-marie-montexier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAy2UdmuksrGukhj-gh1pkQ-t500x500.jpg">](https://soundcloud.com/kastraniteshiftradio/eclipse2)
 
-**Artist**: Possession 
+**Artist**: Kastra Presents: Niteshift Radio 
 
-**Track**: POSSESSION PODCAST #186 - Summer of Tribal Mix - MARIE MONTEXIER
+**Track**: Niteshift Radio | Eclipse II | Fall 2021 | 58 Songs in 1 Hour
 
-Last updated at 09/14/2021 09:15
+Last updated at 09/14/2021 15:28
