@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4xZz5rNQz4wuY4i-H29soA-t500x500.jpg">](https://soundcloud.com/balamii/coco-bryce-w-double-o-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zIAJtzLrwlz6t36h-Jal8GA-t500x500.jpg">](https://soundcloud.com/jkanizzle/kanizzle-me-against-the-world-remix)
 
-**Artist**: Balamii 
+**Artist**: Kanizzle 
 
-**Track**: Coco Bryce w/ Double O - September 2021
+**Track**: Me Against The World (Kanizzle Remix)
 
-Last updated at 09/14/2021 15:54
+Last updated at 09/14/2021 16:40
