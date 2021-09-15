@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQV8soUaUsKTMJd2-gAY6wQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/distant006-dj-life-quantum-travel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4nK4mtOSai6fdDJ-pr2imw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms40-hayden-kolb)
 
-**Artist**: Lobster Theremin 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: DISTANT006 // DJ Life - Quantum Travel
+**Track**: HPHF MS40: HAYDEN KOLB
 
-Last updated at 09/15/2021 08:54
+Last updated at 09/15/2021 08:56
