@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voD3crA9NpH7pINu-DVmPjw-t500x500.jpg">](https://soundcloud.com/area3000/t-break-w-sky-lounge-14-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zgYz9yQ3Rh3Rpm7Q-ffi36Q-t500x500.jpg">](https://soundcloud.com/balamii/people-places-w-henry-september-2021)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Balamii 
 
-**Track**: T Break w. Sky Lounge - 14 September 2021
+**Track**: People & Places w/ HENRY - September 2021
 
-Last updated at 09/14/2021 18:58
+Last updated at 09/15/2021 07:56
