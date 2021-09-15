@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voD3crA9NpH7pINu-DVmPjw-t500x500.jpg">](https://soundcloud.com/area3000/t-break-w-sky-lounge-14-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ky6CpzvDBUlSDz8U-hcMpsg-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-194-ayesha?in=lobster-theremin/sets/lt-podcast-series)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Lobster Theremin 
 
-**Track**: T Break w. Sky Lounge - 14 September 2021
+**Track**: LT Podcast 194 // Ayesha
 
-Last updated at 09/15/2021 09:18
+Last updated at 09/15/2021 09:20
