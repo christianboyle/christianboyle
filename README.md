@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPhdL0cQkCKRPOrs-n4sriA-t500x500.jpg">](https://soundcloud.com/paulineherr/contradictions-mix-0003-ft-twerl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qASnC4SU3R1iy0pR-7q9Sow-t500x500.jpg">](https://soundcloud.com/frshblood/yayoi-bell-tower?in=frshblood/sets/yayoi-computer-underground-ep)
 
-**Artist**: Pauline Herr 
+**Artist**: frshblood 
 
-**Track**: CONTRADICTIONS MIX #0003 (FT. TWERL)
+**Track**: Yayoi - Bell Tower
 
-Last updated at 09/15/2021 19:34
+Last updated at 09/15/2021 19:50
