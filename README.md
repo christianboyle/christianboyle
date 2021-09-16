@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ljbvh4iypyqul64-yYgRKA-t500x500.jpg">](https://soundcloud.com/divine/gaia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmGuPDKRENcaqHzQ-x7auWA-t500x500.jpg">](https://soundcloud.com/3treflip/gloom)
 
-**Artist**: DIVINE ✨ 
+**Artist**: TRE FLIP 
 
-**Track**: Gaia
+**Track**: GLOOM
 
-Last updated at 09/15/2021 19:52
+Last updated at 09/15/2021 19:54
