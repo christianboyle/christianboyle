@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMyPx6AqxF66IbIQ-9skqBA-t500x500.jpg">](https://soundcloud.com/destinuna/elay-transcend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvUicbzAPxQIhrXU-KFVzEg-t500x500.jpg">](https://soundcloud.com/plusagency/mindmistake)
 
-**Artist**: Destinuna 
+**Artist**: PLUS AGENCY 
 
-**Track**: elay - transcend
+**Track**: PLUSCAST #046 - MINDMISTAKE
 
-Last updated at 09/16/2021 15:56
+Last updated at 09/16/2021 15:58
