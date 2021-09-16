@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qASnC4SU3R1iy0pR-7q9Sow-t500x500.jpg">](https://soundcloud.com/frshblood/yayoi-bell-tower?in=frshblood/sets/yayoi-computer-underground-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ljbvh4iypyqul64-yYgRKA-t500x500.jpg">](https://soundcloud.com/divine/gaia)
 
-**Artist**: frshblood 
+**Artist**: DIVINE ✨ 
 
-**Track**: Yayoi - Bell Tower
+**Track**: Gaia
 
-Last updated at 09/15/2021 19:50
+Last updated at 09/15/2021 19:52
