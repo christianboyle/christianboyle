@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJw4g1woZHWaei1O-GLUYtQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-193-dj-pgz?in=lobster-theremin/sets/lt-podcast-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPhdL0cQkCKRPOrs-n4sriA-t500x500.jpg">](https://soundcloud.com/paulineherr/contradictions-mix-0003-ft-twerl)
 
-**Artist**: Lobster Theremin 
+**Artist**: Pauline Herr 
 
-**Track**: LT Podcast 193 // dj pgz
+**Track**: CONTRADICTIONS MIX #0003 (FT. TWERL)
 
-Last updated at 09/15/2021 15:00
+Last updated at 09/15/2021 19:34
