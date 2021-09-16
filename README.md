@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmGuPDKRENcaqHzQ-x7auWA-t500x500.jpg">](https://soundcloud.com/3treflip/gloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVueo5ibazwczbEd-lKNtKg-t500x500.jpg">](https://soundcloud.com/lifeslashline/kids)
 
-**Artist**: TRE FLIP 
+**Artist**: L I F E / L I N E 
 
-**Track**: GLOOM
+**Track**: MGMT - Kids (L I F E / L I N E Bootleg)
 
-Last updated at 09/15/2021 19:54
+Last updated at 09/15/2021 19:56
