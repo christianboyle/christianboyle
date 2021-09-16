@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MClTCJ2bLKPARPpA-Bi2XeA-t500x500.jpg">](https://soundcloud.com/darby_music/favesound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JJvvz86zqyZAbrhg-PvjZpg-t500x500.jpg">](https://soundcloud.com/fish_narc/new-medication-prod-yawns)
 
-**Artist**: Darby 
+**Artist**: fish narc 
 
-**Track**: Fave Sound (w/ Haneri)
+**Track**: NEW MEDiCATiON
 
-Last updated at 09/16/2021 08:54
+Last updated at 09/16/2021 10:24
