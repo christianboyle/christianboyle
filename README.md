@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvUicbzAPxQIhrXU-KFVzEg-t500x500.jpg">](https://soundcloud.com/plusagency/mindmistake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BanDWDoF4iW7nd4s-ECWqow-t500x500.jpg">](https://soundcloud.com/teneki/adahotfix)
 
-**Artist**: PLUS AGENCY 
+**Artist**: TENEKI 
 
-**Track**: PLUSCAST #046 - MINDMISTAKE
+**Track**: 「 𝘏𝘖𝘛𝘍𝘐𝘟 」 (Arcadia Compilation)
 
-Last updated at 09/16/2021 15:58
+Last updated at 09/17/2021 08:43
