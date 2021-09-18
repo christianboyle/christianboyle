@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbadpU5YzFRNSPlC-VUjU2Q-t500x500.jpg">](https://soundcloud.com/syence/hate-me-like-u-love-me-feat-jake-neumar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUABHgTGG0n5htNy-FKxhqA-t500x500.jpg">](https://soundcloud.com/dlau612/better-as-friends-w_heartbreakp-skylarallen)
 
-**Artist**: syence 
+**Artist**: dlau612 
 
-**Track**: hate me like u love me (feat. jake neumar)
+**Track**: BETTER AS FRIENDS w_ heartbreakP + skylarallen - prod by 23o9
 
-Last updated at 09/18/2021 17:57
+Last updated at 09/18/2021 17:59
