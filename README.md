@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dDMIMvyZLHPLydg6-OjTeAw-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/attack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LnQPKPdGvPNZrTJv-Mdhmrg-t500x500.jpg">](https://soundcloud.com/ashershashaty/laying-low)
 
-**Artist**: INF1N1TE 
+**Artist**: Asher Shashaty 
 
-**Track**: AG X INF1N1TE - ATTACK
+**Track**: Laying Low
 
-Last updated at 09/18/2021 18:13
+Last updated at 09/18/2021 18:17
