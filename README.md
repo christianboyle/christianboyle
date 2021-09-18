@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKDoE0WDhJ6vliPE-bLolrg-t500x500.jpg">](https://soundcloud.com/thelotradio/jubilee-with-nick-leon-and-jonny-from-space-the-lot-radio-09-15-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbadpU5YzFRNSPlC-VUjU2Q-t500x500.jpg">](https://soundcloud.com/syence/hate-me-like-u-love-me-feat-jake-neumar)
 
-**Artist**: The Lot Radio 
+**Artist**: syence 
 
-**Track**: Jubilee with Nick León and Jonny From Space @ The Lot Radio 09 - 15 - 2021
+**Track**: hate me like u love me (feat. jake neumar)
 
-Last updated at 09/17/2021 16:39
+Last updated at 09/18/2021 17:57
