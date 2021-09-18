@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUABHgTGG0n5htNy-FKxhqA-t500x500.jpg">](https://soundcloud.com/dlau612/better-as-friends-w_heartbreakp-skylarallen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyciQubeeBl867eh-jmDMQw-t500x500.jpg">](https://soundcloud.com/kiddodust/time-stops)
 
-**Artist**: dlau612 
+**Artist**: Kiddo Dust 
 
-**Track**: BETTER AS FRIENDS w_ heartbreakP + skylarallen - prod by 23o9
+**Track**: Time Stops
 
-Last updated at 09/18/2021 17:59
+Last updated at 09/18/2021 18:01
