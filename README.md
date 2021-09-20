@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RHbNeqWeiiQcPfz2-hqpMUA-t500x500.jpg">](https://soundcloud.com/lkrrecords/lkr010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjLKRqgYCEzUF0TA-EDaizA-t500x500.jpg">](https://soundcloud.com/bizarro-recs/bizarro-blends-49-dj-pgz)
 
-**Artist**: LKR RECORDS 
+**Artist**: Bizarro 
 
-**Track**: Reptant 'Return To Planet X'trapolis' // Album Previews // LKR010
+**Track**: Bizarro Blends 49 // dj pgz
 
-Last updated at 09/20/2021 16:37
+Last updated at 09/20/2021 16:39
