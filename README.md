@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000539772216-srbthj-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-002?in=longjawns/sets/sable-valley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000016425094-fqfx9o-t500x500.jpg">](https://soundcloud.com/ksaymentor/korn-ft-skrillex-get-up)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Ksay Mentor 
 
-**Track**: MiniMix 002: JAWNS
+**Track**: Korn ft Skrillex - Get up (Shellshock Remix)
 
-Last updated at 09/21/2021 06:57
+Last updated at 09/21/2021 07:05
