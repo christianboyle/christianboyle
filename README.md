@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmGuPDKRENcaqHzQ-x7auWA-t500x500.jpg">](https://soundcloud.com/3treflip/gloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=fiendworldwide/sets/cs-3-on-bandcamp-now)
 
-**Artist**: TRE FLIP 
+**Artist**: FIEND WORLD 
 
-**Track**: GLOOM
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 09/21/2021 09:43
+Last updated at 09/21/2021 09:45
