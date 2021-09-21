@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aofyO9HunXMswXjB-DB3ocw-t500x500.jpg">](https://soundcloud.com/katebi/pads-pt1-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmGuPDKRENcaqHzQ-x7auWA-t500x500.jpg">](https://soundcloud.com/3treflip/gloom)
 
-**Artist**: KATEBI 
+**Artist**: TRE FLIP 
 
-**Track**: pads (pt.1 & 2)
+**Track**: GLOOM
 
-Last updated at 09/21/2021 09:41
+Last updated at 09/21/2021 09:43
