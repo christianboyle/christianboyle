@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000539772216-srbthj-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-002)
 
-**Artist**: FIEND WORLD 
+**Artist**: SABLE VALLEY 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: MiniMix 002: JAWNS
 
-Last updated at 09/21/2021 16:21
+Last updated at 09/21/2021 17:07
