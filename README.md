@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpB44cOPkJjc1yml-a1fhtA-t500x500.jpg">](https://soundcloud.com/balamii/ak-sports-w-dj-mell-g-sept2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
 
-**Artist**: Balamii 
+**Artist**: FIEND WORLD 
 
-**Track**: AK Sports w/ DJ MELL G - September 2021
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 09/22/2021 09:10
+Last updated at 09/22/2021 09:54
