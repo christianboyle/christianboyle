@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=fiendworldwide/sets/cold-sweats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aofyO9HunXMswXjB-DB3ocw-t500x500.jpg">](https://soundcloud.com/katebi/pads-pt1-2)
 
-**Artist**: FIEND WORLD 
+**Artist**: KATEBI 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: pads (pt.1 & 2)
 
-Last updated at 09/22/2021 16:00
+Last updated at 09/22/2021 16:44
