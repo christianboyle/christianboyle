@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000539772216-srbthj-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKq3ATvwjkt8musg-6cOSyQ-t500x500.jpg">](https://soundcloud.com/katebi/mannequins-w-lagerack)
 
-**Artist**: SABLE VALLEY 
+**Artist**: KATEBI 
 
-**Track**: MiniMix 002: JAWNS
+**Track**: Mannequins w/.lagerack
 
-Last updated at 09/21/2021 17:07
+Last updated at 09/22/2021 09:08
