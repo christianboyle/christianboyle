@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuPPdRjJjtAnB0St-S41qoQ-t500x500.jpg">](https://soundcloud.com/sebseb122/told-my-mom-one-day-cacija-aywhat-rio-leyva-synthetic?in=sebseb122/sets/vvred-soundcloud-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFSHAR4LZSVn-0-t500x500.png">](https://soundcloud.com/smrtdeath/everythings-fucked)
 
-**Artist**: SEBii💫 
+**Artist**: smrtdeath 
 
-**Track**: told my mom one day [prod. cacija + aywhat + rio leyva + synthetic]
+**Track**: Everything's Fucked
 
-Last updated at 09/23/2021 08:04
+Last updated at 09/23/2021 08:06
