@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZI69r88m5tNxt9lo-UwMZzQ-t500x500.jpg">](https://soundcloud.com/thelotradio/sanna-yara-bey-the-lot-radio-09-21-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeMhFCKlN9o571U0-uTB5ng-t500x500.jpg">](https://soundcloud.com/area3000/club-meditation-w-pete-narzisi-22-september-2021)
 
-**Artist**: The Lot Radio 
+**Artist**: Area 3000 Radio 
 
-**Track**: Sanna & Yara Bey @ The Lot Radio 09 - 21 - 2021
+**Track**: Club Meditation w. Pete Narzisi - 22 September 2021
 
-Last updated at 09/23/2021 08:16
+Last updated at 09/23/2021 08:18
