@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFSHAR4LZSVn-0-t500x500.png">](https://soundcloud.com/smrtdeath/everythings-fucked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5m9qfpI7SnRFLnz2-HTyZMg-t500x500.jpg">](https://soundcloud.com/tesouros/smirkd)
 
-**Artist**: smrtdeath 
+**Artist**: TESOUROS 
 
-**Track**: Everything's Fucked
+**Track**: ;) smirk'd
 
-Last updated at 09/23/2021 10:43
+Last updated at 09/23/2021 10:45
