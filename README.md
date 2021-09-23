@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZI69r88m5tNxt9lo-UwMZzQ-t500x500.jpg">](https://soundcloud.com/thelotradio/sanna-yara-bey-the-lot-radio-09-21-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yb86Fj7nFMTJ-0-t500x500.jpg">](https://soundcloud.com/withconfidenceofficial/voldemort)
 
-**Artist**: The Lot Radio 
+**Artist**: With Confidence 
 
-**Track**: Sanna & Yara Bey @ The Lot Radio 09 - 21 - 2021
+**Track**: Voldemort
 
-Last updated at 09/23/2021 08:30
+Last updated at 09/23/2021 10:39
