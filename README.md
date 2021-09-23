@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UNCrnPyb2d0eAUL-p85gyA-t500x500.jpg">](https://soundcloud.com/balamii/sticky-tapes-radio-w-theo-everyday-kitsta-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BbOHeLIBuszzPRZg-j5KcwA-t500x500.jpg">](https://soundcloud.com/sebseb122/donorr-prod-cacija-ven-m0rris-futurebass-remix?in=sebseb122/sets/vvred-soundcloud-version)
 
-**Artist**: Balamii 
+**Artist**: SEBii💫 
 
-**Track**: Sticky Tapes Radio w/ Theo Everyday & Kitsta - September 2021
+**Track**: DONOrr [prod. cacija + ven + m0rris] (FutureBass Remix)
 
-Last updated at 09/23/2021 12:45
+Last updated at 09/23/2021 15:57
