@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GStzSBXA49Le-0-t500x500.jpg">](https://soundcloud.com/withconfidenceofficial/know-you-708)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SeFlfk1GeG8HNgb-zny7kQ-t500x500.jpg">](https://soundcloud.com/pharmasix/all-i-see-is-blood)
 
-**Artist**: With Confidence 
+**Artist**: PHARMACIST 
 
-**Track**: Know You (708)
+**Track**: ALL I SEE IS BLOOD
 
-Last updated at 09/23/2021 08:24
+Last updated at 09/23/2021 08:26
