@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SeFlfk1GeG8HNgb-zny7kQ-t500x500.jpg">](https://soundcloud.com/pharmasix/all-i-see-is-blood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A45HMhHAJ0dm8A9Y-qaZcqw-t500x500.jpg">](https://soundcloud.com/dontsleephq/fallin)
 
-**Artist**: PHARMACIST 
+**Artist**: dontsleephq 
 
-**Track**: ALL I SEE IS BLOOD
+**Track**: KYLI - Fallin
 
-Last updated at 09/23/2021 08:26
+Last updated at 09/23/2021 08:28
