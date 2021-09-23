@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5m9qfpI7SnRFLnz2-HTyZMg-t500x500.jpg">](https://soundcloud.com/tesouros/smirkd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1)
 
-**Artist**: TESOUROS 
+**Artist**: FIEND WORLD 
 
-**Track**: ;) smirk'd
+**Track**: COLD SWEATS VOL. 1
 
-Last updated at 09/23/2021 10:45
+Last updated at 09/23/2021 10:49
