@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL44oBV4g4F5ZRGG-ZjcTEg-t500x500.jpg">](https://soundcloud.com/grimyboi/fuck-you-feat-ssappyy-grimyboi-the-boogerz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
 
-**Artist**: GRIMYBOI 
+**Artist**: lil aaron 
 
-**Track**: FUCK YOU (feat. SSAPPYY)
+**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
 
-Last updated at 09/23/2021 16:27
+Last updated at 09/23/2021 16:29
