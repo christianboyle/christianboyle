@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/intheenditsyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F98qX9N1Tjn8Sg9N-rmh0sw-t500x500.jpg">](https://soundcloud.com/grimyboi/jaded-feat-hellishh3x)
 
-**Artist**: SABLE VALLEY 
+**Artist**: GRIMYBOI 
 
-**Track**: DJ Ride - INTHEENDITSYOU
+**Track**: JADED feat. HellishH3x
 
-Last updated at 09/23/2021 16:23
+Last updated at 09/23/2021 16:25
