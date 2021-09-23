@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyciQubeeBl867eh-jmDMQw-t500x500.jpg">](https://soundcloud.com/kiddodust/time-stops)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/together-in-chrome)
 
-**Artist**: Kiddo Dust 
+**Artist**: SABLE VALLEY 
 
-**Track**: Time Stops
+**Track**: X&G & Rohaan - Together In Chrome
 
-Last updated at 09/23/2021 16:15
+Last updated at 09/23/2021 16:19
