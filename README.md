@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AOArD6z6DUD1fOr-Lp49Bg-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-006)
 
-**Artist**: FIEND WORLD 
+**Artist**: SABLE VALLEY 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: MiniMix 006: Juelz
 
-Last updated at 09/23/2021 16:33
+Last updated at 09/23/2021 16:57
