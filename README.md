@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qntxrK5b8FFGr24h-8IGt9w-t500x500.jpg">](https://soundcloud.com/lilaaron911/pretty-little-breakdown-ft-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
 
-**Artist**: lil aaron 
+**Artist**: FIEND WORLD 
 
-**Track**: PRETTY LITTLE BREAKDOWN (Ft. Smrtdeath)
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 09/23/2021 16:29
+Last updated at 09/23/2021 16:33
