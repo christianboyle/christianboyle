@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNUNavA6u57aT8zJ-mzYHDw-t500x500.jpg">](https://soundcloud.com/roadwrx/time-94-your-love-eone-remix?in=roadwrx/sets/time94-your-love-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GStzSBXA49Le-0-t500x500.jpg">](https://soundcloud.com/withconfidenceofficial/know-you-708)
 
-**Artist**: ROADWRX 
+**Artist**: With Confidence 
 
-**Track**: TIME94 - Your Love (Eone Remix)
+**Track**: Know You (708)
 
-Last updated at 09/23/2021 08:20
+Last updated at 09/23/2021 08:24
