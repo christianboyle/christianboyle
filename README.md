@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AOArD6z6DUD1fOr-Lp49Bg-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-006)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SeFlfk1GeG8HNgb-zny7kQ-t500x500.jpg">](https://soundcloud.com/pharmasix/all-i-see-is-blood)
 
-**Artist**: SABLE VALLEY 
+**Artist**: PHARMACIST 
 
-**Track**: MiniMix 006: Juelz
+**Track**: ALL I SEE IS BLOOD
 
-Last updated at 09/23/2021 17:07
+Last updated at 09/24/2021 08:30
