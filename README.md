@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VmWUChF1ruj-0-t500x500.jpg">](https://soundcloud.com/slanderofficial/slander-dylan-matthew-alok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9CfZfQxwoisaWQG8-xeX0dA-t500x500.jpg">](https://soundcloud.com/dreair/mindpalace-dreair)
 
-**Artist**: SLANDER 
+**Artist**: DREAIR 
 
-**Track**: Love Is Gone ft. Dylan Matthew (Alok Remix)
+**Track**: MINDPALACE
 
-Last updated at 09/24/2021 16:58
+Last updated at 09/24/2021 17:00
