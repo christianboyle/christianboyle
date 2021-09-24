@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WDlRky5WCccVgLNB-QbCSBg-t500x500.jpg">](https://soundcloud.com/dj-sharaz/sharaz-ampitheater-121804-live-downloadable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RqIgZC9q0elPY04W-cmCjfw-t500x500.jpg">](https://soundcloud.com/beatsbyexplore/alleeee-ddan?in=beatsbyexplore/sets/internet-gems)
 
-**Artist**: DJ Sharaz 
+**Artist**: EXPLORE 
 
-**Track**: Sharaz - Ampitheater 12/18/04 Live (Downloadable)
+**Track**: ALLEEEE DDAN
 
-Last updated at 09/24/2021 08:48
+Last updated at 09/24/2021 11:44
