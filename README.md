@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ieF4NB9GUMhbSy2w-7wdvsQ-t500x500.jpg">](https://soundcloud.com/trzbts/tearz-digital-pain-03)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BmbBXzIkd2paeCon-hVUqVg-t500x500.jpg">](https://soundcloud.com/swimpdf/nights-the-same)
 
-**Artist**: TEARZ 
+**Artist**: SWIM 
 
-**Track**: DIGITAL PA.IN
+**Track**: Nights (The Same)
 
-Last updated at 09/25/2021 14:04
+Last updated at 09/25/2021 14:06
