@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry5nS9UlaYcyuJzv-OTm8bA-t500x500.jpg">](https://soundcloud.com/djsupermarkt/lebron-open-up-taken-from-tstd-yacht-disco-edits-3a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-35TYPx7lkUliNsIE-9QKSMw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc167)
 
-**Artist**: dj supermarkt / too slow to disco 
+**Artist**: NON STOP NXC® 
 
-**Track**: LeBRON – Open Up (taken from TSTD Yacht Disco Edits 3a)
+**Track**: NXC167 - ノスタルジックレインフォール (Stereoman Bootleg) [10SAI 2021 Rework]
 
-Last updated at 09/27/2021 10:29
+Last updated at 09/27/2021 10:31
