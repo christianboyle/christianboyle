@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yz7en9XrzF80bI7J-71bAjA-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/pepas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYZGd6yzzjgf7Frw-28lUGQ-t500x500.jpg">](https://soundcloud.com/lvrsnfrnds/crush-on-you-1)
 
-**Artist**: GEO 
+**Artist**: LVRSNFRNDS 
 
-**Track**: FARRUKO - PEPAS - (GEO REMIX)
+**Track**: Crush On You
 
-Last updated at 09/27/2021 11:05
+Last updated at 09/27/2021 11:09
