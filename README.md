@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5uHwYkUpsCyWHDzk-0Oza3g-t500x500.jpg">](https://soundcloud.com/papixpanda/sex)
 
-**Artist**: FIEND WORLD 
+**Artist**: stef 
 
-**Track**: COLD SWEATS VOL. 1
+**Track**: sEx {prod umru glasear}
 
-Last updated at 09/27/2021 11:29
+Last updated at 09/27/2021 15:51
