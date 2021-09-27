@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCt09iFwSYIVMN9i-yFPmbA-t500x500.jpg">](https://soundcloud.com/hollick_nobaddays/no-bad-days-with-hollick-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YS07reCqhsizIRBW-7nAwSg-t500x500.jpg">](https://soundcloud.com/3024world/sansouni-marbella)
 
-**Artist**: No Bad Days 
+**Artist**: Martyn @ 3024 
 
-**Track**: No Bad Days with Hollick - September 2021
+**Track**: Sansouni - Marbella
 
-Last updated at 09/27/2021 07:41
+Last updated at 09/27/2021 10:25
