@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EZQXJzI1n7zpoE3Z-WSNQ2w-t500x500.jpg">](https://soundcloud.com/rechobeats/blue-eyed-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2qB6qXCLl28ptdAW-qS4W5A-t500x500.jpg">](https://soundcloud.com/stizzzy-beats/from-new-york-w-veryolddog)
 
-**Artist**: rechobeats 
+**Artist**: Stizzzy LoFi 
 
-**Track**: blue eyed girl
+**Track**: From New York w/ veryolddog
 
-Last updated at 09/27/2021 07:37
+Last updated at 09/27/2021 07:39
