@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryFfrudSFUTdc7qN-MILHDw-t500x500.jpg">](https://soundcloud.com/discoveryteam/luis-torres-feat-lucas-ariel-paradise-denzell-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-35TYPx7lkUliNsIE-9QKSMw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc167)
 
-**Artist**: Discovery Team 
+**Artist**: NON STOP NXC® 
 
-**Track**: Luis Torres (feat Lucas Ariel) – Paradise (Denzell Remix)
+**Track**: NXC167 - ノスタルジックレインフォール (Stereoman Bootleg) [10SAI 2021 Rework]
 
-Last updated at 09/27/2021 16:15
+Last updated at 09/27/2021 16:31
