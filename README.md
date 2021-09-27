@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-35TYPx7lkUliNsIE-9QKSMw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc167)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SttmdEBjobmxOUZq-9fPKdQ-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc165)
 
 **Artist**: NON STOP NXC® 
 
-**Track**: NXC167 - ノスタルジックレインフォール (Stereoman Bootleg) [10SAI 2021 Rework]
+**Track**: NXC165 - TRU GANGSTERZ (thirtyonetwentyfive remix)
 
-Last updated at 09/27/2021 10:31
+Last updated at 09/27/2021 10:33
