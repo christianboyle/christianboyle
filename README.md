@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dw5vJHTSunxVhGDD-wSrWfg-t500x500.jpg">](https://soundcloud.com/ivvuunion/scorpion?in=ivvuunion/sets/wave-mode)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryFfrudSFUTdc7qN-MILHDw-t500x500.jpg">](https://soundcloud.com/discoveryteam/luis-torres-feat-lucas-ariel-paradise-denzell-remix)
 
-**Artist**: IVVU 
+**Artist**: Discovery Team 
 
-**Track**: airshade - scorpion
+**Track**: Luis Torres (feat Lucas Ariel) – Paradise (Denzell Remix)
 
-Last updated at 09/27/2021 16:13
+Last updated at 09/27/2021 16:15
