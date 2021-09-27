@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ehtpokg8oxCDaVk6-SUBuJA-t500x500.jpg">](https://soundcloud.com/snowblowerr/snow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EZQXJzI1n7zpoE3Z-WSNQ2w-t500x500.jpg">](https://soundcloud.com/rechobeats/blue-eyed-girl)
 
-**Artist**: snowblower 
+**Artist**: rechobeats 
 
-**Track**: snowblower in newark
+**Track**: blue eyed girl
 
-Last updated at 09/25/2021 16:30
+Last updated at 09/27/2021 07:37
