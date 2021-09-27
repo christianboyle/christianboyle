@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5uHwYkUpsCyWHDzk-0Oza3g-t500x500.jpg">](https://soundcloud.com/papixpanda/sex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puzFabluP4DyAmis-jJgH6g-t500x500.jpg">](https://soundcloud.com/frizofsoul/friz-of-soul-set-me-free)
 
-**Artist**: stef 
+**Artist**: ∆ Friz of Soul ∆ 
 
-**Track**: sEx {prod umru glasear}
+**Track**: Friz Of Soul - Set Me Free
 
-Last updated at 09/27/2021 15:51
+Last updated at 09/27/2021 15:53
