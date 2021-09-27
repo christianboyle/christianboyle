@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsoHY8EEoXhC-0-t500x500.jpg">](https://soundcloud.com/heartattackmanofficial/pitch-black)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yz7en9XrzF80bI7J-71bAjA-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/pepas)
 
-**Artist**: Heart Attack Man 
+**Artist**: GEO 
 
-**Track**: Pitch Black
+**Track**: FARRUKO - PEPAS - (GEO REMIX)
 
-Last updated at 09/27/2021 11:03
+Last updated at 09/27/2021 11:05
