@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCFyUyWcVeZeXFt0-4Qfxmw-t500x500.jpg">](https://soundcloud.com/inxc/aw4y-fr0m-th1s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dw5vJHTSunxVhGDD-wSrWfg-t500x500.jpg">](https://soundcloud.com/ivvuunion/reflux?in=ivvuunion/sets/wave-mode)
 
-**Artist**: iNXC 
+**Artist**: IVVU 
 
-**Track**: aw4y fr0m th1s
+**Track**: SOULIFY - reflux (intro)
 
-Last updated at 09/27/2021 15:57
+Last updated at 09/27/2021 16:09
