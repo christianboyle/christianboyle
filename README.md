@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6kzlpy9otuUIUM2n-UHZlmA-t500x500.jpg">](https://soundcloud.com/balamii/inside-voice-september-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRReddU4AvMbxAmx-jYTvtw-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-467)
 
-**Artist**: Balamii 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: Inside Voice - September 2021
+**Track**: CYB3RPVNK Radio 467
 
-Last updated at 09/28/2021 11:05
+Last updated at 09/28/2021 11:07
