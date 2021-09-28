@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z2B7AJdnjfzCk5yp-X5JtqQ-t500x500.jpg">](https://soundcloud.com/mixa-records/gumin-x-fit-jin-wanna-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtYVF79N91r2pROo-3MyHxA-t500x500.jpg">](https://soundcloud.com/untitled909/premiere-nick-leon-bachetron-tratratrax)
 
-**Artist**: Mixa Records 
+**Artist**: Untitled #909 
 
-**Track**: Gumin X Fit Jin - Wanna Cry
+**Track**: Premiere: Nick León — Bachetrón [Tra Tra Trax]
 
-Last updated at 09/28/2021 16:15
+Last updated at 09/28/2021 16:17
