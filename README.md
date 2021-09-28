@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryFfrudSFUTdc7qN-MILHDw-t500x500.jpg">](https://soundcloud.com/discoveryteam/luis-torres-feat-lucas-ariel-paradise-denzell-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD1e01MEdpNMdzsB-G4r1VQ-t500x500.jpg">](https://soundcloud.com/phuturecollective/jkuch-endure?in=phuturecollective/sets/issue-seventeen-empathy)
 
-**Artist**: Discovery Team 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Luis Torres (feat Lucas Ariel) – Paradise (Denzell Remix)
+**Track**: JKuch - Endure
 
-Last updated at 09/27/2021 17:09
+Last updated at 09/28/2021 08:19
