@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRReddU4AvMbxAmx-jYTvtw-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-467)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j58Y9uVNqdQZsdnm-lfTdyg-t500x500.jpg">](https://soundcloud.com/sus1er/carrier-g6-ft-lovefear)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: SUS1ER 
 
-**Track**: CYB3RPVNK Radio 467
+**Track**: CARRIER [G6] [FT LOVEFEAR]
 
-Last updated at 09/28/2021 11:07
+Last updated at 09/28/2021 11:09
