@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j58Y9uVNqdQZsdnm-lfTdyg-t500x500.jpg">](https://soundcloud.com/sus1er/carrier-g6-ft-lovefear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zniofi2fvx9fbxj-igENGA-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc077-eliott-litrowski)
 
-**Artist**: SUS1ER 
+**Artist**: Rhythmic Culture 
 
-**Track**: CARRIER [G6] [FT LOVEFEAR]
+**Track**: RC:077 Eliott Litrowski
 
-Last updated at 09/28/2021 11:09
+Last updated at 09/28/2021 11:11
