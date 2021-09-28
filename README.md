@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSnU5irXqX1ceizD-fWQOLA-t500x500.jpg">](https://soundcloud.com/goldhaus_melb/eclectic_goldcast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6kzlpy9otuUIUM2n-UHZlmA-t500x500.jpg">](https://soundcloud.com/balamii/inside-voice-september-2021)
 
-**Artist**: Gold Haus 
+**Artist**: Balamii 
 
-**Track**: GH GoldCast 024 | eclectic. DJs
+**Track**: Inside Voice - September 2021
 
-Last updated at 09/28/2021 08:29
+Last updated at 09/28/2021 11:05
