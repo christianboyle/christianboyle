@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SeFlfk1GeG8HNgb-zny7kQ-t500x500.jpg">](https://soundcloud.com/pharmasix/all-i-see-is-blood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e18PvGMc8KVLU5Td-kcvLtA-t500x500.jpg">](https://soundcloud.com/vonstorm/helpudie)
 
-**Artist**: PHARMACIST 
+**Artist**: VON STORM 
 
-**Track**: ALL I SEE IS BLOOD
+**Track**: HELP U DIE
 
-Last updated at 09/28/2021 16:33
+Last updated at 09/29/2021 10:47
