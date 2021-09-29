@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Y7Uo0KfebQo-0-t500x500.png">](https://soundcloud.com/saintpunk2/saint-punk-im-not-gonna-think?in=saintpunkboots/sets/ouroboros)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybzpC54hDk3lLZCZ-1Qv1Xw-t500x500.jpg">](https://soundcloud.com/subcarbon/nero-innocence-rebel-scum-remix-free-download)
 
-**Artist**: Saint Punk 
+**Artist**: SubCarbon Records 
 
-**Track**: Saint Punk - I'm Not Gonna Think (with Illicit Ghost)
+**Track**: Nero - Innocence (Rebel Scum Remix) [Free Download]
 
-Last updated at 09/29/2021 10:53
+Last updated at 09/29/2021 10:55
