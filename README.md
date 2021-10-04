@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6O11SAEamKKKe7eo-Ah9UhQ-t500x500.jpg">](https://soundcloud.com/rinsefm/hodge120821?in_system_playlist=track-stations%3A1133502154)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5WnjpyGaF7O53ed4-b0yewQ-t500x500.jpg">](https://soundcloud.com/picco0817/geranium)
 
-**Artist**: Rinse FM 
+**Artist**: picco 
 
-**Track**: Hodge with Sissel Wincent - 12 August 2021
+**Track**: Geranium
 
-Last updated at 09/30/2021 17:37
+Last updated at 10/04/2021 08:06
