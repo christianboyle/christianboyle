@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX7zzNVPb6J9bs6z-C91XrQ-t500x500.jpg">](https://soundcloud.com/onumi/baddest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVgkU37ezlW83KZq-bC1yeQ-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-ix)
 
-**Artist**: onumi 
+**Artist**: RL Grime 
 
-**Track**: onumi & KDA - THE BADDEST
+**Track**: Halloween IX
 
-Last updated at 10/04/2021 09:18
+Last updated at 10/04/2021 09:22
