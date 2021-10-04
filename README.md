@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jgbx9WxNBhiFB2ut-yNQ4Sg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/knock2-dashstar-1?in=knock2music/sets/dashstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wr0L9V8RFnomyP6t-E2otKw-t500x500.jpg">](https://soundcloud.com/knock2music/murdah)
 
-**Artist**: NIGHTMODE 
+**Artist**: Knock2 
 
-**Track**: Knock2 - dashstar*
+**Track**: murdah
 
-Last updated at 10/04/2021 08:26
+Last updated at 10/04/2021 09:14
