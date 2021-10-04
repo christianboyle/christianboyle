@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNSqz2z1RyLmzhlD-gTI3ew-t500x500.jpg">](https://soundcloud.com/peacemakermusicofficial/caesars-jerk-it-out-peace-maker-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzIkRzyzzVeKVDFN-0CWfYg-t500x500.jpg">](https://soundcloud.com/erickdie/no-more)
 
-**Artist**: PEACE MAKER! 
+**Artist**: erickD 
 
-**Track**: Caesars - Jerk It Out (PEACE MAKER! Remix)
+**Track**: NO MORE (TRACK OFF "FLIPSHIT")
 
-Last updated at 10/04/2021 08:16
+Last updated at 10/04/2021 08:18
