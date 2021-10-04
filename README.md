@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzIkRzyzzVeKVDFN-0CWfYg-t500x500.jpg">](https://soundcloud.com/erickdie/no-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53pzp80zTPBYLjQF-b4iuKg-t500x500.jpg">](https://soundcloud.com/isoxo/kidsgonemad999)
 
-**Artist**: erickD 
+**Artist**: ISOxo 
 
-**Track**: NO MORE (TRACK OFF "FLIPSHIT")
+**Track**: ISOxo "KIDSGONEMAD" Set (RL Grime's Halloween IX Stream)
 
-Last updated at 10/04/2021 08:18
+Last updated at 10/04/2021 08:20
