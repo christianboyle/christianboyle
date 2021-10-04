@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7qdtE6hiXSHBwLpu-ED4j5Q-t500x500.jpg">](https://soundcloud.com/thelotradio/sunny-cheeba-b2b-josh-hubi-the-lot-radio-10-02-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoTFkArAyMnyhr3f-5zSBkw-t500x500.jpg">](https://soundcloud.com/frenetikgla/legends-never-dies-1)
 
-**Artist**: The Lot Radio 
+**Artist**: Frenetik 
 
-**Track**: Sunny Cheeba B2B Josh Hubi @ The Lot Radio 10 - 02 - 2021
+**Track**: Legends Never Dies
 
-Last updated at 10/04/2021 08:12
+Last updated at 10/04/2021 08:14
