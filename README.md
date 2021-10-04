@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53pzp80zTPBYLjQF-b4iuKg-t500x500.jpg">](https://soundcloud.com/isoxo/kidsgonemad999)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jgbx9WxNBhiFB2ut-yNQ4Sg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/knock2-dashstar-1?in=knock2music/sets/dashstar)
 
-**Artist**: ISOxo 
+**Artist**: NIGHTMODE 
 
-**Track**: ISOxo "KIDSGONEMAD" Set (RL Grime's Halloween IX Stream)
+**Track**: Knock2 - dashstar*
 
-Last updated at 10/04/2021 08:20
+Last updated at 10/04/2021 08:26
