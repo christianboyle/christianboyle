@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BoZYkHuZNIlnc57O-EGX5Lg-t500x500.jpg">](https://soundcloud.com/ancityrecords/b1a3-impact)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VL7uiSS1ugcS0ULV-YO0pog-t500x500.jpg">](https://soundcloud.com/buygore/yatix-fall-1)
 
-**Artist**: Ancity Records 
+**Artist**: Buygore 
 
-**Track**: B1A3 - Impact
+**Track**: YATIX - FALL
 
-Last updated at 10/05/2021 12:06
+Last updated at 10/05/2021 12:10
