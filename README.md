@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yiq1aG9PFgT8AkfI-g12X6A-t500x500.jpg">](https://soundcloud.com/defineeverythingfuture/xg-live-set-def)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/shimmer?in=sablevalley/sets/sable-valley-summer-vol-2)
 
-**Artist**: DEF 
+**Artist**: SABLE VALLEY 
 
-**Track**: X&G (LIVE SET) @ DEF
+**Track**: Cozway & Rossy - Shimmer
 
-Last updated at 10/05/2021 14:18
+Last updated at 10/05/2021 14:32
