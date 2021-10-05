@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpyiI7PcbJwnmadI-zaVpjA-t500x500.jpg">](https://soundcloud.com/spa-in-disco/spa162-kenwork-the-heart-soul-nu-disco-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOvPYrsUIUfbmWmm-yvzJcw-t500x500.jpg">](https://soundcloud.com/electronicbeatspodcast/yazzus-b2beats-miley-serious)
 
-**Artist**: Spa In Disco 
+**Artist**: Telekom Electronic Beats 
 
-**Track**: [SPA162] KEN@WORK - The Heart & Soul (Nu Disco Mix)
+**Track**: Yazzus B2Beats Miley Serious
 
-Last updated at 10/05/2021 09:52
+Last updated at 10/05/2021 09:54
