@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQDzSJf5mctUZ48wwT5bkngc-h3XBYtMlq6EQ9K5Q=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCQ8LkvxhyXjDxbPWMU3TdbQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpyiI7PcbJwnmadI-zaVpjA-t500x500.jpg">](https://soundcloud.com/spa-in-disco/spa162-kenwork-the-heart-soul-nu-disco-mix)
 
-**Artist**: RL Grime 
+**Artist**: Spa In Disco 
 
-**Track**: Light Me Up ft. Miguel & Julia Michaels (Enschway Remix) [Official Audio]
+**Track**: [SPA162] KEN@WORK - The Heart & Soul (Nu Disco Mix)
 
-Last updated at 10/04/2021 16:34
+Last updated at 10/05/2021 09:52
