@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000600272697-f51ag0-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-004?in=isoxo/sets/isoxo-knock2-radial-sable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqoJXJIVHQk5govi-GAo2Dg-t500x500.jpg">](https://soundcloud.com/sablevalley/supercell?in=longjawns/sets/supercell)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: MiniMix 004: ISOxo & Knock2
+**Track**: JAWNS - Supercell
 
-Last updated at 10/05/2021 12:26
+Last updated at 10/05/2021 14:14
