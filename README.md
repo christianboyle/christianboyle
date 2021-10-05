@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wv7s7uwOf9XbS1SF-w78Pbg-t500x500.jpg">](https://soundcloud.com/aviella-winder/aviella-like-it-how-it-is)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iY8tzzaJNmmWI6Sm-2hGqHw-t500x500.jpg">](https://soundcloud.com/purpoz3/to-you-inst)
 
-**Artist**: Aviella 
+**Artist**: purpoze 
 
-**Track**: Aviella - Like It How It Is
+**Track**: to You (inst)
 
-Last updated at 10/05/2021 12:14
+Last updated at 10/05/2021 12:16
