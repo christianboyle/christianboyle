@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28OzyFHEhXsDUA25-KlaU1w-t500x500.jpg">](https://soundcloud.com/lizdek/something-comforting-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dgTy2t95zPkPp6Ea-NbN0Yg-t500x500.jpg">](https://soundcloud.com/oddyseefm/034-matrix-reloaded-by-guy-contact)
 
-**Artist**: Lizdek 
+**Artist**: Oddysee 
 
-**Track**: Porter Robinson - Something Comforting (Lizdek Remix)
+**Track**: Oddysee 034 | 'Matrix Reloaded' by Guy Contact
 
-Last updated at 10/06/2021 09:48
+Last updated at 10/06/2021 09:50
