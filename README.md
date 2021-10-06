@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lzc9Pgn1EieCkw2-QN4ZMg-t500x500.jpg">](https://soundcloud.com/justicehardcore/allhits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28OzyFHEhXsDUA25-KlaU1w-t500x500.jpg">](https://soundcloud.com/lizdek/something-comforting-remix)
 
-**Artist**: Justice Hardcore 
+**Artist**: Lizdek 
 
-**Track**: Defective - All Hits Radio ⚠️OUT NOW⚠️
+**Track**: Porter Robinson - Something Comforting (Lizdek Remix)
 
-Last updated at 10/06/2021 09:46
+Last updated at 10/06/2021 09:48
