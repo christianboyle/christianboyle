@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JkLAIWuaxPJalwgL-zpZnJQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-no-escape-jay-reeve-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIstLzIlipzpCXFm-FfhMtA-t500x500.jpg">](https://soundcloud.com/dazegxd/20a)
 
-**Artist**: Dirty Workz 
+**Artist**: dazegxd 
 
-**Track**: Cyber - No Escape (Jay Reeve Remix)
+**Track**: 20°
 
-Last updated at 10/06/2021 17:12
+Last updated at 10/06/2021 17:14
