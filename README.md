@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pkPzjljxbh88zac3-04mjTQ-t500x500.jpg">](https://soundcloud.com/user-735106759/wavelengths)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XdipYaIXo9WpZDIo-LLVNbQ-t500x500.jpg">](https://soundcloud.com/veryolddog/from-the-gutter)
 
-**Artist**: Dry Dry Beats 
+**Artist**: veryolddog 
 
-**Track**: wavelengths[beattape]
+**Track**: from the gutter
 
-Last updated at 10/06/2021 07:54
+Last updated at 10/06/2021 08:00
