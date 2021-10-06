@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjpdSy7u4Me03KbT-6zbyeA-t500x500.jpg">](https://soundcloud.com/shmittee/ye-moon-shmittee-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCcjnP95ccKkusHG-DWf7Og-t500x500.jpg">](https://soundcloud.com/1glaive/naturale-1?in=1glaive/sets/then-ill-be-happy)
 
-**Artist**: Shmittee 
+**Artist**: glaive 
 
-**Track**: Kanye - Moon (Shmittee Remix)
+**Track**: naturale
 
-Last updated at 10/06/2021 14:24
+Last updated at 10/06/2021 14:26
