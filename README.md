@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QbPqr4DPfQ7qkQvc-hahtNw-t500x500.jpg">](https://soundcloud.com/bendelofficial/wyh?in=user_n33t/sets/discography)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JkLAIWuaxPJalwgL-zpZnJQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-no-escape-jay-reeve-remix)
 
-**Artist**: Bendel 
+**Artist**: Dirty Workz 
 
-**Track**: Without You Here (w/ N33T & pooki)
+**Track**: Cyber - No Escape (Jay Reeve Remix)
 
-Last updated at 10/06/2021 14:36
+Last updated at 10/06/2021 14:38
