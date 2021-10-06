@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dgTy2t95zPkPp6Ea-NbN0Yg-t500x500.jpg">](https://soundcloud.com/oddyseefm/034-matrix-reloaded-by-guy-contact)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjpdSy7u4Me03KbT-6zbyeA-t500x500.jpg">](https://soundcloud.com/shmittee/ye-moon-shmittee-remix)
 
-**Artist**: Oddysee 
+**Artist**: Shmittee 
 
-**Track**: Oddysee 034 | 'Matrix Reloaded' by Guy Contact
+**Track**: Kanye - Moon (Shmittee Remix)
 
-Last updated at 10/06/2021 09:50
+Last updated at 10/06/2021 14:24
