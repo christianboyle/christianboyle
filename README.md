@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XTyoavzyv1JfzF3d-2bzSKA-t500x500.jpg">](https://soundcloud.com/levity_music/blest-jones-elegant-levity-remix?in=weareplusplus/sets/best-electronic-288676913)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QbPqr4DPfQ7qkQvc-hahtNw-t500x500.jpg">](https://soundcloud.com/bendelofficial/wyh?in=user_n33t/sets/discography)
 
-**Artist**: Levity 
+**Artist**: Bendel 
 
-**Track**: Blest Jones - Elegant (Levity Remix)
+**Track**: Without You Here (w/ N33T & pooki)
 
-Last updated at 10/06/2021 14:34
+Last updated at 10/06/2021 14:36
