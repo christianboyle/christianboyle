@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000004013985-yozs8w-t500x500.jpg">](https://soundcloud.com/agu_2/player-one-into-the-darkness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyH0ibCdXEt54jnd-VynjZw-t500x500.jpg">](https://soundcloud.com/sablevalley/enter-the-world)
 
-**Artist**: agu_2 
+**Artist**: SABLE VALLEY 
 
-**Track**: Player One - Into the Darkness (Rennie Pilgrem remix)
+**Track**: Juelz & JAWNS - Enter The World
 
-Last updated at 10/05/2021 20:32
+Last updated at 10/05/2021 20:34
