@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIstLzIlipzpCXFm-FfhMtA-t500x500.jpg">](https://soundcloud.com/dazegxd/20a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
 
-**Artist**: dazegxd 
+**Artist**: FIEND WORLD 
 
-**Track**: 20°
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 10/06/2021 17:14
+Last updated at 10/06/2021 17:16
