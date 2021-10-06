@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-speh9FJCzSXUiM8U-Yn9s2A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/fiend-clips-iii?in=fiendworldwide/sets/clips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lzc9Pgn1EieCkw2-QN4ZMg-t500x500.jpg">](https://soundcloud.com/justicehardcore/allhits)
 
-**Artist**: FIEND WORLD 
+**Artist**: Justice Hardcore 
 
-**Track**: FIEND CLIPS (iii)
+**Track**: Defective - All Hits Radio ⚠️OUT NOW⚠️
 
-Last updated at 10/06/2021 09:28
+Last updated at 10/06/2021 09:46
