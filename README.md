@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJXswi7u9dUqWet-qcMVnQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/detonator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yy2BHTWd4zByvEI-yo0y5A-t500x500.jpg">](https://soundcloud.com/oxy-records/sushi-from-japan)
 
-**Artist**: NIGHTMODE 
+**Artist**: oxy_gin ✨ 
 
-**Track**: JAWNS - Detonator
+**Track**: sushi from japan. 🌸
 
-Last updated at 10/05/2021 20:38
+Last updated at 10/06/2021 07:46
