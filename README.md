@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCcjnP95ccKkusHG-DWf7Og-t500x500.jpg">](https://soundcloud.com/1glaive/physs-1?in=1glaive/sets/then-ill-be-happy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XTyoavzyv1JfzF3d-2bzSKA-t500x500.jpg">](https://soundcloud.com/levity_music/blest-jones-elegant-levity-remix?in=weareplusplus/sets/best-electronic-288676913)
 
-**Artist**: glaive 
+**Artist**: Levity 
 
-**Track**: physs
+**Track**: Blest Jones - Elegant (Levity Remix)
 
-Last updated at 10/06/2021 14:32
+Last updated at 10/06/2021 14:34
