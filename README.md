@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t500x500.jpg">](https://soundcloud.com/sablevalley/swoopin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JkLAIWuaxPJalwgL-zpZnJQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-no-escape-jay-reeve-remix)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Dirty Workz 
 
-**Track**: Baauer - Swoopin (RL Grime Edit)
+**Track**: Cyber - No Escape (Jay Reeve Remix)
 
-Last updated at 10/07/2021 12:08
+Last updated at 10/07/2021 12:10
