@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t500x500.jpg">](https://soundcloud.com/sablevalley/swoopin)
 
-**Artist**: glaive 
+**Artist**: SABLE VALLEY 
 
-**Track**: fuck this town
+**Track**: Baauer - Swoopin (RL Grime Edit)
 
-Last updated at 10/07/2021 12:14
+Last updated at 10/07/2021 12:22
