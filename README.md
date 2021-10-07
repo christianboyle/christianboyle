@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIstLzIlipzpCXFm-FfhMtA-t500x500.jpg">](https://soundcloud.com/dazegxd/20a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJXswi7u9dUqWet-qcMVnQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/detonator)
 
-**Artist**: dazegxd 
+**Artist**: NIGHTMODE 
 
-**Track**: 20°
+**Track**: JAWNS - Detonator
 
-Last updated at 10/07/2021 12:30
+Last updated at 10/07/2021 12:34
