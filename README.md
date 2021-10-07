@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iSEnYmZz8wZ4AVly-z4RLyQ-t500x500.jpg">](https://soundcloud.com/nuclear808/feelings-w-sky808)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
 
-**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
+**Artist**: RL Grime 
 
-**Track**: FEELINGS W/ Sky808
+**Track**: RL Grime & ISOxo - Stinger
 
-Last updated at 10/07/2021 12:02
+Last updated at 10/07/2021 12:04
