@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sjtwyqvGEIm86tsY-oi7gEg-t500x500.jpg">](https://soundcloud.com/area3000/265-wilo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjN2MKHgmRJysPuE-fXCu7g-t500x500.jpg">](https://soundcloud.com/ivorydubz/ivory-kompany-future)
 
-**Artist**: Area 3000 Radio 
+**Artist**: IVORY 
 
-**Track**: A3K265 WILO - 9 September 2021
+**Track**: IVORY & Kompany - Future
 
-Last updated at 10/07/2021 08:22
+Last updated at 10/07/2021 11:56
