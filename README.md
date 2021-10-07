@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XryuwwTVjJKdT4Yj-zd6RIg-t500x500.jpg">](https://soundcloud.com/umru/honey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iSEnYmZz8wZ4AVly-z4RLyQ-t500x500.jpg">](https://soundcloud.com/nuclear808/feelings-w-sky808)
 
-**Artist**: umru 
+**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
 
-**Track**: That Kid & umru ― Honey
+**Track**: FEELINGS W/ Sky808
 
-Last updated at 10/07/2021 12:00
+Last updated at 10/07/2021 12:02
