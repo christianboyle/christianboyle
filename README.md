@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JkLAIWuaxPJalwgL-zpZnJQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-no-escape-jay-reeve-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
 
-**Artist**: Dirty Workz 
+**Artist**: glaive 
 
-**Track**: Cyber - No Escape (Jay Reeve Remix)
+**Track**: fuck this town
 
-Last updated at 10/07/2021 12:26
+Last updated at 10/07/2021 12:28
