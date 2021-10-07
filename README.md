@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lN4OydZUR3OQMuZc-FGEyMQ-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sx6ylwDTG9ZJbsgr-HSIWoA-t500x500.jpg">](https://soundcloud.com/crystalorca/hyde-persona)
 
-**Artist**: FIEND WORLD 
+**Artist**: Crystal Orca 
 
-**Track**: COLD SWEATS VOL. 2
+**Track**: HYDE - PERSONA
 
-Last updated at 10/07/2021 07:52
+Last updated at 10/07/2021 08:06
