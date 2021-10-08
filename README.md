@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Krm7WUzW9joZUoz4-5oqGrg-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-006-dream-software)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZVQozsVCfrd0GNo-V4grwQ-t500x500.jpg">](https://soundcloud.com/beastwang/kcg-x-comast-girls-need-love)
 
-**Artist**: space lab 
+**Artist**: Beastwang 
 
-**Track**: space•cast 006 - Dream Software
+**Track**: KCG X Comast - Girls Need Love
 
-Last updated at 10/08/2021 07:43
+Last updated at 10/08/2021 08:50
