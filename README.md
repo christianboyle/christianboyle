@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QdjyO7jkVvVsWKus-E3mfYA-t500x500.jpg">](https://soundcloud.com/webcage/undermyskin?in=webcage/sets/peer2peer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IqRySR0Z17kQ-0-t500x500.jpg">](https://soundcloud.com/jojiofficial/cant-get-over-you-feat-clams?in=bbnomula/sets/best-playlist-ever)
 
-**Artist**: webcage 
+**Artist**: Joji 
 
-**Track**: undermyskin
+**Track**: Joji - CAN'T GET OVER YOU (feat. Clams Casino)
 
-Last updated at 10/08/2021 12:18
+Last updated at 10/08/2021 12:20
