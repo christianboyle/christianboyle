@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQhY2JWn37E7ZKm1Wwu6kIhUEFyg0y1KXh9WYhhZA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCoCAI5K8eiO2rT4I3BxsMTQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZmJoVK2uUJjIvm2Z-z9aS5g-t500x500.jpg">](https://soundcloud.com/sam-segan/sideways-remix)
 
-**Artist**: Travis Barker 
+**Artist**: Segan 
 
-**Track**: ILLENIUM - “Good Things Fall Apart” ft. Jon Bellion (Travis Barker Remix)
+**Track**: ILLENIUM, Valerie Broussard, & Nurko - Sideways (Segan Remix)
 
-Last updated at 10/08/2021 16:18
+Last updated at 10/08/2021 16:20
