@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000665034100-na7ri1-t500x500.jpg">](https://soundcloud.com/oaf1/wrong?in=go-away-627344192/sets/hyperpop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
 
-**Artist**: oaf1 
+**Artist**: glaive 
 
-**Track**: doing it wrong w/ @dreamcache
+**Track**: fuck this town
 
-Last updated at 10/08/2021 16:22
+Last updated at 10/08/2021 16:24
