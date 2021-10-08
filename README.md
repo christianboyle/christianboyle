@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iopzDuyzGJ5zr6XX-CMut1g-t500x500.jpg">](https://soundcloud.com/0noahh/conversate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVTx43W2bQcLpnAZ-jKtJhw-t500x500.jpg">](https://soundcloud.com/tsoumusic/throw-some-ds)
 
-**Artist**: Noahh 
+**Artist**: tsou 
 
-**Track**: Conversate (Michael Warren)
+**Track**: throw some d's
 
-Last updated at 10/08/2021 12:26
+Last updated at 10/08/2021 14:20
