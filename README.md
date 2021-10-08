@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000595862484-rjuw3x-t500x500.jpg">](https://soundcloud.com/longjawns/trash-talk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVsMKLPv5izL7sc3-YqHT3g-t500x500.jpg">](https://soundcloud.com/blankemusicau/breathe)
 
-**Artist**: JAWNS 
+**Artist**: Blanke 
 
-**Track**: Trash Talk
+**Track**: Breathe
 
-Last updated at 10/08/2021 16:44
+Last updated at 10/08/2021 16:46
