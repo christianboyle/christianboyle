@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVTx43W2bQcLpnAZ-jKtJhw-t500x500.jpg">](https://soundcloud.com/tsoumusic/throw-some-ds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j71FFXGUDSloongC-wqRFMA-t500x500.jpg">](https://soundcloud.com/mustdiemusic/choose-one?in=letslinkmusic/sets/choose-one)
 
-**Artist**: tsou 
+**Artist**: MUST DIE! 
 
-**Track**: throw some d's
+**Track**: MUST DIE! x LINK - CHOOSE ONE
 
-Last updated at 10/08/2021 14:20
+Last updated at 10/08/2021 16:16
