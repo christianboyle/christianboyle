@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CJcfrPfk6Qrgqixb-k9z6yA-t500x500.jpg">](https://soundcloud.com/evan-tha-villain/put-yo-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9HSarHZJCPVNNGWc-wkcsSg-t500x500.jpg">](https://soundcloud.com/neversaydie/pleeg-alone?in=neversaydie/sets/pleeg-dreamer-ep)
 
-**Artist**: Evan tha Villain 
+**Artist**: Never Say Die Records 
 
-**Track**: PUT YO HEAD
+**Track**: PLEEG - Alone [FUXWITHIT Premiere]
 
-Last updated at 10/10/2021 20:47
+Last updated at 10/10/2021 20:49
