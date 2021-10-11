@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqoJXJIVHQk5govi-GAo2Dg-t500x500.jpg">](https://soundcloud.com/sablevalley/supercell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000595862484-rjuw3x-t500x500.jpg">](https://soundcloud.com/longjawns/trash-talk)
 
-**Artist**: SABLE VALLEY 
+**Artist**: JAWNS 
 
-**Track**: JAWNS - Supercell
+**Track**: Trash Talk
 
-Last updated at 10/11/2021 14:53
+Last updated at 10/11/2021 14:57
