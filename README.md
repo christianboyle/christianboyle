@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t500x500.jpg">](https://soundcloud.com/sablevalley/swoopin)
 
-**Artist**: RL Grime 
+**Artist**: SABLE VALLEY 
 
-**Track**: RL Grime & ISOxo - Stinger
+**Track**: Baauer - Swoopin (RL Grime Edit)
 
-Last updated at 10/11/2021 14:29
+Last updated at 10/11/2021 14:33
