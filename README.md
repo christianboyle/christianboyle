@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIstLzIlipzpCXFm-FfhMtA-t500x500.jpg">](https://soundcloud.com/dazegxd/20a)
 
-**Artist**: glaive 
+**Artist**: dazegxd 
 
-**Track**: fuck this town
+**Track**: 20°
 
-Last updated at 10/11/2021 14:39
+Last updated at 10/11/2021 14:41
