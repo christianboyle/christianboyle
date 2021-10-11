@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wUv8u9zLO6ycAgHb-gKR4oQ-t500x500.jpg">](https://soundcloud.com/ducksondrugs/dscvr-presents-ducks-on-drugs-meru)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163382532-jm7hjq-t500x500.jpg">](https://soundcloud.com/i_d_magazine/06-sepalcure-hearts-in-danger)
 
-**Artist**: Ducks On Drugs 
+**Artist**: i-D 
 
-**Track**: DSCVR Presents 'Ducks On Drugs' - MERU
+**Track**: Sepalcure - Hearts In Danger
 
-Last updated at 10/11/2021 15:27
+Last updated at 10/11/2021 15:39
