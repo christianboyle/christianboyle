@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VccwyVCOhQWZOWdU-iHyybw-t500x500.jpg">](https://soundcloud.com/justicehardcore/jel7yz-hope-you-out-now?in=justicehardcore/sets/jel7yz-hope-you-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCgT4qJPLDNyrylT-TiHDWg-t500x500.jpg">](https://soundcloud.com/lagerack/face-it-wqteku)
 
-**Artist**: Justice Hardcore 
+**Artist**: .lagerack 
 
-**Track**: Jel7yz - Hope You  ⚠️OUT NOW⚠️
+**Track**: FACE IT W/QTEKU
 
-Last updated at 10/11/2021 14:11
+Last updated at 10/11/2021 14:13
