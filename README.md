@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJXswi7u9dUqWet-qcMVnQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/detonator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w8l3eGNRRxqa-0-t500x500.jpg">](https://soundcloud.com/longjawns/rpm)
 
-**Artist**: NIGHTMODE 
+**Artist**: JAWNS 
 
-**Track**: JAWNS - Detonator
+**Track**: RPM
 
-Last updated at 10/11/2021 11:57
+Last updated at 10/11/2021 11:59
