@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgCYnQp7Qk2iwb5y-nXXP1Q-t500x500.jpg">](https://soundcloud.com/morepetal/himera-superstar-petal-supply-hardstyle-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163382532-jm7hjq-t500x500.jpg">](https://soundcloud.com/i_d_magazine/06-sepalcure-hearts-in-danger)
 
-**Artist**: ps2 
+**Artist**: i-D 
 
-**Track**: Himera - Superstar (Petal Supply Hardstyle Edit)
+**Track**: Sepalcure - Hearts In Danger
 
-Last updated at 10/11/2021 14:15
+Last updated at 10/11/2021 14:17
