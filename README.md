@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqoJXJIVHQk5govi-GAo2Dg-t500x500.jpg">](https://soundcloud.com/sablevalley/supercell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VccwyVCOhQWZOWdU-iHyybw-t500x500.jpg">](https://soundcloud.com/justicehardcore/jel7yz-hope-you-out-now?in=justicehardcore/sets/jel7yz-hope-you-out-now)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Justice Hardcore 
 
-**Track**: JAWNS - Supercell
+**Track**: Jel7yz - Hope You  ⚠️OUT NOW⚠️
 
-Last updated at 10/11/2021 12:07
+Last updated at 10/11/2021 14:11
