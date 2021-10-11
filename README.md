@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wr0L9V8RFnomyP6t-E2otKw-t500x500.jpg">](https://soundcloud.com/knock2music/murdah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wUv8u9zLO6ycAgHb-gKR4oQ-t500x500.jpg">](https://soundcloud.com/ducksondrugs/dscvr-presents-ducks-on-drugs-meru)
 
-**Artist**: Knock2 
+**Artist**: Ducks On Drugs 
 
-**Track**: murdah
+**Track**: DSCVR Presents 'Ducks On Drugs' - MERU
 
-Last updated at 10/11/2021 14:59
+Last updated at 10/11/2021 15:27
