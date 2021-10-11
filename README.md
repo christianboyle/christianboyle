@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w8l3eGNRRxqa-0-t500x500.jpg">](https://soundcloud.com/longjawns/rpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/scythe)
 
-**Artist**: JAWNS 
+**Artist**: SABLE VALLEY 
 
-**Track**: RPM
+**Track**: Deadcrow - Scythe
 
-Last updated at 10/11/2021 11:59
+Last updated at 10/11/2021 12:03
