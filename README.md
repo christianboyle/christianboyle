@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9p8hLzWnwTAS-0-t500x500.png">](https://soundcloud.com/drewharveymusic/trying)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iopzDuyzGJ5zr6XX-CMut1g-t500x500.jpg">](https://soundcloud.com/0noahh/conversate)
 
-**Artist**: drew harvey 
+**Artist**: Noahh 
 
-**Track**: Trying
+**Track**: Conversate (Michael Warren)
 
-Last updated at 10/11/2021 14:21
+Last updated at 10/11/2021 14:23
