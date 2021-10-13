@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GVX1avyVogzT8ZxX-YWyMKw-t500x500.jpg">](https://soundcloud.com/volantmusic/hypertrance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brEErGZEMvD2QSzD-mz521w-t500x500.jpg">](https://soundcloud.com/balamii/curving-track-w-elle-clark-gallegos-october-2021)
 
-**Artist**: VOLANT 
+**Artist**: Balamii 
 
-**Track**: 「  HYPERTRANCE  」𝑒𝑡𝑒𝑟𝑛𝑎𝑙.𝒔𝒑𝒓𝒊𝒏𝒈 / ＨＡＲＭＯＮＹ1 9 9 9
+**Track**: Curving Track w/ Elle Clark & Gallegos - October 2021
 
-Last updated at 10/13/2021 07:58
+Last updated at 10/13/2021 08:00
