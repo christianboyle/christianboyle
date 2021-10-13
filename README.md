@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VF9jkpSDqasUHz1s-KixVvw-t500x500.jpg">](https://soundcloud.com/balamii/skream-ukg-special-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnnCs0Cqwf437h6F-bQzMaA-t500x500.jpg">](https://soundcloud.com/jakazid/refine-reality-10-10-2021)
 
-**Artist**: Balamii 
+**Artist**: JAKAZiD 
 
-**Track**: Skream: UKG Special - October 2021
+**Track**: JAKAZiD @ Refine Reality 10-10-2021
 
-Last updated at 10/13/2021 11:48
+Last updated at 10/13/2021 15:56
