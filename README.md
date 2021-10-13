@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brEErGZEMvD2QSzD-mz521w-t500x500.jpg">](https://soundcloud.com/balamii/curving-track-w-elle-clark-gallegos-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VF9jkpSDqasUHz1s-KixVvw-t500x500.jpg">](https://soundcloud.com/balamii/skream-ukg-special-october-2021)
 
 **Artist**: Balamii 
 
-**Track**: Curving Track w/ Elle Clark & Gallegos - October 2021
+**Track**: Skream: UKG Special - October 2021
 
-Last updated at 10/13/2021 08:00
+Last updated at 10/13/2021 11:48
