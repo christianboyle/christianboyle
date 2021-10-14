@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000452399244-robli0-t500x500.jpg">](https://soundcloud.com/shanghaidoom/shanghai-doom-x-dj-ride-colors?in=djride/sets/croix-dj-ride-walk-jad-039)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Shanghai Doom 
 
-**Track**: MiniMix 012: DJ Ride
+**Track**: Shanghai Doom x DJ Ride - Colors
 
-Last updated at 10/14/2021 12:33
+Last updated at 10/14/2021 12:35
