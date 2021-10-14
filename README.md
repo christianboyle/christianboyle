@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/EXRQ9LV1PPxutk_20acz-6OeyOXHagOPcowKLV9aOGRhEht2yNcobhjeSMDsnie3K8gplmrU_bk=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCaziuyHLR37c2jBkHrYSQMA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JqTcME8uyyJbF9j-zzJUzA-t500x500.jpg">](https://soundcloud.com/steelcitydancediscs/scdd025-moktar-lemon?in=steelcitydancediscs/sets/scdd025-moktar)
 
-**Artist**: Outkast 
+**Artist**: Steel City Dance Discs 
 
-**Track**: Hey Ya! (Official HD Video)
+**Track**: Moktar - Lemon
 
-Last updated at 10/13/2021 19:58
+Last updated at 10/14/2021 08:18
