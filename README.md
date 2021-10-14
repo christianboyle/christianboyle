@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wElJF5w33KoITQjZ-5nwBLg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/amentis-first-attack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oms9Il5c4x3fzhGn-pmbQSw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snfcc008-jamesjamesjames-james2007-ep)
 
-**Artist**: Dirty Workz 
+**Artist**: Shall Not Fade 
 
-**Track**: Amentis - First Attack
+**Track**: SNFCC008 // jamesjamesjames - james2007 EP
 
-Last updated at 10/14/2021 09:11
+Last updated at 10/14/2021 12:27
