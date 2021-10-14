@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQ4qnhO6yl8XbpQp-IAnXhQ-t500x500.jpg">](https://soundcloud.com/danlrk/sugar-were-goin-down-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9beBqMgHO0fUPk2z-i96O4g-t500x500.jpg">](https://soundcloud.com/nuclear808/spark)
 
-**Artist**: Dan Larkin 
+**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
 
-**Track**: Fall Out Boy - Sugar, We're Goin Down (Dan Larkin Remix)
+**Track**: SPARK
 
-Last updated at 10/14/2021 18:29
+Last updated at 10/14/2021 18:31
