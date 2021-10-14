@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJsnN0cvpDLptXJi-RukSGg-t500x500.jpg">](https://soundcloud.com/skovazz/something-i-said)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAvlrR8vx1JzcMV1-EGYExw-t500x500.jpg">](https://soundcloud.com/skylar_allen/pointblank)
 
-**Artist**: SKOVAZ 
+**Artist**: skylarallen 
 
-**Track**: Something I Said?
+**Track**: PO!NTBLANK (FT. DO NOT RESURRECT)
 
-Last updated at 10/14/2021 15:49
+Last updated at 10/14/2021 15:51
