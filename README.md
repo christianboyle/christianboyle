@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zQ5rLiU9eNariq4-MTxeRw-t500x500.jpg">](https://soundcloud.com/saintpunkboots/saint-punk-lost-lands-set-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQ4qnhO6yl8XbpQp-IAnXhQ-t500x500.jpg">](https://soundcloud.com/danlrk/sugar-were-goin-down-remix)
 
-**Artist**: Saint Punk Boots 
+**Artist**: Dan Larkin 
 
-**Track**: Saint Punk - Lost Lands Set 2021
+**Track**: Fall Out Boy - Sugar, We're Goin Down (Dan Larkin Remix)
 
-Last updated at 10/14/2021 15:53
+Last updated at 10/14/2021 18:29
