@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzvylI6eeT8c4npO-QpRYlA-t500x500.jpg">](https://soundcloud.com/yungmurderspree/big-shotz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
 
-**Artist**: Yung murderspree 
+**Artist**: SABLE VALLEY 
 
-**Track**: BIG SHOTZ
+**Track**: MiniMix 012: DJ Ride
 
-Last updated at 10/14/2021 12:31
+Last updated at 10/14/2021 12:33
