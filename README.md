@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQXvHxz855lpSb8m3mS4z_OgmAquQ59OZwYadQrRA=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCc7_woMAIVIW2mAr1rPCsFQ)
+[<img align="left" width="100" src="https://yt3.ggpht.com/EXRQ9LV1PPxutk_20acz-6OeyOXHagOPcowKLV9aOGRhEht2yNcobhjeSMDsnie3K8gplmrU_bk=s48-c-k-c0x00ffffff-no-nd-rj">](https://www.youtube.com/channel/UCaziuyHLR37c2jBkHrYSQMA)
 
-**Artist**: Paramore 
+**Artist**: Outkast 
 
-**Track**: Paramore: Misery Business [OFFICIAL VIDEO]
+**Track**: Hey Ya! (Official HD Video)
 
-Last updated at 10/13/2021 19:44
+Last updated at 10/13/2021 19:58
