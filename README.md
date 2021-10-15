@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnnCs0Cqwf437h6F-bQzMaA-t500x500.jpg">](https://soundcloud.com/jakazid/refine-reality-10-10-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDHF6Ef3cyHz1tQo-YCn3xQ-t500x500.jpg">](https://soundcloud.com/letslinkmusic/turbo-mix-volume-1)
 
-**Artist**: JAKAZiD 
+**Artist**: LINK 
 
-**Track**: JAKAZiD @ Refine Reality 10-10-2021
+**Track**: TURBO MIX VOLUME 1
 
-Last updated at 10/15/2021 10:02
+Last updated at 10/15/2021 11:16
