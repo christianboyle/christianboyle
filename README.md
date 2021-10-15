@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTyyDzfvyCh8SiP2-nrvPjQ-t500x500.jpg">](https://soundcloud.com/soulr_x/syence-live-at-soulr-fest-may-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/needsmoredistortion)
 
-**Artist**: SOULR X 
+**Artist**: SABLE VALLEY 
 
-**Track**: syence - Live at SOULR FEST May 2021
+**Track**: DJ Ride - NEEDSMOREDISTORTION
 
-Last updated at 10/15/2021 11:56
+Last updated at 10/15/2021 13:58
