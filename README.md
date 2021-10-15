@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDHF6Ef3cyHz1tQo-YCn3xQ-t500x500.jpg">](https://soundcloud.com/letslinkmusic/turbo-mix-volume-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTyyDzfvyCh8SiP2-nrvPjQ-t500x500.jpg">](https://soundcloud.com/soulr_x/syence-live-at-soulr-fest-may-2021)
 
-**Artist**: LINK 
+**Artist**: SOULR X 
 
-**Track**: TURBO MIX VOLUME 1
+**Track**: syence - Live at SOULR FEST May 2021
 
-Last updated at 10/15/2021 11:16
+Last updated at 10/15/2021 11:56
