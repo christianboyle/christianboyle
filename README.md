@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sAaCMB3hV3iJoXz9-yBiiIg-t500x500.jpg">](https://soundcloud.com/balamii/harrison-bdp-october-2021)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Balamii 
 
-**Track**: DJ Ride - TAKETHISWAY
+**Track**: Harrison BDP - October 2021
 
-Last updated at 10/16/2021 13:22
+Last updated at 10/18/2021 07:53
