@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8dfZGZE03lsURPj-o28t2g-t500x500.jpg">](https://soundcloud.com/thelotradio/trademark-with-goth-jafar-the-lot-radio-10-16-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/needsmoredistortion)
 
-**Artist**: The Lot Radio 
+**Artist**: SABLE VALLEY 
 
-**Track**: Trademark™️ With Goth Jafar ™️ @ The Lot Radio 10 - 16 - 2021
+**Track**: DJ Ride - NEEDSMOREDISTORTION
 
-Last updated at 10/18/2021 10:43
+Last updated at 10/18/2021 16:41
