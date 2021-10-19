@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iff2EKVts3IWGO6j-qz1Pfg-t500x500.jpg">](https://soundcloud.com/guccigarette1913/got-me-fucktop-b-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1?in=fiendworldwide/sets/cold-sweats)
 
-**Artist**: GUCCIGARETTE 
+**Artist**: FIEND WORLD 
 
-**Track**: GOT ME FUCKTOP ($UICIDEBOY$ MIX)
+**Track**: COLD SWEATS VOL. 1
 
-Last updated at 10/19/2021 09:23
+Last updated at 10/19/2021 09:25
