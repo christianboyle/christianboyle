@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1?in=fiendworldwide/sets/cold-sweats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/needsmoredistortion)
 
-**Artist**: FIEND WORLD 
+**Artist**: SABLE VALLEY 
 
-**Track**: COLD SWEATS VOL. 1
+**Track**: DJ Ride - NEEDSMOREDISTORTION
 
-Last updated at 10/19/2021 09:25
+Last updated at 10/19/2021 11:41
