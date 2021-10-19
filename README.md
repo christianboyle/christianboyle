@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/needsmoredistortion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000363947727-ncx567-t500x500.jpg">](https://soundcloud.com/dean-e-g/eve-whos-that-girl-dean-e-g-rmx-soundcloud)
 
-**Artist**: SABLE VALLEY 
+**Artist**: DEAN-E-G 
 
-**Track**: DJ Ride - NEEDSMOREDISTORTION
+**Track**: Eve - Who's That Girl - DEAN - E-G Rmx
 
-Last updated at 10/18/2021 16:49
+Last updated at 10/19/2021 09:21
