@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iopzDuyzGJ5zr6XX-CMut1g-t500x500.jpg">](https://soundcloud.com/0noahh/conversate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
 
-**Artist**: Noahh 
+**Artist**: SABLE VALLEY 
 
-**Track**: Conversate (Michael Warren)
+**Track**: MiniMix 012: DJ Ride
 
-Last updated at 10/19/2021 12:05
+Last updated at 10/19/2021 15:15
