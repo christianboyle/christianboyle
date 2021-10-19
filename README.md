@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KSmyEA7JyDsZzy8y-QE7VVQ-t500x500.jpg">](https://soundcloud.com/montarecs/remk-lowrider?in_system_playlist=track-stations%3A1140216616)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
 
-**Artist**: MONTA 
+**Artist**: SABLE VALLEY 
 
-**Track**: RemK - Lowrider
+**Track**: MiniMix 012: DJ Ride
 
-Last updated at 10/19/2021 15:35
+Last updated at 10/19/2021 15:39
