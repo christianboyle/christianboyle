@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163382532-jm7hjq-t500x500.jpg">](https://soundcloud.com/i_d_magazine/06-sepalcure-hearts-in-danger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9p8hLzWnwTAS-0-t500x500.png">](https://soundcloud.com/drewharveymusic/trying)
 
-**Artist**: i-D 
+**Artist**: drew harvey 
 
-**Track**: Sepalcure - Hearts In Danger
+**Track**: Trying
 
-Last updated at 10/19/2021 11:57
+Last updated at 10/19/2021 12:03
