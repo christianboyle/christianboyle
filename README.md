@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYz8Dr8n5j18hwmt-CCLAGA-t500x500.jpg">](https://soundcloud.com/djmag/premiere-zuli-tany)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
 
-**Artist**: djmag 
+**Artist**: SABLE VALLEY 
 
-**Track**: Premiere: ZULI ‘Tany’
+**Track**: MiniMix 012: DJ Ride
 
-Last updated at 10/20/2021 12:33
+Last updated at 10/20/2021 15:33
