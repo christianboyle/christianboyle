@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BDa2D5q0U6EnCzTg-SYHa1A-t500x500.jpg">](https://soundcloud.com/loopmasters/horns-in-motion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlMJ3Z6UnqBoQOnG-ccm3UA-t500x500.jpg">](https://soundcloud.com/club_sirens/sirens-at-radio-80k-w-xof-021)
 
-**Artist**: Loopmasters 
+**Artist**: SIRENS 
 
-**Track**: Horns In Motion
+**Track**: Sirens at Radio 80k w/ XOF (021)
 
-Last updated at 10/20/2021 08:25
+Last updated at 10/20/2021 08:27
