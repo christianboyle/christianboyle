@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shNLztNWbBhcyLnn-KFfcNQ-t500x500.jpg">](https://soundcloud.com/balamii/ikonika-ooctober-2021)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Balamii 
 
-**Track**: MiniMix 012: DJ Ride
+**Track**: Ikonika - October 2021
 
-Last updated at 10/19/2021 15:39
+Last updated at 10/20/2021 07:09
