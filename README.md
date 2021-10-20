@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRxz2dw2HglyrofV-QRaG1Q-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms30-sirens)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ikPsxBJnQ9I1ksum-tVq4AQ-t500x500.png">](https://soundcloud.com/club_sirens/sirens-on-radio-80k-w-kavari-selimhex)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: SIRENS 
 
-**Track**: HPHF MS30: SIRENS
+**Track**: Sirens on Radio 80k w/ KAVARI & SELIMHEX (016)
 
-Last updated at 10/20/2021 10:13
+Last updated at 10/20/2021 12:31
