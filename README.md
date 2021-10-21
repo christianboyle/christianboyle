@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZegbdZnRsZsbR4mc-ShQ9FA-t500x500.jpg">](https://soundcloud.com/snokey/dawn)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Snow-Key 
 
-**Track**: DJ Ride - TAKETHISWAY
+**Track**: Dawn
 
-Last updated at 10/20/2021 15:53
+Last updated at 10/21/2021 07:59
