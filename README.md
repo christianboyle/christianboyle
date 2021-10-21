@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OHmzQw7Z5Yzg0V8F-ZUu3vw-t500x500.jpg">](https://soundcloud.com/matthew-j-jamison/bando-matthew-jamison-edit?in=zethus-suen/sets/october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQ96gyEuMfN5uOVr-iGWR9A-t500x500.jpg">](https://soundcloud.com/relyae/young-savage?in=zethus-suen/sets/october-2021)
 
-**Artist**: Matthew J Jamison 
+**Artist**: Relyae 
 
-**Track**: Bando (Matthew Jamison Edit)
+**Track**: Young Savage
 
-Last updated at 10/21/2021 17:51
+Last updated at 10/21/2021 17:55
