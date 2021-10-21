@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wr0L9V8RFnomyP6t-E2otKw-t500x500.jpg">](https://soundcloud.com/knock2music/murdah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
 
-**Artist**: Knock2 
+**Artist**: SABLE VALLEY 
 
-**Track**: murdah
+**Track**: DJ Ride - TAKETHISWAY
 
-Last updated at 10/21/2021 16:25
+Last updated at 10/21/2021 16:29
