@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/scythe)
 
-**Artist**: glaive 
+**Artist**: SABLE VALLEY 
 
-**Track**: fuck this town
+**Track**: Deadcrow - Scythe
 
-Last updated at 10/21/2021 12:35
+Last updated at 10/21/2021 16:19
