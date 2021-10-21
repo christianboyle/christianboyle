@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKwtwXHKxOaDkzsC-tWJ8YQ-t500x500.jpg">](https://soundcloud.com/danktronics/seppa-vermix-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZQwzQpLfysKC4Vi-NbzOQA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/tdj-spf-infini-continuous-mix)
 
-**Artist**: Danktronics 
+**Artist**: TDJ 
 
-**Track**: Seppa - Vermix [Premiere]
+**Track**: SPF INFINI (Continuous Mix)
 
-Last updated at 10/21/2021 08:45
+Last updated at 10/21/2021 08:47
