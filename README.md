@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i1Sxrv4wEPbUWAgz-XIYucA-t500x500.jpg">](https://soundcloud.com/loopmasters/soul-city-grooves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGe706iLbU543VU0-CyiTGw-t500x500.jpg">](https://soundcloud.com/killmesumday/maincharacter)
 
-**Artist**: Loopmasters 
+**Artist**: killmesumday 
 
-**Track**: Soul City Grooves
+**Track**: main character (dercept)
 
-Last updated at 10/21/2021 18:35
+Last updated at 10/21/2021 18:39
