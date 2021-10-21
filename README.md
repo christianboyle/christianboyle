@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g52gVecOj8bBPQcP-YnQ2Mw-t500x500.jpg">](https://soundcloud.com/recordrecordparis/la-raison?in=zethus-suen/sets/october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9JQcfMNzpCEIb48-AqJTzg-t500x500.jpg">](https://soundcloud.com/loopmasters/deep-house-vocals-1)
 
-**Artist**: Record Record 
+**Artist**: Loopmasters 
 
-**Track**: Point Point - La Raison
+**Track**: Deep House Vocals
 
-Last updated at 10/21/2021 18:15
+Last updated at 10/21/2021 18:19
