@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWb1bHEuS7tXOrzM-KUwuKA-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s01e42)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jK41JiF8iyu1vNnb-ynNJoQ-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-012)
 
-**Artist**: VISION 
+**Artist**: SABLE VALLEY 
 
-**Track**: VISION Radio S01E42
+**Track**: MiniMix 012: DJ Ride
 
-Last updated at 10/21/2021 08:49
+Last updated at 10/21/2021 11:51
