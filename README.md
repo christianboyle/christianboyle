@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IOHFq9OOrcU6jpIt-f3aDkQ-t500x500.jpg">](https://soundcloud.com/loopmasters/leftfield-techno-massive-x-presets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i1Sxrv4wEPbUWAgz-XIYucA-t500x500.jpg">](https://soundcloud.com/loopmasters/soul-city-grooves)
 
 **Artist**: Loopmasters 
 
-**Track**: Leftfield Techno - Massive X Presets
+**Track**: Soul City Grooves
 
-Last updated at 10/21/2021 18:31
+Last updated at 10/21/2021 18:35
