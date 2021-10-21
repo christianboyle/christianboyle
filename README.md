@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USYVLdYKTRkiOIDQ-OtWhcA-t500x500.jpg">](https://soundcloud.com/relyae/way-2-sexy-relyae-remix?in=zethus-suen/sets/october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WjwVndBk8HMMGRQb-Bzz2Uw-t500x500.jpg">](https://soundcloud.com/scascamusic/scasca-long-distance-call?in=zethus-suen/sets/october-2021)
 
-**Artist**: Relyae 
+**Artist**: Scasca 
 
-**Track**: Way 2 Sexy (relyae Remix)
+**Track**: Long Distance Call
 
-Last updated at 10/21/2021 17:57
+Last updated at 10/21/2021 18:01
