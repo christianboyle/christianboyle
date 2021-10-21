@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fd4Cuwez9WO5Ze4s-di18hQ-t500x500.jpg">](https://soundcloud.com/user-547392505/the-kid-laroi-stay-sndwn-cover-remix?in=zethus-suen/sets/october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g52gVecOj8bBPQcP-YnQ2Mw-t500x500.jpg">](https://soundcloud.com/recordrecordparis/la-raison?in=zethus-suen/sets/october-2021)
 
-**Artist**: SNDWN 
+**Artist**: Record Record 
 
-**Track**: The Kid Laroi - Stay (SNDWN Cover Remix) Free DL
+**Track**: Point Point - La Raison
 
-Last updated at 10/21/2021 18:13
+Last updated at 10/21/2021 18:15
