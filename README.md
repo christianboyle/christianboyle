@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iopzDuyzGJ5zr6XX-CMut1g-t500x500.jpg">](https://soundcloud.com/0noahh/conversate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iSEnYmZz8wZ4AVly-z4RLyQ-t500x500.jpg">](https://soundcloud.com/nuclear808/feelings-w-sky808)
 
-**Artist**: Noahh 
+**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
 
-**Track**: Conversate (Michael Warren)
+**Track**: FEELINGS W/ Sky808
 
-Last updated at 10/21/2021 12:19
+Last updated at 10/21/2021 12:21
