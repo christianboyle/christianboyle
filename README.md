@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CV54hymaCvogQAGX-MybFYA-t500x500.jpg">](https://soundcloud.com/naafi/sim-cdmx-tapes-x-nts-radio-14?in=naafi/sets/tomas-urquieta-sim-cdmx-tapes-x-nts-radio-141021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3PhXORBgcCh0SV5-n1W36Q-t500x500.jpg">](https://soundcloud.com/tigerpaw/helped-me-in-times-before)
 
-**Artist**: NAAFI 
+**Artist**: TigerPaw 
 
-**Track**: SIM - CDMX TAPES X NTS Radio (14.10.21)
+**Track**: Helped Me In Times Before
 
-Last updated at 10/21/2021 23:33
+Last updated at 10/22/2021 00:33
