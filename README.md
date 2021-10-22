@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLTTIBoFrmYFzoEQqyONcakeYhUCj1rVoSgqgpjRWw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCeovElJP0n0i8ADaPsRSd8g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7I1tH7SJfV2eQbz5-zIOWNA-t500x500.jpg">](https://soundcloud.com/balamii/wayne-snow-w-ghostpoet-october-2021)
 
-**Artist**: HAINBACH 
+**Artist**: Balamii 
 
-**Track**: The First Modern Drum Machine | Eko Computerhythm
+**Track**: Wayne Snow w/ GhostPoet - October 2021
 
-Last updated at 10/22/2021 09:55
+Last updated at 10/22/2021 10:25
