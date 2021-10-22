@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FLj29f8Y2skSdHH6-22agcg-t500x500.jpg">](https://soundcloud.com/loudkult/tom-enzy-x-jessica-hammond-superlike)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4xnyGFUUkStjPFY-gfs7Uw-t500x500.jpg">](https://soundcloud.com/deskpopmusic/tuna-display-item2k?in=deskpopmusic/sets/tuna-display-accela-and-toys)
 
-**Artist**: LoudKult 
+**Artist**: DESKPOP 🌵🖥💛 
 
-**Track**: Tom Enzy x Jessica Hammond - Superlike
+**Track**: TUNA DISPLAY - ITEM2K
 
-Last updated at 10/22/2021 08:55
+Last updated at 10/22/2021 08:59
