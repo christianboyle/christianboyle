@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2QM2BbPqkKoqBoG-Zfz53w-t500x500.jpg">](https://soundcloud.com/radiojuicy1/uncertain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9x8a2hRnZcU9YZA-LM71lA-t500x500.jpg">](https://soundcloud.com/futurehousemusic/galoski-thinking-about-you)
 
-**Artist**: Radio Juicy 
+**Artist**: Future House Music 
 
-**Track**: nico harris, anu & elmo - Uncertain
+**Track**: Galoski - Thinking About You
 
-Last updated at 10/21/2021 22:25
+Last updated at 10/21/2021 22:29
