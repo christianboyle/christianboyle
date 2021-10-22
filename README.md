@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7I1tH7SJfV2eQbz5-zIOWNA-t500x500.jpg">](https://soundcloud.com/balamii/wayne-snow-w-ghostpoet-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4xnyGFUUkStjPFY-gfs7Uw-t500x500.jpg">](https://soundcloud.com/deskpopmusic/tuna-display-item2k)
 
-**Artist**: Balamii 
+**Artist**: DESKPOP 🌵🖥💛 
 
-**Track**: Wayne Snow w/ GhostPoet - October 2021
+**Track**: TUNA DISPLAY - ITEM2K
 
-Last updated at 10/22/2021 09:01
+Last updated at 10/22/2021 09:13
