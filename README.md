@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b0iRXCVM5WMRYWZi-X2FzyQ-t500x500.jpg">](https://soundcloud.com/yungshadowww/coolin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-apIPkgUvLlTOHJsI-2DdYEA-t500x500.jpg">](https://soundcloud.com/dr0wng/church)
 
-**Artist**: YUNG $HADOW 
+**Artist**: dr0wng. 
 
-**Track**: COOLIN’
+**Track**: Paige Stanley - rooms (featuring crownley)
 
-Last updated at 10/22/2021 03:35
+Last updated at 10/22/2021 03:37
