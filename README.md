@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQ2Pp4sZ9hcTPDUS-dGWl4Q-t500x500.jpg">](https://soundcloud.com/balamii/flavours-w-cherry-b-and-kiina-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Haya6E5eGkq2tFW-cNAhNg-t500x500.jpg">](https://soundcloud.com/definitelynotwreckno/freaknik-xotix-remix?in=xotixmusic/sets/freaknik-wreckno-x-whom-xotix)
 
-**Artist**: Balamii 
+**Artist**: WRECKNO 
 
-**Track**: Flavours w/ Cherry B and Kiina - October 2021
+**Track**: FREAKNIK (Xotix Remix)
 
-Last updated at 10/21/2021 19:45
+Last updated at 10/21/2021 21:37
