@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wy6sw2z3LpPeBjnc-NGyU2Q-t500x500.jpg">](https://soundcloud.com/tigerpaw/stay-out-all-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gEssgJndH3cKvsvc-qwyB6g-t500x500.jpg">](https://soundcloud.com/gasoiid/neverending-story)
 
-**Artist**: TigerPaw 
+**Artist**: gasoiid 
 
-**Track**: Stay Out All Night
+**Track**: neverending story (romedigi x maknae)
 
-Last updated at 10/22/2021 00:35
+Last updated at 10/22/2021 00:39
