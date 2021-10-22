@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQOCjsOChASJ82uQ-BApRwA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/max-borowski-when-im-with-u-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CV54hymaCvogQAGX-MybFYA-t500x500.jpg">](https://soundcloud.com/naafi/tomas-urquieta-cdmx-tapes-x?in=naafi/sets/tomas-urquieta-sim-cdmx-tapes-x-nts-radio-141021)
 
-**Artist**: Chill Planet 
+**Artist**: NAAFI 
 
-**Track**: Max Borowski - When I'm With U
+**Track**: Tomás Urquieta - CDMX TAPES X NTS Radio (14.10.21)
 
-Last updated at 10/21/2021 22:31
+Last updated at 10/21/2021 22:35
