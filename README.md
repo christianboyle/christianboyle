@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7KF9L2nOM7aDoGb9-XDoWmw-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-four-days-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pY9kbZoSKt3YNjqk-GhHgHw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/deaf-kev-invincible-pt-ii-feat-sendi-hoxha-ncs-release)
 
-**Artist**: Balamii 
+**Artist**: NCS 
 
-**Track**: Slate Sessions w/ Four Days - October 2021
+**Track**: Deaf Kev - Invincible Pt. II (feat. Sendi Hoxha) [NCS10 Release]
 
-Last updated at 10/22/2021 03:53
+Last updated at 10/22/2021 05:33
