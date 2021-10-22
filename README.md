@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PNgjgZab7XrGux-K4zDpw-t500x500.jpg">](https://soundcloud.com/elijah-houck-106575187/impo-3si-ft-spell-jordan-prodbyeddie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HWX2yEyYZMkdzB5W-tgz8DA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/sonxc-take-my-heart-away)
 
-**Artist**: 3si 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: IMPO--3si ft. Spell Jordan (prodbyeddie)
+**Track**: sonxc - 𝓉𝒶𝓀ℯ 𝓂𝓎 𝒽ℯ𝒶𝓇𝓉 𝒶𝓌𝒶𝓎
 
-Last updated at 10/21/2021 21:43
+Last updated at 10/21/2021 21:45
