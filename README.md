@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9x8a2hRnZcU9YZA-LM71lA-t500x500.jpg">](https://soundcloud.com/futurehousemusic/galoski-thinking-about-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQOCjsOChASJ82uQ-BApRwA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/max-borowski-when-im-with-u-1)
 
-**Artist**: Future House Music 
+**Artist**: Chill Planet 
 
-**Track**: Galoski - Thinking About You
+**Track**: Max Borowski - When I'm With U
 
-Last updated at 10/21/2021 22:29
+Last updated at 10/21/2021 22:31
