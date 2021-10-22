@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AMalSqvUPK9Akmzz-vTFlvw-t500x500.jpg">](https://soundcloud.com/tomorrowland/tomorrowland-friendship-mix-andrew-rayel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjNprL9ZMykrGyZz-ZihxMg-t500x500.jpg">](https://soundcloud.com/destinuna/whom-lie-2-me)
 
-**Artist**: Tomorrowland 
+**Artist**: Destinuna 
 
-**Track**: Tomorrowland Friendship Mix - Andrew Rayel
+**Track**: WHOM? - Lie 2 Me
 
-Last updated at 10/21/2021 18:41
+Last updated at 10/21/2021 19:41
