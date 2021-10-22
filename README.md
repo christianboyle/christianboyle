@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqY0TYQCMdXpo7u2-ZXXoPQ-t500x500.jpg">](https://soundcloud.com/blackboxrecs/marcus-j3nson-closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b0iRXCVM5WMRYWZi-X2FzyQ-t500x500.jpg">](https://soundcloud.com/yungshadowww/coolin)
 
-**Artist**: BLVCKBØX 
+**Artist**: YUNG $HADOW 
 
-**Track**: Marcus J3nson - Closer
+**Track**: COOLIN’
 
-Last updated at 10/22/2021 03:33
+Last updated at 10/22/2021 03:35
