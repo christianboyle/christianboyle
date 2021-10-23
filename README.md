@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wYAMkUBZBw86A0IR-sNNdkg-t500x500.jpg">](https://soundcloud.com/iamlick/lick-x-holly-purge-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000035276292-s0aoxs-t500x500.jpg">](https://soundcloud.com/youth-code/destroy-said-she?in=futureisoffline/sets/epic-party)
 
-**Artist**: LICK 
+**Artist**: YOUTH CODE 
 
-**Track**: LICK X Holly - PURGE
+**Track**: "DESTROY."  SAID, SHE.
 
-Last updated at 10/22/2021 19:45
+Last updated at 10/22/2021 19:47
