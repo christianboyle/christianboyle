@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198524657-jl6j4l-t500x500.jpg">](https://soundcloud.com/francescozeta/skizophrenia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4xnyGFUUkStjPFY-gfs7Uw-t500x500.jpg">](https://soundcloud.com/deskpopmusic/tuna-display-item2k)
 
-**Artist**: Francesco Zeta 
+**Artist**: DESKPOP 🌵🖥💛 
 
-**Track**: Skizophrenia
+**Track**: TUNA DISPLAY - ITEM2K
 
-Last updated at 10/22/2021 19:55
+Last updated at 10/22/2021 19:57
