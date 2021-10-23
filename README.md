@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwgMGHXwyQMEyAZg-u61c6A-t500x500.jpg">](https://soundcloud.com/lijdied/vandal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ziWYcxPbLcNTdas-BAwVlQ-t500x500.jpg">](https://soundcloud.com/aries_ix/one-punch)
 
-**Artist**: Lij 
+**Artist**: Aries 
 
-**Track**: VANDAL!
+**Track**: ONE PUNCH
 
-Last updated at 10/23/2021 11:01
+Last updated at 10/23/2021 11:03
