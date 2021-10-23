@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QnA4EYJV3FhVymuY-9ZMpzA-t500x500.jpg">](https://soundcloud.com/ultravibes/firelite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BRhN4wICQ1JQgNSA-gOM3bg-t500x500.jpg">](https://soundcloud.com/shxde/echo?in=shxde/sets/new-shxde)
 
-**Artist**: Ultravibes 
+**Artist**: shxde 
 
-**Track**: Firelite
+**Track**: Echo
 
-Last updated at 10/23/2021 08:29
+Last updated at 10/23/2021 08:33
