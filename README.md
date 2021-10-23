@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PGx4x5pGccWn342-nEbowg-t500x500.jpg">](https://soundcloud.com/murderclubmusik/newheart-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000198524657-jl6j4l-t500x500.jpg">](https://soundcloud.com/francescozeta/skizophrenia)
 
-**Artist**: MURDER CLUB 
+**Artist**: Francesco Zeta 
 
-**Track**: PETALSUPPLY X TUCHSCREEN - NEWHEART (MURDER CLUB REMIX)
+**Track**: Skizophrenia
 
-Last updated at 10/22/2021 19:53
+Last updated at 10/22/2021 19:55
