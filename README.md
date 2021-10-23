@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JF0lmErwv6IlJXju-SNv5nQ-t500x500.jpg">](https://soundcloud.com/invoguerecords/saiah-heartbreak?in_system_playlist=track-stations%3A1145585986)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6ue28G8Qxis-0-t500x500.png">](https://soundcloud.com/ekkstacy/it-only-gets-worse-i-promise?in_system_playlist=track-stations%3A1145585986)
 
-**Artist**: InVogue Records 
+**Artist**: EKKSTACY 
 
-**Track**: SAIAH - HEART(BREAK)
+**Track**: it only gets worse, i promise
 
-Last updated at 10/23/2021 10:19
+Last updated at 10/23/2021 10:21
