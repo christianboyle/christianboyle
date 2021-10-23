@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCLz3Ie7R8Wk0yDg-tyuVoQ-t500x500.jpg">](https://soundcloud.com/aries_ix/convos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SSjTl0W0D9xY0yyV-g23bcg-t500x500.jpg">](https://soundcloud.com/aries_ix/fools-gold)
 
 **Artist**: Aries 
 
-**Track**: CONVERSATIONS
+**Track**: FOOL'S GOLD
 
-Last updated at 10/23/2021 08:53
+Last updated at 10/23/2021 08:57
