@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njGtziK32wgNy8yQ-mawB7A-t500x500.jpg">](https://soundcloud.com/txnt/back-at-ya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wlKYybVnSDTrcfti-cgjA2A-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-acid-gaya-free-dl)
 
-**Artist**: DJ TINT 
+**Artist**: Seimei 
 
-**Track**: BACK AT YA
+**Track**: Seimei - Acid Gaya [FREE DL]
 
-Last updated at 10/23/2021 08:19
+Last updated at 10/23/2021 08:21
