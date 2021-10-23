@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qV3jTRmvl94XX1G-zoidEw-t500x500.jpg">](https://soundcloud.com/yumecollective/shxde-voices-yume-premiere?in=shxde/sets/new-shxde)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuJWG7KBPtrmaNLq-MgW1vA-t500x500.jpg">](https://soundcloud.com/djdmind/as-one-ft-tekgnosis-free-download)
 
-**Artist**: YUME 
+**Artist**: D-MIND 
 
-**Track**: shxde - Voices [ YUME ]
+**Track**: As One (ft. Tekgnosis) [FREE DOWNLOAD]
 
-Last updated at 10/23/2021 08:37
+Last updated at 10/23/2021 08:39
