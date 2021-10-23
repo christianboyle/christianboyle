@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lBkuL09wO7MzhyC-PeG4Cg-t500x500.jpg">](https://soundcloud.com/monto-604833875/bad-apples?in_system_playlist=track-stations%3A1145585986)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000333129309-2udj65-t500x500.jpg">](https://soundcloud.com/aries_ix/sayonara?in_system_playlist=track-stations%3A1145585986)
 
-**Artist**: Monto 
+**Artist**: Aries 
 
-**Track**: BAD APPLES
+**Track**: SAYONARA
 
-Last updated at 10/23/2021 10:47
+Last updated at 10/23/2021 10:49
