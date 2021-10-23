@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AixMMq7BuXVkxSz-IiB0lA-t500x500.jpg">](https://soundcloud.com/twlvy/brakence-fwb-twlvy-flip?in_system_playlist=track-stations%3A1145585986)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUxvAvWeBDW9UnmH-Ca3uLA-t500x500.jpg">](https://soundcloud.com/shelovesboon/fortheweekend?in_system_playlist=track-stations%3A1145585986)
 
-**Artist**: twlvy 
+**Artist**: she loves boon 🖤 
 
-**Track**: brakence - fwb (twlvy flip)
+**Track**: for the weekend (music video out now)
 
-Last updated at 10/23/2021 10:03
+Last updated at 10/23/2021 10:05
