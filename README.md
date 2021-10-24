@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4xnyGFUUkStjPFY-gfs7Uw-t500x500.jpg">](https://soundcloud.com/deskpopmusic/tuna-display-item2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/needsmoredistortion)
 
-**Artist**: DESKPOP 🌵🖥💛 
+**Artist**: SABLE VALLEY 
 
-**Track**: TUNA DISPLAY - ITEM2K
+**Track**: DJ Ride - NEEDSMOREDISTORTION
 
-Last updated at 10/23/2021 19:04
+Last updated at 10/23/2021 19:06
