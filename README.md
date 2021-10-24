@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSzORLRSPyDesWv7-XDDjew-t500x500.jpg">](https://soundcloud.com/balamii/nervous-records-october-2021)
 
-**Artist**: glaive 
+**Artist**: Balamii 
 
-**Track**: fuck this town
+**Track**: Nervous Records - October 2021
 
-Last updated at 10/23/2021 19:14
+Last updated at 10/24/2021 16:24
