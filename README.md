@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iSEnYmZz8wZ4AVly-z4RLyQ-t500x500.jpg">](https://soundcloud.com/nuclear808/feelings-w-sky808)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000314918634-r5n40r-t500x500.jpg">](https://soundcloud.com/grimyboi/carousel)
 
-**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
+**Artist**: GRIMYBOI 
 
-**Track**: FEELINGS W/ Sky808
+**Track**: CAROUSEL (prod. GRIMYBOI)
 
-Last updated at 10/23/2021 19:10
+Last updated at 10/23/2021 19:12
