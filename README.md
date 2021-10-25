@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSzORLRSPyDesWv7-XDDjew-t500x500.jpg">](https://soundcloud.com/balamii/nervous-records-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRtDsJ37m407x1wB-vOcgTw-t500x500.jpg">](https://soundcloud.com/djplayatendo/this-is-a-certified-hood)
 
-**Artist**: Balamii 
+**Artist**: DJ PLAYATENDO 
 
-**Track**: Nervous Records - October 2021
+**Track**: THIS IS A CERTIFIED HOOD...
 
-Last updated at 10/24/2021 16:24
+Last updated at 10/25/2021 12:46
