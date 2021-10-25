@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000191827860-i0w8az-t500x500.jpg">](https://soundcloud.com/rlgrime/waiting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043835839-s0t7o5-t500x500.jpg">](https://soundcloud.com/rlgrime/what-a-shame-rl-grime-salva)
 
 **Artist**: RL Grime 
 
-**Track**: RL Grime, What So Not, Skrillex - Waiting
+**Track**: What A Shame (RL Grime & Salva Remix) - Jamie Lidell
 
-Last updated at 10/25/2021 12:52
+Last updated at 10/25/2021 12:54
