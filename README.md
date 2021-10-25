@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000043835839-s0t7o5-t500x500.jpg">](https://soundcloud.com/rlgrime/what-a-shame-rl-grime-salva)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000196924012-d41s94-t500x500.jpg">](https://soundcloud.com/jacksondkdkdkdkdk/rl-grime-core-djembas-selassie-bootleg)
 
-**Artist**: RL Grime 
+**Artist**: jacksondkdkdkdkdk 
 
-**Track**: What A Shame (RL Grime & Salva Remix) - Jamie Lidell
+**Track**: RL Grime - Core (Djemba's Selassie Bootleg)
 
-Last updated at 10/25/2021 12:54
+Last updated at 10/25/2021 12:56
