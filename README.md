@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123448075-31vr5i-t500x500.jpg">](https://soundcloud.com/garnservo/rl-grime-core-what-so-not-edit-vs-djembas-selassie-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhzF9PkAyzpnAeJY-hmvCeQ-t500x500.jpg">](https://soundcloud.com/highly_minogue/bachira)
 
-**Artist**: yamez 
+**Artist**: Highly Minogue 
 
-**Track**: RL Grime - Core (What So Not Edit x Djemba's Selassie Bootleg)
+**Track**: Bachira
 
-Last updated at 10/25/2021 13:00
+Last updated at 10/25/2021 16:52
