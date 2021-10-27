@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIiEF0T3Bd2v-0-t500x500.jpg">](https://soundcloud.com/fatnick/park-it-feat-lil-jerry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVJTlgdO58hZt0SS-fDqydQ-t500x500.jpg">](https://soundcloud.com/mixmash-records/over-easy-mougleta-jump)
 
-**Artist**: Fat Nick 
+**Artist**: Mixmash Records 
 
-**Track**: Park It
+**Track**: Over Easy & Mougleta - Jump
 
-Last updated at 10/27/2021 16:00
+Last updated at 10/27/2021 16:02
