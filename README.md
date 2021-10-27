@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyH0ibCdXEt54jnd-VynjZw-t500x500.jpg">](https://soundcloud.com/sablevalley/enter-the-world?in=longjawns/sets/enter-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w8l3eGNRRxqa-0-t500x500.jpg">](https://soundcloud.com/longjawns/rpm)
 
-**Artist**: SABLE VALLEY 
+**Artist**: JAWNS 
 
-**Track**: Juelz & JAWNS - Enter The World
+**Track**: RPM
 
-Last updated at 10/27/2021 16:22
+Last updated at 10/27/2021 16:24
