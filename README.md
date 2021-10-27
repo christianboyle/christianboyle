@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPPfAREpUIWVoHNi-7vRzYg-t500x500.jpg">](https://soundcloud.com/markusdied/bagz-n-my-eyez-ft-king-pete)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMSpV2EaImv65XCX-JoNjyg-t500x500.jpg">](https://soundcloud.com/deadbeatsrecords/wenzday-halloween-mix-10-days-of-dead-treats)
 
-**Artist**: markusdied 
+**Artist**: Deadbeats 
 
-**Track**: Bagz N My Eyez (ft. King Pete)
+**Track**: Wenzday Halloween Mix | 10 Days of Dead Treats
 
-Last updated at 10/27/2021 18:32
+Last updated at 10/27/2021 18:36
