@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/are-you-ready?in=sablevalley/sets/sable-valley-summer-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
 
-**Artist**: SABLE VALLEY 
+**Artist**: RL Grime 
 
-**Track**: HELLBOUND! - Are You Ready
+**Track**: RL Grime & ISOxo - Stinger
 
-Last updated at 10/27/2021 16:14
+Last updated at 10/27/2021 16:16
