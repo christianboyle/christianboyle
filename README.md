@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKhFJ4jsGQMlPNyI-JdeC9w-t500x500.jpg">](https://soundcloud.com/killmat/dissociative)
 
-**Artist**: RL Grime 
+**Artist**: KILLMAT 
 
-**Track**: RL Grime & ISOxo - Stinger
+**Track**: DISSOCIATIVE w/ yves
 
-Last updated at 10/27/2021 16:16
+Last updated at 10/27/2021 16:18
