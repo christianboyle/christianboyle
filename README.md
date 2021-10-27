@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9l3pKXw6caMgGw4W-JH6hyw-t500x500.jpg">](https://soundcloud.com/rinse_france/evar-record-takeover-with-cz-20-octobre-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EuAv0iWAEtEdgmeJ-uqsPHw-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb20)
 
-**Artist**: Rinse France 
+**Artist**: Two Friends Big Bootie Mix 
 
-**Track**: EVAR Record : takeover with C.Z - 20 Octobre 2021
+**Track**: 2F Big Bootie Mix, Volume 20 - Two Friends
 
-Last updated at 10/27/2021 14:30
+Last updated at 10/27/2021 15:00
