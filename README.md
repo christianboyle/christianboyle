@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000200021976-353el8-t500x500.jpg">](https://soundcloud.com/at-the-drive-in/catacombs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/together-in-chrome?in=sablevalley/sets/sable-valley-summer-vol-2)
 
-**Artist**: At The Drive In 
+**Artist**: SABLE VALLEY 
 
-**Track**: Catacombs
+**Track**: X&G & Rohaan - Together In Chrome
 
-Last updated at 10/27/2021 16:08
+Last updated at 10/27/2021 16:10
