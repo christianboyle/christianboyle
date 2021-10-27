@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYPBSEW8BZ54aU5l-KdKvuw-t500x500.jpg">](https://soundcloud.com/tommymartini/the-bassmasters-vol-2-full-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9l3pKXw6caMgGw4W-JH6hyw-t500x500.jpg">](https://soundcloud.com/rinse_france/evar-record-takeover-with-cz-20-octobre-2021)
 
-**Artist**: Tommy Martini 
+**Artist**: Rinse France 
 
-**Track**: Tommy Martini X Syredu - The Bassmasters Vol. 2 (FULL TAPE)
+**Track**: EVAR Record : takeover with C.Z - 20 Octobre 2021
 
-Last updated at 10/27/2021 14:08
+Last updated at 10/27/2021 14:30
