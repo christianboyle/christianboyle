@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKhFJ4jsGQMlPNyI-JdeC9w-t500x500.jpg">](https://soundcloud.com/killmat/dissociative)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rozk1YcF1eev6HES-Skzx5A-t500x500.jpg">](https://soundcloud.com/inrotationrecs/hollaphonic-hold-on?in=inrotationrecs/sets/hollaphonic-hold-on)
 
-**Artist**: KILLMAT 
+**Artist**: IN / ROTATION 
 
-**Track**: DISSOCIATIVE w/ yves
+**Track**: Hollaphonic - Hold On
 
-Last updated at 10/27/2021 16:18
+Last updated at 10/27/2021 16:20
