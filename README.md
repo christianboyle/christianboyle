@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rozk1YcF1eev6HES-Skzx5A-t500x500.jpg">](https://soundcloud.com/inrotationrecs/hollaphonic-hold-on?in=inrotationrecs/sets/hollaphonic-hold-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyH0ibCdXEt54jnd-VynjZw-t500x500.jpg">](https://soundcloud.com/sablevalley/enter-the-world?in=longjawns/sets/enter-the-world)
 
-**Artist**: IN / ROTATION 
+**Artist**: SABLE VALLEY 
 
-**Track**: Hollaphonic - Hold On
+**Track**: Juelz & JAWNS - Enter The World
 
-Last updated at 10/27/2021 16:20
+Last updated at 10/27/2021 16:22
