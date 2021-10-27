@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZVN9geZUmu43Iz6-X8CAbw-t500x500.jpg">](https://soundcloud.com/balamii/ila-brugal-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYPBSEW8BZ54aU5l-KdKvuw-t500x500.jpg">](https://soundcloud.com/tommymartini/the-bassmasters-vol-2-full-tape)
 
-**Artist**: Balamii 
+**Artist**: Tommy Martini 
 
-**Track**: Ila Brugal - October 2021
+**Track**: Tommy Martini X Syredu - The Bassmasters Vol. 2 (FULL TAPE)
 
-Last updated at 10/27/2021 10:06
+Last updated at 10/27/2021 14:08
