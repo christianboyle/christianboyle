@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pd8qylthfxyY7GqI-SRzT2w-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/mok240)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEi59wBDYbl1H7pE-T4Trgw-t500x500.jpg">](https://soundcloud.com/itsspacerangers/edamame)
 
-**Artist**: M-Project 
+**Artist**: Space Rangers 
 
-**Track**: MOK240 M-Project - Fire To The Roof
+**Track**: bbno$ & Rich Brian - edamame (Space Rangers Remix)
 
-Last updated at 10/28/2021 02:56
+Last updated at 10/28/2021 03:02
