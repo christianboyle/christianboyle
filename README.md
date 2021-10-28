@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMSpV2EaImv65XCX-JoNjyg-t500x500.jpg">](https://soundcloud.com/deadbeatsrecords/wenzday-halloween-mix-10-days-of-dead-treats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TqRxYujy3b1p5caf-pA1PWA-t500x500.jpg">](https://soundcloud.com/area3000/a3k294-scapa-27-october-2021)
 
-**Artist**: Deadbeats 
+**Artist**: Area 3000 Radio 
 
-**Track**: Wenzday Halloween Mix | 10 Days of Dead Treats
+**Track**: A3K294 SCAPA - 27 October 2021
 
-Last updated at 10/27/2021 18:36
+Last updated at 10/27/2021 19:06
