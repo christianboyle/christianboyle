@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000220604083-5hlaql-t500x500.jpg">](https://soundcloud.com/slowlyslowly16/i-feel-so-alive-pass-it-to-myself-prod-qq-z)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQcewL66dJ68Qc1T-QK4m1g-t500x500.jpg">](https://soundcloud.com/facade/squid-game-edit)
 
-**Artist**: slowly, slowly 
+**Artist**: Facade 
 
-**Track**: ✩I FEEL SO ALIVE✩ ꒰◍ᐡᐤᐡ◍꒱ pass it to myself ꈍ .̮ ꈍ (prod. QQ εїз)
+**Track**: Acraze X Squid Game - Do It To It (Facade Mashup)
 
-Last updated at 10/28/2021 03:44
+Last updated at 10/28/2021 03:46
