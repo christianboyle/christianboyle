@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEi59wBDYbl1H7pE-T4Trgw-t500x500.jpg">](https://soundcloud.com/itsspacerangers/edamame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBBjD6tc7JKla3cS-znr2NA-t500x500.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-nann)
 
-**Artist**: Space Rangers 
+**Artist**: Tre Oh Fie 
 
-**Track**: bbno$ & Rich Brian - edamame (Space Rangers Remix)
+**Track**: Tre Oh Fie - Nann
 
-Last updated at 10/28/2021 03:02
+Last updated at 10/28/2021 03:06
