@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RqeyxSmh8csKJmL1-EQV7vw-t500x500.jpg">](https://soundcloud.com/balamii/talking-motion-w-raw-queen-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PGx4x5pGccWn342-nEbowg-t500x500.jpg">](https://soundcloud.com/murderclubmusik/newheart-remix)
 
-**Artist**: Balamii 
+**Artist**: MURDER CLUB 
 
-**Track**: Talking Motion w/ Raw Queen - October 2021
+**Track**: PETALSUPPLY X TUCHSCREEN - NEWHEART (MURDER CLUB REMIX)
 
-Last updated at 10/28/2021 16:38
+Last updated at 10/28/2021 16:40
