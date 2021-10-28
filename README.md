@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zDG92GwqLmkjN6j-VuUkcA-t500x500.jpg">](https://soundcloud.com/hollick_nobaddays/no-bad-days-with-hollick-october-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3BGyn8vIzxlDxyQO-bsPJQw-t500x500.jpg">](https://soundcloud.com/prittyprittyy/poison-ft-robel-ketema)
 
-**Artist**: No Bad Days 
+**Artist**: Pritty 
 
-**Track**: No Bad Days with Hollick - October 2021
+**Track**: Poison (feat. Robel Ketema)
 
-Last updated at 10/28/2021 03:48
+Last updated at 10/28/2021 05:48
