@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxyKQjQJExbJGC5d-sop1xg-t500x500.jpg">](https://soundcloud.com/wearewiredsky/falls-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIiEF0T3Bd2v-0-t500x500.jpg">](https://soundcloud.com/fatnick/park-it-feat-lil-jerry)
 
-**Artist**: WIRED SKY 
+**Artist**: Fat Nick 
 
-**Track**: FALLS
+**Track**: Park It
 
-Last updated at 10/28/2021 05:52
+Last updated at 10/28/2021 05:56
