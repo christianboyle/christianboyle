@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBBjD6tc7JKla3cS-znr2NA-t500x500.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-nann)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0NOyhqQIUASivQ9-A45A4w-t500x500.jpg">](https://soundcloud.com/akiaura/akiaura-x-loneliness-desolate)
 
-**Artist**: Tre Oh Fie 
+**Artist**: akiaura 
 
-**Track**: Tre Oh Fie - Nann
+**Track**: desolate w/loneliness
 
-Last updated at 10/28/2021 03:06
+Last updated at 10/28/2021 03:08
