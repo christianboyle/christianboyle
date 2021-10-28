@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PjvRyVmB84DiRsSQ-wGiqqg-t500x500.jpg">](https://soundcloud.com/djaccela/aafx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bp4zMtOZca5Rk9Ia-Mlb52g-t500x500.jpg">](https://soundcloud.com/balamii/faboo-radio-w-jeanie-crystal-and-prince-harri-october-2021)
 
-**Artist**: djaccela 
+**Artist**: Balamii 
 
-**Track**: aafx / acid
+**Track**: Faboo Radio w/ Jeanie Crystal and Prince Harri - October 2021
 
-Last updated at 10/27/2021 22:42
+Last updated at 10/27/2021 22:46
