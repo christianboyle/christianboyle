@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIiEF0T3Bd2v-0-t500x500.jpg">](https://soundcloud.com/fatnick/park-it-feat-lil-jerry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMRgltEzYTpqvEzc-bDV7iQ-t500x500.jpg">](https://soundcloud.com/tynanofficial/the-pluck-song)
 
-**Artist**: Fat Nick 
+**Artist**: TYNAN 
 
-**Track**: Park It
+**Track**: The Pluck Song
 
-Last updated at 10/28/2021 05:56
+Last updated at 10/28/2021 05:58
