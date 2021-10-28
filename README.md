@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0NOyhqQIUASivQ9-A45A4w-t500x500.jpg">](https://soundcloud.com/akiaura/akiaura-x-loneliness-desolate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OUTxQagO3S6czlBo-KqfzXg-t500x500.jpg">](https://soundcloud.com/noirsurblancrecords/zdx-ice-cold)
 
-**Artist**: akiaura 
+**Artist**: noir sur blanc 
 
-**Track**: desolate w/loneliness
+**Track**: ZDX - Ice Cold
 
-Last updated at 10/28/2021 03:08
+Last updated at 10/28/2021 03:10
