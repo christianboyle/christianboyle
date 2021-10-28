@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kDwzKNrKbaORGsUa-1BNCDA-t500x500.jpg">](https://soundcloud.com/yumecollective/fallen-shrine-x-dolfinboy-air-yume)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzUps2OQkK2bbHei-dSVSxw-t500x500.jpg">](https://soundcloud.com/prodsternn/do-it-again-wcloudymane)
 
-**Artist**: YUME 
+**Artist**: sternn 
 
-**Track**: Fallen Shrine ⤫ Dolfinboy - AIR [ YUME ]
+**Track**: DO IT AGAIN w/CLOUDYMANE
 
-Last updated at 10/28/2021 02:50
+Last updated at 10/28/2021 02:54
