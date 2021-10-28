@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7NFQuNIWMiwCMzK-vzkN1Q-t500x500.jpg">](https://soundcloud.com/beatcuddles/spectrum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n1VV4UAP8t5ssKSU-zEKrmg-t500x500.jpg">](https://soundcloud.com/techno-israel/one-for-the-music-mix-by-royo)
 
-**Artist**: ©Beatcuddles Music 
+**Artist**: Techno.il 
 
-**Track**: Spectrum
+**Track**: One for the music- mix by Royo
 
-Last updated at 10/28/2021 09:04
+Last updated at 10/28/2021 09:06
