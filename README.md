@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w51wAoFQAATo7Py3-SzD3zg-t500x500.jpg">](https://soundcloud.com/emorave/uuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYPBSEW8BZ54aU5l-KdKvuw-t500x500.jpg">](https://soundcloud.com/tommymartini/the-bassmasters-vol-2-full-tape)
 
-**Artist**: emorave 
+**Artist**: Tommy Martini 
 
-**Track**: thats the way it goes i guess... (dolly tgwog)
+**Track**: Tommy Martini X Syredu - The Bassmasters Vol. 2 (FULL TAPE)
 
-Last updated at 10/28/2021 03:14
+Last updated at 10/28/2021 03:16
