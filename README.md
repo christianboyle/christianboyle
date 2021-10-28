@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EBnhXIKk5miw3gEE-2GTofQ-t500x500.jpg">](https://soundcloud.com/teamgangsquad/hauntedtraphouse2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
 
-**Artist**: TEAM GANG SQUAD 
+**Artist**: RL Grime 
 
-**Track**: 𝐇𝐀𝐔𝐍𝐓𝐄𝐃 𝐓𝐑𝐀𝐏 𝐇𝐎𝐔𝐒𝐄 𝐕𝐎𝐋. 𝟐
+**Track**: RL Grime & ISOxo - Stinger
 
-Last updated at 10/27/2021 20:12
+Last updated at 10/27/2021 20:36
