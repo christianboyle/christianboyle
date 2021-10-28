@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3BGyn8vIzxlDxyQO-bsPJQw-t500x500.jpg">](https://soundcloud.com/prittyprittyy/poison-ft-robel-ketema)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxyKQjQJExbJGC5d-sop1xg-t500x500.jpg">](https://soundcloud.com/wearewiredsky/falls-1)
 
-**Artist**: Pritty 
+**Artist**: WIRED SKY 
 
-**Track**: Poison (feat. Robel Ketema)
+**Track**: FALLS
 
-Last updated at 10/28/2021 05:48
+Last updated at 10/28/2021 05:52
