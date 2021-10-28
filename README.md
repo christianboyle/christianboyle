@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGGBIllXsr23y5ZC-JSzc9A-t500x500.jpg">](https://soundcloud.com/rlgrime/stinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqSqVQY1M4EWylrL-bSHz9g-t500x500.jpg">](https://soundcloud.com/kennyorlando/rip-shwangler-ft-kennedyxoxo)
 
-**Artist**: RL Grime 
+**Artist**: Kenny Orlando 
 
-**Track**: RL Grime & ISOxo - Stinger
+**Track**: RIP Shwangler ft. kennedyxoxo *lileffort*
 
-Last updated at 10/27/2021 20:36
+Last updated at 10/27/2021 20:40
