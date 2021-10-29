@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sM6SCnQCq5M7L49A-XdeHJA-t500x500.jpg">](https://soundcloud.com/tomorrowland/nreleased-with-austin-kramer-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2YN32rnpa5Rbru4K-TqWj8Q-t500x500.jpg">](https://soundcloud.com/marceauxmarceaux/computer-noise-radio-wyxr-guest-mix)
 
-**Artist**: Tomorrowland 
+**Artist**: MarceauxMarceaux (z72.52/DJ JUDY) 
 
-**Track**: Nreleased With Austin Kramer #26
+**Track**: Computer Noise Radio - WYXR - Guest Mix
 
-Last updated at 10/29/2021 08:11
+Last updated at 10/29/2021 10:37
