@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4PA9achGg4J9A7a-qEjENg-t500x500.jpg">](https://soundcloud.com/ondeckrecs/zaerd-rob-upland-pushing-me-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2MazOX66qyzUNXWF-swlgBQ-t500x500.jpg">](https://soundcloud.com/elex_page/living-legend)
 
-**Artist**: On Deck Records 
+**Artist**: ELEX 
 
-**Track**: Zaerd & Rob Upland - Pushing Me Away
+**Track**: ELEX & Jack Light - Living Legend
 
-Last updated at 10/31/2021 16:15
+Last updated at 10/31/2021 16:45
