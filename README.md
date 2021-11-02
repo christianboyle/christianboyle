@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSStzii6swoznJQz-w7izQA-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-200-dj-noir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZyzWhiphZ334rlo-zASR8g-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc078-monty-dj)
 
-**Artist**: Lobster Theremin 
+**Artist**: Rhythmic Culture 
 
-**Track**: LT Podcast 200 // DJ Noir
+**Track**: RC:078 Monty DJ
 
-Last updated at 11/01/2021 07:47
+Last updated at 11/02/2021 07:56
