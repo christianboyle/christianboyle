@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JPXnzRByq8cFfolj-tSiuJg-t500x500.jpg">](https://soundcloud.com/benjvminchivng/mtrhq)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PKMnLyYvdTV5u4yn-d0bRXg-t500x500.jpg">](https://soundcloud.com/benjvminchivng/blinding-lights-x-hackers-edit)
 
 **Artist**: benjamin chiang 
 
-**Track**: Trippie Redd ft. Playboi Carti - Miss The Rage (RL Grime Remix)
+**Track**: The Weeknd x Metrik - Blinding Lights x Hackers(RL Grime Edit)
 
-Last updated at 11/02/2021 10:24
+Last updated at 11/02/2021 10:28
