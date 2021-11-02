@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62a6ItSqpM5oqFmg-csQnpg-t500x500.jpg">](https://soundcloud.com/sablevalley/nightrealm?in=isoxo/sets/nightrealm-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000098501061-mnakjz-t500x500.jpg">](https://soundcloud.com/baauer/swoopin)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Baauer 
 
-**Track**: ISOxo - Nightrealm
+**Track**: Swoopin
 
-Last updated at 11/02/2021 10:32
+Last updated at 11/02/2021 10:46
