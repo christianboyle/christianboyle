@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zv7uvXfuMT7WaaaV-bjrU8w-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySQy9HjbO0wbzjwb-LLGb6w-t500x500.jpg">](https://soundcloud.com/danlrk/giving-up?in=opalfruits/sets/dan-larkin-giving-up-ft)
 
-**Artist**: LEMAY 
+**Artist**: Dan Larkin 
 
-**Track**: LEMAYS LOCKER VOL.3
+**Track**: Giving Up ft. blackwinterwells & senses
 
-Last updated at 11/02/2021 13:22
+Last updated at 11/02/2021 13:26
