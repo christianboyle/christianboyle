@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tw5pDijg0CLrc5xD-mRTUfg-t500x500.jpg">](https://soundcloud.com/deadcrxw/arrival?in=sablevalley/sets/enter-the-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62a6ItSqpM5oqFmg-csQnpg-t500x500.jpg">](https://soundcloud.com/sablevalley/nightrealm?in=isoxo/sets/nightrealm-ep)
 
-**Artist**: Deadcrow 
+**Artist**: SABLE VALLEY 
 
-**Track**: Arrival
+**Track**: ISOxo - Nightrealm
 
-Last updated at 11/02/2021 10:30
+Last updated at 11/02/2021 10:32
