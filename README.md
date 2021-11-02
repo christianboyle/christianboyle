@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PKMnLyYvdTV5u4yn-d0bRXg-t500x500.jpg">](https://soundcloud.com/benjvminchivng/blinding-lights-x-hackers-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tw5pDijg0CLrc5xD-mRTUfg-t500x500.jpg">](https://soundcloud.com/deadcrxw/arrival?in=sablevalley/sets/enter-the-playlist)
 
-**Artist**: benjamin chiang 
+**Artist**: Deadcrow 
 
-**Track**: The Weeknd x Metrik - Blinding Lights x Hackers(RL Grime Edit)
+**Track**: Arrival
 
-Last updated at 11/02/2021 10:28
+Last updated at 11/02/2021 10:30
