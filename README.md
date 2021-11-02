@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-km8a0pHMiWQ4ZiGI-geEi6g-t500x500.jpg">](https://soundcloud.com/klubfillermusic/kfhardcoremixtape21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CWPSTI30a11iY0jf-5q0e9A-t500x500.jpg">](https://soundcloud.com/pouya-kevin/pouya-denzel-curry-wig-split-1?in=pouya-kevin/sets/bwntaw)
 
-**Artist**: Klubfiller 
+**Artist**: Pouya . 
 
-**Track**: Klubfiller Hardcore Mixtape 2021
+**Track**: Pouya & Denzel Curry - Wig Split
 
-Last updated at 11/02/2021 09:20
+Last updated at 11/02/2021 10:16
