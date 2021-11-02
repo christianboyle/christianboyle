@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySQy9HjbO0wbzjwb-LLGb6w-t500x500.jpg">](https://soundcloud.com/danlrk/giving-up?in=opalfruits/sets/dan-larkin-giving-up-ft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ZgOXzWx2Tq2mVyB-Jpaz4g-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/dear-diary-daisychain-198)
 
-**Artist**: Dan Larkin 
+**Artist**: Daisychain 
 
-**Track**: Giving Up ft. blackwinterwells & senses
+**Track**: Daisychain 198 - dear diary
 
-Last updated at 11/02/2021 13:26
+Last updated at 11/02/2021 13:28
