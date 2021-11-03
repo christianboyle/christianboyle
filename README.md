@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zv7uvXfuMT7WaaaV-bjrU8w-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PKMnLyYvdTV5u4yn-d0bRXg-t500x500.jpg">](https://soundcloud.com/benjvminchivng/blinding-lights-x-hackers-edit)
 
-**Artist**: LEMAY 
+**Artist**: benjamin chiang 
 
-**Track**: LEMAYS LOCKER VOL.3
+**Track**: The Weeknd x Metrik - Blinding Lights x Hackers(RL Grime Edit)
 
-Last updated at 11/03/2021 10:18
+Last updated at 11/03/2021 10:28
