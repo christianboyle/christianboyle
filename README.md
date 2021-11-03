@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000453690864-wson0l-t500x500.jpg">](https://soundcloud.com/odeamsc/iwannaknow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zv7uvXfuMT7WaaaV-bjrU8w-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol3)
 
-**Artist**: ODEA 
+**Artist**: LEMAY 
 
-**Track**: RL Grime - I Wanna Know (feat. Daya) [ODEA Remix]
+**Track**: LEMAYS LOCKER VOL.3
 
-Last updated at 11/03/2021 10:14
+Last updated at 11/03/2021 10:18
