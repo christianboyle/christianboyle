@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JPXnzRByq8cFfolj-tSiuJg-t500x500.jpg">](https://soundcloud.com/benjvminchivng/mtrhq)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCSZOIzvfulSNMN1-Q45FZA-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-x)
 
-**Artist**: benjamin chiang 
+**Artist**: RL Grime 
 
-**Track**: Trippie Redd ft. Playboi Carti - Miss The Rage (RL Grime Remix)
+**Track**: Halloween X (Live at the Hollywood Palladium)
 
-Last updated at 11/03/2021 10:30
+Last updated at 11/03/2021 10:32
