@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxWHrEqkkEF0RulQ-4TtoPQ-t500x500.jpg">](https://soundcloud.com/frenetikgla/free-from-desire-detrimental)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxWHrEqkkEF0RulQ-4TtoPQ-t500x500.jpg">](https://soundcloud.com/frenetikgla/the-veronicas-untouched)
 
 **Artist**: Frenetik 
 
-**Track**: Gala - Free From Desire (Detrimental EDIT)
+**Track**: The Veronicas - Untouched (ROWDIBOI EDIT)
 
-Last updated at 11/05/2021 08:39
+Last updated at 11/05/2021 08:43
