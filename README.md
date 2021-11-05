@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6N2xEetOVRKti1u-PVBTeg-t500x500.jpg">](https://soundcloud.com/bitbird/tsu-nami-dream-about-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJ6vSlf3MDFzOWPJ-71B54A-t500x500.jpg">](https://soundcloud.com/balmamusic/gui-boratto-beautiful-life-balma-bootleg-1)
 
-**Artist**: bitbird 
+**Artist**: BALMA 
 
-**Track**: Tsu Nami - Dream About You (feat. Luma)
+**Track**: Gui Boratto - Beautiful Life (Balma Bootleg)
 
-Last updated at 11/05/2021 08:53
+Last updated at 11/05/2021 08:57
