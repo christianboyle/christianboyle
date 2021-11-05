@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bbx71vEZK8VeijWA-B2lRtw-t500x500.jpg">](https://soundcloud.com/djmag/fresh-kicks-163-ayesha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxWHrEqkkEF0RulQ-4TtoPQ-t500x500.jpg">](https://soundcloud.com/frenetikgla/free-from-desire-detrimental)
 
-**Artist**: djmag 
+**Artist**: Frenetik 
 
-**Track**: Fresh Kicks 163: Ayesha
+**Track**: Gala - Free From Desire (Detrimental EDIT)
 
-Last updated at 11/04/2021 08:52
+Last updated at 11/05/2021 08:03
