@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWGGCNDawNOhA2Ey-r8sA9w-t500x500.jpg">](https://soundcloud.com/balamii/sound-condition-w-xander-november-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYlIKt2J3OCQO8Lw-s9nv0Q-t500x500.jpg">](https://soundcloud.com/etboys/nowhere-1)
 
-**Artist**: Balamii 
+**Artist**: ET Boys 
 
-**Track**: Sound Condition w/ Xander - November 2021
+**Track**: Nowhere
 
-Last updated at 11/06/2021 12:26
+Last updated at 11/06/2021 16:30
