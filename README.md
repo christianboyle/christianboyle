@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wd6WgtjzyfKiO1N4-LDmoSQ-t500x500.jpg">](https://soundcloud.com/balamii/inner-totality-november-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RdntgLaMbb725Crz-lkRzgw-t500x500.jpg">](https://soundcloud.com/boyjugo/8jaane-1)
 
-**Artist**: Balamii 
+**Artist**: Boy Jugo 
 
-**Track**: Inner Totality - November 2021
+**Track**: JaAne
 
-Last updated at 11/06/2021 12:22
+Last updated at 11/06/2021 12:24
