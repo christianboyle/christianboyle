@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RdntgLaMbb725Crz-lkRzgw-t500x500.jpg">](https://soundcloud.com/boyjugo/8jaane-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWGGCNDawNOhA2Ey-r8sA9w-t500x500.jpg">](https://soundcloud.com/balamii/sound-condition-w-xander-november-2021)
 
-**Artist**: Boy Jugo 
+**Artist**: Balamii 
 
-**Track**: JaAne
+**Track**: Sound Condition w/ Xander - November 2021
 
-Last updated at 11/06/2021 12:24
+Last updated at 11/06/2021 12:26
