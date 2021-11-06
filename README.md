@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRjoElFGWQx3Cg7s-sc1i7g-t500x500.jpg">](https://soundcloud.com/riotcode/riot-code-boxed-off-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wd6WgtjzyfKiO1N4-LDmoSQ-t500x500.jpg">](https://soundcloud.com/balamii/inner-totality-november-2021)
 
-**Artist**: RIOT CODE 
+**Artist**: Balamii 
 
-**Track**: RIOT CODE Live @ BOXED OFF 2021 ; The Return To Dancing
+**Track**: Inner Totality - November 2021
 
-Last updated at 11/05/2021 09:09
+Last updated at 11/06/2021 12:22
