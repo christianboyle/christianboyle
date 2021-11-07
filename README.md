@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2St2o1w0N3y2ffc-S3TFPg-t500x500.jpg">](https://soundcloud.com/kimmiedevereux/queen-releases-115)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166233377-vurv91-t500x500.jpg">](https://soundcloud.com/utopyan/ur-face)
 
-**Artist**: Kimmie Devereux 
+**Artist**: utopyan 
 
-**Track**: Queen
+**Track**: ur face
 
-Last updated at 11/06/2021 16:32
+Last updated at 11/07/2021 07:06
