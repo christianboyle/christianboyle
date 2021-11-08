@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRPdcXuiklUmlTJDxKhb10Q-EbfejOULHRlVVoBmQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC8Ibqx5ELx0Ho7J3L0OlQRA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3TGta4c37vyPVvy-O39plg-t500x500.jpg">](https://soundcloud.com/knockthisoff/sugar-knock2-remix?in=knockthisoff/sets/knockthisoff-pt-2)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: knockthisoff 
 
-**Track**: 300 RACCS ( OFFICIAL MUSIC VIDEO ) prod by @Laudiano
+**Track**: BROCKHAMPTON - SUGAR - Knock2 Remix
 
-Last updated at 11/08/2021 08:30
+Last updated at 11/08/2021 09:56
