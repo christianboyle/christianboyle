@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6jh32U4EwdmffKao-yCDuig-t500x500.jpg">](https://soundcloud.com/naturesfinestmusic/neverglow-natures-finest-radio-112021)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRPdcXuiklUmlTJDxKhb10Q-EbfejOULHRlVVoBmQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UC8Ibqx5ELx0Ho7J3L0OlQRA)
 
-**Artist**: Nature's Finest Music 
+**Artist**: Drakeo the Ruler 
 
-**Track**: NEVERGLOW Nature's Finest Radio | 11/2021
+**Track**: Long Live the Greatest [Official Music Video]
 
-Last updated at 11/07/2021 07:08
+Last updated at 11/08/2021 08:26
