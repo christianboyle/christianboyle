@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-95ew5jdYdem8zqpg-q2MOyA-t500x500.jpg">](https://soundcloud.com/dbartists/db-artists-musique-podcast-093-jonny-from-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0RS7xsLLbJwGxGg0-bqr4jA-t500x500.jpg">](https://soundcloud.com/balamii/animated-audio-w-daffy-and-dj-crisps-november-2021)
 
-**Artist**: db Artists Musique 
+**Artist**: Balamii 
 
-**Track**: Db Artists Musique Podcast - 093 - Jonny From Space
+**Track**: Animated Audio w/ Daffy and DJ Crisps - November 2021
 
-Last updated at 11/08/2021 10:12
+Last updated at 11/09/2021 09:38
