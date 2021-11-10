@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0M5u6w7zYkksYBb-MeKlOA-t500x500.jpg">](https://soundcloud.com/bokharirecords/bk019-syz-du-rong-ep-wtroy-gunner-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmAWTPhI5yWektMn-v6yyEw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc169)
 
-**Artist**: Bokhari Records 
+**Artist**: NON STOP NXC® 
 
-**Track**: BK019 - Syz - Du Rong EP w/Troy Gunner Remix
+**Track**: NXC171 - Newboy - Roses!!
 
-Last updated at 11/10/2021 09:15
+Last updated at 11/10/2021 09:17
