@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XoxjcThbltOBnoAb-5vrmOA-t500x500.jpg">](https://soundcloud.com/stasysmusial/slide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmAWTPhI5yWektMn-v6yyEw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc171)
 
-**Artist**: Stasys 
+**Artist**: NON STOP NXC® 
 
-**Track**: Azaleh x Stasys x Alydian - Slide
+**Track**: NXC169 - Newboy - I will go
 
-Last updated at 11/10/2021 16:17
+Last updated at 11/10/2021 16:21
