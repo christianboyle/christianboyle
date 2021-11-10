@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000512746026-piqrjq-t500x500.jpg">](https://soundcloud.com/julian_avila/bimmer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoueA8oyjX6DRR6D-lWVb0Q-t500x500.jpg">](https://soundcloud.com/wishlane/sinkorswim)
 
-**Artist**: JULIAN AVILA 
+**Artist**: wishlane 
 
-**Track**: BIMMER
+**Track**: sink or swim
 
-Last updated at 11/10/2021 17:25
+Last updated at 11/10/2021 17:29
