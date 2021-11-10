@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoueA8oyjX6DRR6D-lWVb0Q-t500x500.jpg">](https://soundcloud.com/wishlane/sinkorswim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqLLwAyoGZxhUtkY-qw31mw-t500x500.jpg">](https://soundcloud.com/supbox/wassup-2-full-stream)
 
-**Artist**: wishlane 
+**Artist**: SUPBOX 
 
-**Track**: sink or swim
+**Track**: WASSUP 2 [FULL STREAM]
 
-Last updated at 11/10/2021 10:31
+Last updated at 11/10/2021 10:33
