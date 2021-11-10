@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuyuy4d26p6nCrKq-WNG8PQ-t500x500.jpg">](https://soundcloud.com/newboyy/play-with-my-3)
 
-**Artist**: Pendarr 
+**Artist**: Newboy 
 
-**Track**: 24/7 (Tribute to Squad-E)
+**Track**: play with my <3
 
-Last updated at 11/10/2021 12:17
+Last updated at 11/10/2021 12:19
