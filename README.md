@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmAWTPhI5yWektMn-v6yyEw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc169)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Pendarr 
 
-**Track**: NXC171 - Newboy - Roses!!
+**Track**: 24/7 (Tribute to Squad-E)
 
-Last updated at 11/10/2021 09:17
+Last updated at 11/10/2021 09:19
