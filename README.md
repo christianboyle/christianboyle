@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCSZOIzvfulSNMN1-Q45FZA-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000512746026-piqrjq-t500x500.jpg">](https://soundcloud.com/julian_avila/bimmer)
 
-**Artist**: RL Grime 
+**Artist**: JULIAN AVILA 
 
-**Track**: Halloween X (Live at the Hollywood Palladium)
+**Track**: BIMMER
 
-Last updated at 11/10/2021 17:07
+Last updated at 11/10/2021 17:25
