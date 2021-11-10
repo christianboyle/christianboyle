@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoueA8oyjX6DRR6D-lWVb0Q-t500x500.jpg">](https://soundcloud.com/wishlane/sinkorswim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j93mgwisSVvSeZz9-e9PqgQ-t500x500.jpg">](https://soundcloud.com/ejcarrmusic/already-gone-f3nal)
 
-**Artist**: wishlane 
+**Artist**: evan carr 
 
-**Track**: sink or swim
+**Track**: already gone [prod. King Theta]
 
-Last updated at 11/10/2021 16:13
+Last updated at 11/10/2021 16:15
