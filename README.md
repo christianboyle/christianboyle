@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxWHrEqkkEF0RulQ-4TtoPQ-t500x500.jpg">](https://soundcloud.com/frenetikgla/indila-derniere-aexhy-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMpxL05jQfQp92JY-bLoFSQ-t500x500.jpg">](https://soundcloud.com/gbuck/g-buck-ur-mind)
 
-**Artist**: Frenetik 
+**Artist**: G-Buck 
 
-**Track**: Indila - Dernière (Aexhy EDIT)
+**Track**: G-Buck - UR MiND
 
-Last updated at 11/10/2021 17:51
+Last updated at 11/10/2021 17:57
