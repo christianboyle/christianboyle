@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555859182-4lagh7-t500x500.jpg">](https://soundcloud.com/julian_avila/nostalgia)
 
-**Artist**: Pendarr 
+**Artist**: JULIAN AVILA 
 
-**Track**: 24/7 (Tribute to Squad-E)
+**Track**: NOSTALGIA
 
-Last updated at 11/10/2021 16:53
+Last updated at 11/10/2021 16:55
