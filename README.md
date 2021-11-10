@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000512746026-piqrjq-t500x500.jpg">](https://soundcloud.com/julian_avila/bimmer)
 
-**Artist**: Pendarr 
+**Artist**: JULIAN AVILA 
 
-**Track**: 24/7 (Tribute to Squad-E)
+**Track**: BIMMER
 
-Last updated at 11/10/2021 16:29
+Last updated at 11/10/2021 16:33
