@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoueA8oyjX6DRR6D-lWVb0Q-t500x500.jpg">](https://soundcloud.com/wishlane/sinkorswim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
 
-**Artist**: wishlane 
+**Artist**: Pendarr 
 
-**Track**: sink or swim
+**Track**: 24/7 (Tribute to Squad-E)
 
-Last updated at 11/10/2021 17:29
+Last updated at 11/10/2021 17:31
