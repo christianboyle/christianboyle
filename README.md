@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzveDtVeoO7wK4WN-qd9EyQ-t500x500.jpg">](https://soundcloud.com/pendarr/247-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536808282-3kd5lj-t500x500.jpg">](https://soundcloud.com/carbin-official/carbin-x-trilla-stax-1)
 
-**Artist**: Pendarr 
+**Artist**: CARBIN 
 
-**Track**: 24/7 (Tribute to Squad-E)
+**Track**: Carbin & Trilla - Stax
 
-Last updated at 11/10/2021 09:19
+Last updated at 11/10/2021 09:21
