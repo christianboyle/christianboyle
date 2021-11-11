@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000576065084-k81rmv-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-003?in=sablevalley/sets/minimixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000600272697-f51ag0-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-004?in=sablevalley/sets/minimixes)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: MiniMix 003: Cozway
+**Track**: MiniMix 004: ISOxo & Knock2
 
-Last updated at 11/11/2021 08:19
+Last updated at 11/11/2021 08:33
