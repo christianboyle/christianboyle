@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSgvE0IINj39n1qN-ymlMxg-t500x500.jpg">](https://soundcloud.com/void0music/core-recode)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536808282-3kd5lj-t500x500.jpg">](https://soundcloud.com/carbin-official/carbin-x-trilla-stax-1)
 
-**Artist**: void(0) 
+**Artist**: CARBIN 
 
-**Track**: RL Grime - Core (void(0) recode)
+**Track**: Carbin & Trilla - Stax
 
-Last updated at 11/10/2021 17:59
+Last updated at 11/10/2021 18:03
