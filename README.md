@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536808282-3kd5lj-t500x500.jpg">](https://soundcloud.com/carbin-official/carbin-x-trilla-stax-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000648208516-u4m6wu-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol1)
 
-**Artist**: CARBIN 
+**Artist**: LEMAY 
 
-**Track**: Carbin & Trilla - Stax
+**Track**: LEMAYS LOCKER VOL.1
 
-Last updated at 11/10/2021 18:03
+Last updated at 11/10/2021 18:05
