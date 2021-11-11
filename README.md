@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000648208516-u4m6wu-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XWChtkhczFO6qFCu-WBxSdQ-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol2)
 
 **Artist**: LEMAY 
 
-**Track**: LEMAYS LOCKER VOL.1
+**Track**: LEMAYS LOCKER VOL.2
 
-Last updated at 11/10/2021 18:05
+Last updated at 11/10/2021 18:27
