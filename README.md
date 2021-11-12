@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y2D9Wdijeo7HAkgj-g67QQQ-t500x500.jpg">](https://soundcloud.com/hardroadzmedia/hardroadz-episode-35-wavi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
 
-**Artist**: Hardroadz Media 
+**Artist**: Bloop London Radio 
 
-**Track**: Hardroadz: Episode 35 W/Avi8
+**Track**: Ravver - Ámbar on Air - 10.11.21
 
-Last updated at 11/12/2021 08:37
+Last updated at 11/12/2021 10:01
