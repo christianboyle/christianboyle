@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Djr7t4Tdg55tdjy2-Z10Pbg-t500x500.jpg">](https://soundcloud.com/thelotradio/jubilee-the-lot-radio-11102021)
 
-**Artist**: Bloop London Radio 
+**Artist**: The Lot Radio 
 
-**Track**: Ravver - Ámbar on Air - 10.11.21
+**Track**: Jubilee @ The Lot Radio 11.10.2021
 
-Last updated at 11/12/2021 10:01
+Last updated at 11/12/2021 11:31
