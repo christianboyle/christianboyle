@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4fKB7bTfoEn6IBO9-R8qaSw-t500x500.jpg">](https://soundcloud.com/deskpopmusic/serlof-they-told-me?in=deskpopmusic/sets/serlof-imaginary-victories-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y2D9Wdijeo7HAkgj-g67QQQ-t500x500.jpg">](https://soundcloud.com/hardroadzmedia/hardroadz-episode-35-wavi8)
 
-**Artist**: DESKPOP 🌵🖥💛 
+**Artist**: Hardroadz Media 
 
-**Track**: Serlöf - They Told Me
+**Track**: Hardroadz: Episode 35 W/Avi8
 
-Last updated at 11/12/2021 08:35
+Last updated at 11/12/2021 08:37
