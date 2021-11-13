@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxwYOWWstVoP-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-yae-energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-45o0zFM4FpZeADzl-uQFsFQ-t500x500.jpg">](https://soundcloud.com/balamii/twin-system-november-2021)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: Balamii 
 
-**Track**: Lil Yachty - YAE ENERGY
+**Track**: Twin System - November 2021
 
-Last updated at 11/13/2021 09:17
+Last updated at 11/13/2021 09:19
