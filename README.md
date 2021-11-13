@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxwYOWWstVoP-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-yae-energy)
 
-**Artist**: Bloop London Radio 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Ravver - Ámbar on Air - 10.11.21
+**Track**: Lil Yachty - YAE ENERGY
 
-Last updated at 11/12/2021 18:53
+Last updated at 11/13/2021 09:17
