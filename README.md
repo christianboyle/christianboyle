@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVjwGQpmYy5Q5Srf-fCulwg-t500x500.jpg">](https://soundcloud.com/blackwinterwells/punch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS9RBUKcC4Mg2e4Y-pATvLw-t500x500.jpg">](https://soundcloud.com/hokoi/cherubim)
 
-**Artist**: blackwinterwells 
+**Artist**: hokoi 
 
-**Track**: PUNCHING BAG (wells+dltzk)
+**Track**: cherubim 😇 + ravine (hokoi + ravine)
 
-Last updated at 11/13/2021 17:49
+Last updated at 11/13/2021 17:53
