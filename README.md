@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyNf1fXGcsCPFexZ-Ct1QDA-t500x500.jpg">](https://soundcloud.com/quannnic/today-is-different)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDpdQPEapiPSacqA-7gbl8g-t500x500.jpg">](https://soundcloud.com/dltzk/how-to-lie)
 
-**Artist**: quannnic 
+**Artist**: dltzk 
 
-**Track**: today is different
+**Track**: how to lie
 
-Last updated at 11/13/2021 18:09
+Last updated at 11/13/2021 20:41
