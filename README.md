@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDpdQPEapiPSacqA-7gbl8g-t500x500.jpg">](https://soundcloud.com/dltzk/how-to-lie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000600272697-f51ag0-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-004)
 
-**Artist**: dltzk 
+**Artist**: SABLE VALLEY 
 
-**Track**: how to lie
+**Track**: MiniMix 004: ISOxo & Knock2
 
-Last updated at 11/13/2021 20:41
+Last updated at 11/13/2021 20:43
