@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MH5cQh8AWZ28GGTi-PFzyXQ-t500x500.jpg">](https://soundcloud.com/dshie/over-the-top)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyNf1fXGcsCPFexZ-Ct1QDA-t500x500.jpg">](https://soundcloud.com/quannnic/today-is-different)
 
-**Artist**: dashie 
+**Artist**: quannnic 
 
-**Track**: over the top
+**Track**: today is different
 
-Last updated at 11/13/2021 18:07
+Last updated at 11/13/2021 18:09
