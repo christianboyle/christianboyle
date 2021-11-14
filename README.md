@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLT7oq4Gioip6B_HhTEItibeVVPnXF7u0dv8D7M4Cw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCA0takueW0dTTJpCbeP66mA)
 
-**Artist**: Bloop London Radio 
+**Artist**: TEEDinosaurs 
 
-**Track**: Ravver - Ámbar on Air - 10.11.21
+**Track**: Totally Enormous Extinct Dinosaurs - A Dream I Have
 
-Last updated at 11/14/2021 08:59
+Last updated at 11/14/2021 12:00
