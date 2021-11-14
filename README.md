@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLRIjB5z0c4byJAalfbO3TJMX4j_hx12EddxwVm-Ow=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCISUBBsZSMpUGO8OcqAvGhA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
 
-**Artist**: mike. 
+**Artist**: Bloop London Radio 
 
-**Track**: 2 birds (lyric video)
+**Track**: Ravver - Ámbar on Air - 10.11.21
 
-Last updated at 11/13/2021 21:05
+Last updated at 11/14/2021 08:59
