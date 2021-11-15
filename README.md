@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GQCrdbURXJ93ahW-NbUijw-t500x500.jpg">](https://soundcloud.com/outlawfiendz94/get-ya-hoez-up-w-takatashawty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5ha8ZzS7ASVdBtY-FVHf8A-t500x500.jpg">](https://soundcloud.com/frockup/01-ivaana-frock-up)
 
-**Artist**: outlawfiendz 
+**Artist**: FROCKUP 
 
-**Track**: GET YA HOEZ UP  w/  TAKATASHAWTY
+**Track**: FROCKUP Radio: October - IVAANA
 
-Last updated at 11/15/2021 07:54
+Last updated at 11/15/2021 07:56
