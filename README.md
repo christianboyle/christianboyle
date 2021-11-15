@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5ha8ZzS7ASVdBtY-FVHf8A-t500x500.jpg">](https://soundcloud.com/frockup/01-ivaana-frock-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GxTpFl7gHYuRnVRW-LgDCrg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc172)
 
-**Artist**: FROCKUP 
+**Artist**: NON STOP NXC® 
 
-**Track**: FROCKUP Radio: October - IVAANA
+**Track**: NXC172 - IC3PEAK - Грустная Сука (WORLDWIDEWOLF LOUD AMEN EDIT)
 
-Last updated at 11/15/2021 07:56
+Last updated at 11/15/2021 07:58
