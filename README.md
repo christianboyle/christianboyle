@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLT7oq4Gioip6B_HhTEItibeVVPnXF7u0dv8D7M4Cw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCA0takueW0dTTJpCbeP66mA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GQCrdbURXJ93ahW-NbUijw-t500x500.jpg">](https://soundcloud.com/outlawfiendz94/get-ya-hoez-up-w-takatashawty)
 
-**Artist**: TEEDinosaurs 
+**Artist**: outlawfiendz 
 
-**Track**: Totally Enormous Extinct Dinosaurs - Emerald
+**Track**: GET YA HOEZ UP  w/  TAKATASHAWTY
 
-Last updated at 11/14/2021 12:02
+Last updated at 11/15/2021 07:54
