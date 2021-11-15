@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DteflRaMD4K0Z3Ab-KioZ1Q-t500x500.jpg">](https://soundcloud.com/dakkag-b/never-get-exhausted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZnwNbSzUmJnBViRU-lx9zVw-t500x500.jpg">](https://soundcloud.com/venom_valentine/utada-hikaru-one-last-kissvvalentine-remix)
 
-**Artist**: dakkagob 
+**Artist**: V.Valentine (venoshiii) 
 
-**Track**: NEVER GET EXHAUSTED
+**Track**: Utada Hikaru - One Last Kiss(V.VALENTINE Remix)
 
-Last updated at 11/15/2021 08:02
+Last updated at 11/15/2021 08:04
