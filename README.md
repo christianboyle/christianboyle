@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GxTpFl7gHYuRnVRW-LgDCrg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc172)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhw8tY2ntHVC186g-pbUJig-t500x500.jpg">](https://soundcloud.com/dakkag-b/dog-shot)
 
-**Artist**: NON STOP NXC® 
+**Artist**: dakkagob 
 
-**Track**: NXC172 - IC3PEAK - Грустная Сука (WORLDWIDEWOLF LOUD AMEN EDIT)
+**Track**: DOG SHOT (FIRST KIT OUT)
 
-Last updated at 11/15/2021 07:58
+Last updated at 11/15/2021 08:00
