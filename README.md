@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000239531767-58n0bv-t500x500.jpg">](https://soundcloud.com/weareallstereotypes/orbital-chime-stereotype-2017-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fZ6a2Wqr6gC6cX47-7csUog-t500x500.jpg">](https://soundcloud.com/cashewmusic/cashew-that-beat-1)
 
-**Artist**: Stereotype 
+**Artist**: CASHEW 
 
-**Track**: Orbital - Chime (Stereotype 2018 Remake) NOW FREE DOWNLOAD
+**Track**: CASHEW - That Beat
 
-Last updated at 11/16/2021 07:54
+Last updated at 11/16/2021 07:56
