@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rOBl5yybS1SkQYEy-pk4HEg-t500x500.jpg">](https://soundcloud.com/rollerrink/roller002-asquith-dj-mountain-dad-sunrise-baby)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLStEkuHMhb0B4mCgOYsQFnUuBW2JnK9lTn3c-qdAQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCC8FSfSnbjiZ6vGr68ZLtzg)
 
-**Artist**: Roller Rink 
+**Artist**: bbno$ 
 
-**Track**: ROLLER002 // Asquith & DJ Mountain Dad - Sunrise Baby
+**Track**: bbno$ & Rich Brian - edamame (Official Video)
 
-Last updated at 11/16/2021 07:58
+Last updated at 11/16/2021 19:26
