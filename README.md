@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GOPEv33zmIblT4n0-IA7paQ-t500x500.jpg">](https://soundcloud.com/balamii/the-west-friends-show-w-fyi-chris-november-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oG8Pt8fF5Fhtnrso-kEpJoA-t500x500.jpg">](https://soundcloud.com/clubnightclub/nick-leon-august)
 
-**Artist**: Balamii 
+**Artist**: Club Night Club 
 
-**Track**: The West Friends Show w/ FYI Chris - November 2021
+**Track**: CNC LIVE - NICK LEÓN
 
-Last updated at 11/17/2021 07:58
+Last updated at 11/17/2021 10:23
