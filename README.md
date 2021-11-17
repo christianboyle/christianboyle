@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLStEkuHMhb0B4mCgOYsQFnUuBW2JnK9lTn3c-qdAQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCC8FSfSnbjiZ6vGr68ZLtzg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GOPEv33zmIblT4n0-IA7paQ-t500x500.jpg">](https://soundcloud.com/balamii/the-west-friends-show-w-fyi-chris-november-2021)
 
-**Artist**: bbno$ 
+**Artist**: Balamii 
 
-**Track**: bbno$ & Rich Brian - edamame (Official Video)
+**Track**: The West Friends Show w/ FYI Chris - November 2021
 
-Last updated at 11/16/2021 19:26
+Last updated at 11/17/2021 07:58
