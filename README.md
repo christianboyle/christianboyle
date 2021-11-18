@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWZqpi5LPusF-0-t500x500.png">](https://soundcloud.com/notiondj/jack-play-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyj3cCiYS0EBScZE-5Xwavw-t500x500.jpg">](https://soundcloud.com/lb-aka-labat/live-at-fabric-london-17092021)
 
-**Artist**: NOTION 
+**Artist**: LB aka LABAT 
 
-**Track**: JACK & PLAY
+**Track**: LIVE AT FABRIC LONDON 17.09.2021
 
-Last updated at 11/18/2021 07:43
+Last updated at 11/18/2021 07:45
