@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oG8Pt8fF5Fhtnrso-kEpJoA-t500x500.jpg">](https://soundcloud.com/clubnightclub/nick-leon-august)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWZqpi5LPusF-0-t500x500.png">](https://soundcloud.com/notiondj/jack-play-1)
 
-**Artist**: Club Night Club 
+**Artist**: NOTION 
 
-**Track**: CNC LIVE - NICK LEÓN
+**Track**: JACK & PLAY
 
-Last updated at 11/17/2021 10:23
+Last updated at 11/18/2021 07:43
