@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ZQkLf0sHqgN-0-t500x500.jpg">](https://soundcloud.com/terrorjr/smile-like-that?in=terrorjr/sets/road-to-grapeness-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJ3C4GqRyrGQAtyn-UXwHnA-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-b2b-heartbeat-ft-cowgirl-clue?in=donatachi/sets/dotcom)
 
-**Artist**: Terror Jr 
+**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: Smile Like That
+**Track**: Donatachi - B2B Heartbeat ft. Cowgirl Clue
 
-Last updated at 11/19/2021 10:08
+Last updated at 11/19/2021 11:16
