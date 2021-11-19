@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGrcZ4hqkVYgvL8y-xeXqVA-t500x500.jpg">](https://soundcloud.com/itsspacerangers/thejuice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-pisces-rising-ft-chymes-1)
 
-**Artist**: Space Rangers 
+**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: THE JUICE
+**Track**: Donatachi - pisces rising (ft.  Chymes)
 
-Last updated at 11/19/2021 17:06
+Last updated at 11/19/2021 17:24
