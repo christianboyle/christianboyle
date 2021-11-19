@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8yJcb53CvzhMqrC-XqRXTQ-t500x500.jpg">](https://soundcloud.com/gabbystart/sydney)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGrcZ4hqkVYgvL8y-xeXqVA-t500x500.jpg">](https://soundcloud.com/itsspacerangers/thejuice)
 
-**Artist**: gabby start 
+**Artist**: Space Rangers 
 
-**Track**: sydney
+**Track**: THE JUICE
 
-Last updated at 11/19/2021 12:52
+Last updated at 11/19/2021 17:06
