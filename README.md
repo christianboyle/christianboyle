@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2Oa2xZ9QO0pzBFz-eVVEzQ-t500x500.jpg">](https://soundcloud.com/area3000/a3k319-pistaccio-22-november-2021)
 
-**Artist**: glaive 
+**Artist**: Area 3000 Radio 
 
-**Track**: Prick
+**Track**: A3K319 Pistaccio - 22 November 2021
 
-Last updated at 11/22/2021 12:21
+Last updated at 11/22/2021 12:25
