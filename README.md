@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQPLNa63-z-lMEEl-iQz2xIQIvAaQRT0kM-qQLeAw=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCjwhEPNX5rsU6gl_8qZMQZg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9t3vVDOaXrofdzr0-7shmMQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-34-on-beat-106-1)
 
-**Artist**: Kid Rock 
+**Artist**: Beat106Scotland 
 
-**Track**: Don't Tell Me How To Live (Official Video) - ft. Monster Truck
+**Track**: Bonkers Beats #33 on Beat 106 Scotland with Fracus & Darwin 191121 (Hour 1)
 
-Last updated at 11/21/2021 16:11
+Last updated at 11/22/2021 09:17
