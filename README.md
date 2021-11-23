@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hiRdyqc8yzr6IZJ3-65ysyA-t500x500.jpg">](https://soundcloud.com/delusional-dan/best-i-can-prod-ohimatt-musa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UL9AV4yvAdB8VEWl-xcWSJQ-t500x500.jpg">](https://soundcloud.com/1prentiss/iwillwait)
 
-**Artist**: Delusionaldan 
+**Artist**: prentiss 
 
-**Track**: Best I Can (prod. Ohimatt + Musa)
+**Track**: i will wait
 
-Last updated at 11/23/2021 08:03
+Last updated at 11/23/2021 08:05
