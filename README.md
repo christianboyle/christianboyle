@@ -4,6 +4,6 @@
 
 **Artist**: S3RL 
 
-**Track**: Behind the Scenes | Otaku Boy | JukeBox AI
+**Track**: Otaku Boy - S3RL ft Jukebox AI
 
-Last updated at 11/23/2021 07:43
+Last updated at 11/23/2021 07:47
