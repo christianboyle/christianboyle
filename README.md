@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-is7wKuplCnVnzEfW-yJbNLw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/strixter-helpless)
+[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLSG5IwzLAdWq_JB78cQ_-VRy-wyvE1y-qYMtIQoEQ=s48-c-k-c0x00ffffff-no-rj-mo">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: Dirty Workz 
+**Artist**: S3RL 
 
-**Track**: Strixter - Helpless
+**Track**: Behind the Scenes | Otaku Boy | JukeBox AI
 
-Last updated at 11/23/2021 07:41
+Last updated at 11/23/2021 07:43
