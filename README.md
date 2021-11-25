@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWgavuujiGlszmZP-GckXfQ-t500x500.jpg">](https://soundcloud.com/entertheworld/halloweenlive)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCZ3FuC9xpPnSErHJqMg5_EQ)
 
-**Artist**: enter the world 
+**Artist**: 
+  
+    Lil Mosey
+  
+  
+  
+    Lil Mosey
+  
 
-**Track**: Juelz & JAWNS Present: Enter The World (Live @ Halloween X)
 
-Last updated at 11/24/2021 20:32
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Lil Mosey - Holy Water [Official Audio]
+
+Last updated at 11/25/2021 07:32
