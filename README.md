@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-pisces-rising-ft-chymes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWgavuujiGlszmZP-GckXfQ-t500x500.jpg">](https://soundcloud.com/entertheworld/halloweenlive)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: enter the world 
 
-**Track**: Donatachi - pisces rising (ft.  Chymes)
+**Track**: Juelz & JAWNS Present: Enter The World (Live @ Halloween X)
 
-Last updated at 11/24/2021 20:28
+Last updated at 11/24/2021 20:32
