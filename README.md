@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFF5jQjEgJTVuamS-ly7Ctg-t500x500.jpg">](https://soundcloud.com/warecollective/personalbrand-4-wavm8s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQbpO5DOGopbLHvl-xNcf6Q-t500x500.jpg">](https://soundcloud.com/volacmusic/naughty-water)
 
-**Artist**: WARE 
+**Artist**: VOLAC 
 
-**Track**: WAV.M8'S 065 - personalbrand
+**Track**: Volac - Naughty Water | OUT NOW
 
-Last updated at 11/28/2021 15:35
+Last updated at 11/28/2021 15:37
