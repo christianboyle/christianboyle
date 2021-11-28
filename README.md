@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRT0WO7ZVK0QbGOQ-7eypWA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc166)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTbQHVZBWBg0U2oS-aA4Rdw-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/corona-rhythm-of-the-night-gestalt-weapon-edit)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Dancefloor Impact Research 
 
-**Track**: NXC166 - underscores - spoiled little brat (cnri edit)
+**Track**: [DIRW02] Corona - Rhythm Of The Night (Gestalt Weapon Edit) [FREE DOWNLOAD]
 
-Last updated at 11/28/2021 15:51
+Last updated at 11/28/2021 16:15
