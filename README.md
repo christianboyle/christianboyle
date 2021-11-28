@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Lq5V5hFyB6bq5Az-NT4OKg-t500x500.jpg">](https://soundcloud.com/ayyofree/lib-amen-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0IXpp0yV4OGnOv3h-HRfPkw-t500x500.jpg">](https://soundcloud.com/foot-outfoot/mbush-waiting-for-you?in=foot-outfoot/sets/outfoot-compilation-vol-1)
 
-**Artist**: AY YO TRIP! 
+**Artist**: OUTFOOT 
 
-**Track**: LiB - Amen
+**Track**: Mbush - Waiting For You
 
-Last updated at 11/28/2021 15:39
+Last updated at 11/28/2021 15:41
