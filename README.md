@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzYvoEoItIz9yZqb-5w0lIw-t500x500.jpg">](https://soundcloud.com/dossyx/backintime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRT0WO7ZVK0QbGOQ-7eypWA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc166)
 
-**Artist**: DossyX 
+**Artist**: NON STOP NXC® 
 
-**Track**: Virtual Riot - Back In Time ft. Angelika(DossyX Remix)
+**Track**: NXC166 - underscores - spoiled little brat (cnri edit)
 
-Last updated at 11/28/2021 15:49
+Last updated at 11/28/2021 15:51
