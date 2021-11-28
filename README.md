@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnnrmpF2kSf8eXZ4-xozvgg-t500x500.jpg">](https://soundcloud.com/djkyleharrison/the-kid-laroi-justin-bieber-stay-mj31-kyle-harrison-d9-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhDaIW6gczE0R7Lg-JzMuAw-t500x500.jpg">](https://soundcloud.com/silencerecordss/sunshine-what-you-waiting)
 
-**Artist**: DJ Kyle Harrison 
+**Artist**: SILENCE! Records 
 
-**Track**: The Kid LAROI, Justin Bieber - STAY (Mj31 & Kyle Harrison & D9 Remix)
+**Track**: sunshine - What You Waiting [Dubstep N Trap Premiere]
 
-Last updated at 11/28/2021 16:45
+Last updated at 11/28/2021 16:47
