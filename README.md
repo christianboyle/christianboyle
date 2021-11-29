@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000239531767-58n0bv-t500x500.jpg">](https://soundcloud.com/weareallstereotypes/orbital-chime-stereotype-2017-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62a6ItSqpM5oqFmg-csQnpg-t500x500.jpg">](https://soundcloud.com/sablevalley/nightrealm)
 
-**Artist**: Stereotype 
+**Artist**: SABLE VALLEY 
 
-**Track**: Orbital - Chime (Stereotype 2018 Remake) NOW FREE DOWNLOAD
+**Track**: ISOxo - Nightrealm
 
-Last updated at 11/29/2021 16:27
+Last updated at 11/29/2021 16:31
