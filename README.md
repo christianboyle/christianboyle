@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzZ6kpcZQMAlZ0q6-5oQOFw-t500x500.jpg">](https://soundcloud.com/imjacobgeoffrey/coming-of-age-movie-aldrch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000239531767-58n0bv-t500x500.jpg">](https://soundcloud.com/weareallstereotypes/orbital-chime-stereotype-2017-remake)
 
-**Artist**: jacob geoffrey 
+**Artist**: Stereotype 
 
-**Track**: coming of age movie + aldrch
+**Track**: Orbital - Chime (Stereotype 2018 Remake) NOW FREE DOWNLOAD
 
-Last updated at 11/29/2021 16:25
+Last updated at 11/29/2021 16:27
