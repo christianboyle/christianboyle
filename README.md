@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8yJcb53CvzhMqrC-XqRXTQ-t500x500.jpg">](https://soundcloud.com/gabbystart/sydney)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6FDF5DkGTVFiMDN-znvjLw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-124-dan-larkin)
 
-**Artist**: gabby start 
+**Artist**: Boiler Room 
 
-**Track**: sydney
+**Track**: Hard Dance 124: Dan Larkin
 
-Last updated at 11/29/2021 16:39
+Last updated at 11/29/2021 16:43
