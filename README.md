@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnnrmpF2kSf8eXZ4-xozvgg-t500x500.jpg">](https://soundcloud.com/djkyleharrison/the-kid-laroi-justin-bieber-stay-mj31-kyle-harrison-d9-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzZ6kpcZQMAlZ0q6-5oQOFw-t500x500.jpg">](https://soundcloud.com/imjacobgeoffrey/coming-of-age-movie-aldrch)
 
-**Artist**: DJ Kyle Harrison 
+**Artist**: jacob geoffrey 
 
-**Track**: The Kid LAROI, Justin Bieber - STAY (Mj31 & Kyle Harrison & D9 Remix)
+**Track**: coming of age movie + aldrch
 
-Last updated at 11/29/2021 16:19
+Last updated at 11/29/2021 16:25
