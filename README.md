@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119864506-fhrchq-t500x500.jpg">](https://soundcloud.com/kimokal/preview-kimokal-2-mjolnir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tKgEieWebmFaMdC-V6UCeQ-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc081-nick-leon)
 
-**Artist**: KIMOKAL 
+**Artist**: Rhythmic Culture 
 
-**Track**: KIMOKAL - Adiamo (Mjolnir Remix)
+**Track**: RC:081 Nick León
 
-Last updated at 11/29/2021 19:49
+Last updated at 11/30/2021 08:09
