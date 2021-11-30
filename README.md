@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gvzz6jRwreS1-0-t500x500.jpg">](https://soundcloud.com/1glaive/i-wanna-slam-my-head-against?in=saxurn/sets/fetti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000007884607-0vyujv-t500x500.jpg">](https://soundcloud.com/soundofmjolnir/chromeo-hot-mess-mjolnir)
 
-**Artist**: glaive 
+**Artist**: soundofmjolnir 
 
-**Track**: i wanna slam my head against the wall
+**Track**: Chromeo - Hot Mess (Mjolnir Tropicool Remix)
 
-Last updated at 11/29/2021 17:13
+Last updated at 11/29/2021 19:47
