@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000007884607-0vyujv-t500x500.jpg">](https://soundcloud.com/soundofmjolnir/chromeo-hot-mess-mjolnir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119864506-fhrchq-t500x500.jpg">](https://soundcloud.com/kimokal/preview-kimokal-2-mjolnir)
 
-**Artist**: soundofmjolnir 
+**Artist**: KIMOKAL 
 
-**Track**: Chromeo - Hot Mess (Mjolnir Tropicool Remix)
+**Track**: KIMOKAL - Adiamo (Mjolnir Remix)
 
-Last updated at 11/29/2021 19:47
+Last updated at 11/29/2021 19:49
