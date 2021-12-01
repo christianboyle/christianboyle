@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBrYzyyX4UlTaFBV-C6QyeQ-t500x500.jpg">](https://soundcloud.com/earthboymusic/let-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4AzINoy8lyvLD73-Y6LAow-t500x500.jpg">](https://soundcloud.com/1sillyteam/swag-luvlxckdown-emorave-cant-fold-flood-kiro-guami)
 
-**Artist**: meat computer   ‧̥̥͙ 
+**Artist**: sillyteam 
 
-**Track**: let #go
+**Track**: swag + luvlxckdown + emorave - CANT FOLD (flood + kiro + guami)
 
-Last updated at 12/01/2021 12:07
+Last updated at 12/01/2021 12:09
