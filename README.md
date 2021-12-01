@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCivgedmwoy8PH8bpaWeXT_Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ol7OkTyhoiQwBAwC-pICGhw-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms51-recluse)
 
-**Artist**: 
-  
-    Headhunterz
-  
-  
-  
-    Headhunterz
-  
+**Artist**: Hyde Park Hi-Fi 
 
+**Track**: HPHF MS51: RECLUSE
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Illenium - Paper Thin (Headhunterz Remix)
-
-Last updated at 12/01/2021 10:05
+Last updated at 12/01/2021 11:19
