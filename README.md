@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwJEyycIENntRYF2-0UNzcw-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-jane-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBrYzyyX4UlTaFBV-C6QyeQ-t500x500.jpg">](https://soundcloud.com/earthboymusic/let-go)
 
-**Artist**: Dan Larkin 
+**Artist**: meat computer   ‧̥̥͙ 
 
-**Track**: The Diary Of Jane (Dan Larkin Remix)
+**Track**: let #go
 
-Last updated at 12/01/2021 11:25
+Last updated at 12/01/2021 11:27
