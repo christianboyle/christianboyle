@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0MNyE8he9qyp6Ri-U3bzHA-t500x500.jpg">](https://soundcloud.com/swagtastic666/halo-blackwinterwells)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwJEyycIENntRYF2-0UNzcw-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-jane-remix)
 
-**Artist**: swagtastic 
+**Artist**: Dan Larkin 
 
-**Track**: halo!! 👼👼 (blackwinterwells)
+**Track**: The Diary Of Jane (Dan Larkin Remix)
 
-Last updated at 12/01/2021 11:23
+Last updated at 12/01/2021 11:25
