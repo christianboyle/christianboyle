@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tKgEieWebmFaMdC-V6UCeQ-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc081-nick-leon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBrYzyyX4UlTaFBV-C6QyeQ-t500x500.jpg">](https://soundcloud.com/earthboymusic/let-go)
 
-**Artist**: Rhythmic Culture 
+**Artist**: meat computer   ‧̥̥͙ 
 
-**Track**: RC:081 Nick León
+**Track**: let #go
 
-Last updated at 12/01/2021 11:33
+Last updated at 12/01/2021 12:07
