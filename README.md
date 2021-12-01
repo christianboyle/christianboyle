@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4AzINoy8lyvLD73-Y6LAow-t500x500.jpg">](https://soundcloud.com/1sillyteam/swag-luvlxckdown-emorave-cant-fold-flood-kiro-guami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZc9VAQybPE2ZRDc-arbgSQ-t500x500.jpg">](https://soundcloud.com/1sillyteam/nightstand)
 
 **Artist**: sillyteam 
 
-**Track**: swag + luvlxckdown + emorave - CANT FOLD (flood + kiro + guami)
+**Track**: kkypr - night stand (kitaro + 3ds)
 
-Last updated at 12/01/2021 12:09
+Last updated at 12/01/2021 12:11
