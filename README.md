@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4AzINoy8lyvLD73-Y6LAow-t500x500.jpg">](https://soundcloud.com/1sillyteam/swag-luvlxckdown-emorave-cant-fold-flood-kiro-guami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yvQRobQkceVfBDD-xVIIzg-t500x500.jpg">](https://soundcloud.com/delto/buryme)
 
-**Artist**: sillyteam 
+**Artist**: Delto 
 
-**Track**: swag + luvlxckdown + emorave - CANT FOLD (flood + kiro + guami)
+**Track**: bury me (prod. ddertbAg)
 
-Last updated at 12/02/2021 11:58
+Last updated at 12/02/2021 12:00
