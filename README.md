@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMgOKslNmcwqj9g2-onUZbg-t500x500.jpg">](https://soundcloud.com/alterslashego/hex-cougar-lemay-aubade?in=lemaylemay/sets/aubade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gakYJl3VB963QqAj-tsdJmw-t500x500.jpg">](https://soundcloud.com/sablevalley/hideaway?in=bbjuelz/sets/hideaway)
 
-**Artist**: Alter/Ego 
+**Artist**: SABLE VALLEY 
 
-**Track**: Hex Cougar & Lemay - Aubade
+**Track**: Juelz - Hideaway
 
-Last updated at 12/03/2021 12:14
+Last updated at 12/03/2021 12:16
