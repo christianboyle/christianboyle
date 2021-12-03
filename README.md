@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qry926aD9p9FKEZ6-DvYdMg-t500x500.jpg">](https://soundcloud.com/djmag/fresh-kicks-165-sputnik-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BU4fea6flZVEzzs3-wPHlew-t500x500.jpg">](https://soundcloud.com/djblnmusic/the-return)
 
-**Artist**: djmag 
+**Artist**: BLN 
 
-**Track**: Fresh Kicks 165: Sputnik One
+**Track**: BLN - The Return (LGSM Anthem 2021)
 
-Last updated at 12/03/2021 07:52
+Last updated at 12/03/2021 12:06
