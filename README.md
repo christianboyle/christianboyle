@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oiE1F0Dzag8ayc6Q-aSfOxg-t500x500.jpg">](https://soundcloud.com/thelotradio/buntopia-w-honey-bun-the-lot-radio-12-01-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Z76SWHFuleESzOy-IJp2wg-t500x500.jpg">](https://soundcloud.com/t0rr/talia)
 
-**Artist**: The Lot Radio 
+**Artist**: torr 
 
-**Track**: BUNTOPIA w/ Honey Bun @ The Lot Radio 12 - 01 - 2021
+**Track**: talia
 
-Last updated at 12/03/2021 12:08
+Last updated at 12/03/2021 12:10
