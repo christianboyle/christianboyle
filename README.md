@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ARtnLwwG3V3UzXkC-HigL3A-t500x500.jpg">](https://soundcloud.com/murderclubmusik/winter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r821ZeX3jeL4U0UE-AwweBA-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/shaw-myst)
 
-**Artist**: MURDER CLUB 
+**Artist**: GHETTO GHETTO 
 
-**Track**: MURDER CLUB PATREON WINTER GIFT BAG [2021] ★★★★
+**Track**: SHAW - MYST
 
-Last updated at 12/03/2021 16:24
+Last updated at 12/03/2021 16:30
