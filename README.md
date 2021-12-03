@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Z76SWHFuleESzOy-IJp2wg-t500x500.jpg">](https://soundcloud.com/t0rr/talia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfMH06bN4zGMNC7m-pURpPg-t500x500.jpg">](https://soundcloud.com/dubplates-vinyls/harmony-divine-toll-dat044?in=dubplates-vinyls/sets/harmony-oxy-ft-peppa-photing-divine-toll)
 
-**Artist**: torr 
+**Artist**: Deep Jungle Records 
 
-**Track**: talia
+**Track**: Harmony - Divine Toll [DAT044] clip
 
-Last updated at 12/03/2021 12:10
+Last updated at 12/03/2021 12:12
