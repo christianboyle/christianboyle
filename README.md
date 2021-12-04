@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ner3FparnmbVStUE-N9BNhw-t500x500.jpg">](https://soundcloud.com/metalheadz/grey-code-prima)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skRNkEDj5CGSTRXd-WZGK5A-t500x500.jpg">](https://soundcloud.com/highrollersonly/notd-remix)
 
-**Artist**: Metalheadz 
+**Artist**: highrollersonly 
 
-**Track**: Grey Code - Prima
+**Track**: Notd remix
 
-Last updated at 12/04/2021 16:02
+Last updated at 12/04/2021 16:04
