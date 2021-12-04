@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WFYczSLKHAlbBpwT-dhBsXw-t500x500.jpg">](https://soundcloud.com/explorersoftheinternet/christmas2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ner3FparnmbVStUE-N9BNhw-t500x500.jpg">](https://soundcloud.com/metalheadz/grey-code-prima)
 
-**Artist**: Explorers of the Internet 
+**Artist**: Metalheadz 
 
-**Track**: ALL U WANT FOR CHRISTMAS 3 [2021 edition]
+**Track**: Grey Code - Prima
 
-Last updated at 12/04/2021 16:00
+Last updated at 12/04/2021 16:02
