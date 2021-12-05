@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckJtgE7dYP4g-0-t500x500.png">](https://soundcloud.com/smrtdeath/sober-feat-boyfriendz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7gsqd1B7FYIB-0-t500x500.png">](https://soundcloud.com/smrtdeath/misfit)
 
 **Artist**: smrtdeath 
 
-**Track**: sober (feat. BOYFRIENDZ)
+**Track**: misfit
 
-Last updated at 12/05/2021 07:29
+Last updated at 12/05/2021 07:31
