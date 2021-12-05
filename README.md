@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gakYJl3VB963QqAj-tsdJmw-t500x500.jpg">](https://soundcloud.com/sablevalley/hideaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckJtgE7dYP4g-0-t500x500.png">](https://soundcloud.com/smrtdeath/sober-feat-boyfriendz)
 
-**Artist**: SABLE VALLEY 
+**Artist**: smrtdeath 
 
-**Track**: Juelz - Hideaway
+**Track**: sober (feat. BOYFRIENDZ)
 
-Last updated at 12/04/2021 16:15
+Last updated at 12/05/2021 07:29
