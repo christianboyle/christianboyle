@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h5a97XAGrobubjnE-ooG9IA-t500x500.jpg">](https://soundcloud.com/user-550087953-498628008/idgaf-prod-jody-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000576065084-k81rmv-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-003)
 
-**Artist**: adam laurent 
+**Artist**: SABLE VALLEY 
 
-**Track**: IDGAF (prod. jody)
+**Track**: MiniMix 003: Cozway
 
-Last updated at 12/06/2021 09:49
+Last updated at 12/06/2021 09:51
