@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BZmFvSmkrJcn1IKH-NzYDqA-t500x500.jpg">](https://soundcloud.com/murchy3/mx3013)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161097744-7l5t1e-t500x500.jpg">](https://soundcloud.com/nyquill/only-you)
 
-**Artist**: murchy3 
+**Artist**: Elijah 
 
-**Track**: Studio78 Sessions: EDM vs Hard Trance (Mix3)
+**Track**: only you
 
-Last updated at 12/06/2021 08:03
+Last updated at 12/06/2021 08:05
