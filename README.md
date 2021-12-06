@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000576065084-k81rmv-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckJtgE7dYP4g-0-t500x500.png">](https://soundcloud.com/smrtdeath/sober-feat-boyfriendz)
 
-**Artist**: SABLE VALLEY 
+**Artist**: smrtdeath 
 
-**Track**: MiniMix 003: Cozway
+**Track**: sober (feat. BOYFRIENDZ)
 
-Last updated at 12/06/2021 09:51
+Last updated at 12/06/2021 10:11
