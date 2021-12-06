@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckJtgE7dYP4g-0-t500x500.png">](https://soundcloud.com/smrtdeath/sober-feat-boyfriendz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tKgEieWebmFaMdC-V6UCeQ-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc081-nick-leon)
 
-**Artist**: smrtdeath 
+**Artist**: Rhythmic Culture 
 
-**Track**: sober (feat. BOYFRIENDZ)
+**Track**: RC:081 Nick León
 
-Last updated at 12/06/2021 10:11
+Last updated at 12/06/2021 11:55
