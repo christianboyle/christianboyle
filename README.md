@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOzj62n4r57zCrkO-wi1qUA-t500x500.jpg">](https://soundcloud.com/6vz/my-turn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckJtgE7dYP4g-0-t500x500.png">](https://soundcloud.com/smrtdeath/sober-feat-boyfriendz)
 
-**Artist**: viizzi 
+**Artist**: smrtdeath 
 
-**Track**: my turn ( p. NOWARE! )
+**Track**: sober (feat. BOYFRIENDZ)
 
-Last updated at 12/06/2021 08:11
+Last updated at 12/06/2021 09:47
