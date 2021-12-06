@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xshkgYH2REBhYXlD-qjI2Sw-t500x500.jpg">](https://soundcloud.com/above_the_surface/soulecist-melts-away-feat-salvo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOzj62n4r57zCrkO-wi1qUA-t500x500.jpg">](https://soundcloud.com/6vz/my-turn)
 
-**Artist**: Above and Below 
+**Artist**: viizzi 
 
-**Track**: soulecist. - Melts Away (feat. Salvo)
+**Track**: my turn ( p. NOWARE! )
 
-Last updated at 12/06/2021 08:07
+Last updated at 12/06/2021 08:11
