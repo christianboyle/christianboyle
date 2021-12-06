@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJ9A56kAO0kLf2sF-EbTzyA-t500x500.jpg">](https://soundcloud.com/1sillyteam/luvlxckdown-dolly-luisisalreadydead-take-my-life-elxnce-kurai-vinso)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BZmFvSmkrJcn1IKH-NzYDqA-t500x500.jpg">](https://soundcloud.com/murchy3/mx3013)
 
-**Artist**: sillyteam 
+**Artist**: murchy3 
 
-**Track**: luvlxckdown + dolly + luisisalreadydead - take my life (elxnce, kurai & vinso)
+**Track**: Studio78 Sessions: EDM vs Hard Trance (Mix3)
 
-Last updated at 12/05/2021 07:35
+Last updated at 12/06/2021 08:03
