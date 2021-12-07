@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161537845-tlkxuk-t500x500.jpg">](https://soundcloud.com/user-881590366/olive-youre-not-alone-dj-infiniti-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bElzmyrh9SL-0-t500x500.jpg">](https://soundcloud.com/rennie-pilgrem/a-place-called-acid-rennies)
 
-**Artist**: Big Red Velvet Couch 
+**Artist**: Rennie Pilgrem 
 
-**Track**: Olive - You're Not Alone (Dj Infiniti Mix)
+**Track**: A Place Called Acid (Rennie's Indigestion Mix) [feat. Thursday Club]
 
-Last updated at 12/07/2021 17:32
+Last updated at 12/07/2021 17:38
