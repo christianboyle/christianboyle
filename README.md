@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HTxDjqlaAgEgoHfi-4DcxTA-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-837-gracie-t-dec-21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XxRSvhyJeMcGgGZn-KS4psA-t500x500.png">](https://soundcloud.com/rinsefm/clubglow231121)
 
-**Artist**: Fact Magazine 
+**Artist**: Rinse FM 
 
-**Track**: Fact Mix 837: Gracie T (Dec '21)
+**Track**: Club Glow - 23 November 2021
 
-Last updated at 12/06/2021 16:05
+Last updated at 12/07/2021 07:53
