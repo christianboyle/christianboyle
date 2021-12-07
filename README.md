@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000102579761-b89uoo-t500x500.jpg">](https://soundcloud.com/jsdvoyager/groove-me-djs-friction-and-spice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000381049182-rmalt7-t500x500.jpg">](https://soundcloud.com/wishes333/broke-boy-official)
 
-**Artist**: Voyager 
+**Artist**: Wishes 
 
-**Track**: Dj's Friction & Spice (Groove Me - Original 1995)
+**Track**: Broke Boy
 
-Last updated at 12/07/2021 16:54
+Last updated at 12/07/2021 17:00
