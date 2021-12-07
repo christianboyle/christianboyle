@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wTnVXy5SP7ab000e-rD9xDQ-t500x500.jpg">](https://soundcloud.com/sablevalley/the-people)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000532661649-wmw07o-t500x500.jpg">](https://soundcloud.com/mattbarri/its-always-been-u)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Matt Barri 
 
-**Track**: 1991 - The People
+**Track**: It's Always Been U
 
-Last updated at 12/07/2021 16:46
+Last updated at 12/07/2021 16:48
