@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XxRSvhyJeMcGgGZn-KS4psA-t500x500.png">](https://soundcloud.com/rinsefm/clubglow231121)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WCQjXYq69q70YCXB-aYRSCA-t500x500.jpg">](https://soundcloud.com/balamii/club-glow-radio-w-borai-denham-audio-l-major-mani-festo-november-2021)
 
-**Artist**: Rinse FM 
+**Artist**: Balamii 
 
-**Track**: Club Glow - 23 November 2021
+**Track**: Club Glow Radio w/ Borai, Denham Audio, L Major & Mani Festo - November 2021
 
-Last updated at 12/07/2021 07:53
+Last updated at 12/07/2021 15:56
