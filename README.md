@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000381049182-rmalt7-t500x500.jpg">](https://soundcloud.com/wishes333/broke-boy-official)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000375743448-54nu00-t500x500.jpg">](https://soundcloud.com/gentandjawns/dj-gammer-the-drop-gent-jawns-remix)
 
-**Artist**: Wishes 
+**Artist**: Gent & Jawns 
 
-**Track**: Broke Boy
+**Track**: Gammer - THE DROP (Gent & Jawns Remix)
 
-Last updated at 12/07/2021 17:00
+Last updated at 12/07/2021 17:02
