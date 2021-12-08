@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000010980455-uqe9x3-t500x500.jpg">](https://soundcloud.com/scratch-d-vs-h-bomb/scratch-d-vs-h-bomb-red-pill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5eGhIPgGNtNDrzYL-ZhZHCw-t500x500.jpg">](https://soundcloud.com/balamii/oliver-k-december-2021)
 
-**Artist**: Scratch-D Vs.H-Bomb 
+**Artist**: Balamii 
 
-**Track**: Scratch-D vs. H bomb- Red Pill Original Mix
+**Track**: Oliver K - December 2021
 
-Last updated at 12/07/2021 17:44
+Last updated at 12/08/2021 08:52
