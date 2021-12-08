@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mztt9H847VqLywA-5Hzw9Q-t500x500.jpg">](https://soundcloud.com/body_verse/body-mix-009-doctor-jeep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5flGNy8i47oy4W5-nbGUQg-t500x500.jpg">](https://soundcloud.com/animalia-label/animix-forty-eight-dj-scorpion)
 
-**Artist**: Body Verse 
+**Artist**: Animalia 
 
-**Track**: BODY MIX 009 | Doctor Jeep
+**Track**: Animix Forty Eight: DJ Scorpion
 
-Last updated at 12/08/2021 08:56
+Last updated at 12/08/2021 10:26
