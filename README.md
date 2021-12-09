@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ce3UwDdeCn3r0rFy-aYQX2w-t500x500.jpg">](https://soundcloud.com/evar-records/cz-heat-index-evar008-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MV23Jxest8iFeItP-lNpXig-t500x500.jpg">](https://soundcloud.com/welcome-recs/link-i-want-you-link-vip?in=welcome-recs/sets/link-turbo-remixed)
 
-**Artist**: Evar_Records 
+**Artist**: Welcome Records 
 
-**Track**: C.Z. - Heat Index [EVAR008 PREVIEW]
+**Track**: LINK - I Want You (LINK VIP)
 
-Last updated at 12/09/2021 16:32
+Last updated at 12/09/2021 16:34
