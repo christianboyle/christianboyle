@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bPVeaMTd9Fdhsyaf-SuDBUA-t500x500.jpg">](https://soundcloud.com/rinsefm/lobstertheremin091221)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJMz3b6g6n9t6uLh-T5MtAw-t500x500.jpg">](https://soundcloud.com/ariannanxc/bleedin)
 
-**Artist**: Rinse FM 
+**Artist**: arianna 
 
-**Track**: Lobster Theremin with Asquith, Monster, sadgal & KYSIA - 09 December 2021
+**Track**: bleedin'
 
-Last updated at 12/11/2021 09:20
+Last updated at 12/12/2021 15:24
