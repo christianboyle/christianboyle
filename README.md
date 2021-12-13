@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mztt9H847VqLywA-5Hzw9Q-t500x500.jpg">](https://soundcloud.com/body_verse/body-mix-009-doctor-jeep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJMz3b6g6n9t6uLh-T5MtAw-t500x500.jpg">](https://soundcloud.com/ariannanxc/bleedin)
 
-**Artist**: Body Verse 
+**Artist**: arianna 
 
-**Track**: BODY MIX 009 | Doctor Jeep
+**Track**: bleedin'
 
-Last updated at 12/13/2021 07:50
+Last updated at 12/13/2021 15:07
