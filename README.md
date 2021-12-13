@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJMz3b6g6n9t6uLh-T5MtAw-t500x500.jpg">](https://soundcloud.com/ariannanxc/bleedin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7SPRcuM8r4zEyyS-nKD5Mw-t500x500.jpg">](https://soundcloud.com/swimpdf/love-bleeding-vocal-mix)
 
-**Artist**: arianna 
+**Artist**: SWIM 
 
-**Track**: bleedin'
+**Track**: Love (Bleeding Vocal Mix)
 
-Last updated at 12/13/2021 15:07
+Last updated at 12/13/2021 15:11
