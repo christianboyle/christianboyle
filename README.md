@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5PwtzsZjzOqbI0ZQ-y88QmQ-t500x500.jpg">](https://soundcloud.com/balamii/slug-club-december-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWgavuujiGlszmZP-GckXfQ-t500x500.jpg">](https://soundcloud.com/entertheworld/halloweenlive)
 
-**Artist**: Balamii 
+**Artist**: enter the world 
 
-**Track**: Slug Club - December 2021
+**Track**: Juelz & JAWNS Present: Enter The World (Live @ Halloween X)
 
-Last updated at 12/14/2021 08:42
+Last updated at 12/14/2021 16:59
