@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: KATEBI 
+**Artist**: 
+  
+    S3RL
+  
+  
+  
+    S3RL
+  
 
-**Track**: HEAVEN 2 (FULL STREAM)
 
-Last updated at 12/15/2021 08:55
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: S3RL Absolutely Presents...
+
+Last updated at 12/15/2021 08:57
