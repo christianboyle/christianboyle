@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-woMlHewCJkrPDyS2-yBkAlA-t500x500.jpg">](https://soundcloud.com/1endie/loseagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
 
-**Artist**: endie 
+**Artist**: KATEBI 
 
-**Track**: lose again (greentop)
+**Track**: HEAVEN 2 (FULL STREAM)
 
-Last updated at 12/15/2021 08:53
+Last updated at 12/15/2021 08:55
