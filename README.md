@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7EYtmFobYAls9y8G-yOzc9Q-t500x500.jpg">](https://soundcloud.com/1endie/blisss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-woMlHewCJkrPDyS2-yBkAlA-t500x500.jpg">](https://soundcloud.com/1endie/loseagain)
 
 **Artist**: endie 
 
-**Track**: bliss (recyclebin + ria)
+**Track**: lose again (greentop)
 
-Last updated at 12/15/2021 07:57
+Last updated at 12/15/2021 08:53
