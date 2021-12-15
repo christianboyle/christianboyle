@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-woMlHewCJkrPDyS2-yBkAlA-t500x500.jpg">](https://soundcloud.com/1endie/loseagain)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: endie 
 
+**Track**: lose again (greentop)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: S3RL Absolutely Presents...
-
-Last updated at 12/15/2021 08:57
+Last updated at 12/15/2021 10:39
