@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-woMlHewCJkrPDyS2-yBkAlA-t500x500.jpg">](https://soundcloud.com/1endie/loseagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I77wbA1VGTZK7BnM-OtgGxA-t500x500.jpg">](https://soundcloud.com/1endie/whatareyouwaitingfor)
 
 **Artist**: endie 
 
-**Track**: lose again (greentop)
+**Track**: what are you waiting for
 
-Last updated at 12/15/2021 10:39
+Last updated at 12/15/2021 10:41
