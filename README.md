@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7R7Gc2gw1CsRGc61-I0anzQ-t500x500.jpg">](https://soundcloud.com/1endie/friendslikethis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TG5E0xILhhlNuxln-ASV37Q-t500x500.jpg">](https://soundcloud.com/1endie/black-dress)
 
 **Artist**: endie 
 
-**Track**: friends like this
+**Track**: black dress
 
-Last updated at 12/15/2021 07:53
+Last updated at 12/15/2021 07:55
