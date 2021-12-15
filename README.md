@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PosdD8xALLzy3HMG-0AzfZQ-t500x500.jpg">](https://soundcloud.com/futurebassrecords/scsc-my-everything-future-bass-release)
 
-**Artist**: Bloop London Radio 
+**Artist**: Future Bass XO 
 
-**Track**: Ravver - Ámbar on Air - 10.11.21
+**Track**: scsc - My Everything [Future Bass Release]
 
-Last updated at 12/14/2021 19:21
+Last updated at 12/15/2021 07:51
