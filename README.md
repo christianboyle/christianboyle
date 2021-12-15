@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJMz3b6g6n9t6uLh-T5MtAw-t500x500.jpg">](https://soundcloud.com/ariannanxc/bleedin)
 
-**Artist**: KATEBI 
+**Artist**: arianna 
 
-**Track**: HEAVEN 2 (FULL STREAM)
+**Track**: bleedin'
 
-Last updated at 12/15/2021 10:43
+Last updated at 12/15/2021 11:55
