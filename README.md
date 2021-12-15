@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-jsqttkMV9VqYBDS3-T4Uayg-t500x500.jpg">](https://soundcloud.com/technikoredj/owl-city-fireflies-technikore-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ko18JSdKxbhxw1X5-zXiJeg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc174a)
 
-**Artist**: Technikore / Technikal 
+**Artist**: NON STOP NXC® 
 
-**Track**: Owl City - Fireflies (Technikore Remix)
+**Track**: NXC174 - Porter Robinson - Look at the Sky (Key Archive Remix)
 
-Last updated at 12/14/2021 18:09
+Last updated at 12/14/2021 18:11
