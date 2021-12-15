@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZA4LW6kNpXfsuZI-TdXFiA-t500x500.jpg">](https://soundcloud.com/user-209063737/kinn-take-me-away-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2VsGY02hXy54IPP-grfeyg-t500x500.jpg">](https://soundcloud.com/blooplondon/ravver-ambar-on-air-101121)
 
-**Artist**: KINN 
+**Artist**: Bloop London Radio 
 
-**Track**: KINN - Take Me Away *FREE DOWNLOAD*
+**Track**: Ravver - Ámbar on Air - 10.11.21
 
-Last updated at 12/14/2021 19:15
+Last updated at 12/14/2021 19:21
