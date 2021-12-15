@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6FDF5DkGTVFiMDN-znvjLw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-124-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZA4LW6kNpXfsuZI-TdXFiA-t500x500.jpg">](https://soundcloud.com/user-209063737/kinn-take-me-away-free-download)
 
-**Artist**: Boiler Room 
+**Artist**: KINN 
 
-**Track**: Hard Dance 124: Dan Larkin
+**Track**: KINN - Take Me Away *FREE DOWNLOAD*
 
-Last updated at 12/14/2021 18:17
+Last updated at 12/14/2021 19:15
