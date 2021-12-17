@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBfVZpG3C7pNhjRz-PIq0Eg-t500x500.jpg">](https://soundcloud.com/oneseventy/jakka-b-x-tatsunoshin-someone-to-forget)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rB1jDCpe4KPTTPyE-VcmRZw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/yuta-imai-tatsunoshin-friends)
 
-**Artist**: OneSeventy 
+**Artist**: Dirty Workz 
 
-**Track**: Jakka-B x Tatsunoshin - Someone To Forget (Radio Edit)
+**Track**: Yuta Imai & Tatsunoshin - Friends
 
-Last updated at 12/17/2021 16:54
+Last updated at 12/17/2021 16:56
