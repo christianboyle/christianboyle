@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I77wbA1VGTZK7BnM-OtgGxA-t500x500.jpg">](https://soundcloud.com/1endie/whatareyouwaitingfor)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: endie 
 
+**Track**: what are you waiting for
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: S3RL Absolutely Presents...
-
-Last updated at 12/17/2021 17:02
+Last updated at 12/17/2021 17:12
