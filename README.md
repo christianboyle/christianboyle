@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9iMaAVpzDpn0dlM3-u0eNzg-t500x500.jpg">](https://soundcloud.com/gonzsss/odyssey)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
 
-**Artist**: gønzs 
+**Artist**: 
+  
+    S3RL
+  
+  
+  
+    S3RL
+  
 
-**Track**: Odyssey
 
-Last updated at 12/17/2021 17:00
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: S3RL Absolutely Presents...
+
+Last updated at 12/17/2021 17:02
