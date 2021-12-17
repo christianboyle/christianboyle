@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000547047768-bs5oui-t500x500.jpg">](https://soundcloud.com/s3rl/my-girlfriend-is-a-raver-s3rl-x-lida)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBfVZpG3C7pNhjRz-PIq0Eg-t500x500.jpg">](https://soundcloud.com/oneseventy/jakka-b-x-tatsunoshin-someone-to-forget)
 
-**Artist**: S3RL 
+**Artist**: OneSeventy 
 
-**Track**: My Girlfriend Is A Raver - S3RL x LIDA
+**Track**: Jakka-B x Tatsunoshin - Someone To Forget (Radio Edit)
 
-Last updated at 12/17/2021 16:50
+Last updated at 12/17/2021 16:54
