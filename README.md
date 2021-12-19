@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmrWhlVoR1weNXfU-pJehkw-t500x500.jpg">](https://soundcloud.com/misogi/star-seeker-vol-1)
 
-**Artist**: KATEBI 
+**Artist**: MISOGI 
 
-**Track**: HEAVEN 2 (FULL STREAM)
+**Track**: STAR SEEKER VOL. 1
 
-Last updated at 12/19/2021 09:13
+Last updated at 12/19/2021 15:19
