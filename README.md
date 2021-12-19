@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/q0jeMkOB5VY/maxresdefault.jpg">](https://www.youtube.com/watch?v=q0jeMkOB5VY)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/E8gmARGvPlI/maxresdefault.jpg">](https://www.youtube.com/watch?v=E8gmARGvPlI)
 
-**Artist**: S3RL 
+**Artist**: Wham! 
 
-**Track**: S3RL Absolutely Presents...
+**Track**: Last Christmas (Official Video)
 
-Last updated at 12/19/2021 08:23
+Last updated at 12/19/2021 08:45
