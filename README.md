@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmrWhlVoR1weNXfU-pJehkw-t500x500.jpg">](https://soundcloud.com/misogi/star-seeker-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GACOpBPmTGXtMQ3J-X0RpTw-t500x500.jpg">](https://soundcloud.com/rolandjones/iced-out-vol-4)
 
-**Artist**: MISOGI 
+**Artist**: ROLAND JONES 
 
-**Track**: STAR SEEKER VOL. 1
+**Track**: ICED OUT VOL 4
 
-Last updated at 12/19/2021 15:19
+Last updated at 12/19/2021 15:20
