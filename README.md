@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/q0jeMkOB5VY/maxresdefault.jpg">](https://www.youtube.com/watch?v=q0jeMkOB5VY)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KrGd8AtMTODe4pKZ-3zOSoA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-i)
 
-**Artist**: S3RL 
+**Artist**: kushface ☤ 
 
-**Track**: S3RL Absolutely Presents...
+**Track**: MICHIGAN CLIPS I
 
-Last updated at 12/18/2021 17:48
+Last updated at 12/18/2021 18:09
