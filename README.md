@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/04ufimjXEbA/maxresdefault.jpg">](https://www.youtube.com/watch?v=04ufimjXEbA)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/E8gmARGvPlI/maxresdefault.jpg">](https://www.youtube.com/watch?v=E8gmARGvPlI)
 
-**Artist**: null 
+**Artist**: Wham! 
 
-**Track**: RL Grime - Core (Official Music Video)
+**Track**: Last Christmas (Official Video)
 
-Last updated at 12/19/2021 08:06
+Last updated at 12/19/2021 08:11
