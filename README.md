@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I77wbA1VGTZK7BnM-OtgGxA-t500x500.jpg">](https://soundcloud.com/1endie/whatareyouwaitingfor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
 
-**Artist**: endie 
+**Artist**: KATEBI 
 
-**Track**: what are you waiting for
+**Track**: HEAVEN 2 (FULL STREAM)
 
-Last updated at 12/18/2021 18:11
+Last updated at 12/18/2021 18:12
