@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X43c8g6ZRCpqxzOq-iatxNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/audiofreq-crypton-angel-eyez-audiophetamine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gk28SXzyKW20kyUc-MwWPNg-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-008)
 
-**Artist**: Dirty Workz 
+**Artist**: SABLE VALLEY 
 
-**Track**: Audiofreq & Crypton - Angel Eyez (Audiophetamine)
+**Track**: MiniMix 008: Deadcrow
 
-Last updated at 12/21/2021 10:42
+Last updated at 12/21/2021 12:01
