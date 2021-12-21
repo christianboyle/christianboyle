@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586926815-38axca-t500x500.jpg">](https://soundcloud.com/bbymarxoxo/y2k-fantasy-eriq-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxRCsVtAwa3ne4X5-E91OKQ-t500x500.jpg">](https://soundcloud.com/radiotemponaopara/narathip-18-12-2021)
 
-**Artist**: Marxoxo 
+**Artist**: Radio Tempo Não Pára 
 
-**Track**: Y2K Fantasy (eriq remix)
+**Track**: Narathip @ Radio TNP 18.12.2021
 
-Last updated at 12/21/2021 14:58
+Last updated at 12/21/2021 14:59
