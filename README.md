@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rFuwvsY4JNbRMm30-4H6uDQ-t500x500.jpg">](https://soundcloud.com/equinox-melbourne/equinox-invites-016-cltx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4degSLe5Xdiup5tj-75ibZw-t500x500.jpg">](https://soundcloud.com/tomorrowland/unreleased-with-austin-kramer-34-best-of-2021)
 
-**Artist**: EQUINOX Melbourne 
+**Artist**: Tomorrowland 
 
-**Track**: EQUINOX Invites 016 — CLTX
+**Track**: UNreleased With Austin Kramer #34 (Best Of 2021)
 
-Last updated at 12/21/2021 08:55
+Last updated at 12/21/2021 08:56
