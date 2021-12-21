@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GOkV07TqGcgVRmIj-j4JdSQ-t500x500.jpg">](https://soundcloud.com/poochofficial/christmas-ride-out-2021-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000586926815-38axca-t500x500.jpg">](https://soundcloud.com/bbymarxoxo/y2k-fantasy-eriq-remix)
 
-**Artist**: POOCH 
+**Artist**: Marxoxo 
 
-**Track**: Christmas In Florida (Ride Out)
+**Track**: Y2K Fantasy (eriq remix)
 
-Last updated at 12/21/2021 14:57
+Last updated at 12/21/2021 14:58
