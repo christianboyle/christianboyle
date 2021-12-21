@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ET4EmGbAinc7Ha6E-zyyPjw-t500x500.jpg">](https://soundcloud.com/gaul_music/gaulcast-xvii-skyblaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X43c8g6ZRCpqxzOq-iatxNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/audiofreq-crypton-angel-eyez-audiophetamine)
 
-**Artist**: GAUL 
+**Artist**: Dirty Workz 
 
-**Track**: GAULCAST XVII // Skyblaster
+**Track**: Audiofreq & Crypton - Angel Eyez (Audiophetamine)
 
-Last updated at 12/21/2021 09:06
+Last updated at 12/21/2021 10:42
