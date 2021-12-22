@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mo6Hc8dWf5ggjLYF-UowDOw-t500x500.jpg">](https://soundcloud.com/rebelscummusic/ruffneck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X43c8g6ZRCpqxzOq-iatxNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/audiofreq-crypton-angel-eyez-audiophetamine)
 
-**Artist**: Rebel Scum 
+**Artist**: Dirty Workz 
 
-**Track**: Skrillex - Ruffneck (Rebel Scum Remix)
+**Track**: Audiofreq & Crypton - Angel Eyez (Audiophetamine)
 
-Last updated at 12/22/2021 09:25
+Last updated at 12/22/2021 09:27
