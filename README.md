@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3nKyDy9n4XOxtJmQ-hRIZ5Q-t500x500.jpg">](https://soundcloud.com/nitepunk/skrillex-noisia-josh-pan-dylan-brady-supersonic-nitepunk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mo6Hc8dWf5ggjLYF-UowDOw-t500x500.jpg">](https://soundcloud.com/rebelscummusic/ruffneck)
 
-**Artist**: Nitepunk 
+**Artist**: Rebel Scum 
 
-**Track**: Skrillex, Noisia, josh pan & Dylan Brady - Supersonic (Nitepunk Remix)
+**Track**: Skrillex - Ruffneck (Rebel Scum Remix)
 
-Last updated at 12/21/2021 15:33
+Last updated at 12/22/2021 09:25
