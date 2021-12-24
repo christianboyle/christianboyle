@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KrGd8AtMTODe4pKZ-3zOSoA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nDhAyA8tFd2EKpN-YG1twQ-t500x500.jpg">](https://soundcloud.com/djbodegacat/i-got-standards)
 
-**Artist**: kushface ☤ 
+**Artist**: DJBodegaCat 
 
-**Track**: MICHIGAN CLIPS I
+**Track**: I GOT STANDARDS
 
-Last updated at 12/24/2021 11:20
+Last updated at 12/24/2021 15:17
