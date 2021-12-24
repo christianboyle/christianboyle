@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Opp5Xtr5aY3aAlIx-GnRgUA-t500x500.jpg">](https://soundcloud.com/allegedbeats/slappa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nDhAyA8tFd2EKpN-YG1twQ-t500x500.jpg">](https://soundcloud.com/djbodegacat/i-got-standards)
 
-**Artist**: ALLEGED 
+**Artist**: DJBodegaCat 
 
-**Track**: SLAPPA
+**Track**: I GOT STANDARDS
 
-Last updated at 12/24/2021 15:22
+Last updated at 12/24/2021 15:26
