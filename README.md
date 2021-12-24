@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Imejo5atmnYHVl5b-UUCKew-t500x500.jpg">](https://soundcloud.com/signal4976/porter-robinson-something-comforting-signal-bootleg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Var1U6Qy7zdDsTOr-DRlNpg-t500x500.jpg">](https://soundcloud.com/laburnum-records/3-amazing-blaze-club-mate-dica?in=laburnum-records/sets/amazingblaze-club-mate-ep-lbrnm07)
 
-**Artist**: Signal 
+**Artist**: LABURNŪM Records 
 
-**Track**: 『FREE』 Porter Robinson – Something Comforting ( Signal Bootleg Remix )
+**Track**: Amazing Blaze - Club Mate (DICA Remix)
 
-Last updated at 12/24/2021 15:20
+Last updated at 12/24/2021 15:21
