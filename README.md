@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Var1U6Qy7zdDsTOr-DRlNpg-t500x500.jpg">](https://soundcloud.com/laburnum-records/3-amazing-blaze-club-mate-dica?in=laburnum-records/sets/amazingblaze-club-mate-ep-lbrnm07)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Opp5Xtr5aY3aAlIx-GnRgUA-t500x500.jpg">](https://soundcloud.com/allegedbeats/slappa)
 
-**Artist**: LABURNŪM Records 
+**Artist**: ALLEGED 
 
-**Track**: Amazing Blaze - Club Mate (DICA Remix)
+**Track**: SLAPPA
 
-Last updated at 12/24/2021 15:21
+Last updated at 12/24/2021 15:22
