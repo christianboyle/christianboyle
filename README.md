@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNsIBEs2NVkhVgeh-YRYNBw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/internet-ft-kid-trash-alice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SWB7HVpvbtlU-0-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/spaceship)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: DRAKEO The Ruler 
 
-**Track**: INTERNET ft. KID TRASH & ALICE GAS [prod. SHYBURIAL x POPSTARBILLS x AHBSNT]
+**Track**: Spaceship
 
-Last updated at 12/25/2021 16:24
+Last updated at 12/25/2021 16:26
