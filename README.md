@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nDhAyA8tFd2EKpN-YG1twQ-t500x500.jpg">](https://soundcloud.com/djbodegacat/i-got-standards)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GSl5QywzdqyhIvzp-8yNbBg-t500x500.jpg">](https://soundcloud.com/frizofsoul/hello-goodbye)
 
-**Artist**: DJBodegaCat 
+**Artist**: 🕊 Friz of Soul 🕊 
 
-**Track**: I GOT STANDARDS
+**Track**: Friz Of Soul - Hello Goodbye
 
-Last updated at 12/24/2021 15:26
+Last updated at 12/24/2021 19:42
