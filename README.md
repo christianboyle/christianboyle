@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNsIBEs2NVkhVgeh-YRYNBw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/internet-ft-kid-trash-alice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nDhAyA8tFd2EKpN-YG1twQ-t500x500.jpg">](https://soundcloud.com/djbodegacat/i-got-standards)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: DJBodegaCat 
 
-**Track**: INTERNET ft. KID TRASH & ALICE GAS [prod. SHYBURIAL x POPSTARBILLS x AHBSNT]
+**Track**: I GOT STANDARDS
 
-Last updated at 12/25/2021 16:27
+Last updated at 12/25/2021 16:30
