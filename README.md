@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNsIBEs2NVkhVgeh-YRYNBw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/internet-ft-kid-trash-alice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKIXJZzgV5OewGBT-ynrnYQ-t500x500.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2021)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: HOLLY 
 
-**Track**: INTERNET ft. KID TRASH & ALICE GAS [prod. SHYBURIAL x POPSTARBILLS x AHBSNT]
+**Track**: ileX-MAS Mix 2021
 
-Last updated at 12/25/2021 15:26
+Last updated at 12/25/2021 15:27
