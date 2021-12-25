@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nDhAyA8tFd2EKpN-YG1twQ-t500x500.jpg">](https://soundcloud.com/djbodegacat/i-got-standards)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w0xhGJdyuxpRJgOw-vuWrUQ-t500x500.jpg">](https://soundcloud.com/luvlxckdownarchive/nori-ihateithere-ft-luvlxckdown-prod-nori)
 
-**Artist**: DJBodegaCat 
+**Artist**: luvlxckdown archive 
 
-**Track**: I GOT STANDARDS
+**Track**: nori - ihateithere ft. luvlxckdown (prod. nori)
 
-Last updated at 12/25/2021 16:30
+Last updated at 12/25/2021 16:39
