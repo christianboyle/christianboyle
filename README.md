@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOmTCJLQk3FanRlj-gVALJw-t500x500.jpg">](https://soundcloud.com/nc4k/could-you-give-me-an-hour-vol4-stones-taro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1KqrTRgtR4E4zKHM-EOXryg-t500x500.png">](https://soundcloud.com/rinsefm/seltron400271221)
 
-**Artist**: NC4K 
+**Artist**: Rinse FM 
 
-**Track**: Could You Give Me An Hour? Vol.4 Stones Taro
+**Track**: Seltron 400 - 27 December 2021
 
-Last updated at 12/28/2021 09:34
+Last updated at 12/28/2021 09:35
