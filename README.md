@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9biJ2SpRS3KHo52-kSq6yg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/denza-sometimes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqLLwAyoGZxhUtkY-qw31mw-t500x500.jpg">](https://soundcloud.com/supbox/wassup-2-full-stream)
 
-**Artist**: Dirty Workz 
+**Artist**: SUPBOX 
 
-**Track**: Denza - Sometimes
+**Track**: WASSUP 2 [FULL STREAM]
 
-Last updated at 12/28/2021 09:24
+Last updated at 12/28/2021 09:26
