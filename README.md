@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEpYUq8ayJdLGWUE-r6WCYg-t500x500.jpg">](https://soundcloud.com/dossyx/language)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5o1AV32ycwYgX7y-mX4ZjA-t500x500.jpg">](https://soundcloud.com/focussofficial/acraze-do-it-to-it-focuss-remix-final)
 
-**Artist**: DossyX 
+**Artist**: FOCUSS 
 
-**Track**: PORTER ROBINSON - LANGUAGE (EDIT)
+**Track**: Acraze - Do It To It (FOCUSS Remix)
 
-Last updated at 12/28/2021 09:32
+Last updated at 12/28/2021 09:33
