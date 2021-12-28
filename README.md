@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNsIBEs2NVkhVgeh-YRYNBw-t500x500.jpg">](https://soundcloud.com/bigbillsondeck/internet-ft-kid-trash-alice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQ0vT5BZqhTAUi2s-uzUvWQ-t500x500.jpg">](https://soundcloud.com/playmerecords/bliniks-flash-in-time)
 
-**Artist**: POPSTARBILLS 💫 
+**Artist**: Play Me Records 
 
-**Track**: INTERNET ft. KID TRASH & ALICE GAS [prod. SHYBURIAL x POPSTARBILLS x AHBSNT]
+**Track**: Bliniks - Flash In Time
 
-Last updated at 12/27/2021 19:32
+Last updated at 12/28/2021 09:23
