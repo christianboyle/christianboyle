@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thZg6tSMczduBBpF-99cGow-t500x500.jpg">](https://soundcloud.com/ricandatkid/blame-on-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EI6MLtyzHMJsT4xL-AY28Gg-t500x500.jpg">](https://soundcloud.com/blackb0und/december-iv-full-tape)
 
-**Artist**: Rican Dat Kid 
+**Artist**: BlackBound 黒 
 
-**Track**: Blame on you
+**Track**: December IV (Full Tape)
 
-Last updated at 12/28/2021 09:29
+Last updated at 12/28/2021 09:30
