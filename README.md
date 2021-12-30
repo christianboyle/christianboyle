@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TREJ8Akl1WRwzYtq-rH2UYg-t500x500.jpg">](https://soundcloud.com/timrausch/music-sounds-better-with-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOtYpzsYprKNmidT-74Slhg-t500x500.jpg">](https://soundcloud.com/balamii/resolution-radio-w-bruised-skies-december-2021)
 
-**Artist**: Tim Rausch 
+**Artist**: Balamii 
 
-**Track**: LUAP & Tim Rausch - Music Sounds Better With You
+**Track**: Resolution Radio w/ Bruised Skies  - December 2021
 
-Last updated at 12/30/2021 14:49
+Last updated at 12/30/2021 14:50
