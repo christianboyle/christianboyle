@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9NSmiDzEN4ewIUb-qz3yTg-t500x500.jpg">](https://soundcloud.com/defalttt/hollow-sunrise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TREJ8Akl1WRwzYtq-rH2UYg-t500x500.jpg">](https://soundcloud.com/timrausch/music-sounds-better-with-you)
 
-**Artist**: Defalt 
+**Artist**: Tim Rausch 
 
-**Track**: HOLLOW SUNRISE
+**Track**: LUAP & Tim Rausch - Music Sounds Better With You
 
-Last updated at 12/30/2021 14:48
+Last updated at 12/30/2021 14:49
