@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/Vwk2jRd4HrU/maxresdefault.jpg">](https://www.youtube.com/watch?v=Vwk2jRd4HrU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SdrPaXNlDM7nmeu-MojByw-t500x500.jpg">](https://soundcloud.com/shanghaidoom/shanghai-doom-rave-whistle)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: Shanghai Doom 
 
-**Track**: LONG LIVE THE GREAT TOUR DAY 7 || VENTURA, CA.
+**Track**: Shanghai Doom - Rave Whistle
 
-Last updated at 12/30/2021 10:21
+Last updated at 12/30/2021 14:03
