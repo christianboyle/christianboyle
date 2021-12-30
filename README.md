@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-907myTWNm4yLpE3e-bO9zCQ-t500x500.jpg">](https://soundcloud.com/daholymane/get-ya-dope-vol1-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7o0zmJNinuIsSZO-N5tH9w-t500x500.jpg">](https://soundcloud.com/rivalzmusicc/coone-ft-david-spekter-faye-rivalz-flip)
 
-**Artist**: HOLYMANE 
+**Artist**: Rivalz 
 
-**Track**: GET YA DOPE VOL1 (FULL STREAM)
+**Track**: Coone ft. David Spekter - Faye (Rivalz Flip)
 
-Last updated at 12/30/2021 14:06
+Last updated at 12/30/2021 14:07
