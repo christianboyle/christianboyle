@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pv7gl7VbWDIT5FgE-0ZhFqA-t500x500.png">](https://soundcloud.com/rinsefm/bramehamo271221)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Vwk2jRd4HrU/maxresdefault.jpg">](https://www.youtube.com/watch?v=Vwk2jRd4HrU)
 
-**Artist**: Rinse FM 
+**Artist**: Drakeo the Ruler 
 
-**Track**: Brame & Hamo - 27 December 2021
+**Track**: LONG LIVE THE GREAT DAY 3 || SAN DIEGO, CA
 
-Last updated at 12/28/2021 09:36
+Last updated at 12/30/2021 09:28
