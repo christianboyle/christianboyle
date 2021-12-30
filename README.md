@@ -4,6 +4,6 @@
 
 **Artist**: Drakeo the Ruler 
 
-**Track**: LONG LIVE THE GREAT TOUR DAY 4 || SANTA ANA, CA.
+**Track**: LONG LIVE THE GREAT TOUR DAY 5 || SAN FRANCISCO, CA
 
-Last updated at 12/30/2021 09:54
+Last updated at 12/30/2021 09:56
