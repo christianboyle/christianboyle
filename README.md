@@ -4,6 +4,6 @@
 
 **Artist**: Drakeo the Ruler 
 
-**Track**: LONG LIVE THE GREAT TOUR DAY 6 || SANTA CRUZ, CA.
+**Track**: LONG LIVE THE GREAT TOUR DAY 7 || VENTURA, CA.
 
-Last updated at 12/30/2021 10:13
+Last updated at 12/30/2021 10:21
