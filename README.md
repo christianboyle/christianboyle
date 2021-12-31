@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PX3N4Vcy2hvbJucH-aYOWrg-t500x500.jpg">](https://soundcloud.com/iamdecoder/expeditious)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/ojDvWrMwjX4/maxresdefault.jpg">](https://www.youtube.com/watch?v=ojDvWrMwjX4)
 
-**Artist**: Decoder 
+**Artist**: It’s Remble 
 
-**Track**: Expeditious
+**Track**: Remble - Rocc Climbing (feat. Lil Yachty) [Official Music Video]
 
-Last updated at 12/30/2021 14:55
+Last updated at 12/31/2021 15:19
