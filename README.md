@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tz3iTpuWvgGRfkh3-mZQCnA-t500x500.jpg">](https://soundcloud.com/etller/etller-dj-ikea-canada-headaya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSiUh7zMwS23lne2-qu6W2A-t500x500.jpg">](https://soundcloud.com/twikipedia/hard-headed)
 
-**Artist**: Etller 
+**Artist**: twikipedia 
 
-**Track**: ETLLER & DJ IKEA CANADA - Headaya
+**Track**: hard headed 🧱
 
-Last updated at 01/01/2022 12:12
+Last updated at 01/01/2022 12:16
