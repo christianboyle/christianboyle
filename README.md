@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CP6NOykO7y5yXE0-eXIjFw-t500x500.jpg">](https://soundcloud.com/lodge_boy/aespa-next-level-lodge-boy-bootleg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBzgAYfWPSgui8ni-jz2M5Q-t500x500.jpg">](https://soundcloud.com/necroez/cold-as-me-w-cutspace)
 
-**Artist**: Lodge Boy 
+**Artist**: NECROEZ 
 
-**Track**: aespa - Next Level (Lodge Boy Bootleg Remix)
+**Track**: COLD AS ME w/ CUTSPACE
 
-Last updated at 01/01/2022 08:14
+Last updated at 01/01/2022 08:15
