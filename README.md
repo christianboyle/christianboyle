@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBzgAYfWPSgui8ni-jz2M5Q-t500x500.jpg">](https://soundcloud.com/necroez/cold-as-me-w-cutspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7rQzVNRMEI9PoTa-uS1z5A-t500x500.jpg">](https://soundcloud.com/agostoney/collusion)
 
-**Artist**: NECROEZ 
+**Artist**: AGO$TONEY° 
 
-**Track**: COLD AS ME w/ CUTSPACE
+**Track**: COLLUSION
 
-Last updated at 01/01/2022 08:15
+Last updated at 01/01/2022 08:17
