@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rP7JcXQWlMdzXAXt-WaHk9g-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/long-live-the-greatest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F8Iqpybz5HgGWOjZ-wiIc2w-t500x500.jpg">](https://soundcloud.com/stincteam/remble-freestyle)
 
-**Artist**: DRAKEO The Ruler 
+**Artist**: MurrdaMellz 
 
-**Track**: Long Live The Greatest
+**Track**: remble freestyle ..
 
-Last updated at 01/01/2022 14:17
+Last updated at 01/01/2022 14:18
