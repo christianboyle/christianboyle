@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSiUh7zMwS23lne2-qu6W2A-t500x500.jpg">](https://soundcloud.com/twikipedia/hard-headed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PX3N4Vcy2hvbJucH-aYOWrg-t500x500.jpg">](https://soundcloud.com/iamdecoder/expeditious)
 
-**Artist**: twikipedia 
+**Artist**: Decoder 
 
-**Track**: hard headed 🧱
+**Track**: Expeditious
 
-Last updated at 01/01/2022 12:16
+Last updated at 01/01/2022 12:19
