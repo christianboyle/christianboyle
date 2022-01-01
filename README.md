@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7rQzVNRMEI9PoTa-uS1z5A-t500x500.jpg">](https://soundcloud.com/agostoney/collusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxFPtuSyai11b6o-PYUHwQ-t500x500.jpg">](https://soundcloud.com/ryanleahan/2c-poptropicaslutz-kimj-rmx?in=ryanleahan/sets/spark-remix-album)
 
-**Artist**: AGO$TONEY° 
+**Artist**: Ryan Leahan 
 
-**Track**: COLLUSION
+**Track**: +++2c [poptropicaslutz! + kimj rmx]
 
-Last updated at 01/01/2022 08:17
+Last updated at 01/01/2022 08:18
