@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ojDvWrMwjX4/maxresdefault.jpg">](https://www.youtube.com/watch?v=ojDvWrMwjX4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-unnW3y1WeDV02Ijg-zW9FTw-t500x500.jpg">](https://soundcloud.com/thebeamon/forbidden)
 
-**Artist**: It’s Remble 
+**Artist**: BEAMON 
 
-**Track**: Remble - Rocc Climbing (feat. Lil Yachty) [Official Music Video]
+**Track**: BEAMON - The Forbidden One (produced by illstrumentals)
 
-Last updated at 12/31/2021 15:19
+Last updated at 01/01/2022 08:11
