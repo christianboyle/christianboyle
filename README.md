@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7TH3ORlawFzHkf8W-5eswzw-t500x500.jpg">](https://soundcloud.com/blackb0und/northside-knotty-wfauxessinner-circle-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEzVpR02vHXLLwt0-VLiyNg-t500x500.jpg">](https://soundcloud.com/sinbeatzz/direct)
 
-**Artist**: BlackBound 黒 
+**Artist**: sin 
 
-**Track**: Northside Knotty w/fauxes(Sinner Circle Vol. 2)
+**Track**: Direct
 
-Last updated at 01/01/2022 08:20
+Last updated at 01/01/2022 08:28
