@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEzVpR02vHXLLwt0-VLiyNg-t500x500.jpg">](https://soundcloud.com/sinbeatzz/direct)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmGuPDKRENcaqHzQ-x7auWA-t500x500.jpg">](https://soundcloud.com/3treflip/gloom)
 
-**Artist**: sin 
+**Artist**: TRE FLIP 
 
-**Track**: Direct
+**Track**: GLOOM
 
-Last updated at 01/01/2022 08:28
+Last updated at 01/01/2022 09:31
