@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-unnW3y1WeDV02Ijg-zW9FTw-t500x500.jpg">](https://soundcloud.com/thebeamon/forbidden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9H2Ce6nVQb8h5cq-y6rwvA-t500x500.jpg">](https://soundcloud.com/listen25/scrilla-boyz)
 
-**Artist**: BEAMON 
+**Artist**: SIR YOGI 
 
-**Track**: BEAMON - The Forbidden One (produced by illstrumentals)
+**Track**: SCRILLA BOYZ
 
-Last updated at 01/01/2022 08:11
+Last updated at 01/01/2022 08:12
