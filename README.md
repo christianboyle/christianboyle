@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kPXsQwr3DB6ucyfn-MlDkPg-t500x500.jpg">](https://soundcloud.com/hooligan_als/boof-pacc-beattape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfEoLmCmqmjLzBUB-Wb00xA-t500x500.jpg">](https://soundcloud.com/kittynxc/call-me-22)
 
-**Artist**: Hooligan 
+**Artist**: kittynxc 
 
-**Track**: Boof Pacc [Beattape]
+**Track**: Call Me 22
 
-Last updated at 01/02/2022 11:03
+Last updated at 01/02/2022 11:04
