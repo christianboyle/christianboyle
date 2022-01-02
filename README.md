@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OdFiFa5mZLfP7t7j-QN50Aw-t500x500.jpg">](https://soundcloud.com/defineeverythingfuture/canvas-live-set-def-the-boiler)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RALMHyest9Pazc5Q-nIAMzA-t500x500.jpg">](https://soundcloud.com/yungsmartrider/tree-of-life)
 
-**Artist**: DEF 
+**Artist**: YUNG SMARTRIDER 
 
-**Track**: CANVAS (LIVE SET) @ DEF: THE BOILER
+**Track**: TREE OF LIFE | (FULL STREAM)
 
-Last updated at 01/02/2022 12:29
+Last updated at 01/02/2022 13:25
