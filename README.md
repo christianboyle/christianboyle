@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfEoLmCmqmjLzBUB-Wb00xA-t500x500.jpg">](https://soundcloud.com/kittynxc/call-me-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OUTxQagO3S6czlBo-KqfzXg-t500x500.jpg">](https://soundcloud.com/noirsurblancrecords/zdx-ice-cold)
 
-**Artist**: kittynxc 
+**Artist**: noir sur blanc 
 
-**Track**: Call Me 22
+**Track**: ZDX - Ice Cold
 
-Last updated at 01/02/2022 11:04
+Last updated at 01/02/2022 11:05
