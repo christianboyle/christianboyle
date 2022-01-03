@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9H2Ce6nVQb8h5cq-y6rwvA-t500x500.jpg">](https://soundcloud.com/listen25/scrilla-boyz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000264013856-jl6u5t-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/big-banc-uchies-prod-bruce?in=drakeo-the-ruler/sets/cold-devil-1)
 
-**Artist**: SIR YOGI 
+**Artist**: DRAKEO The Ruler 
 
-**Track**: SCRILLA BOYZ
+**Track**: Big Banc Uchies (Prod. Bruce24k)
 
-Last updated at 01/03/2022 09:26
+Last updated at 01/03/2022 09:49
