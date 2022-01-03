@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339116-n5nmpp-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/fools-gold?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339002-a4p638-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/bullet-proof-ft-bambino?in=drakeo-the-ruler/sets/cold-devil-1)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: Fools Gold (Prod Lil Laudiano)
+**Track**: Bullet Proof Ft. Bambino
 
-Last updated at 01/03/2022 11:07
+Last updated at 01/03/2022 11:09
