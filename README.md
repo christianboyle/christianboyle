@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AKedOLQ7A-cX04iTPkSMX65-YeGbl9uFUSP-b6btMtHK4Q=s900-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UCNNTZgxNQuBrhbO0VrG8woA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339179-48c48h-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/neiman-marcus-dont-know-you?in=drakeo-the-ruler/sets/cold-devil-1)
 
-**Artist**: 
-  
-    No Jumper
-  
-  
-  
-    No Jumper
-  
+**Artist**: DRAKEO The Ruler 
 
+**Track**: Neiman & Marcus Dont Know You
 
-
-
-  
-    
-    
-  
-  Verified
-
-
-
-
- 
-
-**Track**: OhGeesy - WHO ELSE (feat. BlueBucksClan) [Official Music Video]
-
-Last updated at 01/03/2022 10:06
+Last updated at 01/03/2022 11:06
