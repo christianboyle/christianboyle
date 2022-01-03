@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXdCCzhNF4Q8xSdL-idUOPg-t500x500.jpg">](https://soundcloud.com/gloomysounds/night-bloom-exodusk-gl00my-remix-fnl-mstr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X08yyWgMf519nl7E-ZniyPg-t500x500.jpg">](https://soundcloud.com/digitalraveboy/bladee-god-omicron-variant-9d-audio-3hz-delta-waves)
 
-**Artist**: gl00my 
+**Artist**: digital rave boy 
 
-**Track**: Night Bloom - Exodusk (gl00my Remix)
+**Track**: Bladee - God [Omicron Variant // 9D AUDIO] 3Hz Delta Waves
 
-Last updated at 01/03/2022 09:21
+Last updated at 01/03/2022 09:22
