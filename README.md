@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3IhZtzKV3DZralo-hrKOTA-t500x500.jpg">](https://soundcloud.com/jupiluxe/talkin-the-nada-prod-omar-duro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RALMHyest9Pazc5Q-nIAMzA-t500x500.jpg">](https://soundcloud.com/yungsmartrider/tree-of-life)
 
-**Artist**: ★ JUPILUXE ★ 
+**Artist**: YUNG SMARTRIDER 
 
-**Track**: Talkin The Nada (Prod. Omar Duro)
+**Track**: TREE OF LIFE | (FULL STREAM)
 
-Last updated at 01/03/2022 08:41
+Last updated at 01/03/2022 08:43
