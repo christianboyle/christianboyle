@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1xnQHsPSezfrWE0y-dR1qZw-t500x500.jpg">](https://soundcloud.com/sha_dow7/zevia-if-depression-gets-the-best-of-me-shadow-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXdCCzhNF4Q8xSdL-idUOPg-t500x500.jpg">](https://soundcloud.com/gloomysounds/night-bloom-exodusk-gl00my-remix-fnl-mstr)
 
-**Artist**: Shadow 
+**Artist**: gl00my 
 
-**Track**: Zevia - If Depression Gets The Best Of Me (Shadow Remix)
+**Track**: Night Bloom - Exodusk (gl00my Remix)
 
-Last updated at 01/03/2022 09:18
+Last updated at 01/03/2022 09:21
