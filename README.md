@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GGzIxzZzVgr-0-t500x500.jpg">](https://soundcloud.com/ohgeesymusic/big-bad-wolf-feat-yg?in=ohgeesymusic/sets/geezyworld-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NIH2L82ThIJq-0-t500x500.jpg">](https://soundcloud.com/shorelinemafia/lurkin?in=shorelinemafia/sets/mafia-bidness-deluxe)
 
-**Artist**: OHGEESY 
+**Artist**: SHORELINE MAFIA 
 
-**Track**: Big Bad Wolf (feat. YG)
+**Track**: Lurkin
 
-Last updated at 01/03/2022 19:28
+Last updated at 01/03/2022 19:29
