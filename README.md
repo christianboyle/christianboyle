@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T9JoWQPaC5kx-0-t500x500.jpg">](https://soundcloud.com/shorelinemafia/traplantic)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/dgnAbn2Voy8/hqdefault.jpg">](https://www.youtube.com/watch?v=dgnAbn2Voy8)
 
-**Artist**: SHORELINE MAFIA 
+**Artist**: Shoreline Mafia 
 
-**Track**: Traplantic
+**Track**: Shoreline Mafia (Rob Vicious) - Traplantic [Official Music Video]
 
-Last updated at 01/03/2022 19:30
+Last updated at 01/03/2022 19:31
