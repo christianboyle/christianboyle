@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0qlZmNBylWINJW4-bKVICg-t500x500.jpg">](https://soundcloud.com/tentun/tenners-tentun-hardcore-stomp-show-100-kool-london-301221)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmnzAW5eJ5fDNpVT-CRH8WA-t500x500.jpg">](https://soundcloud.com/jakka-b/kr033)
 
-**Artist**: TenTun 
+**Artist**: Jakka-B 
 
-**Track**: Tenners TenTun-Hardcore Stomp Show #100-Kool London-30/12/21
+**Track**: Kontrast Radio #033
 
-Last updated at 01/04/2022 12:13
+Last updated at 01/04/2022 12:14
