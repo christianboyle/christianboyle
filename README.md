@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cXkO6UNB0eF9nK6l-Y9KpgQ-t500x500.jpg">](https://soundcloud.com/nazaarmusic/withu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zd4FXNtICGFX1OYx-8LvifQ-t500x500.jpg">](https://soundcloud.com/dj-sharaz/sharaz-sunshine-state-downloadable)
 
-**Artist**: NAZAAR 
+**Artist**: DJ Sharaz 
 
-**Track**: NAZAAR - WITH U
+**Track**: Sharaz - Sunshine State (Downloadable)
 
-Last updated at 01/04/2022 12:10
+Last updated at 01/04/2022 12:11
