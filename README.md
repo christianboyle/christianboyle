@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTQP2nbRCQUaWkOr-TzcuMg-t500x500.jpg">](https://soundcloud.com/djthankyou311/inside-the-house-volume-i-3262020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GGzIxzZzVgr-0-t500x500.jpg">](https://soundcloud.com/ohgeesymusic/big-bad-wolf-feat-yg?in=ohgeesymusic/sets/geezyworld-1)
 
-**Artist**: DJ Thank You 
+**Artist**: OHGEESY 
 
-**Track**: Inside the House (Volume I - 3/26/2020)
+**Track**: Big Bad Wolf (feat. YG)
 
-Last updated at 01/03/2022 15:10
+Last updated at 01/03/2022 19:28
