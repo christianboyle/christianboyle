@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/eS4e4b27-NE/hqdefault.jpg">](https://www.youtube.com/watch?v=eS4e4b27-NE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmnzAW5eJ5fDNpVT-CRH8WA-t500x500.jpg">](https://soundcloud.com/jakka-b/kr033)
 
-**Artist**: Shoreline Mafia 
+**Artist**: Jakka-B 
 
-**Track**: Change Ya Life [Official Music Video]
+**Track**: Kontrast Radio #033
 
-Last updated at 01/03/2022 19:45
+Last updated at 01/04/2022 09:44
