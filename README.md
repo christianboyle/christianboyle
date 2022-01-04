@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zd4FXNtICGFX1OYx-8LvifQ-t500x500.jpg">](https://soundcloud.com/dj-sharaz/sharaz-sunshine-state-downloadable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zstQURuxRTAKM6lk-1Ih5LQ-t500x500.jpg">](https://soundcloud.com/sirkyenn/freekrueger-starkey)
 
-**Artist**: DJ Sharaz 
+**Artist**: kyenn 
 
-**Track**: Sharaz - Sunshine State (Downloadable)
+**Track**: #freekrueger ⇝ starkey
 
-Last updated at 01/04/2022 12:11
+Last updated at 01/04/2022 12:12
