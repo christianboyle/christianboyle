@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/eS4e4b27-NE/hqdefault.jpg">](https://www.youtube.com/watch?v=eS4e4b27-NE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000646136521-rjsr09-t500x500.jpg">](https://soundcloud.com/livefromearth/lfeklub-podcast-tranceman2000-15)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: Live From Earth Klub 
 
-**Track**: Drakeo The Ruler ft $tupid Young   “Lil Boosie” Shot by @LewisYouNasty [Official Music Video]
+**Track**: LFE–KLUB mix w/ TRANCEMAN2000 (15)
 
-Last updated at 01/05/2022 14:43
+Last updated at 01/05/2022 16:05
