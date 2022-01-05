@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000646136521-rjsr09-t500x500.jpg">](https://soundcloud.com/livefromearth/lfeklub-podcast-tranceman2000-15)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/dgnAbn2Voy8/hqdefault.jpg">](https://www.youtube.com/watch?v=dgnAbn2Voy8)
 
-**Artist**: Live From Earth Klub 
+**Artist**: Shoreline Mafia 
 
-**Track**: LFE–KLUB mix w/ TRANCEMAN2000 (15)
+**Track**: Shoreline Mafia (Rob Vicious) - Traplantic [Official Music Video]
 
-Last updated at 01/05/2022 13:04
+Last updated at 01/05/2022 14:35
