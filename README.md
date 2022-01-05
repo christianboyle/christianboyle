@@ -4,6 +4,6 @@
 
 **Artist**: Drakeo the Ruler 
 
-**Track**: IngleWEIRD #LLKTG
+**Track**: Drakeo The Ruler ft $tupid Young   “Lil Boosie” Shot by @LewisYouNasty [Official Music Video]
 
-Last updated at 01/05/2022 14:41
+Last updated at 01/05/2022 14:43
