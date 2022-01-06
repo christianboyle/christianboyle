@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPX41q9ltyXK2zeL-76Qk1g-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-kamikaze-feel-my-nrg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4eidiyNNReiyhaGW-JMaejA-t500x500.jpg">](https://soundcloud.com/stizzzy/pollution)
 
-**Artist**: M-Project 
+**Artist**: Stizzzyyy 
 
-**Track**: M-Project & Kamikaze - Feel My NRG
+**Track**: pollution
 
-Last updated at 01/06/2022 13:12
+Last updated at 01/06/2022 13:13
