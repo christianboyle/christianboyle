@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TzMifkasygYbHolP-HtWoYQ-t500x500.jpg">](https://soundcloud.com/boris-valdman/03-tranceman2000-hector-play?in=boris-valdman/sets/tranceman2000-cheese-police)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578444480-wakuey-t500x500.jpg">](https://soundcloud.com/fallingapartrecords/fa008)
 
-**Artist**: mghead 
+**Artist**: 𝖋𝖆𝖑𝖑𝖎𝖓𝖌 𝖆𝖕𝖆𝖗𝖙 
 
-**Track**: 03. TRANCEMAN2000 - Hector Play My Record!
+**Track**: 008 | Toni Moralez - NAWTY TRAX 2
 
-Last updated at 01/06/2022 12:34
+Last updated at 01/06/2022 12:35
