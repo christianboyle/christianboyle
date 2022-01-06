@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000646136521-rjsr09-t500x500.jpg">](https://soundcloud.com/livefromearth/lfeklub-podcast-tranceman2000-15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TzMifkasygYbHolP-HtWoYQ-t500x500.jpg">](https://soundcloud.com/boris-valdman/03-tranceman2000-hector-play?in=boris-valdman/sets/tranceman2000-cheese-police)
 
-**Artist**: Live From Earth Klub 
+**Artist**: mghead 
 
-**Track**: LFE–KLUB mix w/ TRANCEMAN2000 (15)
+**Track**: 03. TRANCEMAN2000 - Hector Play My Record!
 
-Last updated at 01/05/2022 16:05
+Last updated at 01/06/2022 12:34
