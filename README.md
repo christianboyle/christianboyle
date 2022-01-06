@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyKIc9PbYOlRhUoc-segndA-t500x500.jpg">](https://soundcloud.com/therealhojo/chop-n-screw)
 
-**Artist**: RYAN Playground 
+**Artist**: Hojo 
 
-**Track**: Better Off Alone (No_4mat Beach Rave Remix)
+**Track**: '夢中夢' Chop n Screw
 
-Last updated at 01/06/2022 12:43
+Last updated at 01/06/2022 12:45
