@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvVuo2O8SKN0hAH3-VJGIIQ-t500x500.jpg">](https://soundcloud.com/girl_irl/goodnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AHGiWPFt7JFRoszP-FSTthw-t500x500.jpg">](https://soundcloud.com/judgementg/kushface-x-judgement-g-white-cup)
 
-**Artist**: Girl_irl 
+**Artist**: Judgement G 
 
-**Track**: goodnight!!!
+**Track**: KUSHFACE ☤ X JUDGEMENT G - WHITE CUP
 
-Last updated at 01/06/2022 13:10
+Last updated at 01/06/2022 13:11
