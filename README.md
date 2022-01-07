@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/CSnbH2Gbpow/hqdefault.jpg">](https://www.youtube.com/watch?v=CSnbH2Gbpow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dx1omAvChbBT6CUA-fTNXBA-t500x500.jpg">](https://soundcloud.com/loudkult/93alekk-lipoov-airport-lounge)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: LoudKult 
 
-**Track**: 300 RACCS  [Official Music Video] prod by @Laudiano
+**Track**: 93Alekk, Lipoov - Airport Lounge
 
-Last updated at 01/07/2022 08:27
+Last updated at 01/07/2022 08:41
