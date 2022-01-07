@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000646136521-rjsr09-t500x500.jpg">](https://soundcloud.com/livefromearth/lfeklub-podcast-tranceman2000-15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKFvkjv2fDhb-0-t500x500.jpg">](https://soundcloud.com/nct127official/sticker-will-not-fear-remix)
 
-**Artist**: Live From Earth Klub 
+**Artist**: NCT 127 
 
-**Track**: LFE–KLUB mix w/ TRANCEMAN2000 (15)
+**Track**: Sticker (Will Not Fear Remix)
 
-Last updated at 01/07/2022 11:52
+Last updated at 01/07/2022 12:04
