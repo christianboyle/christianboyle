@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YG2uey5y97Q9t2S-j0lrhg-t500x500.jpg">](https://soundcloud.com/soulseekersallowance/004-spray)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/mQ055hHdxbE/maxresdefault.jpg">](https://www.youtube.com/watch?v=mQ055hHdxbE)
 
-**Artist**: SOULSEEKERS ALLOWANCE 
+**Artist**: John Mayer 
 
-**Track**: 004 - SPRAY
+**Track**: New Light (Premium Content!)
 
-Last updated at 01/07/2022 08:47
+Last updated at 01/07/2022 10:35
