@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Q17PYEb6yaiyIPi-kbHyFQ-t500x500.jpg">](https://soundcloud.com/inerate-techno/like-a-g6-inerates-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
 
-**Artist**: INERATE 
+**Artist**: RYAN Playground 
 
-**Track**: Like A G6 (Inerate's Rave Edit)
+**Track**: Better Off Alone (No_4mat Beach Rave Remix)
 
-Last updated at 01/07/2022 12:07
+Last updated at 01/07/2022 12:13
