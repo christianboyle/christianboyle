@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZV5b1KsrpcSstnEY-4zBEqQ-t500x500.jpg">](https://soundcloud.com/klustercollectif/la-bouche-sweet-dreams-mskd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKFvkjv2fDhb-0-t500x500.jpg">](https://soundcloud.com/nct127official/sticker-will-not-fear-remix)
 
-**Artist**: KLUSTER 
+**Artist**: NCT 127 
 
-**Track**: La Bouche | Sweet Dreams (MSKD Church Edit)
+**Track**: Sticker (Will Not Fear Remix)
 
-Last updated at 01/07/2022 11:23
+Last updated at 01/07/2022 11:29
