@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8OAhD6Dd7QKnKKnY-vQkwqw-t500x500.jpg">](https://soundcloud.com/subsidia/alex-cortez-the-waves-better-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mpd6ge17f4iOSA4b-zvltGQ-t500x500.jpg">](https://soundcloud.com/telykast/somebodynew)
 
-**Artist**: Subsidia 
+**Artist**: TELYKast 
 
-**Track**: Alex Cortes & The Wavez - Better Now ft. Dianna
+**Track**: TELYKast - Somebody New
 
-Last updated at 01/08/2022 11:03
+Last updated at 01/08/2022 11:04
