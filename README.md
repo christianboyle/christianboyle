@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/stay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sDL2avocNJvnlkhh-IGpB6g-t500x500.jpg">](https://soundcloud.com/paulineherr/pauline-herr-x-brownies-lemonade)
 
-**Artist**: Juelz 
+**Artist**: Pauline Herr 
 
-**Track**: Justin Bieber, The Kid LAROI - Stay (Juelz Remix)
+**Track**: PAULINE HERR @ BROWNIES & LEMONADE OPEN AUX 1/30/21
 
-Last updated at 01/08/2022 15:27
+Last updated at 01/08/2022 15:28
