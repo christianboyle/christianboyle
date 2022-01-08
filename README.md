@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TA30AT7yaybW6AzH-zz78vw-t500x500.jpg">](https://soundcloud.com/fresh22stuff/neo-future?in=fresh22stuff/sets/release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4sxhb7lIMIowJeUv-tMpJEA-t500x500.jpg">](https://soundcloud.com/cartoonben/give-my-remains-to-broadway-obelisk?in=cartoonben/sets/beyond-the-gates-of-xouztoth-ep)
 
-**Artist**: FRESH STUFF 
+**Artist**: cartoon ben 
 
-**Track**: NEO FUTURE
+**Track**: Give My Remains to Broadway - Obelisk
 
-Last updated at 01/08/2022 10:58
+Last updated at 01/08/2022 10:59
