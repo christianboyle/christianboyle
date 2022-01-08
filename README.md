@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mpd6ge17f4iOSA4b-zvltGQ-t500x500.jpg">](https://soundcloud.com/telykast/somebodynew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EqblQymbFdYMunkr-8RYOIw-t500x500.jpg">](https://soundcloud.com/liljosen/za-official-zaza-anthem)
 
-**Artist**: TELYKast 
+**Artist**: Josen 
 
-**Track**: TELYKast - Somebody New
+**Track**: ZA // OFFICIAL ZAZA ANTHEM [PRODTFXSTARBOYROB]
 
-Last updated at 01/08/2022 11:04
+Last updated at 01/08/2022 15:25
