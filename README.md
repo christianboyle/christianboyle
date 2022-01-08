@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5HH5tlmDly9lUMd-NZ0UXA-t500x500.jpg">](https://soundcloud.com/slendermanee/ice-castle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/stay)
 
-**Artist**: slender 
+**Artist**: Juelz 
 
-**Track**: ICE CASTLE
+**Track**: Justin Bieber, The Kid LAROI - Stay (Juelz Remix)
 
-Last updated at 01/08/2022 15:26
+Last updated at 01/08/2022 15:27
