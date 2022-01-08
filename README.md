@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3NWOfBdZpi7sVpMm-uvPaYA-t500x500.jpg">](https://soundcloud.com/t0rr/selfdestruct)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZgyBXx0ogDYuiyA-zz7mFg-t500x500.jpg">](https://soundcloud.com/immnnt/sudoverse-nrg)
 
-**Artist**: torr 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: selfdestruct
+**Track**: Sudoverse — NRG
 
-Last updated at 01/08/2022 11:00
+Last updated at 01/08/2022 11:01
