@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EqblQymbFdYMunkr-8RYOIw-t500x500.jpg">](https://soundcloud.com/liljosen/za-official-zaza-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5HH5tlmDly9lUMd-NZ0UXA-t500x500.jpg">](https://soundcloud.com/slendermanee/ice-castle)
 
-**Artist**: Josen 
+**Artist**: slender 
 
-**Track**: ZA // OFFICIAL ZAZA ANTHEM [PRODTFXSTARBOYROB]
+**Track**: ICE CASTLE
 
-Last updated at 01/08/2022 15:25
+Last updated at 01/08/2022 15:26
