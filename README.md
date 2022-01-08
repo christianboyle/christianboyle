@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YG2uey5y97Q9t2S-j0lrhg-t500x500.jpg">](https://soundcloud.com/soulseekersallowance/004-spray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/montero?in=bbjuelz/sets/2021-juelz-remix-tape)
 
-**Artist**: SOULSEEKERS ALLOWANCE 
+**Artist**: Juelz 
 
-**Track**: 004 - SPRAY
+**Track**: Lil Nas X - Montero (Juelz Remix)
 
-Last updated at 01/08/2022 10:17
+Last updated at 01/08/2022 10:56
