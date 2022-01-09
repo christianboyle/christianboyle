@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000122551088-joa0c6-t500x500.jpg">](https://soundcloud.com/tobagox/miami-lounge-vol-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JNOx7Wl9t4Uzrpv-sWJaiQ-t500x500.jpg">](https://soundcloud.com/balamii/joe-lofi-december-2022)
 
-**Artist**: TobagoX 
+**Artist**: Balamii 
 
-**Track**: Miami Lounge Vol. 6
+**Track**: Joe lo:fi - December 2021
 
-Last updated at 01/09/2022 06:37
+Last updated at 01/09/2022 06:38
