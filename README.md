@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QKXnteYIAJfTIGx8-allicQ-t500x500.jpg">](https://soundcloud.com/93alekk/93alekk-lipoov-gate-to-japan-lofi-hip-hop)
 
-**Artist**: Brownies and Lemonade 
+**Artist**: 93Alekk 🍓 
 
-**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
+**Track**: 93Alekk, Lipoov - Gate To Japan (lofi hip hop)
 
-Last updated at 01/08/2022 16:17
+Last updated at 01/09/2022 06:30
