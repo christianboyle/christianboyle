@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqmeIsrppYMKXpKl-uYeOSw-t500x500.jpg">](https://soundcloud.com/ruxxi/lightsoutremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dx1omAvChbBT6CUA-fTNXBA-t500x500.jpg">](https://soundcloud.com/loudkult/93alekk-lipoov-airport-lounge)
 
-**Artist**: Ruxxi 
+**Artist**: LoudKult 
 
-**Track**: Lights Out Remix (+nui)
+**Track**: 93Alekk, Lipoov - Airport Lounge
 
-Last updated at 01/09/2022 13:17
+Last updated at 01/09/2022 13:19
