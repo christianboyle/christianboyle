@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JNOx7Wl9t4Uzrpv-sWJaiQ-t500x500.jpg">](https://soundcloud.com/balamii/joe-lofi-december-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-redyCyypUeimIymE-gzVMjQ-t500x500.jpg">](https://soundcloud.com/balamii/joe-lofi-june-2021)
 
 **Artist**: Balamii 
 
-**Track**: Joe lo:fi - December 2021
+**Track**: Joe Lo:fi - June 2021
 
-Last updated at 01/09/2022 06:38
+Last updated at 01/09/2022 06:40
