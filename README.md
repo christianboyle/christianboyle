@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJnOv0m1DSHAvQFw-Prh0Bw-t500x500.jpg">](https://soundcloud.com/balamii/al-wooton-november-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5z9M2Ljc5kmE9fpq-u4ndpQ-t500x500.jpg">](https://soundcloud.com/flowsessions/333-sessions-045-bini)
 
-**Artist**: Balamii 
+**Artist**: Flow Music 
 
-**Track**: Al Wooton - November 2021
+**Track**: 333 Sessions 045 - BINI
 
-Last updated at 01/09/2022 06:44
+Last updated at 01/09/2022 07:04
