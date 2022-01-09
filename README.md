@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjVMufncYyDjKEgh-5HZASA-t500x500.jpg">](https://soundcloud.com/circadianrhythmsaustralia/crp001)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Circadian Rhythms 
 
-**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
+**Track**: Circadian Rhythms Podcast 001: Caly Jandro
 
-Last updated at 01/09/2022 07:07
+Last updated at 01/09/2022 07:08
