@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AMQ9B8WpiMzIhr2W-53iFhA-t500x500.jpg">](https://soundcloud.com/balamii/harrison-bdp-b2b-black-loops-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
 
-**Artist**: Balamii 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Harrison BDP b2b Black Loops - January 2022
+**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
 
-Last updated at 01/09/2022 07:06
+Last updated at 01/09/2022 07:07
