@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKFvkjv2fDhb-0-t500x500.jpg">](https://soundcloud.com/nct127official/sticker-will-not-fear-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Q17PYEb6yaiyIPi-kbHyFQ-t500x500.jpg">](https://soundcloud.com/inerate-techno/like-a-g6-inerates-rave-edit)
 
-**Artist**: NCT 127 
+**Artist**: INERATE 
 
-**Track**: Sticker (Will Not Fear Remix)
+**Track**: Like A G6 (Inerate's Rave Edit)
 
-Last updated at 01/09/2022 14:07
+Last updated at 01/09/2022 20:13
