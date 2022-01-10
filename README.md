@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsGzWWbdgcDvJGVj-atwlVw-t500x500.jpg">](https://soundcloud.com/disciple/lasers?in=crankdatmusic/sets/crankdat-ruvlo-lasers-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
 
-**Artist**: Disciple ♛ ♜ ♞ 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Crankdat & Ruvlo - LASERS
+**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
 
-Last updated at 01/10/2022 09:18
+Last updated at 01/10/2022 09:21
