@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzNoZIHt2ebQQaI8-RcSodw-t500x500.jpg">](https://soundcloud.com/knockthisoff/favorite-mistake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q2hoy2zAcp3wNBhh-YXwSCA-t500x500.jpg">](https://soundcloud.com/balamii/remakeremodel-w-stranded-january-2022)
 
-**Artist**: knockthisoff 
+**Artist**: Balamii 
 
-**Track**: Giveon - Favorite Mistake - Knock2 Remix
+**Track**: Remake/Remodel w/ Stranded - January 2022
 
-Last updated at 01/10/2022 07:35
+Last updated at 01/10/2022 07:36
