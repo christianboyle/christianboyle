@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDRG3osF9RsW9yCU-FFm7IA-t500x500.jpg">](https://soundcloud.com/the-games-we-play/angel-cannon-sentinel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMl1jjzLi5wLqZbi-K4897A-t500x500.jpg">](https://soundcloud.com/devildachef/not-the-same)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: DDC 
 
-**Track**: Angel Cannon - Sentinel
+**Track**: NOT THE SAME
 
-Last updated at 01/10/2022 14:14
+Last updated at 01/10/2022 14:16
