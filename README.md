@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcmyNn5F3affRIn7-8IytWA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-ii)
 
-**Artist**: Brownies and Lemonade 
+**Artist**: kushface ☤ 
 
-**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
+**Track**: MICHIGAN CLIPS II
 
-Last updated at 01/10/2022 09:28
+Last updated at 01/10/2022 11:44
