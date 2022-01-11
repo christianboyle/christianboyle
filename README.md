@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcmyNn5F3affRIn7-8IytWA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O6SXoXFTZmNiyDh7-zHTnog-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast93-lucinee)
 
-**Artist**: kushface ☤ 
+**Artist**: Rave Alert 
 
-**Track**: MICHIGAN CLIPS II
+**Track**: RaveCast93 - Lucinee
 
-Last updated at 01/11/2022 09:01
+Last updated at 01/11/2022 09:08
