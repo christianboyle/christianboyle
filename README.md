@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZgyBXx0ogDYuiyA-zz7mFg-t500x500.jpg">](https://soundcloud.com/immnnt/sudoverse-nrg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AVj7RkgVpEBxEiz4-9BVj3A-t500x500.jpg">](https://soundcloud.com/18pm/homeschool)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: 18PM 
 
-**Track**: Sudoverse — NRG
+**Track**: homeschool
 
-Last updated at 01/11/2022 10:00
+Last updated at 01/11/2022 10:03
