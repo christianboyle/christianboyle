@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rizG362SMLJOJCq7-OTswPQ-t500x500.jpg">](https://soundcloud.com/possessiontechno/possession-premiere-and-7am-burning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfTzowRbbTjuDbk2-3IkYSg-t500x500.jpg">](https://soundcloud.com/arislabel/bumble-west-in-motion-aris01)
 
-**Artist**: Possession 
+**Artist**: Arís 
 
-**Track**: POSSESSION PREMIERE : AnD - 7AM Burning
+**Track**: Bumble - West In Motion (ARIS01)
 
-Last updated at 01/11/2022 08:50
+Last updated at 01/11/2022 08:55
