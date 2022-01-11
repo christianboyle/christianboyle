@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcmyNn5F3affRIn7-8IytWA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
 
-**Artist**: kushface ☤ 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: MICHIGAN CLIPS II
+**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
 
-Last updated at 01/11/2022 10:59
+Last updated at 01/11/2022 11:09
