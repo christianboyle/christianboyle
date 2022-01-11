@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzRWzoepbRWGcKnq-vxe6Ow-t500x500.jpg">](https://soundcloud.com/balamii/rizlateefjan2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O6SXoXFTZmNiyDh7-zHTnog-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast93-lucinee)
 
-**Artist**: Balamii 
+**Artist**: Rave Alert 
 
-**Track**: Riz La Teef - January 2022
+**Track**: RaveCast93 - Lucinee
 
-Last updated at 01/11/2022 08:56
+Last updated at 01/11/2022 08:57
