@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5HH5tlmDly9lUMd-NZ0UXA-t500x500.jpg">](https://soundcloud.com/slendermanee/ice-castle)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: slender 
 
-**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
+**Track**: ICE CASTLE
 
-Last updated at 01/12/2022 08:45
+Last updated at 01/12/2022 08:49
