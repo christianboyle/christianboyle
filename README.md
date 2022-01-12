@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUYZurEbhNHMPmJm-OzXS3Q-t500x500.jpg">](https://soundcloud.com/inciensorecs/dj-python-angel-inc-017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcmyNn5F3affRIn7-8IytWA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-ii)
 
-**Artist**: Incienso 
+**Artist**: kushface ☤ 
 
-**Track**: DJ Python - Angel [INC-017]
+**Track**: MICHIGAN CLIPS II
 
-Last updated at 01/12/2022 08:23
+Last updated at 01/12/2022 08:35
