@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKIXJZzgV5OewGBT-ynrnYQ-t500x500.jpg">](https://soundcloud.com/hollyhollys/ilex-mas-mix-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbAmOGdGRQexe09y-CeeA4A-t500x500.jpg">](https://soundcloud.com/theshipwrek/cardib-wap-ship-wrek-remix)
 
-**Artist**: HOLLY 
+**Artist**: Ship Wrek 
 
-**Track**: ileX-MAS Mix 2021
+**Track**: Cardi B - WAP (Ship Wrek Remix)
 
-Last updated at 01/12/2022 06:30
+Last updated at 01/12/2022 06:31
