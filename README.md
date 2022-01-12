@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmAWTPhI5yWektMn-v6yyEw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc170?in=nonstopnxc/sets/nxcep01-newboy-nightboy-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ak7xGyiRCVEhk3Hl-5Q5M7w-t500x500.png">](https://soundcloud.com/dkmntl/selectors-podcast-028-dj-python?in=worldwideunlimited/sets/mixes-d)
 
-**Artist**: NON STOP NXC® 
+**Artist**: dekmantel 
 
-**Track**: NXC170 - Newboy - ICEY
+**Track**: Selectors Podcast 028 - DJ Python
 
-Last updated at 01/12/2022 07:11
+Last updated at 01/12/2022 08:22
