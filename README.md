@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1xnQHsPSezfrWE0y-dR1qZw-t500x500.jpg">](https://soundcloud.com/sha_dow7/zevia-if-depression-gets-the-best-of-me-shadow-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rP7JcXQWlMdzXAXt-WaHk9g-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/awful-lot-of-ketchy-desto-dubb-rio-da-yung-og-rmc-mike-lil-yachty)
 
-**Artist**: Shadow 
+**Artist**: DRAKEO The Ruler 
 
-**Track**: Zevia - If Depression Gets The Best Of Me (Shadow Remix)
+**Track**: AWFUL LOT OF - Ketchy, Desto Dubb, Rio Da Yung OG, RMC Mike & Lil Yachty
 
-Last updated at 01/12/2022 11:27
+Last updated at 01/12/2022 11:31
