@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5HH5tlmDly9lUMd-NZ0UXA-t500x500.jpg">](https://soundcloud.com/slendermanee/ice-castle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
 
-**Artist**: slender 
+**Artist**: Brownies and Lemonade 
 
-**Track**: ICE CASTLE
+**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
 
-Last updated at 01/12/2022 08:49
+Last updated at 01/12/2022 08:51
