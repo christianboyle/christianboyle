@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ko18JSdKxbhxw1X5-zXiJeg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc174a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0YiCGGzdZ1Vp3p7-QQFy7w-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc173)
 
 **Artist**: NON STOP NXC® 
 
-**Track**: NXC174 - Porter Robinson - Look at the Sky (Key Archive Remix)
+**Track**: NXC173 - WAVEDASH - Dummo Loop (TRALES Remix)
 
-Last updated at 01/12/2022 06:40
+Last updated at 01/12/2022 06:41
