@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4iNdAopGenQyMejM-BLpqWw-t500x500.jpg">](https://soundcloud.com/rosa-au/rosa-015-loek-frey)
 
-**Artist**: Brownies and Lemonade 
+**Artist**: Rosa 
 
-**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
+**Track**: Rosa 015 - Loek Frey
 
-Last updated at 01/11/2022 12:28
+Last updated at 01/12/2022 06:28
