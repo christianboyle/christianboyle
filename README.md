@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000337673931-8bqn40-t500x500.jpg">](https://soundcloud.com/rajaluthhasan/party-favor-baauer-mdr-drop-remake)
 
-**Artist**: Brownies and Lemonade 
+**Artist**: Raja Luth Hasan 
 
-**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
+**Track**: PARTY FAVOR X BAAUER - MDR (DROP REMAKE)
 
-Last updated at 01/12/2022 08:51
+Last updated at 01/12/2022 08:55
