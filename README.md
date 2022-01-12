@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3IhZtzKV3DZralo-hrKOTA-t500x500.jpg">](https://soundcloud.com/jupiluxe/talkin-the-nada-prod-omar-duro)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Q-xFZWg2y3c/maxresdefault.jpg">](https://www.youtube.com/watch?v=Q-xFZWg2y3c)
 
-**Artist**: ★ JUPILUXE ★ 
+**Artist**: Father 
 
-**Track**: Talkin The Nada (Prod. Omar Duro)
+**Track**: Pay N Spray (Official Audio)
 
-Last updated at 01/12/2022 11:35
+Last updated at 01/12/2022 11:37
