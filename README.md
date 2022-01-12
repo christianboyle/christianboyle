@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317626224-5k5cyr-t500x500.jpg">](https://soundcloud.com/partyfavor/party-favor-x-baauer-mdr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572039222-6n33g6-t500x500.jpg">](https://soundcloud.com/browniesandlemonade/paauer-baauer-b2b-party-favor-bl-block-party-la-live-set)
 
-**Artist**: PARTY FAVOR 
+**Artist**: Brownies and Lemonade 
 
-**Track**: Party Favor X Baauer - MDR
+**Track**: Paauer | Baauer B2B Party Favor | B&L Block Party LA (Live Set)
 
-Last updated at 01/12/2022 08:56
+Last updated at 01/12/2022 08:57
