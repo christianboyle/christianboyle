@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4iNdAopGenQyMejM-BLpqWw-t500x500.jpg">](https://soundcloud.com/rosa-au/rosa-015-loek-frey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3khChM1JdN0D-0-t500x500.jpg">](https://soundcloud.com/eazybakedbeats/letting-go)
 
-**Artist**: Rosa 
+**Artist**: EAZYBAKED 
 
-**Track**: Rosa 015 - Loek Frey
+**Track**: Letting Go
 
-Last updated at 01/12/2022 06:28
+Last updated at 01/12/2022 06:29
