@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxFPtuSyai11b6o-PYUHwQ-t500x500.jpg">](https://soundcloud.com/ryanleahan/2c-poptropicaslutz-kimj-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tz3iTpuWvgGRfkh3-mZQCnA-t500x500.jpg">](https://soundcloud.com/etller/etller-dj-ikea-canada-headaya)
 
-**Artist**: Ryan Leahan 
+**Artist**: Etller 
 
-**Track**: +++2c [poptropicaslutz! + kimj rmx]
+**Track**: ETLLER & DJ IKEA CANADA - Headaya
 
-Last updated at 01/12/2022 13:08
+Last updated at 01/12/2022 13:15
