@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000337673931-8bqn40-t500x500.jpg">](https://soundcloud.com/rajaluthhasan/party-favor-baauer-mdr-drop-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317626224-5k5cyr-t500x500.jpg">](https://soundcloud.com/partyfavor/party-favor-x-baauer-mdr)
 
-**Artist**: Raja Luth Hasan 
+**Artist**: PARTY FAVOR 
 
-**Track**: PARTY FAVOR X BAAUER - MDR (DROP REMAKE)
+**Track**: Party Favor X Baauer - MDR
 
-Last updated at 01/12/2022 08:55
+Last updated at 01/12/2022 08:56
