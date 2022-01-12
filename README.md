@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ysr01UwsochfUJr-8NcTwA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc175)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ko18JSdKxbhxw1X5-zXiJeg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc174a)
 
 **Artist**: NON STOP NXC® 
 
-**Track**: NXC175 - Bomfunk MC's - Freestyler (PANECIOK Bootleg)
+**Track**: NXC174 - Porter Robinson - Look at the Sky (Key Archive Remix)
 
-Last updated at 01/12/2022 06:47
+Last updated at 01/12/2022 06:50
