@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nc7sJjYW3zsl2uV8-EWTzKg-t500x500.jpg">](https://soundcloud.com/10-pills-mate/1opills024-xiorro-chromatic-meteor-shower)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5NNIrzkvTdgI1V1i-YAkNsA-t500x500.jpg">](https://soundcloud.com/intercell/phara-vinyl-set-at-intercell-x-voltage)
 
-**Artist**: 1Ø PILLS MATE 
+**Artist**: Intercell 
 
-**Track**: 1ØPILLS024 // Xiorro - Chromatic Meteor Shower
+**Track**: Phara [vinyl set] at Intercell x Voltage
 
-Last updated at 01/13/2022 07:40
+Last updated at 01/13/2022 08:06
