@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5NNIrzkvTdgI1V1i-YAkNsA-t500x500.jpg">](https://soundcloud.com/intercell/phara-vinyl-set-at-intercell-x-voltage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZN9642KDZ0KapfX-frUBZQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-511-tears-of-fury)
 
-**Artist**: Intercell 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Phara [vinyl set] at Intercell x Voltage
+**Track**: KTRA Episode 511: Tears of Fury
 
-Last updated at 01/13/2022 08:06
+Last updated at 01/13/2022 11:30
