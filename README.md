@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vpk84TiiFROXBSRP-aoEDFQ-t500x500.jpg">](https://soundcloud.com/iwilldiehere/waves?in=iwilldiehere/sets/ya-soshla-s-uma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nc7sJjYW3zsl2uV8-EWTzKg-t500x500.jpg">](https://soundcloud.com/10-pills-mate/1opills024-xiorro-chromatic-meteor-shower)
 
-**Artist**: iwilldiehere 
+**Artist**: 1Ø PILLS MATE 
 
-**Track**: iwilldiehеre x STS-51L x riserayss - waves
+**Track**: 1ØPILLS024 // Xiorro - Chromatic Meteor Shower
 
-Last updated at 01/13/2022 07:39
+Last updated at 01/13/2022 07:40
