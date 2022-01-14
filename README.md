@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-POU7y9yFVa94WRTT-6xWRaw-t500x500.jpg">](https://soundcloud.com/balamii/the-rye-wax-show-w-vyvyan-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxza8twUlFvPVAdB-HztaTg-t500x500.jpg">](https://soundcloud.com/bonque/thug-addicted-vol1)
 
-**Artist**: Balamii 
+**Artist**: 𝖇𝖔𝖓𝖖𝖚𝖊 
 
-**Track**: The Rye Wax show w/ Vyvyan - January 2022
+**Track**: THUG ADDICTED [VOL.1]
 
-Last updated at 01/14/2022 08:29
+Last updated at 01/14/2022 08:49
