@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9q9ni1GkIBk-0-t500x500.jpg">](https://soundcloud.com/1985music1985/alix-perez-dlr-sp-mc-keep-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-POU7y9yFVa94WRTT-6xWRaw-t500x500.jpg">](https://soundcloud.com/balamii/the-rye-wax-show-w-vyvyan-january-2022)
 
-**Artist**: 1985  |  Music 
+**Artist**: Balamii 
 
-**Track**: Alix Perez, DLR, SP:MC - Keep Up
+**Track**: The Rye Wax show w/ Vyvyan - January 2022
 
-Last updated at 01/14/2022 08:25
+Last updated at 01/14/2022 08:29
