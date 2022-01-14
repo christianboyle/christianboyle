@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8TjIT41C19ELwAp-bS1qww-t500x500.jpg">](https://soundcloud.com/zeusfeedz/12-gauge?in=saxurn/sets/phonk/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4e7zEFbrm9knHKKt-a7chyQ-t500x500.jpg">](https://soundcloud.com/judgementg/1-9-9-8a?in=saxurn/sets/phonk)
 
-**Artist**: ZEU$ 
+**Artist**: Judgement G 
 
-**Track**: 12 GAUGE
+**Track**: 1 9 9 8
 
-Last updated at 01/14/2022 10:47
+Last updated at 01/14/2022 10:49
