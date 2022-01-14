@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8TjIT41C19ELwAp-bS1qww-t500x500.jpg">](https://soundcloud.com/zeusfeedz/12-gauge?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5HH5tlmDly9lUMd-NZ0UXA-t500x500.jpg">](https://soundcloud.com/slendermanee/ice-castle?in=saxurn/sets/iced)
 
-**Artist**: ZEU$ 
+**Artist**: slender 
 
-**Track**: 12 GAUGE
+**Track**: ICE CASTLE
 
-Last updated at 01/14/2022 11:14
+Last updated at 01/14/2022 11:16
