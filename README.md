@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iU6Ls0bJZBQWDJjM-zfIfwA-t500x500.jpg">](https://soundcloud.com/balamii/dre-b2b-paduan-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qCckxt48Ly5rJ8f0-kVP8cg-t500x500.jpg">](https://soundcloud.com/40ozcult/dack-janiels-live-countdown-nye)
 
-**Artist**: Balamii 
+**Artist**: 40oz Cult 
 
-**Track**: Dre b2b Paduan - January 2022
+**Track**: DACK JANIELS LIVE @ COUNTDOWN NYE
 
-Last updated at 01/13/2022 11:40
+Last updated at 01/14/2022 08:20
