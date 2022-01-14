@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzrzoZOQLe1YRWij-hJP2zA-t500x500.jpg">](https://soundcloud.com/rolandjones/creepin-down-the-ave-wdj-smokey?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8TjIT41C19ELwAp-bS1qww-t500x500.jpg">](https://soundcloud.com/zeusfeedz/12-gauge?in=saxurn/sets/iced)
 
-**Artist**: ROLAND JONES 
+**Artist**: ZEU$ 
 
-**Track**: CREEPIN DOWN THE AVE w/DJ SMOKEY
+**Track**: 12 GAUGE
 
-Last updated at 01/14/2022 11:07
+Last updated at 01/14/2022 11:14
