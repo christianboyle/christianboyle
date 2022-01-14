@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3IhZtzKV3DZralo-hrKOTA-t500x500.jpg">](https://soundcloud.com/jupiluxe/talkin-the-nada-prod-omar-duro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OYLi6qgSa7V1c3m-K5KgAA-t500x500.jpg">](https://soundcloud.com/cloudymane/steal-yo-dope-w-pharmacist)
 
-**Artist**: ★ JUPILUXE ★ 
+**Artist**: Cloudymane 
 
-**Track**: Talkin The Nada (Prod. Omar Duro)
+**Track**: STEAL YO DOPE w/ PHARMACIST
 
-Last updated at 01/14/2022 17:23
+Last updated at 01/14/2022 17:25
