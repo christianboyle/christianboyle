@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PupdqlsCSCs/maxresdefault.jpg">](https://www.youtube.com/watch?v=PupdqlsCSCs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3IhZtzKV3DZralo-hrKOTA-t500x500.jpg">](https://soundcloud.com/jupiluxe/talkin-the-nada-prod-omar-duro)
 
-**Artist**: RL Grime 
+**Artist**: ★ JUPILUXE ★ 
 
-**Track**: Halloween IX
+**Track**: Talkin The Nada (Prod. Omar Duro)
 
-Last updated at 01/14/2022 17:21
+Last updated at 01/14/2022 17:23
