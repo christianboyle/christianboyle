@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ziWYcxPbLcNTdas-BAwVlQ-t500x500.jpg">](https://soundcloud.com/aries_ix/one-punch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JZDfLuyimzu9z0Go-00NRag-t500x500.jpg">](https://soundcloud.com/prodjasonrich/holiday)
 
-**Artist**: Aries 
+**Artist**: JASON RICH 
 
-**Track**: ONE PUNCH
+**Track**: HOLIDAY INN w/ STERNN
 
-Last updated at 01/14/2022 10:41
+Last updated at 01/14/2022 10:42
