@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OYLi6qgSa7V1c3m-K5KgAA-t500x500.jpg">](https://soundcloud.com/cloudymane/steal-yo-dope-w-pharmacist)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/PupdqlsCSCs/maxresdefault.jpg">](https://www.youtube.com/watch?v=PupdqlsCSCs)
 
-**Artist**: Cloudymane 
+**Artist**: RL Grime 
 
-**Track**: STEAL YO DOPE w/ PHARMACIST
+**Track**: Halloween IX
 
-Last updated at 01/14/2022 17:20
+Last updated at 01/14/2022 17:21
