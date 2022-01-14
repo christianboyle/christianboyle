@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/XYFg_t8Hjxs/maxresdefault.jpg">](https://www.youtube.com/watch?v=XYFg_t8Hjxs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3IhZtzKV3DZralo-hrKOTA-t500x500.jpg">](https://soundcloud.com/jupiluxe/talkin-the-nada-prod-omar-duro)
 
-**Artist**: HAINBACH 
+**Artist**: ★ JUPILUXE ★ 
 
-**Track**: The First Modern Drum Machine | Eko Computerhythm
+**Track**: Talkin The Nada (Prod. Omar Duro)
 
-Last updated at 01/14/2022 16:43
+Last updated at 01/14/2022 17:19
