@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ziWYcxPbLcNTdas-BAwVlQ-t500x500.jpg">](https://soundcloud.com/aries_ix/one-punch)
 
-**Artist**: FIEND WORLD 
+**Artist**: Aries 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: ONE PUNCH
 
-Last updated at 01/14/2022 10:38
+Last updated at 01/14/2022 10:41
