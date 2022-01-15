@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxza8twUlFvPVAdB-HztaTg-t500x500.jpg">](https://soundcloud.com/bonque/thug-addicted-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=saxurn/sets/iced)
 
-**Artist**: 𝖇𝖔𝖓𝖖𝖚𝖊 
+**Artist**: FIEND WORLD 
 
-**Track**: THUG ADDICTED [VOL. I]
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 01/15/2022 15:44
+Last updated at 01/15/2022 16:56
