@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OYLi6qgSa7V1c3m-K5KgAA-t500x500.jpg">](https://soundcloud.com/cloudymane/steal-yo-dope-w-pharmacist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jEdNDkiaj2kwam5h-bPcKoQ-t500x500.jpg">](https://soundcloud.com/northposse/abuse)
 
-**Artist**: Cloudymane 
+**Artist**: NORTH POSSE 
 
-**Track**: STEAL YO DOPE w/ PHARMACIST
+**Track**: ABUSE
 
-Last updated at 01/14/2022 17:25
+Last updated at 01/15/2022 11:39
