@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6rvyqn7pkLpyA7IJ-P7OnOQ-t500x500.jpg">](https://soundcloud.com/proximity/krane-juelz-heimanu-moonbeams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2ODtCUp2zdF0Mzl-oVUhyA-t500x500.jpg">](https://soundcloud.com/dyzphoria/yearn)
 
-**Artist**: Proximity 
+**Artist**: DYZPHORIA 
 
-**Track**: KRANE, Juelz & Heimanu - Moonbeams
+**Track**: Yearn
 
-Last updated at 01/15/2022 11:46
+Last updated at 01/15/2022 11:50
