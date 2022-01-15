@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4yRRUVMJ2YYO2EH-cccXww-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-xandl-the-matrix-original-mix-suprematic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2PzfSLZ6P3uwcgCG-cwyTWw-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-back-of-the-whip)
 
-**Artist**: Raven Musik 
+**Artist**: Holy Trap 
 
-**Track**: PREMIERE: Xandl - The Matrix (Original Mix) [Suprematic]
+**Track**: KOMPLVINT - BACK OF THE WHIP
 
-Last updated at 01/15/2022 11:41
+Last updated at 01/15/2022 11:42
