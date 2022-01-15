@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2PzfSLZ6P3uwcgCG-cwyTWw-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-back-of-the-whip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zXxc3Opo95UxDRvy-i1UQVg-t500x500.jpg">](https://soundcloud.com/pedicure-records/top-hun-wonderland?in=pedicure-records/sets/pd123-top-hun-here-i-am-ep)
 
-**Artist**: Holy Trap 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: KOMPLVINT - BACK OF THE WHIP
+**Track**: Top Hun - Wonderland
 
-Last updated at 01/15/2022 11:42
+Last updated at 01/15/2022 11:43
