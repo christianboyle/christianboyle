@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDFCHUHynm33brFz-xOq1Sg-t500x500.jpg">](https://soundcloud.com/balamii/gerah-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BoJQD5piFKqYW54p-IHITIg-t500x500.jpg">](https://soundcloud.com/lunyiam/luny-shake-my-riverside-dj-tool)
 
-**Artist**: Balamii 
+**Artist**: LUNY 
 
-**Track**: Gerah - January 2022
+**Track**: Shake My Riverside (Dj Tool)
 
-Last updated at 01/16/2022 08:37
+Last updated at 01/16/2022 08:38
