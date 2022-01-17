@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b8BXzFOc99fAxQTa-rmOdsw-t500x500.jpg">](https://soundcloud.com/differentialrecordings/abstrakt-syntax-minzo-feat-lottie-woodward-let-it-begin-sili-remix-dffrnt028)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4xE0JUmLjwM44JY-wwsKfA-t500x500.jpg">](https://soundcloud.com/wido123456789/1435-wido-v1)
 
-**Artist**: Differential 
+**Artist**: wido 
 
-**Track**: Abstrakt Syntax & Minzo (feat. Lottie Woodward) - Let It Begin (SiLi Remix)
+**Track**: the cap rapped (ft. zootzie)
 
-Last updated at 01/17/2022 10:52
+Last updated at 01/17/2022 10:56
