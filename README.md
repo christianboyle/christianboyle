@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxza8twUlFvPVAdB-HztaTg-t500x500.jpg">](https://soundcloud.com/bonque/thug-addicted-vol1?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BoJQD5piFKqYW54p-IHITIg-t500x500.jpg">](https://soundcloud.com/lunyiam/luny-shake-my-riverside-dj-tool)
 
-**Artist**: 𝖇𝖔𝖓𝖖𝖚𝖊 
+**Artist**: LUNY 
 
-**Track**: THUG ADDICTED [VOL. I]
+**Track**: Shake My Riverside (Dj Tool)
 
-Last updated at 01/17/2022 16:37
+Last updated at 01/17/2022 17:05
