@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udHP6cDigyBZCZcP-pyloyQ-t500x500.jpg">](https://soundcloud.com/sappy94/big-business-thank-you-so-much-for-10k?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wBczLEfW0b3T8um8-ocDYqg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-41-on-beat-106-1)
 
-**Artist**: Sappy 
+**Artist**: Beat106Scotland 
 
-**Track**: Big Business [Thank you so much for 10k !]
+**Track**: Bonkers Beats #41 on Beat 106 Scotland with Daniel Seven 140122 (Hour 1)
 
-Last updated at 01/16/2022 12:12
+Last updated at 01/17/2022 08:17
