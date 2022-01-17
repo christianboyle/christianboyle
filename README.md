@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxza8twUlFvPVAdB-HztaTg-t500x500.jpg">](https://soundcloud.com/bonque/thug-addicted-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUYZurEbhNHMPmJm-OzXS3Q-t500x500.jpg">](https://soundcloud.com/inciensorecs/dj-python-angel-inc-017)
 
-**Artist**: 𝖇𝖔𝖓𝖖𝖚𝖊 
+**Artist**: Incienso 
 
-**Track**: THUG ADDICTED [VOL. I]
+**Track**: DJ Python - Angel [INC-017]
 
-Last updated at 01/17/2022 11:32
+Last updated at 01/17/2022 12:17
