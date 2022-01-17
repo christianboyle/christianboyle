@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udHP6cDigyBZCZcP-pyloyQ-t500x500.jpg">](https://soundcloud.com/sappy94/big-business-thank-you-so-much-for-10k?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Cmzqxh0L7JrIvIA-dUm14Q-t500x500.jpg">](https://soundcloud.com/120seven/what-he-gon-do?in=saxurn/sets/iced)
 
-**Artist**: Sappy 
+**Artist**: 120SEVEN 
 
-**Track**: Big Business [Thank you so much for 10k !]
+**Track**: WHAT HE GON DO
 
-Last updated at 01/17/2022 16:26
+Last updated at 01/17/2022 16:30
