@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOAyeZSOStRaD4jL-Qj8YYA-t500x500.jpg">](https://soundcloud.com/wagerdj/reprezent-radio-14th-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edhtPgItaUkyyCUx-5QJyvg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/raven-musik-podcast-033-nolan)
 
-**Artist**: Wager 
+**Artist**: Raven Musik 
 
-**Track**: Reprezent Radio 14th January 2022
+**Track**: Raven Musik Podcast 033 | Nolan
 
-Last updated at 01/17/2022 09:20
+Last updated at 01/17/2022 10:02
