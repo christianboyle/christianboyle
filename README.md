@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tKO5wtk02qLQq6qF-49aEaA-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNHOlJyHzlMEPioD-zrJ2yw-t500x500.jpg">](https://soundcloud.com/ghostfaceplaya/ice-attack-feat-roland-jones)
 
-**Artist**: LEMAY 
+**Artist**: GHOSTFACE PLAYA 
 
-**Track**: LEMAYS LOCKER VOL. 4
+**Track**: ICE ATTACK (feat. Roland Jones)
 
-Last updated at 01/17/2022 11:00
+Last updated at 01/17/2022 11:28
