@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVgqKaLwpuTCC9gz-CAc6aA-t500x500.jpg">](https://soundcloud.com/hld/error404store-hannah-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPFvdimRl1iKPpDr-hJhOHg-t500x500.jpg">](https://soundcloud.com/neo_nheechi/go-go-gadget-ft-sebii)
 
-**Artist**: Hannah D 
+**Artist**: neo nheechi 
 
-**Track**: Error404store - Hannah D
+**Track**: Go Go Gadget! ft. SEBii [prod. 637rxss x Admiinn x Ayosonata]
 
-Last updated at 01/18/2022 07:38
+Last updated at 01/18/2022 12:08
