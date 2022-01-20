@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/byN_zIpr0Hg/maxresdefault.jpg">](https://www.youtube.com/watch?v=byN_zIpr0Hg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9VJhHniQ4ezAZWJ-9Rjscw-t500x500.jpg">](https://soundcloud.com/erickdie/feel-the-vibe)
 
-**Artist**: Cheat Codes 
+**Artist**: erickD 
 
-**Track**: Hurricane (feat. Tyson Ritter & Grey) [Official Music Video]
+**Track**: Feel the Vibe
 
-Last updated at 01/20/2022 09:55
+Last updated at 01/20/2022 15:47
