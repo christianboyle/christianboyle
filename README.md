@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXippPwsmLgV-0-t500x500.jpg">](https://soundcloud.com/cheatcodesmusic/cheat-codes-hurricane-arcando)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/byN_zIpr0Hg/maxresdefault.jpg">](https://www.youtube.com/watch?v=byN_zIpr0Hg)
 
-**Artist**: CHEAT CODES 
+**Artist**: Cheat Codes 
 
-**Track**: Cheat Codes - Hurricane (Arcando Remix)
+**Track**: Hurricane (feat. Tyson Ritter & Grey) [Official Music Video]
 
-Last updated at 01/20/2022 09:54
+Last updated at 01/20/2022 09:55
