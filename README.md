@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEjDHWklGBv8Mryj-ZwbwSw-t500x500.png">](https://soundcloud.com/justicehardcore/fantasy-project-crazy-babyjel7yz-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXippPwsmLgV-0-t500x500.jpg">](https://soundcloud.com/cheatcodesmusic/cheat-codes-hurricane-arcando)
 
-**Artist**: Justice Hardcore 
+**Artist**: CHEAT CODES 
 
-**Track**: Fantasy Project - Crazy Baby(Jel7yz Bootleg) ✅FREE DOWNLOAD✅
+**Track**: Cheat Codes - Hurricane (Arcando Remix)
 
-Last updated at 01/20/2022 09:51
+Last updated at 01/20/2022 09:54
