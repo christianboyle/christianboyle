@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4DUlg509NxysyyU-cWEETA-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/ziggy-x-lived-in-vain-hh7?in=hardcoreunderground/sets/hardcore-heaven-vol7-promo-clips-order-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4DUlg509NxysyyU-cWEETA-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/mike-reverie-i-cant-breathe?in=hardcoreunderground/sets/hardcore-heaven-vol7-promo-clips-order-now)
 
 **Artist**: Hardcore Underground 
 
-**Track**: Ziggy X - Lived In Vain ('HH7 Promo Clip')
+**Track**: Mike Reverie - I Can't Breathe ('HH7 Promo Clip')
 
-Last updated at 01/20/2022 09:20
+Last updated at 01/20/2022 09:22
