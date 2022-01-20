@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y4P3GTBpyzfbHttw-uoOJTA-t500x500.jpg">](https://soundcloud.com/platform/system-mix-059-yushh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4DUlg509NxysyyU-cWEETA-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/fracus-darwin-better-days-hh7?in=hardcoreunderground/sets/hardcore-heaven-vol7-promo-clips-order-now)
 
-**Artist**: Boiler Room 
+**Artist**: Hardcore Underground 
 
-**Track**: SYSTEM Mix 059: Yushh
+**Track**: Fracus & Darwin - Better Days (HH7 Intro Mix) ('HH7 Promo Clip')
 
-Last updated at 01/19/2022 08:06
+Last updated at 01/20/2022 08:40
