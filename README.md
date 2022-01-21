@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c3aXZ8yWizwkG1yp-vlN5zA-t500x500.jpg">](https://soundcloud.com/vowlmusic/phantom-w-niteboi-brothel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rXbRN9zCqP2-0-t500x500.jpg">](https://soundcloud.com/cheatcodesmusic/cheat-codes-grey-tyson-ritter)
 
-**Artist**: vowl. 
+**Artist**: CHEAT CODES 
 
-**Track**: phantom (w/ niteboi + brothel)
+**Track**: Cheat Codes & Grey & Tyson Ritter - Hurricane (with Tyson Ritter)
 
-Last updated at 01/20/2022 16:55
+Last updated at 01/21/2022 05:57
