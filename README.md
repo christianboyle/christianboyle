@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHlQeDmzLrve-0-t500x500.jpg">](https://soundcloud.com/yearsandyears/sweet-talker)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/0trBZ5rDlRU/maxresdefault.jpg">](https://www.youtube.com/watch?v=0trBZ5rDlRU)
 
-**Artist**: Years and Years 
+**Artist**: Years & Years 
 
-**Track**: Sweet Talker
+**Track**: Years & Years, Galantis - Sweet Talker (Official Video)
 
-Last updated at 01/22/2022 10:09
+Last updated at 01/22/2022 10:10
