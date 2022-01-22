@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hfKPV9DPzcr-0-t500x500.jpg">](https://soundcloud.com/theknocks/walking-on-water-feat-totally)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssyPUevorx2wD7Jb-PvSUKQ-t500x500.jpg">](https://soundcloud.com/dffrntmusic/the-pixies-x-safari-riot-where-is-my-mind-dffrnt-bootleg)
 
-**Artist**: The Knocks 
+**Artist**: DFFRNT 
 
-**Track**: Walking On Water (feat. Totally Enormous Extinct Dinosaurs)
+**Track**: The Pixies X Safari Riot - Where Is My Mind (DFFRNT Bootleg) [FREE DL]
 
-Last updated at 01/22/2022 14:10
+Last updated at 01/22/2022 14:15
