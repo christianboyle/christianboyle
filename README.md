@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LR3MTFOsQhuK-0-t500x500.jpg">](https://soundcloud.com/mo-thugs/all-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzYWwDeQXqpNleI2-g9fXKw-t500x500.jpg">](https://soundcloud.com/swoopyy/nike-ocean-prod-ddertbag)
 
-**Artist**: MO THUGS 
+**Artist**: Swoopy 
 
-**Track**: All Good
+**Track**: niké ocean (prod. ddertbag) 🏄🏄
 
-Last updated at 01/22/2022 10:05
+Last updated at 01/22/2022 10:06
