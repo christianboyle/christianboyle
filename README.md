@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ws5SqUs7BZKddXr-sUvj4g-t500x500.jpg">](https://soundcloud.com/keyblayde808/numb-part-2-prod-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LR3MTFOsQhuK-0-t500x500.jpg">](https://soundcloud.com/mo-thugs/all-good)
 
-**Artist**: keyblayde808 
+**Artist**: MO THUGS 
 
-**Track**: numb part 2 [prod me]
+**Track**: All Good
 
-Last updated at 01/22/2022 10:04
+Last updated at 01/22/2022 10:05
