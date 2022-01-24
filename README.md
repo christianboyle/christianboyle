@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rt3vwf9Q45D4XHlr-cVrWjQ-t500x500.jpg">](https://soundcloud.com/hardstyle_uk/ngn-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
 
-**Artist**: Hardstyle UK 
+**Artist**: Lobster Theremin 
 
-**Track**: The HARDSTYLE UK Podcast #44 (Next Generation Noise Guestmix)
+**Track**: LT Podcast 207 // Poppy
 
-Last updated at 01/24/2022 10:18
+Last updated at 01/24/2022 12:11
