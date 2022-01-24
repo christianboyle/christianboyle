@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SmqOFXI5FuQfoRdN-WxWmzw-t500x500.jpg">](https://soundcloud.com/nocv/we-dont-talk-about-bruno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eoynpis7h51dxBsS-OuG7yg-t500x500.jpg">](https://soundcloud.com/chainyo/faster-daft-punk-tribute)
 
-**Artist**: Noc.V 
+**Artist**: CHAINYO 
 
-**Track**: Encanto - We Don't Talk About Bruno (Noc.V Bootleg)
+**Track**: FASTER (DAFT PUNK TRIBUTE)
 
-Last updated at 01/24/2022 10:09
+Last updated at 01/24/2022 10:10
