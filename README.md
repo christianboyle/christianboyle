@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQNDVR5y3TEx5bcE-ysEBwQ-t500x500.jpg">](https://soundcloud.com/cadilius_music/another-place-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rt3vwf9Q45D4XHlr-cVrWjQ-t500x500.jpg">](https://soundcloud.com/hardstyle_uk/ngn-mix)
 
-**Artist**: Cadilius 
+**Artist**: Hardstyle UK 
 
-**Track**: Another Place
+**Track**: The HARDSTYLE UK Podcast #44 (Next Generation Noise Guestmix)
 
-Last updated at 01/24/2022 10:13
+Last updated at 01/24/2022 10:18
