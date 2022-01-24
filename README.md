@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJ4lgcQdAUIGYiMj-hPM6sw-t500x500.jpg">](https://soundcloud.com/thxnder777/the-final-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzYWwDeQXqpNleI2-g9fXKw-t500x500.jpg">](https://soundcloud.com/swoopyy/nike-ocean-prod-ddertbag)
 
-**Artist**: THXNDER 
+**Artist**: Swoopy 
 
-**Track**: THE FINAL NIGHT (ULTIMO CHAPTER)
+**Track**: niké ocean (prod. ddertbag) 🏄🏄
 
-Last updated at 01/24/2022 17:06
+Last updated at 01/24/2022 17:37
