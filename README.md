@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hfKPV9DPzcr-0-t500x500.jpg">](https://soundcloud.com/theknocks/walking-on-water-feat-totally)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eoynpis7h51dxBsS-OuG7yg-t500x500.jpg">](https://soundcloud.com/chainyo/faster-daft-punk-tribute)
 
-**Artist**: The Knocks 
+**Artist**: CHAINYO 
 
-**Track**: Walking On Water (feat. Totally Enormous Extinct Dinosaurs)
+**Track**: FASTER (DAFT PUNK TRIBUTE)
 
-Last updated at 01/24/2022 16:36
+Last updated at 01/24/2022 16:37
