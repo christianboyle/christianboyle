@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsAVPTl8Am1jELuZ-TJMAlA-t500x500.jpg">](https://soundcloud.com/dektora/deadcrow-crush)
 
-**Artist**: Lobster Theremin 
+**Artist**: DEKTORA 
 
-**Track**: LT Podcast 207 // Poppy
+**Track**: Deadcrow - Crush
 
-Last updated at 01/24/2022 07:43
+Last updated at 01/24/2022 10:01
