@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQB8DM1JGi8RKCCs-YCAOXA-t500x500.jpg">](https://soundcloud.com/odneme/stellar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEuuBVcxb5Wl-0-t500x500.jpg">](https://soundcloud.com/yearsandyears/sweet-talker)
 
-**Artist**: odneme 
+**Artist**: Years and Years 
 
-**Track**: Stellar. ✧*:･ﾟ<3
+**Track**: Sweet Talker
 
-Last updated at 01/24/2022 16:54
+Last updated at 01/24/2022 16:57
