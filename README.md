@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/itty-bitty-piggy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WUDasEvI3tBIvNzQ-CHWrTg-t500x500.jpg">](https://soundcloud.com/lucidmonday/losco-onhell-carnal)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Lucid Monday 
 
-**Track**: 05 - TALL CEO⠀x「 P H Y S A 」- ITTY BITTY PIGGY
+**Track**: Losco & ONHELL - Carnal
 
-Last updated at 01/25/2022 13:53
+Last updated at 01/25/2022 13:54
