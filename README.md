@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBWHARSMa2FanpsD-zJsMYg-t500x500.jpg">](https://soundcloud.com/sablevalley/kotaro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GsvFkABsMDtDptmh-mXyNGg-t500x500.jpg">](https://soundcloud.com/ascentrecordings/soundpour-jetstream-memory)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Ascent Recordings 
 
-**Track**: IMANU & Jon Casey - Kotaro
+**Track**: Soundpour - Jetstream (Memory Loss Radio Edit)
 
-Last updated at 01/25/2022 14:00
+Last updated at 01/25/2022 14:01
