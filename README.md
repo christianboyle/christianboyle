@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ecczuyXxz48yKTLY-eEn6Dw-t500x500.jpg">](https://soundcloud.com/gimmeabreakrecords/premiere-knuckle-fortune-bh-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eoynpis7h51dxBsS-OuG7yg-t500x500.jpg">](https://soundcloud.com/chainyo/faster-daft-punk-tribute)
 
-**Artist**: Gimme A Break Records 
+**Artist**: CHAINYO 
 
-**Track**: PREMIERE: Knuckle - Fortune [B&H Records]
+**Track**: FASTER (DAFT PUNK TRIBUTE)
 
-Last updated at 01/25/2022 17:52
+Last updated at 01/25/2022 17:58
