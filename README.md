@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBWLO6XlWJpcPXkJ-lkyLEA-t500x500.jpg">](https://soundcloud.com/storytimerecords/bvrrn-on-fire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bBWHARSMa2FanpsD-zJsMYg-t500x500.jpg">](https://soundcloud.com/sablevalley/kotaro)
 
-**Artist**: StoryTime Records 
+**Artist**: SABLE VALLEY 
 
-**Track**: BVRRN - On Fire
+**Track**: IMANU & Jon Casey - Kotaro
 
-Last updated at 01/25/2022 13:59
+Last updated at 01/25/2022 14:00
