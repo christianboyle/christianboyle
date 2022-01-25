@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUHG1p4KM5eCTUu5-eAUS4g-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-115-bosco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBWLO6XlWJpcPXkJ-lkyLEA-t500x500.jpg">](https://soundcloud.com/storytimerecords/bvrrn-on-fire)
 
-**Artist**: Novel 
+**Artist**: StoryTime Records 
 
-**Track**: Novelcast 115: Bosco
+**Track**: BVRRN - On Fire
 
-Last updated at 01/25/2022 13:58
+Last updated at 01/25/2022 13:59
