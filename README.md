@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ciH3qiDS08LBQrXi-E0r3oQ-t500x500.jpg">](https://soundcloud.com/drinksonmemusic/highcalibervip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/itty-bitty-piggy)
 
-**Artist**: Drinks On Me 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Drinks On Me & Event Horizon - High Caliber (VIP)
+**Track**: 05 - TALL CEO⠀x「 P H Y S A 」- ITTY BITTY PIGGY
 
-Last updated at 01/25/2022 13:52
+Last updated at 01/25/2022 13:53
