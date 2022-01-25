@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abjfYyhQFWxgytUj-bWBVyQ-t500x500.jpg">](https://soundcloud.com/primeordnance/heartbloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEuuBVcxb5Wl-0-t500x500.jpg">](https://soundcloud.com/yearsandyears/sweet-talker)
 
-**Artist**: Prime Ordnance 
+**Artist**: Years and Years 
 
-**Track**: Heartbloom
+**Track**: Sweet Talker
 
-Last updated at 01/25/2022 17:50
+Last updated at 01/25/2022 17:51
