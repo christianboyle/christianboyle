@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eoynpis7h51dxBsS-OuG7yg-t500x500.jpg">](https://soundcloud.com/chainyo/faster-daft-punk-tribute)
 
-**Artist**: Lobster Theremin 
+**Artist**: CHAINYO 
 
-**Track**: LT Podcast 207 // Poppy
+**Track**: FASTER (DAFT PUNK TRIBUTE)
 
-Last updated at 01/26/2022 09:38
+Last updated at 01/26/2022 10:43
