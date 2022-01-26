@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJF2p3Nx1cEcrmYx-iYOXWg-t500x500.jpg">](https://soundcloud.com/ghetto-witchez/miss-jay-insomnia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awfzSB7BIcj6vqH8-cvoUQQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/bethan-daisychain-210)
 
-**Artist**: Ghetto Witchez 
+**Artist**: Daisychain 
 
-**Track**: Miss Jay - Insomnia
+**Track**: Daisychain 210 - Bethan
 
-Last updated at 01/25/2022 18:07
+Last updated at 01/25/2022 18:09
