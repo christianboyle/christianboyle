@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ecczuyXxz48yKTLY-eEn6Dw-t500x500.jpg">](https://soundcloud.com/gimmeabreakrecords/premiere-knuckle-fortune-bh-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJ4lgcQdAUIGYiMj-hPM6sw-t500x500.jpg">](https://soundcloud.com/thxnder777/the-final-night)
 
-**Artist**: Gimme A Break Records 
+**Artist**: THXNDER 
 
-**Track**: PREMIERE: Knuckle - Fortune [B&H Records]
+**Track**: THE FINAL NIGHT (ULTIMO CHAPTER)
 
-Last updated at 01/26/2022 14:18
+Last updated at 01/26/2022 14:24
