@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzYWwDeQXqpNleI2-g9fXKw-t500x500.jpg">](https://soundcloud.com/swoopyy/nike-ocean-prod-ddertbag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rXbRN9zCqP2-0-t500x500.jpg">](https://soundcloud.com/cheatcodesmusic/cheat-codes-grey-tyson-ritter)
 
-**Artist**: Swoopy 
+**Artist**: CHEAT CODES 
 
-**Track**: niké ocean (prod. ddertbag) 🏄🏄
+**Track**: Cheat Codes & Grey & Tyson Ritter - Hurricane (with Tyson Ritter)
 
-Last updated at 01/26/2022 11:38
+Last updated at 01/26/2022 11:42
