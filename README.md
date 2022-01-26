@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awfzSB7BIcj6vqH8-cvoUQQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/bethan-daisychain-210)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dfEqivyj3YdYzvSs-RGXT7g-t500x500.jpg">](https://soundcloud.com/ascentrecordings/ascent-sessions-001)
 
-**Artist**: Daisychain 
+**Artist**: Ascent Recordings 
 
-**Track**: Daisychain 210 - Bethan
+**Track**: Ascent Sessions 001
 
-Last updated at 01/26/2022 07:55
+Last updated at 01/26/2022 08:46
