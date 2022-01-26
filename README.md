@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-87oFaNynksIM4zyU-ZyzZ9Q-t500x500.jpg">](https://soundcloud.com/nickyslime420/ee-you-in-the-ky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEuuBVcxb5Wl-0-t500x500.jpg">](https://soundcloud.com/yearsandyears/sweet-talker)
 
-**Artist**: NICKY $LIME 
+**Artist**: Years and Years 
 
-**Track**: $EE YOU IN THE $KY
+**Track**: Sweet Talker
 
-Last updated at 01/26/2022 13:50
+Last updated at 01/26/2022 14:15
