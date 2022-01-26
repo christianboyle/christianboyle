@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eoynpis7h51dxBsS-OuG7yg-t500x500.jpg">](https://soundcloud.com/chainyo/faster-daft-punk-tribute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzYxcsJoxFnDf6iu-a6oRSQ-t500x500.jpg">](https://soundcloud.com/iamonlytom/undercover)
 
-**Artist**: CHAINYO 
+**Artist**: onlytom 
 
-**Track**: FASTER (DAFT PUNK TRIBUTE)
+**Track**: undercover
 
-Last updated at 01/26/2022 10:43
+Last updated at 01/26/2022 10:45
