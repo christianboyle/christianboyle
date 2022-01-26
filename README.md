@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GsvFkABsMDtDptmh-mXyNGg-t500x500.jpg">](https://soundcloud.com/ascentrecordings/soundpour-jetstream-memory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
 
-**Artist**: Ascent Recordings 
+**Artist**: Lobster Theremin 
 
-**Track**: Soundpour - Jetstream (Memory Loss Radio Edit)
+**Track**: LT Podcast 207 // Poppy
 
-Last updated at 01/26/2022 09:35
+Last updated at 01/26/2022 09:38
