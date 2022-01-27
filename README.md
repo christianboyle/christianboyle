@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CG7j5u7EzQ1UB3y-vBdkyA-t500x500.jpg">](https://soundcloud.com/greignofficial/gravity-final)
 
-**Artist**: FIEND WORLD 
+**Artist**: Greign 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: Gravity
 
-Last updated at 01/26/2022 20:01
+Last updated at 01/27/2022 09:03
