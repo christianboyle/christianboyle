@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CG7j5u7EzQ1UB3y-vBdkyA-t500x500.jpg">](https://soundcloud.com/greignofficial/gravity-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oLDymZyxS7K863ky-CWnAaw-t500x500.jpg">](https://soundcloud.com/intercell/dj-plant-texture-live-at-intercell-x-artaphine-pres-hector-oaks)
 
-**Artist**: Greign 
+**Artist**: Intercell 
 
-**Track**: Gravity
+**Track**: DJ Plant Texture [live] at Intercell x Artaphine pres. Héctor Oaks Invites
 
-Last updated at 01/27/2022 09:03
+Last updated at 01/27/2022 09:04
