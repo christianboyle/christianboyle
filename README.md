@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJ4lgcQdAUIGYiMj-hPM6sw-t500x500.jpg">](https://soundcloud.com/thxnder777/the-final-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJF2p3Nx1cEcrmYx-iYOXWg-t500x500.jpg">](https://soundcloud.com/ghetto-witchez/miss-jay-insomnia)
 
-**Artist**: THXNDER 
+**Artist**: Ghetto Witchez 
 
-**Track**: THE FINAL NIGHT (ULTIMO CHAPTER)
+**Track**: Miss Jay - Insomnia
 
-Last updated at 01/26/2022 14:24
+Last updated at 01/26/2022 19:56
