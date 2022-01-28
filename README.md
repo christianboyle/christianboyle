@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jm7vbQyaWRt1yU89-P8wdzg-t500x500.jpg">](https://soundcloud.com/dmonskull/easy-come-easy-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oLDymZyxS7K863ky-CWnAaw-t500x500.jpg">](https://soundcloud.com/intercell/dj-plant-texture-live-at-intercell-x-artaphine-pres-hector-oaks)
 
-**Artist**: DMONSKULL 
+**Artist**: Intercell 
 
-**Track**: EASY COME EASY GO
+**Track**: DJ Plant Texture [live] at Intercell x Artaphine pres. Héctor Oaks Invites
 
-Last updated at 01/28/2022 15:54
+Last updated at 01/28/2022 15:56
