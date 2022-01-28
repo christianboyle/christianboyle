@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oLDymZyxS7K863ky-CWnAaw-t500x500.jpg">](https://soundcloud.com/intercell/dj-plant-texture-live-at-intercell-x-artaphine-pres-hector-oaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
 
-**Artist**: Intercell 
+**Artist**: Lobster Theremin 
 
-**Track**: DJ Plant Texture [live] at Intercell x Artaphine pres. Héctor Oaks Invites
+**Track**: LT Podcast 207 // Poppy
 
-Last updated at 01/28/2022 15:56
+Last updated at 01/28/2022 16:05
