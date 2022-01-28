@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMW3tVxxklOS7Z8c-zSiQVw-t500x500.jpg">](https://soundcloud.com/apoc_krysis/act-up-ft-werve-jupiluxe-undagroundmane-stakillaz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fzgjQXHcjDj9OJj3-HTEQUQ-t500x500.jpg">](https://soundcloud.com/revenant-edm/strangers-once-more?in=revenant-edm/sets/the-only-way-forward-is-to-leave-it-all-behind)
 
-**Artist**: APOC KRYSIS 
+**Artist**: Revenant 
 
-**Track**: Act Up (Ft. $werve, Jupiluxe, Undagroundmane & STAKILLAZ)
+**Track**: strangers once more (feat. Celeste Marie)
 
-Last updated at 01/28/2022 07:48
+Last updated at 01/28/2022 07:50
