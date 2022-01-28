@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJIjMIZdVISHEaY9-WBPXyQ-t500x500.jpg">](https://soundcloud.com/confession/foxd-spirit-animal?in=confession/sets/foxd-spirit-animal-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6rvyqn7pkLpyA7IJ-P7OnOQ-t500x500.jpg">](https://soundcloud.com/proximity/krane-juelz-heimanu-moonbeams)
 
-**Artist**: CONFESSION 
+**Artist**: Proximity 
 
-**Track**: Fox'd - Spirit Animal
+**Track**: KRANE, Juelz & Heimanu - Moonbeams
 
-Last updated at 01/28/2022 08:10
+Last updated at 01/28/2022 08:12
