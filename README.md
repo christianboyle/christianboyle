@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a5WGEHHJ9tyLRB2Z-jkeYMA-t500x500.jpg">](https://soundcloud.com/jauzofficial/bring-et)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJIjMIZdVISHEaY9-WBPXyQ-t500x500.jpg">](https://soundcloud.com/confession/foxd-spirit-animal?in=confession/sets/foxd-spirit-animal-ep)
 
-**Artist**: JAUZ 
+**Artist**: CONFESSION 
 
-**Track**: Jauz - Bring Et
+**Track**: Fox'd - Spirit Animal
 
-Last updated at 01/28/2022 08:01
+Last updated at 01/28/2022 08:10
