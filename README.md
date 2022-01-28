@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RzAlhsVWZ0YInd4-RdRFDA-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-blood-trust-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MooPxIM8KG1R1lVp-gmWoqw-t500x500.jpg">](https://soundcloud.com/user86170670/bambi-mix-master-1-26-2022)
 
-**Artist**: Balamii 
+**Artist**: bambi 
 
-**Track**: Slate Sessions w/ Blood Trust - January 2022
+**Track**: srry to interrupt... ft. grimyboi (prod. iof)
 
-Last updated at 01/28/2022 08:16
+Last updated at 01/28/2022 12:02
