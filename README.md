@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RzAlhsVWZ0YInd4-RdRFDA-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-blood-trust-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jm7vbQyaWRt1yU89-P8wdzg-t500x500.jpg">](https://soundcloud.com/dmonskull/easy-come-easy-go)
 
-**Artist**: Balamii 
+**Artist**: DMONSKULL 
 
-**Track**: Slate Sessions w/ Blood Trust - January 2022
+**Track**: EASY COME EASY GO
 
-Last updated at 01/28/2022 12:03
+Last updated at 01/28/2022 15:54
