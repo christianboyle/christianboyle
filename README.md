@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfEoLmCmqmjLzBUB-Wb00xA-t500x500.jpg">](https://soundcloud.com/kittynxc/call-me-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jclCBQ5RcYLEGYQ-gG2lEg-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-25-feat-lzrd)
 
-**Artist**: kittynxc 
+**Artist**: syence experiments 
 
-**Track**: Call Me 22
+**Track**: syence lab: volume 25 (feat. lzrd)
 
-Last updated at 01/31/2022 12:20
+Last updated at 01/31/2022 12:23
