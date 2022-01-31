@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hfKPV9DPzcr-0-t500x500.jpg">](https://soundcloud.com/theknocks/walking-on-water-feat-totally)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XD5LYeBy2xPRzQ3m-zMMprA-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-844-a-psychic-yes-jan-22)
 
-**Artist**: The Knocks 
+**Artist**: Fact Magazine 
 
-**Track**: Walking On Water (feat. Totally Enormous Extinct Dinosaurs)
+**Track**: Fact Mix 844: A Psychic Yes (Jan '22)
 
-Last updated at 01/28/2022 16:54
+Last updated at 01/31/2022 07:48
