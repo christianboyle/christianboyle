@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVCtictcrzyakFDh-YeMo7Q-t500x500.jpg">](https://soundcloud.com/helloworldbeats/afterthought-with-luma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HalzD0y1zrkJZz2-uaRbyg-t500x500.png">](https://soundcloud.com/rinsefm/bramehamo290122)
 
-**Artist**: helloworld 
+**Artist**: Rinse FM 
 
-**Track**: afterthought (with Luma)
+**Track**: Brame & Hamo - 29 January 2022
 
-Last updated at 01/31/2022 07:49
+Last updated at 01/31/2022 07:51
