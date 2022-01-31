@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e56fn2iVdGD3PQzH-uH0vzg-t500x500.jpg">](https://soundcloud.com/aslanvenom/empiric)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UmtRDMb5L2pJD0ZL-8OMtWw-t500x500.jpg">](https://soundcloud.com/bitbird/tails-golden-youth-eyezic-remix)
 
-**Artist**: ASLAN VENOM 
+**Artist**: bitbird 
 
-**Track**: GOYA KEZD ∾ Empiric ⋙Aslan Venom⋘
+**Track**: Tails - golden youth (Eyezic Remix)
 
-Last updated at 01/31/2022 08:29
+Last updated at 01/31/2022 12:07
