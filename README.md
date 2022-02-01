@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HalzD0y1zrkJZz2-uaRbyg-t500x500.png">](https://soundcloud.com/rinsefm/bramehamo290122)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
 
-**Artist**: Rinse FM 
+**Artist**: kushface ☤ 
 
-**Track**: Brame & Hamo - 29 January 2022
+**Track**: MICHIGAN CLIPS III
 
-Last updated at 02/01/2022 08:46
+Last updated at 02/01/2022 09:43
