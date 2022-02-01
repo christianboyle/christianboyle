@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mlk4ND0zZydJ-0-t500x500.jpg">](https://soundcloud.com/syence/dont-leave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktKt7YRherW9f3BW-zkFz7g-t500x500.jpg">](https://soundcloud.com/syence/truth?in=syence/sets/bass-pop-ep)
 
 **Artist**: syence 
 
-**Track**: don't leave
+**Track**: truth (feat kyle reynolds)
 
-Last updated at 02/01/2022 12:00
+Last updated at 02/01/2022 12:01
