@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPIoFv63utN3Jw8B-4bzxXA-t500x500.jpg">](https://soundcloud.com/deathhamptonphonk/jessica-rabbit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HalzD0y1zrkJZz2-uaRbyg-t500x500.png">](https://soundcloud.com/rinsefm/bramehamo290122)
 
-**Artist**: Death Hampton 
+**Artist**: Rinse FM 
 
-**Track**: Jessica Rabbit
+**Track**: Brame & Hamo - 29 January 2022
 
-Last updated at 02/01/2022 12:13
+Last updated at 02/01/2022 12:15
