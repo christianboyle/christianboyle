@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RzAlhsVWZ0YInd4-RdRFDA-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-blood-trust-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XvtS5ggD4yr2SpYB-mly1nQ-t500x500.jpg">](https://soundcloud.com/parfaitparfait/comme-dans-les-films-3-chippy-nonstop)
 
-**Artist**: Balamii 
+**Artist**: Parfait 
 
-**Track**: Slate Sessions w/ Blood Trust - January 2022
+**Track**: COMME DANS LES FILMS #3: CHIPPY NONSTOP
 
-Last updated at 02/01/2022 09:52
+Last updated at 02/01/2022 10:16
