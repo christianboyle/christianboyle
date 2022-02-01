@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXn91ciMHys1dYJ3-kany0w-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/02-small-talk?in=drakeo-the-ruler/sets/so-cold-i-do-em-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPIoFv63utN3Jw8B-4bzxXA-t500x500.jpg">](https://soundcloud.com/deathhamptonphonk/jessica-rabbit)
 
-**Artist**: DRAKEO The Ruler 
+**Artist**: Death Hampton 
 
-**Track**: 02 Small Talk feat. ALLBLACK (prod by Al B Smoove & Fizzle)
+**Track**: Jessica Rabbit
 
-Last updated at 01/31/2022 16:44
+Last updated at 02/01/2022 08:03
