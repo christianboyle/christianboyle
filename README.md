@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/EhTtJ5sRqX4/maxresdefault.jpg">](https://www.youtube.com/watch?v=EhTtJ5sRqX4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
 
-**Artist**: 311 
+**Artist**: Beat106Scotland 
 
-**Track**: 311 Live From Summer Tour 2019 (“Voyager" release show 7.13.19)
+**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
 
-Last updated at 02/01/2022 18:45
+Last updated at 02/01/2022 18:48
