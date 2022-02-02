@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gXxQdbtD3EAEV99H-YvOGbw-t500x500.jpg">](https://soundcloud.com/beat106scotland/21trance1?in=beat106scotland/sets/beat-106-scotlands-best-of-trance-2021-mix)
 
 **Artist**: Beat106Scotland 
 
-**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
+**Track**: Beat 106 Scotland Best Of Trance 2021 Mix (Hour 1)
 
-Last updated at 02/01/2022 18:48
+Last updated at 02/02/2022 10:22
