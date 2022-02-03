@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gXxQdbtD3EAEV99H-YvOGbw-t500x500.jpg">](https://soundcloud.com/beat106scotland/21trance1?in=beat106scotland/sets/beat-106-scotlands-best-of-trance-2021-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FFDgOIcQuaRnsOz1-tcXYFw-t500x500.jpg">](https://soundcloud.com/djngine/volumes)
 
-**Artist**: Beat106Scotland 
+**Artist**: N-Gine 
 
-**Track**: Beat 106 Scotland Best Of Trance 2021 Mix (Hour 1)
+**Track**: Vol Insane
 
-Last updated at 02/02/2022 10:22
+Last updated at 02/03/2022 09:07
