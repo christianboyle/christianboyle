@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNGMgZ86I36riXqn-CbsTQA-t500x500.jpg">](https://soundcloud.com/balamii/fort-romeau-w-jacques-greene-february-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ljw0Ld5TifKC4rWM-ajcCIw-t500x500.jpg">](https://soundcloud.com/trapicalmusic/moth-to-a-flame)
 
-**Artist**: Balamii 
+**Artist**: Trapical Music 
 
-**Track**: Fort Romeau w/ Jacques Greene - February 2022
+**Track**: Wazad & Alieah - Moth To A Flame
 
-Last updated at 02/03/2022 09:08
+Last updated at 02/03/2022 09:09
