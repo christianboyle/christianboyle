@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-URfg1t69DiuDs8nb-h6wyrw-t500x500.jpg">](https://soundcloud.com/ajsimons/no-rest-ft-emotegi-prod-umru)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XjD82ugxh3py1VwG-I6F4sQ-t500x500.jpg">](https://soundcloud.com/drjeep/lfo-jeep-nyc-mix)
 
-**Artist**: Aj simons 
+**Artist**: doctor jeep 
 
-**Track**: No rest ft. emotegi (prod. umru)
+**Track**: LFO - LFO (Doctor Jeep NYC Warehouse Mix)
 
-Last updated at 02/04/2022 10:01
+Last updated at 02/04/2022 10:02
