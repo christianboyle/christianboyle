@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RzAlhsVWZ0YInd4-RdRFDA-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-blood-trust-january-2022)
 
-**Artist**: kushface ☤ 
+**Artist**: Balamii 
 
-**Track**: MICHIGAN CLIPS III
+**Track**: Slate Sessions w/ Blood Trust - January 2022
 
-Last updated at 02/04/2022 12:25
+Last updated at 02/04/2022 12:33
