@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUcObshsyjqnHhs3-zzqAGQ-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-presents-slow-astro-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
 
-**Artist**: Astrophonica 
+**Artist**: kushface ☤ 
 
-**Track**: Fracture Presents: Slow Astro Vol 1
+**Track**: MICHIGAN CLIPS III
 
-Last updated at 02/04/2022 11:54
+Last updated at 02/04/2022 12:25
