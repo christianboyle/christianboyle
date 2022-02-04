@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ig1sUIF9ezG9JRdd-cuxU2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-fly-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUcObshsyjqnHhs3-zzqAGQ-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-presents-slow-astro-vol-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Astrophonica 
 
-**Track**: Sub Zero Project - Fly With Me
+**Track**: Fracture Presents: Slow Astro Vol 1
 
-Last updated at 02/04/2022 06:29
+Last updated at 02/04/2022 06:30
