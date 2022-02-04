@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ysdBWq4Q0zjxa5B-bGnZRQ-t500x500.jpg">](https://soundcloud.com/m1ssjay/bestfriend-experimentation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKYc0agg1rjoUhL9-up7xrw-t500x500.jpg">](https://soundcloud.com/quickdropmusic/turn-it-up-yotabyte-2022)
 
-**Artist**: Miss Jay 
+**Artist**: Quickdrop 
 
-**Track**: Dj Taj, Sliink & Big O X Miss Jay - Bestfriend Experimentation (Miss Jay Blend)
+**Track**: Turn It Up (Yotabyte 2022)
 
-Last updated at 02/04/2022 10:03
+Last updated at 02/04/2022 10:07
