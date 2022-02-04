@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUcObshsyjqnHhs3-zzqAGQ-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-presents-slow-astro-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-URfg1t69DiuDs8nb-h6wyrw-t500x500.jpg">](https://soundcloud.com/ajsimons/no-rest-ft-emotegi-prod-umru)
 
-**Artist**: Astrophonica 
+**Artist**: Aj simons 
 
-**Track**: Fracture Presents: Slow Astro Vol 1
+**Track**: No rest ft. emotegi (prod. umru)
 
-Last updated at 02/04/2022 08:31
+Last updated at 02/04/2022 10:01
