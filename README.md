@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RzAlhsVWZ0YInd4-RdRFDA-t500x500.jpg">](https://soundcloud.com/balamii/slate-sessions-w-blood-trust-january-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUcObshsyjqnHhs3-zzqAGQ-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-presents-slow-astro-vol-1)
 
-**Artist**: Balamii 
+**Artist**: Astrophonica 
 
-**Track**: Slate Sessions w/ Blood Trust - January 2022
+**Track**: Fracture Presents: Slow Astro Vol 1
 
-Last updated at 02/04/2022 12:33
+Last updated at 02/05/2022 07:16
