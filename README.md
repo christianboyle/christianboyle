@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUcObshsyjqnHhs3-zzqAGQ-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-presents-slow-astro-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yG7YfMKRcN4uqsu-o17yhw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rhythmic-culture-at-radio-80000-w-osmanbas)
 
-**Artist**: Astrophonica 
+**Artist**: Rhythmic Culture 
 
-**Track**: Fracture Presents: Slow Astro Vol 1
+**Track**: Rhythmic Culture at Radio 80000 w/ Osmanbas
 
-Last updated at 02/05/2022 07:16
+Last updated at 02/06/2022 09:35
