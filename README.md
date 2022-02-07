@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ZGJxTuYJP8o/hqdefault.jpg">](https://www.youtube.com/watch?v=ZGJxTuYJP8o)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/l41LN8QJVzo/maxresdefault.jpg">](https://www.youtube.com/watch?v=l41LN8QJVzo)
 
-**Artist**: YG 
+**Artist**: Shoreline Mafia 
 
-**Track**: Scared Money ft. J. Cole, Moneybagg Yo
+**Track**: Bands (feat. Fenix Flexin, Master Kato & OhGeesy) [Official Music Video]
 
-Last updated at 02/06/2022 18:46
+Last updated at 02/06/2022 18:50
