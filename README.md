@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yG7YfMKRcN4uqsu-o17yhw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rhythmic-culture-at-radio-80000-w-osmanbas)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/ZGJxTuYJP8o/hqdefault.jpg">](https://www.youtube.com/watch?v=ZGJxTuYJP8o)
 
-**Artist**: Rhythmic Culture 
+**Artist**: YG 
 
-**Track**: Rhythmic Culture at Radio 80000 w/ Osmanbas
+**Track**: Scared Money ft. J. Cole, Moneybagg Yo
 
-Last updated at 02/06/2022 09:35
+Last updated at 02/06/2022 18:46
