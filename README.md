@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/NPWF6og08ZA/maxresdefault.jpg">](https://www.youtube.com/watch?v=NPWF6og08ZA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yG7YfMKRcN4uqsu-o17yhw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rhythmic-culture-at-radio-80000-w-osmanbas)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: Rhythmic Culture 
 
-**Track**: OTM (Duffy & BluePesos) - Cliff Hanger Remix feat. Drakeo the Ruler [Official Music Video]
+**Track**: Rhythmic Culture at Radio 80000 w/ Osmanbas
 
-Last updated at 02/06/2022 19:23
+Last updated at 02/07/2022 08:56
