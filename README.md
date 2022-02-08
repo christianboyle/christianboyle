@@ -1,30 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/NPWF6og08ZA/maxresdefault.jpg">](https://www.youtube.com/watch?v=NPWF6og08ZA)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/eS4e4b27-NE/hqdefault.jpg">](https://www.youtube.com/watch?v=eS4e4b27-NE)
 
-**Artist**: 
-  
-    Lil Peep
-  
-  
-  
-    Lil Peep
-  
+**Artist**: Shoreline Mafia 
 
+**Track**: Change Ya Life [Official Music Video]
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: lil peep w/ yung bruh - white tee
-
-Last updated at 02/07/2022 19:18
+Last updated at 02/07/2022 20:19
