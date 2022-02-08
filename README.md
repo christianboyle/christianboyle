@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/eS4e4b27-NE/hqdefault.jpg">](https://www.youtube.com/watch?v=eS4e4b27-NE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yG7YfMKRcN4uqsu-o17yhw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rhythmic-culture-at-radio-80000-w-osmanbas)
 
-**Artist**: Shoreline Mafia 
+**Artist**: Rhythmic Culture 
 
-**Track**: Change Ya Life [Official Music Video]
+**Track**: Rhythmic Culture at Radio 80000 w/ Osmanbas
 
-Last updated at 02/07/2022 20:19
+Last updated at 02/08/2022 07:50
