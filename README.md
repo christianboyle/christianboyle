@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yG7YfMKRcN4uqsu-o17yhw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rhythmic-culture-at-radio-80000-w-osmanbas)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/zU1MjqjUe_Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=zU1MjqjUe_Q)
 
-**Artist**: Rhythmic Culture 
+**Artist**: smrtdeath 
 
-**Track**: Rhythmic Culture at Radio 80000 w/ Osmanbas
+**Track**: sober (featuring lil aaron, lil lotus & boyfriendz)
 
-Last updated at 02/07/2022 08:56
+Last updated at 02/07/2022 19:01
