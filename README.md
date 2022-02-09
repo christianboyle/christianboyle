@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVk03xhrxgbIvHzD-m2kwiQ-t500x500.jpg">](https://soundcloud.com/tribaltrapmusic/ride)
 
-**Artist**: Beat106Scotland 
+**Artist**: Tribal Trap 
 
-**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
+**Track**: NEYVO - Ride (feat. Jeffreymmvii)
 
-Last updated at 02/09/2022 08:03
+Last updated at 02/09/2022 10:01
