@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Afag8FbylM8Pl2zw-zp9pBQ-t500x500.jpg">](https://soundcloud.com/balamii/disconnecting-the-dots-w-etch-february-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOjUUDGiyUXZA3I3-HxkpjQ-t500x500.jpg">](https://soundcloud.com/historyofhappyhardcore/saturday-seshions-its-all-just-rave-hdsn-live-on-twitch-5222)
 
-**Artist**: Balamii 
+**Artist**: History Of Happy Hardcore 
 
-**Track**: Disconnecting The Dots w/ Etch - February 2022
+**Track**: Saturday Seshions 'It's All Just Rave' - HDSN (Live On Twitch 5/2/22)
 
-Last updated at 02/09/2022 11:30
+Last updated at 02/09/2022 16:55
