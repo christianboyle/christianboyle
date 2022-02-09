@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rz2Ik2AzbmYyjqDS-m6a3Ag-t500x500.jpg">](https://soundcloud.com/summetmusic/solitude-w-reeka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6jTzC1zTC0y7jCb-79PGhA-t500x500.jpg">](https://soundcloud.com/balamii/dj-jewli-w-brak-and-mojvk-february-2022)
 
-**Artist**: summet 
+**Artist**: Balamii 
 
-**Track**: solitude (w/ reeka)
+**Track**: DJ Jewli w/ Brak and MOJVK - February 2022
 
-Last updated at 02/09/2022 10:04
+Last updated at 02/09/2022 10:07
