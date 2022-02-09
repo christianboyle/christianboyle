@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t500x500.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opQv0ePk4ympywOH-3IH7dw-t500x500.jpg">](https://soundcloud.com/lil_peep/hellboy-prod-smokeasac-x-yung-cortex?in=flowneet/sets/lil-peep)
 
-**Artist**: Goodnight Cody 
+**Artist**: ☆LiL PEEP☆ 
 
-**Track**: Quack Quack Quack Quack QUACK
+**Track**: hellboy (prod smokeasac x yung cortex)
 
-Last updated at 02/09/2022 17:31
+Last updated at 02/09/2022 17:33
