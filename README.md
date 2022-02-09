@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6jTzC1zTC0y7jCb-79PGhA-t500x500.jpg">](https://soundcloud.com/balamii/dj-jewli-w-brak-and-mojvk-february-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC2yPi5Yson45s1d-txuJcg-t500x500.jpg">](https://soundcloud.com/officialtrapparty/eternity)
 
-**Artist**: Balamii 
+**Artist**: Trap Party 
 
-**Track**: DJ Jewli w/ Brak and MOJVK - February 2022
+**Track**: Sultan Braum & Noah - Eternity
 
-Last updated at 02/09/2022 10:07
+Last updated at 02/09/2022 11:10
