@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKYc0agg1rjoUhL9-up7xrw-t500x500.jpg">](https://soundcloud.com/quickdropmusic/turn-it-up-yotabyte-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000372923661-6tj4bp-t500x500.jpg">](https://soundcloud.com/casualgabberz/aamour-ocean-enjoy)
 
-**Artist**: Quickdrop 
+**Artist**: CASUAL GABBERZ 
 
-**Track**: Turn It Up (Yotabyte 2022)
+**Track**: aamourocean - Enjoy The Silence
 
-Last updated at 02/09/2022 17:25
+Last updated at 02/09/2022 17:27
