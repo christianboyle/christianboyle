@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVk03xhrxgbIvHzD-m2kwiQ-t500x500.jpg">](https://soundcloud.com/tribaltrapmusic/ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LLJW07H0dNQ555Ut-ZyJFqA-t500x500.jpg">](https://soundcloud.com/ethanplus/twrk-badinga-ethanplus-remix)
 
-**Artist**: Tribal Trap 
+**Artist**: ethanplus 
 
-**Track**: NEYVO - Ride (feat. Jeffreymmvii)
+**Track**: TWRK - BaDINGA! (ethanplus Remix)
 
-Last updated at 02/09/2022 10:01
+Last updated at 02/09/2022 10:02
