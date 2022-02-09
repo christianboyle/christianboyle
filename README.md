@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000141681235-o25rtx-t500x500.jpg">](https://soundcloud.com/adderallmusic/adderall-x-yoshi463-x-skinny-mctoothpick-t-word)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000138782189-tw3979-t500x500.jpg">](https://soundcloud.com/ice-underlord/am-i-wrong-meltdown-2k14)
 
-**Artist**: ADDERALL 
+**Artist**: ICEUNDERLORD 
 
-**Track**: ADDERALL X YOSHI463 X SKINNY MCTOOTHPICK -  T WORD
+**Track**: AM I WRONG MELTDOWN 2K14
 
-Last updated at 02/09/2022 17:28
+Last updated at 02/09/2022 17:29
