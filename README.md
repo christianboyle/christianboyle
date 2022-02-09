@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opQv0ePk4ympywOH-3IH7dw-t500x500.jpg">](https://soundcloud.com/lil_peep/hellboy-prod-smokeasac-x-yung-cortex?in=flowneet/sets/lil-peep)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/-_sgBpNSovs/hqdefault.jpg">](https://www.youtube.com/watch?v=-_sgBpNSovs)
 
-**Artist**: ☆LiL PEEP☆ 
+**Artist**: RAMIREZ 
 
-**Track**: hellboy (prod smokeasac x yung cortex)
+**Track**: 100 Bars & Gunnin
 
-Last updated at 02/09/2022 17:33
+Last updated at 02/09/2022 17:36
