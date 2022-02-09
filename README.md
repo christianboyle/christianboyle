@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LLJW07H0dNQ555Ut-ZyJFqA-t500x500.jpg">](https://soundcloud.com/ethanplus/twrk-badinga-ethanplus-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mripHGC9dyXszNM4-55zq2A-t500x500.jpg">](https://soundcloud.com/goofybeatboy/t4yl0r-5w1ft-l0v3-5t0ry-ethanplus-version)
 
-**Artist**: ethanplus 
+**Artist**: gooofy beat boy 
 
-**Track**: TWRK - BaDINGA! (ethanplus Remix)
+**Track**: T4YL0R 5W1FT - L0V3 5T0RY (ethanplus Version)
 
-Last updated at 02/09/2022 10:02
+Last updated at 02/09/2022 10:03
