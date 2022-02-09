@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NSOIoOwMdTxBl8Z-ecp4mA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-23-feat-bkaye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
 
-**Artist**: syence experiments 
+**Artist**: Beat106Scotland 
 
-**Track**: syence lab: volume 23 (feat. BKAYE)
+**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
 
-Last updated at 02/08/2022 16:25
+Last updated at 02/09/2022 08:03
