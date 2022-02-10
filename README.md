@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EbWgz4maQUk-0-t500x500.jpg">](https://soundcloud.com/notdofficial/never-a-good-time?in=saxurn/sets/3a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gSk8lUH4QrCEiOs9-KlIYxA-t500x500.jpg">](https://soundcloud.com/korizon_music/disc-drive-1?in=saxurn/sets/3a1)
 
-**Artist**: NOTD 
+**Artist**: Korizon 
 
-**Track**: Never A Good Time
+**Track**: Disc Drive
 
-Last updated at 02/10/2022 09:47
+Last updated at 02/10/2022 09:56
