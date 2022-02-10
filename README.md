@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWntINyFmpn0ZvOv-vArjXw-t500x500.jpg">](https://soundcloud.com/nedud/always-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kd7mqVGbogGO-0-t500x500.jpg">](https://soundcloud.com/tkaymaidza/carry-on-dubbel-dutch-remix)
 
-**Artist**: Nedud 
+**Artist**: Tkay Maidza 
 
-**Track**: The Kid LAROI - ALWAYS DO (Nedud Remix)
+**Track**: Carry On (Dubbel Dutch Remix) [feat. Killer Mike]
 
-Last updated at 02/10/2022 08:41
+Last updated at 02/10/2022 08:42
