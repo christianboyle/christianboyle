@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBVeYtfTOSIE-0-t500x500.jpg">](https://soundcloud.com/edsheeran/ed-sheeran-shivers-navos-remix?in=saxurn/sets/3a1/)
 
-**Artist**: BKAYE 
+**Artist**: Ed Sheeran 
 
-**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
+**Track**: Ed Sheeran - Shivers (Navos Remix)
 
-Last updated at 02/10/2022 16:09
+Last updated at 02/10/2022 16:12
