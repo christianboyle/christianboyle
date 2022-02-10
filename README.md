@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBVeYtfTOSIE-0-t500x500.jpg">](https://soundcloud.com/edsheeran/ed-sheeran-shivers-navos-remix?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-pisces-rising-ft-chymes-1)
 
-**Artist**: Ed Sheeran 
+**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: Ed Sheeran - Shivers (Navos Remix)
+**Track**: Donatachi - pisces rising (ft.  Chymes)
 
-Last updated at 02/10/2022 08:49
+Last updated at 02/10/2022 08:57
