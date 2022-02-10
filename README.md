@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
 
-**Artist**: BKAYE 
+**Artist**: kmoe 
 
-**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
+**Track**: gloves
 
-Last updated at 02/10/2022 08:44
+Last updated at 02/10/2022 08:45
