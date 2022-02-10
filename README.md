@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000238864025-fjf5i8-t500x500.jpg">](https://soundcloud.com/deep-chills/runfree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6M91nVgq3EKOYzc-Aq8XpQ-t500x500.jpg">](https://soundcloud.com/princefoxmusic/industry-baby-pf-twitch-live-stream-reprod)
 
-**Artist**: Deep Chills 
+**Artist**: Prince Fox 
 
-**Track**: Deep Chills - Run Free (feat. IVIE)
+**Track**: Lil Nas X - Industry Baby - PF twitch live stream reprod
 
-Last updated at 02/10/2022 17:29
+Last updated at 02/10/2022 17:31
