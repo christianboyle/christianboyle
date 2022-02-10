@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/t1kt0k?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBVeYtfTOSIE-0-t500x500.jpg">](https://soundcloud.com/edsheeran/ed-sheeran-shivers-navos-remix?in=saxurn/sets/3a1/)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Ed Sheeran 
 
-**Track**: 10 - DJ IKEA CANADA - T!KT0K!!!
+**Track**: Ed Sheeran - Shivers (Navos Remix)
 
-Last updated at 02/10/2022 08:20
+Last updated at 02/10/2022 08:22
