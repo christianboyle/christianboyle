@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/-_sgBpNSovs/hqdefault.jpg">](https://www.youtube.com/watch?v=-_sgBpNSovs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyiZbpt4sDbk0el9-qtT8Fg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/heritage-chrome)
 
-**Artist**: RAMIREZ 
+**Artist**: Scuffed Recordings 
 
-**Track**: 100 Bars & Gunnin
+**Track**: Heritage - Chrome
 
-Last updated at 02/09/2022 17:36
+Last updated at 02/10/2022 07:55
