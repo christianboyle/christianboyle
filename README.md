@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7TH3ORlawFzHkf8W-5eswzw-t500x500.jpg">](https://soundcloud.com/blackb0und/northside-knotty-wfauxessinner-circle-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvxFPtuSyai11b6o-PYUHwQ-t500x500.jpg">](https://soundcloud.com/ryanleahan/bang-my-head-against-the-1)
 
-**Artist**: BlackBound 黒 
+**Artist**: Ryan Leahan 
 
-**Track**: Northside Knotty w/fauxes(Sinner Circle Vol. 2)
+**Track**: BANG MY HEAD AGAINST THE WALL [dakota dogma b2b blondie rmx]
 
-Last updated at 02/10/2022 08:11
+Last updated at 02/10/2022 08:13
