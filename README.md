@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRpzXiicjZxDOYuL-GMMglQ-t500x500.jpg">](https://soundcloud.com/plusagency/pluscast-stanchrist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-87oFaNynksIM4zyU-ZyzZ9Q-t500x500.jpg">](https://soundcloud.com/nickyslime420/ee-you-in-the-ky)
 
-**Artist**: PLUS AGENCY 
+**Artist**: NICKY $LIME 
 
-**Track**: PLUSCAST #056 - STAN CHRIST
+**Track**: $EE YOU IN THE $KY
 
-Last updated at 02/10/2022 07:56
+Last updated at 02/10/2022 08:09
