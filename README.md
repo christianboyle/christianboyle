@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iopzDuyzGJ5zr6XX-CMut1g-t500x500.jpg">](https://soundcloud.com/0noahh/conversate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYZGd6yzzjgf7Frw-28lUGQ-t500x500.jpg">](https://soundcloud.com/lvrsnfrnds/crush-on-you-1)
 
-**Artist**: Noahh 
+**Artist**: LVRSNFRNDS 
 
-**Track**: Conversate (Michael Warren)
+**Track**: Crush On You
 
-Last updated at 02/10/2022 08:27
+Last updated at 02/10/2022 08:29
