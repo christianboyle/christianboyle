@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/t1kt0k?in=saxurn/sets/3a1/)
 
-**Artist**: kmoe 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: gloves
+**Track**: 10 - DJ IKEA CANADA - T!KT0K!!!
 
-Last updated at 02/10/2022 08:45
+Last updated at 02/10/2022 08:47
