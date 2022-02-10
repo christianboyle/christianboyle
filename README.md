@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/-oudxfnyUFE/maxresdefault.jpg">](https://www.youtube.com/watch?v=-oudxfnyUFE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBVeYtfTOSIE-0-t500x500.jpg">](https://soundcloud.com/edsheeran/ed-sheeran-shivers-navos-remix?in=saxurn/sets/3a1/)
 
-**Artist**: KAVINSKY 
+**Artist**: Ed Sheeran 
 
-**Track**: Kavinsky - Renegade (Official video) ft. Cautious Clay
+**Track**: Ed Sheeran - Shivers (Navos Remix)
 
-Last updated at 02/10/2022 17:40
+Last updated at 02/10/2022 17:41
