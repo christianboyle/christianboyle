@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyiZbpt4sDbk0el9-qtT8Fg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/heritage-chrome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRpzXiicjZxDOYuL-GMMglQ-t500x500.jpg">](https://soundcloud.com/plusagency/pluscast-stanchrist)
 
-**Artist**: Scuffed Recordings 
+**Artist**: PLUS AGENCY 
 
-**Track**: Heritage - Chrome
+**Track**: PLUSCAST #056 - STAN CHRIST
 
-Last updated at 02/10/2022 07:55
+Last updated at 02/10/2022 07:56
