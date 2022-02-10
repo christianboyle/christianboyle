@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-pisces-rising-ft-chymes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfB5ShuXCdZr-0-t500x500.jpg">](https://soundcloud.com/maisie-peters/psycho-joel-corry-remix?in=saxurn/sets/3a1)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: Maisie Peters 
 
-**Track**: Donatachi - pisces rising (ft.  Chymes)
+**Track**: Psycho (Joel Corry Remix)
 
-Last updated at 02/10/2022 08:57
+Last updated at 02/10/2022 08:58
