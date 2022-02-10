@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-87oFaNynksIM4zyU-ZyzZ9Q-t500x500.jpg">](https://soundcloud.com/nickyslime420/ee-you-in-the-ky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7TH3ORlawFzHkf8W-5eswzw-t500x500.jpg">](https://soundcloud.com/blackb0und/northside-knotty-wfauxessinner-circle-vol-2)
 
-**Artist**: NICKY $LIME 
+**Artist**: BlackBound 黒 
 
-**Track**: $EE YOU IN THE $KY
+**Track**: Northside Knotty w/fauxes(Sinner Circle Vol. 2)
 
-Last updated at 02/10/2022 08:09
+Last updated at 02/10/2022 08:11
