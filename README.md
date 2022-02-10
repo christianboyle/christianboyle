@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFGA6Q2uUxIPZF9A-wDCXMg-t500x500.jpg">](https://soundcloud.com/spinwellmusic/24kgoldn-love-or-lust-official-jan3k-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000420752556-yfhhqs-t500x500.jpg">](https://soundcloud.com/nurkomusic/halsey-withoutme-nurko-milesaway)
 
-**Artist**: Spinwell 
+**Artist**: ɴᴜʀᴋᴏ💧 
 
-**Track**: 24kGoldn - Love Or Lust (JAN3K REMIX)
+**Track**: Halsey - Without Me (Nurko & Miles Away Remix)
 
-Last updated at 02/10/2022 17:09
+Last updated at 02/10/2022 17:12
