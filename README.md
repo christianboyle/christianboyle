@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000472740510-j4pu6z-t500x500.jpg">](https://soundcloud.com/galenacrew/onefoot)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/-oudxfnyUFE/maxresdefault.jpg">](https://www.youtube.com/watch?v=-oudxfnyUFE)
 
-**Artist**: Galena Crew 
+**Artist**: KAVINSKY 
 
-**Track**: Walk The Moon - One Foot (Galena Crew Remix)
+**Track**: Kavinsky - Zenith (Official Audio)
 
-Last updated at 02/10/2022 17:38
+Last updated at 02/10/2022 17:39
