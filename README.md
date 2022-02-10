@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oUDsvQRh0vmtKinI-3CBetw-t500x500.jpg">](https://soundcloud.com/merca-bae/merca-bae-bk-beats-braintear-spookie-salute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix)
 
-**Artist**: Merca Bae 
+**Artist**: BKAYE 
 
-**Track**: Merca Bae, bk beats & Braintear Spookie - Salute
+**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
 
-Last updated at 02/10/2022 08:43
+Last updated at 02/10/2022 08:44
