@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133487530-gfefy1-t500x500.jpg">](https://soundcloud.com/robokidonline/i-need-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWntINyFmpn0ZvOv-vArjXw-t500x500.jpg">](https://soundcloud.com/nedud/always-do)
 
-**Artist**: robokid 
+**Artist**: Nedud 
 
-**Track**: I Need U
+**Track**: The Kid LAROI - ALWAYS DO (Nedud Remix)
 
-Last updated at 02/10/2022 08:40
+Last updated at 02/10/2022 08:41
