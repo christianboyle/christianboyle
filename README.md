@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTbQHVZBWBg0U2oS-aA4Rdw-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/corona-rhythm-of-the-night-gestalt-weapon-edit?in=saxurn/sets/3a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYZGd6yzzjgf7Frw-28lUGQ-t500x500.jpg">](https://soundcloud.com/lvrsnfrnds/crush-on-you-1/s-sEvFqYZDdZQ?in=saxurn/sets/3a1)
 
-**Artist**: Dancefloor Impact Research 
+**Artist**: LVRSNFRNDS 
 
-**Track**: [DIRW02] Corona - Rhythm Of The Night (Gestalt Weapon Edit) [FREE DOWNLOAD]
+**Track**: Crush On You
 
-Last updated at 02/10/2022 15:46
+Last updated at 02/10/2022 15:52
