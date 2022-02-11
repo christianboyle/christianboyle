@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yr4dZupLi8921iQ2-MwdMrQ-t500x500.jpg">](https://soundcloud.com/sekizosan/midnight-market-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gt3piaQPb7uuBwUj-Tk4yyA-t500x500.jpg">](https://soundcloud.com/damjanvojtovic/xpress-yourself-podcast-81-lamo)
 
-**Artist**: SEKIZO 
+**Artist**: Damjan Vojtovic / Xpress Yourself Podcast 
 
-**Track**: MIDNIGHT MARKET [FULL STREAM]
+**Track**: Xpress Yourself Podcast #81 - LAMO
 
-Last updated at 02/11/2022 10:49
+Last updated at 02/11/2022 10:50
