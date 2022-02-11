@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfB5ShuXCdZr-0-t500x500.jpg">](https://soundcloud.com/maisie-peters/psycho-joel-corry-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2vPermSKyGxV-0-t500x500.jpg">](https://soundcloud.com/billented-music/when-youre-out-feat-mae-muller)
 
-**Artist**: Maisie Peters 
+**Artist**: Billen Ted 
 
-**Track**: Psycho (Joel Corry Remix)
+**Track**: When You're Out (feat. Mae Muller)
 
-Last updated at 02/11/2022 14:57
+Last updated at 02/11/2022 15:00
