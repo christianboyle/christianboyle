@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160375538-ffjn56-t500x500.jpg">](https://soundcloud.com/not_pepsi/robyn-fembot-pepsi-edit/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
 
-**Artist**: Not Pepsi 
+**Artist**: BKAYE 
 
-**Track**: Robyn - Fembot (pepsi edit)
+**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
 
-Last updated at 02/11/2022 09:42
+Last updated at 02/11/2022 09:44
