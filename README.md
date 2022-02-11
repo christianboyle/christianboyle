@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UiYwMi39QzcUu10Y-hsbPIg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc177?in=nonstopnxc/sets/nxcep02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kNVQJrI1JgFF9UMc-EoNFOg-t500x500.jpg">](https://soundcloud.com/almogfx/first-of-the-crowd)
 
-**Artist**: NON STOP NXC® 
+**Artist**: almogfx 
 
-**Track**: NXC177 - Ivy Sinthetic - Distance
+**Track**: first of the crowd
 
-Last updated at 02/11/2022 14:50
+Last updated at 02/11/2022 14:51
