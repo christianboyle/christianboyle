@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srPycqa03a7tAbZj-syA9HA-t500x500.jpg">](https://soundcloud.com/katebi/bezerk?in=katebi/sets/speedrun-bringbacktread)
 
-**Artist**: kushface ☤ 
+**Artist**: KATEBI 
 
-**Track**: MICHIGAN CLIPS III
+**Track**: Bezerk
 
-Last updated at 02/11/2022 17:05
+Last updated at 02/11/2022 17:08
