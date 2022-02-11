@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srPycqa03a7tAbZj-syA9HA-t500x500.jpg">](https://soundcloud.com/katebi/bezerk?in=katebi/sets/speedrun-bringbacktread)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiroEPskk2tittzL-LXc9mg-t500x500.jpg">](https://soundcloud.com/ervinboyes/clips-vii)
 
-**Artist**: KATEBI 
+**Artist**: ERVIN 
 
-**Track**: Bezerk
+**Track**: CLIPS VII
 
-Last updated at 02/11/2022 17:08
+Last updated at 02/11/2022 17:09
