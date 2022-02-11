@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-75tSz8LsuRuf-0-t500x500.jpg">](https://soundcloud.com/louisthechild/hole-in-my-heart-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EbWgz4maQUk-0-t500x500.jpg">](https://soundcloud.com/notdofficial/never-a-good-time)
 
-**Artist**: Louis The Child 
+**Artist**: NOTD 
 
-**Track**: Hole In My Heart
+**Track**: Never A Good Time
 
-Last updated at 02/11/2022 15:06
+Last updated at 02/11/2022 15:09
