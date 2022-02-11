@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sl51pQSpRlq4Sf6T-A6Nv8A-t500x500.jpg">](https://soundcloud.com/tomasgrey/summer-mix-shotgun-edition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yr4dZupLi8921iQ2-MwdMrQ-t500x500.jpg">](https://soundcloud.com/sekizosan/midnight-market-full-stream)
 
-**Artist**: Tomas Grey 
+**Artist**: SEKIZO 
 
-**Track**: Summer Mix (Shotgun Edition)
+**Track**: MIDNIGHT MARKET [FULL STREAM]
 
-Last updated at 02/11/2022 09:47
+Last updated at 02/11/2022 10:49
