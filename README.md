@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EbWgz4maQUk-0-t500x500.jpg">](https://soundcloud.com/notdofficial/never-a-good-time/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYZGd6yzzjgf7Frw-28lUGQ-t500x500.jpg">](https://soundcloud.com/lvrsnfrnds/crush-on-you-1/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
 
-**Artist**: NOTD 
+**Artist**: LVRSNFRNDS 
 
-**Track**: Never A Good Time
+**Track**: Crush On You
 
-Last updated at 02/11/2022 09:31
+Last updated at 02/11/2022 09:34
