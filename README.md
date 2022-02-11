@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QfB0yw4fLqWFf36D-eu4bBA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/stay-bkaye-remix/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sl51pQSpRlq4Sf6T-A6Nv8A-t500x500.jpg">](https://soundcloud.com/tomasgrey/summer-mix-shotgun-edition)
 
-**Artist**: BKAYE 
+**Artist**: Tomas Grey 
 
-**Track**: The Kid Laroi & Justin Bieber - Stay (BKAYE Remix)
+**Track**: Summer Mix (Shotgun Edition)
 
-Last updated at 02/11/2022 09:44
+Last updated at 02/11/2022 09:47
