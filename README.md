@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rFsXWadZX62USTY-uimg3A-t500x500.jpg">](https://soundcloud.com/mi1eena/headlock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
 
-**Artist**: mileena 
+**Artist**: kushface ☤ 
 
-**Track**: headlock
+**Track**: MICHIGAN CLIPS III
 
-Last updated at 02/11/2022 17:04
+Last updated at 02/11/2022 17:05
