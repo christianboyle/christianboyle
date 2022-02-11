@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYZGd6yzzjgf7Frw-28lUGQ-t500x500.jpg">](https://soundcloud.com/lvrsnfrnds/crush-on-you-1/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179881836-sd9lfe-t500x500.jpg">](https://soundcloud.com/powerpup/paris-hilton-i-want-you-powerpups-headspin-remix/s-sEvFqYZDdZQ?in=saxurn/sets/3a1/)
 
-**Artist**: LVRSNFRNDS 
+**Artist**: Powerpup 
 
-**Track**: Crush On You
+**Track**: Paris Hilton - I Want You (Powerpup's Headspin Remix)
 
-Last updated at 02/11/2022 09:34
+Last updated at 02/11/2022 09:37
