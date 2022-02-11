@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiroEPskk2tittzL-LXc9mg-t500x500.jpg">](https://soundcloud.com/ervinboyes/clips-vii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=fiendworldwide/sets/cold-sweats)
 
-**Artist**: ERVIN 
+**Artist**: FIEND WORLD 
 
-**Track**: CLIPS VII
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 02/11/2022 17:09
+Last updated at 02/11/2022 17:11
