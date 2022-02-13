@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d4RAy31y5J0ooyQz-05DyXg-t500x500.jpg">](https://soundcloud.com/hax_dnb/hax-essential-cyb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537435858-nb8jox-t500x500.jpg">](https://soundcloud.com/katebi/synthetic-memory)
 
-**Artist**: H.A.X 
+**Artist**: KATEBI 
 
-**Track**: HAX - Essential (CYB REMIX)
+**Track**: SYNTHETIC MEMORY
 
-Last updated at 02/13/2022 15:00
+Last updated at 02/13/2022 15:01
