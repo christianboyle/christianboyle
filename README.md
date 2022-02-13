@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4e1HrjMOoS7QL9jW-TDbhrg-t500x500.jpg">](https://soundcloud.com/synthion/first-star)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAVdTzvvsP5RRtH5-g8QURw-t500x500.jpg">](https://soundcloud.com/trapicalmusic/too-small-for-the-world)
 
-**Artist**: Synthion 
+**Artist**: Trapical Music 
 
-**Track**: First Star (feat. STΔRLIVHT♣♦) 【NOISZ STΔRLIVHT】
+**Track**: Taska Black - Too Small For The World (Kila Remix)
 
-Last updated at 02/13/2022 11:12
+Last updated at 02/13/2022 11:13
