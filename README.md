@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAVdTzvvsP5RRtH5-g8QURw-t500x500.jpg">](https://soundcloud.com/trapicalmusic/too-small-for-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d4RAy31y5J0ooyQz-05DyXg-t500x500.jpg">](https://soundcloud.com/hax_dnb/hax-essential-cyb-remix)
 
-**Artist**: Trapical Music 
+**Artist**: H.A.X 
 
-**Track**: Taska Black - Too Small For The World (Kila Remix)
+**Track**: HAX - Essential (CYB REMIX)
 
-Last updated at 02/13/2022 11:13
+Last updated at 02/13/2022 15:00
