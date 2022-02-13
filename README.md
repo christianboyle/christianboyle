@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q82WzM7FzxY4f50F-KywN5Q-t500x500.jpg">](https://soundcloud.com/airsh4d3/beyond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQktNbYoyq2nI18p-QsW0lA-t500x500.jpg">](https://soundcloud.com/p3pper/fashion-killa-flipp)
 
-**Artist**: airshade 
+**Artist**: P3PPER 
 
-**Track**: beyond
+**Track**: Fashion Killa flip
 
-Last updated at 02/13/2022 08:50
+Last updated at 02/13/2022 11:10
