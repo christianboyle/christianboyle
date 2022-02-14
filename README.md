@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePmK9z9WBBkuSA0u-i9vTzA-t500x500.jpg">](https://soundcloud.com/trisedm/soul-to-keep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEpaqtY7UPftLGX9-ou9Fbw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/fiend-clips-ii?in=fiendworldwide/sets/clips)
 
-**Artist**: TriS 
+**Artist**: FIEND WORLD 
 
-**Track**: Soul To Keep
+**Track**: FIEND CLIPS (ii)
 
-Last updated at 02/13/2022 18:44
+Last updated at 02/13/2022 18:45
