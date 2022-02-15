@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvadHroIscC2-0-t500x500.jpg">](https://soundcloud.com/goodboynoah/dumb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNmlJA5ynq6sLz8a-EjFnIg-t500x500.jpg">](https://soundcloud.com/oversleptbeats/run-yo-mouth)
 
-**Artist**: goodboy noah 
+**Artist**: overslept 
 
-**Track**: dumb (remix)
+**Track**: run yo mouth (out on spotify)
 
-Last updated at 02/14/2022 20:15
+Last updated at 02/14/2022 20:16
