@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JohHAIfGAYSEZoJy-X3MI5A-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs010-a-loxy-overlook-the-harbinger-aa-overlook-moloko)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
 
-**Artist**: UVB-76 Music 
+**Artist**: Beat106Scotland 
 
-**Track**: DROOGS010  : A - Loxy  & Overlook - The Harbinger AA. Overlook - Moloko
+**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
 
-Last updated at 02/14/2022 20:12
+Last updated at 02/14/2022 20:13
