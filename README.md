@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rs1u7gY0QTHKnZgW-yBktoQ-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiroEPskk2tittzL-LXc9mg-t500x500.jpg">](https://soundcloud.com/ervinboyes/clips-vii)
 
-**Artist**: KATEBI 
+**Artist**: ERVIN 
 
-**Track**: HEAVEN 2 (FULL STREAM)
+**Track**: CLIPS VII
 
-Last updated at 02/14/2022 20:17
+Last updated at 02/14/2022 20:19
