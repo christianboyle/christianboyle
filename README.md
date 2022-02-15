@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iXOrClkcrWMOb8sl-LzH3Dg-t500x500.jpg">](https://soundcloud.com/bennymayne/danny-devito-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvadHroIscC2-0-t500x500.jpg">](https://soundcloud.com/goodboynoah/dumb-remix)
 
-**Artist**: benny mayne 
+**Artist**: goodboy noah 
 
-**Track**: danny devito (freestyle)
+**Track**: dumb (remix)
 
-Last updated at 02/14/2022 20:14
+Last updated at 02/14/2022 20:15
