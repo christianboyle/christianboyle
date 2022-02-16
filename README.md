@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/b-dos-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0oyKU72iiWdGM6R-FyATdg-t500x500.jpg">](https://soundcloud.com/butterflyblade/affection)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Buttxrfly 
 
-**Track**: B-Dos - Wind
+**Track**: Affection
 
-Last updated at 02/16/2022 08:58
+Last updated at 02/16/2022 08:59
