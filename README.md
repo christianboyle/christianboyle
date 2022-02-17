@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zgxqjLb5dF4PCqN-oDw46g-t500x500.jpg">](https://soundcloud.com/1ony/da-barre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nlA2R3yh2z6iCB1I-xb7vfw-t500x500.jpg">](https://soundcloud.com/swufm/daffy-w-tuff-trax-silva-bumpa)
 
-**Artist**: 1ONY 
+**Artist**: SWU.FM 
 
-**Track**: DA BARRE
+**Track**: Daffy w/ Tuff Trax & Silva Bumpa 17TH FEB 2022
 
-Last updated at 02/17/2022 16:35
+Last updated at 02/17/2022 16:38
