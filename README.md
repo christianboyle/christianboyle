@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Hdl7fWSSXxf0CDK-T4H7Eg-t500x500.jpg">](https://soundcloud.com/adacreator/beat-1348)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ty7MzcWJ9IVko6yq-YwlKrQ-t500x500.jpg">](https://soundcloud.com/austeria/the-garden)
 
-**Artist**: BiG A© 
+**Artist**: AUSTERIA 
 
-**Track**: BEAT 1348 [BiG A x EVIL] 2019
+**Track**: THE GARDEN [Heard It Here First Premiere]
 
-Last updated at 02/16/2022 21:00
+Last updated at 02/16/2022 21:01
