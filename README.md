@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/XPt0CpA26-0/maxresdefault.jpg">](https://www.youtube.com/watch?v=XPt0CpA26-0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oGkOwRBvHnzbIYNy-9A0wig-t500x500.jpg">](https://soundcloud.com/inextremis/traceofyou)
 
-**Artist**: Mariachi Entertainment System 
+**Artist**: Inextremis 
 
-**Track**: The Moon Theme | DuckTales | MES
+**Track**: Bendel - Trace Of You (ft. goodnight lavender)
 
-Last updated at 02/16/2022 21:08
+Last updated at 02/17/2022 07:40
