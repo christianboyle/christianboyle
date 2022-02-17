@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ebF4f2cTdOEdgdli-NmYtxA-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms60-ghozt)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/4um6_cNpb6M/maxresdefault.jpg">](https://www.youtube.com/watch?v=4um6_cNpb6M)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Mariachi Entertainment System 
 
-**Track**: HPHF MS60 : GHOZT
+**Track**: Bloody Tears | Castlevania | MES | Happy Halloween! 🎃
 
-Last updated at 02/16/2022 09:00
+Last updated at 02/16/2022 18:20
