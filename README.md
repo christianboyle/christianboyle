@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/4um6_cNpb6M/maxresdefault.jpg">](https://www.youtube.com/watch?v=4um6_cNpb6M)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Hdl7fWSSXxf0CDK-T4H7Eg-t500x500.jpg">](https://soundcloud.com/adacreator/beat-1348)
 
-**Artist**: Mariachi Entertainment System 
+**Artist**: BiG A© 
 
-**Track**: Bloody Tears | Castlevania | MES | Happy Halloween! 🎃
+**Track**: BEAT 1348 [BiG A x EVIL] 2019
 
-Last updated at 02/16/2022 18:20
+Last updated at 02/16/2022 21:00
