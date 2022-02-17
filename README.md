@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eDpX8UZ2RH0MU8J7-zMy3fQ-t500x500.jpg">](https://soundcloud.com/balamii/handy-radio-w-james-lacey-qi-mono-february-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nSzfxuv2ojKQ5SQ-Aaaziw-t500x500.jpg">](https://soundcloud.com/swufm/idle-hands-w-ian-dpm-15-feb)
 
-**Artist**: Balamii 
+**Artist**: SWU.FM 
 
-**Track**: Handy Radio w/ James Lacey & Qi MONO - February 2022
+**Track**: Idle Hands w/ Ian DPM 15TH FEB 2022
 
-Last updated at 02/17/2022 17:44
+Last updated at 02/17/2022 17:45
