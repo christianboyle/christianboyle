@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kebksf8oDyuTWiFC-cdpw0w-t500x500.jpg">](https://soundcloud.com/thefactory93/dj-rush-secret-project-portugal-2022-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFSo6GQbi4A9vhFh-ADFcow-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-516-firelite)
 
-**Artist**: Factory 93 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: DJ Rush - Secret Project Portugal 2022 Guest Mix
+**Track**: KTRA Episode 516: Firelite
 
-Last updated at 02/17/2022 17:39
+Last updated at 02/17/2022 17:42
