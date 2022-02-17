@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nSzfxuv2ojKQ5SQ-Aaaziw-t500x500.jpg">](https://soundcloud.com/swufm/idle-hands-w-ian-dpm-15-feb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FtcLjDSyA8QnyNyH-tMd8lw-t500x500.jpg">](https://soundcloud.com/michael_mason/girlslikethat)
 
-**Artist**: SWU.FM 
+**Artist**: michael mason 
 
-**Track**: Idle Hands w/ Ian DPM 15TH FEB 2022
+**Track**: girls like that
 
-Last updated at 02/17/2022 15:33
+Last updated at 02/17/2022 16:33
