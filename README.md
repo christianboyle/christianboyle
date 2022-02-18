@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMyQUmzNXVN986kI-nTJIgA-t500x500.jpg">](https://soundcloud.com/wevlth/danger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nSzfxuv2ojKQ5SQ-Aaaziw-t500x500.jpg">](https://soundcloud.com/swufm/idle-hands-w-ian-dpm-15-feb)
 
-**Artist**: WEVLTH 
+**Artist**: SWU.FM 
 
-**Track**: DANGER
+**Track**: Idle Hands w/ Ian DPM 15TH FEB 2022
 
-Last updated at 02/18/2022 08:59
+Last updated at 02/18/2022 09:00
