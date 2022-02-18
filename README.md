@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nSzfxuv2ojKQ5SQ-Aaaziw-t500x500.jpg">](https://soundcloud.com/swufm/idle-hands-w-ian-dpm-15-feb)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/oSQJ2ULuhb8/hqdefault.jpg">](https://www.youtube.com/watch?v=oSQJ2ULuhb8)
 
-**Artist**: SWU.FM 
+**Artist**: Kid Rock 
 
-**Track**: Idle Hands w/ Ian DPM 15TH FEB 2022
+**Track**: Americans - a Public Service Film by Kid Rock & Sean Penn
 
-Last updated at 02/18/2022 09:00
+Last updated at 02/18/2022 11:09
