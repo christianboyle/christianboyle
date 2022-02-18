@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IByVJy70myYlUyrl-0PY5nw-t500x500.jpg">](https://soundcloud.com/osakaflip/breakin-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000264013856-jl6u5t-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/big-banc-uchies-prod-bruce?in=drakeo-the-ruler/sets/cold-devil-1)
 
-**Artist**: OSAKA 
+**Artist**: DRAKEO The Ruler 
 
-**Track**: BREAKIN' DOWN
+**Track**: Big Banc Uchies (Prod. Bruce24k)
 
-Last updated at 02/18/2022 08:46
+Last updated at 02/18/2022 08:48
