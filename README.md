@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSH412KcbfQQ-0-t500x500.jpg">](https://soundcloud.com/theshipwrek/show-me-a-sign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsYczQgA9lyqtaz5-Ya4UUQ-t500x500.jpg">](https://soundcloud.com/olivergrind/lean-reverse)
 
-**Artist**: Ship Wrek 
+**Artist**: OLIVER GRIND 
 
-**Track**: Show Me A Sign
+**Track**: LEAN & REVERSE
 
-Last updated at 02/18/2022 15:57
+Last updated at 02/18/2022 16:01
