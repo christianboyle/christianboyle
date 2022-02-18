@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEKkk41ca2lI73DB-t6tuYQ-t500x500.jpg">](https://soundcloud.com/syence/talking-way-too-much?in=syence/sets/bass-pop-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbadpU5YzFRNSPlC-VUjU2Q-t500x500.jpg">](https://soundcloud.com/syence/hate-me-like-u-love-me-feat-jake-neumar?in=syence/sets/bass-pop-ep)
 
 **Artist**: syence 
 
-**Track**: talking way too much
+**Track**: hate me like u love me (feat. jake neumar)
 
-Last updated at 02/18/2022 15:11
+Last updated at 02/18/2022 15:14
