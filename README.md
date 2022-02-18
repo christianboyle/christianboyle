@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgQlmdoFYLR6Db6I-N4MXeA-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-chrome-castle?in=sublabmusic/sets/chrome-castle-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktKt7YRherW9f3BW-zkFz7g-t500x500.jpg">](https://soundcloud.com/syence/truth?in=syence/sets/bass-pop-ep)
 
-**Artist**: Sublab 
+**Artist**: syence 
 
-**Track**: CHROME CASTLE
+**Track**: truth (feat kyle reynolds)
 
-Last updated at 02/18/2022 15:05
+Last updated at 02/18/2022 15:09
