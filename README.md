@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0oyKU72iiWdGM6R-FyATdg-t500x500.jpg">](https://soundcloud.com/butterflyblade/affection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6I6lOg23mz3OdhA-HDWYQA-t500x500.jpg">](https://soundcloud.com/outlawfiendz94/shoot-2-kill-w-cloudy)
 
-**Artist**: Buttxrfly 
+**Artist**: outlawfiendz 
 
-**Track**: Affection
+**Track**: SHOOT 2 KILL w/ CLOUDYMANE
 
-Last updated at 02/18/2022 08:40
+Last updated at 02/18/2022 08:44
