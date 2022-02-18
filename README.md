@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PElU0LP4GOOYglyU-yONUsQ-t500x500.jpg">](https://soundcloud.com/loudkult/sode-x-hans-nayna-when-im-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNtPiHSzaREuPrY3-bI9iyA-t500x500.jpg">](https://soundcloud.com/sublabmusic/raysofutopia?in=sublabmusic/sets/chrome-castle-ep)
 
-**Artist**: LoudKult 
+**Artist**: Sublab 
 
-**Track**: SØDE x Hans Nayna - When I'm Gone
+**Track**: RAYS OF UTOPIA
 
-Last updated at 02/18/2022 08:05
+Last updated at 02/18/2022 08:06
