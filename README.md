@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537435858-nb8jox-t500x500.jpg">](https://soundcloud.com/katebi/synthetic-memory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjPLtSlJ1y6qujkF-ZTqmhg-t500x500.jpg">](https://soundcloud.com/koastle/who-we-are-koastle-ft-kyle-reynolds)
 
-**Artist**: KATEBI 
+**Artist**: Koastle 
 
-**Track**: SYNTHETIC MEMORY
+**Track**: Who We Are - Koastle ft. Kyle Reynolds
 
-Last updated at 02/18/2022 18:22
+Last updated at 02/19/2022 14:23
