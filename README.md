@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wDk4h7H5w3oq-0-t500x500.png">](https://soundcloud.com/sickindividuals/guilty-feat-nevve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537435858-nb8jox-t500x500.jpg">](https://soundcloud.com/katebi/synthetic-memory)
 
-**Artist**: SICK INDIVIDUALS 
+**Artist**: KATEBI 
 
-**Track**: Guilty (feat. Nevve)
+**Track**: SYNTHETIC MEMORY
 
-Last updated at 02/18/2022 18:20
+Last updated at 02/18/2022 18:22
