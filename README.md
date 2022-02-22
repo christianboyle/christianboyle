@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ga75LGwCv9c6W8W6-tGehKg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/fuck-a-title)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
 
 **Artist**: kushface ☤ 
 
-**Track**: FUCK A TITLE
+**Track**: MICHIGAN CLIPS III
 
-Last updated at 02/22/2022 11:49
+Last updated at 02/22/2022 11:54
