@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KrGd8AtMTODe4pKZ-3zOSoA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
 
 **Artist**: kushface ☤ 
 
-**Track**: MICHIGAN CLIPS I
+**Track**: WEED IN MY LUNGS
 
-Last updated at 02/22/2022 12:02
+Last updated at 02/22/2022 12:12
