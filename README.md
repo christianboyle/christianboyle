@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imyq36U6gUs97lkD-31XyiA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-keplrr-bods-realm-piezos-doom-ragga-mixcontrol-freak-recordings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hEQUxjAKDYMBhyOY-fMITcw-t500x500.jpg">](https://soundcloud.com/eternallyhardcore/coley-codge-psycho)
 
-**Artist**: Ransom Note 
+**Artist**: Eternally Hardcore 
 
-**Track**: PREMIERE: Keplrr - Bod’s Realm (Piezo’s Doom Ragga Mix)[Control Freak Recordings]
+**Track**: Coley & Codge - Psycho
 
-Last updated at 02/22/2022 10:45
+Last updated at 02/22/2022 11:05
