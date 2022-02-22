@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hEQUxjAKDYMBhyOY-fMITcw-t500x500.jpg">](https://soundcloud.com/eternallyhardcore/coley-codge-psycho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hUDCHNjkI8LVoKe-O0OPkQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-lorca-polly-shall-not-fade)
 
-**Artist**: Eternally Hardcore 
+**Artist**: Ransom Note 
 
-**Track**: Coley & Codge - Psycho
+**Track**: PREMIERE: Lorca - Polly [Shall Not Fade]
 
-Last updated at 02/22/2022 11:05
+Last updated at 02/22/2022 11:06
