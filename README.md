@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KrGd8AtMTODe4pKZ-3zOSoA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-i)
 
 **Artist**: kushface ☤ 
 
-**Track**: MICHIGAN CLIPS III
+**Track**: MICHIGAN CLIPS I
 
-Last updated at 02/22/2022 11:54
+Last updated at 02/22/2022 12:02
