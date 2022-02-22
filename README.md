@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hUDCHNjkI8LVoKe-O0OPkQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-lorca-polly-shall-not-fade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oH0QQlcjyfNlgNll-bZZClw-t500x500.jpg">](https://soundcloud.com/chendamusic/carryyou)
 
-**Artist**: Ransom Note 
+**Artist**: CHENDA 
 
-**Track**: PREMIERE: Lorca - Polly [Shall Not Fade]
+**Track**: CHENDA, Kløn & Harley Bird - Carry You
 
-Last updated at 02/22/2022 07:59
+Last updated at 02/22/2022 10:37
