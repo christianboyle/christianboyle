@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lN4OydZUR3OQMuZc-FGEyMQ-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol2)
 
-**Artist**: kushface ☤ 
+**Artist**: FIEND WORLD 
 
-**Track**: WEED IN MY LUNGS
+**Track**: COLD SWEATS VOL. 2
 
-Last updated at 02/22/2022 12:12
+Last updated at 02/22/2022 12:15
