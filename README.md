@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000551895744-zgzzsp-t500x500.jpg">](https://soundcloud.com/the-ransom-note/joakim-the-ransom-note-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ga75LGwCv9c6W8W6-tGehKg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/fuck-a-title)
 
-**Artist**: Ransom Note 
+**Artist**: kushface ☤ 
 
-**Track**: Joakim: The Ransom Note Mix
+**Track**: FUCK A TITLE
 
-Last updated at 02/22/2022 11:48
+Last updated at 02/22/2022 11:49
