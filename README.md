@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySETsL3hMspPPXfr-yc0y7Q-t500x500.jpg">](https://soundcloud.com/0rch_id/blame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzwZa84v4Rnm3KfE-vp9AVw-t500x500.jpg">](https://soundcloud.com/noisecartel/noise-cartel-pardy-pardy-radio-mix)
 
-**Artist**: orchid 
+**Artist**: Noise Cartel 
 
-**Track**: Blame
+**Track**: Noise Cartel - Pardy Pardy (Original Mix)
 
-Last updated at 02/23/2022 15:44
+Last updated at 02/23/2022 15:50
