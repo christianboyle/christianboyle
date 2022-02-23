@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hUDCHNjkI8LVoKe-O0OPkQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-lorca-polly-shall-not-fade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySETsL3hMspPPXfr-yc0y7Q-t500x500.jpg">](https://soundcloud.com/0rch_id/blame)
 
-**Artist**: Ransom Note 
+**Artist**: orchid 
 
-**Track**: PREMIERE: Lorca - Polly [Shall Not Fade]
+**Track**: Blame
 
-Last updated at 02/23/2022 12:23
+Last updated at 02/23/2022 14:47
