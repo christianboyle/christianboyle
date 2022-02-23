@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nSzfxuv2ojKQ5SQ-Aaaziw-t500x500.jpg">](https://soundcloud.com/swufm/idle-hands-w-ian-dpm-15-feb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySETsL3hMspPPXfr-yc0y7Q-t500x500.jpg">](https://soundcloud.com/0rch_id/blame)
 
-**Artist**: SWU.FM 
+**Artist**: orchid 
 
-**Track**: Idle Hands w/ Ian DPM 15TH FEB 2022
+**Track**: Blame
 
-Last updated at 02/23/2022 15:41
+Last updated at 02/23/2022 15:44
