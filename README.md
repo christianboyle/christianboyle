@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5crUhGebnJb3tc7u-9rf7bA-t500x500.jpg">](https://soundcloud.com/cumbstr/petit-vampire-jai-croise-tromae-dans-la-bank-wpermenvoyeur666)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDc4Dl86prLdeN1h-oUQpxA-t500x500.jpg">](https://soundcloud.com/ayzlynn/gateway)
 
-**Artist**: DJ CUMBUSTER666 
+**Artist**: Ayzlynn. 
 
-**Track**: petit vampire - J'AI CROISE $TROMAE DANS LA BANK 🦇 w/$permEnvoyeur666
+**Track**: Fields Tunes - Gateway (Ayzlynn + Rootnote Collective)
 
-Last updated at 02/23/2022 15:51
+Last updated at 02/23/2022 15:52
