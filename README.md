@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xo6pA0TqakAW3iJO-1Rjdyg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/honeydrip-the-shine-a-light-on-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hUDCHNjkI8LVoKe-O0OPkQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-lorca-polly-shall-not-fade)
 
 **Artist**: Ransom Note 
 
-**Track**: Honeydrip: The 'Shine A Light On' Mix
+**Track**: PREMIERE: Lorca - Polly [Shall Not Fade]
 
-Last updated at 02/23/2022 08:29
+Last updated at 02/23/2022 12:23
