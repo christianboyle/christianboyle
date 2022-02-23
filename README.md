@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzdsPWe7KxT6-0-t500x500.jpg">](https://soundcloud.com/underscores/spoiled-little-brat-six-impala)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiRH5ElHSzrW3bRY-ZhNMiw-t500x500.jpg">](https://soundcloud.com/underscores/slb)
 
 **Artist**: underscores 
 
-**Track**: Spoiled little brat (six impala Version)
+**Track**: Spoiled little brat
 
-Last updated at 02/23/2022 14:55
+Last updated at 02/23/2022 14:57
