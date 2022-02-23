@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/igqLDdMpHMU/maxresdefault.jpg">](https://www.youtube.com/watch?v=igqLDdMpHMU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5xhu931GTHmPMGAw-E2yDLA-t500x500.jpg">](https://soundcloud.com/dj-heroin/revealer-1)
 
-**Artist**: underscores 
+**Artist**: DJH 
 
-**Track**: Spoiled little brat (Official Video)
+**Track**: Revealer
 
-Last updated at 02/23/2022 08:16
+Last updated at 02/23/2022 08:24
