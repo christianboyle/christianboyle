@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hUDCHNjkI8LVoKe-O0OPkQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-lorca-polly-shall-not-fade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lINVZrfKIX8G-0-t500x500.jpg">](https://soundcloud.com/jonasblue/jonas-blue-why-dont-we-dont)
 
-**Artist**: Ransom Note 
+**Artist**: Jonas Blue 
 
-**Track**: PREMIERE: Lorca - Polly [Shall Not Fade]
+**Track**: Jonas Blue, Why Don't We - Don’t Wake Me Up (Extended Mix)
 
-Last updated at 02/23/2022 15:04
+Last updated at 02/23/2022 15:09
