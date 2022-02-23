@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySETsL3hMspPPXfr-yc0y7Q-t500x500.jpg">](https://soundcloud.com/0rch_id/blame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5xhu931GTHmPMGAw-E2yDLA-t500x500.jpg">](https://soundcloud.com/dj-heroin/revealer-1)
 
-**Artist**: orchid 
+**Artist**: DJH 
 
-**Track**: Blame
+**Track**: Revealer
 
-Last updated at 02/23/2022 14:47
+Last updated at 02/23/2022 14:51
