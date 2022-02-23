@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NF7nq8ggamvdYPzI-yQ1O6A-t500x500.png">](https://soundcloud.com/visionrecordings/vision-radio-s02e08)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/aeF1ZvA2IEQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=aeF1ZvA2IEQ)
 
-**Artist**: VISION 
+**Artist**: Noisia 
 
-**Track**: VISION Radio S02E08
+**Track**: Could This Be (Official Video)
 
-Last updated at 02/23/2022 15:57
+Last updated at 02/23/2022 16:08
