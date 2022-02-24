@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZw5lKvn5RyuG11t-bc68Lw-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-517-mike-reverie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Mazare 
 
-**Track**: KTRA Episode 517: Mike Reverie
+**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
 
-Last updated at 02/24/2022 16:52
+Last updated at 02/24/2022 16:53
