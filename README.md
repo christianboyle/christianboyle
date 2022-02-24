@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2mncdxit7yI9fpZq-bh9lTw-t500x500.jpg">](https://soundcloud.com/officialnohero/cascada-everytime-we-touch-juicemasterz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
 
-**Artist**: No Hero 
+**Artist**: Mazare 
 
-**Track**: Cascada - Everytime We Touch (Juicemasterz Remix)
+**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
 
-Last updated at 02/24/2022 14:33
+Last updated at 02/24/2022 14:38
