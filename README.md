@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NF7nq8ggamvdYPzI-yQ1O6A-t500x500.png">](https://soundcloud.com/visionrecordings/vision-radio-s02e08)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6w31JGD7uCytmdlf-ZDBKFA-t500x500.jpg">](https://soundcloud.com/dj-sharaz/new-carry-me-away-sharaz-remix)
 
-**Artist**: VISION 
+**Artist**: DJ Sharaz 
 
-**Track**: VISION Radio S02E08
+**Track**: NEW Carry Me Away - Sharaz Remix (Downloadable)
 
-Last updated at 02/23/2022 17:45
+Last updated at 02/24/2022 08:23
