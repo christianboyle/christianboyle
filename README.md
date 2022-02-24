@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HpgRebzgrYob9AFK-gTyKNw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-teokad-void-builder-ramdam?in=rave_alert/sets/rave22-teokad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m0FtrprOZIuB5qIW-8Pkj7w-t500x500.jpg">](https://soundcloud.com/chillselect/dinner-out-stizzzyyy-x-veryolddog)
 
-**Artist**: Rave Alert 
+**Artist**: Chill Select 
 
-**Track**: [PREMIERE] Teokad & Void Builder - Ramdam
+**Track**: Stizzzyyy x veryolddog - Vintage
 
-Last updated at 02/24/2022 08:33
+Last updated at 02/24/2022 08:34
