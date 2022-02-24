@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySETsL3hMspPPXfr-yc0y7Q-t500x500.jpg">](https://soundcloud.com/0rch_id/blame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
 
-**Artist**: orchid 
+**Artist**: Mazare 
 
-**Track**: Blame
+**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
 
-Last updated at 02/24/2022 14:25
+Last updated at 02/24/2022 14:28
