@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2mncdxit7yI9fpZq-bh9lTw-t500x500.jpg">](https://soundcloud.com/officialnohero/cascada-everytime-we-touch-juicemasterz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKQSRHhwDFRBDuSV-azL1jQ-t500x500.jpg">](https://soundcloud.com/e_tank/darren-styles-francis-hill-come-running-etank-remix)
 
-**Artist**: No Hero 
+**Artist**: E*Tank 
 
-**Track**: Cascada - Everytime We Touch (Juicemasterz Remix)
+**Track**: Darren Styles & Francis Hill - Come Running (E*Tank Remix)
 
-Last updated at 02/24/2022 08:53
+Last updated at 02/24/2022 14:00
