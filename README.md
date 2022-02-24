@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4J77Qi4viV5OID8I-r2B4tQ-t500x500.jpg">](https://soundcloud.com/forbiddensocietyrecs/forbidden-society-overthinking)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZw5lKvn5RyuG11t-bc68Lw-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-517-mike-reverie)
 
-**Artist**: FORBIDDENSOCIETYRECS 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Forbidden Society - Overthinking
+**Track**: KTRA Episode 517: Mike Reverie
 
-Last updated at 02/24/2022 15:20
+Last updated at 02/24/2022 16:52
