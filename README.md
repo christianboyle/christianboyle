@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZgez5VpanwodqMO-UxIuqQ-t500x500.jpg">](https://soundcloud.com/lostwolves_music/funtcase-ft-dia-frampton-flames-lost-wolves-remix-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eE4kuTyYMe7OeA3y-uz4twg-t500x500.jpg">](https://soundcloud.com/resonanceworld/resonance-world-045-w-c-z-29)
 
-**Artist**: Lost Wolves 
+**Artist**: Resonance World 
 
-**Track**: Funtcase Ft. Dia Frampton - Flames (Lost Wolves Remix)
+**Track**: Resonance World 045 w/ C.Z. (29.01.2022)
 
-Last updated at 02/24/2022 16:56
+Last updated at 02/24/2022 16:59
