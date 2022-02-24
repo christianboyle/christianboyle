@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQ9yMbr6spjb4CMs-WCZezA-t500x500.jpg">](https://soundcloud.com/twenty4hz/bella-poarch-build-a-bitch-twenty4hz-joeru-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2mncdxit7yI9fpZq-bh9lTw-t500x500.jpg">](https://soundcloud.com/officialnohero/cascada-everytime-we-touch-juicemasterz-remix)
 
-**Artist**: Twenty4HZ 
+**Artist**: No Hero 
 
-**Track**: Bella Poarch - Build A Bitch (Twenty4HZ & JOERU Bootleg) BUY=FREE DOWNLOAD
+**Track**: Cascada - Everytime We Touch (Juicemasterz Remix)
 
-Last updated at 02/24/2022 14:11
+Last updated at 02/24/2022 14:15
