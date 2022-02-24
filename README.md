@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qJ72g6ce63WaVzwc-0bToSA-t500x500.jpg">](https://soundcloud.com/djikeacanada/opal)
 
-**Artist**: Mazare 
+**Artist**: DJ IKEA CANADA 
 
-**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
+**Track**: opal
 
-Last updated at 02/24/2022 14:38
+Last updated at 02/24/2022 14:41
