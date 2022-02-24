@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZgez5VpanwodqMO-UxIuqQ-t500x500.jpg">](https://soundcloud.com/lostwolves_music/funtcase-ft-dia-frampton-flames-lost-wolves-remix-master)
 
-**Artist**: Mazare 
+**Artist**: Lost Wolves 
 
-**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
+**Track**: Funtcase Ft. Dia Frampton - Flames (Lost Wolves Remix)
 
-Last updated at 02/24/2022 16:53
+Last updated at 02/24/2022 16:56
