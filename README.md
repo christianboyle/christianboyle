@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOSfh4WlqrTPowLW-tOFXKA-t500x500.jpg">](https://soundcloud.com/imdrose/no-game-no-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zIZ6lsMy2JsPYptU-gkCQgA-t500x500.jpg">](https://soundcloud.com/balamii/iterations-w-exsses-february-2022)
 
-**Artist**: d/rose 
+**Artist**: Balamii 
 
-**Track**: no game no life
+**Track**: ITERATIONS w/ ex.sses - February 2022
 
-Last updated at 02/24/2022 08:38
+Last updated at 02/24/2022 08:39
