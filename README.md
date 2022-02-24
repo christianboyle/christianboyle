@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQStPfwFyO30YSP6-0pHuAQ-t500x500.jpg">](https://soundcloud.com/mazaremusic/fallout-boy-sugar-were-going-down-mazare-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQ9yMbr6spjb4CMs-WCZezA-t500x500.jpg">](https://soundcloud.com/twenty4hz/bella-poarch-build-a-bitch-twenty4hz-joeru-bootleg)
 
-**Artist**: Mazare 
+**Artist**: Twenty4HZ 
 
-**Track**: Fall Out Boy - Sugar, We're Goin Down (Mazare Bootleg)
+**Track**: Bella Poarch - Build A Bitch (Twenty4HZ & JOERU Bootleg) BUY=FREE DOWNLOAD
 
-Last updated at 02/24/2022 14:28
+Last updated at 02/24/2022 14:30
