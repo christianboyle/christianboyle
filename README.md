@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eE4kuTyYMe7OeA3y-uz4twg-t500x500.jpg">](https://soundcloud.com/resonanceworld/resonance-world-045-w-c-z-29)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wmioSWyeLaDEjQ5z-QIuhmw-t500x500.jpg">](https://soundcloud.com/longjawns/annie-nightingale-present-jawns-bbc-radio-1-sable-valley-takeover-1422)
 
-**Artist**: Resonance World 
+**Artist**: JAWNS 
 
-**Track**: Resonance World 045 w/ C.Z. (29.01.2022)
+**Track**: Annie Nightingale presents: JAWNS BBC Radio 1 Sable Valley Takeover 1/4/22
 
-Last updated at 02/25/2022 09:42
+Last updated at 02/25/2022 10:04
