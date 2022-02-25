@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQbBS2ykPAgb72AY-d80tKw-t500x500.jpg">](https://soundcloud.com/contrejourrecords/pura-pura-7-del-sol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IZWHnb8LFJnIiqAp-NOsx1A-t500x500.jpg">](https://soundcloud.com/whoskid/kd-return-to-nothingness)
 
-**Artist**: Contre Jour 
+**Artist**: k?d 
 
-**Track**: Pura Pura - 7 Del Sol
+**Track**: RETURN TO NOTHINGNESS
 
-Last updated at 02/25/2022 16:21
+Last updated at 02/25/2022 16:23
