@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqkxVjL5HJPJezsP-XdRc0Q-t500x500.jpg">](https://soundcloud.com/dovescry/ultraclub4k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjgltN1VSwzVOJto-NyGF4Q-t500x500.jpg">](https://soundcloud.com/syndikaet/syndicast-023-lobsta-b)
 
-**Artist**: døves 
+**Artist**: SYNDIKÆT 
 
-**Track**: ULTRACLUB4K
+**Track**: SYNDICAST #023 LOBSTA B
 
-Last updated at 02/24/2022 18:01
+Last updated at 02/25/2022 08:34
