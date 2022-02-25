@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TIt2sKtWQ50Q0ygc-SIDT6A-t500x500.jpg">](https://soundcloud.com/devaultmusic/tear-it-down?in=devaultmusic/sets/diamond-tape-masters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qc4DvgMOm5ubhCQ-VcFLTA-t500x500.jpg">](https://soundcloud.com/inverted-audio/fkasaka-anger-druid-remix-off-switch-audio)
 
-**Artist**: DEVAULT 
+**Artist**: INVERTED AUDIO 
 
-**Track**: TEAR IT DOWN
+**Track**: FKA.SAKA - Anger (Druid Remix) [Off-Switch Audio]
 
-Last updated at 02/25/2022 16:08
+Last updated at 02/25/2022 16:09
