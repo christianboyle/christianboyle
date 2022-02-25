@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/jonah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tKO5wtk02qLQq6qF-49aEaA-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemays-locker-vol-4)
 
-**Artist**: Juelz 
+**Artist**: LEMAY 
 
-**Track**: Kanye West - Jonah (Juelz Remix)
+**Track**: LEMAYS LOCKER VOL. 4
 
-Last updated at 02/25/2022 14:45
+Last updated at 02/25/2022 14:47
