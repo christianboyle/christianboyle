@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qc4DvgMOm5ubhCQ-VcFLTA-t500x500.jpg">](https://soundcloud.com/inverted-audio/fkasaka-anger-druid-remix-off-switch-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JMPfzwM5kVGDndZX-Ntx6fg-t500x500.jpg">](https://soundcloud.com/altrn8/altrn8-eradicate-1)
 
-**Artist**: INVERTED AUDIO 
+**Artist**: ALTRN8 
 
-**Track**: FKA.SAKA - Anger (Druid Remix) [Off-Switch Audio]
+**Track**: ALTRN8 - Eradicate
 
-Last updated at 02/25/2022 16:09
+Last updated at 02/25/2022 16:12
