@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eE4kuTyYMe7OeA3y-uz4twg-t500x500.jpg">](https://soundcloud.com/resonanceworld/resonance-world-045-w-c-z-29)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/RvaywQkxlrQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=RvaywQkxlrQ)
 
-**Artist**: Resonance World 
+**Artist**: Going Quantum 
 
-**Track**: Resonance World 045 w/ C.Z. (29.01.2022)
+**Track**: GQ Podcast - Liquid Dubstep Mix & Mojo Guest Mix [Ep.50]
 
-Last updated at 02/25/2022 09:05
+Last updated at 02/25/2022 09:41
