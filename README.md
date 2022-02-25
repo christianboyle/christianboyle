@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLQUCfInAiMhc43j-IfowBg-t500x500.jpg">](https://soundcloud.com/embaci/tiniest-whisper-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eE4kuTyYMe7OeA3y-uz4twg-t500x500.jpg">](https://soundcloud.com/resonanceworld/resonance-world-045-w-c-z-29)
 
-**Artist**: embaci 
+**Artist**: Resonance World 
 
-**Track**: Tiniest Whisper
+**Track**: Resonance World 045 w/ C.Z. (29.01.2022)
 
-Last updated at 02/25/2022 09:02
+Last updated at 02/25/2022 09:05
