@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wmioSWyeLaDEjQ5z-QIuhmw-t500x500.jpg">](https://soundcloud.com/longjawns/annie-nightingale-present-jawns-bbc-radio-1-sable-valley-takeover-1422)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/jonah)
 
-**Artist**: JAWNS 
+**Artist**: Juelz 
 
-**Track**: Annie Nightingale presents: JAWNS BBC Radio 1 Sable Valley Takeover 1/4/22
+**Track**: Kanye West - Jonah (Juelz Remix)
 
-Last updated at 02/25/2022 10:04
+Last updated at 02/25/2022 14:45
