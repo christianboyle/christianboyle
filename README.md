@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjgltN1VSwzVOJto-NyGF4Q-t500x500.jpg">](https://soundcloud.com/syndikaet/syndicast-023-lobsta-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLQUCfInAiMhc43j-IfowBg-t500x500.jpg">](https://soundcloud.com/embaci/tiniest-whisper-3)
 
-**Artist**: SYNDIKÆT 
+**Artist**: embaci 
 
-**Track**: SYNDICAST #023 LOBSTA B
+**Track**: Tiniest Whisper
 
-Last updated at 02/25/2022 08:34
+Last updated at 02/25/2022 09:02
