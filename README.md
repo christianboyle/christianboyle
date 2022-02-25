@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGOup0Nf0cblANeW-jTXH6Q-t500x500.jpg">](https://soundcloud.com/hollyhollys/i-am-legion-choosing-for-you-holly-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-atMWwPgSY58zMZ4Z-sCjgSA-t500x500.jpg">](https://soundcloud.com/devaultmusic/heavens-gates-feat-izzy-camina?in=devaultmusic/sets/diamond-tape-masters)
 
-**Artist**: HOLLY 
+**Artist**: DEVAULT 
 
-**Track**: I Am Legion - Choosing For You (HOLLY Remix)
+**Track**: HEAVEN'S GATES FEAT. IZZY CAMINA
 
-Last updated at 02/25/2022 16:06
+Last updated at 02/25/2022 16:07
