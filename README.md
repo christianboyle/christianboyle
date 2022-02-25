@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ipp6s6wDmAzEuxq-TeD5oA-t500x500.jpg">](https://soundcloud.com/analog-advisory/onon-fuck-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGOup0Nf0cblANeW-jTXH6Q-t500x500.jpg">](https://soundcloud.com/hollyhollys/i-am-legion-choosing-for-you-holly-remix)
 
-**Artist**: Analog Advisory 
+**Artist**: HOLLY 
 
-**Track**: &on&on - Fuck That
+**Track**: I Am Legion - Choosing For You (HOLLY Remix)
 
-Last updated at 02/25/2022 15:45
+Last updated at 02/25/2022 16:06
