@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QikS2bi7Q3BxUzbX-PrymWw-t500x500.jpg">](https://soundcloud.com/thebeamon/winterevening2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQbBS2ykPAgb72AY-d80tKw-t500x500.jpg">](https://soundcloud.com/contrejourrecords/pura-pura-7-del-sol)
 
-**Artist**: BEAMON 
+**Artist**: Contre Jour 
 
-**Track**: KILLSTATION & BEAMON - A Winter Evening 2 (produced by kryptik)
+**Track**: Pura Pura - 7 Del Sol
 
-Last updated at 02/25/2022 16:19
+Last updated at 02/25/2022 16:21
