@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySzcfxcA8c24ISG7-1ruEnw-t500x500.jpg">](https://soundcloud.com/crystalskies/good-life-ft-kellin-quinn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tXZfo3iVDZfY-0-t500x500.jpg">](https://soundcloud.com/kggn/pretty-things?in=kggn/sets/splitting-time-1)
 
-**Artist**: Crystal Skies 
+**Artist**: kuru 
 
-**Track**: Good Life (ft. Kellin Quinn)
+**Track**: pretty things
 
-Last updated at 02/26/2022 07:48
+Last updated at 02/26/2022 14:52
