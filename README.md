@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l52EwX7Nzd01NEg3-RHxxzQ-t500x500.jpg">](https://soundcloud.com/lenizdnb/is-it-even-worth-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFFW4B2BznQ16Zax-XEjnOw-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol7-tre-flip)
 
-**Artist**: Leniz 
+**Artist**: TEDDY COLOUR 
 
-**Track**: Is It Even Worth It
+**Track**: THE PHONK SHOW VOL.7 (TRE FLIP)
 
-Last updated at 02/26/2022 14:53
+Last updated at 02/26/2022 14:55
