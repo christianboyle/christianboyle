@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQbBS2ykPAgb72AY-d80tKw-t500x500.jpg">](https://soundcloud.com/contrejourrecords/pura-pura-7-del-sol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QAMKXQQF8RxifesJ-RzQdtQ-t500x500.jpg">](https://soundcloud.com/1bellic/yall-gone-call-the-cops-w-pzilo)
 
-**Artist**: Contre Jour 
+**Artist**: Bellic 
 
-**Track**: Pura Pura - 7 Del Sol
+**Track**: Y'ALL GONE CALL THE COPS w/ PZILO
 
-Last updated at 02/26/2022 07:45
+Last updated at 02/26/2022 07:46
