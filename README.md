@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tXZfo3iVDZfY-0-t500x500.jpg">](https://soundcloud.com/kggn/pretty-things?in=kggn/sets/splitting-time-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l52EwX7Nzd01NEg3-RHxxzQ-t500x500.jpg">](https://soundcloud.com/lenizdnb/is-it-even-worth-it)
 
-**Artist**: kuru 
+**Artist**: Leniz 
 
-**Track**: pretty things
+**Track**: Is It Even Worth It
 
-Last updated at 02/26/2022 14:52
+Last updated at 02/26/2022 14:53
