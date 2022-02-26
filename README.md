@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0M3PTkpwxX9MqYYf-K2eWpw-t500x500.jpg">](https://soundcloud.com/sxmpra/just-another-rap-song-prod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cphtLkA17Lhde5cN-TVaHkg-t500x500.jpg">](https://soundcloud.com/lowderz/lowderz-hawk-abcdefu-remix?in=lowderz/sets/lowderz-hawk-abcdefu-remix)
 
-**Artist**: SXMPRA 
+**Artist**: LOWDERZ 
 
-**Track**: just another rap song (prod. ISVVC)
+**Track**: Lowderz, Hawk - Abcdefu (Remix) [FREE DOWNLOAD]
 
-Last updated at 02/26/2022 07:43
+Last updated at 02/26/2022 07:44
