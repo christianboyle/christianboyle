@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjgltN1VSwzVOJto-NyGF4Q-t500x500.jpg">](https://soundcloud.com/syndikaet/syndicast-023-lobsta-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eE4kuTyYMe7OeA3y-uz4twg-t500x500.jpg">](https://soundcloud.com/resonanceworld/resonance-world-045-w-c-z-29)
 
-**Artist**: SYNDIKÆT 
+**Artist**: Resonance World 
 
-**Track**: SYNDICAST #023 LOBSTA B
+**Track**: Resonance World 045 w/ C.Z. (29.01.2022)
 
-Last updated at 02/27/2022 16:34
+Last updated at 02/27/2022 17:20
