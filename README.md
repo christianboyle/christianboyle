@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92PEFTxhZNysAAJd-kKbZvg-t500x500.jpg">](https://soundcloud.com/balamii/pielroja-w-chochaquema-luc-feburary-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Marr8teyaKsgAeXm-p3IAuA-t500x500.jpg">](https://soundcloud.com/siximpala/six-impala-mix017-loner-online-43)
 
-**Artist**: Balamii 
+**Artist**: six impala 
 
-**Track**: PIELROJA w/ CHOCHAQUEMA & LUC - Feburary 2022
+**Track**: SIX IMPALA MIX017 - LONER ONLINE 43
 
-Last updated at 02/27/2022 08:47
+Last updated at 02/27/2022 08:48
