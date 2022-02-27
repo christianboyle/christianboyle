@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Marr8teyaKsgAeXm-p3IAuA-t500x500.jpg">](https://soundcloud.com/siximpala/six-impala-mix017-loner-online-43)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4QlEUJcymMuNPovH-9zyxVw-t500x500.jpg">](https://soundcloud.com/o_liv-ia/boobyard-lol)
 
-**Artist**: six impala 
+**Artist**: olivia 
 
-**Track**: SIX IMPALA MIX017 - LONER ONLINE 43
+**Track**: time date and place @ camp boneyard 2022
 
-Last updated at 02/27/2022 08:48
+Last updated at 02/27/2022 08:49
