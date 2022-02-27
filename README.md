@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4QlEUJcymMuNPovH-9zyxVw-t500x500.jpg">](https://soundcloud.com/o_liv-ia/boobyard-lol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l52EwX7Nzd01NEg3-RHxxzQ-t500x500.jpg">](https://soundcloud.com/lenizdnb/is-it-even-worth-it)
 
-**Artist**: olivia 
+**Artist**: Leniz 
 
-**Track**: time date and place @ camp boneyard 2022
+**Track**: Is It Even Worth It
 
-Last updated at 02/27/2022 08:49
+Last updated at 02/27/2022 10:59
