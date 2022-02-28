@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fFyRX83qlqXFkzr-fDyG0A-t500x500.jpg">](https://soundcloud.com/2mainey/2mainey-x-terror-jr-hollywood)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/w4s6H4ku6ZY/maxresdefault.jpg">](https://www.youtube.com/watch?v=w4s6H4ku6ZY)
 
-**Artist**: 2mainey 
+**Artist**: Far East Movement 
 
-**Track**: 2mainey x Terror Jr - HOLLYWOOD
+**Track**: Far East Movement ft. The Cataracs, DEV - Like A G6 (Official Video)
 
-Last updated at 02/27/2022 19:45
+Last updated at 02/27/2022 19:46
