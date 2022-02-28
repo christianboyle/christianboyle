@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TAxvhncFPDfaK5og-L3UTHg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/komb-tatsunoshin-for-you-ready-for-thiselectric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZjogzIJudgmHA7t-ZHx9yg-t500x500.jpg">](https://soundcloud.com/allurein/hope-street-20222-call-me-by-your-soundcloud-2-w-allure-hannah-d)
 
-**Artist**: Dirty Workz 
+**Artist**: Allure 
 
-**Track**: Komb & Tatsunoshin - For You (Ready For This)(Electric Fox)
+**Track**: Hope Street 20.2.22 • Call Me By Your Soundcloud (#2) w/ Allure & Hannah D
 
-Last updated at 02/28/2022 07:59
+Last updated at 02/28/2022 08:01
