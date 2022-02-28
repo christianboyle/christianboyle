@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZY9N05W7dc9goxI-7ezoPg-t500x500.jpg">](https://soundcloud.com/2mainey/gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fFyRX83qlqXFkzr-fDyG0A-t500x500.jpg">](https://soundcloud.com/2mainey/2mainey-x-terror-jr-hollywood)
 
 **Artist**: 2mainey 
 
-**Track**: GAS
+**Track**: 2mainey x Terror Jr - HOLLYWOOD
 
-Last updated at 02/27/2022 19:42
+Last updated at 02/27/2022 19:45
