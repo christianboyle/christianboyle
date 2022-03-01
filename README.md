@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNjfUxSFW9yoapV0-MTxyAg-t500x500.jpg">](https://soundcloud.com/yungmaple/all-in-my-head-w-katebi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
 
-**Artist**: yungmaple 
+**Artist**: kushface ☤ 
 
-**Track**: ALL IN MY HEAD w/ KATEBI
+**Track**: WEED IN MY LUNGS
 
-Last updated at 02/28/2022 19:47
+Last updated at 03/01/2022 07:33
