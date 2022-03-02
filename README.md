@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-esyGmN5j3EloH1kw-VmtSeg-t500x500.jpg">](https://soundcloud.com/cloudymane/stop-cappin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDMIyEe21aypaAWR-hOZU7g-t500x500.jpg">](https://soundcloud.com/ogee-t/life-death-full-mixtape)
 
-**Artist**: Cloudymane 
+**Artist**: OGee-T 
 
-**Track**: STOP CAPPIN'
+**Track**: LIFE & DEATH (FULL MIXTAPE)
 
-Last updated at 03/02/2022 17:04
+Last updated at 03/02/2022 17:06
