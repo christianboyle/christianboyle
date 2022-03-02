@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TAxvhncFPDfaK5og-L3UTHg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/komb-tatsunoshin-for-you-ready-for-thiselectric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l52EwX7Nzd01NEg3-RHxxzQ-t500x500.jpg">](https://soundcloud.com/lenizdnb/is-it-even-worth-it)
 
-**Artist**: Dirty Workz 
+**Artist**: Leniz 
 
-**Track**: Komb & Tatsunoshin - For You (Ready For This)(Electric Fox)
+**Track**: Is It Even Worth It
 
-Last updated at 03/02/2022 16:47
+Last updated at 03/02/2022 16:49
