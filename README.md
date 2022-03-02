@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QbyOo8NTaT27Oh33-ItV0cQ-t500x500.jpg">](https://soundcloud.com/dopxset/soucewzapp)
 
-**Artist**: kushface ☤ 
+**Artist**: DOPXSET 
 
-**Track**: WEED IN MY LUNGS
+**Track**: SOUCE w/ ZAPP BEATS
 
-Last updated at 03/02/2022 16:56
+Last updated at 03/02/2022 17:02
