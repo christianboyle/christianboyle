@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbWUPv01p8udKeeV-nZnyHg-t500x500.jpg">](https://soundcloud.com/beatcuddles/aciddrop?in=beatcuddles/sets/best-of-beatcuddles-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHO6jxLk69Syh4sy-uv8AFg-t500x500.jpg">](https://soundcloud.com/beatcuddles/summer-city-skatin?in=beatcuddles/sets/best-of-beatcuddles-music)
 
 **Artist**: ©Beatcuddles Music 
 
-**Track**: Acid Drop
+**Track**: Summer City Skatin'
 
-Last updated at 03/02/2022 07:57
+Last updated at 03/02/2022 07:58
