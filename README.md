@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbWUPv01p8udKeeV-nZnyHg-t500x500.jpg">](https://soundcloud.com/beatcuddles/aciddrop?in=beatcuddles/sets/best-of-beatcuddles-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9xSgSSg4R42AylCD-BiTniQ-t500x500.jpg">](https://soundcloud.com/beatcuddles/just-so-you-know?in=beatcuddles/sets/best-of-beatcuddles-music)
 
 **Artist**: ©Beatcuddles Music 
 
-**Track**: Acid Drop
+**Track**: Just so you know...
 
-Last updated at 03/02/2022 08:11
+Last updated at 03/02/2022 08:16
