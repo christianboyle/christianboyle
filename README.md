@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5FwMUihpLuHHx0PV-bUBslw-t500x500.jpg">](https://soundcloud.com/beat106scotland/inside-out-anthems-868831124?in=beat106scotland/sets/inside-out-anthems-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/capshun-x-mystic-bandits)
 
-**Artist**: Beat106Scotland 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Inside Out Anthems on Beat 106 Scotland with Simon Foy 250222 (Hour 1)
+**Track**: capshun x M?STIC - Bandits
 
-Last updated at 03/02/2022 09:31
+Last updated at 03/02/2022 16:05
