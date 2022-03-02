@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TAxvhncFPDfaK5og-L3UTHg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/komb-tatsunoshin-for-you-ready-for-thiselectric-fox)
 
-**Artist**: kushface ☤ 
+**Artist**: Dirty Workz 
 
-**Track**: WEED IN MY LUNGS
+**Track**: Komb & Tatsunoshin - For You (Ready For This)(Electric Fox)
 
-Last updated at 03/02/2022 16:43
+Last updated at 03/02/2022 16:47
