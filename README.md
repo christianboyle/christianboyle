@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQbBS2ykPAgb72AY-d80tKw-t500x500.jpg">](https://soundcloud.com/contrejourrecords/pura-pura-smb40)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
 
-**Artist**: Contre Jour 
+**Artist**: kushface ☤ 
 
-**Track**: Pura Pura - SMB40
+**Track**: WEED IN MY LUNGS
 
-Last updated at 03/02/2022 16:53
+Last updated at 03/02/2022 16:56
