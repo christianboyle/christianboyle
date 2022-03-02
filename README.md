@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sNcLbPTjLhv4Zshj-UMOoCA-t500x500.jpg">](https://soundcloud.com/area3000/chillout-3000-w-meg-4x4-2-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CsSD9ynOCfXQfMf-9ZATmA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/weed-in-my-lungs)
 
-**Artist**: Area 3000 Radio 
+**Artist**: kushface ☤ 
 
-**Track**: Chillout 3000 w. Meg 4x4 - 2 March 2022
+**Track**: WEED IN MY LUNGS
 
-Last updated at 03/02/2022 16:08
+Last updated at 03/02/2022 16:43
