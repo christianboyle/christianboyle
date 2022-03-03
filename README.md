@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/95YLslorEHw/maxresdefault.jpg">](https://www.youtube.com/watch?v=95YLslorEHw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLgeAYzeW9C1-0-t500x500.png">](https://soundcloud.com/trinistofficial/in-your-arms)
 
-**Artist**: S3RL 
+**Artist**: TRINIST 
 
-**Track**: Earth B♭ - S3RL ft Lexi
+**Track**: In Your Arms
 
-Last updated at 03/02/2022 21:23
+Last updated at 03/03/2022 08:04
