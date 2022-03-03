@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/q0jeMkOB5VY/maxresdefault.jpg">](https://www.youtube.com/watch?v=q0jeMkOB5VY)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/95YLslorEHw/maxresdefault.jpg">](https://www.youtube.com/watch?v=95YLslorEHw)
 
 **Artist**: S3RL 
 
-**Track**: S3RL Absolutely Presents...
+**Track**: Earth B♭ - S3RL ft Lexi
 
-Last updated at 03/02/2022 21:22
+Last updated at 03/02/2022 21:23
