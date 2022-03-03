@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2gc2WENh2zh9bzWs-n1f3kA-t500x500.jpg">](https://soundcloud.com/blubear2001/pack-a-gat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrdDSfPaHF5g8dz8-pr7m3w-t500x500.jpg">](https://soundcloud.com/blubear2001/lost-chapters)
 
 **Artist**: blubear 
 
-**Track**: PACK A GAT (UPCOMING TAPE)
+**Track**: LOST CHAPTERS VOL I
 
-Last updated at 03/03/2022 09:49
+Last updated at 03/03/2022 09:52
