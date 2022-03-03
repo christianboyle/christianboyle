@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrdDSfPaHF5g8dz8-pr7m3w-t500x500.jpg">](https://soundcloud.com/blubear2001/lost-chapters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrL6LANuOjJnm4ET-DtIV4Q-t500x500.jpg">](https://soundcloud.com/zimohh/habits)
 
-**Artist**: blubear 
+**Artist**: Zimoh 
 
-**Track**: LOST CHAPTERS VOL I
+**Track**: Habits
 
-Last updated at 03/03/2022 09:52
+Last updated at 03/03/2022 17:48
