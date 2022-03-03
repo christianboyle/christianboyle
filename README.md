@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCuYnxeJcikW3B4N-yE0zHQ-t500x500.jpg">](https://soundcloud.com/balamii/introspekt-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERnDxC4TjS0KRAR1-6Ey3Xg-t500x500.jpg">](https://soundcloud.com/blubear2001/muddy-mornings-vol-i)
 
-**Artist**: Balamii 
+**Artist**: blubear 
 
-**Track**: Introspekt- March 2022
+**Track**: MUDDY MORNINGS VOL I
 
-Last updated at 03/03/2022 09:29
+Last updated at 03/03/2022 09:31
