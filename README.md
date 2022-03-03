@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXbI30nH9zZPlvjv-4p2mGw-t500x500.jpg">](https://soundcloud.com/davistede/teddy-forgive-you-2022-futureform-mixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8A34WjNVveZUAqxq-X1MaFw-t500x500.jpg">](https://soundcloud.com/heartkartel/walk-prod-glorytee-kat3bi)
 
-**Artist**: 泰迪 TEDDY 
+**Artist**: Maajins 
 
-**Track**: TEDDY - Forgive You (2022 "Futureform" Mix)(FREE DOWNLOAD)
+**Track**: Walk (prod. Glorytee + Kat3bi)
 
-Last updated at 03/03/2022 09:27
+Last updated at 03/03/2022 09:28
