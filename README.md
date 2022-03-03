@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8A34WjNVveZUAqxq-X1MaFw-t500x500.jpg">](https://soundcloud.com/heartkartel/walk-prod-glorytee-kat3bi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCuYnxeJcikW3B4N-yE0zHQ-t500x500.jpg">](https://soundcloud.com/balamii/introspekt-march-2022)
 
-**Artist**: Maajins 
+**Artist**: Balamii 
 
-**Track**: Walk (prod. Glorytee + Kat3bi)
+**Track**: Introspekt- March 2022
 
-Last updated at 03/03/2022 09:28
+Last updated at 03/03/2022 09:29
