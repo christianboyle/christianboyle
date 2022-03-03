@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLgeAYzeW9C1-0-t500x500.png">](https://soundcloud.com/trinistofficial/in-your-arms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niLMOBXfX8TiLkoF-bTCnqA-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-everything-radio-edit)
 
-**Artist**: TRINIST 
+**Artist**: Tatsunoshin 
 
-**Track**: In Your Arms
+**Track**: Tatsunoshin - Everything (Radio Edit)
 
-Last updated at 03/03/2022 08:04
+Last updated at 03/03/2022 08:05
