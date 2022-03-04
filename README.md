@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WIdYMjytGZFH7bFO-2MOFeQ-t500x500.jpg">](https://soundcloud.com/loudkult/the-high-lvsn-jrl-just-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nwr8VZiU2rBf6cWi-UC25qA-t500x500.jpg">](https://soundcloud.com/loudkult/kize-my-heart)
 
 **Artist**: LoudKult 
 
-**Track**: The High, LVSN, JRL - Just Like That
+**Track**: KIZĒ - My Heart
 
-Last updated at 03/04/2022 09:24
+Last updated at 03/04/2022 09:27
