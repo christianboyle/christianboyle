@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sEfbvqKTsAjTpuB4-ZDzx9g-t500x500.jpg">](https://soundcloud.com/loudkult/leon-taro-x-victor-perry-play-pretend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVcHl9t1gUhVO4p6-grmU3w-t500x500.jpg">](https://soundcloud.com/loudkult/new-beat-order-mad-love)
 
 **Artist**: LoudKult 
 
-**Track**: LEØN TARØ X Victor Perry - Play Pretend
+**Track**: New Beat Order - Mad Love
 
-Last updated at 03/04/2022 09:29
+Last updated at 03/04/2022 09:32
