@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FWey39f3B3vpUb3J-xrUtUA-t500x500.jpg">](https://soundcloud.com/loudkult/vinil-sandmo-better-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BlGarrLeYZr7qW8c-SVu3Fw-t500x500.jpg">](https://soundcloud.com/loudkult/astelle-k-boy-bye)
 
 **Artist**: LoudKult 
 
-**Track**: Vinil, SANDMO - Better Now
+**Track**: Astelle - K Boy Bye
 
-Last updated at 03/04/2022 09:37
+Last updated at 03/04/2022 09:39
