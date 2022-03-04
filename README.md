@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nwr8VZiU2rBf6cWi-UC25qA-t500x500.jpg">](https://soundcloud.com/loudkult/kize-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sEfbvqKTsAjTpuB4-ZDzx9g-t500x500.jpg">](https://soundcloud.com/loudkult/leon-taro-x-victor-perry-play-pretend)
 
 **Artist**: LoudKult 
 
-**Track**: KIZĒ - My Heart
+**Track**: LEØN TARØ X Victor Perry - Play Pretend
 
-Last updated at 03/04/2022 09:27
+Last updated at 03/04/2022 09:29
