@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nYQyDibc7zhmmkbE-bfcrMg-t500x500.jpg">](https://soundcloud.com/dirtysnatcha/style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7yDqfrEowKca0pfJ-7ql2DQ-t500x500.jpg">](https://soundcloud.com/loudkult/b3nte-mike-emilio-alex-drosso-the-girls)
 
-**Artist**: DirtySnatcha 
+**Artist**: LoudKult 
 
-**Track**: DIRTYSNATCHA & CARBIN - STYLE
+**Track**: B3nte, Mike Emilio, Alex D'Rosso - The Girls
 
-Last updated at 03/04/2022 08:34
+Last updated at 03/04/2022 08:35
