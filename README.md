@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QwS83De1wL0HGwle-C5qlGQ-t500x500.jpg">](https://soundcloud.com/dubplates-vinyls/dat047a_01?in=dubplates-vinyls/sets/pascal-just-rollin-a-fat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NBXThyAMMubCQ6QY-A3vZXg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-joshua-idehen-loor-kill-the-bill-optimo-music)
 
-**Artist**: Deep Jungle Records 
+**Artist**: Ransom Note 
 
-**Track**: Pascal - Just Rollin A Fat "B" [DAT047] clip
+**Track**: PREMIERE: Joshua Idehen & LOOR - Kill The Bill [Optimo Music]
 
-Last updated at 03/04/2022 09:42
+Last updated at 03/04/2022 14:42
