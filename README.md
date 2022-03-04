@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVcHl9t1gUhVO4p6-grmU3w-t500x500.jpg">](https://soundcloud.com/loudkult/new-beat-order-mad-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HV4yIOxEfaXVzOJH-RwZsOQ-t500x500.jpg">](https://soundcloud.com/loudkult/vitor-bueno-alex-iva-un-deux-summertime)
 
 **Artist**: LoudKult 
 
-**Track**: New Beat Order - Mad Love
+**Track**: Vitor Bueno, ALEX IVA – Un Deux (Summertime)
 
-Last updated at 03/04/2022 09:32
+Last updated at 03/04/2022 09:34
