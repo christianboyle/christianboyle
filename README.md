@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Adyn4roDn2mv39h7-ksHpbQ-t500x500.jpg">](https://soundcloud.com/dubplates-vinyls/subjects-gravity-dat048-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5UMqtXDuOGtz0IzW-WWry7g-t500x500.jpg">](https://soundcloud.com/loudkult/arem-ozguc-arman-aydin-j-r-infinity)
 
-**Artist**: Deep Jungle Records 
+**Artist**: LoudKult 
 
-**Track**: Subjects - Gravity [DAT048] clip
+**Track**: Arem Ozguc & Arman Aydin & J R - Infinity
 
-Last updated at 03/04/2022 08:28
+Last updated at 03/04/2022 08:31
