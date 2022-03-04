@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sRhM1u7Yw4EE7bJF-IcSM3Q-t500x500.jpg">](https://soundcloud.com/danlrk/distance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ED9ORyjFEoxHkaPX-lNpB8g-t500x500.jpg">](https://soundcloud.com/dubplates-vinyls/harmony-moving-along-dat050?in=dubplates-vinyls/sets/harmony-moving-along-crazy-eyes)
 
-**Artist**: Dan Larkin 
+**Artist**: Deep Jungle Records 
 
-**Track**: Distance (w/ cari 049)
+**Track**: Harmony - Moving Along [DAT050] clip
 
-Last updated at 03/04/2022 08:17
+Last updated at 03/04/2022 08:21
