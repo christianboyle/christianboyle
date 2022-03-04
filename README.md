@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NBXThyAMMubCQ6QY-A3vZXg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-joshua-idehen-loor-kill-the-bill-optimo-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-igS9PVyy31SbkbLy-B0DV4w-t500x500.jpg">](https://soundcloud.com/lobster-theremin/various-artists-lobster-plur-volume-5)
 
-**Artist**: Ransom Note 
+**Artist**: Lobster Theremin 
 
-**Track**: PREMIERE: Joshua Idehen & LOOR - Kill The Bill [Optimo Music]
+**Track**: Various Artists // Lobster PLUR Volume 5
 
-Last updated at 03/04/2022 14:42
+Last updated at 03/04/2022 14:43
