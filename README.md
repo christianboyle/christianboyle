@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vr3BYgQGJDpyKttz-3jE45g-t500x500.jpg">](https://soundcloud.com/swufm/collective-x-sofa-sound-1)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/j0lSpNtjPM8/maxresdefault.jpg">](https://www.youtube.com/watch?v=j0lSpNtjPM8)
 
-**Artist**: SWU.FM 
+**Artist**: Papa Roach 
 
-**Track**: Collective x Sofa Sound Bristol w/ DLR, Ill Truth, Trakker, Onset 03RD MAR 2022
+**Track**: Last Resort (Squeaky Clean Version) (Official Music Video)
 
-Last updated at 03/03/2022 17:53
+Last updated at 03/03/2022 19:36
