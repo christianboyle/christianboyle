@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6PN14JsmMvLaORNc-AodebQ-t500x500.jpg">](https://soundcloud.com/wubaholics/rederick-police)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sRhM1u7Yw4EE7bJF-IcSM3Q-t500x500.jpg">](https://soundcloud.com/danlrk/distance)
 
-**Artist**: Wubaholics 
+**Artist**: Dan Larkin 
 
-**Track**: Rederick - Police [Conscious Electronic Premiere]
+**Track**: Distance (w/ cari 049)
 
-Last updated at 03/04/2022 20:58
+Last updated at 03/04/2022 20:59
