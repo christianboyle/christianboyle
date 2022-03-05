@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sRhM1u7Yw4EE7bJF-IcSM3Q-t500x500.jpg">](https://soundcloud.com/danlrk/distance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puGSRydnxEg5n18K-TbcgWw-t500x500.jpg">](https://soundcloud.com/hubzy/tstake-hubzy-glockvibes?in=hubzy/sets/ultrapop)
 
-**Artist**: Dan Larkin 
+**Artist**: HUBZY 
 
-**Track**: Distance (w/ cari 049)
+**Track**: tstake & HUBZY - glockvibes
 
-Last updated at 03/04/2022 21:50
+Last updated at 03/04/2022 21:51
