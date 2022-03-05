@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rLWj0s2hl2j5zQut-uPc8Fg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc159)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000605776609-mijmvb-t500x500.jpg">](https://soundcloud.com/bkayeofficial/post-malone-im-gonna-be-bkaye-remix)
 
-**Artist**: NON STOP NXC® 
+**Artist**: BKAYE 
 
-**Track**: NXC159 - Porter Robinson - Divinity (Yohex Clubcore Mix)
+**Track**: Post Malone - I'm Gonna Be (BKAYE Remix)
 
-Last updated at 03/04/2022 21:52
+Last updated at 03/04/2022 21:55
