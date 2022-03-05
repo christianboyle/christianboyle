@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A75yGaaNLBNybqSp-J7u9rQ-t500x500.jpg">](https://soundcloud.com/harmful-logic/c-c-come-on-mbs002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TFUOK9znqNj5zYr6-EubycQ-t500x500.jpg">](https://soundcloud.com/gasoiid/froz3nmp3)
 
-**Artist**: Harmful Logic 
+**Artist**: gasoiid 
 
-**Track**: C-C-Come On (MBS002)٩(＾◡＾)۶
+**Track**: froz3n.mp3
 
-Last updated at 03/04/2022 21:05
+Last updated at 03/04/2022 21:08
