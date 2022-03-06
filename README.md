@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdzVZwKUMbW98zyy-H5ySkQ-t500x500.jpg">](https://soundcloud.com/lancexcv/smokin-stuntin-sippin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-koN5L4NEOXLARPxl-7qZ3mw-t500x500.jpg">](https://soundcloud.com/skypierr/tarnished-wcooper)
 
-**Artist**: LANCEXCV 
+**Artist**: skypierr 
 
-**Track**: SMOKIN STUNTIN SIPPIN
+**Track**: TARNISHED w/COOPER
 
-Last updated at 03/06/2022 16:20
+Last updated at 03/06/2022 16:21
