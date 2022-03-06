@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/eS4e4b27-NE/hqdefault.jpg">](https://www.youtube.com/watch?v=eS4e4b27-NE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4HabpkDtjePyiSI-zk41yw-t500x500.jpg">](https://soundcloud.com/katebi/routes-1)
 
-**Artist**: Shoreline Mafia 
+**Artist**: KATEBI 
 
-**Track**: Bands (feat. Fenix Flexin, Master Kato & OhGeesy) [Official Music Video]
+**Track**: Routes
 
-Last updated at 03/05/2022 20:57
+Last updated at 03/05/2022 21:02
