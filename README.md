@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lP4BmKBi1O4up6A-gEZ16w-t500x500.jpg">](https://soundcloud.com/h3nllamusic/changes-h3nlla-dakan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000562147740-6ue26v-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc134-lmfao-party-rock-anthem-spinq-remix)
 
-**Artist**: h3nlla 
+**Artist**: NON STOP NXC® 
 
-**Track**: XXXTENTACION - changes (h3nlla & Dakan Remix)
+**Track**: NXC134 - lmfao - party rock anthem (spinq remix)
 
-Last updated at 03/06/2022 18:48
+Last updated at 03/06/2022 18:50
