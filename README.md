@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zy3He25Kn0eIvvKs-JxkFAg-t500x500.jpg">](https://soundcloud.com/beat106scotland/inside-out-anthems-549012800)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zybf6wfXR3mAJB0-t3WETg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-48-with-1)
 
 **Artist**: Beat106Scotland 
 
-**Track**: Inside Out Anthems on Beat 106 Scotland with Simon Foy 040321 (Hour 1)
+**Track**: Bonkers Beats #48 with Sharkey/CLSM/Organ Donors/Lee Greenaway/Nick The Kid/Louk/Vinylgroover #1
 
-Last updated at 03/07/2022 11:24
+Last updated at 03/07/2022 17:00
