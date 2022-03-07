@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LBexSzlY9rZlzW8-ENjliw-t500x500.jpg">](https://soundcloud.com/djhashey/moon-landing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ei8KwjqEURLf7sRi-edFzOg-t500x500.jpg">](https://soundcloud.com/bassrush/calcium-breach?in=bassrush/sets/calcium-degrader-ep)
 
-**Artist**: DJ HASHEY 
+**Artist**: Bassrush 
 
-**Track**: MOON LANDING
+**Track**: Calcium - Breach
 
-Last updated at 03/07/2022 09:05
+Last updated at 03/07/2022 09:07
