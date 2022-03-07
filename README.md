@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ei8KwjqEURLf7sRi-edFzOg-t500x500.jpg">](https://soundcloud.com/bassrush/calcium-breach?in=bassrush/sets/calcium-degrader-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZblG1Mj4oBczUqHP-OO7c6g-t500x500.jpg">](https://soundcloud.com/draedaskimask/pourin-up-propane-mixx)
 
-**Artist**: Bassrush 
+**Artist**: DRAE DA SKIMASK 
 
-**Track**: Calcium - Breach
+**Track**: POURIN' PROPANE
 
-Last updated at 03/07/2022 09:07
+Last updated at 03/07/2022 09:22
