@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y70awoVIAqeieaxH-hOC2dQ-t500x500.jpg">](https://soundcloud.com/youngpirelli/hit-ya-spot-w-berrymane?in=berrymane/sets/hj4doidpgq2t)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zy3He25Kn0eIvvKs-JxkFAg-t500x500.jpg">](https://soundcloud.com/beat106scotland/inside-out-anthems-549012800)
 
-**Artist**: SOUDIERE 
+**Artist**: Beat106Scotland 
 
-**Track**: HIT YA SPOT w/ BERRYMANE
+**Track**: Inside Out Anthems on Beat 106 Scotland with Simon Foy 040321 (Hour 1)
 
-Last updated at 03/07/2022 11:23
+Last updated at 03/07/2022 11:24
