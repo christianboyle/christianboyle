@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZblG1Mj4oBczUqHP-OO7c6g-t500x500.jpg">](https://soundcloud.com/draedaskimask/pourin-up-propane-mixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IZWHnb8LFJnIiqAp-NOsx1A-t500x500.jpg">](https://soundcloud.com/whoskid/kd-return-to-nothingness)
 
-**Artist**: DRAE DA SKIMASK 
+**Artist**: k?d 
 
-**Track**: POURIN' PROPANE
+**Track**: RETURN TO NOTHINGNESS
 
-Last updated at 03/07/2022 09:22
+Last updated at 03/07/2022 11:21
