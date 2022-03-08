@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/uT3SBzmDxGk/maxresdefault.jpg">](https://www.youtube.com/watch?v=uT3SBzmDxGk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zybf6wfXR3mAJB0-t3WETg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-48-with-1)
 
-**Artist**: 2CELLOS 
+**Artist**: Beat106Scotland 
 
-**Track**: Thunderstruck [OFFICIAL VIDEO]
+**Track**: Bonkers Beats #48 with Sharkey/CLSM/Organ Donors/Lee Greenaway/Nick The Kid/Louk/Vinylgroover #1
 
-Last updated at 03/07/2022 17:59
+Last updated at 03/08/2022 07:57
