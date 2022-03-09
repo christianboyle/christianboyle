@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byi1jddyJWeRyFRc-NpiGZw-t500x500.jpg">](https://soundcloud.com/baeldorf/unfinished-dream-trance-collection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z2Y3I0CETRdwPhO0-BSmZxQ-t500x500.jpg">](https://soundcloud.com/y97oiyyhtnyt/afineday)
 
-**Artist**: Baeldorf 
+**Artist**: DXXDLY 
 
-**Track**: Unfinished Dream Trance Collection
+**Track**: A Fįne Daẏ /w Baeldorf
 
-Last updated at 03/09/2022 12:18
+Last updated at 03/09/2022 12:20
