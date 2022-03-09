@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zybf6wfXR3mAJB0-t3WETg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-48-with-sharkey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BwcM9vbPZtuGd2Jn-AeYiJQ-t500x500.jpg">](https://soundcloud.com/10-pills-mate/1opills026-dj-physical-mortal-dance-ep)
 
-**Artist**: Beat106Scotland 
+**Artist**: 1Ø PILLS MATE 
 
-**Track**: Bonkers Beats #48 with Sharkey/CLSM/Organ Donors/Lee Greenaway/Nick The Kid/Louk/Vinylgroover #2
+**Track**: 1ØPILLS026 // DJ Physical - Mortal Dance EP
 
-Last updated at 03/08/2022 08:14
+Last updated at 03/09/2022 06:55
