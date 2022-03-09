@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76kl2ATrd3zYmmyi-16194Q-t500x500.jpg">](https://soundcloud.com/step2recs/atatax-urte-bahnweg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R6ZFK3pbnuf2dpWd-mJMxSg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms62-digital-rave-boy)
 
-**Artist**: Step2 Records 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: ATATAX & URTE - BAHNWEG
+**Track**: HPHF MS61: DIGITAL RAVE BOY
 
-Last updated at 03/09/2022 08:38
+Last updated at 03/09/2022 08:39
