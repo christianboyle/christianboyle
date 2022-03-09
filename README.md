@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAvk5yo7sVH1HDSm-2iUn8w-t500x500.jpg">](https://soundcloud.com/subencoder/sub-encoder-x-etller-3pm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E6y8RyKmF2zldtfo-EjEBnQ-t500x500.jpg">](https://soundcloud.com/escents/runnit)
 
-**Artist**: SUB ENCODER 
+**Artist**: MadBliss 
 
-**Track**: SUB ENCODER X ETLLER -  3PM
+**Track**: RUNNIT BACK
 
-Last updated at 03/09/2022 12:10
+Last updated at 03/09/2022 12:11
