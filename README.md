@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zybf6wfXR3mAJB0-t3WETg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-48-with-sharkey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRGwVvCLci5j9z6S-3hJvdg-t500x500.jpg">](https://soundcloud.com/mikereveriemr/halsey-castle-mike-reverie-flip)
 
-**Artist**: Beat106Scotland 
+**Artist**: Mike Reverie 
 
-**Track**: Bonkers Beats #48 with Sharkey/CLSM/Organ Donors/Lee Greenaway/Nick The Kid/Louk/Vinylgroover #2
+**Track**: Halsey - Castle (Mike Reverie Flip)
 
-Last updated at 03/09/2022 11:12
+Last updated at 03/09/2022 12:03
