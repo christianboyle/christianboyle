@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wrRyyh2xDpA0sxy5-qn8i3A-t500x500.jpg">](https://soundcloud.com/palettes/human-differential?in=palettes/sets/kailyn-synthesis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JL87EGDiUBmbshcG-fPjyzA-t500x500.jpg">](https://soundcloud.com/silentboyyyy/speedway)
 
-**Artist**: PALETTES 
+**Artist**: ‍Silent Boy 
 
-**Track**: Human Differential
+**Track**: Speedway
 
-Last updated at 03/09/2022 12:13
+Last updated at 03/09/2022 12:16
