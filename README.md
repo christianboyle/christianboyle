@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E6y8RyKmF2zldtfo-EjEBnQ-t500x500.jpg">](https://soundcloud.com/escents/runnit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0buSqi2293gtPhmU-HobEVw-t500x500.jpg">](https://soundcloud.com/rinse_france/doctor-jeeps-minimix-9-mars-2022)
 
-**Artist**: MadBliss 
+**Artist**: Rinse France 
 
-**Track**: RUNNIT BACK
+**Track**: Doctor Jeep's minimix - 9 Mars 2022
 
-Last updated at 03/09/2022 12:11
+Last updated at 03/09/2022 12:12
