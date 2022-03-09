@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZgyBXx0ogDYuiyA-zz7mFg-t500x500.jpg">](https://soundcloud.com/immnnt/sudoverse-nrg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-570NrPrlyFTnLfsi-bwWprw-t500x500.jpg">](https://soundcloud.com/rivoices/broken-promise-w-baeldorf)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: rivoices 
 
-**Track**: Sudoverse — NRG
+**Track**: broken promise w/ baeldorf
 
-Last updated at 03/09/2022 12:21
+Last updated at 03/09/2022 12:22
