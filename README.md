@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jr5oGNnBok0ydG6h-FLIaMQ-t500x500.jpg">](https://soundcloud.com/digitalraveboy/essential-clubsound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TOOd9SstCPISBWB8-yrbVuQ-t500x500.jpg">](https://soundcloud.com/digitalraveboy/better-off-alone-type-beat?in=digitalraveboy/sets/beatz-33-xoxo)
 
 **Artist**: digital rave boy 
 
-**Track**: Essential Clubsound ((d[-_-]b))
+**Track**: Better Off Alone Type Beat
 
-Last updated at 03/09/2022 08:40
+Last updated at 03/09/2022 08:41
