@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TOOd9SstCPISBWB8-yrbVuQ-t500x500.jpg">](https://soundcloud.com/digitalraveboy/better-off-alone-type-beat?in=digitalraveboy/sets/beatz-33-xoxo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R6ZFK3pbnuf2dpWd-mJMxSg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms62-digital-rave-boy)
 
-**Artist**: digital rave boy 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Better Off Alone Type Beat
+**Track**: HPHF MS61: DIGITAL RAVE BOY
 
-Last updated at 03/09/2022 08:41
+Last updated at 03/09/2022 08:42
