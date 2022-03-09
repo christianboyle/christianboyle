@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z2Y3I0CETRdwPhO0-BSmZxQ-t500x500.jpg">](https://soundcloud.com/y97oiyyhtnyt/afineday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZgyBXx0ogDYuiyA-zz7mFg-t500x500.jpg">](https://soundcloud.com/immnnt/sudoverse-nrg)
 
-**Artist**: DXXDLY 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: A Fįne Daẏ /w Baeldorf
+**Track**: Sudoverse — NRG
 
-Last updated at 03/09/2022 12:20
+Last updated at 03/09/2022 12:21
