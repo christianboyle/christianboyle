@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R6ZFK3pbnuf2dpWd-mJMxSg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms62-digital-rave-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jr5oGNnBok0ydG6h-FLIaMQ-t500x500.jpg">](https://soundcloud.com/digitalraveboy/essential-clubsound)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: digital rave boy 
 
-**Track**: HPHF MS61: DIGITAL RAVE BOY
+**Track**: Essential Clubsound ((d[-_-]b))
 
-Last updated at 03/09/2022 08:39
+Last updated at 03/09/2022 08:40
