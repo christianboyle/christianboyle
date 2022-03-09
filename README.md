@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqTAZzZ6fcH8fDU3-fn7rxQ-t500x500.jpg">](https://soundcloud.com/nightserviceonly/truth-x-lies-cloverdale-nothing-gonna-stop-this?in=nawtystep/sets/best-of-bass-28-2-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbD9YgSmuYGjV1Vm-AAsdsA-t500x500.jpg">](https://soundcloud.com/parlament000/gass)
 
-**Artist**: Night Service Only 
+**Artist**: PARLAMENT 
 
-**Track**: Truth X Lies & Cloverdale - Nothing Gonna Stop This
+**Track**: GASS
 
-Last updated at 03/09/2022 08:35
+Last updated at 03/09/2022 08:36
