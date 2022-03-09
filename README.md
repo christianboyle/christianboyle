@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R6ZFK3pbnuf2dpWd-mJMxSg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms62-digital-rave-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zybf6wfXR3mAJB0-t3WETg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-48-with-sharkey)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Beat106Scotland 
 
-**Track**: HPHF MS61: DIGITAL RAVE BOY
+**Track**: Bonkers Beats #48 with Sharkey/CLSM/Organ Donors/Lee Greenaway/Nick The Kid/Louk/Vinylgroover #2
 
-Last updated at 03/09/2022 08:42
+Last updated at 03/09/2022 11:12
