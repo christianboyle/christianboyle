@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZCB2omG00JVMC9o-jPgx1g-t500x500.jpg">](https://soundcloud.com/technoise-radio/now-you-tech-showcase-julie-petrecca)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76kl2ATrd3zYmmyi-16194Q-t500x500.jpg">](https://soundcloud.com/step2recs/atatax-urte-bahnweg)
 
-**Artist**: Technoise Radio 
+**Artist**: Step2 Records 
 
-**Track**: NOW YOU TECH Showcase - JULIE PETRECCA [TXNYT030]
+**Track**: ATATAX & URTE - BAHNWEG
 
-Last updated at 03/09/2022 08:37
+Last updated at 03/09/2022 08:38
