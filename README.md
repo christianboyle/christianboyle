@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zy0DsfmygBiy6Lj9-pFtKzg-t500x500.jpg">](https://soundcloud.com/trapcity/deadcrow-intospace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qTkmwHmzjBJcKi2C-KQchXw-t500x500.jpg">](https://soundcloud.com/sudoverse/flamethrower)
 
-**Artist**: Trap City 
+**Artist**: Sudoverse 
 
-**Track**: Deadcrow - Into Space
+**Track**: Flamethrower
 
-Last updated at 03/09/2022 12:23
+Last updated at 03/09/2022 12:24
