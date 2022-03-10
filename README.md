@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Cmzqxh0L7JrIvIA-dUm14Q-t500x500.jpg">](https://soundcloud.com/120seven/what-he-gon-do?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzrzoZOQLe1YRWij-hJP2zA-t500x500.jpg">](https://soundcloud.com/rolandjones/creepin-down-the-ave-wdj-smokey?in=saxurn/sets/iced)
 
-**Artist**: 120SEVEN 
+**Artist**: ROLAND JONES 
 
-**Track**: WHAT HE GON DO
+**Track**: CREEPIN DOWN THE AVE w/DJ SMOKEY
 
-Last updated at 03/10/2022 16:42
+Last updated at 03/10/2022 16:45
