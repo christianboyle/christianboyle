@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jfYZJSAEz14l1Kzr-IIbzGw-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin031-dj-crisps-today-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MOQfPmCA5nFuR2Ej-cu6Dfw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/the-ransom-note-dispatch-on-netil-radio-march-22)
 
-**Artist**: Shall Not Fade 
+**Artist**: Ransom Note 
 
-**Track**: TIN031 // DJ Crisps - Today EP
+**Track**: The Ransom Note Dispatch on Netil Radio (March 22)
 
-Last updated at 03/10/2022 06:54
+Last updated at 03/10/2022 06:55
