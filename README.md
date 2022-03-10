@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzrzoZOQLe1YRWij-hJP2zA-t500x500.jpg">](https://soundcloud.com/rolandjones/creepin-down-the-ave-wdj-smokey?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxza8twUlFvPVAdB-HztaTg-t500x500.jpg">](https://soundcloud.com/bonque/thug-addicted-vol1?in=saxurn/sets/iced)
 
-**Artist**: ROLAND JONES 
+**Artist**: bonque 
 
-**Track**: CREEPIN DOWN THE AVE w/DJ SMOKEY
+**Track**: THUG ADDICTED [VOL. I]
 
-Last updated at 03/10/2022 16:45
+Last updated at 03/10/2022 16:49
