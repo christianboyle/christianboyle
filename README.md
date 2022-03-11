@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GACOpBPmTGXtMQ3J-X0RpTw-t500x500.jpg">](https://soundcloud.com/rolandjones/iced-out-vol-4?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgyXD2krsNpgIAJa-rjifvA-t500x500.jpg">](https://soundcloud.com/alwaysprop3r/ssp)
 
-**Artist**: ROLAND JONES 
+**Artist**: ALWAYS PROPER 
 
-**Track**: ICED OUT VOL 4
+**Track**: SOUTH SIDE PIMPIN' (FULL TAPE)
 
-Last updated at 03/11/2022 09:39
+Last updated at 03/11/2022 10:11
