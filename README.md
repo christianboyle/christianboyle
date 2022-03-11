@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v74oMwZtx2RF5hwp-StyOdg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-dominik-marz-chorus-line-belters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0N4afeb6PooGxwb-oJyWFA-t500x500.jpg">](https://soundcloud.com/kittynxc/kittynxc-live-1292022)
 
-**Artist**: Ransom Note 
+**Artist**: kittynxc 
 
-**Track**: PREMIERE: Dominik Marz - Chorus Line [Belters]
+**Track**: KITTYNXC LIVE 1/29/2022
 
-Last updated at 03/11/2022 12:08
+Last updated at 03/11/2022 12:13
