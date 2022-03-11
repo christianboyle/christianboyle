@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=fiendworldwide/sets/cold-sweats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62a6ItSqpM5oqFmg-csQnpg-t500x500.jpg">](https://soundcloud.com/sablevalley/beam?in=isoxo/sets/nightrealm-ep)
 
-**Artist**: FIEND WORLD 
+**Artist**: SABLE VALLEY 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: ISOxo - Beam
 
-Last updated at 03/11/2022 01:31
+Last updated at 03/11/2022 02:15
