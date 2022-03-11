@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAyg2pFhN6xFxsHZ-Q2l5bQ-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-g4m3ov3r-this-song-is-sick-premiere?in=wakaan/sets/ravenscoon-fun-games-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAyg2pFhN6xFxsHZ-Q2l5bQ-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-ov3rk1ll?in=wakaan/sets/ravenscoon-fun-games-ep)
 
 **Artist**: Wakaan 
 
-**Track**: Ravenscoon - G4M3OV3R [This Song Is Sick Premiere]
+**Track**: Ravenscoon - OV3RK1LL
 
-Last updated at 03/10/2022 21:41
+Last updated at 03/10/2022 21:44
