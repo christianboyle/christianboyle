@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GACOpBPmTGXtMQ3J-X0RpTw-t500x500.jpg">](https://soundcloud.com/rolandjones/iced-out-vol-4?in=saxurn/sets/iced)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWE0H8u51UdX8lLK-cslAKQ-t500x500.jpg">](https://soundcloud.com/bbjuelz/jonah?in=bbjuelz/sets/2021-juelz-remix-tape)
 
-**Artist**: ROLAND JONES 
+**Artist**: Juelz 
 
-**Track**: ICED OUT VOL 4
+**Track**: Kanye West - Jonah (Juelz Remix)
 
-Last updated at 03/10/2022 17:54
+Last updated at 03/10/2022 18:27
