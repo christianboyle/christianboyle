@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgyXD2krsNpgIAJa-rjifvA-t500x500.jpg">](https://soundcloud.com/alwaysprop3r/ssp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4ga4X9lAHYy2IDo-VHRzlQ-t500x500.jpg">](https://soundcloud.com/wukileaks/tunak-tunak-wukileak)
 
-**Artist**: ALWAYS PROPER 
+**Artist**: WUKILEAKS 
 
-**Track**: SOUTH SIDE PIMPIN' (FULL TAPE)
+**Track**: Tunak Tunak [Wukileak]
 
-Last updated at 03/11/2022 10:11
+Last updated at 03/11/2022 10:44
