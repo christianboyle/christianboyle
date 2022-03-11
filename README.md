@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544336557-2w8txn-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/ion-know-nothing-feat-ohgeesy?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdVAQ4MDk7gXzLTX-19AFqw-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/01-im-the-type?in=drakeo-the-ruler/sets/we-know-the-truth-deluxe)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: Ion Know Nothing Feat. Ohgeesy (Prod. Shawn Beats)
+**Track**: I'm The Type
 
-Last updated at 03/10/2022 19:49
+Last updated at 03/10/2022 19:52
