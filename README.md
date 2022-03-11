@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0N4afeb6PooGxwb-oJyWFA-t500x500.jpg">](https://soundcloud.com/kittynxc/kittynxc-live-1292022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwiZk76PDrRbzvTS-FRiQxg-t500x500.jpg">](https://soundcloud.com/allytropical/lyl-radio-110322)
 
-**Artist**: kittynxc 
+**Artist**: Ally - Pleasant Life 
 
-**Track**: KITTYNXC LIVE 1/29/2022
+**Track**: LYL Radio: 11.03.22
 
-Last updated at 03/11/2022 12:13
+Last updated at 03/11/2022 12:17
