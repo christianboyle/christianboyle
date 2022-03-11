@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RAIZfKl3kbSnLFeU-uKTZWA-t500x500.jpg">](https://soundcloud.com/balamii/oscar-jerome-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwiZk76PDrRbzvTS-FRiQxg-t500x500.jpg">](https://soundcloud.com/allytropical/lyl-radio-110322)
 
-**Artist**: Balamii 
+**Artist**: Ally - Pleasant Life 
 
-**Track**: Oscar Jerome - March 2022
+**Track**: LYL Radio: 11.03.22
 
-Last updated at 03/11/2022 10:47
+Last updated at 03/11/2022 10:49
