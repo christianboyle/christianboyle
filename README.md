@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339179-48c48h-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/neiman-marcus-dont-know-you?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339116-n5nmpp-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/fools-gold?in=drakeo-the-ruler/sets/cold-devil-1)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: Neiman & Marcus Dont Know You
+**Track**: Fools Gold (Prod Lil Laudiano)
 
-Last updated at 03/10/2022 19:19
+Last updated at 03/10/2022 19:22
