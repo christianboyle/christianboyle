@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197100811-ec0ei4-t500x500.jpg">](https://soundcloud.com/not_pepsi/l0st-s3-pepsi-edit?in=not_pepsi/sets/pepsi-chart-hits-2016-gennxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000173812778-j2eb46-t500x500.jpg">](https://soundcloud.com/powerpup/jolin-tsai-honey-trap-powerpups-sticky-jar-remix?in=powerpup/sets/powerpup-remixes)
 
-**Artist**: Not Pepsi 
+**Artist**: Powerpup 
 
-**Track**: l0st @ S3△ -  (pepsi edit)
+**Track**: 蔡依林 Jolin Tsai - Honey Trap (Powerpup's Sticky Jar Remix)
 
-Last updated at 03/11/2022 05:14
+Last updated at 03/11/2022 05:18
