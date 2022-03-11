@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273899429-yhwads-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/hood-trophy?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544339269-cc9ks3-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/red-tape-yellow-tape?in=drakeo-the-ruler/sets/cold-devil-1)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: Hood Trophy (prod by Paupa & Deejaywes)
+**Track**: Red Tape , Yellow Tape
 
-Last updated at 03/10/2022 19:15
+Last updated at 03/10/2022 19:17
