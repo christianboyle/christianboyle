@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544338789-amcy0b-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/damn-daddy-feat-ohgeesy?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544338663-tri1ot-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/they-dont-even-know-you-feat-ralfytheplug?in=drakeo-the-ruler/sets/cold-devil-1)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: Damn Daddy Feat. Ohgeesy (Prod. Duse Beats)
+**Track**: They Dont Even Know You Feat. Ralfytheplug (prod 12Hunna)
 
-Last updated at 03/10/2022 19:28
+Last updated at 03/10/2022 19:31
