@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5G1mmwvhcp3NfnL-ZZGUMg-t500x500.jpg">](https://soundcloud.com/foot-outfoot/hanhee-tell-me?in=foot-outfoot/sets/outfoot-compilation-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sPU4iyIYXAL4vNyI-3Ua21Q-t500x500.jpg">](https://soundcloud.com/foot-outfoot/ahso-the-stars?in=foot-outfoot/sets/outfoot-compilation-vol-1)
 
 **Artist**: OUTFOOT 
 
-**Track**: HANHEE - Tell Me
+**Track**: Ahso - The Stars
 
-Last updated at 03/10/2022 22:10
+Last updated at 03/10/2022 22:12
