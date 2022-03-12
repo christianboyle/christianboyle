@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAaE4iFmNtcDeFuz-z9LnLg-t500x500.jpg">](https://soundcloud.com/agonyrecords/agony-angel?in=agonyrecords/sets/ready4theworld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yIzoYRJfOeHsjo9-T8RP8g-t500x500.jpg">](https://soundcloud.com/glassand-shadow/glassand-szosty-zmysl)
 
-**Artist**: AGONY RECORDS 
+**Artist**: Glassand 
 
-**Track**: AGONY - ANGEL
+**Track**: SZÓSTY ZMYSŁ (PROD. BLADY YUCCA)
 
-Last updated at 03/12/2022 08:12
+Last updated at 03/12/2022 14:58
