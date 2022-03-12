@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwiZk76PDrRbzvTS-FRiQxg-t500x500.jpg">](https://soundcloud.com/allytropical/lyl-radio-110322)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAaE4iFmNtcDeFuz-z9LnLg-t500x500.jpg">](https://soundcloud.com/agonyrecords/agony-angel?in=agonyrecords/sets/ready4theworld)
 
-**Artist**: Ally - Pleasant Life 
+**Artist**: AGONY RECORDS 
 
-**Track**: LYL Radio: 11.03.22
+**Track**: AGONY - ANGEL
 
-Last updated at 03/11/2022 12:17
+Last updated at 03/12/2022 08:12
