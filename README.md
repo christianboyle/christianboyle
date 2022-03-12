@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JIAui3x61DAFW8Ne-IWL5IA-t500x500.jpg">](https://soundcloud.com/dirini/high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfIhP8uP6vQbCNnW-RqNdlw-t500x500.jpg">](https://soundcloud.com/nuclear808/critical-w-zappbeats)
 
-**Artist**: DIRINI 
+**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
 
-**Track**: DIRINI - High
+**Track**: CRITICAL W/ ZAPPBEATS
 
-Last updated at 03/12/2022 14:59
+Last updated at 03/12/2022 15:00
