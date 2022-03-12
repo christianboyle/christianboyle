@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfIhP8uP6vQbCNnW-RqNdlw-t500x500.jpg">](https://soundcloud.com/nuclear808/critical-w-zappbeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCVJEvGSsoc6J9xz-atWjjg-t500x500.jpg">](https://soundcloud.com/tenngagebeats/mischief-music)
 
-**Artist**: 𝕹𝖚𝖈𝖑𝖊𝖆𝖗 
+**Artist**: Tenngage 
 
-**Track**: CRITICAL W/ ZAPPBEATS
+**Track**: Mischief Music
 
-Last updated at 03/12/2022 15:00
+Last updated at 03/12/2022 15:01
