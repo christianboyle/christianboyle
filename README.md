@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBKdRyeqfIAX-0-t500x500.jpg">](https://soundcloud.com/charlixcx/beg-for-you-feat-rina-sawayama?in=charlixcx/sets/selected-by-charli-xcx-int)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEnawF0Wy6aUVlZx-yonhVw-t500x500.jpg">](https://soundcloud.com/patternsofperception/patterns-of-perception-93-jasmin)
 
-**Artist**: charlixcx 
+**Artist**: Patterns of Perception 
 
-**Track**: Beg For You (feat. Rina Sawayama)
+**Track**: Patterns of Perception 93 - Jasmín
 
-Last updated at 03/13/2022 08:28
+Last updated at 03/13/2022 13:06
