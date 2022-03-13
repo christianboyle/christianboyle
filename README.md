@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/hw_Gtwdnp1Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=hw_Gtwdnp1Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBKdRyeqfIAX-0-t500x500.jpg">](https://soundcloud.com/charlixcx/beg-for-you-feat-rina-sawayama?in=charlixcx/sets/selected-by-charli-xcx-int)
 
-**Artist**: Charli XCX 
+**Artist**: charlixcx 
 
-**Track**: Beg For You feat. Rina Sawayama [Official Video]
+**Track**: Beg For You (feat. Rina Sawayama)
 
-Last updated at 03/13/2022 08:25
+Last updated at 03/13/2022 08:28
