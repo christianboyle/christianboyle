@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEnawF0Wy6aUVlZx-yonhVw-t500x500.jpg">](https://soundcloud.com/patternsofperception/patterns-of-perception-93-jasmin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000392808708-80qq1z-t500x500.jpg">](https://soundcloud.com/djfingerblast666/tatu-all-the-things-she-said-dj-fingerblast-remix)
 
-**Artist**: Patterns of Perception 
+**Artist**: DJ FINGERBLAST 
 
-**Track**: Patterns of Perception 93 - Jasmín
+**Track**: T.A.T.U - ALL THE THINGS SHE SAID (DJ FINGERBLAST REMIX) [FREE D/L]
 
-Last updated at 03/13/2022 13:06
+Last updated at 03/13/2022 17:55
