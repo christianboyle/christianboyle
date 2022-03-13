@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wy7pWwRdNyzdfxb4-SS1hpw-t500x500.jpg">](https://soundcloud.com/kick-42870673/understand-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nMTz8xi1sDMSjtq6-H2ZPfA-t500x500.jpg">](https://soundcloud.com/yungsmartrider/take-care-ya-bidnezz)
 
-**Artist**: DJ TWI$T II 
+**Artist**: YUNG SMARTRIDER 
 
-**Track**: Understand Me?
+**Track**: TAKE CARE YA BIDNEZZ
 
-Last updated at 03/13/2022 17:58
+Last updated at 03/13/2022 17:59
