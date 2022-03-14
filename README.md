@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyxlY0NB3ysJTk4P-LI0qlg-t500x500.jpg">](https://soundcloud.com/witchhotel/witch-hotel-x-kennedyxoxo-x-killmesumday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ArbHYFOoEW13R14z-zvoDUQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-49-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-49-on-beat-106-scotland-with-shimamura-alvarez-110322)
 
-**Artist**: witch hotel 
+**Artist**: Beat106Scotland 
 
-**Track**: witch hotel x kennedyxoxo x killmesumday - love story (prod. noahmadethiss x jolst)
+**Track**: Bonkers Beats #49 on Beat 106 Scotland with Shimamura 10322 (Hour 1)
 
-Last updated at 03/14/2022 11:39
+Last updated at 03/14/2022 11:40
