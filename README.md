@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKAt46CCWqIa5kMF-zlH1ig-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/zatox-ft-max-p-machines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyxlY0NB3ysJTk4P-LI0qlg-t500x500.jpg">](https://soundcloud.com/witchhotel/witch-hotel-x-kennedyxoxo-x-killmesumday)
 
-**Artist**: Dirty Workz 
+**Artist**: witch hotel 
 
-**Track**: Zatox ft. Max P - Machines
+**Track**: witch hotel x kennedyxoxo x killmesumday - love story (prod. noahmadethiss x jolst)
 
-Last updated at 03/14/2022 11:38
+Last updated at 03/14/2022 11:39
