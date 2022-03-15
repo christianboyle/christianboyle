@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tycEMUntk9sgJ3Ar-8rGKhg-t500x500.jpg">](https://soundcloud.com/ramirez_187/04-gold-thangs-pinky-rangs-da-hooptie-feat-pouya-shakewell?in=ramirez_187/sets/tha-playa-manual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2cyNVD64ZATImrwq-0i65tw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/accidental-spill-2)
 
-**Artist**: RAMIREZ. 
+**Artist**: kushface ☤ 
 
-**Track**: Gold Thangs & Pinky Rangs [Da Hooptie] (feat. Pouya & Shakewell)
+**Track**: ACCIDENTAL SPILL 2
 
-Last updated at 03/15/2022 17:11
+Last updated at 03/15/2022 17:12
