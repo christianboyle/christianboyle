@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ArbHYFOoEW13R14z-zvoDUQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-49-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ojPX2b7PBzFexl5-MyDJWw-t500x500.jpg">](https://soundcloud.com/thedjthumpa/thumpa-club-kinetic-fibre-optic-anthems-1994)
 
-**Artist**: Beat106Scotland 
+**Artist**: Thumpa 
 
-**Track**: Bonkers Beats #49 on Beat 106 Scotland with Shimamura 10322 (Hour 1)
+**Track**: Thumpa - Club Kinetic & Fibre Optic Anthems 1994
 
-Last updated at 03/15/2022 17:21
+Last updated at 03/15/2022 17:47
