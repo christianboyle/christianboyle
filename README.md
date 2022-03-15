@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GLLrhEaybyl13hBy-GbfwSw-t500x500.jpg">](https://soundcloud.com/necroez666/dayswehad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKbRzfaMGK6l8CN5-3iMAxg-t500x500.jpg">](https://soundcloud.com/stjosephrecs/r1d1-droppin-the-pleasure)
 
-**Artist**: necroez ll 
+**Artist**: St Joseph Recordings 
 
-**Track**: the days we had, the moments we let go
+**Track**: R1D1 - Droppin' The Pleasure
 
-Last updated at 03/15/2022 16:49
+Last updated at 03/15/2022 16:50
