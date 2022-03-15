@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000358380639-rqett1-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc114-empyrean-tears-domino)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000302814573-1zk271-t500x500.jpg">](https://soundcloud.com/empyrean-tears/b1p-b0p)
 
-**Artist**: NON STOP NXC® 
+**Artist**: empyrean tears 
 
-**Track**: NXC114 - Empyrean Tears - Domino
+**Track**: fan fiction - b1p b0p (empyrean tears edit)
 
-Last updated at 03/15/2022 16:55
+Last updated at 03/15/2022 16:56
