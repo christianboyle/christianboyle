@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000302814573-1zk271-t500x500.jpg">](https://soundcloud.com/empyrean-tears/b1p-b0p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X08yyWgMf519nl7E-ZniyPg-t500x500.jpg">](https://soundcloud.com/digitalraveboy/bladee-god-omicron-variant-9d-audio-3hz-delta-waves)
 
-**Artist**: empyrean tears 
+**Artist**: digital rave boy 
 
-**Track**: fan fiction - b1p b0p (empyrean tears edit)
+**Track**: Bladee - God [Omicron Variant // 9D AUDIO] 3Hz Delta Waves
 
-Last updated at 03/15/2022 16:56
+Last updated at 03/15/2022 16:57
