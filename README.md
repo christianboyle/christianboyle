@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X08yyWgMf519nl7E-ZniyPg-t500x500.jpg">](https://soundcloud.com/digitalraveboy/bladee-god-omicron-variant-9d-audio-3hz-delta-waves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tycEMUntk9sgJ3Ar-8rGKhg-t500x500.jpg">](https://soundcloud.com/ramirez_187/03-hunnids?in=ramirez_187/sets/tha-playa-manual)
 
-**Artist**: digital rave boy 
+**Artist**: RAMIREZ. 
 
-**Track**: Bladee - God [Omicron Variant // 9D AUDIO] 3Hz Delta Waves
+**Track**: Hunnids
 
-Last updated at 03/15/2022 16:57
+Last updated at 03/15/2022 17:10
