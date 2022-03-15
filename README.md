@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TcztJONjQVtL-0-t500x500.jpg">](https://soundcloud.com/charlixcx/beg-for-you-feat-rina-sawayama)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCVJEvGSsoc6J9xz-atWjjg-t500x500.jpg">](https://soundcloud.com/tenngagebeats/mischief-music)
 
-**Artist**: charlixcx 
+**Artist**: Tenngage 
 
-**Track**: Beg For You (feat. Rina Sawayama)
+**Track**: Mischief Music
 
-Last updated at 03/15/2022 18:35
+Last updated at 03/15/2022 18:38
