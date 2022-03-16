@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSKHUUOJPNyXa8cZ-yOyIWQ-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/its-a-secret-ft-joog-allblack?in=drakeo-the-ruler/sets/thank-you-for-using-gtl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000264013856-jl6u5t-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/big-banc-uchies-prod-bruce?in=drakeo-the-ruler/sets/cold-devil-1)
 
 **Artist**: DRAKEO The Ruler 
 
-**Track**: It's A Secret Ft. Joog & ALLBLACK
+**Track**: Big Banc Uchies (Prod. Bruce24k)
 
-Last updated at 03/15/2022 20:29
+Last updated at 03/15/2022 20:30
