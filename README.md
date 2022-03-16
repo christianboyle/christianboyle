@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000264013856-jl6u5t-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/big-banc-uchies-prod-bruce?in=drakeo-the-ruler/sets/cold-devil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88TNZqEvoj6d4Z6C-Ytmzpg-t500x500.jpg">](https://soundcloud.com/shallnotfade/palms049-tom-vernon-minobu-ep)
 
-**Artist**: DRAKEO The Ruler 
+**Artist**: Shall Not Fade 
 
-**Track**: Big Banc Uchies (Prod. Bruce24k)
+**Track**: PALMS049 // Tom Vernon - Minobu EP
 
-Last updated at 03/15/2022 20:30
+Last updated at 03/16/2022 09:24
