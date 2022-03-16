@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgvD24zydqgnZKZM-5Z59NA-t500x500.jpg">](https://soundcloud.com/the-games-we-play/tryptamind-hyperion-rising)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srZzJwLDvy8fqASe-DIzBXA-t500x500.jpg">](https://soundcloud.com/broknnn/vision)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: BROKN 
 
-**Track**: Tryptamind - Hyperion Rising
+**Track**: VISION
 
-Last updated at 03/16/2022 09:31
+Last updated at 03/16/2022 10:35
