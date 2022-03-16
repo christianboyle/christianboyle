@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000598152566-mgdjyo-t500x500.jpg">](https://soundcloud.com/xxshadow_realmxx/shoota)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iIQr0BRgLZixEtqs-myqyiw-t500x500.jpg">](https://soundcloud.com/ukowens1/fatality)
 
-**Artist**: shadow realm 
+**Artist**: Loneliness 
 
-**Track**: 100 gecs - shoota (playboi carti remix)
+**Track**: Fatality
 
-Last updated at 03/15/2022 20:17
+Last updated at 03/15/2022 20:19
