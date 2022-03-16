@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGH5AWZx1A4PGeoN-7RDcBQ-t500x500.jpg">](https://soundcloud.com/idntrmmbr/jerzey-boy-faaade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nQcJtyipCQP2Fqyy-YTrLJA-t500x500.jpg">](https://soundcloud.com/twerknation28/gunk-the-booty-bounce-version)
 
-**Artist**: idntrmmbr. 🚬✨ 
+**Artist**: TwerkNation28 
 
-**Track**: JERZEY BOY. (faaade.)
+**Track**: Gunk ( The Booty Bounce Version )
 
-Last updated at 03/16/2022 09:29
+Last updated at 03/16/2022 09:30
