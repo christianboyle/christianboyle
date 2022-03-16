@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88TNZqEvoj6d4Z6C-Ytmzpg-t500x500.jpg">](https://soundcloud.com/shallnotfade/palms049-tom-vernon-minobu-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7BWnWad4UKLg3Gju-y7ddDA-t500x500.jpg">](https://soundcloud.com/antent/antent-spitfire)
 
-**Artist**: Shall Not Fade 
+**Artist**: Antent 
 
-**Track**: PALMS049 // Tom Vernon - Minobu EP
+**Track**: Antent - Spitfire
 
-Last updated at 03/16/2022 09:24
+Last updated at 03/16/2022 09:25
