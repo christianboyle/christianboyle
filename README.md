@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzcMddotIN1F3auz-G9ZAuQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-franz-kirmann-your-tenderness-bytes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGH5AWZx1A4PGeoN-7RDcBQ-t500x500.jpg">](https://soundcloud.com/idntrmmbr/jerzey-boy-faaade)
 
-**Artist**: Ransom Note 
+**Artist**: idntrmmbr. 🚬✨ 
 
-**Track**: PREMIERE: Franz Kirmann - Your Tenderness [Bytes]
+**Track**: JERZEY BOY. (faaade.)
 
-Last updated at 03/16/2022 09:27
+Last updated at 03/16/2022 09:29
