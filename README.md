@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000235053391-vu7670-t500x500.jpg">](https://soundcloud.com/norcalnxc/c-u-again-unpetrify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000196591360-ecf0lf-t500x500.jpg">](https://soundcloud.com/hakaisdead/haka21-ghozt-trunx-final-boss-itz_ghozt-iamtrunx)
 
-**Artist**: NorCal Nightcore 
+**Artist**: HAKA [@HAKAisDEAD] 
 
-**Track**: c u again - UNPETRIFY
+**Track**: HAKA21 - GHOZT & TRUNX - FINAL BOSS -@Itz_GHOZT @iamtrunx
 
-Last updated at 03/17/2022 18:56
+Last updated at 03/17/2022 18:57
