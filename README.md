@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000196591360-ecf0lf-t500x500.jpg">](https://soundcloud.com/hakaisdead/haka21-ghozt-trunx-final-boss-itz_ghozt-iamtrunx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000150902832-nrrune-t500x500.jpg">](https://soundcloud.com/nxcmansion/wo-u)
 
-**Artist**: HAKA [@HAKAisDEAD] 
+**Artist**: NXC MANSION 
 
-**Track**: HAKA21 - GHOZT & TRUNX - FINAL BOSS -@Itz_GHOZT @iamtrunx
+**Track**: beachday - w/o u
 
-Last updated at 03/17/2022 18:57
+Last updated at 03/17/2022 18:58
