@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000150902832-nrrune-t500x500.jpg">](https://soundcloud.com/nxcmansion/wo-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000156860797-jl1bf5-t500x500.jpg">](https://soundcloud.com/plurcore/away)
 
-**Artist**: NXC MANSION 
+**Artist**: PLUR 
 
-**Track**: beachday - w/o u
+**Track**: AWAY
 
-Last updated at 03/17/2022 18:58
+Last updated at 03/17/2022 19:00
