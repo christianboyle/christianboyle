@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163982420-8huo1a-t500x500.jpg">](https://soundcloud.com/spngecake/d0nt-leave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000135261224-xeyqyd-t500x500.jpg">](https://soundcloud.com/lil-baeblade/slumber-party-ft-signoffline)
 
-**Artist**: sponge cake 
+**Artist**: Lil' BaeBlade 
 
-**Track**: d0nt leave
+**Track**: Slumber Party ft sign offline
 
-Last updated at 03/17/2022 19:02
+Last updated at 03/17/2022 19:03
