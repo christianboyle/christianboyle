@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000150902832-nrrune-t500x500.jpg">](https://soundcloud.com/nxcmansion/wo-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163982420-8huo1a-t500x500.jpg">](https://soundcloud.com/spngecake/d0nt-leave)
 
-**Artist**: NXC MANSION 
+**Artist**: sponge cake 
 
-**Track**: beachday - w/o u
+**Track**: d0nt leave
 
-Last updated at 03/17/2022 19:11
+Last updated at 03/17/2022 19:12
