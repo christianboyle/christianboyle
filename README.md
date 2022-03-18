@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000137168218-1hj29q-t500x500.jpg">](https://soundcloud.com/plurcore/ill-be-waiting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163982420-8huo1a-t500x500.jpg">](https://soundcloud.com/spngecake/d0nt-leave)
 
-**Artist**: PLUR 
+**Artist**: sponge cake 
 
-**Track**: I'LL BE WAITING
+**Track**: d0nt leave
 
-Last updated at 03/17/2022 19:01
+Last updated at 03/17/2022 19:02
