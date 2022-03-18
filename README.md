@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-978iLGcRGdv3Knzi-XJVyUA-t500x500.jpg">](https://soundcloud.com/headbangsociety/haven-woods-x-nill-lightspeed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NICQeXIh7zzCTAiz-vS5zmA-t500x500.jpg">](https://soundcloud.com/dektora/remnantexe-ultra)
 
-**Artist**: Headbang Society 
+**Artist**: DEKTORA 
 
-**Track**: Haven Woods X Nill - Lightspeed
+**Track**: REMNANT.exe - ULTRA
 
-Last updated at 03/18/2022 16:31
+Last updated at 03/18/2022 16:32
