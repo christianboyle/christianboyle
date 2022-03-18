@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O2CY0Lmtm28h5r7W-W7Cfug-t500x500.jpg">](https://soundcloud.com/area3000/rave-cave-w-sami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-978iLGcRGdv3Knzi-XJVyUA-t500x500.jpg">](https://soundcloud.com/headbangsociety/haven-woods-x-nill-lightspeed)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Headbang Society 
 
-**Track**: RAVE CAVE w. SAMI - 18 March 2022
+**Track**: Haven Woods X Nill - Lightspeed
 
-Last updated at 03/18/2022 16:30
+Last updated at 03/18/2022 16:31
