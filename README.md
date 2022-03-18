@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000644626342-gk5zpm-t500x500.jpg">](https://soundcloud.com/pairymusic/constant-thoughts-pairy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BhL1BzjSWfwg9Ts-8UMArQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/nightcorey-dls)
 
-**Artist**: PAIRY 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Constant Thoughts - Pairy
+**Track**: nightcorey - DLS
 
-Last updated at 03/17/2022 19:19
+Last updated at 03/17/2022 19:20
