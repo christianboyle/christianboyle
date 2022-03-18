@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163982420-8huo1a-t500x500.jpg">](https://soundcloud.com/spngecake/d0nt-leave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000291203700-qgj02j-t500x500.jpg">](https://soundcloud.com/emmaaaaaaaaaaaaaaaa/thinking-bout-u)
 
-**Artist**: sponge cake 
+**Artist**: emma 
 
-**Track**: d0nt leave
+**Track**: thinking bout u
 
-Last updated at 03/17/2022 19:12
+Last updated at 03/17/2022 19:17
