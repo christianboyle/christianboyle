@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMCymYusoMVvHuyg-hnHbzA-t500x500.jpg">](https://soundcloud.com/spaceddd/to-the-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3XZ5rGe3IWqTzizL-uqk1eQ-t500x500.jpg">](https://soundcloud.com/the3asic/denatonium)
 
-**Artist**: SPACED 
+**Artist**: 3ASiC 
 
-**Track**: TO THE MOON
+**Track**: Denatonium
 
-Last updated at 03/19/2022 16:43
+Last updated at 03/19/2022 16:44
