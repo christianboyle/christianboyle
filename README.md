@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IxQ5U5rfrIGvCqE4-AyOpSg-t500x500.jpg">](https://soundcloud.com/hx777/t7-phonkaholics-the-m1xtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcFu7fgsd991dVgg-YY9Cbg-t500x500.jpg">](https://soundcloud.com/lil_rocketman/holup)
 
-**Artist**: H X 7 
+**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
 
-**Track**: T7 PHONKAHOLICS (THE M1XTAPE)
+**Track**: HOL' UP w/ H X 7
 
-Last updated at 03/20/2022 08:00
+Last updated at 03/20/2022 08:01
