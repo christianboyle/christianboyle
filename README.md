@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcFu7fgsd991dVgg-YY9Cbg-t500x500.jpg">](https://soundcloud.com/lil_rocketman/holup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zVyFpdnQypYzjJR-bwTv3Q-t500x500.jpg">](https://soundcloud.com/swufm/apex-w-sam-kitt-20-mar-2022)
 
-**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
+**Artist**: SWU.FM 
 
-**Track**: HOL' UP w/ H X 7
+**Track**: Apex w/ Sam Kitt 20TH MAR 2022
 
-Last updated at 03/20/2022 08:01
+Last updated at 03/20/2022 08:02
