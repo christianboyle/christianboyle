@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000116888328-pfq8ok-t500x500.jpg">](https://soundcloud.com/nokia-design-team/salsa-sun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-KQn7ySv2Nl7uBDfy-EcBQLw-t500x500.jpg">](https://soundcloud.com/dj-sammy-p/my-first-kiss)
 
-**Artist**: Microsoft Phones Design 
+**Artist**: DJ Sammy P 
 
-**Track**: Salsa Sun
+**Track**: My First Kiss
 
-Last updated at 03/20/2022 15:34
+Last updated at 03/20/2022 15:36
