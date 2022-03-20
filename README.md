@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MB6sFQ3YR6DsMkU3-8O4LYw-t500x500.jpg">](https://soundcloud.com/labootypatrol/booty-patrol-mandela-riddim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000110542659-yd862x-t500x500.jpg">](https://soundcloud.com/richarddjames/rhubarb-orc-1953-rev)
 
-**Artist**: Booty Patrol 
+**Artist**: aphextwin 
 
-**Track**: Mandela Riddim 👨🏾‍🦳
+**Track**: Rhubarb Orc. 19.53 Rev
 
-Last updated at 03/20/2022 15:24
+Last updated at 03/20/2022 15:33
