@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WUDasEvI3tBIvNzQ-CHWrTg-t500x500.jpg">](https://soundcloud.com/lucidmonday/losco-onhell-carnal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7ZussPn2CCzCuMj-u5McTA-t500x500.jpg">](https://soundcloud.com/zappbeats/not-this-time)
 
-**Artist**: Lucid Monday 
+**Artist**: ZappBeats 
 
-**Track**: Losco & ONHELL - Carnal
+**Track**: NOT THIS TIME
 
-Last updated at 03/20/2022 08:03
+Last updated at 03/20/2022 08:04
