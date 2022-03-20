@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/4aeETEoNfOg/maxresdefault.jpg">](https://www.youtube.com/watch?v=4aeETEoNfOg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IxQ5U5rfrIGvCqE4-AyOpSg-t500x500.jpg">](https://soundcloud.com/hx777/t7-phonkaholics-the-m1xtape)
 
-**Artist**: Smashing Pumpkins 
+**Artist**: H X 7 
 
-**Track**: The 1979 (Official Music Video)
+**Track**: T7 PHONKAHOLICS (THE M1XTAPE)
 
-Last updated at 03/19/2022 20:11
+Last updated at 03/20/2022 08:00
