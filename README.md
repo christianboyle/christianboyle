@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0h8uPyVMx79eRGJx-u3QMqQ-t500x500.jpg">](https://soundcloud.com/mood_ids/julian-calor-find-my-way-with-troves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MB6sFQ3YR6DsMkU3-8O4LYw-t500x500.jpg">](https://soundcloud.com/labootypatrol/booty-patrol-mandela-riddim)
 
-**Artist**: Mood ID's 
+**Artist**: Booty Patrol 
 
-**Track**: Julian Calor - Find My Way (with TRØVES)
+**Track**: Mandela Riddim 👨🏾‍🦳
 
-Last updated at 03/20/2022 15:23
+Last updated at 03/20/2022 15:24
