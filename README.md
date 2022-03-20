@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zVyFpdnQypYzjJR-bwTv3Q-t500x500.jpg">](https://soundcloud.com/swufm/apex-w-sam-kitt-20-mar-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WUDasEvI3tBIvNzQ-CHWrTg-t500x500.jpg">](https://soundcloud.com/lucidmonday/losco-onhell-carnal)
 
-**Artist**: SWU.FM 
+**Artist**: Lucid Monday 
 
-**Track**: Apex w/ Sam Kitt 20TH MAR 2022
+**Track**: Losco & ONHELL - Carnal
 
-Last updated at 03/20/2022 08:02
+Last updated at 03/20/2022 08:03
