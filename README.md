@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7nMzb17yStibNsT0-0SYjgQ-t500x500.jpg">](https://soundcloud.com/kloudbug/outerlimits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Quc0L8LBya0oIMz2-UNL7SQ-t500x500.jpg">](https://soundcloud.com/kev7duh/fuck-that-w-popstarbills-troinerrdilligence)
 
-**Artist**: kloudbug 
+**Artist**: kev7 (@bevyung) 
 
-**Track**: OUTER LIMITS (A Chilling Narrative)
+**Track**: fuck that! w/ POPSTARBILLS {troinerr+dilligence}
 
-Last updated at 03/20/2022 16:49
+Last updated at 03/20/2022 16:55
