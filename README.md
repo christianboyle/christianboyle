@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aunyUzWeajEjdKbm-oEe8tQ-t500x500.jpg">](https://soundcloud.com/ghostmemory2002/opacity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzrxcn0yUQySjgGV-bOVlEA-t500x500.jpg">](https://soundcloud.com/kloudbug/sss2)
 
-**Artist**: ghostmemory 
+**Artist**: kloudbug 
 
-**Track**: Opacity (OUT NOW ON IMPULSE UNIT)
+**Track**: SOME SPOOKY SHIT VOL. 2
 
-Last updated at 03/20/2022 15:50
+Last updated at 03/20/2022 15:51
