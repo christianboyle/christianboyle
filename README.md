@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozQiBFasrqY8nGZY-7zgcQw-t500x500.jpg">](https://soundcloud.com/kjm666/forty-five)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eCByUgLCNV0onl7C-Na417g-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-laza-cidade-abelha-dissolute)
 
-**Artist**: KAYA 
+**Artist**: Ransom Note 
 
-**Track**: FORTY FIVE
+**Track**: PREMIERE: LAZA - Cidade Abelha [DISSOLUTE]
 
-Last updated at 03/21/2022 11:10
+Last updated at 03/21/2022 11:12
