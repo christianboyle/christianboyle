@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrsIlVsX6ieXjGzg-IPMW9A-t500x500.jpg">](https://soundcloud.com/radioradiofm/rrfm-french-ii-know-va-16-03-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGJenQanA9XUYnkw-PzuXjw-t500x500.jpg">](https://soundcloud.com/swufm/breakfast-w-felix-joy-eric)
 
-**Artist**: RRFM • Radio Radio 
+**Artist**: SWU.FM 
 
-**Track**: RRFM • French II & Know V.A. • 16-03-2022
+**Track**: Breakfast w- Felix Joy & Eric Boss 21 MAR 2022
 
-Last updated at 03/21/2022 09:21
+Last updated at 03/21/2022 11:06
