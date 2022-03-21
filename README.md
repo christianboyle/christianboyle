@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGJenQanA9XUYnkw-PzuXjw-t500x500.jpg">](https://soundcloud.com/swufm/breakfast-w-felix-joy-eric)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozQiBFasrqY8nGZY-7zgcQw-t500x500.jpg">](https://soundcloud.com/kjm666/forty-five)
 
-**Artist**: SWU.FM 
+**Artist**: KAYA 
 
-**Track**: Breakfast w- Felix Joy & Eric Boss 21 MAR 2022
+**Track**: FORTY FIVE
 
-Last updated at 03/21/2022 11:06
+Last updated at 03/21/2022 11:10
