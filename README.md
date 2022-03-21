@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0n7ZfywiBUPKwyQ-q0JkbQ-t500x500.jpg">](https://soundcloud.com/balamii/roo-w-jam-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LLr1aJI5ht8H7B85-q86gHw-t500x500.jpg">](https://soundcloud.com/bloody_bloom/normani-fair-bloody-boom-remix)
 
-**Artist**: Balamii 
+**Artist**: 𝖇𝖑𝖔𝖔𝖉𝖞 𝖇𝖑𝖔𝖔𝖒 
 
-**Track**: Roo w/  J.A.M. - March 2022
+**Track**: Normani - Fair (bloody boom remix)
 
-Last updated at 03/21/2022 18:56
+Last updated at 03/21/2022 18:57
