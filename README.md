@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000251633968-5kz5lh-t500x500.jpg">](https://soundcloud.com/nxcnov17/nxcnov5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzDoNSOQotkeTiJn-X2AGUA-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-215-t-n)
 
-**Artist**: NXCNOV 2017 
+**Artist**: Lobster Theremin 
 
-**Track**: UNDERDOG - TAKE ME AWAY
+**Track**: LT Podcast 215 // T-N
 
-Last updated at 03/20/2022 20:52
+Last updated at 03/21/2022 08:18
