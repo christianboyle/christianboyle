@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzFAB65FOwycR4vg-zvGkXA-t500x500.jpg">](https://soundcloud.com/balamii/beeches-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpKxbroz2C0mkGOf-ZsJkkQ-t500x500.jpg">](https://soundcloud.com/riotten/gawt-dat)
 
-**Artist**: Balamii 
+**Artist**: RIOT TEN 
 
-**Track**: Beeches - March 2022
+**Track**: Riot Ten & BERNZIKIAL - Gawt Dat
 
-Last updated at 03/21/2022 11:15
+Last updated at 03/21/2022 15:03
