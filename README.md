@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000257120945-1ud4kh-t500x500.jpg">](https://soundcloud.com/nxcnov17/nxcnov16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7f69BNALT4ogE5WZ-lVG8vw-t500x500.jpg">](https://soundcloud.com/nicopatty/butterflies)
 
-**Artist**: NXCNOV 2017 
+**Artist**: nicopatty 
 
-**Track**: RUSHHH - WAY
+**Track**: butterflies w/ scruff
 
-Last updated at 03/21/2022 20:34
+Last updated at 03/22/2022 08:11
