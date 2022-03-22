@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IunoU5RlCv2xwxOB-z81Slg-t500x500.jpg">](https://soundcloud.com/runningoutofsteam/roob001-meowsn-catmousegame2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrbjxlaoFR1fxnWT-8YhKrw-t500x500.jpg">](https://soundcloud.com/kioskradio/outsiders-ransom-note-w-jayson)
 
-**Artist**: Running Out Of Steam 
+**Artist**: Kiosk Radio 
 
-**Track**: ROOB001 // Meowsn - CATMOUSEGAME2
+**Track**: Outsiders: Ransom Note w/ Jayson Wynters & Macca @ Kiosk Radio 18.03.2022
 
-Last updated at 03/22/2022 08:56
+Last updated at 03/22/2022 09:09
