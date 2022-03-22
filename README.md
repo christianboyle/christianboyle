@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LLr1aJI5ht8H7B85-q86gHw-t500x500.jpg">](https://soundcloud.com/bloody_bloom/normani-fair-bloody-boom-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000251633968-5kz5lh-t500x500.jpg">](https://soundcloud.com/nxcnov17/nxcnov5)
 
-**Artist**: 𝖇𝖑𝖔𝖔𝖉𝖞 𝖇𝖑𝖔𝖔𝖒 
+**Artist**: NXCNOV 2017 
 
-**Track**: Normani - Fair (bloody boom remix)
+**Track**: UNDERDOG - TAKE ME AWAY
 
-Last updated at 03/21/2022 18:57
+Last updated at 03/21/2022 20:31
