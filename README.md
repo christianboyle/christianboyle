@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkNkxdy05vlmypSg-QwV6MQ-t500x500.jpg">](https://soundcloud.com/balamii/magick-fm-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vN5qxzhGPiRhlKw-I6QpLA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-iv-full-stream-1)
 
-**Artist**: Balamii 
+**Artist**: kushface ☤ 
 
-**Track**: Magick FM - March 2022
+**Track**: DIRT TAPE IV (FULL STREAM)
 
-Last updated at 03/22/2022 11:52
+Last updated at 03/22/2022 16:33
