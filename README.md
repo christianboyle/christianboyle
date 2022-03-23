@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vN5qxzhGPiRhlKw-I6QpLA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-iv-full-stream-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJ6zJFOYnNnLDCjc-qOXoyQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/fells-stuck-like-glue-feat-olivia-ray)
 
-**Artist**: kushface ☤ 
+**Artist**: Fells 
 
-**Track**: DIRT TAPE IV (FULL STREAM)
+**Track**: Fells - Stuck Like Glue (feat. Olivia Ray)
 
-Last updated at 03/23/2022 16:30
+Last updated at 03/23/2022 17:00
