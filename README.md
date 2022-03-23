@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/1kz6hNDlEEg/maxresdefault.jpg">](https://www.youtube.com/watch?v=1kz6hNDlEEg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wwMoftvpsernpMhJ-uCrAtQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/the-1975-if-youre-too-shy-let-me-know-fells-remix)
 
-**Artist**: Paramore 
+**Artist**: Fells 
 
-**Track**: Paramore: That's What You Get [OFFICIAL VIDEO]
+**Track**: The 1975 - If You're Too Shy (Let Me Know) [Fells Remix]
 
-Last updated at 03/23/2022 13:14
+Last updated at 03/23/2022 13:17
