@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vN5qxzhGPiRhlKw-I6QpLA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-iv-full-stream-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FHTzEjn8E3XnJ71i-hlkzcQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-fells)
 
-**Artist**: kushface ☤ 
+**Artist**: iEDM Radio 
 
-**Track**: DIRT TAPE IV (FULL STREAM)
+**Track**: iEDM Radio Guest Mix - Fells
 
-Last updated at 03/22/2022 16:33
+Last updated at 03/23/2022 10:38
