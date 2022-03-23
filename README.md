@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnqXSCz3Ulg4e0mZ-U2UtvA-t500x500.jpg">](https://soundcloud.com/fellsofficial/fells-5-am-feat-saywecanfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vN5qxzhGPiRhlKw-I6QpLA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-iv-full-stream-1)
 
-**Artist**: Fells 
+**Artist**: kushface ☤ 
 
-**Track**: Fells - 5 AM (feat. SayWeCanFly)
+**Track**: DIRT TAPE IV (FULL STREAM)
 
-Last updated at 03/23/2022 16:26
+Last updated at 03/23/2022 16:30
