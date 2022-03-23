@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000504792591-q39mrz-t500x500.jpg">](https://soundcloud.com/user-151605220/audien-echosmith-favorite-sound-nightcore?in=user-151605220/sets/tujamo-drop-that-low-when-i-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S2WpyPSyJEeM-0-t500x500.jpg">](https://soundcloud.com/notdofficial/keep-you-mine-1)
 
-**Artist**: Carly Rae Jepsen - Now That I Found You NightCore 
+**Artist**: NOTD 
 
-**Track**: Audien & Echosmith - Favorite Sound NightCore
+**Track**: Keep You Mine
 
-Last updated at 03/23/2022 13:01
+Last updated at 03/23/2022 13:02
