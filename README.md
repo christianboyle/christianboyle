@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYBAvILAVUTTzv66-ozNhOA-t500x500.jpg">](https://soundcloud.com/coastrmusic/shes-all-i-wanna-love-coastrs-spring-break-22-mash)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/1dUZEiCtSnA/maxresdefault.jpg">](https://www.youtube.com/watch?v=1dUZEiCtSnA)
 
-**Artist**: COASTR. 
+**Artist**: Papa Roach 
 
-**Track**: Tate McRae X Lost Kings - she's all i wanna Love(COASTR.'s Spring Break 22 Mashup)
+**Track**: Kayzo, Sullivan King, Domination (Official Music Video)
 
-Last updated at 03/24/2022 08:46
+Last updated at 03/24/2022 08:47
