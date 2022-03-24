@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hf7Iw8Iw9ZFiem3R-yy2V1w-t500x500.jpg">](https://soundcloud.com/wubaholics/knetica-other-side-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLyKL5tjCpKauJhn-C7isQw-t500x500.jpg">](https://soundcloud.com/e_tank/gammer-stampede-etank-hardcore-bootleg)
 
-**Artist**: Wubaholics 
+**Artist**: E*Tank 
 
-**Track**: Knetica - Other Side
+**Track**: Gammer - Stampede (E*Tank Hardcore Bootleg)
 
-Last updated at 03/24/2022 08:42
+Last updated at 03/24/2022 08:43
