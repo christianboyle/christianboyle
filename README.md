@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WE3XHZjiJexSouF-WmmO2g-t500x500.jpg">](https://soundcloud.com/buunshin/drake-girls-want-girls-buunshins-dnb-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YXO42Twr97Sn499N-3izcKQ-t500x500.jpg">](https://soundcloud.com/23oddcats/primal)
 
-**Artist**: Buunshin 
+**Artist**: 23 Odd Cats 
 
-**Track**: Drake - Girls Want Girls (Buunshin's Dnb Flip)[FREE DOWNLOAD]
+**Track**: Primal
 
-Last updated at 03/24/2022 12:21
+Last updated at 03/24/2022 12:50
