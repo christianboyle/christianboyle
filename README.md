@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D6aagwUyWhMBRX2t-Ry4kng-t500x500.jpg">](https://soundcloud.com/area3000/neoraunch-w-slavic-papa-23-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0dl7S0dJcBSneQA-A3HQdA-t500x500.jpg">](https://soundcloud.com/vladkush/makemymindslip)
 
-**Artist**: Area 3000 Radio 
+**Artist**: vladkush 
 
-**Track**: Neoraunch w. Slavic Papa - 23 March 2022
+**Track**: MAKE MY MIND SLIP
 
-Last updated at 03/24/2022 08:58
+Last updated at 03/24/2022 12:09
