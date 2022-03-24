@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdWg2OgJzKtiq9Bk-7gWodA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/eunoia-94782778?in=simplifyrecs/sets/eunoia-patfromlastyear-love-after-love-feat-livingston-crain-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wv4tu7zXnM33fwXl-PNxdmA-t500x500.jpg">](https://soundcloud.com/studiodrumandbass/zere-go-witcho-premiere)
 
-**Artist**: Simplify. 
+**Artist**: Studio Drum & Bass 
 
-**Track**: Eunoia & PatFromLastYear - Love After Love (feat. Livingston Crain) (BLCKBRD Remix)
+**Track**: Zere - Go Witcho [Premiere]
 
-Last updated at 03/24/2022 17:15
+Last updated at 03/24/2022 17:21
