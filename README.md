@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYTjyaf0tOwsm2mx-6LjyIQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/every-little-thing-gigi-dagostino-someday-someplace-ill-fly-with-you-murderclub-twerkspeed-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Qne1kCpQQsff3Vj-5eQqfA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/eunoia-593509710?in=simplifyrecs/sets/eunoia-patfromlastyear-love-after-love-feat-livingston-crain-remixes)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Simplify. 
 
-**Track**: Someday Someplace Ill Fly With You (MURDER CLUB TWERKSPEED MIX)
+**Track**: Eunoia & PatFromLastYear - Love After Love (feat. Livingston Crain) (Seb Nero Remix)
 
-Last updated at 03/24/2022 17:03
+Last updated at 03/24/2022 17:04
