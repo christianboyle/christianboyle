@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FjCs82zuSzfb0t8m-chFCwA-t500x500.jpg">](https://soundcloud.com/rinsefm/clubglow220322)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hf7Iw8Iw9ZFiem3R-yy2V1w-t500x500.jpg">](https://soundcloud.com/wubaholics/knetica-other-side-1)
 
-**Artist**: Rinse FM 
+**Artist**: Wubaholics 
 
-**Track**: Club Glow - 22 March 2022
+**Track**: Knetica - Other Side
 
-Last updated at 03/24/2022 08:41
+Last updated at 03/24/2022 08:42
