@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtMEoCyRY6nXbTPK-my3R9Q-t500x500.jpg">](https://soundcloud.com/grazcore/c4rly-r43-j3p53n-h16h3r-graz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5KO9Oo9CyT4trIy-JP6t0A-t500x500.jpg">](https://soundcloud.com/liquicityrecords/nct-afterlife-2)
 
-**Artist**: Graz 
+**Artist**: Liquicity Records 
 
-**Track**: C4RlY R43 J3P53N - H16H3R (Graz Edit)
+**Track**: NCT - Afterlife
 
-Last updated at 03/24/2022 19:34
+Last updated at 03/24/2022 19:44
