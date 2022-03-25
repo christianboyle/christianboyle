@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/LB5YkmjalDg/maxresdefault.jpg">](https://www.youtube.com/watch?v=LB5YkmjalDg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ZRCwywI25QhWn4d-WZAVog-t500x500.jpg">](https://soundcloud.com/antikvng/wickedeye)
 
-**Artist**: hueylewisofficial 
+**Artist**: antikvng 
 
-**Track**: Huey Lewis And The News - Hip To Be Square (Official Music Video)
+**Track**: wicked eye.
 
-Last updated at 03/25/2022 00:01
+Last updated at 03/25/2022 09:32
