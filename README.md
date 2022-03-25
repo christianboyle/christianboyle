@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/bcZa1ZT9nVs/maxresdefault.jpg">](https://www.youtube.com/watch?v=bcZa1ZT9nVs)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/NOYqf3mJkSA/maxresdefault.jpg">](https://www.youtube.com/watch?v=NOYqf3mJkSA)
 
-**Artist**: nanobii 
+**Artist**: ShirobonTV 
 
-**Track**: Love Songs (Full EP)
+**Track**: Shirobon - Immune ft Camden Cox
 
-Last updated at 03/24/2022 19:46
+Last updated at 03/24/2022 20:01
