@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000134490695-rt4dyb-t500x500.jpg">](https://soundcloud.com/fanso-music/acid-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000036181575-0fkz52-t500x500.jpg">](https://soundcloud.com/late-nite-tuff-guy/burning-down-the-acid-house)
 
-**Artist**: FANSO 
+**Artist**: Late Nite Tuff Guy 
 
-**Track**: Acid House
+**Track**: Burning Down The Acid House [LNTG Take A Trip Mix]
 
-Last updated at 03/24/2022 19:01
+Last updated at 03/24/2022 19:02
