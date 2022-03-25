@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/pKDMIuPSB00/hqdefault.jpg">](https://www.youtube.com/watch?v=pKDMIuPSB00)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/7a2Fikvt36g/maxresdefault.jpg">](https://www.youtube.com/watch?v=7a2Fikvt36g)
 
-**Artist**: ShirobonTV 
+**Artist**: Noc.V 
 
-**Track**: Shirobon - Born Survivor
+**Track**: 2021 Showcase Mix (UK Hardcore, Happy Hardcore, J-Core, DJ Set/Mix)
 
-Last updated at 03/24/2022 19:10
+Last updated at 03/24/2022 19:14
