@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000036181575-0fkz52-t500x500.jpg">](https://soundcloud.com/late-nite-tuff-guy/burning-down-the-acid-house)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/c2orBsXp4HM/maxresdefault.jpg">](https://www.youtube.com/watch?v=c2orBsXp4HM)
 
-**Artist**: Late Nite Tuff Guy 
+**Artist**: ShirobonTV 
 
-**Track**: Burning Down The Acid House [LNTG Take A Trip Mix]
+**Track**: Shirobon - Regain Control
 
-Last updated at 03/24/2022 19:02
+Last updated at 03/24/2022 19:05
