@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ZRCwywI25QhWn4d-WZAVog-t500x500.jpg">](https://soundcloud.com/antikvng/wickedeye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0P0Fv0TnvbVbSERc-QzOczw-t500x500.jpg">](https://soundcloud.com/trademarkbootlegs/the-pregame-series-march-060)
 
-**Artist**: antikvng 
+**Artist**: Trademark 
 
-**Track**: wicked eye.
+**Track**: The Pregame Series (March 060)
 
-Last updated at 03/25/2022 09:32
+Last updated at 03/25/2022 09:33
