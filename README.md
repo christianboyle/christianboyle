@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ELEHY3bQjm0ZupTm-AJoRRQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh335?in=justicehardcore/sets/div-eadie-gary-mcf-leave-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DVO95q7I1WZ8Oq6W-5Evcgw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc182)
 
-**Artist**: Justice Hardcore 
+**Artist**: NON STOP NXC® 
 
-**Track**: Div Eadie & Gary McF - Leave Me (feat. Robbie Hutton) ⚠️OUT NOW⚠️
+**Track**: NXC182 - jedwill - daedalus (boxkitty's "heaven belongs to no one" remix)
 
-Last updated at 03/25/2022 23:30
+Last updated at 03/25/2022 23:31
