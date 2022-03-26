@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DVO95q7I1WZ8Oq6W-5Evcgw-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc182)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000308888208-113mro-t500x500.jpg">](https://soundcloud.com/nitecorp/android-28-f-air?in=nitecorp/sets/frequency)
 
-**Artist**: NON STOP NXC® 
+**Artist**: NITE CORP. 
 
-**Track**: NXC182 - jedwill - daedalus (boxkitty's "heaven belongs to no one" remix)
+**Track**: Android 28 - F-Air
 
-Last updated at 03/25/2022 23:31
+Last updated at 03/25/2022 23:32
