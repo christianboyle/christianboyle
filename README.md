@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FHTzEjn8E3XnJ71i-hlkzcQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-fells)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpazEd1gSxTw0zdH-z24tDQ-t500x500.jpg">](https://soundcloud.com/ariaveil/gonegonegone-w-alaska-sargent)
 
-**Artist**: iEDM Radio 
+**Artist**: ARIA VEIL 
 
-**Track**: iEDM Radio Guest Mix - Fells
+**Track**: goneGoneGone (w/ alaska sargent)
 
-Last updated at 03/25/2022 20:25
+Last updated at 03/25/2022 23:26
