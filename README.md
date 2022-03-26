@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygQpaK13BblRoAPU-pD3IwA-t500x500.jpg">](https://soundcloud.com/hamdiofficialmusic/hamdi-underground-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zgvqB9irlRz787Vy-lFs7nA-t500x500.jpg">](https://soundcloud.com/bkayeofficial/kanye-west-jail-bkayeremix)
 
-**Artist**: Hamdi 
+**Artist**: BKAYE 
 
-**Track**: Hamdi - Underground
+**Track**: Kanye West - Jail (BKAYE Remix)
 
-Last updated at 03/25/2022 16:17
+Last updated at 03/25/2022 20:17
