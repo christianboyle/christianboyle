@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QdzRqowybTAo-0-t500x500.jpg">](https://soundcloud.com/audien/favorite-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FHTzEjn8E3XnJ71i-hlkzcQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-fells)
 
-**Artist**: Audien 
+**Artist**: iEDM Radio 
 
-**Track**: Favorite Sound
+**Track**: iEDM Radio Guest Mix - Fells
 
-Last updated at 03/25/2022 20:23
+Last updated at 03/25/2022 20:25
