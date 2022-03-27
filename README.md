@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ymSgls0Ce24/maxresdefault.jpg">](https://www.youtube.com/watch?v=ymSgls0Ce24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIDRM7kBlBTbr0QN-qjs8GQ-t500x500.jpg">](https://soundcloud.com/popsiklmusic/game)
 
-**Artist**: RAMIREZ 
+**Artist**: POPSIKL 
 
-**Track**: THA PLAYA$ MANUAL (FULL ALBUM)
+**Track**: Game
 
-Last updated at 03/26/2022 23:02
+Last updated at 03/27/2022 09:25
