@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CtHdpKOcDnQvqJR-xkIiJA-t500x500.jpg">](https://soundcloud.com/user-551713846/moving-backwards-prod?in=user-551713846/sets/manhunt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s50w9Ct7jXFuxlzK-McujeQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/pieceofyou)
 
-**Artist**: noahmadethiss 
+**Artist**: Justice Hardcore 
 
-**Track**: MOVING BACKWARDS ! (PROD. NOAHMADETHISS)
+**Track**: Kacky - Piece Of You ⚠️OUT NOW⚠️
 
-Last updated at 03/27/2022 16:35
+Last updated at 03/27/2022 16:37
