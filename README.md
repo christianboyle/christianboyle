@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000308888064-f5ua8m-t500x500.jpg">](https://soundcloud.com/nitecorp/underd0g-where-we-want-to-be?in=nitecorp/sets/frequency)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/ymSgls0Ce24/maxresdefault.jpg">](https://www.youtube.com/watch?v=ymSgls0Ce24)
 
-**Artist**: NITE CORP. 
+**Artist**: XavierWulf 
 
-**Track**: underd0g - where we want to be
+**Track**: Xavier Wulf - Check It Out (Official Video)
 
-Last updated at 03/26/2022 16:56
+Last updated at 03/26/2022 22:52
