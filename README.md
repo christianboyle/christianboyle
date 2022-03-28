@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/sVgd0pIZ8fQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=sVgd0pIZ8fQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cLaLThhkG6diHLzE-G1IHOQ-t500x500.jpg">](https://soundcloud.com/smolbeats/2022-id-showcase-pt-1)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: smol 
 
-**Track**: Whole Lotta Ice || Dir  @IMNOTEVOL
+**Track**: 2022 ID Showcase Pt. 1
 
-Last updated at 03/27/2022 19:10
+Last updated at 03/27/2022 20:10
