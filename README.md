@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vH8koiwuFjSP-0-t500x500.jpg">](https://soundcloud.com/bigdatabigdata/big-data-dangerous-oliver-remix)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/sVgd0pIZ8fQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=sVgd0pIZ8fQ)
 
-**Artist**: Big Data 
+**Artist**: Gucci Mane 
 
-**Track**: Dangerous (feat. Joywave) (Oliver Remix)
+**Track**: Truth (Official Music Video)
 
-Last updated at 03/27/2022 18:05
+Last updated at 03/27/2022 19:09
