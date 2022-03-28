@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/HdzI-191xhU/maxresdefault.jpg">](https://www.youtube.com/watch?v=HdzI-191xhU)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/DFa4Owarc7U/maxresdefault.jpg">](https://www.youtube.com/watch?v=DFa4Owarc7U)
 
-**Artist**: Galantis 
+**Artist**: Sea Wolf 
 
-**Track**: LIVE at Ultra Music Festival 2017
+**Track**: Black Dirt
 
-Last updated at 03/27/2022 21:06
+Last updated at 03/27/2022 21:09
