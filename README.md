@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cLaLThhkG6diHLzE-G1IHOQ-t500x500.jpg">](https://soundcloud.com/smolbeats/2022-id-showcase-pt-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UsAGyCeSyPcus5a9-oMCu1A-t500x500.jpg">](https://soundcloud.com/southfrapalliance/bovllov-djkidanse)
 
-**Artist**: smol 
+**Artist**: SOUTHFRAP ALLIANCE 
 
-**Track**: 2022 ID Showcase Pt. 1
+**Track**: BOVLLOV - DJKIDANSE
 
-Last updated at 03/27/2022 20:10
+Last updated at 03/27/2022 20:11
