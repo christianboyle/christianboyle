@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t500x500.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/HdzI-191xhU/maxresdefault.jpg">](https://www.youtube.com/watch?v=HdzI-191xhU)
 
-**Artist**: SNAKED 
+**Artist**: ODESZA 
 
-**Track**: PAUL STANLEY [Nest HQ Premiere]
+**Track**: Say My Name (feat. Zyra) - Lyric Video
 
-Last updated at 03/27/2022 20:13
+Last updated at 03/27/2022 21:04
