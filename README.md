@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dXXwvjMIqezbgtyu-JmUUUQ-t500x500.jpg">](https://soundcloud.com/korewakosu/temperflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t500x500.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
 
-**Artist**: kosu. 
+**Artist**: SNAKED 
 
-**Track**: grape milk - temper (kosu flip)
+**Track**: PAUL STANLEY [Nest HQ Premiere]
 
-Last updated at 03/27/2022 20:12
+Last updated at 03/27/2022 20:13
