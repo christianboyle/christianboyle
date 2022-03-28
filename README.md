@@ -2,8 +2,8 @@
 
 [<img align="left" width="100" src="https://i.ytimg.com/vi/sVgd0pIZ8fQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=sVgd0pIZ8fQ)
 
-**Artist**: Gucci Mane 
+**Artist**: Drakeo the Ruler 
 
-**Track**: Truth (Official Music Video)
+**Track**: Whole Lotta Ice || Dir  @IMNOTEVOL
 
-Last updated at 03/27/2022 19:09
+Last updated at 03/27/2022 19:10
