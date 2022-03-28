@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/eVTXPUF4Oz4/maxresdefault.jpg">](https://www.youtube.com/watch?v=eVTXPUF4Oz4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000125220697-wafgow-t500x500.jpg">](https://soundcloud.com/snakedrocks/paul-stanley)
 
-**Artist**: Linkin Park 
+**Artist**: SNAKED 
 
-**Track**: In The End [Official HD Music Video] - Linkin Park
+**Track**: PAUL STANLEY [Nest HQ Premiere]
 
-Last updated at 03/27/2022 21:31
+Last updated at 03/28/2022 06:19
