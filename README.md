@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/HdzI-191xhU/maxresdefault.jpg">](https://www.youtube.com/watch?v=HdzI-191xhU)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/eVTXPUF4Oz4/maxresdefault.jpg">](https://www.youtube.com/watch?v=eVTXPUF4Oz4)
 
-**Artist**: Galantis 
+**Artist**: Linkin Park 
 
-**Track**: LIVE at Ultra Music Festival 2017
+**Track**: In The End [Official HD Music Video] - Linkin Park
 
-Last updated at 03/27/2022 21:28
+Last updated at 03/27/2022 21:31
