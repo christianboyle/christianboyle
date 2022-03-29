@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyYY84P0vo32XxFr-AYwigA-t500x500.jpg">](https://soundcloud.com/shibiremusiqq/routines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNA4Xk0hg4tkQkbc-JDxhKg-t500x500.jpg">](https://soundcloud.com/bright_ideas/smoke)
 
-**Artist**: shibíre 
+**Artist**: BRIGHT IDEAS 
 
-**Track**: Routines
+**Track**: SMOKE (ETERNAL OMENS DEBUT)
 
-Last updated at 03/29/2022 12:00
+Last updated at 03/29/2022 12:02
