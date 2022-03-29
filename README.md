@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-262op17Fgg8P940B-dgpcuQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-51-on-beat-106)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/8ueJ5oPRQdk/maxresdefault.jpg">](https://www.youtube.com/watch?v=8ueJ5oPRQdk)
 
-**Artist**: Beat106Scotland 
+**Artist**: Machel Montano 
 
-**Track**: Bonkers Beats #51 on Beat 106 Scotland with Daniel Seven 250322 (Hour 2)
+**Track**: Mr. Fete
 
-Last updated at 03/28/2022 11:05
+Last updated at 03/28/2022 20:31
