@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000398825613-0l3ho2-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-episode-205-chicane)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/J9NQFACZYEU/maxresdefault.jpg">](https://www.youtube.com/watch?v=J9NQFACZYEU)
 
-**Artist**: iEDM Radio 
+**Artist**: Galantis 
 
-**Track**: IEDM Radio Episode 205: Chicane
+**Track**: In My Head (Official Video)
 
-Last updated at 03/29/2022 16:11
+Last updated at 03/29/2022 16:26
