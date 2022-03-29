@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPIoFv63utN3Jw8B-4bzxXA-t500x500.jpg">](https://soundcloud.com/deathhamptonphonk/jessica-rabbit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
 
-**Artist**: Death Hampton 
+**Artist**: Lobster Theremin 
 
-**Track**: Jessica Rabbit
+**Track**: LT Podcast 207 // Poppy
 
-Last updated at 03/28/2022 20:34
+Last updated at 03/28/2022 20:35
