@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-262op17Fgg8P940B-dgpcuQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-51-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nYsIec1788u89l7-TGFQXQ-t500x500.jpg">](https://soundcloud.com/daniel7official/believe_alaguanrmx)
 
-**Artist**: Beat106Scotland 
+**Artist**: Daniel Seven 
 
-**Track**: Bonkers Beats #51 on Beat 106 Scotland with Daniel Seven 250322 (Hour 2)
+**Track**: Believe (feat. Zoe VanWest) (Alaguan Remix)
 
-Last updated at 03/29/2022 08:22
+Last updated at 03/29/2022 09:25
