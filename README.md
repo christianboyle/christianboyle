@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000035708235-azoo4v-t500x500.jpg">](https://soundcloud.com/audiocargo/venom-one-adina-butar-crashedburned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-262op17Fgg8P940B-dgpcuQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-51-on-beat-106)
 
-**Artist**: Audio Cargo 
+**Artist**: Beat106Scotland 
 
-**Track**: Venom One Feat. Adina Butar - Crashed & Burned (Club Mix) [Cut from GDJB: April 11]
+**Track**: Bonkers Beats #51 on Beat 106 Scotland with Daniel Seven 250322 (Hour 2)
 
-Last updated at 03/29/2022 08:21
+Last updated at 03/29/2022 08:22
