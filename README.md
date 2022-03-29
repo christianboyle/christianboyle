@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSRnhqbnRFtfqQBp-gNdzfA-t500x500.jpg">](https://soundcloud.com/killaslothmusic/billie-eilish-ocean-eyes-killasloth-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iifS3nbS6WlAXD6t-a3iOBg-t500x500.jpg">](https://soundcloud.com/immnnt/crystxlmxne-fate)
 
-**Artist**: KillaSlothmusic 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Billie Eilish - Ocean Eyes (KillaSloth Remix)
+**Track**: CRYSTXLMXNE — FATE
 
-Last updated at 03/29/2022 15:34
+Last updated at 03/29/2022 15:36
