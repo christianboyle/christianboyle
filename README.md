@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzG8nPNBoGWNpRFf-mYpfTQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-podcast-207-poppy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJF2p3Nx1cEcrmYx-iYOXWg-t500x500.jpg">](https://soundcloud.com/ghetto-witchez/miss-jay-insomnia)
 
-**Artist**: Lobster Theremin 
+**Artist**: Ghetto Witchez 
 
-**Track**: LT Podcast 207 // Poppy
+**Track**: Miss Jay - Insomnia
 
-Last updated at 03/28/2022 20:35
+Last updated at 03/28/2022 20:36
