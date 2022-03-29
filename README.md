@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8FgxTBXgGup-0-t500x500.jpg">](https://soundcloud.com/billented-music/when-youre-out-feat-mae-muller?in=billented-music/sets/when-youre-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrcgKofHOZiSe7j2-a5YtAg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/michigan-clips-iii)
 
-**Artist**: Billen Ted 
+**Artist**: kushface ☤ 
 
-**Track**: When You're Out (feat. Mae Muller)
+**Track**: MICHIGAN CLIPS III
 
-Last updated at 03/28/2022 20:32
+Last updated at 03/28/2022 20:33
