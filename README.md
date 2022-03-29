@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bq1dxQZ5A0HgUIND-9i5NfA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-kabuki-chungking-mansions-beat-excursions-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pCjfkoIAh0tmMrn8-9RZlEQ-t500x500.jpg">](https://soundcloud.com/above_the_surface/deliriousninja-everytime)
 
-**Artist**: Ransom Note 
+**Artist**: Above and Below 
 
-**Track**: PREMIERE: Kabuki - Chungking Mansions [Beat Excursions]
+**Track**: Deliriousninja - Everytime [FUXWITHIT Premiere]
 
-Last updated at 03/29/2022 15:38
+Last updated at 03/29/2022 15:39
