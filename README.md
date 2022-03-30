@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Z4QoITcA8mnhFbh-AapfCA-t500x500.jpg">](https://soundcloud.com/purityfilter/astralstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dVSst8QBwppzDwWj-9AF65Q-t500x500.jpg">](https://soundcloud.com/coupprojekt/mza-memories-behind-us-coupf028)
 
-**Artist**: purity://filter 
+**Artist**: COUP 
 
-**Track**: Astral Step
+**Track**: MZA - Memories Behind Us [COUPF028]
 
-Last updated at 03/30/2022 11:05
+Last updated at 03/30/2022 11:08
