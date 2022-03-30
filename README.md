@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzGfzJvk7ktpRw1t-zboZTA-t500x500.jpg">](https://soundcloud.com/parker2099/faygo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u92zGEVXM7ECTKpk-3rsPrQ-t500x500.jpg">](https://soundcloud.com/les-yeux-orange/premiere-rambal-cochet-galatians-syndrome-1)
 
-**Artist**: PARK3R 
+**Artist**: Les Yeux Orange 
 
-**Track**: FAYGO
+**Track**: PREMIERE : Rambal Cochet - Galatians Syndrome
 
-Last updated at 03/30/2022 10:51
+Last updated at 03/30/2022 10:55
