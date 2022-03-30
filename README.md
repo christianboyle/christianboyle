@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D0kvay5t79EKVEPC-ky31Aw-t500x500.jpg">](https://soundcloud.com/woofax/woofax-the-arrival-single-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bGOZmxpZWAHj1gz-OGYiLw-t500x500.jpg">](https://soundcloud.com/rileyhahn/new-low-feat-dyzphoria)
 
-**Artist**: Woofax 
+**Artist**: Riley Hahn 
 
-**Track**: Woofax - The Arrival (Single Version)
+**Track**: New Low (Feat. Dyzphoria)
 
-Last updated at 03/30/2022 11:25
+Last updated at 03/30/2022 11:29
