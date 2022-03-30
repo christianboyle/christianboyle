@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tca0GuoytRZccotl-izSsPQ-t500x500.jpg">](https://soundcloud.com/sskwanofficial/ujuu-ryns-discovery)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Xc1nU7tuE_E/maxresdefault.jpg">](https://www.youtube.com/watch?v=Xc1nU7tuE_E)
 
-**Artist**: SSKWAN 
+**Artist**: Knife Party 
 
-**Track**: Ujuu, RYNS - Discovery
+**Track**: Knife Party @ Ultra Music Festival Miami 2022
 
-Last updated at 03/30/2022 15:05
+Last updated at 03/30/2022 15:06
