@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1TzPFeh8swpSIAG-uzGD5w-t500x500.jpg">](https://soundcloud.com/hollick_nobaddays/no-bad-days-with-hollick-march-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSlmrGyD8ERr6z49-0wLKzQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/oyubi-the-shine-a-light-on-mix)
 
-**Artist**: No Bad Days 
+**Artist**: Ransom Note 
 
-**Track**: No Bad Days with Hollick - March 2022
+**Track**: Oyubi: The 'Shine A Light On' Mix
 
-Last updated at 03/30/2022 08:11
+Last updated at 03/30/2022 09:18
