@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eID66tjVQZrPCkzw-lM7tyw-t500x500.jpg">](https://soundcloud.com/frontofhouserec/mike-la-funk-x-kelsey-gill-ecstasy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaq2tLjMAldsy4nf-gnvrFQ-t500x500.jpg">](https://soundcloud.com/jorg-schmid/darren-styles-vs-underworld-slippy-switch-jorg-schmid)
 
-**Artist**: Front of House 
+**Artist**: Jorg Schmid 
 
-**Track**: Mike La Funk x Kelsey Gill - Ecstasy
+**Track**: Darren Styles Vs Underworld - Slippy Switch (Jorg Schmid Mashup)
 
-Last updated at 03/30/2022 16:30
+Last updated at 03/30/2022 16:31
