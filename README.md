@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaq2tLjMAldsy4nf-gnvrFQ-t500x500.jpg">](https://soundcloud.com/jorg-schmid/darren-styles-vs-underworld-slippy-switch-jorg-schmid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2nYsIec1788u89l7-TGFQXQ-t500x500.jpg">](https://soundcloud.com/daniel7official/believe_alaguanrmx)
 
-**Artist**: Jorg Schmid 
+**Artist**: Daniel Seven 
 
-**Track**: Darren Styles Vs Underworld - Slippy Switch (Jorg Schmid Mashup)
+**Track**: Believe (feat. Zoe VanWest) (Alaguan Remix)
 
-Last updated at 03/30/2022 16:31
+Last updated at 03/30/2022 16:34
