@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u92zGEVXM7ECTKpk-3rsPrQ-t500x500.jpg">](https://soundcloud.com/les-yeux-orange/premiere-rambal-cochet-galatians-syndrome-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nnGRD3Sgm2zXySI9-7HJHyQ-t500x500.jpg">](https://soundcloud.com/khaos-everywhere/breakthrough)
 
-**Artist**: Les Yeux Orange 
+**Artist**: KHAOS 
 
-**Track**: PREMIERE : Rambal Cochet - Galatians Syndrome
+**Track**: Breakthrough
 
-Last updated at 03/30/2022 10:55
+Last updated at 03/30/2022 11:00
