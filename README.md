@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtORkdujtROkig3v-e5b8Yw-t500x500.jpg">](https://soundcloud.com/3treflip/i-am-ethereal?in=3treflip/sets/new-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yhwREkzLfvpwNppK-ay8XCQ-t500x500.jpg">](https://soundcloud.com/7trip/ape-day)
 
-**Artist**: TRE FLIP 
+**Artist**: 73rip 
 
-**Track**: I AM ETHEREAL (FULL STREAM)
+**Track**: APE DAY
 
-Last updated at 03/31/2022 12:00
+Last updated at 03/31/2022 12:01
