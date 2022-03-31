@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaGyVciPPm6mXhfV-y2TElg-t500x500.jpg">](https://soundcloud.com/tsuruda/dabow-trap-on-my-mind-tsuruda-remix?in=domeofdoom/sets/wmoak-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtORkdujtROkig3v-e5b8Yw-t500x500.jpg">](https://soundcloud.com/3treflip/i-am-ethereal?in=3treflip/sets/new-album)
 
-**Artist**: tsuruda 
+**Artist**: TRE FLIP 
 
-**Track**: Dabow - Trap On My Mind (Tsuruda Remix)
+**Track**: I AM ETHEREAL (FULL STREAM)
 
-Last updated at 03/31/2022 09:34
+Last updated at 03/31/2022 12:00
