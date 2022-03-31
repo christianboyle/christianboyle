@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ya0YHvyME8F34hj-UMuOyQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/inside-out-anthems-856456150)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/L2qDaJcSH_o/maxresdefault.jpg">](https://www.youtube.com/watch?v=L2qDaJcSH_o)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Hardwell 
 
-**Track**: Inside Out Anthems on Beat 106 Scotland with Simon Foy 250322 (Hour 2 Part 2)
+**Track**: Hardwell LIVE at Ultra Music Festival Miami 2022
 
-Last updated at 03/31/2022 12:07
+Last updated at 03/31/2022 14:58
