@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Ammgvlz7bIwpzSPK-rDzZpw-t500x500.jpg">](https://soundcloud.com/lvia/4-6-hunnid-followers-ty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
 
-**Artist**: FDYN 
+**Artist**: thirtyonetwentyfive (3125) 
 
-**Track**: 4 6 HUNDRED FOLLOWERS TY
+**Track**: lipgloss (thirtyonetwentyfive remix)
 
-Last updated at 04/01/2022 16:09
+Last updated at 04/01/2022 16:10
