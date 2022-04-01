@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZ8fQh1OHcOdKpOY-VmOekg-t500x500.jpg">](https://soundcloud.com/airsh4d3/hold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HD7zH0jLzWKDmkoH-9tRyCQ-t500x500.jpg">](https://soundcloud.com/discipleroundtable/grindin)
 
-**Artist**: airshade 
+**Artist**: Disciple Round Table 
 
-**Track**: hold
+**Track**: Careless Castle - Grindin
 
-Last updated at 04/01/2022 17:07
+Last updated at 04/01/2022 17:08
