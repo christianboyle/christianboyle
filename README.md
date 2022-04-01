@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nM6dSS7iwC7Ce3IC-rdzaow-t500x500.jpg">](https://soundcloud.com/umru/zombie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t500x500.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
 
-**Artist**: umru 
+**Artist**: sethany 
 
-**Track**: movinglikeazombie (remix) ― dante sebii angelus kmoe lewis g savepoint tony v emotegi d0lly 4k
+**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
 
-Last updated at 04/01/2022 17:24
+Last updated at 04/01/2022 17:25
