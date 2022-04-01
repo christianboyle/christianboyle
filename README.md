@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-262op17Fgg8P940B-dgpcuQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-51-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t500x500.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Little Miss Servings 
 
-**Track**: Bonkers Beats #51 on Beat 106 Scotland with Daniel Seven 250322 (Hour 2)
+**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
 
-Last updated at 04/01/2022 16:14
+Last updated at 04/01/2022 17:02
