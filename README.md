@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USZdzTVvWhafFHrs-5tpXjQ-t500x500.jpg">](https://soundcloud.com/mzgmusic/stinga-run-the-trap-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hwyhXrjDVNofhEy-E5qjnQ-t500x500.jpg">](https://soundcloud.com/presentlylifted/kizer-growth)
 
-**Artist**: 𝕞𝕫𝕘 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Stinga [Run The Trap Premiere]
+**Track**: Kizer - Growth
 
-Last updated at 04/01/2022 17:09
+Last updated at 04/01/2022 17:12
