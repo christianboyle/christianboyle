@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0o7EJHPzMz29pJG-tbCk4g-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-astrid-s-x-hrvy-am-i-the-only-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t500x500.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: R3HAB 
+**Artist**: Astrophonica 
 
-**Track**: R3HAB x Astrid S x HRVY - Am I The Only One
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 04/01/2022 17:33
+Last updated at 04/01/2022 17:35
