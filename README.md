@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wytiz8jXmgIK7B2Z-cs9fIg-t500x500.jpg">](https://soundcloud.com/novaganghellsing/propane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0zNXzzKzYVfPCvW-A6NaJg-t500x500.jpg">](https://soundcloud.com/echoddt/a-million-reasons-to-cry)
 
-**Artist**: NOVAGANG 
+**Artist**: EchoDDT 
 
-**Track**: EMOTEGIxMIDWXST⛽⛽⛽PROPANE PROD SLAPPY
+**Track**: A Million Reasons to Cry
 
-Last updated at 04/01/2022 17:29
+Last updated at 04/01/2022 17:30
