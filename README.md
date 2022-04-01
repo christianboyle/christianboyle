@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hwyhXrjDVNofhEy-E5qjnQ-t500x500.jpg">](https://soundcloud.com/presentlylifted/kizer-growth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI9GyCxySwBy4XuI-bnETJQ-t500x500.jpg">](https://soundcloud.com/sensus616/sensus-sensus616-joker-prod-lockage-lockxge)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: sensüs 
 
-**Track**: Kizer - Growth
+**Track**: sensüs (@sensüs616)-  joker prod. lockage (@lockxge)
 
-Last updated at 04/01/2022 17:12
+Last updated at 04/01/2022 17:20
