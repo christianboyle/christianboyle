@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tThz3Ipq3o4wxea-QJ8ayg-t500x500.jpg">](https://soundcloud.com/overandoutuk/overmono-so-u-kno-dunmans-160-editfree012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-262op17Fgg8P940B-dgpcuQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-51-on-beat-106)
 
-**Artist**: Over and Out 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Overmono - So U Kno (Dunman's 160 Edit)[FREE012]
+**Track**: Bonkers Beats #51 on Beat 106 Scotland with Daniel Seven 250322 (Hour 2)
 
-Last updated at 04/01/2022 16:11
+Last updated at 04/01/2022 16:14
