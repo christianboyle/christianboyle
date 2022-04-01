@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZ8fQh1OHcOdKpOY-VmOekg-t500x500.jpg">](https://soundcloud.com/airsh4d3/hold)
 
-**Artist**: thirtyonetwentyfive (3125) 
+**Artist**: airshade 
 
-**Track**: lipgloss (thirtyonetwentyfive remix)
+**Track**: hold
 
-Last updated at 04/01/2022 17:03
+Last updated at 04/01/2022 17:07
