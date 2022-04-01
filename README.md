@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPL1gMbbc0K9sizQ-p6hRmA-t500x500.jpg">](https://soundcloud.com/sglily/oceans-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9aERTfxRgQyYgcw-oGIAmQ-t500x500.jpg">](https://soundcloud.com/not_pepsi_max/gawntek-pepsi-mixtape)
 
-**Artist**: @sglilyy 
+**Artist**: Not Pepsi MAX 
 
-**Track**: Oceans Apart
+**Track**: GAWNTEK  - (lost pepsi mixtape)
 
-Last updated at 04/01/2022 17:22
+Last updated at 04/01/2022 17:23
