@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI9GyCxySwBy4XuI-bnETJQ-t500x500.jpg">](https://soundcloud.com/sensus616/sensus-sensus616-joker-prod-lockage-lockxge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NslnBAdqPAQlGAzj-yJkozg-t500x500.jpg">](https://soundcloud.com/alkynmusic/trapped-in-the-middle-ft-averlie)
 
-**Artist**: sensüs 
+**Artist**: Alkyn 
 
-**Track**: sensüs (@sensüs616)-  joker prod. lockage (@lockxge)
+**Track**: Trapped In The Middle (ft. Averlie)
 
-Last updated at 04/01/2022 17:20
+Last updated at 04/01/2022 17:21
