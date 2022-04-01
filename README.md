@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000433570281-bykw99-t500x500.jpg">](https://soundcloud.com/little-sethany/shark-tank-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owwUWqGQhYnYM2zd-wgRXPA-t500x500.jpg">](https://soundcloud.com/astrophonica/swandive)
 
-**Artist**: sethany 
+**Artist**: Astrophonica 
 
-**Track**: SHARK TANK FREESTYLE PROD. JAKKYBOI
+**Track**: Sully - Swandive (APHA023)
 
-Last updated at 04/01/2022 17:25
+Last updated at 04/01/2022 17:26
