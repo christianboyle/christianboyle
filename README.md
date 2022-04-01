@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZ4ELXlG7SysIToq-5IWyWw-t500x500.jpg">](https://soundcloud.com/littlemissservings/sunscreen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
 
-**Artist**: Little Miss Servings 
+**Artist**: thirtyonetwentyfive (3125) 
 
-**Track**: SOPHIE - SUNSCREEN (Full HQ Studio Version)
+**Track**: lipgloss (thirtyonetwentyfive remix)
 
-Last updated at 04/01/2022 17:02
+Last updated at 04/01/2022 17:03
