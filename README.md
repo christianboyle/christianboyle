@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8291loy25dCCtQjg-XAniKQ-t500x500.jpg">](https://soundcloud.com/balamii/sound-condition-april-2022)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/RRl_C73vFtQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=RRl_C73vFtQ)
 
-**Artist**: Balamii 
+**Artist**: Juice WRLD 
 
-**Track**: Sound Condition - April 2022
+**Track**: Black & White
 
-Last updated at 04/01/2022 20:29
+Last updated at 04/02/2022 17:26
