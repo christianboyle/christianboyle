@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000395510373-kyjtm7-t500x500.jpg">](https://soundcloud.com/pxssxssxd/going-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lOFWjrAEHyCSaeD2-e4Xaig-t500x500.jpg">](https://soundcloud.com/pxssxssxd/dropout)
 
 **Artist**: PXSSXSSXD 
 
-**Track**: GOING DOWN
+**Track**: DROPOUT
 
-Last updated at 04/03/2022 08:57
+Last updated at 04/03/2022 09:00
