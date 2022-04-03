@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YUVIYiQMOEUhpgDr-vWz0BQ-t500x500.jpg">](https://soundcloud.com/soulfoodmc/08-ivoryghost-meridian)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aphpWlbUUVG7nEpY-MO479Q-t500x500.jpg">](https://soundcloud.com/listentoqil/lax)
 
-**Artist**: Soul Food Music Collective 
+**Artist**: cyndaquil22 
 
-**Track**: Ivoryghost - Meridian
+**Track**: lax
 
-Last updated at 04/03/2022 09:07
+Last updated at 04/03/2022 09:11
