@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJQWS0fPUmDVIKd-BYlYJQ-t500x500.jpg">](https://soundcloud.com/lilkoiofficial/tekken-feat-capoxxo3-naawoj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e42yvbCTsIrJ5JrG-ynEyjg-t500x500.jpg">](https://soundcloud.com/casualgabberz/aamourocean-parmi-les-mortels)
 
-**Artist**: Lil Koi! 
+**Artist**: CASUAL GABBERZ 
 
-**Track**: Tekken (feat. capoxxo<3) [+ naawoj]
+**Track**: aamourocean - Parmi les Mortels
 
-Last updated at 04/03/2022 08:51
+Last updated at 04/03/2022 08:52
