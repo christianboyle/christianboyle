@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aphpWlbUUVG7nEpY-MO479Q-t500x500.jpg">](https://soundcloud.com/listentoqil/lax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLfKZGQZ2nwsXVRH-IdpKfQ-t500x500.jpg">](https://soundcloud.com/tokyo_tears/again)
 
-**Artist**: cyndaquil22 
+**Artist**: Tokyo tears 
 
-**Track**: lax
+**Track**: Again
 
-Last updated at 04/03/2022 09:11
+Last updated at 04/03/2022 09:12
