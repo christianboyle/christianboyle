@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTh35W5Q2qrEgjzf-SLrN8w-t500x500.jpg">](https://soundcloud.com/dthd/suburban)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000395510373-kyjtm7-t500x500.jpg">](https://soundcloud.com/pxssxssxd/going-down)
 
-**Artist**: dthd 
+**Artist**: PXSSXSSXD 
 
-**Track**: suburban.
+**Track**: GOING DOWN
 
-Last updated at 04/03/2022 08:54
+Last updated at 04/03/2022 08:57
