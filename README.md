@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLfKZGQZ2nwsXVRH-IdpKfQ-t500x500.jpg">](https://soundcloud.com/tokyo_tears/again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aekdbmYtkK6Konva-Xx8GJg-t500x500.jpg">](https://soundcloud.com/djmazyn/goin-to-da-hard)
 
-**Artist**: Tokyo tears 
+**Artist**: MAZYN 
 
-**Track**: Again
+**Track**: GOIN TO DA HARD
 
-Last updated at 04/03/2022 09:12
+Last updated at 04/03/2022 09:15
