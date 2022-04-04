@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o9pFsFumhW7u7djs-9fzToQ-t500x500.jpg">](https://soundcloud.com/debisco/5p4m-gorbachev-feat-jorge_1-debisco-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MrIiFxHSvSLe-0-t500x500.jpg">](https://soundcloud.com/flameemojimusic/chicken-talk)
 
-**Artist**: DeBisco 
+**Artist**: Gucci Mane 
 
-**Track**: 5p4M - Gorbachev (feat. Jorge_1) [DeBisco Remix]
+**Track**: Chicken Talk
 
-Last updated at 04/04/2022 15:19
+Last updated at 04/04/2022 15:21
