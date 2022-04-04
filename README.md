@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4J77Qi4viV5OID8I-r2B4tQ-t500x500.jpg">](https://soundcloud.com/forbiddensociety/forbidden-society-disappointment-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-boZg56QM8DkQkWIT-o8DZaQ-t500x500.jpg">](https://soundcloud.com/bass-fitness/ohmygod)
 
-**Artist**: FORBIDDENSOCIETY 
+**Artist**: Bass Fitness 
 
-**Track**: Forbidden Society - Disappointment [Premiere]
+**Track**: OHMYGOD!
 
-Last updated at 04/04/2022 11:14
+Last updated at 04/04/2022 15:18
