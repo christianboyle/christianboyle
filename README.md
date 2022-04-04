@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeh0wS8fgkEP-0-t500x500.jpg">](https://soundcloud.com/wearelostkings/hurt-feat-deathbyromy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4J77Qi4viV5OID8I-r2B4tQ-t500x500.jpg">](https://soundcloud.com/forbiddensociety/forbidden-society-disappointment-premiere)
 
-**Artist**: Lost Kings 
+**Artist**: FORBIDDENSOCIETY 
 
-**Track**: Hurt (feat. DeathByRomy)
+**Track**: Forbidden Society - Disappointment [Premiere]
 
-Last updated at 04/03/2022 11:08
+Last updated at 04/04/2022 11:14
