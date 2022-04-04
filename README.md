@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ifWJBgle6qKb-0-t500x500.jpg">](https://soundcloud.com/flameemojimusic/rumors-feat-lil-durk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEP2FTj98b9Z-0-t500x500.jpg">](https://soundcloud.com/flameemojimusic/shit-crazy-feat-big30)
 
 **Artist**: Gucci Mane 
 
-**Track**: Rumors (feat. Lil Durk)
+**Track**: Shit Crazy (feat. BIG30)
 
-Last updated at 04/04/2022 15:31
+Last updated at 04/04/2022 15:35
