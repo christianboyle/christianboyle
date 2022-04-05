@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000003528122-fx3c83-t500x500.jpg">](https://soundcloud.com/oneiric-2/dope-boys-bird-peterson-remix?in=nosliws/sets/free-gucci-diplo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000000898467-m1mssr-t500x500.jpg">](https://soundcloud.com/canadiansuit/03-excuse-me-memory-tapes-remix?in=nosliws/sets/free-gucci-diplo)
 
-**Artist**: Oneiricಠ_ಠ 
+**Artist**: Denim/on/Denim! 
 
-**Track**: Dope Boys (Bird Peterson Remix)
+**Track**: Gucci Mane - Excuse Me (Memory Tapes Remix)
 
-Last updated at 04/05/2022 15:18
+Last updated at 04/05/2022 15:23
