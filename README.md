@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YH6zMdrBpn8bFlzv-qbwvSw-t500x500.jpg">](https://soundcloud.com/hld/skylab-radio-into-the-blue-ep4-w-hannah-d-dj-netburner)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/H6Q4s_ZdvAQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=H6Q4s_ZdvAQ)
 
-**Artist**: Hannah D 
+**Artist**: Gucci Mane 
 
-**Track**: Skylab Radio - Into The Blue Ep.4 w/ Hannah D & DJ Netburner
+**Track**: Lemonade (Official Music Video)
 
-Last updated at 04/05/2022 08:33
+Last updated at 04/05/2022 13:59
