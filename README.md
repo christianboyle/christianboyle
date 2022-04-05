@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000000898467-m1mssr-t500x500.jpg">](https://soundcloud.com/canadiansuit/03-excuse-me-memory-tapes-remix?in=nosliws/sets/free-gucci-diplo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458712429-t39iiy-t500x500.jpg">](https://soundcloud.com/joxn/no-no-no?in=nosliws/sets/free-gucci-diplo)
 
-**Artist**: Denim/on/Denim! 
+**Artist**: JOXN 
 
-**Track**: Gucci Mane - Excuse Me (Memory Tapes Remix)
+**Track**: ***No No No
 
-Last updated at 04/05/2022 15:23
+Last updated at 04/05/2022 15:27
