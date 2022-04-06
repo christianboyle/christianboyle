@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493355847-yhj3l4-t500x500.jpg">](https://soundcloud.com/detroit_trap_music/im-expecting-dj-teenwolf-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143877738-37wqv3-t500x500.jpg">](https://soundcloud.com/nitecorp/foxfax-w1sh-i-d1dnt-u)
 
-**Artist**: Detroit Trap Music --- BUY MERCH @D-Rap.com 
+**Artist**: NITE CORP. 
 
-**Track**: I'm Expecting (DJ Teenwolf Remix)
+**Track**: foxfax - w1sh i d1dn't ❤ u
 
-Last updated at 04/06/2022 08:34
+Last updated at 04/06/2022 08:37
