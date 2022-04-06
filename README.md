@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUKzrT8pLYCF59cg-SOjLJw-t500x500.jpg">](https://soundcloud.com/alice-gass/charli-claws-cover-w-himera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133284090-k542s2-t500x500.jpg">](https://soundcloud.com/essencenxc/all-i-ask)
 
-**Artist**: ALICE GAS 
+**Artist**: essence 
 
-**Track**: CHARLI - CLAWS (COVER) W/ HIMERA
+**Track**: αℓℓ ι αѕк
 
-Last updated at 04/06/2022 17:19
+Last updated at 04/06/2022 17:21
