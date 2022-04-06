@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000221567114-4k4q1b-t500x500.jpg">](https://soundcloud.com/nitecorp/underd0g-ily2?in=djdogtreat/sets/booom-booom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133284090-k542s2-t500x500.jpg">](https://soundcloud.com/essencenxc/all-i-ask)
 
-**Artist**: NITE CORP. 
+**Artist**: essence 
 
-**Track**: underd0g - ILY2
+**Track**: αℓℓ ι αѕк
 
-Last updated at 04/05/2022 21:21
+Last updated at 04/05/2022 21:22
