@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/KYSFH66udHs/maxresdefault.jpg">](https://www.youtube.com/watch?v=KYSFH66udHs)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/OKdjkSe2rQI/maxresdefault.jpg">](https://www.youtube.com/watch?v=OKdjkSe2rQI)
 
-**Artist**: Drakeo the Ruler 
+**Artist**: Gucci Mane 
 
-**Track**: Drakeo The Ruler - "Betchua Freestyle" Shot By @InsomniaMusicGroup Films  [Official Music Video]
+**Track**: Plain Jane (Feat. Rocko & T.I.)
 
-Last updated at 04/05/2022 22:21
+Last updated at 04/05/2022 22:29
