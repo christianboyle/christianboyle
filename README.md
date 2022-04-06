@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143877738-37wqv3-t500x500.jpg">](https://soundcloud.com/nitecorp/foxfax-w1sh-i-d1dnt-u)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/bcxnbfRYM-g/hqdefault.jpg">](https://www.youtube.com/watch?v=bcxnbfRYM-g)
 
-**Artist**: NITE CORP. 
+**Artist**: The Prodigy 
 
-**Track**: foxfax - w1sh i d1dn't ❤ u
+**Track**: One Love (Official Video)
 
-Last updated at 04/05/2022 21:31
+Last updated at 04/05/2022 21:43
