@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143877738-37wqv3-t500x500.jpg">](https://soundcloud.com/nitecorp/foxfax-w1sh-i-d1dnt-u)
 
-**Artist**: texas baby 
+**Artist**: NITE CORP. 
 
-**Track**: rmr - rascal (texas baby rmx)
+**Track**: foxfax - w1sh i d1dn't ❤ u
 
-Last updated at 04/05/2022 21:27
+Last updated at 04/05/2022 21:31
