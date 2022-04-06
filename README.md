@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133284090-k542s2-t500x500.jpg">](https://soundcloud.com/essencenxc/all-i-ask)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493355847-yhj3l4-t500x500.jpg">](https://soundcloud.com/detroit_trap_music/im-expecting-dj-teenwolf-remix)
 
-**Artist**: essence 
+**Artist**: Detroit Trap Music --- BUY MERCH @D-Rap.com 
 
-**Track**: αℓℓ ι αѕк
+**Track**: I'm Expecting (DJ Teenwolf Remix)
 
-Last updated at 04/06/2022 17:21
+Last updated at 04/06/2022 17:26
