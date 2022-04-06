@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133284090-k542s2-t500x500.jpg">](https://soundcloud.com/essencenxc/all-i-ask)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dvAlyeT5rC5A8cgi-x4ddBA-t500x500.jpg">](https://soundcloud.com/countrynxc/rmr-rascal-texas-baby-rmx)
 
-**Artist**: essence 
+**Artist**: texas baby 
 
-**Track**: αℓℓ ι αѕк
+**Track**: rmr - rascal (texas baby rmx)
 
-Last updated at 04/06/2022 08:41
+Last updated at 04/06/2022 08:42
