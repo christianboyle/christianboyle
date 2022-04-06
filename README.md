@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/bcxnbfRYM-g/hqdefault.jpg">](https://www.youtube.com/watch?v=bcxnbfRYM-g)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/KYSFH66udHs/maxresdefault.jpg">](https://www.youtube.com/watch?v=KYSFH66udHs)
 
-**Artist**: The Prodigy 
+**Artist**: Drakeo the Ruler 
 
-**Track**: One Love (Official Video)
+**Track**: Drakeo The Ruler - "Betchua Freestyle" Shot By @InsomniaMusicGroup Films  [Official Music Video]
 
-Last updated at 04/05/2022 21:43
+Last updated at 04/05/2022 22:21
