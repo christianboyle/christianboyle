@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b8iANyxCahp2UsgD-WqWTAQ-t500x500.jpg">](https://soundcloud.com/32stitches/the-weeknd-hdimylm-32stitches-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143877738-37wqv3-t500x500.jpg">](https://soundcloud.com/nitecorp/foxfax-w1sh-i-d1dnt-u)
 
-**Artist**: 32Stitches 
+**Artist**: NITE CORP. 
 
-**Track**: The Weeknd - How Do I Make You Love Me? (32Stitches Remix)
+**Track**: foxfax - w1sh i d1dn't ❤ u
 
-Last updated at 04/06/2022 17:16
+Last updated at 04/06/2022 17:17
