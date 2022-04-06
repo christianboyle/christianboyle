@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/OKdjkSe2rQI/maxresdefault.jpg">](https://www.youtube.com/watch?v=OKdjkSe2rQI)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493355847-yhj3l4-t500x500.jpg">](https://soundcloud.com/detroit_trap_music/im-expecting-dj-teenwolf-remix)
 
-**Artist**: Gucci Mane 
+**Artist**: Detroit Trap Music --- BUY MERCH @D-Rap.com 
 
-**Track**: Plain Jane (Feat. Rocko & T.I.)
+**Track**: I'm Expecting (DJ Teenwolf Remix)
 
-Last updated at 04/05/2022 22:29
+Last updated at 04/06/2022 08:34
