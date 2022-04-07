@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWiouzpO5XzGIyqu-WumOSg-t500x500.jpg">](https://soundcloud.com/headbangsociety/engix-x-bromosapien-the-knowledge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ay0yI2zpGzzljx4A-HIZfaw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-27-feat-twinsick)
 
-**Artist**: Headbang Society 
+**Artist**: syence experiments 
 
-**Track**: Engix X BroMosapien- The Knowledge
+**Track**: syence lab: volume 27 (feat. twinsick)
 
-Last updated at 04/07/2022 11:32
+Last updated at 04/07/2022 11:33
