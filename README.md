@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wW0tsDdwPt3zXZEJ-GzJTmA-t500x500.jpg">](https://soundcloud.com/balamii/alberts-favourites-april-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWiouzpO5XzGIyqu-WumOSg-t500x500.jpg">](https://soundcloud.com/headbangsociety/engix-x-bromosapien-the-knowledge)
 
-**Artist**: Balamii 
+**Artist**: Headbang Society 
 
-**Track**: Alberts Favourites - April 2022
+**Track**: Engix X BroMosapien- The Knowledge
 
-Last updated at 04/07/2022 07:46
+Last updated at 04/07/2022 11:32
