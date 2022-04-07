@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493355847-yhj3l4-t500x500.jpg">](https://soundcloud.com/detroit_trap_music/im-expecting-dj-teenwolf-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wW0tsDdwPt3zXZEJ-GzJTmA-t500x500.jpg">](https://soundcloud.com/balamii/alberts-favourites-april-2022)
 
-**Artist**: Detroit Trap Music --- BUY MERCH @D-Rap.com 
+**Artist**: Balamii 
 
-**Track**: I'm Expecting (DJ Teenwolf Remix)
+**Track**: Alberts Favourites - April 2022
 
-Last updated at 04/06/2022 17:26
+Last updated at 04/07/2022 07:46
