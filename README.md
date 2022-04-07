@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3YqESQSKySMhiF2n-rbsPuw-t500x500.jpg">](https://soundcloud.com/djtegotypu/na-zawsze-razem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geZmnaP4Y77yzOQa-BgS4Vw-t500x500.jpg">](https://soundcloud.com/basscon/link-power?in=letslinkmusic/sets/link-power-ep-basscon)
 
-**Artist**: DJ Tego Typu 
+**Artist**: BASSCON 
 
-**Track**: DJ Tego Typu - NA ZAWSZE RAZEM **FREE D/L**
+**Track**: LINK - POWER
 
-Last updated at 04/07/2022 11:46
+Last updated at 04/07/2022 11:47
