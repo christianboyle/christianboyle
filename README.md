@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFCFaCIlMcIzYLMQ-gXOs2Q-t500x500.jpg">](https://soundcloud.com/hyenrg/afraid-to-let-loose?in=wearenova/sets/orbit-18-happy-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw3ALTrbIb3TUThy-m3X0nQ-t500x500.jpg">](https://soundcloud.com/wearenova/prime-ordnance-fluxe-odyssey?in=wearenova/sets/orbit-18-happy-hardcore)
 
-**Artist**: HyeNRG 
+**Artist**: Novatone 
 
-**Track**: Afraid To Let Loose
+**Track**: Prime Ordnance & fluxe - Odyssey (feat. Fossegrim)
 
-Last updated at 04/08/2022 10:40
+Last updated at 04/08/2022 10:41
