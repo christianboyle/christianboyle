@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249674716-h3bk9l-t500x500.jpg">](https://soundcloud.com/notstrider/strider-ft-space-candy-feel-the-vibe-1?in=notstrider/sets/releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsLomGcPHmHV-0-t500x500.jpg">](https://soundcloud.com/liezviiesieul/ctupor-ultraspeed-remix-feat)
 
-**Artist**: STRIDER 
+**Artist**: лезвие сеул 
 
-**Track**: STRIDER Ft. Space Candy - Feel The Vibe
+**Track**: ступор (Ultraspeed Remix) [feat. средаа]
 
-Last updated at 04/07/2022 21:13
+Last updated at 04/07/2022 21:15
