@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/SUwiwOiPF4Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=SUwiwOiPF4Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249674716-h3bk9l-t500x500.jpg">](https://soundcloud.com/notstrider/strider-ft-space-candy-feel-the-vibe-1?in=notstrider/sets/releases)
 
-**Artist**: mike. 
+**Artist**: STRIDER 
 
-**Track**: Mike Stud - Brightside (official video)
+**Track**: STRIDER Ft. Space Candy - Feel The Vibe
 
-Last updated at 04/07/2022 16:33
+Last updated at 04/07/2022 21:13
