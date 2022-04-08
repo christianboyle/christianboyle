@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw3ALTrbIb3TUThy-m3X0nQ-t500x500.jpg">](https://soundcloud.com/wearenova/prime-ordnance-fluxe-odyssey?in=wearenova/sets/orbit-18-happy-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImUEVz4eHKlfsnzU-tmNm2g-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-31-on-beat-106)
 
-**Artist**: Novatone 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Prime Ordnance & fluxe - Odyssey (feat. Fossegrim)
+**Track**: Bonkers Beats #31 on Beat 106 Scotland with  Daniel Seven 051121 (Hour 2)
 
-Last updated at 04/08/2022 10:41
+Last updated at 04/08/2022 10:45
