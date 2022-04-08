@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5ZHgz8CGp4xlbU7-ofSoaQ-t500x500.jpg">](https://soundcloud.com/szybkierzeczy/szrz046-lobsta-b-hardwagon-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfvGUG9MYW9dhdCT-QZ6YRQ-t500x500.jpg">](https://soundcloud.com/5p4m/go-go-go?in=wearenova/sets/orbit-18-happy-hardcore)
 
-**Artist**: SzybkieRzeczy 
+**Artist**: 5p4M 
 
-**Track**: SzRz046 - LOBSTA B - HARDWAGON MIX
+**Track**: 5p4M - GO GO GO
 
-Last updated at 04/08/2022 09:26
+Last updated at 04/08/2022 10:39
