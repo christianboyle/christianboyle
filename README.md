@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImUEVz4eHKlfsnzU-tmNm2g-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-31-on-beat-106)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/LtoujFPYhKM/maxresdefault.jpg">](https://www.youtube.com/watch?v=LtoujFPYhKM)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Lil Tracy 
 
-**Track**: Bonkers Beats #31 on Beat 106 Scotland with  Daniel Seven 051121 (Hour 2)
+**Track**: tracy & lil uzi vert - like a farmer *remix* (prod gren8)
 
-Last updated at 04/08/2022 10:45
+Last updated at 04/08/2022 21:32
