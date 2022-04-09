@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O9POqowS8x2e-0-t500x500.jpg">](https://soundcloud.com/lovejumex/jumex-spraypaint-fttravis-barker-1)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/d05tQrhNMkA/maxresdefault.jpg">](https://www.youtube.com/watch?v=d05tQrhNMkA)
 
-**Artist**: LOVEJUMEX 
+**Artist**: Brooks & Dunn 
 
-**Track**: SPRAYPAINT (feat. Travis Barker)
+**Track**: Boot Scootin' Boogie (Official Video)
 
-Last updated at 04/08/2022 22:13
+Last updated at 04/08/2022 23:02
