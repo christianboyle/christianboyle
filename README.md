@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249674716-h3bk9l-t500x500.jpg">](https://soundcloud.com/notstrider/strider-ft-space-candy-feel-the-vibe-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPL1gMbbc0K9sizQ-p6hRmA-t500x500.jpg">](https://soundcloud.com/sglily/oceans-apart)
 
-**Artist**: STRIDER 
+**Artist**: @sglilyy 
 
-**Track**: STRIDER Ft. Space Candy - Feel The Vibe
+**Track**: Oceans Apart
 
-Last updated at 04/08/2022 21:39
+Last updated at 04/08/2022 21:41
