@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEDowodCkVEmDTOc-hfeAmw-t500x500.jpg">](https://soundcloud.com/e_tank/kayzo-x-sullivan-king-x-papa-roach-domination-etank-reflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O9POqowS8x2e-0-t500x500.jpg">](https://soundcloud.com/lovejumex/jumex-spraypaint-fttravis-barker-1)
 
-**Artist**: E*Tank 
+**Artist**: LOVEJUMEX 
 
-**Track**: Kayzo x Sullivan King x Papa Roach - Domination (E*Tank Reflip)
+**Track**: SPRAYPAINT (feat. Travis Barker)
 
-Last updated at 04/08/2022 22:12
+Last updated at 04/08/2022 22:13
