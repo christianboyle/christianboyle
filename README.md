@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/LLST0kvmKsg/hqdefault.jpg">](https://www.youtube.com/watch?v=LLST0kvmKsg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/jkNvsqKegVA/maxresdefault.jpg">](https://www.youtube.com/watch?v=jkNvsqKegVA)
 
-**Artist**: KygoMusic 
+**Artist**: LIARS 
 
-**Track**: KYGO CLOSING ULTRA MUSIC FESTIVAL 2022 - FULL SET
+**Track**: Liars - Perpetual Village (Official Audio)
 
-Last updated at 04/08/2022 23:35
+Last updated at 04/08/2022 23:54
