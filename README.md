@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/JW5UEW2kYvc/maxresdefault.jpg">](https://www.youtube.com/watch?v=JW5UEW2kYvc)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/LLST0kvmKsg/hqdefault.jpg">](https://www.youtube.com/watch?v=LLST0kvmKsg)
 
-**Artist**: Alan Jackson 
+**Artist**: KygoMusic 
 
-**Track**: Chattahoochee (Official Music Video)
+**Track**: KYGO CLOSING ULTRA MUSIC FESTIVAL 2022 - FULL SET
 
-Last updated at 04/08/2022 23:33
+Last updated at 04/08/2022 23:35
