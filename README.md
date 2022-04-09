@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/tH_i76JVTDg/maxresdefault.jpg">](https://www.youtube.com/watch?v=tH_i76JVTDg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249674716-h3bk9l-t500x500.jpg">](https://soundcloud.com/notstrider/strider-ft-space-candy-feel-the-vibe-1)
 
-**Artist**: bbno$ 
+**Artist**: STRIDER 
 
-**Track**: mathematics
+**Track**: STRIDER Ft. Space Candy - Feel The Vibe
 
-Last updated at 04/08/2022 21:37
+Last updated at 04/08/2022 21:39
