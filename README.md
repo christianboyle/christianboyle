@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bfb4HVmFGi1B-0-t500x500.jpg">](https://soundcloud.com/billented-music/24-7-feat-jc-stewart)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/ZdV8CumRB5c/hqdefault.jpg">](https://www.youtube.com/watch?v=ZdV8CumRB5c)
 
-**Artist**: Billen Ted 
+**Artist**: Knife Party 
 
-**Track**: 24/7 (feat. JC Stewart)
+**Track**: Knife Party @ Ultra Music Festival Miami 2022
 
-Last updated at 04/08/2022 21:44
+Last updated at 04/08/2022 21:47
