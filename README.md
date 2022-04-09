@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/JW5UEW2kYvc/maxresdefault.jpg">](https://www.youtube.com/watch?v=JW5UEW2kYvc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEDowodCkVEmDTOc-hfeAmw-t500x500.jpg">](https://soundcloud.com/e_tank/kayzo-x-sullivan-king-x-papa-roach-domination-etank-reflip)
 
-**Artist**: XavierWulf 
+**Artist**: E*Tank 
 
-**Track**: Xavier Wulf - Check It Out (Official Video)
+**Track**: Kayzo x Sullivan King x Papa Roach - Domination (E*Tank Reflip)
 
-Last updated at 04/08/2022 22:06
+Last updated at 04/08/2022 22:12
