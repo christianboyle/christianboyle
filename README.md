@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/IU3pqfK9NVw/maxresdefault.jpg">](https://www.youtube.com/watch?v=IU3pqfK9NVw)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/KvvVvECaw7g/maxresdefault.jpg">](https://www.youtube.com/watch?v=KvvVvECaw7g)
 
-**Artist**: David Guetta 
+**Artist**: KygoMusic 
 
-**Track**: David Guetta LIVE @ Ultra Music Festival Miami 2022
+**Track**: KYGO CLOSING ULTRA MUSIC FESTIVAL 2022 - FULL SET
 
-Last updated at 04/08/2022 23:22
+Last updated at 04/08/2022 23:27
