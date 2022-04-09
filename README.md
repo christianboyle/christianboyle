@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ZdV8CumRB5c/hqdefault.jpg">](https://www.youtube.com/watch?v=ZdV8CumRB5c)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/QW0xUZLhSu4/maxresdefault.jpg">](https://www.youtube.com/watch?v=QW0xUZLhSu4)
 
-**Artist**: Knife Party 
+**Artist**: pendulumlive 
 
-**Track**: Knife Party @ Ultra Music Festival Miami 2022
+**Track**: Pendulum - The Other Side (Official Video)
 
-Last updated at 04/08/2022 21:47
+Last updated at 04/08/2022 21:53
