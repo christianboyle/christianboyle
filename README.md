@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000002790077-bmwqd0-t500x500.jpg">](https://soundcloud.com/diplo/gucci-mane-break-yourself-feat-lil-b-diplo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000493355847-yhj3l4-t500x500.jpg">](https://soundcloud.com/detroit_trap_music/im-expecting-dj-teenwolf-remix)
 
-**Artist**: Diplo 
+**Artist**: Detroit Trap Music --- BUY MERCH @D-Rap.com 
 
-**Track**: Gucci Mane - Break Yourself feat Lil B (Diplo Remix)
+**Track**: I'm Expecting (DJ Teenwolf Remix)
 
-Last updated at 04/08/2022 23:58
+Last updated at 04/09/2022 00:02
