@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyv6CwQLmy6D4XEh-uBzYGA-t500x500.jpg">](https://soundcloud.com/phusistunes/nite-flow?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyaXpK7zcWIFb09S-tnPRlQ-t500x500.jpg">](https://soundcloud.com/we-are-lorem-ipsum/strand?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Phusis 
+**Artist**: Lorem ipsum 
 
-**Track**: Tudd - NITE FLOW (Phusis Remix)
+**Track**: Strand
 
-Last updated at 04/10/2022 16:10
+Last updated at 04/10/2022 16:15
