@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsQQDQa5QZKXtMw7-oecQSw-t500x500.jpg">](https://soundcloud.com/subangel/self-programmed-supercomputer-visiting-earth-to-watch-the-apocalypse?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WC5cjnlTaO2hC6ek-SA16Ig-t500x500.jpg">](https://soundcloud.com/millenniumstrike/subangel-skull-system-self-programmed-supercomputer-555-angel-system?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Subangel 
+**Artist**: Millennium Strike 
 
-**Track**: Self-Programmed Supercomputer 444: Visiting Earth to Watch the Apocalypse
+**Track**: Subangel, Skull System - Self-Programmed Supercomputer 555:  Angel System
 
-Last updated at 04/10/2022 17:02
+Last updated at 04/10/2022 17:07
