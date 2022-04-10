@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WC5cjnlTaO2hC6ek-SA16Ig-t500x500.jpg">](https://soundcloud.com/millenniumstrike/funder-torm-getting-hot-in-the-outskirts?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IOtrF9rmcApqDlKF-aKcg7Q-t500x500.jpg">](https://soundcloud.com/k1nlive/fight-1?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Millennium Strike 
+**Artist**: K1N 
 
-**Track**: FUNDER TORM - GETTING HOT IN THE OUTSKIRTS
+**Track**: K1N X LUFZ - FIGHT
 
-Last updated at 04/10/2022 17:20
+Last updated at 04/10/2022 17:24
