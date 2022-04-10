@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-maeXYHY0GqU8gaIj-kVcy7w-t500x500.jpg">](https://soundcloud.com/millenniumstrike/integra-memory?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mOa8vorPgK79Lkm2-fu0ZvA-t500x500.jpg">](https://soundcloud.com/key-archive/drum-jam-4?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Millennium Strike 
+**Artist**: Key Archive 
 
-**Track**: Integra - Memory
+**Track**: Drum Jam_4
 
-Last updated at 04/10/2022 16:37
+Last updated at 04/10/2022 16:42
