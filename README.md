@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODcrBvb43b4WBo5h-tcNbsA-t500x500.jpg">](https://soundcloud.com/tuddmusic/vulcan-core?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RLdlUsFCL8s673w-MJMS6Q-t500x500.jpg">](https://soundcloud.com/hiimtype_r/ego-adero-1?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Tudd 
+**Artist**: Type R 
 
-**Track**: VULCAN CORE
+**Track**: Ego Adero
 
-Last updated at 04/10/2022 17:37
+Last updated at 04/10/2022 17:41
