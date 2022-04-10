@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlNvBgrKHpggLkuc-2x9HrQ-t500x500.png">](https://soundcloud.com/vandalondatrack/hollabackgirl?in=vandalondatrack/sets/restricted-house-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u83Y4wFDCc6dORde-SZAoJQ-t500x500.jpg">](https://soundcloud.com/vandalondatrack/vandal-on-da-track-ravage-pink-soldiers-remix-from-squid-game-extended-mix)
 
 **Artist**: Vandal On Da Track 
 
-**Track**: Gwen Stefani - Hollaback Girl (Vandal On Da Track Remix) (Restricted House Music 005) FREE DL
+**Track**: Vandal On Da Track, Ravage - Pink Soldiers Remix (From Squid Game) (Extended Mix)
 
-Last updated at 04/10/2022 11:29
+Last updated at 04/10/2022 11:30
