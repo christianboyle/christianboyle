@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085863027-2ti2z8-t500x500.jpg">](https://soundcloud.com/ice-underlord/ariana-grande-guap-with-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hwyhXrjDVNofhEy-E5qjnQ-t500x500.jpg">](https://soundcloud.com/presentlylifted/kizer-growth)
 
-**Artist**: ICEUNDERLORD 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Ariana Grande Guap With Beat
+**Track**: Kizer - Growth
 
-Last updated at 04/10/2022 11:33
+Last updated at 04/10/2022 14:08
