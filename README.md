@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kb97GhBJnlqQC18N-l9ClDw-t500x500.jpg">](https://soundcloud.com/tenshi_exe/needletick?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fo6NW9lgwKrAQ10r-m0k7YA-t500x500.jpg">](https://soundcloud.com/v8cola/v8cola-twiin-phaeton?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: tenshi @ Demo Disc.2 
+**Artist**: V8COLA 
 
-**Track**: Needletick (feat. MMIC)
+**Track**: twiin & V8COLA - Phaeton
 
-Last updated at 04/10/2022 16:29
+Last updated at 04/10/2022 16:32
