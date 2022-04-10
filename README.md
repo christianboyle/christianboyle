@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-es9Eq6ndiADkToHl-ydgcuw-t500x500.jpg">](https://soundcloud.com/multimediaangel/grace?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XpPE1LWXX7U0WHHy-Ox12rA-t500x500.jpg">](https://soundcloud.com/v8cola/luminesce?in=millenniumstrike/sets/demodisc-2)
 
-**Artist**: Multimedia Angel 
+**Artist**: V8COLA 
 
-**Track**: Grace
+**Track**: luminesce
 
-Last updated at 04/10/2022 17:48
+Last updated at 04/10/2022 17:53
