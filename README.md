@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WC5cjnlTaO2hC6ek-SA16Ig-t500x500.jpg">](https://soundcloud.com/millenniumstrike/blk-crx-breathe?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFDU7ydXf56qhwQy-hK19nA-t500x500.jpg">](https://soundcloud.com/millenniumstrike/ghostmemory-bit-battle?in=millenniumstrike/sets/demodisc-2)
 
 **Artist**: Millennium Strike 
 
-**Track**: BLK CRX - Breathe
+**Track**: Ghostmemory - Bit-Battle
 
-Last updated at 04/10/2022 15:47
+Last updated at 04/10/2022 15:49
