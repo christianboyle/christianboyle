@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k1Yzz7CcALf9yQlY-kp7yOw-t500x500.jpg">](https://soundcloud.com/aekaemusic/aekae-phusis-hydra?in=millenniumstrike/sets/demodisc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
 
-**Artist**: Aekae 
+**Artist**: Hartshorn 
 
-**Track**: Aekae & Phusis - Hydra
+**Track**: Bonkers Beats - April Resident Mix
 
-Last updated at 04/10/2022 17:58
+Last updated at 04/11/2022 07:21
