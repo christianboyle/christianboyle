@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WhvbwYlmgwNBdXW-55Mebw-t500x500.jpg">](https://soundcloud.com/jtraxofficial/steve-hill-x-j-trax-embrace-me-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ud9hFmobO2DVgrj2-NHyrQg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/joey-riot-mike-reverie-another-dimension-electric-fox)
 
-**Artist**: J-Trax 
+**Artist**: Dirty Workz 
 
-**Track**: Steve Hill X J-Trax - Embrace Me [Out Now]
+**Track**: Joey Riot & Mike Reverie - Another Dimension (Electric Fox)
 
-Last updated at 04/12/2022 17:56
+Last updated at 04/12/2022 18:00
