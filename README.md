@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ud9hFmobO2DVgrj2-NHyrQg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/joey-riot-mike-reverie-another-dimension-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NGF2SyTlbNBf98Rs-zMifpw-t500x500.jpg">](https://soundcloud.com/werhduk/cally-j-trax-too-much)
 
-**Artist**: Dirty Workz 
+**Artist**: HDUK 
 
-**Track**: Joey Riot & Mike Reverie - Another Dimension (Electric Fox)
+**Track**: Cally & J-Trax - Too Much
 
-Last updated at 04/12/2022 18:00
+Last updated at 04/12/2022 18:03
