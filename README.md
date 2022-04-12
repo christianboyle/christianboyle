@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ay0yI2zpGzzljx4A-HIZfaw-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-27-feat-twinsick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNwQzK6HRrraQzbT-GRLtUQ-t500x500.jpg">](https://soundcloud.com/lilpump/all-the-sudden)
 
-**Artist**: syence experiments 
+**Artist**: Lil Pump 
 
-**Track**: syence lab: volume 27 (feat. twinsick)
+**Track**: All The Sudden
 
-Last updated at 04/12/2022 18:17
+Last updated at 04/12/2022 18:18
