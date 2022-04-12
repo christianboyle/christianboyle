@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOYRy1NMRlxC60L1-CJmtYA-t500x500.jpg">](https://soundcloud.com/justicehardcore/foose-take-a-ride-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WhvbwYlmgwNBdXW-55Mebw-t500x500.jpg">](https://soundcloud.com/jtraxofficial/steve-hill-x-j-trax-embrace-me-out-now)
 
-**Artist**: Justice Hardcore 
+**Artist**: J-Trax 
 
-**Track**: FOOSE - Take A Ride ⚠️OUT NOW⚠️
+**Track**: Steve Hill X J-Trax - Embrace Me [Out Now]
 
-Last updated at 04/12/2022 17:52
+Last updated at 04/12/2022 17:56
