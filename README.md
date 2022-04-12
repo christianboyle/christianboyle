@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqyTChzfImQE3NEe-KbCyUQ-t500x500.jpg">](https://soundcloud.com/djmkn93/twstd-world-of-chaos-mkn-remix)
 
-**Artist**: Hartshorn 
+**Artist**: MKN 
 
-**Track**: Bonkers Beats - April Resident Mix
+**Track**: TWSTD - World Of Chaos (MKN Remix)
 
-Last updated at 04/12/2022 17:16
+Last updated at 04/12/2022 17:43
