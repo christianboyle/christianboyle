@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/OgCv-qrlRrI/maxresdefault.jpg">](https://www.youtube.com/watch?v=OgCv-qrlRrI)
 
-**Artist**: Hartshorn 
+**Artist**: Mint Condition Music 
 
-**Track**: Bonkers Beats - April Resident Mix
+**Track**: Mint Condition - Breakin' My Heart (Pretty Brown Eyes) (Official Music Video)
 
-Last updated at 04/11/2022 07:21
+Last updated at 04/12/2022 07:44
