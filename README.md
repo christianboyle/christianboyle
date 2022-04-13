@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000327585768-pm8s5v-t500x500.jpg">](https://soundcloud.com/queer-nxc/milk-honey-x-queer-nxc-in-my-dreams)
 
-**Artist**: NITE CORP. 
+**Artist**: queer nxc 
 
-**Track**: aamourocean - u're not alone
+**Track**: Milk & Honey x queer nxc — IN MY DREAMS
 
-Last updated at 04/12/2022 21:18
+Last updated at 04/12/2022 21:20
