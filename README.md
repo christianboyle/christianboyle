@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNwQzK6HRrraQzbT-GRLtUQ-t500x500.jpg">](https://soundcloud.com/lilpump/all-the-sudden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GxTpFl7gHYuRnVRW-LgDCrg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc172)
 
-**Artist**: Lil Pump 
+**Artist**: NON STOP NXC® 
 
-**Track**: All The Sudden
+**Track**: NXC172 - IC3PEAK - Грустная Сука (WORLDWIDEWOLF LOUD AMEN EDIT)
 
-Last updated at 04/12/2022 18:18
+Last updated at 04/12/2022 21:17
