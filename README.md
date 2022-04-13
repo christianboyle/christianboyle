@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GxTpFl7gHYuRnVRW-LgDCrg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc172)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
 
-**Artist**: NON STOP NXC® 
+**Artist**: NITE CORP. 
 
-**Track**: NXC172 - IC3PEAK - Грустная Сука (WORLDWIDEWOLF LOUD AMEN EDIT)
+**Track**: aamourocean - u're not alone
 
-Last updated at 04/12/2022 21:17
+Last updated at 04/12/2022 21:18
