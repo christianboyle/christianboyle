@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/XBZUz4C6kqk/maxresdefault.jpg">](https://www.youtube.com/watch?v=XBZUz4C6kqk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
 
-**Artist**: Charli XCX 
+**Artist**: Hartshorn 
 
-**Track**: Beg For You (Official Saturday Night Live Performance)
+**Track**: Bonkers Beats - April Resident Mix
 
-Last updated at 04/13/2022 10:18
+Last updated at 04/13/2022 11:58
