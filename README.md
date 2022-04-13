@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/6dOwHzCHfgA/maxresdefault.jpg">](https://www.youtube.com/watch?v=6dOwHzCHfgA)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/XBZUz4C6kqk/maxresdefault.jpg">](https://www.youtube.com/watch?v=XBZUz4C6kqk)
 
-**Artist**: hueylewisofficial 
+**Artist**: Charli XCX 
 
-**Track**: Huey Lewis And The News - If This Is It (Official Music Video)
+**Track**: New Shapes (Feat. Christine and the Queens and Caroline Polachek) - [Official Video]
 
-Last updated at 04/13/2022 10:07
+Last updated at 04/13/2022 10:16
