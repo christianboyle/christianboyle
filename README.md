@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gakYJl3VB963QqAj-tsdJmw-t500x500.jpg">](https://soundcloud.com/sablevalley/hideaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGS8jZ5nuqIuzxg-FCzlbQ-t500x500.jpg">](https://soundcloud.com/sablevalley/scythe)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: Juelz - Hideaway
+**Track**: Deadcrow - Scythe
 
-Last updated at 04/13/2022 21:26
+Last updated at 04/13/2022 21:27
