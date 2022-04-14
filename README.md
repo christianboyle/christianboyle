@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9JzdHMb6NGzkazML-oRwNsA-t500x500.jpg">](https://soundcloud.com/shamanabeats/hickory-smoked?in=shamanabeats/sets/tneeid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9JzdHMb6NGzkazML-oRwNsA-t500x500.jpg">](https://soundcloud.com/shamanabeats/seal-of-the-lion?in=shamanabeats/sets/tneeid)
 
 **Artist**: shamana 
 
-**Track**: Hickory Smoked
+**Track**: Seal of the Lion
 
-Last updated at 04/14/2022 09:56
+Last updated at 04/14/2022 09:58
