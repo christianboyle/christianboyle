@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ts48zuSV27zXihdg-vRwO0Q-t500x500.jpg">](https://soundcloud.com/simplifyrecs/d-sabber-lost-fallen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000182937629-y58zg6-t500x500.jpg">](https://soundcloud.com/nonstoppop/ducky)
 
-**Artist**: Simplify. 
+**Artist**: JACK 
 
-**Track**: D-Sabber - Lost & Fallen
+**Track**: DUCKY live at JACK London
 
-Last updated at 04/14/2022 22:28
+Last updated at 04/14/2022 22:29
