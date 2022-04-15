@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000182937629-y58zg6-t500x500.jpg">](https://soundcloud.com/nonstoppop/ducky)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/UEoU6VbHs2c/maxresdefault.jpg">](https://www.youtube.com/watch?v=UEoU6VbHs2c)
 
-**Artist**: JACK 
+**Artist**: Oliver Tree 
 
-**Track**: DUCKY live at JACK London
+**Track**: Cash Machine [Official Music Video]
 
-Last updated at 04/14/2022 22:29
+Last updated at 04/15/2022 08:26
