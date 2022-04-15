@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9JzdHMb6NGzkazML-oRwNsA-t500x500.jpg">](https://soundcloud.com/shamanabeats/so-if-you-dont-mind?in=shamanabeats/sets/tneeid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9JzdHMb6NGzkazML-oRwNsA-t500x500.jpg">](https://soundcloud.com/shamanabeats/mourning-of-the-beloved-milky-tokes?in=shamanabeats/sets/tneeid)
 
 **Artist**: shamana 
 
-**Track**: So if You Don’t Mind
+**Track**: Mourning of the Beloved Milky Tokes
 
-Last updated at 04/14/2022 21:06
+Last updated at 04/14/2022 21:09
