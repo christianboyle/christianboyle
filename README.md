@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzX82S0WACvxsyeM-TEKFlQ-t500x500.jpg">](https://soundcloud.com/area3000/meganesia-w-caucasian-opportunities-15-april-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UiYwMi39QzcUu10Y-hsbPIg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc178)
 
-**Artist**: Area 3000 Radio 
+**Artist**: NON STOP NXC® 
 
-**Track**: Meganesia w. Caucasian Opportunities - 15 April 2022
+**Track**: NXC178 - Skrillex - All I Ask Of You (feat. Pennybirdrabbit) [IVY SINTHETIC NXC RAVE REMIX]
 
-Last updated at 04/15/2022 16:22
+Last updated at 04/15/2022 16:27
