@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gsQzutkfkZtywQv-bNkg9A-t500x500.jpg">](https://soundcloud.com/underscores/yfs?in=underscores/sets/fishmonger)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/8VJrMoDuvkQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=8VJrMoDuvkQ)
 
-**Artist**: underscores 
+**Artist**: glaive 
 
-**Track**: Your favorite sidekick (feat. 8485)
+**Track**: dnd (official video)
 
-Last updated at 04/15/2022 16:34
+Last updated at 04/15/2022 16:39
