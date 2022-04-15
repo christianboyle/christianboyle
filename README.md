@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csqaJdDhxJ60ImHN-MbZhig-t500x500.jpg">](https://soundcloud.com/underscores/snny)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiRH5ElHSzrW3bRY-ZhNMiw-t500x500.jpg">](https://soundcloud.com/underscores/slb?in=underscores/sets/fishmonger)
 
 **Artist**: underscores 
 
-**Track**: The Story of S*nny
+**Track**: Spoiled little brat
 
-Last updated at 04/15/2022 16:29
+Last updated at 04/15/2022 16:31
