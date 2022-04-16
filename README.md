@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000138420924-jlwm55-t500x500.jpg">](https://soundcloud.com/nitecorp/wipeout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcNbq2HCdTNebNGt-dm8AFg-t500x500.jpg">](https://soundcloud.com/dimension_uk/alive)
 
-**Artist**: NITE CORP. 
+**Artist**: DIMENSION 
 
-**Track**: [MIX-12] DJ WIPEOUT
+**Track**: Alive ft. Poppy Baskcomb
 
-Last updated at 04/16/2022 13:49
+Last updated at 04/16/2022 18:53
