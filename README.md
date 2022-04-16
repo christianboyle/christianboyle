@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000109704843-h352ek-t500x500.jpg">](https://soundcloud.com/akeboyden1/xtc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174610868-y9p6zk-t500x500.jpg">](https://soundcloud.com/djwipeoutnxc/burning-4-u)
 
-**Artist**: JakeBoyden 
+**Artist**: dj wipeout 
 
-**Track**: XTC
+**Track**: burning 4 u
 
-Last updated at 04/16/2022 13:46
+Last updated at 04/16/2022 13:47
