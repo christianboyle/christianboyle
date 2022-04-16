@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rm8AK5Jbx2tXWrwN-pjzpyQ-t500x500.jpg">](https://soundcloud.com/liquicityrecords/lexurus-dualistic-continua-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000109704843-h352ek-t500x500.jpg">](https://soundcloud.com/akeboyden1/xtc)
 
-**Artist**: Liquicity Records 
+**Artist**: JakeBoyden 
 
-**Track**: Lexurus & Dualistic - Continua
+**Track**: XTC
 
-Last updated at 04/16/2022 13:45
+Last updated at 04/16/2022 13:46
