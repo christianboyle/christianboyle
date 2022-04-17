@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynh3Ir6HRelKnbYQ-MQJEZA-t500x500.jpg">](https://soundcloud.com/shogunjoseph/phonkdeezhoesmane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcNbq2HCdTNebNGt-dm8AFg-t500x500.jpg">](https://soundcloud.com/dimension_uk/alive)
 
-**Artist**: SHOGUN 
+**Artist**: DIMENSION 
 
-**Track**: PHONK DEEZ HOES MANE (PROD. SVDYMONT)
+**Track**: Alive ft. Poppy Baskcomb
 
-Last updated at 04/16/2022 19:41
+Last updated at 04/16/2022 19:42
