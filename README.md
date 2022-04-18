@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/xC0gMOpauwg/maxresdefault.jpg">](https://www.youtube.com/watch?v=xC0gMOpauwg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b84CDxbpQt9BQmZ8-nZyuAA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-54-with-al-storm)
 
-**Artist**: Charli XCX 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Beg For You (Official Saturday Night Live Performance)
+**Track**: Bonkers Beats #54 on Beat 106 Scotland with Al Storm & Rob IYF 150422 (Hour 2)
 
-Last updated at 04/16/2022 19:46
+Last updated at 04/18/2022 08:36
