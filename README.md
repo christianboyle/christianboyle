@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKBJZU8v2pSBejUu-t62B6Q-t500x500.jpg">](https://soundcloud.com/deathrowmusics/insowmya-klangcity-deathrow-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WKpzw17PUkyVnFPf-S3QFYQ-t500x500.jpg">](https://soundcloud.com/air_or/oklou-galore-airynore-remix?in=umru/sets/selected-by-umru-4-soundcloud)
 
-**Artist**: Deathrow 
+**Artist**: airynore 
 
-**Track**: insowmya-klangcity (Deathrow remix)
+**Track**: Oklou - Galore "Airynore Remix"
 
-Last updated at 04/19/2022 07:40
+Last updated at 04/19/2022 07:41
