@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyrCA65I7VBOjeOy-2Zu7ag-t500x500.jpg">](https://soundcloud.com/the-nightcore/nightcore-tokyo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpFYZf7ywRjwBRNA-nlFSow-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/dustware-w-viwiv)
 
-**Artist**: The Nightcore 
+**Artist**: MASAYOSHI IIMORI 
 
-**Track**: Nightcore - Tokyo
+**Track**: Dustware (w/ viwiv)
 
-Last updated at 04/19/2022 07:38
+Last updated at 04/19/2022 07:39
