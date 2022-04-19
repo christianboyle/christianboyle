@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h30XsKLJBuHAMNga-7uYKHg-t500x500.jpg">](https://soundcloud.com/coolteens/darkwell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G1VAolzSw2xzKxk-o0ECbA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc184)
 
-**Artist**: Cool ✨ Teens 
+**Artist**: NON STOP NXC® 
 
-**Track**: Darkwell
+**Track**: NXC184 - DJ FLOOR - COULD U BE
 
-Last updated at 04/19/2022 10:04
+Last updated at 04/19/2022 11:03
