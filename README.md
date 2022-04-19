@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpFYZf7ywRjwBRNA-nlFSow-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/dustware-w-viwiv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKBJZU8v2pSBejUu-t62B6Q-t500x500.jpg">](https://soundcloud.com/deathrowmusics/insowmya-klangcity-deathrow-remix-1)
 
-**Artist**: MASAYOSHI IIMORI 
+**Artist**: Deathrow 
 
-**Track**: Dustware (w/ viwiv)
+**Track**: insowmya-klangcity (Deathrow remix)
 
-Last updated at 04/19/2022 07:39
+Last updated at 04/19/2022 07:40
