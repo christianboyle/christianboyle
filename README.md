@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WKpzw17PUkyVnFPf-S3QFYQ-t500x500.jpg">](https://soundcloud.com/air_or/oklou-galore-airynore-remix?in=umru/sets/selected-by-umru-4-soundcloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3hUEjUPEZGKuDBf-97aq1A-t500x500.jpg">](https://soundcloud.com/milkfish4k4k4k/can-you-fast-my-furious?in=umru/sets/selected-by-umru-4-soundcloud)
 
-**Artist**: airynore 
+**Artist**: Milkfish 
 
-**Track**: Oklou - Galore "Airynore Remix"
+**Track**: CAN YOU FAST MY FURIOUS
 
-Last updated at 04/19/2022 07:41
+Last updated at 04/19/2022 07:42
