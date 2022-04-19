@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXJaQdH6UmMZVfyA-7XLEyw-t500x500.jpg">](https://soundcloud.com/nightcorey/just-married-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h30XsKLJBuHAMNga-7uYKHg-t500x500.jpg">](https://soundcloud.com/coolteens/darkwell)
 
-**Artist**: nightcorey 
+**Artist**: Cool ✨ Teens 
 
-**Track**: 'just married' mix
+**Track**: Darkwell
 
-Last updated at 04/19/2022 07:48
+Last updated at 04/19/2022 10:04
