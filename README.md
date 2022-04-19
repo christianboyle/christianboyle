@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G1VAolzSw2xzKxk-o0ECbA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc184)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXJaQdH6UmMZVfyA-7XLEyw-t500x500.jpg">](https://soundcloud.com/nightcorey/just-married-mix)
 
-**Artist**: NON STOP NXC® 
+**Artist**: nightcorey 
 
-**Track**: NXC184 - DJ FLOOR - COULD U BE
+**Track**: 'just married' mix
 
-Last updated at 04/19/2022 11:03
+Last updated at 04/19/2022 11:08
