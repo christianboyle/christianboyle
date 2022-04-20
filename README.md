@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oZazI1TtxsFU38K-Z5qynw-t500x500.jpg">](https://soundcloud.com/isvvcisvvcisvvc/break-a-hoe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCD9a8EAYbrFI2jU-n0iYpA-t500x500.jpg">](https://soundcloud.com/shavedballs/vincent-monica?in=shavedballs/sets/byebyetape)
 
-**Artist**: ISVVC 
+**Artist**: SHAVED BALLS 
 
-**Track**: BREAK A HOE
+**Track**: Vincent & Monica
 
-Last updated at 04/20/2022 10:36
+Last updated at 04/20/2022 10:38
