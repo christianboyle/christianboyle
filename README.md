@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCD9a8EAYbrFI2jU-n0iYpA-t500x500.jpg">](https://soundcloud.com/shavedballs/vincent-monica?in=shavedballs/sets/byebyetape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmBlqjQMlyXUzjJR-Bp3xGQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol9)
 
-**Artist**: SHAVED BALLS 
+**Artist**: TEDDY COLOUR 
 
-**Track**: Vincent & Monica
+**Track**: THE PHONK SHOW VOL.9
 
-Last updated at 04/20/2022 10:38
+Last updated at 04/20/2022 10:39
