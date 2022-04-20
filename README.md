@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY5yCVsE8c0U7hYH-DZmTHQ-t500x500.jpg">](https://soundcloud.com/balamii/ak-sports-w-dj-gr3y-april-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ct9uN7yc4CsIzh7W-SSdvOw-t500x500.jpg">](https://soundcloud.com/camouflybeats/alone)
 
-**Artist**: Balamii 
+**Artist**: camoufly 
 
-**Track**: AK Sports w/ DJ GR3Y - April 2022
+**Track**: alone (with U)
 
-Last updated at 04/19/2022 15:59
+Last updated at 04/20/2022 08:10
