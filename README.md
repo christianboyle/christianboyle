@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fAz2tC1mM8X6oCFx-wFYTtQ-t500x500.jpg">](https://soundcloud.com/nickyslime420/mad-sesh-vol-2-the-second-rotation-full-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmBlqjQMlyXUzjJR-Bp3xGQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol9)
 
-**Artist**: NICKY $LIME 
+**Artist**: TEDDY COLOUR 
 
-**Track**: MAD SESH VOL. 2: "THE SECOND ROTATION" (FULL TAPE)
+**Track**: THE PHONK SHOW VOL.9
 
-Last updated at 04/20/2022 12:27
+Last updated at 04/20/2022 14:04
