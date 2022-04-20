@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmBlqjQMlyXUzjJR-Bp3xGQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fmbjw4wOjBzcI2FB-VjAQww-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/primeshock-geck-o-its-what-we-are-reloaded)
 
-**Artist**: TEDDY COLOUR 
+**Artist**: Dirty Workz 
 
-**Track**: THE PHONK SHOW VOL.9
+**Track**: Primeshock & Geck-O - It's What We Are Reloaded
 
-Last updated at 04/20/2022 11:03
+Last updated at 04/20/2022 12:14
