@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFh9shGOESyEMmBp-WVNyfQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/alleviate-anklebreaker-leave-it-all-behind-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEKLBSpzlfUDBhFp-CIq8ew-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-rambal-cochet-thrash-to-treasure-spacelab)
 
-**Artist**: Dirty Workz 
+**Artist**: Ransom Note 
 
-**Track**: Alleviate & Anklebreaker - Leave It All Behind (DWX Copyright Free)
+**Track**: PREMIERE: Rambal Cochet - Thrash to Treasure [space•lab]
 
-Last updated at 04/20/2022 12:18
+Last updated at 04/20/2022 12:21
