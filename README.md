@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dgyy7n7PjCyV7Pbv-yTiLVQ-t500x500.jpg">](https://soundcloud.com/daholymane/get-ya-dope-vol1-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5T7HE9bwyHlavVj7-0oonTg-t500x500.jpg">](https://soundcloud.com/sorrymane666/shawty-wit-da-biznizz)
 
-**Artist**: HOLYMANE 
+**Artist**: SORRYMANE666 
 
-**Track**: GET YA DOPE VOL1 (FULL STREAM)
+**Track**: SHAWTY WIT DA BIZNIZZ
 
-Last updated at 04/20/2022 10:47
+Last updated at 04/20/2022 11:02
