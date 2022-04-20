@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ct9uN7yc4CsIzh7W-SSdvOw-t500x500.jpg">](https://soundcloud.com/camouflybeats/alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmBlqjQMlyXUzjJR-Bp3xGQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol9)
 
-**Artist**: camoufly 
+**Artist**: TEDDY COLOUR 
 
-**Track**: alone (with U)
+**Track**: THE PHONK SHOW VOL.9
 
-Last updated at 04/20/2022 08:10
+Last updated at 04/20/2022 08:11
