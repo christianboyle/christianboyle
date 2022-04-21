@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmBlqjQMlyXUzjJR-Bp3xGQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFTIwQHVzTROyfhb-pupFcg-t500x500.jpg">](https://soundcloud.com/berrymane/eyes-red)
 
-**Artist**: TEDDY COLOUR 
+**Artist**: BERRYMANE 
 
-**Track**: THE PHONK SHOW VOL.9
+**Track**: EYES RED
 
-Last updated at 04/20/2022 14:04
+Last updated at 04/21/2022 12:53
