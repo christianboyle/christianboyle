@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lN4OydZUR3OQMuZc-FGEyMQ-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1)
 
 **Artist**: FIEND WORLD 
 
-**Track**: COLD SWEATS VOL. 2
+**Track**: COLD SWEATS VOL. 1
 
-Last updated at 04/22/2022 16:21
+Last updated at 04/22/2022 17:47
