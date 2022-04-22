@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFTIwQHVzTROyfhb-pupFcg-t500x500.jpg">](https://soundcloud.com/berrymane/eyes-red)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ugb2jMPY5aoS3zpm-l60Qeg-t500x500.jpg">](https://soundcloud.com/dvynsmusic/zuko-original-mix)
 
-**Artist**: BERRYMANE 
+**Artist**: DVYNS 
 
-**Track**: EYES RED
+**Track**: ZUKO (ORIGINAL MIX)
 
-Last updated at 04/21/2022 12:53
+Last updated at 04/22/2022 07:53
