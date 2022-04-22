@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtORkdujtROkig3v-e5b8Yw-t500x500.jpg">](https://soundcloud.com/3treflip/i-am-ethereal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1?in=fiendworldwide/sets/cold-sweats)
 
-**Artist**: TRE FLIP 
+**Artist**: FIEND WORLD 
 
-**Track**: I AM ETHEREAL (FULL STREAM)
+**Track**: COLD SWEATS VOL. 1
 
-Last updated at 04/22/2022 09:48
+Last updated at 04/22/2022 09:49
