@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5d91U9zIjbd0GyuF-yeD4zA-t500x500.jpg">](https://soundcloud.com/mazaremusic/mazare-amidy-otherside?in=amidymusic/sets/mazare-amidy-otherside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zXpCARqVDTeneFXo-GomwMA-t500x500.jpg">](https://soundcloud.com/blankemusicau/stuckonyou)
 
-**Artist**: Mazare 
+**Artist**: Blanke 
 
-**Track**: Mazare & Amidy - Otherside
+**Track**: Stuck On You (Feat. Donna Tella)
 
-Last updated at 04/23/2022 12:01
+Last updated at 04/23/2022 12:03
