@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzWZt9fhuwJbauJi-zpUbfg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bad-habits-roland-jones-x-kushface)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLfKZGQZ2nwsXVRH-IdpKfQ-t500x500.jpg">](https://soundcloud.com/tokyo_tears/again)
 
-**Artist**: kushface ☤ 
+**Artist**: Tokyo tears 
 
-**Track**: BAD HABITS (ROLAND JONES X KUSHFACE)
+**Track**: Again
 
-Last updated at 04/23/2022 13:33
+Last updated at 04/23/2022 13:34
