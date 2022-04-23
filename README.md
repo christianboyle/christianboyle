@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLfKZGQZ2nwsXVRH-IdpKfQ-t500x500.jpg">](https://soundcloud.com/tokyo_tears/again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-09I99pUOCOIcl0b4-wG2KiQ-t500x500.jpg">](https://soundcloud.com/beatlabradio/tokyo-tears-exclusive-mix-bl-378)
 
-**Artist**: Tokyo tears 
+**Artist**: Beat Lab Radio 
 
-**Track**: Again
+**Track**: Tokyo Tears - Exclusive Mix - Beat Lab Radio 378
 
-Last updated at 04/23/2022 13:34
+Last updated at 04/23/2022 13:35
