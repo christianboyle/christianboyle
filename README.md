@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDP2Xz3tPMwW5jJf-4I81sQ-t500x500.jpg">](https://soundcloud.com/itscustome/sub-focus-siren-custome-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z80tUex0GWGh0xdA-ujBsww-t500x500.jpg">](https://soundcloud.com/darby_music/answerswithok2222)
 
-**Artist**: CUSTOME 
+**Artist**: Darby 
 
-**Track**: Sub Focus - Siren (CUSTOME Remix)
+**Track**: Answers (w/ Ok2222)
 
-Last updated at 04/23/2022 11:23
+Last updated at 04/23/2022 11:25
