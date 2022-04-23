@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZac91CwKPoyhHr2-Tx390Q-t500x500.jpg">](https://soundcloud.com/esseks/justice-served)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whi7mAz9TAgFvrJ6-3CLddA-t500x500.jpg">](https://soundcloud.com/allhardnation/feel-this-sky)
 
-**Artist**: Esseks 
+**Artist**: Hard Nation 
 
-**Track**: Justice Served [This Song Is Sick Premiere]
+**Track**: AkaNoize - Feel This Sky [HN Release]
 
-Last updated at 04/23/2022 11:57
+Last updated at 04/23/2022 11:58
