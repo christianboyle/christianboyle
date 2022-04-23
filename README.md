@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPccqnWpU0kYLroT-R7hCWA-t500x500.jpg">](https://soundcloud.com/acodeine2k/acxdeine2k-wi-wi-es-prod-sayans)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vgBUOYSWVItoILvM-AOoDqQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-vol8-sorrymane)
 
-**Artist**: acxdeine2k 
+**Artist**: TEDDY COLOUR 
 
-**Track**: acxdeine2k! - wi wi es (prod. sa!yans)
+**Track**: THE PHONK SHOW VOL.8 (SORRYMANE)
 
-Last updated at 04/23/2022 12:05
+Last updated at 04/23/2022 12:06
