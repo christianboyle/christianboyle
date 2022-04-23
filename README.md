@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z80tUex0GWGh0xdA-ujBsww-t500x500.jpg">](https://soundcloud.com/darby_music/answerswithok2222)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r1JhYFNOgR3nGcVz-VjHUUQ-t500x500.jpg">](https://soundcloud.com/warecollective/wavm8s-067-jerome)
 
-**Artist**: Darby 
+**Artist**: WARE 
 
-**Track**: Answers (w/ Ok2222)
+**Track**: WAV.M8'S 067 - JEROME
 
-Last updated at 04/23/2022 11:25
+Last updated at 04/23/2022 11:28
