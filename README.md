@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFFW4B2BznQ16Zax-XEjnOw-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol7-tre-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzWZt9fhuwJbauJi-zpUbfg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bad-habits-roland-jones-x-kushface)
 
-**Artist**: TEDDY COLOUR 
+**Artist**: kushface ☤ 
 
-**Track**: THE PHONK SHOW VOL.7 (TRE FLIP)
+**Track**: BAD HABITS (ROLAND JONES X KUSHFACE)
 
-Last updated at 04/23/2022 12:07
+Last updated at 04/23/2022 13:33
