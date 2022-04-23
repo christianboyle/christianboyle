@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nc52F9OgpFtVxyF-vBga9g-t500x500.jpg">](https://soundcloud.com/allhardnation/temple-of-sins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5d91U9zIjbd0GyuF-yeD4zA-t500x500.jpg">](https://soundcloud.com/mazaremusic/mazare-amidy-otherside?in=amidymusic/sets/mazare-amidy-otherside)
 
-**Artist**: Hard Nation 
+**Artist**: Mazare 
 
-**Track**: NVRZOS - Temple Of Sins [HN Release]
+**Track**: Mazare & Amidy - Otherside
 
-Last updated at 04/23/2022 11:59
+Last updated at 04/23/2022 12:01
