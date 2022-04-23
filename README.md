@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDP2Xz3tPMwW5jJf-4I81sQ-t500x500.jpg">](https://soundcloud.com/itscustome/sub-focus-siren-custome-remix)
 
-**Artist**: FIEND WORLD 
+**Artist**: CUSTOME 
 
-**Track**: COLD SWEATS VOL. 1
+**Track**: Sub Focus - Siren (CUSTOME Remix)
 
-Last updated at 04/22/2022 17:47
+Last updated at 04/23/2022 11:23
