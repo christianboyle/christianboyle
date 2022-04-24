@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnvhJJUUSkANi5zq-0MgoFg-t500x500.jpg">](https://soundcloud.com/drevm/cut-em-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509169954-4ur4qy-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-1)
 
-**Artist**: DREVM 
+**Artist**: FIEND WORLD 
 
-**Track**: cut 'em up
+**Track**: COLD SWEATS VOL. 1
 
-Last updated at 04/23/2022 22:57
+Last updated at 04/23/2022 23:00
