@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQNe9Dd4tYvZbJCP-XjB2QA-t500x500.jpg">](https://soundcloud.com/godzthought/savage-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FNmGso4qZK1C66ew-xLQHqg-t500x500.jpg">](https://soundcloud.com/dubvalentino/timeless-vol-1)
 
-**Artist**: godzTHOUGHT 
+**Artist**: DUB VALENTINO 
 
-**Track**: SAVAGE INTELLIGENCE
+**Track**: TIMELESS VOL 1
 
-Last updated at 04/24/2022 09:17
+Last updated at 04/24/2022 09:42
