@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B8xZ3N2NJoU0zj96-k9G9RA-t500x500.jpg">](https://soundcloud.com/digital-empire-records/zerocool-eagle-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000129273525-bsall8-t500x500.jpg">](https://soundcloud.com/djwipeoutnxc/castles)
 
-**Artist**: Digital Empire Records 
+**Artist**: dj wipeout 
 
-**Track**: Zerocool - Eagle | OUT NOW
+**Track**: castles in the sky
 
-Last updated at 04/23/2022 21:39
+Last updated at 04/23/2022 21:40
