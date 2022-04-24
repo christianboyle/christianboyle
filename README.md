@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GsLjvVJazQMzg0mu-cdpBnA-t500x500.jpg">](https://soundcloud.com/dmonskull/walk-around-wita-stick-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LQNe9Dd4tYvZbJCP-XjB2QA-t500x500.jpg">](https://soundcloud.com/godzthought/savage-intelligence)
 
-**Artist**: DMONSKULL 
+**Artist**: godzTHOUGHT 
 
-**Track**: WALK AROUND WITA STICK
+**Track**: SAVAGE INTELLIGENCE
 
-Last updated at 04/24/2022 09:10
+Last updated at 04/24/2022 09:17
