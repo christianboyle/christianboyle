@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzWZt9fhuwJbauJi-zpUbfg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bad-habits-roland-jones-x-kushface)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZakC8zilD6gsiifP-Xs14hg-t500x500.jpg">](https://soundcloud.com/bbjuelz/somethingexile)
 
-**Artist**: kushface ☤ 
+**Artist**: Juelz 
 
-**Track**: BAD HABITS (ROLAND JONES X KUSHFACE)
+**Track**: Exile (Sømething Remix)
 
-Last updated at 04/23/2022 13:36
+Last updated at 04/23/2022 20:10
