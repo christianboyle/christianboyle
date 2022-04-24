@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000129273525-bsall8-t500x500.jpg">](https://soundcloud.com/djwipeoutnxc/castles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
 
-**Artist**: dj wipeout 
+**Artist**: Hartshorn 
 
-**Track**: castles in the sky
+**Track**: Bonkers Beats - April Resident Mix
 
-Last updated at 04/23/2022 21:40
+Last updated at 04/23/2022 21:41
