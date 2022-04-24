@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5a0PYT9j50U0ocwI-JmtoXw-t500x500.jpg">](https://soundcloud.com/northposse/mont-blanc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FkNKmQ30hLRfbX84-HMm6dA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/u-aint-solid-wcutspace)
 
-**Artist**: NORTH POSSE 
+**Artist**: kushface ☤ 
 
-**Track**: MONT BLANC 2
+**Track**: U AINT SOLID (W/ CUTSPACE)
 
-Last updated at 04/24/2022 07:44
+Last updated at 04/24/2022 08:18
