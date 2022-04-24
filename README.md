@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwOu7QnvF5ZD1cF1-gNTKSg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/camouflage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GsLjvVJazQMzg0mu-cdpBnA-t500x500.jpg">](https://soundcloud.com/dmonskull/walk-around-wita-stick-1)
 
-**Artist**: kushface ☤ 
+**Artist**: DMONSKULL 
 
-**Track**: CAMOUFLAGE
+**Track**: WALK AROUND WITA STICK
 
-Last updated at 04/24/2022 09:07
+Last updated at 04/24/2022 09:10
