@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nKZbOyNjSxJtWMsd-3pVcFA-t500x500.jpg">](https://soundcloud.com/fiendworldwide/katebi-carbon-cs2-coming-2020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwOu7QnvF5ZD1cF1-gNTKSg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/camouflage)
 
-**Artist**: FIEND WORLD 
+**Artist**: kushface ☤ 
 
-**Track**: Katebi ~ Carbon (CS.2)
+**Track**: CAMOUFLAGE
 
-Last updated at 04/24/2022 09:03
+Last updated at 04/24/2022 09:07
