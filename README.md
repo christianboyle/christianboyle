@@ -4,6 +4,6 @@
 
 **Artist**: Bobby Shmurda 
 
-**Track**: Shmoney (Official Music Video) ft. Quavo, Rowdy Rebel
+**Track**: Hot N*gga (Official Music Video)
 
-Last updated at 04/23/2022 20:42
+Last updated at 04/23/2022 20:43
