@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MMq7FRpRc20T91ZF-AbDGEA-t500x500.jpg">](https://soundcloud.com/quixofficial/lab-kings-real-ones-quix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kvig7cs7VF2IFjKi-W6sdtQ-t500x500.jpg">](https://soundcloud.com/lucalush/tnght-higher-ground-luca-lush-remix-1)
 
-**Artist**: QUIX 
+**Artist**: ʟᴜᴄᴀ ʟᴜsʜ 
 
-**Track**: L.A.B & Kings - Real Ones (QUIX Remix)
+**Track**: 𝐓𝐍𝐆𝐇𝐓 - 𝐇𝐈𝐆𝐇𝐄𝐑 𝐆𝐑𝐎𝐔𝐍𝐃 [ 𝐋𝐔𝐂𝐀 𝐋𝐔𝐒𝐇 𝐑𝐄𝐌𝐈𝐗 ]
 
-Last updated at 04/23/2022 20:14
+Last updated at 04/23/2022 20:15
