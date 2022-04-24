@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TPoOOeLjwBVh1vRC-KpKzzw-t500x500.jpg">](https://soundcloud.com/rodmanebeats/activas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSAIRro4zbTqSl0p-sSVfbA-t500x500.jpg">](https://soundcloud.com/kiefguru/trap-door-w-stupidbeats)
 
-**Artist**: Rodmane 
+**Artist**: kiefguru 
 
-**Track**: ACTiVAS
+**Track**: TRAP DOOR w/ stupidbeats {DRIFT CLUB DEBUT}
 
-Last updated at 04/24/2022 08:58
+Last updated at 04/24/2022 09:01
