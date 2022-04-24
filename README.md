@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnvhJJUUSkANi5zq-0MgoFg-t500x500.jpg">](https://soundcloud.com/drevm/cut-em-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgyXD2krsNpgIAJa-rjifvA-t500x500.jpg">](https://soundcloud.com/alwaysproperrecords/hpshawty-berrymane-i-got-cheese-dope)
 
-**Artist**: DREVM 
+**Artist**: ALWAYS PROPER RECORDS 
 
-**Track**: cut 'em up
+**Track**: HPSHAWTY & BERRYMANE - I GOT CHEESE DOPE
 
-Last updated at 04/23/2022 21:06
+Last updated at 04/23/2022 21:07
