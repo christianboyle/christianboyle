@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgyXD2krsNpgIAJa-rjifvA-t500x500.jpg">](https://soundcloud.com/alwaysproperrecords/hpshawty-berrymane-i-got-cheese-dope)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUQvz6G5BAiZczT3-oHqWPg-t500x500.jpg">](https://soundcloud.com/sorrymane666/all-white-rari-w-berrymane)
 
-**Artist**: ALWAYS PROPER RECORDS 
+**Artist**: SORRYMANE666 
 
-**Track**: HPSHAWTY & BERRYMANE - I GOT CHEESE DOPE
+**Track**: ALL WHITE RARI W/ BERRYMANE
 
-Last updated at 04/23/2022 21:07
+Last updated at 04/23/2022 21:10
