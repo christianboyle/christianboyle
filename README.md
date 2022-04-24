@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsYuu63Mk99T665y-VgSbzA-t500x500.jpg">](https://soundcloud.com/aseri/fuck-compton-x-dwyck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEGZE2GFn3yBQyQ3-RSQvjw-t500x500.jpg">](https://soundcloud.com/codeinenwine/watch-out)
 
-**Artist**: A$ERI aka 4uJIeP u3 JIuTBbI =) 
+**Artist**: CODEWINE 
 
-**Track**: fuck compton x dwyck
+**Track**: WATCH OUT
 
-Last updated at 04/24/2022 08:22
+Last updated at 04/24/2022 08:25
