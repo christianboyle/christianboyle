@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKWynsvHGSXFr3U9-cdKE3Q-t500x500.jpg">](https://soundcloud.com/motatnz/elevate)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/2CNl_CCtE-I/maxresdefault.jpg">](https://www.youtube.com/watch?v=2CNl_CCtE-I)
 
-**Artist**: MOTAT 
+**Artist**: Lil Durk 
 
-**Track**: Elevate
+**Track**: Broadway Girls feat. Morgan Wallen - (Official Music Video)
 
-Last updated at 04/23/2022 22:00
+Last updated at 04/23/2022 22:27
