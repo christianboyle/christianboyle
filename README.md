@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5a0PYT9j50U0ocwI-JmtoXw-t500x500.jpg">](https://soundcloud.com/northposse/mont-blanc-2)
 
-**Artist**: FIEND WORLD 
+**Artist**: NORTH POSSE 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: MONT BLANC 2
 
-Last updated at 04/23/2022 23:45
+Last updated at 04/24/2022 07:44
