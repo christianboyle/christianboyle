@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5T7HE9bwyHlavVj7-0oonTg-t500x500.jpg">](https://soundcloud.com/sorrymane666/shawty-wit-da-biznizz)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/2CNl_CCtE-I/maxresdefault.jpg">](https://www.youtube.com/watch?v=2CNl_CCtE-I)
 
-**Artist**: SORRYMANE666 
+**Artist**: Lil Durk 
 
-**Track**: SHAWTY WIT DA BIZNIZZ
+**Track**: Broadway Girls feat. Morgan Wallen - (Official Music Video)
 
-Last updated at 04/23/2022 21:14
+Last updated at 04/23/2022 21:15
