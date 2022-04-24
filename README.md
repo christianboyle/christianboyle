@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/2CNl_CCtE-I/maxresdefault.jpg">](https://www.youtube.com/watch?v=2CNl_CCtE-I)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EteJDz0E3jXFjm4i-4i6TIg-t500x500.jpg">](https://soundcloud.com/motatnz/war-clips)
 
-**Artist**: Lil Durk 
+**Artist**: MOTAT 
 
-**Track**: Broadway Girls feat. Morgan Wallen - (Official Music Video)
+**Track**: WAR CLIPS
 
-Last updated at 04/23/2022 22:27
+Last updated at 04/23/2022 22:37
