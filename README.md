@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ReI6gvzVP0Y/maxresdefault.jpg">](https://www.youtube.com/watch?v=ReI6gvzVP0Y)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnvhJJUUSkANi5zq-0MgoFg-t500x500.jpg">](https://soundcloud.com/drevm/cut-em-up)
 
-**Artist**: New Edition 
+**Artist**: DREVM 
 
-**Track**: If It Isn't Love (Official Music Video)
+**Track**: cut 'em up
 
-Last updated at 04/23/2022 21:04
+Last updated at 04/23/2022 21:06
