@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCnMnP7aGhI0Lxjz-zXHv5g-t500x500.jpg">](https://soundcloud.com/plasticpet/yuyi-pop-my-heart-prod-plastic-pet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-My8AoUvpdiugu8XW-QzQyEg-t500x500.jpg">](https://soundcloud.com/aqnb/drainpuppet-baptism-2021-courtesy-the-artist)
 
-**Artist**: Plastic Pet 
+**Artist**: AQNB 
 
-**Track**: yuyi - pop my heart (prod. plastic pet)
+**Track**: Drainpuppet, 'Baptism' (2021). Courtesy the artist.
 
-Last updated at 04/25/2022 17:03
+Last updated at 04/25/2022 17:07
