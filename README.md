@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-My8AoUvpdiugu8XW-QzQyEg-t500x500.jpg">](https://soundcloud.com/aqnb/drainpuppet-baptism-2021-courtesy-the-artist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aFIzKNBqtIUPBv7L-2V8qyQ-t500x500.jpg">](https://soundcloud.com/emma_etc/security07112021-42-127x)
 
-**Artist**: AQNB 
+**Artist**: emma etc 
 
-**Track**: Drainpuppet, 'Baptism' (2021). Courtesy the artist.
+**Track**: security07112021-4.2-1.27x
 
-Last updated at 04/25/2022 17:07
+Last updated at 04/25/2022 17:11
