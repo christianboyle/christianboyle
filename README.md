@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fF2zWBZOL6qvDGdq-Oz4I0A-t500x500.jpg">](https://soundcloud.com/hotel-radio-paris/pc-music-3-months-of-mayhem-umru-070422)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oRSWOtpBPO64tzG-0tMJgw-t500x500.jpg">](https://soundcloud.com/diegovnavarro/elden-mix)
 
-**Artist**: Hotel Radio Paris 
+**Artist**: diego navarro 
 
-**Track**: PC MUSIC “3 MONTHS OF MAYHEM” UMRU 07.04.22 1/5
+**Track**: ELDEN MIX
 
-Last updated at 04/25/2022 12:40
+Last updated at 04/25/2022 15:13
