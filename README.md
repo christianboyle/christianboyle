@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yem81Bq1aSjPAc5V-e9LyJQ-t500x500.jpg">](https://soundcloud.com/jelluvsuxoxox/diana-starshine-i-finally-understand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4D3mQJnns7v2-0-t500x500.jpg">](https://soundcloud.com/astraking/silver)
 
-**Artist**: JEL: THE DIGITAL DREAM GIRL 
+**Artist**: Astra King 
 
-**Track**: diana starshine - i finally understand (w/ JEL: THE DIGITAL DREAM GIRL & ATTA)
+**Track**: Silver
 
-Last updated at 04/25/2022 17:13
+Last updated at 04/25/2022 17:15
