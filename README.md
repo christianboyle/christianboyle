@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOO3fIdLG38bqsT8-E31nCQ-t500x500.jpg">](https://soundcloud.com/twerknation28/dj-secret-guest-untwerks-me-damnshawty-oktwentytwentytwlou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yybJO6ZbsCl2QZV-hbeQ9Q-t500x500.jpg">](https://soundcloud.com/meandu2/ruin)
 
-**Artist**: TwerkNation28 
+**Artist**: me&u2 
 
-**Track**: DJ SECRET GUEST UNTWERKS ME #DAMNSHAWTY #OKTWENTYTWENTYTWLOU
+**Track**: ruin (ft. 067eoin, ptrl & mongleaux)
 
-Last updated at 04/25/2022 16:59
+Last updated at 04/25/2022 17:01
