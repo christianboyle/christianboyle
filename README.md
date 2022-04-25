@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yybJO6ZbsCl2QZV-hbeQ9Q-t500x500.jpg">](https://soundcloud.com/meandu2/ruin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCnMnP7aGhI0Lxjz-zXHv5g-t500x500.jpg">](https://soundcloud.com/plasticpet/yuyi-pop-my-heart-prod-plastic-pet)
 
-**Artist**: me&u2 
+**Artist**: Plastic Pet 
 
-**Track**: ruin (ft. 067eoin, ptrl & mongleaux)
+**Track**: yuyi - pop my heart (prod. plastic pet)
 
-Last updated at 04/25/2022 17:01
+Last updated at 04/25/2022 17:03
