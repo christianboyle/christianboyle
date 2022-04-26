@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-HjJ0CdUuZo8QWy94-fgkgGQ-t500x500.jpg">](https://soundcloud.com/f-ccc/oklou-fall-ag-cook-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133119736-126ll3-t500x500.jpg">](https://soundcloud.com/luv12334/pink-e-swear-stay-with-me-a-g-cook-remix)
 
-**Artist**: App Store 
+**Artist**: tods6 
 
-**Track**: Oklou - Fall (A.g. Cook Remix)
+**Track**: Pink E Swear - Stay With Me (A. G. Cook Remix)
 
-Last updated at 04/26/2022 17:01
+Last updated at 04/26/2022 17:03
