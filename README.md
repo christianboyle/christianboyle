@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wP4wSfPb65FGhjz9-AAlwYg-t500x500.jpg">](https://soundcloud.com/smokemachinetaipei/smoke-machine-podcast-146-pessimist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zP9DCSWkj7rb7H8m-TcJodg-t500x500.jpg">](https://soundcloud.com/doghouseradio/doghouse-radio-070)
 
-**Artist**: SMOKE MACHINE 
+**Artist**: Doghouse Radio 
 
-**Track**: Smoke Machine Podcast 146 Pessimist
+**Track**: DOGHOUSE RADIO #070
 
-Last updated at 04/26/2022 13:23
+Last updated at 04/26/2022 15:41
