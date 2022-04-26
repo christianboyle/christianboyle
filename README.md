@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zP9DCSWkj7rb7H8m-TcJodg-t500x500.jpg">](https://soundcloud.com/doghouseradio/doghouse-radio-070)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-GTSMWMqS34Mz63in-91BrJw-t500x500.jpg">](https://soundcloud.com/djshimamura/dj-shimamura-feat-marif-dream-up-dn20th-annv-rmx)
 
-**Artist**: Doghouse Radio 
+**Artist**: DJShimamura 
 
-**Track**: DOGHOUSE RADIO #070
+**Track**: DJ Shimamura feat. Mari*F - Dream UP (DN20TH ANNV RMX) (unfinished)
 
-Last updated at 04/26/2022 15:41
+Last updated at 04/26/2022 15:43
