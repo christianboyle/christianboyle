@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOqc9yqXcR3e-0-t500x500.jpg">](https://soundcloud.com/umru/umru-tony-velour-fraxiom-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aqmv2Nzz5SxR5hwa-QZSX3g-t500x500.jpg">](https://soundcloud.com/100gecs/gecgecgec-remix-feat-lil-west-and-tony-velour)
 
-**Artist**: umru 
+**Artist**: 100 gecs 
 
-**Track**: umru, Fraxiom, Tony Velour feat. Hannah Diamond - all i need
+**Track**: gecgecgec (Remix) (feat. Lil West and Tony Velour)
 
-Last updated at 04/26/2022 15:51
+Last updated at 04/26/2022 15:53
