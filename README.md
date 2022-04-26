@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133119736-126ll3-t500x500.jpg">](https://soundcloud.com/luv12334/pink-e-swear-stay-with-me-a-g-cook-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000220401251-35ze42-t500x500.jpg">](https://soundcloud.com/pcmus/me4u-a-g-cook-remix)
 
-**Artist**: tods6 
+**Artist**: PC Music ♩ 
 
-**Track**: Pink E Swear - Stay With Me (A. G. Cook Remix)
+**Track**: Danny L Harle - Me4U (A. G. Cook Remix)
 
-Last updated at 04/26/2022 17:03
+Last updated at 04/26/2022 17:05
