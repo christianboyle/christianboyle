@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000601845345-03zhnj-t500x500.jpg">](https://soundcloud.com/unreleasedpc2/hannah-diamond-hi-a-g-cook-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-HjJ0CdUuZo8QWy94-fgkgGQ-t500x500.jpg">](https://soundcloud.com/f-ccc/oklou-fall-ag-cook-remix)
 
-**Artist**: Unreleased PC 2 
+**Artist**: App Store 
 
-**Track**: Hannah Diamond - Hi (A. G. Cook Remix)
+**Track**: Oklou - Fall (A.g. Cook Remix)
 
-Last updated at 04/26/2022 16:59
+Last updated at 04/26/2022 17:01
