@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fF2zWBZOL6qvDGdq-Oz4I0A-t500x500.jpg">](https://soundcloud.com/hotel-radio-paris/pc-music-3-months-of-mayhem-umru-070422)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6pP1ZIaUNwFv-0-t500x500.jpg">](https://soundcloud.com/tonyvonurmind/euro-plug-feat-dylan-brady)
 
-**Artist**: Hotel Radio Paris 
+**Artist**: Tony Velour 
 
-**Track**: PC MUSIC “3 MONTHS OF MAYHEM” UMRU 07.04.22 1/5
+**Track**: EURO PLUG (feat. Dylan Brady)
 
-Last updated at 04/26/2022 15:57
+Last updated at 04/26/2022 16:07
