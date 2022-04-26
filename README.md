@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15TtLwRY48doMlSv-9l0Psw-t500x500.jpg">](https://soundcloud.com/sudoverse/crea-diem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzWZt9fhuwJbauJi-zpUbfg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bad-habits-roland-jones-x-kushface)
 
-**Artist**: Sudoverse 
+**Artist**: kushface ☤ 
 
-**Track**: Crea Diem
+**Track**: BAD HABITS (ROLAND JONES X KUSHFACE)
 
-Last updated at 04/26/2022 18:21
+Last updated at 04/26/2022 18:29
