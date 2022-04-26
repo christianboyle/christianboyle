@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h8GeVae7LIwyoLUi-iJ4nJw-t500x500.jpg">](https://soundcloud.com/thewozen/srchng4atimeweneverhad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fF2zWBZOL6qvDGdq-Oz4I0A-t500x500.jpg">](https://soundcloud.com/hotel-radio-paris/pc-music-3-months-of-mayhem-umru-070422)
 
-**Artist**: Radimir 
+**Artist**: Hotel Radio Paris 
 
-**Track**: Srchng4ATimeWeNeverHad
+**Track**: PC MUSIC “3 MONTHS OF MAYHEM” UMRU 07.04.22 1/5
 
-Last updated at 04/26/2022 15:55
+Last updated at 04/26/2022 15:57
