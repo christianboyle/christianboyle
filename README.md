@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udEQm2xAq1YM-0-t500x500.jpg">](https://soundcloud.com/phoenix/fior-di-latte-a-g-cook-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOqc9yqXcR3e-0-t500x500.jpg">](https://soundcloud.com/umru/umru-tony-velour-fraxiom-feat)
 
-**Artist**: Phoenix 
+**Artist**: umru 
 
-**Track**: Fior di Latte (A. G. Cook Remix)
+**Track**: umru, Fraxiom, Tony Velour feat. Hannah Diamond - all i need
 
-Last updated at 04/26/2022 15:49
+Last updated at 04/26/2022 15:51
