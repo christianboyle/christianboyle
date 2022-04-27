@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCfO3MSoheHzZL4GkK_gKfuw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zG00kMJunhjoeCPC-OjEwUQ-t500x500.jpg">](https://soundcloud.com/equitycollective/vamp?in=equitycollective/sets/seventhheavenvol1)
 
-**Artist**: 
-  
-    officialprimus
-  
-  
-  
-    officialprimus
-  
+**Artist**: Equity 
 
+**Track**: Dyzphoria & Aekae - Vamp
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Primus: A Tribute to Kings "Farewell to Kings"
-
-Last updated at 04/27/2022 15:35
+Last updated at 04/27/2022 17:01
