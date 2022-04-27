@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bxgEkcOQH9i-0-t500x500.jpg">](https://soundcloud.com/underscores/bozo-bozo-bozo-carolesdaughter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOfLNKVjZ1zrVbDy-PXytBw-t500x500.jpg">](https://soundcloud.com/sethrow/sethrow-far-away-volume-dip-clip?in=sethrow/sets/sethrow-a-new-dawn-album-track)
 
-**Artist**: underscores 
+**Artist**: SethroW 
 
-**Track**: Bozo bozo bozo (carolesdaughter Version)
+**Track**: SethroW - Far Away (Volume Dip Clip)
 
-Last updated at 04/27/2022 17:21
+Last updated at 04/27/2022 17:23
