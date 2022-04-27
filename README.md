@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zG00kMJunhjoeCPC-OjEwUQ-t500x500.jpg">](https://soundcloud.com/equitycollective/vamp?in=equitycollective/sets/seventhheavenvol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607652512-ztfmu3-t500x500.jpg">](https://soundcloud.com/sullye64/special-request-vortex-164-sully-remix)
 
-**Artist**: Equity 
+**Artist**: Sully 
 
-**Track**: Dyzphoria & Aekae - Vamp
+**Track**: SPECIAL REQUEST - Vortex 164 (Sully Remix)
 
-Last updated at 04/27/2022 17:01
+Last updated at 04/27/2022 17:09
