@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607652512-ztfmu3-t500x500.jpg">](https://soundcloud.com/sullye64/special-request-vortex-164-sully-remix)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCfO3MSoheHzZL4GkK_gKfuw)
 
-**Artist**: Sully 
+**Artist**: 
+  
+    officialprimus
+  
+  
+  
+    officialprimus
+  
 
-**Track**: SPECIAL REQUEST - Vortex 164 (Sully Remix)
 
-Last updated at 04/27/2022 10:40
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Primus: A Tribute to Kings "Farewell to Kings"
+
+Last updated at 04/27/2022 15:35
