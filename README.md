@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ph09ZGeKHx7fyN0b-NO2FVw-t500x500.jpg">](https://soundcloud.com/judgementg/dirty-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBtGRafk5GhUdw9B-lEhqyQ-t500x500.jpg">](https://soundcloud.com/rosa-au/rosa-018-garcon)
 
-**Artist**: Judgement G 
+**Artist**: Rosa 
 
-**Track**: DIRTY SKY
+**Track**: Rosa 018 - garçon
 
-Last updated at 04/28/2022 07:57
+Last updated at 04/28/2022 07:59
