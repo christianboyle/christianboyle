@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOfLNKVjZ1zrVbDy-PXytBw-t500x500.jpg">](https://soundcloud.com/sethrow/sethrow-far-away-volume-dip-clip?in=sethrow/sets/sethrow-a-new-dawn-album-track)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ph09ZGeKHx7fyN0b-NO2FVw-t500x500.jpg">](https://soundcloud.com/judgementg/dirty-sky)
 
-**Artist**: SethroW 
+**Artist**: Judgement G 
 
-**Track**: SethroW - Far Away (Volume Dip Clip)
+**Track**: DIRTY SKY
 
-Last updated at 04/27/2022 17:23
+Last updated at 04/28/2022 07:57
