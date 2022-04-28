@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBtGRafk5GhUdw9B-lEhqyQ-t500x500.jpg">](https://soundcloud.com/rosa-au/rosa-018-garcon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H0mOcTm4FP30-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-a-million-nights)
 
-**Artist**: Rosa 
+**Artist**: Gearbox Digital 
 
-**Track**: Rosa 018 - garçon
+**Track**: Avi8 - A Million Nights
 
-Last updated at 04/28/2022 07:59
+Last updated at 04/28/2022 08:31
