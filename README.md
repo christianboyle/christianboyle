@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQW0hw8SivQgAMym-m6t0FA-t500x500.jpg">](https://soundcloud.com/axenofficial/axen-dont-let-me-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnvhJJUUSkANi5zq-0MgoFg-t500x500.jpg">](https://soundcloud.com/drevm/cut-em-up)
 
-**Artist**: AXEN 
+**Artist**: DREVM 
 
-**Track**: AXEN - Don't Let Me Go
+**Track**: cut 'em up
 
-Last updated at 04/29/2022 15:43
+Last updated at 04/29/2022 15:45
