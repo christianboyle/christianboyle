@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h8GeVae7LIwyoLUi-iJ4nJw-t500x500.jpg">](https://soundcloud.com/thewozen/srchng4atimeweneverhad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6pP1ZIaUNwFv-0-t500x500.jpg">](https://soundcloud.com/tonyvonurmind/euro-plug-feat-dylan-brady)
 
-**Artist**: Radimir 
+**Artist**: Tony Velour 
 
-**Track**: Srchng4ATimeWeNeverHad
+**Track**: EURO PLUG (feat. Dylan Brady)
 
-Last updated at 04/29/2022 17:07
+Last updated at 04/29/2022 17:09
