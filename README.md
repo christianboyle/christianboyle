@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOO3fIdLG38bqsT8-E31nCQ-t500x500.jpg">](https://soundcloud.com/twerknation28/dj-secret-guest-untwerks-me-damnshawty-oktwentytwentytwlou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oRSWOtpBPO64tzG-0tMJgw-t500x500.jpg">](https://soundcloud.com/diegovnavarro/elden-mix)
 
-**Artist**: TwerkNation28 
+**Artist**: diego navarro 
 
-**Track**: DJ SECRET GUEST UNTWERKS ME #DAMNSHAWTY #OKTWENTYTWENTYTWLOU
+**Track**: ELDEN MIX
 
-Last updated at 04/29/2022 17:13
+Last updated at 04/29/2022 17:15
