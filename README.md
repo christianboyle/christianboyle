@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL8NI5do0aQtIBgI-BuPN4Q-t500x500.jpg">](https://soundcloud.com/djmag/premiere-yokubari-buki-vs-buki)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FCG5GA3ngw3T-0-t500x500.png">](https://soundcloud.com/teddykillerz/teddy-killerz-and-celldweller)
 
-**Artist**: djmag 
+**Artist**: Teddy Killerz 
 
-**Track**: Premiere: Yokubari ‘Buki Vs Buki’
+**Track**: Teddy Killerz and Celldweller - Clone (HIGHSOCIETY Remix)
 
-Last updated at 04/29/2022 15:59
+Last updated at 04/29/2022 16:03
