@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-51CmcfyLmWrejYze-zoIjdg-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/subraver-take-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjt6LW99zSBAq5xz-PyIKXA-t500x500.jpg">](https://soundcloud.com/sicrecords111/jazz-playaz-nostalgic-vacation-full-album)
 
-**Artist**: Dutch Master Works 
+**Artist**: SIC RECORDS 
 
-**Track**: Subraver - Take Me Up
+**Track**: JAZZ PLAYAZ - NOSTALGIC VACATION (FULL ALBUM)
 
-Last updated at 04/29/2022 10:11
+Last updated at 04/29/2022 10:13
