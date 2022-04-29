@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9iKuXHZdbCERsPLB-3BoL2A-t500x500.jpg">](https://soundcloud.com/odelagt/what-you-say)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL8NI5do0aQtIBgI-BuPN4Q-t500x500.jpg">](https://soundcloud.com/djmag/premiere-yokubari-buki-vs-buki)
 
-**Artist**: ødelagt 
+**Artist**: djmag 
 
-**Track**: what you say
+**Track**: Premiere: Yokubari ‘Buki Vs Buki’
 
-Last updated at 04/29/2022 15:57
+Last updated at 04/29/2022 15:59
