@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZavmV3l3SwIQXMy-yAycSA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-55-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-on-beat-106)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UC89dItegSy120X9dAhnKxMQ)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 
+  
+    Shelley FKA DRAM
+  
+  
+  
+    Shelley FKA DRAM
+  
 
-**Track**: Bonkers Beats #55 on Beat 106 Scotland with Shimamura 220422 (Hour 2)
 
-Last updated at 04/28/2022 08:49
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: DRAM - Broccoli feat. Lil Yachty (Official Music Video)
+
+Last updated at 04/28/2022 21:45
