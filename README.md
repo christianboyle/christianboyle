@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-to2Y8hHRQUackUPl-zwOcDw-t500x500.jpg">](https://soundcloud.com/bodysync/bodysync-forever-ft-nite-jewel?in=bodysync/sets/body-sync-radio-active)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwzbHGPAEyHVFuKa-ew16mg-t500x500.jpg">](https://soundcloud.com/bodysync/japan-1?in=bodysync/sets/body-sync-radio-active)
 
 **Artist**: Bodysync 
 
-**Track**: Forever (ft. Nite Jewel)
+**Track**: Japan (ft. Devin Morrison)
 
-Last updated at 04/30/2022 10:01
+Last updated at 04/30/2022 10:05
