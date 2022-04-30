@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h5gqYmGPf7AnGFFB-WW0m6A-t500x500.jpg">](https://soundcloud.com/rtmlock/same-ones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKvSMCdyN2jT3lRe-jOMhhA-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/2018-snippets-part2)
 
-**Artist**: LXWKXXY 
+**Artist**: LAZLOW 
 
-**Track**: SAME ONES
+**Track**: 2018 SNIPPETS PART.2
 
-Last updated at 04/30/2022 12:19
+Last updated at 04/30/2022 12:21
