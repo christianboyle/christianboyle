@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oRSWOtpBPO64tzG-0tMJgw-t500x500.jpg">](https://soundcloud.com/diegovnavarro/elden-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7BzPd2QyJ9ihaxU-LlkKMw-t500x500.jpg">](https://soundcloud.com/cranioid/empty-snow-halcyon-glow)
 
-**Artist**: diego navarro 
+**Artist**: cranioid 
 
-**Track**: ELDEN MIX
+**Track**: Empty Snow, Halcyon Glow
 
-Last updated at 04/29/2022 17:15
+Last updated at 04/30/2022 09:49
