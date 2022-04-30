@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CSjnCMqAMNj9Lzje-PyUaMA-t500x500.jpg">](https://soundcloud.com/bodysync/goodnight-1?in=bodysync/sets/body-sync-radio-active)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h5gqYmGPf7AnGFFB-WW0m6A-t500x500.jpg">](https://soundcloud.com/rtmlock/same-ones)
 
-**Artist**: Bodysync 
+**Artist**: LXWKXXY 
 
-**Track**: Goodnight
+**Track**: SAME ONES
 
-Last updated at 04/30/2022 10:33
+Last updated at 04/30/2022 12:19
