@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKvSMCdyN2jT3lRe-jOMhhA-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/2018-snippets-part2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sw7NliMSoiyxwof6-KmAgQA-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/2018-snippets-part1)
 
 **Artist**: LAZLOW 
 
-**Track**: 2018 SNIPPETS PART.2
+**Track**: 2018 SNIPPETS PART.1
 
-Last updated at 05/02/2022 09:35
+Last updated at 05/02/2022 09:51
