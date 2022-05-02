@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3nlU04D7sJV1-0-t500x500.jpg">](https://soundcloud.com/underscores/tongue-in-cheek-lunice-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gmdbjNlmhjKJeFtN-eNKyTQ-t500x500.jpg">](https://soundcloud.com/umru/betterones)
 
-**Artist**: underscores 
+**Artist**: umru 
 
-**Track**: Tongue in cheek (Lunice Version)
+**Track**: MC Charli do XCX ― Good Ones (umru, Cali Cartier, DJ RAMEMES, warpstr, Milkfish & Mu540 Remix)
 
-Last updated at 05/02/2022 16:35
+Last updated at 05/02/2022 16:37
