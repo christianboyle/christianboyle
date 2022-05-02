@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6dk4E9JYz8KQb5z-rljbIg-t500x500.jpg">](https://soundcloud.com/babydreamgirl/sorry-bout-that-angel-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000636289354-gqhv8h-t500x500.jpg">](https://soundcloud.com/yg_swe/whateverend-of-time?in=f3arme/sets/soundcloud-hi-lite-playlist)
 
-**Artist**: Angel Money 
+**Artist**: Gud 
 
-**Track**: Sorry Bout That - YEAT (ANGEL REMIX)
+**Track**: whatever(end Of Time)
 
-Last updated at 05/02/2022 16:43
+Last updated at 05/02/2022 16:45
