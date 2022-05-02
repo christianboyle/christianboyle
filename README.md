@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000636289354-gqhv8h-t500x500.jpg">](https://soundcloud.com/yg_swe/whateverend-of-time?in=f3arme/sets/soundcloud-hi-lite-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ToxvkNnG7nt0aiou-O9xMrQ-t500x500.jpg">](https://soundcloud.com/acidsouljah/basedlikeme)
 
-**Artist**: Gud 
+**Artist**: Acid Souljah 
 
-**Track**: whatever(end Of Time)
+**Track**: (Kenopro79) Acid Souljah - Based Like Me (Prod. Rapallo) *MV OTW!!*
 
-Last updated at 05/02/2022 16:45
+Last updated at 05/02/2022 16:55
