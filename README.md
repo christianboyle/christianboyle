@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Quefpdf2E9j3URT8-IE4n5g-t500x500.jpg">](https://soundcloud.com/mikeyenwright/sky-blue-birthwork-18)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000639013822-g008ne-t500x500.jpg">](https://soundcloud.com/focusgr0up/repairfrequency)
 
-**Artist**: Mikey 2 
+**Artist**: Focus Group 
 
-**Track**: SKY BLUE BIRTHWORK 18
+**Track**: DNA REPAIR FREQUENCY [FG006]
 
-Last updated at 05/02/2022 16:59
+Last updated at 05/02/2022 17:03
