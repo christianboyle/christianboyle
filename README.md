@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ToxvkNnG7nt0aiou-O9xMrQ-t500x500.jpg">](https://soundcloud.com/acidsouljah/basedlikeme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000639013822-g008ne-t500x500.jpg">](https://soundcloud.com/focusgr0up/repairfrequency)
 
-**Artist**: Acid Souljah 
+**Artist**: Focus Group 
 
-**Track**: (Kenopro79) Acid Souljah - Based Like Me (Prod. Rapallo) *MV OTW!!*
+**Track**: DNA REPAIR FREQUENCY [FG006]
 
-Last updated at 05/02/2022 16:55
+Last updated at 05/02/2022 16:57
