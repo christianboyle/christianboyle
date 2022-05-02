@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92pT3dYNzye5MxyU-2e3r4A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-56-on-beat-106?in=beat106scotland/sets/bonkers-beats-56-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7BzPd2QyJ9ihaxU-LlkKMw-t500x500.jpg">](https://soundcloud.com/cranioid/empty-snow-halcyon-glow)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: cranioid 
 
-**Track**: Bonkers Beats #56 on Beat 106 Scotland with Ravine 300422 (Hour 2)
+**Track**: Empty Snow, Halcyon Glow
 
-Last updated at 05/02/2022 16:31
+Last updated at 05/02/2022 16:33
