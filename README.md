@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UC8Ibqx5ELx0Ho7J3L0OlQRA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607652512-ztfmu3-t500x500.jpg">](https://soundcloud.com/sullye64/special-request-vortex-164-sully-remix)
 
-**Artist**: 
-  
-    Drakeo the Ruler
-  
-  
-  
-    Drakeo the Ruler
-  
+**Artist**: Sully 
 
+**Track**: SPECIAL REQUEST - Vortex 164 (Sully Remix)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Drakeo The Ruler - "Betchua Freestyle" Shot By @InsomniaMusicGroup Films  [Official Music Video]
-
-Last updated at 05/02/2022 17:15
+Last updated at 05/02/2022 17:20
