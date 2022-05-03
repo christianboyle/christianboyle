@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Flzgd1JbHqfcURJ5-GlugWg-t500x500.jpg">](https://soundcloud.com/imnext/on-a-stugots)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyQjr6uFUTxqs5B8-e2953A-t500x500.jpg">](https://soundcloud.com/piivyur/night-club)
 
-**Artist**: BAD IDEA 
+**Artist**: PIIVYUR 
 
-**Track**: On A Stugots
+**Track**: NIGHT CLUB
 
-Last updated at 05/03/2022 12:08
+Last updated at 05/03/2022 12:10
