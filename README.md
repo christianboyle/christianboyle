@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DngRuGSpZCJ4Xi5H-e2ypWg-t500x500.jpg">](https://soundcloud.com/sacrifice7/no-remorse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0dkwiRcsGwfUueyl-yKu2OQ-t500x500.jpg">](https://soundcloud.com/exodus1900/life_prod_nulko-lusi-mp3)
 
-**Artist**: SACRIFICE 
+**Artist**: Exodus1900 
 
-**Track**: NO REMORSE
+**Track**: LIFE_PROD_NULKO+LUSI.mp3
 
-Last updated at 05/03/2022 08:40
+Last updated at 05/03/2022 09:16
