@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nNkrtjXv6mQOW9Zl-7uo4gA-t500x500.jpg">](https://soundcloud.com/vstro/cuttin-through-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ESmOZQQzfDRKSKGc-2NWLHw-t500x500.jpg">](https://soundcloud.com/eust4che/just-maintaining-w-marguins)
 
-**Artist**: VSTRO 
+**Artist**: Eust4che 
 
-**Track**: Cuttin Through
+**Track**: JUST MAINTAINING w/ marguins (HIDDEN LABORATORY)
 
-Last updated at 05/03/2022 11:48
+Last updated at 05/03/2022 11:50
