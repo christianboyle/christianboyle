@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ySZ54htcEia-0-t500x500.jpg">](https://soundcloud.com/htrk/fast-friend-demo?in=htrk/sets/death-is-a-dream-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V96xlxxcdDDIseMQ-ES6M1w-t500x500.jpg">](https://soundcloud.com/kurisutarukitsune/lilliumprogression)
 
-**Artist**: HTRK 
+**Artist**: クリスタルKITSUNE 
 
-**Track**: Fast Friend (Demo)
+**Track**: LILLIUM/PROGRESSION
 
-Last updated at 05/03/2022 08:34
+Last updated at 05/03/2022 08:38
