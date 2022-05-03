@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t8CfzJFqZv2zxjkP-sHN6Xg-t500x500.jpg">](https://soundcloud.com/lucxdbeats/penthouse-pt3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5oji7svKjYKJszyB-Wvx0ew-t500x500.jpg">](https://soundcloud.com/rvfvelbeats/sequential)
 
-**Artist**: Lucxd 
+**Artist**: RVFVEL 
 
-**Track**: PENTHOUSE pt3
+**Track**: SEQUENTIAL
 
-Last updated at 05/03/2022 11:58
+Last updated at 05/03/2022 12:02
