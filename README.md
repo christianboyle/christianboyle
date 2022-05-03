@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XFcdt7OyHRy4L1rr-GCPznw-t500x500.jpg">](https://soundcloud.com/hypercam2000/unlisted0006-purple-denim-mix)
 
-**Artist**: FIEND WORLD 
+**Artist**: hypercam2 
 
-**Track**: TIR3D X CUTSPACE  ~ VERTIGO
+**Track**: Unlisted0006 - purple denim (mix)
 
-Last updated at 05/03/2022 09:38
+Last updated at 05/03/2022 09:40
