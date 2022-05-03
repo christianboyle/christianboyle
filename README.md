@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XFcdt7OyHRy4L1rr-GCPznw-t500x500.jpg">](https://soundcloud.com/hypercam2000/unlisted0006-purple-denim-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
 
-**Artist**: hypercam2 
+**Artist**: KATEBI 
 
-**Track**: Unlisted0006 - purple denim (mix)
+**Track**: ORACLE
 
-Last updated at 05/03/2022 09:40
+Last updated at 05/03/2022 09:42
