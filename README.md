@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeRVAjLEE41OdC44-MBilPA-t500x500.jpg">](https://soundcloud.com/prodmrdirtbag/barkin-at-a-knot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnHAVrqYgQ3WRzhE-E8C12g-t500x500.jpg">](https://soundcloud.com/killahmantis/so-far-away)
 
-**Artist**: MrDirtBag 
+**Artist**: KILLER MANTIS 
 
-**Track**: BARKIN' AT A KNOT
+**Track**: SO FAR AWAY w/ 𝖘𝖍𝖊𝖑𝖇𝖞
 
-Last updated at 05/03/2022 11:42
+Last updated at 05/03/2022 11:44
