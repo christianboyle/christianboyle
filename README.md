@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzgTMmtYEOiEyzHz-pSwNLg-t500x500.jpg">](https://soundcloud.com/katebi/roud3?in=katebi/sets/speedrun-bringbacktread)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
 
-**Artist**: KATEBI 
+**Artist**: FIEND WORLD 
 
-**Track**: Roud3
+**Track**: TIR3D X CUTSPACE  ~ VERTIGO
 
-Last updated at 05/03/2022 09:36
+Last updated at 05/03/2022 09:38
