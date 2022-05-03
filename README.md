@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnHAVrqYgQ3WRzhE-E8C12g-t500x500.jpg">](https://soundcloud.com/killahmantis/so-far-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nNkrtjXv6mQOW9Zl-7uo4gA-t500x500.jpg">](https://soundcloud.com/vstro/cuttin-through-1)
 
-**Artist**: KILLER MANTIS 
+**Artist**: VSTRO 
 
-**Track**: SO FAR AWAY w/ 𝖘𝖍𝖊𝖑𝖇𝖞
+**Track**: Cuttin Through
 
-Last updated at 05/03/2022 11:44
+Last updated at 05/03/2022 11:48
