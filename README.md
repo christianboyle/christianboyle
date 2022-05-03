@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0zMyVmeaeKFyUtP-QDPM3Q-t500x500.jpg">](https://soundcloud.com/kevmth/tears-of-serenade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGhphqWzCjz0vPQB-fOXDJw-t500x500.jpg">](https://soundcloud.com/revbeatz/never-right)
 
-**Artist**: kvvv3 
+**Artist**: Re_V 
 
-**Track**: Tears of Serenade EP (Featuring Sway55)
+**Track**: NEVER RIGHT
 
-Last updated at 05/03/2022 10:56
+Last updated at 05/03/2022 11:08
