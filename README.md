@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzgTMmtYEOiEyzHz-pSwNLg-t500x500.jpg">](https://soundcloud.com/katebi/spaceman?in=katebi/sets/speedrun-bringbacktread)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzgTMmtYEOiEyzHz-pSwNLg-t500x500.jpg">](https://soundcloud.com/katebi/arabia3-w-cutspace?in=katebi/sets/speedrun-bringbacktread)
 
 **Artist**: KATEBI 
 
-**Track**: Spaceman
+**Track**: Arabia3  w/ @cutspace
 
-Last updated at 05/03/2022 09:26
+Last updated at 05/03/2022 09:28
