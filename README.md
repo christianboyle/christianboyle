@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGhphqWzCjz0vPQB-fOXDJw-t500x500.jpg">](https://soundcloud.com/revbeatz/never-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
 
-**Artist**: Re_V 
+**Artist**: KATEBI 
 
-**Track**: NEVER RIGHT
+**Track**: ORACLE
 
-Last updated at 05/03/2022 11:08
+Last updated at 05/03/2022 11:10
