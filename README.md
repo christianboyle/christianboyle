@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnHAVrqYgQ3WRzhE-E8C12g-t500x500.jpg">](https://soundcloud.com/killahmantis/so-far-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/shotback-w-christianmk?in=katebi/sets/vectors-ep)
 
-**Artist**: KILLER MANTIS 
+**Artist**: KATEBI 
 
-**Track**: SO FAR AWAY w/ 𝖘𝖍𝖊𝖑𝖇𝖞
+**Track**: SHOTBACK W/ CHRISTIANMK
 
-Last updated at 05/03/2022 10:16
+Last updated at 05/03/2022 10:18
