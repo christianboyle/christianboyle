@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9rQrijEgBrdY1nB-Kj5MHQ-t500x500.jpg">](https://soundcloud.com/allegedbeats/a-numbers-game-w-inight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
 
-**Artist**: ALLEGED 
+**Artist**: KATEBI 
 
-**Track**: A Numbers Game w/ In$ight
+**Track**: ORACLE
 
-Last updated at 05/03/2022 12:12
+Last updated at 05/03/2022 12:14
