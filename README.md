@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AMVgDFQUkIk0Qzf7-yoVHTQ-t500x500.jpg">](https://soundcloud.com/feeneyyy/no-stress)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GsLjvVJazQMzg0mu-cdpBnA-t500x500.jpg">](https://soundcloud.com/dmonskull/walk-around-wita-stick-1)
 
-**Artist**: feeney 
+**Artist**: DMONSKULL 
 
-**Track**: NO STRESS
+**Track**: WALK AROUND WITA STICK
 
-Last updated at 05/04/2022 10:33
+Last updated at 05/04/2022 10:37
