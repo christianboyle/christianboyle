@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXp7hiCj8dyE9aX7-ZSQNLg-t500x500.jpg">](https://soundcloud.com/jvnn3/doubt-lifes-a-bitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2qOXQlyrl5ck5KC-aNRfdg-t500x500.jpg">](https://soundcloud.com/203nvdo/glitter)
 
-**Artist**: jvnn3 
+**Artist**: nvdo 
 
-**Track**: DOUBT/LIFE’S A BITCH
+**Track**: GLITTER
 
-Last updated at 05/04/2022 10:13
+Last updated at 05/04/2022 10:17
