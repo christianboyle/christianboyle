@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ij3H9Mkby9N8LEX-ZCPd3A-t500x500.jpg">](https://soundcloud.com/prodkushmane/ridinclean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
 
-**Artist**: kushmane 
+**Artist**: KATEBI 
 
-**Track**: RIDIN CLEAN
+**Track**: ORACLE
 
-Last updated at 05/04/2022 11:13
+Last updated at 05/04/2022 12:17
