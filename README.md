@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/memory-card-corrupted?in=katebi/sets/vectors-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/time-crisis-6?in=katebi/sets/vectors-ep)
 
 **Artist**: KATEBI 
 
-**Track**: MEMORY CARD // CORRUPTED
+**Track**: TIME CRISIS
 
-Last updated at 05/04/2022 09:13
+Last updated at 05/04/2022 09:19
