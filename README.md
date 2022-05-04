@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jjaPeHmvCvVU6Tyk-PNMLDA-t500x500.jpg">](https://soundcloud.com/dvrx666/trap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bU6jSWQ4fR78evx4-bu8btQ-t500x500.jpg">](https://soundcloud.com/jethonbeatz/make-a-chill-drip)
 
-**Artist**: DVRX 
+**Artist**: jethon. 
 
-**Track**: TRAP
+**Track**: MAKE A CHILL DRIP
 
-Last updated at 05/04/2022 10:47
+Last updated at 05/04/2022 10:49
