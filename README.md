@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dtuaQdXtEwsRejaB-EuNK7A-t500x500.jpg">](https://soundcloud.com/evileaf/feel-the-way-i-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTB8NdIYTnRu0FCF-k4Qq8w-t500x500.jpg">](https://soundcloud.com/svspectdot/bands-w-grouf)
 
-**Artist**: EVILEAF 
+**Artist**: svspect. 
 
-**Track**: FEEL THE WAY I FEEL
+**Track**: BANDS /w Grouf$
 
-Last updated at 05/04/2022 11:07
+Last updated at 05/04/2022 11:09
