@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PDE9dO1IfY2KwTVR-iyOGlw-t500x500.jpg">](https://soundcloud.com/fireplex21/powder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePeguUjc46vkY4Jz-845Yyg-t500x500.jpg">](https://soundcloud.com/iaminfms/down-in-a-hole-w-sway)
 
-**Artist**: Fireplex 
+**Artist**: iNFMS 
 
-**Track**: Powder
+**Track**: DOWN IN A HOLE w/ SWAY
 
-Last updated at 05/04/2022 10:01
+Last updated at 05/04/2022 10:03
