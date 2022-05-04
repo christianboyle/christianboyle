@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bU6jSWQ4fR78evx4-bu8btQ-t500x500.jpg">](https://soundcloud.com/jethonbeatz/make-a-chill-drip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UPBCAzcRksVynzYl-zXqyBA-t500x500.jpg">](https://soundcloud.com/whoishaku/samo)
 
-**Artist**: jethon. 
+**Artist**: haku 
 
-**Track**: MAKE A CHILL DRIP
+**Track**: SAMO
 
-Last updated at 05/04/2022 10:49
+Last updated at 05/04/2022 10:53
