@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/shotback-w-christianmk?in=katebi/sets/vectors-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMJlHgUW6yyylpes-TLNDTA-t500x500.jpg">](https://soundcloud.com/lazarusxa/always-my-fault)
 
-**Artist**: KATEBI 
+**Artist**: Lazaru$ 
 
-**Track**: SHOTBACK W/ CHRISTIANMK
+**Track**: ALWAYS MY FAULT
 
-Last updated at 05/04/2022 09:37
+Last updated at 05/04/2022 09:39
