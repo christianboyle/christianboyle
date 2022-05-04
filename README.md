@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tR1zFre12K7FD3qV-uVWSSw-t500x500.jpg">](https://soundcloud.com/sappy94/i-swear-ill-be-fine-read-desc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PDE9dO1IfY2KwTVR-iyOGlw-t500x500.jpg">](https://soundcloud.com/fireplex21/powder)
 
-**Artist**: Sappy 
+**Artist**: Fireplex 
 
-**Track**: i swear i'll be fine
+**Track**: Powder
 
-Last updated at 05/04/2022 09:59
+Last updated at 05/04/2022 10:01
