@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LedvP2jlryxULGa-d8tY1w-t500x500.jpg">](https://soundcloud.com/sxlvr/purpp2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXp7hiCj8dyE9aX7-ZSQNLg-t500x500.jpg">](https://soundcloud.com/jvnn3/doubt-lifes-a-bitch)
 
-**Artist**: sxlvr 
+**Artist**: jvnn3 
 
-**Track**: PURPLE RAIN PT 2 W/ 𝖓𝖝𝖊𝖝𝖒𝖝𝖔
+**Track**: DOUBT/LIFE’S A BITCH
 
-Last updated at 05/04/2022 10:09
+Last updated at 05/04/2022 10:13
