@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/memory-card-corrupted?in=katebi/sets/vectors-ep)
 
 **Artist**: KATEBI 
 
-**Track**: ORACLE
+**Track**: MEMORY CARD // CORRUPTED
 
-Last updated at 05/04/2022 12:17
+Last updated at 05/04/2022 12:21
