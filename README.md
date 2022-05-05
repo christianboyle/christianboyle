@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qIO6tvt9oDei6ELW-xeWRzg-t500x500.jpg">](https://soundcloud.com/ghostdragonofficial/couldve-been-us-w-dreamr-ashley-alisha-rough-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V96xlxxcdDDIseMQ-ES6M1w-t500x500.jpg">](https://soundcloud.com/kurisutarukitsune/lilliumprogression)
 
-**Artist**: GhostDragon 
+**Artist**: クリスタルKITSUNE 
 
-**Track**: could've been us (w/ dreamr. & Ashley Alisha)
+**Track**: LILLIUM/PROGRESSION
 
-Last updated at 05/04/2022 21:19
+Last updated at 05/04/2022 21:21
