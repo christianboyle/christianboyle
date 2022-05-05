@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc5ptCnyqgmGOqPp-kICXew-t500x500.jpg">](https://soundcloud.com/baauer/boptape7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Beuzpzucc8lCLyhN-UAg4nQ-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol10-cody-valdez)
 
-**Artist**: Baauer 
+**Artist**: TEDDY COLOUR 
 
-**Track**: 7 - Cha Cha GAAAS
+**Track**: THE PHONK SHOW VOL.10 (CODY VALDEZ)
 
-Last updated at 05/04/2022 22:07
+Last updated at 05/05/2022 12:43
