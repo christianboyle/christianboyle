@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053843764-lzgabb-t500x500.jpg">](https://soundcloud.com/djvice/dwntwn-stood-me-up-vice-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000034144685-ys40uq-t500x500.jpg">](https://soundcloud.com/dwntwnmusic/hungry-hearts)
 
-**Artist**: Vice 
+**Artist**: DWNTWN 
 
-**Track**: DWNTWN - Stood Me Up (Vice Remix)
+**Track**: Hungry Hearts
 
-Last updated at 05/08/2022 10:16
+Last updated at 05/08/2022 10:18
