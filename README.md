@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVSNdJtzy3IsJSJa-Eg1zUQ-t500x500.jpg">](https://soundcloud.com/plusagency/vizionn?in=vizionn_fr/sets/vizionn-mixes-podcasts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPx1S69cLNzneyNY-jTnYjA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-024-krma-groove-theory)
 
-**Artist**: PLUS AGENCY 
+**Artist**: Quality Goods Records 
 
-**Track**: PLUSCAST #053 - VIZIONN
+**Track**: QGRS-024 | KRMA - Groove Theory
 
-Last updated at 05/08/2022 10:32
+Last updated at 05/08/2022 17:18
