@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw3ALTrbIb3TUThy-m3X0nQ-t500x500.jpg">](https://soundcloud.com/wearenova/prime-ordnance-fluxe-odyssey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGhMLFh7BGMf-0-t500x500.png">](https://soundcloud.com/sanholobeats/bb-u-ok-darby-remix)
 
-**Artist**: Novatone 
+**Artist**: San Holo 
 
-**Track**: Prime Ordnance & fluxe - Odyssey (feat. Fossegrim)
+**Track**: bb u ok? (Darby Remix)
 
-Last updated at 05/08/2022 08:54
+Last updated at 05/08/2022 08:58
