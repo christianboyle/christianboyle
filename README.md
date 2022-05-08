@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJ4vGo7ZeKGXqgcm-lkTkzA-t500x500.jpg">](https://soundcloud.com/nanode/lighthouse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yw3ALTrbIb3TUThy-m3X0nQ-t500x500.jpg">](https://soundcloud.com/wearenova/prime-ordnance-fluxe-odyssey)
 
-**Artist**: Nanode 
+**Artist**: Novatone 
 
-**Track**: LIGHTHOUSE
+**Track**: Prime Ordnance & fluxe - Odyssey (feat. Fossegrim)
 
-Last updated at 05/08/2022 08:50
+Last updated at 05/08/2022 08:54
