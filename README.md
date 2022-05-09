@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X49CqhiXzRWeEAPd-TM6yfA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/optimistic-soul-the-shine-a-light-on-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGhMLFh7BGMf-0-t500x500.png">](https://soundcloud.com/sanholobeats/bb-u-ok-darby-remix)
 
-**Artist**: Ransom Note 
+**Artist**: San Holo 
 
-**Track**: Optimistic Soul: The 'Shine A Light On' Mix
+**Track**: bb u ok? (Darby Remix)
 
-Last updated at 05/09/2022 13:51
+Last updated at 05/09/2022 16:11
