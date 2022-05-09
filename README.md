@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YP7xpyFiGJmylhjv-5ApbMg-t500x500.jpg">](https://soundcloud.com/balamii/methods-of-mellow-may-2022)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCSugZEYrWbzqIWGD195V-YA)
 
-**Artist**: Balamii 
+**Artist**: 
+  
+    Gucci Mane
+  
+  
+  
+    Gucci Mane
+  
 
-**Track**: Methods of Mellow - May 2022
 
-Last updated at 05/09/2022 09:23
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Gucci Mane - I Get The Bag feat. Migos [Official Music Video]
+
+Last updated at 05/09/2022 12:31
