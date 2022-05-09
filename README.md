@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCSugZEYrWbzqIWGD195V-YA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000312917829-yo1fyy-t500x500.jpg">](https://soundcloud.com/so-shifty/springting2018)
 
-**Artist**: 
-  
-    Gucci Mane
-  
-  
-  
-    Gucci Mane
-  
+**Artist**: So Shifty 
 
+**Track**: Spring Ting 2018
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Gucci Mane - I Get The Bag feat. Migos [Official Music Video]
-
-Last updated at 05/09/2022 12:31
+Last updated at 05/09/2022 12:43
