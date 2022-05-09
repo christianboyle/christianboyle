@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPx1S69cLNzneyNY-jTnYjA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-024-krma-groove-theory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXamTo95cZ24d5WD-idr9LA-t500x500.jpg">](https://soundcloud.com/10_05/time-spent)
 
-**Artist**: Quality Goods Records 
+**Artist**: ‎mayten 
 
-**Track**: QGRS-024 | KRMA - Groove Theory
+**Track**: time spent
 
-Last updated at 05/08/2022 17:18
+Last updated at 05/09/2022 08:55
