@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-da8XZoXGuklyDQQz-23ODdQ-t500x500.jpg">](https://soundcloud.com/daholymane/187-murder-zone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-er4LqBXc5Ol9BwT5-NIqbyg-t500x500.jpg">](https://soundcloud.com/7senss/how-2-become-a-real-person?in=7senss/sets/tutorials)
 
-**Artist**: HOLYMANE 
+**Artist**: senses. 
 
-**Track**: ROUGE CUP
+**Track**: become a real person「3125」
 
-Last updated at 05/09/2022 16:13
+Last updated at 05/09/2022 16:15
