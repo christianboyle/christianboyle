@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000144982970-jf26ux-t500x500.jpg">](https://soundcloud.com/so-shifty/vital-supply-2016-soca-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X49CqhiXzRWeEAPd-TM6yfA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/optimistic-soul-the-shine-a-light-on-mix)
 
-**Artist**: So Shifty 
+**Artist**: Ransom Note 
 
-**Track**: Vital Supply (2016 Soca Mix)
+**Track**: Optimistic Soul: The 'Shine A Light On' Mix
 
-Last updated at 05/09/2022 12:45
+Last updated at 05/09/2022 13:51
