@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXamTo95cZ24d5WD-idr9LA-t500x500.jpg">](https://soundcloud.com/10_05/time-spent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YP7xpyFiGJmylhjv-5ApbMg-t500x500.jpg">](https://soundcloud.com/balamii/methods-of-mellow-may-2022)
 
-**Artist**: ‎mayten 
+**Artist**: Balamii 
 
-**Track**: time spent
+**Track**: Methods of Mellow - May 2022
 
-Last updated at 05/09/2022 08:55
+Last updated at 05/09/2022 09:23
