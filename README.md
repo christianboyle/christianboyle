@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X90Lc8BvSmHNztkv-TCvpBg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-57-on-beat-106?in=beat106scotland/sets/bonkers-beats-57-on-beat-106-scotland-with-kaylene-scar-rikki-arkitech-060522)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-recB9J5WEiivWszC-yigXTg-t500x500.jpg">](https://soundcloud.com/spacelabrecords/lora_space_lab)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: space lab 
 
-**Track**: Bonkers Beats #57 on Beat 106 Scotland with Rikki Arkitech 060522 (Hour 2)
+**Track**: space•cast 008 - Lora Mipsum
 
-Last updated at 05/09/2022 17:07
+Last updated at 05/10/2022 12:21
