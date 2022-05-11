@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-recB9J5WEiivWszC-yigXTg-t500x500.jpg">](https://soundcloud.com/spacelabrecords/lora_space_lab)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8SGxlPSWbaTXpsP-k7gz1w-t500x500.jpg">](https://soundcloud.com/cheekymusicgroup/cheeky004-various-artists-denham-audio-friends-vol-2)
 
-**Artist**: space lab 
+**Artist**: Cheeky Music Group 
 
-**Track**: space•cast 008 - Lora Mipsum
+**Track**: CHEEKY004 // Various Artists - Denham Audio & Friends Vol. 2
 
-Last updated at 05/10/2022 12:21
+Last updated at 05/11/2022 07:45
