@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-recB9J5WEiivWszC-yigXTg-t500x500.jpg">](https://soundcloud.com/spacelabrecords/lora_space_lab)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000312917829-yo1fyy-t500x500.jpg">](https://soundcloud.com/so-shifty/springting2018)
 
-**Artist**: space lab 
+**Artist**: So Shifty 
 
-**Track**: space•cast 008 - Lora Mipsum
+**Track**: Spring Ting 2018
 
-Last updated at 05/13/2022 15:34
+Last updated at 05/13/2022 16:30
