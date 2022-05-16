@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C4kQwOXlzHnPELQz-RhaNIw-t500x500.jpg">](https://soundcloud.com/ontherecradio/prospa-on-the-record-053)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Hsb5eDrzEw58o52-F1vHnQ-t500x500.jpg">](https://soundcloud.com/thisisczer/americanghostvoices-czer-mashup)
 
-**Artist**: On The Record 
+**Artist**: C-ZER 
 
-**Track**: Prospa - On The Record #053
+**Track**: AMERICAN GHOST VOICES (C-ZER MASHUP)
 
-Last updated at 05/13/2022 17:12
+Last updated at 05/16/2022 08:43
