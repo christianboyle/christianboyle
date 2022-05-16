@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jX3lrx9sJYNUm4Fy-zyslMA-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol11-yung-yari-special-vinyl-set)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCTGvupQMw-IokKJ6U9zFgjQ)
 
-**Artist**: TEDDY COLOUR 
+**Artist**: 
+  
+    Shoreline Mafia
+  
+  
+  
+    Shoreline Mafia
+  
 
-**Track**: THE PHONK SHOW VOL.11 (YUNG YARI SPECIAL VINYL SET)
 
-Last updated at 05/16/2022 11:29
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Shoreline Mafia (Rob Vicious) - Traplantic [Official Music Video]
+
+Last updated at 05/16/2022 11:31
