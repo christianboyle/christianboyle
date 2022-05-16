@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MDMNxZ2aMoQul5L-qTPt8w-t500x500.jpg">](https://soundcloud.com/phonkyzacky/pa-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1K3VtylQ0yA7AUzq-rjPHvA-t500x500.jpg">](https://soundcloud.com/arturo999/zero-tolerance-1)
 
-**Artist**: ZVCKY 
+**Artist**: ARTURO ☤ 
 
-**Track**: REPLICVNT FT LAZLOW
+**Track**: ZERO TOLERANCE
 
-Last updated at 05/16/2022 11:23
+Last updated at 05/16/2022 11:25
