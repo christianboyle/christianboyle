@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jX3lrx9sJYNUm4Fy-zyslMA-t500x500.jpg">](https://soundcloud.com/teddyone/the-phonk-show-vol11-yung-yari-special-vinyl-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBqMgZys60rq-0-t500x500.jpg">](https://soundcloud.com/r-srecords/aphex-twin-phloam-1)
 
-**Artist**: TEDDY COLOUR 
+**Artist**: R & S Records 
 
-**Track**: THE PHONK SHOW VOL.11 (YUNG YARI SPECIAL VINYL SET)
+**Track**: Aphex Twin - Phloam
 
-Last updated at 05/16/2022 11:55
+Last updated at 05/16/2022 21:40
