@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N9m0NSRjekmx-0-t500x500.jpg">](https://soundcloud.com/hyperforms/always-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJrWyftUWydAWdOF-YoM5cA-t500x500.jpg">](https://soundcloud.com/balamii/ikonika-w-scratcha-dva-may-2022)
 
-**Artist**: hyperforms 
+**Artist**: Balamii 
 
-**Track**: Always Gone
+**Track**: Ikonika w/ Scratcha DVA - May 2022
 
-Last updated at 05/17/2022 15:37
+Last updated at 05/17/2022 15:41
