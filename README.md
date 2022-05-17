@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-py8kIF1A9wykbXVx-gBoTJg-t500x500.jpg">](https://soundcloud.com/spaceamoeba/slumpd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdE35sKdLnHlSWvl-I3UfjQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/2-im-high?in=kushfaceleanin/sets/dirt-tape-iv)
 
-**Artist**: $paceAmoeba 
+**Artist**: kushface ☤ 
 
-**Track**: STAR TIGER
+**Track**: 2. IM HIGH
 
-Last updated at 05/17/2022 07:52
+Last updated at 05/17/2022 09:12
