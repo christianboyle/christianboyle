@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3CF0T0szKVVX5of-rMUD2A-t500x500.jpg">](https://soundcloud.com/420fm-pl/420fmpl-mix-46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJQiNIrCRsnYXii1-Lj2zzQ-t500x500.jpg">](https://soundcloud.com/katebi/oracle?in=katebi/sets/vectors-ep)
 
-**Artist**: 420FM.PL 
+**Artist**: KATEBI 
 
-**Track**: 420FM.PL MIX #47 Flex Pistols
+**Track**: ORACLE
 
-Last updated at 05/17/2022 15:43
+Last updated at 05/17/2022 16:28
