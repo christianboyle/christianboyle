@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBqMgZys60rq-0-t500x500.jpg">](https://soundcloud.com/r-srecords/aphex-twin-phloam-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2FA108J97XLzbjii-IaBwzw-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt-bloom-001-bloomfeld-larp-os)
 
-**Artist**: R & S Records 
+**Artist**: Lobster Theremin 
 
-**Track**: Aphex Twin - Phloam
+**Track**: LT-BLOOM-001 // Bloomfeld - LARP OS
 
-Last updated at 05/16/2022 21:44
+Last updated at 05/17/2022 07:42
