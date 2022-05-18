@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3CF0T0szKVVX5of-rMUD2A-t500x500.jpg">](https://soundcloud.com/420fm-pl/420fmpl-mix-46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PWQFRDfomIsuEVzj-DfOUrA-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-at-basscon-wasteland-22622)
 
-**Artist**: 420FM.PL 
+**Artist**: Hartshorn 
 
-**Track**: 420FM.PL MIX #47 Flex Pistols
+**Track**: Hartshorn Live at BASSCON WASTELAND 2.26.22
 
-Last updated at 05/18/2022 16:48
+Last updated at 05/18/2022 17:00
