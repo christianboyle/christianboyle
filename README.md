@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DcPVwV9CdUkqyU5o-146oQA-t500x500.jpg">](https://soundcloud.com/1glaive/all-dogs-go-to-heaven?in=1glaive/sets/old-dog-new-tricks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdE35sKdLnHlSWvl-I3UfjQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/1-intro?in=kushfaceleanin/sets/dirt-tape-iv)
 
-**Artist**: glaive 
+**Artist**: kushface ☤ 
 
-**Track**: all dogs go to heaven
+**Track**: 1. INTRO
 
-Last updated at 05/18/2022 15:04
+Last updated at 05/18/2022 15:06
