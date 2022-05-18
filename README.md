@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdE35sKdLnHlSWvl-I3UfjQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/11-stuck-in-time?in=kushfaceleanin/sets/dirt-tape-iv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PWQFRDfomIsuEVzj-DfOUrA-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-at-basscon-wasteland-22622)
 
-**Artist**: kushface ☤ 
+**Artist**: Hartshorn 
 
-**Track**: 11. STUCK IN TIME
+**Track**: Hartshorn Live at BASSCON WASTELAND 2.26.22
 
-Last updated at 05/18/2022 15:44
+Last updated at 05/18/2022 15:48
