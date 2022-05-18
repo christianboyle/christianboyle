@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick?in=1glaive/sets/old-dog-new-tricks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F786dldJ094o-0-t500x500.jpg">](https://soundcloud.com/ericdoa/back-n-forth)
 
-**Artist**: glaive 
+**Artist**: ericdoa 
 
-**Track**: prick
+**Track**: back n forth
 
-Last updated at 05/18/2022 11:54
+Last updated at 05/18/2022 11:56
