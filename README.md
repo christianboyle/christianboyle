@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HyzLUS7zpgwWB9I-D4kGcQ-t500x500.jpg">](https://soundcloud.com/soundslikesaka/yin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyzWdFJu1YmJEnXq-AyWt5g-t500x500.jpg">](https://soundcloud.com/flightschool/the-chainsmokers-ipad-flight-school-craymak-remix)
 
-**Artist**: saka 
+**Artist**: Flight School 
 
-**Track**: Yin (w/ Aido)
+**Track**: The Chainsmokers - iPad (Flight School & CRaymak Remix)
 
-Last updated at 05/19/2022 12:44
+Last updated at 05/19/2022 12:46
