@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EiAR0xTazr6nmSfa-Xg0tyw-t500x500.jpg">](https://soundcloud.com/stuffedanimalmusic/stuffed-animal-year-mix-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PWQFRDfomIsuEVzj-DfOUrA-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-at-basscon-wasteland-22622)
 
-**Artist**: Stuffed Animal 
+**Artist**: Hartshorn 
 
-**Track**: Stuffed Animal Year Mix 2021
+**Track**: Hartshorn Live at BASSCON WASTELAND 2.26.22
 
-Last updated at 05/18/2022 18:58
+Last updated at 05/18/2022 19:00
