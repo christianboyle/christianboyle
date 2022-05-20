@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WG8a7E43WozFKTwb-QhrzqA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/dearbass-thunder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNpgOCTguxM96AOU-zazERQ-t500x500.jpg">](https://soundcloud.com/vladkush/roadtodirtysouth)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: VLADKUSH 
 
-**Track**: DEARBASS - THUNDER
+**Track**: ROAD TO DIRTY SOUTH
 
-Last updated at 05/20/2022 09:59
+Last updated at 05/20/2022 10:01
