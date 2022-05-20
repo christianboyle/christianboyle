@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-av8d6xVak5ryw4Sg-hyazHg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-rroxymore-drunken-clouds-aus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZraU3XsdXyU9J7Vm-7yiEJg-t500x500.jpg">](https://soundcloud.com/elati0n/memory-ln)
 
-**Artist**: Ransom Note 
+**Artist**: elati0n 
 
-**Track**: PREMIERE: rRoxymore - Drunken Clouds [Aus]
+**Track**: elati0n & Hypixi - Memory Ln
 
-Last updated at 05/20/2022 09:03
+Last updated at 05/20/2022 09:07
