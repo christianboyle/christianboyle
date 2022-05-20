@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZraU3XsdXyU9J7Vm-7yiEJg-t500x500.jpg">](https://soundcloud.com/elati0n/memory-ln)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRI4GH0aot66vlAt-cFDawg-t500x500.jpg">](https://soundcloud.com/byhiraeth/seclusion-ambient-mix)
 
-**Artist**: elati0n 
+**Artist**: by hiræth 
 
-**Track**: elati0n & Hypixi - Memory Ln
+**Track**: seclusion – ambient mix
 
-Last updated at 05/20/2022 09:07
+Last updated at 05/20/2022 09:11
