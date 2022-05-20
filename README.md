@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/user/The1975VEVO)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyzWdFJu1YmJEnXq-AyWt5g-t500x500.jpg">](https://soundcloud.com/flightschool/the-chainsmokers-ipad-flight-school-craymak-remix)
 
-**Artist**: 
-  
-    The 1975
-  
-  
-  
-    The 1975
-  
+**Artist**: Flight School 
 
+**Track**: The Chainsmokers - iPad (Flight School & CRaymak Remix)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: The 1975 - If You’re Too Shy (Let Me Know)
-
-Last updated at 05/20/2022 09:47
+Last updated at 05/20/2022 09:55
