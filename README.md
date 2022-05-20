@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpeoq5hu9gfj140h-A41SbA-t500x500.jpg">](https://soundcloud.com/balamii/footnotes-w-grace-wang-open-water-may-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNpgOCTguxM96AOU-zazERQ-t500x500.jpg">](https://soundcloud.com/vladkush/roadtodirtysouth)
 
-**Artist**: Balamii 
+**Artist**: VLADKUSH 
 
-**Track**: Footnotes w/ Grace Wang: Open Water - May 2022
+**Track**: ROAD TO DIRTY SOUTH
 
-Last updated at 05/20/2022 10:03
+Last updated at 05/20/2022 10:47
