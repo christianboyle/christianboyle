@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRI4GH0aot66vlAt-cFDawg-t500x500.jpg">](https://soundcloud.com/byhiraeth/seclusion-ambient-mix)
+[<img align="left" width="100" src="">](https://www.youtube.com/user/rebecca)
 
-**Artist**: by hiræth 
+**Artist**: 
+  
+    rebecca
+  
+  
+  
+    rebecca
+  
 
-**Track**: seclusion – ambient mix
 
-Last updated at 05/20/2022 09:11
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Rebecca Black - Friday (Remix) ft Dorian Electra, Big Freedia & 3OH!3 [Official Video]
+
+Last updated at 05/20/2022 09:39
