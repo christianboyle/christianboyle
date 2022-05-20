@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyiIPtbRVEB2qIJ9-0kgrDA-t500x500.jpg">](https://soundcloud.com/eternityfounddead/terminal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cxHzPB6JIAnJLVl2-qjCpwA-t500x500.jpg">](https://soundcloud.com/vauboy/starburst?in=vauboy/sets/visitors-ep)
 
-**Artist**: .diedlonely 
+**Artist**: Vau Boy 
 
-**Track**: Terminal w/ chaøs
+**Track**: STARBURST [VISITORS! EP]
 
-Last updated at 05/20/2022 08:45
+Last updated at 05/20/2022 08:49
