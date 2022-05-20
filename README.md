@@ -25,6 +25,6 @@
 
  
 
-**Track**: The 1975 - Full Live Show - (Vevo Presents: Live at The O2, London)
+**Track**: The 1975 - If You’re Too Shy (Let Me Know)
 
-Last updated at 05/20/2022 09:45
+Last updated at 05/20/2022 09:47
