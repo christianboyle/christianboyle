@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyzWdFJu1YmJEnXq-AyWt5g-t500x500.jpg">](https://soundcloud.com/flightschool/the-chainsmokers-ipad-flight-school-craymak-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WG8a7E43WozFKTwb-QhrzqA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/dearbass-thunder)
 
-**Artist**: Flight School 
+**Artist**: THE GOBLINS LAIR 
 
-**Track**: The Chainsmokers - iPad (Flight School & CRaymak Remix)
+**Track**: DEARBASS - THUNDER
 
-Last updated at 05/20/2022 09:55
+Last updated at 05/20/2022 09:59
