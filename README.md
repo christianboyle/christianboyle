@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-9nk6nvF5CO7uZhpU-Rna2BA-t500x500.jpg">](https://soundcloud.com/benmaxwellmusic/might-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyiIPtbRVEB2qIJ9-0kgrDA-t500x500.jpg">](https://soundcloud.com/eternityfounddead/terminal)
 
-**Artist**: ben maxwell 
+**Artist**: .diedlonely 
 
-**Track**: the weeknd - might not [ben maxwell edit]
+**Track**: Terminal w/ chaøs
 
-Last updated at 05/20/2022 08:43
+Last updated at 05/20/2022 08:45
