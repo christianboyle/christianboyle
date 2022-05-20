@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpeoq5hu9gfj140h-A41SbA-t500x500.jpg">](https://soundcloud.com/balamii/footnotes-w-grace-wang-open-water-may-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rsHDCA1PkXLrYccJ-9ppArA-t500x500.jpg">](https://soundcloud.com/ralfytheplug/lets-talk-about-ft-damon-elbert?in=ralfytheplug/sets/i-heart-ralfy)
 
-**Artist**: Balamii 
+**Artist**: Ralfy The Plug 
 
-**Track**: Footnotes w/ Grace Wang: Open Water - May 2022
+**Track**: Only Reason Ft Damon Elbert (prod by Fizzle)
 
-Last updated at 05/20/2022 10:49
+Last updated at 05/20/2022 14:41
