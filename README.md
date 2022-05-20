@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFkfFZtZKwfvS7zq-O2h8HQ-t500x500.jpg">](https://soundcloud.com/kirxcy/leaving-akira2k-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zG00kMJunhjoeCPC-OjEwUQ-t500x500.jpg">](https://soundcloud.com/equitycollective/vamp)
 
-**Artist**: kirxcy 
+**Artist**: Equity 
 
-**Track**: leaving (+akira2k)
+**Track**: Dyzphoria & Aekae - Vamp
 
-Last updated at 05/20/2022 08:59
+Last updated at 05/20/2022 09:01
