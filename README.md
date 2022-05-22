@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRI4GH0aot66vlAt-cFDawg-t500x500.jpg">](https://soundcloud.com/byhiraeth/seclusion-ambient-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwCpHeY4UadfZD9E-Rk9nxA-t500x500.jpg">](https://soundcloud.com/walshi303/the-wraith)
 
-**Artist**: by hiræth 
+**Artist**: BadKidsGoodPeople 
 
-**Track**: seclusion – ambient mix
+**Track**: THE WRAITH
 
-Last updated at 05/22/2022 15:19
+Last updated at 05/22/2022 16:29
