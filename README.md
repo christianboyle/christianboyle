@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AfYlcCI1WATOyRIz-qULB4w-t500x500.jpg">](https://soundcloud.com/gldmusic/paramore-misery-business-gld-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNpgOCTguxM96AOU-zazERQ-t500x500.jpg">](https://soundcloud.com/vladkush/roadtodirtysouth)
 
-**Artist**: GLD 
+**Artist**: VLADKUSH 
 
-**Track**: Paramore - Misery Business (GLD Remix)
+**Track**: ROAD TO DIRTY SOUTH
 
-Last updated at 05/22/2022 15:13
+Last updated at 05/22/2022 15:15
