@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNpgOCTguxM96AOU-zazERQ-t500x500.jpg">](https://soundcloud.com/vladkush/roadtodirtysouth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRI4GH0aot66vlAt-cFDawg-t500x500.jpg">](https://soundcloud.com/byhiraeth/seclusion-ambient-mix)
 
-**Artist**: VLADKUSH 
+**Artist**: by hiræth 
 
-**Track**: ROAD TO DIRTY SOUTH
+**Track**: seclusion – ambient mix
 
-Last updated at 05/22/2022 15:15
+Last updated at 05/22/2022 15:19
