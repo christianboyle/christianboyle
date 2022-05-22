@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJ4vGo7ZeKGXqgcm-lkTkzA-t500x500.jpg">](https://soundcloud.com/nanode/lighthouse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsS3dHxNXE2g-0-t500x500.png">](https://soundcloud.com/sanholobeats/bb-u-ok-darby-remix)
 
-**Artist**: Nanode 
+**Artist**: San Holo 
 
-**Track**: LIGHTHOUSE
+**Track**: bb u ok? (Darby Remix)
 
-Last updated at 05/22/2022 16:53
+Last updated at 05/22/2022 16:57
