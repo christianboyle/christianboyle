@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0iB7OUeFrMDKRx1-zygNCQ-t500x500.jpg">](https://soundcloud.com/ducky/myowndrum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273897914-t3ch6m-t500x500.jpg">](https://soundcloud.com/ravetoolz/str0b3-1)
 
-**Artist**: DUCKY 
+**Artist**: RAVE TOOLZ 
 
-**Track**: My Own Drum
+**Track**: DEADMAU5 - STROBE (DUCKY BOOTLEG)
 
-Last updated at 05/22/2022 16:59
+Last updated at 05/22/2022 17:03
