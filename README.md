@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273897914-t3ch6m-t500x500.jpg">](https://soundcloud.com/ravetoolz/str0b3-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273425570-5n10mo-t500x500.jpg">](https://soundcloud.com/ravetoolz/sn4k3-b1t3-1)
 
 **Artist**: RAVE TOOLZ 
 
-**Track**: DEADMAU5 - STROBE (DUCKY BOOTLEG)
+**Track**: ELIMINATE - SNAKE BITE (DUCKY BOOTLEG)
 
-Last updated at 05/22/2022 17:03
+Last updated at 05/22/2022 17:05
