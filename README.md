@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5PAizonhZABNysTR-cOsucg-t500x500.jpg">](https://soundcloud.com/remble2/ruths-chris-freestyle-feat-drakeo-the-ruler)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000553961865-sl0095-t500x500.jpg">](https://soundcloud.com/akoza/coolin-with-the-pimp)
 
-**Artist**: Remble 
+**Artist**: Dj Akoza 
 
-**Track**: Ruth's Chris Freestyle (feat. DRAKEO THE RULER)
+**Track**: Coolin With The Pimp
 
-Last updated at 05/20/2022 14:43
+Last updated at 05/22/2022 15:11
