@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Thhk797NBYsUx0wE-li3PrQ-t500x500.jpg">](https://soundcloud.com/seal-network/410ineedu?in=seal-playlists/sets/cence-brothers-i-need-u-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JuL6r98z0DbUkOe-Lvz0XA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-59-on-beat-106-3?in=beat106scotland/sets/bonkers-beats-59-on-beat-106-scotland-with-marc-smith-and-daniel-7-200522)
 
-**Artist**: Seal Network 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Cence Brothers - I Need U
+**Track**: Bonkers Beats #59 on Beat 106 Scotland with Marc Smith 200522 (Hour 1)
 
-Last updated at 05/23/2022 07:59
+Last updated at 05/23/2022 08:01
