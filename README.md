@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XUaVt9p5mCF0H9cB-JAqoEA-t500x500.jpg">](https://soundcloud.com/sikoslike/the-goaty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jHcamAQahRz79TK-bxzouQ-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra833-nick-leon)
 
-**Artist**: ЛИЛ МОРТИ 
+**Artist**: Resident Advisor 
 
-**Track**: THE GOATY
+**Track**: RA.833 Nick León
 
-Last updated at 05/23/2022 07:53
+Last updated at 05/23/2022 07:55
