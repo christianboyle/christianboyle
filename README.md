@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/user/The1975VEVO)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JuL6r98z0DbUkOe-Lvz0XA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-59-on-beat-106-2?in=beat106scotland/sets/bonkers-beats-59-on-beat-106-scotland-with-marc-smith-and-daniel-7-200522)
 
-**Artist**: 
-  
-    The 1975
-  
-  
-  
-    The 1975
-  
+**Artist**: Beat 106 Scotland 
 
+**Track**: Bonkers Beats #59 on Beat 106 Scotland with Daniel Seven 200522 (Hour 2)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: The 1975 - Girls (Official Video)
-
-Last updated at 05/23/2022 14:43
+Last updated at 05/23/2022 14:47
