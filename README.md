@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv7JlSeAg7HvZgPH-1P53Yg-t500x500.jpg">](https://soundcloud.com/pika5onic/pikasonic-tatsunoshin-euphoria-feat-tsugumi-nagahara)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhQGv8IDnnZzTvOO-VSSrDw-t500x500.jpg">](https://soundcloud.com/playmerecords/airglo-sammie-hall-know-me-sola-remix)
 
-**Artist**: PIKASONIC 
+**Artist**: Play Me Records 
 
-**Track**: PIKASONIC & Tatsunoshin - Euphoria (feat. Tsugumi Nagahara)
+**Track**: AIRGLO, Sammie Hall - Know Me (Sola Remix)
 
-Last updated at 05/24/2022 11:18
+Last updated at 05/24/2022 11:20
