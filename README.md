@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sit1Mn66ueya2vs1-ume1Ug-t500x500.jpg">](https://soundcloud.com/rossykate/octavia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jHcamAQahRz79TK-bxzouQ-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra833-nick-leon)
 
-**Artist**: ROSSY 
+**Artist**: Resident Advisor 
 
-**Track**: Octavia
+**Track**: RA.833 Nick León
 
-Last updated at 05/23/2022 18:05
+Last updated at 05/24/2022 09:50
