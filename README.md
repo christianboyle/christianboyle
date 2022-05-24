@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPyCgv3b5romS4w4-LIytZg-t500x500.jpg">](https://soundcloud.com/vincent_official/notcool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zi4i3zroK5Xv1zLn-y0A3xg-t500x500.jpg">](https://soundcloud.com/dust-of-apollon/william-black-remedy-annie-schindel-dust-of-apollon-remix)
 
-**Artist**: Vincent 
+**Artist**: Dust of Apollon 
 
-**Track**: Vincent & Maliboux ~ Not Cool (feat. Sunnie Williams)
+**Track**: William Black - Remedy (feat. Annie Schindel) (Dust of Apollon Remix)
 
-Last updated at 05/24/2022 17:06
+Last updated at 05/24/2022 17:08
