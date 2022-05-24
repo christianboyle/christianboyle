@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Hc4oTxoGHXF45AK-jJqqfQ-t500x500.jpg">](https://soundcloud.com/rossykate/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv7JlSeAg7HvZgPH-1P53Yg-t500x500.jpg">](https://soundcloud.com/pika5onic/pikasonic-tatsunoshin-euphoria-feat-tsugumi-nagahara)
 
-**Artist**: ROSSY 
+**Artist**: PIKASONIC 
 
-**Track**: Heaven
+**Track**: PIKASONIC & Tatsunoshin - Euphoria (feat. Tsugumi Nagahara)
 
-Last updated at 05/24/2022 17:12
+Last updated at 05/24/2022 17:14
