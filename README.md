@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhQGv8IDnnZzTvOO-VSSrDw-t500x500.jpg">](https://soundcloud.com/playmerecords/airglo-sammie-hall-know-me-sola-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub)
 
-**Artist**: Play Me Records 
+**Artist**: White Panda 
 
-**Track**: AIRGLO, Sammie Hall - Know Me (Sola Remix)
+**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
 
-Last updated at 05/24/2022 11:20
+Last updated at 05/24/2022 11:22
