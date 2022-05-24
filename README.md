@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dWsPybLvzyL3cews-CO4khw-t500x500.jpg">](https://soundcloud.com/komuzofficial/glass-animals-heat-waves-komuz-live-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jHcamAQahRz79TK-bxzouQ-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra833-nick-leon)
 
-**Artist**: Komuz 
+**Artist**: Resident Advisor 
 
-**Track**: Glass Animals - Heat Waves (Komuz Live Edit)
+**Track**: RA.833 Nick León
 
-Last updated at 05/24/2022 17:58
+Last updated at 05/24/2022 18:00
