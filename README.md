@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zcdOzl6BmR2D4sr-rSw1eg-t500x500.jpg">](https://soundcloud.com/balamii/3070-may-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
 
-**Artist**: Balamii 
+**Artist**: Two Friends Big Bootie Mix 
 
-**Track**: 30/70 - May 2022
+**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
 
-Last updated at 05/25/2022 09:09
+Last updated at 05/25/2022 11:27
