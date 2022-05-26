@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="">](https://www.youtube.com/user/ProjectPatVEVO)
+[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCiQtJ9wVv8R-x7GKHzgZu8A)
 
 **Artist**: 
   
-    Project Pat Official Youtube Page
+    Morgan Wallen
   
   
   
-    Project Pat Official Youtube Page
+    Morgan Wallen
   
 
 
@@ -25,6 +25,6 @@
 
  
 
-**Track**: Project Pat - Good Googly Moogly (Video - Clean) ft. Three 6 Mafia
+**Track**: Morgan Wallen - Whiskey Glasses (Official Video)
 
-Last updated at 05/25/2022 21:57
+Last updated at 05/26/2022 08:15
