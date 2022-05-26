@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
+[<img align="left" width="100" src="">](https://www.youtube.com/user/ProjectPatVEVO)
 
-**Artist**: Two Friends Big Bootie Mix 
+**Artist**: 
+  
+    Project Pat Official Youtube Page
+  
+  
+  
+    Project Pat Official Youtube Page
+  
 
-**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
 
-Last updated at 05/25/2022 11:35
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: Project Pat - Good Googly Moogly (Video - Clean) ft. Three 6 Mafia
+
+Last updated at 05/25/2022 21:57
