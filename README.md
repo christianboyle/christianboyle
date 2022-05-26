@@ -1,6 +1,6 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="">](https://www.youtube.com/channel/UCiQtJ9wVv8R-x7GKHzgZu8A)
+[<img align="left" width="100" src="">](https://www.youtube.com/c/MorganWallenOfficial)
 
 **Artist**: 
   
@@ -25,6 +25,6 @@
 
  
 
-**Track**: Morgan Wallen - Whiskey Glasses (Official Video)
+**Track**: My live with Tito's Made To Order
 
-Last updated at 05/26/2022 08:15
+Last updated at 05/26/2022 08:35
