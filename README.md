@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3IfK7WaPj2H904I6-KJy5nw-t500x500.jpg">](https://soundcloud.com/loudkult/smaili-ilyaa-alex-drosso-aftershake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CyhECjRHYZbiZwnK-yOjBUA-t500x500.jpg">](https://soundcloud.com/loudkult/sandmo-vinil-wash-away)
 
 **Artist**: LoudKult 
 
-**Track**: SMAILI, ILYAA, Alex D’Rosso - Aftershake
+**Track**: SANDMO, Vinil - Wash Away
 
-Last updated at 05/27/2022 10:15
+Last updated at 05/27/2022 10:19
