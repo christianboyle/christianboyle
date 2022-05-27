@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHY0kCGJmhA7E0wb-5DltVA-t500x500.jpg">](https://soundcloud.com/loudkult/coopex-x-zana-x-cpx-locked-and-loaded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
 
-**Artist**: LoudKult 
+**Artist**: Two Friends Big Bootie Mix 
 
-**Track**: COOPEX x ZANA x CPX - Locked And Loaded
+**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
 
-Last updated at 05/27/2022 10:21
+Last updated at 05/27/2022 10:23
