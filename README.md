@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2WjOfZ5uylnSUyS-1806Vw-t500x500.jpg">](https://soundcloud.com/loudkult/mokaby-outa-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3IfK7WaPj2H904I6-KJy5nw-t500x500.jpg">](https://soundcloud.com/loudkult/smaili-ilyaa-alex-drosso-aftershake)
 
 **Artist**: LoudKult 
 
-**Track**: MOKABY - Outa Space
+**Track**: SMAILI, ILYAA, Alex D’Rosso - Aftershake
 
-Last updated at 05/27/2022 10:13
+Last updated at 05/27/2022 10:15
