@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000417963900-bmwxvv-t500x500.jpg">](https://soundcloud.com/apoc_krysis/apoc-krysis-x-3dmg-gankin-fools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMrzepEzTEc1cdEj-N0oSuA-t500x500.jpg">](https://soundcloud.com/bylye_nravy/bylye-nravy-process)
 
-**Artist**: APOC KRYSIS 
+**Artist**: Былые Нравы 
 
-**Track**: Apoc Krysis X 3DMG - Gankin' Fools
+**Track**: Былые Нравы - Process
 
-Last updated at 05/28/2022 12:31
+Last updated at 05/28/2022 12:33
