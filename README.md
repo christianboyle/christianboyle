@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMrzepEzTEc1cdEj-N0oSuA-t500x500.jpg">](https://soundcloud.com/bylye_nravy/bylye-nravy-process)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOaBI0siQbKZGJvF-DStE0A-t500x500.jpg">](https://soundcloud.com/tequilafunks/awesome)
 
-**Artist**: Былые Нравы 
+**Artist**: Tequila Funk 
 
-**Track**: Былые Нравы - Process
+**Track**: Awesome
 
-Last updated at 05/28/2022 12:33
+Last updated at 05/28/2022 12:37
