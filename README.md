@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000371993481-h89nzq-t500x500.jpg">](https://soundcloud.com/sistamas/sista-mas-getcho-ass-kicked-ft-apoc-krysis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000164888614-xyhay8-t500x500.jpg">](https://soundcloud.com/playamisery186/niggaz-cant-stand-it-prod-apoc-krysis)
 
-**Artist**: SISTA MAS 
+**Artist**: Playa Misery 
 
-**Track**: Sista Mas - Getcho Ass Kicked (Ft. Apoc Krysis)
+**Track**: Niggaz Cant Stand It (Prod. Apoc Krysis)
 
-Last updated at 05/28/2022 12:03
+Last updated at 05/28/2022 12:05
