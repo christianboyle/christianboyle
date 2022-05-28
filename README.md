@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000253729490-0c9wk1-t500x500.jpg">](https://soundcloud.com/211kaine/kaine-no-escape-prod-by-apoc-krysis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000419801121-3kj6fk-t500x500.jpg">](https://soundcloud.com/ryan-cc/freddie-dredd-yvncc-ditto-prod-apoc-krysis)
 
-**Artist**: LIL KAINE 
+**Artist**: Ryan C. 
 
-**Track**: NO ESCAPE PROD BY APOC KRYSIS
+**Track**: FREDDIE DREDD & YVNCC - DITTO (PROD. APOC KRYSIS)
 
-Last updated at 05/28/2022 12:27
+Last updated at 05/28/2022 12:29
