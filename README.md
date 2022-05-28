@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOaBI0siQbKZGJvF-DStE0A-t500x500.jpg">](https://soundcloud.com/tequilafunks/awesome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRvynQMSLJ80lEfN-FgjnCw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/that-aint-shit-dirt-tape-v)
 
-**Artist**: Tequila Funk 
+**Artist**: kushface ☤ 
 
-**Track**: Awesome
+**Track**: THAT AIN'T SHIT (*DIRT TAPE V*)
 
-Last updated at 05/28/2022 12:37
+Last updated at 05/28/2022 12:41
