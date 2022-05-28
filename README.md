@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000251295880-hh7kn6-t500x500.jpg">](https://soundcloud.com/apoc_krysis/tha-mackin-mixxx-tape-rip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000253729490-0c9wk1-t500x500.jpg">](https://soundcloud.com/211kaine/kaine-no-escape-prod-by-apoc-krysis)
 
-**Artist**: APOC KRYSIS 
+**Artist**: LIL KAINE 
 
-**Track**: Tha Mackin' Mixxx (Tape Rip)
+**Track**: NO ESCAPE PROD BY APOC KRYSIS
 
-Last updated at 05/28/2022 12:11
+Last updated at 05/28/2022 12:27
