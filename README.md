@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000164888614-xyhay8-t500x500.jpg">](https://soundcloud.com/playamisery186/niggaz-cant-stand-it-prod-apoc-krysis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000651495337-go7yqq-t500x500.jpg">](https://soundcloud.com/apoc_krysis/meet-ya-fate-feat-soulzay-prod-by-apoc-krysis)
 
-**Artist**: Playa Misery 
+**Artist**: APOC KRYSIS 
 
-**Track**: Niggaz Cant Stand It (Prod. Apoc Krysis)
+**Track**: Meet Ya Fate (Feat. Soulzay) (Prod. By Apoc Krysis)
 
-Last updated at 05/28/2022 12:05
+Last updated at 05/28/2022 12:07
