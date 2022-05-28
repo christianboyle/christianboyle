@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000419801121-3kj6fk-t500x500.jpg">](https://soundcloud.com/ryan-cc/freddie-dredd-yvncc-ditto-prod-apoc-krysis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000417963900-bmwxvv-t500x500.jpg">](https://soundcloud.com/apoc_krysis/apoc-krysis-x-3dmg-gankin-fools)
 
-**Artist**: Ryan C. 
+**Artist**: APOC KRYSIS 
 
-**Track**: FREDDIE DREDD & YVNCC - DITTO (PROD. APOC KRYSIS)
+**Track**: Apoc Krysis X 3DMG - Gankin' Fools
 
-Last updated at 05/28/2022 12:29
+Last updated at 05/28/2022 12:31
