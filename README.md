@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYdkRFXzm6U0M7eV-z3pzqw-t500x500.jpg">](https://soundcloud.com/kset-dex/take-it-there-og-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
 
-**Artist**: KSETDEX 
+**Artist**: Two Friends Big Bootie Mix 
 
-**Track**: Take It There (OG Mix)
+**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
 
-Last updated at 05/28/2022 09:55
+Last updated at 05/28/2022 10:01
