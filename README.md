@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o09sjvXcsCw2-0-t500x500.jpg">](https://soundcloud.com/perth_ytho/crisis)
 
-**Artist**: Two Friends Big Bootie Mix 
+**Artist**: Ytho. 
 
-**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
+**Track**: Crisis
 
-Last updated at 05/28/2022 10:01
+Last updated at 05/28/2022 12:01
