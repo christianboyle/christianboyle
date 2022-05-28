@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VP9iGG9R5PfwDUh3-D6fenQ-t500x500.jpg">](https://soundcloud.com/1ony/m-town-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1QV3OdN2euXFIcq2-tWXPbQ-t500x500.jpg">](https://soundcloud.com/aprovoli/the-revelator)
 
-**Artist**: 1ONY 
+**Artist**: aprovoli 
 
-**Track**: M-TOWN MIX
+**Track**: The Revelator
 
-Last updated at 05/28/2022 09:49
+Last updated at 05/28/2022 09:51
