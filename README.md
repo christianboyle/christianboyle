@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRvynQMSLJ80lEfN-FgjnCw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/that-aint-shit-dirt-tape-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWAx1tKmf18BWgBq-ysEFPw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-harley-ferris-atom-splitter-spinning-around)
 
-**Artist**: kushface ☤ 
+**Artist**: Ransom Note 
 
-**Track**: THAT AIN'T SHIT (*DIRT TAPE V*)
+**Track**: PREMIERE: Harley Ferris - Atom Splitter [Spinning Around]
 
-Last updated at 05/28/2022 12:41
+Last updated at 05/30/2022 09:56
