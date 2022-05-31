@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbMXjHqob8Y8BkzD-gxmYGg-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/dj-thank-you-daisychain-228)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201064178-l8xwjx-t500x500.jpg">](https://soundcloud.com/one-eight-hundred/javascript-hottt?in=one-eight-hundred/sets/javascript-hottt-ep)
 
-**Artist**: Daisychain 
+**Artist**: ONE EIGHT HUNDRED 
 
-**Track**: Daisychain 228 - DJ Thank You
+**Track**: JAVASCRIPT - Hottt
 
-Last updated at 05/31/2022 15:59
+Last updated at 05/31/2022 16:03
