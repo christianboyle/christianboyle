@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XXppDiPgTN1AOZ72-WpHigQ-t500x500.jpg">](https://soundcloud.com/tomsaid/all-blacked-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7TrylsvVEub7qGw-zGpJyQ-t500x500.jpg">](https://soundcloud.com/ext6ndo/4-playaz-only)
 
-**Artist**: Tom said.. 
+**Artist**: EXT6NDO (@ext6ndo2k) 
 
-**Track**: All Blacked Out
+**Track**: 4 PLAYAZ ONLY
 
-Last updated at 05/30/2022 21:00
+Last updated at 05/30/2022 21:02
