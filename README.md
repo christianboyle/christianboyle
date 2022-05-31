@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XjD82ugxh3py1VwG-I6F4sQ-t500x500.jpg">](https://soundcloud.com/drjeep/lfo-jeep-nyc-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000654332995-jd1ap4-t500x500.jpg">](https://soundcloud.com/abrokenwave/locked-club-doschitai-bnr193)
 
-**Artist**: doctor jeep 
+**Artist**: Sophie Bloom 
 
-**Track**: LFO - LFO (Doctor Jeep NYC Warehouse Mix)
+**Track**: Locked Club - Doschitai [BNR193]
 
-Last updated at 05/30/2022 21:44
+Last updated at 05/30/2022 21:46
