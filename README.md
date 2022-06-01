@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201064178-l8xwjx-t500x500.jpg">](https://soundcloud.com/one-eight-hundred/javascript-hottt?in=one-eight-hundred/sets/javascript-hottt-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BefhbZWoLunoC01X-VSyGEA-t500x500.jpg">](https://soundcloud.com/balamii/75th-east-w-guohan-dfu-may-2022)
 
-**Artist**: ONE EIGHT HUNDRED 
+**Artist**: Balamii 
 
-**Track**: JAVASCRIPT - Hottt
+**Track**: 75th East w/ Guohan & DFU - May 2022
 
-Last updated at 05/31/2022 16:03
+Last updated at 06/01/2022 08:55
