@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8b1nzo8SHnu7kB43-nXkHIQ-t500x500.jpg">](https://soundcloud.com/balamii/owari-w-thomas-gray-liam-ebbs-june-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21ckEHECDS4PXzzF-3S2O7w-t500x500.jpg">](https://soundcloud.com/futurevibes/quiet-places)
 
-**Artist**: Balamii 
+**Artist**: Future Vibes 
 
-**Track**: Owari w/ Thomas Gray & Liam Ebbs - June 2022
+**Track**: GVESS & sSlowly - Quiet Places
 
-Last updated at 06/01/2022 12:27
+Last updated at 06/01/2022 17:19
