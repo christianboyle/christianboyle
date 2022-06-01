@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUc4He2209qCUWG9-luLk9Q-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-debba-triads-eclipse-tribez)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbMXjHqob8Y8BkzD-gxmYGg-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/dj-thank-you-daisychain-228)
 
-**Artist**: Ransom Note 
+**Artist**: Daisychain 
 
-**Track**: PREMIERE: Debba - Triads [Eclipse Tribez]
+**Track**: Daisychain 228 - DJ Thank You
 
-Last updated at 06/01/2022 17:29
+Last updated at 06/01/2022 17:33
