@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/user/S3RL)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6yrlzlq2PAglych-iPJ5Ag-t500x500.jpg">](https://soundcloud.com/bluntedastronaut/ba-007-roland-jones-smoked-out)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Blunted Astronaut 
 
+**Track**: BA-007 Roland Jones "Smoked Out"
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: S3RL Absolutely Presents...
-
-Last updated at 06/01/2022 17:43
+Last updated at 06/02/2022 16:30
