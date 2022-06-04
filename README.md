@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYnlX5UWh6BzygSh-pkpogg-t500x500.jpg">](https://soundcloud.com/les-yeux-orange/premiere-manami-overture-one-adam-pits-stomp-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYdkRFXzm6U0M7eV-z3pzqw-t500x500.jpg">](https://soundcloud.com/kset-dex/take-it-there-og-mix)
 
-**Artist**: Les Yeux Orange 
+**Artist**: KSETDEX 
 
-**Track**: PREMIERE : Manami - Overture One (Adam Pits' Stomp Mix)
+**Track**: Take It There (OG Mix)
 
-Last updated at 06/03/2022 21:01
+Last updated at 06/03/2022 21:08
