@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m5qvam33Rn4GaLW-ZFN7lQ-t500x500.jpg">](https://soundcloud.com/bigbootiemix/bb21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmSZwBlVbtTvE3fi-F1DD2A-t500x500.jpg">](https://soundcloud.com/balamii/curving-track-w-elle-clark-samwise-june-2022)
 
-**Artist**: Two Friends Big Bootie Mix 
+**Artist**: Balamii 
 
-**Track**: 2F Big Bootie Mix, Volume 21 - Two Friends
+**Track**: Curving Track w/ Elle Clark & SAMWISE - June 2022
 
-Last updated at 06/03/2022 21:14
+Last updated at 06/06/2022 19:19
