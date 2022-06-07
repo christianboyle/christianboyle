@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmSZwBlVbtTvE3fi-F1DD2A-t500x500.jpg">](https://soundcloud.com/balamii/curving-track-w-elle-clark-samwise-june-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p03oOgZ6vPzkBMJd-uZPEQQ-t500x500.jpg">](https://soundcloud.com/trzbts/sideways)
 
-**Artist**: Balamii 
+**Artist**: TEARZ 
 
-**Track**: Curving Track w/ Elle Clark & SAMWISE - June 2022
+**Track**: SIDEWAYS
 
-Last updated at 06/06/2022 19:19
+Last updated at 06/06/2022 19:21
