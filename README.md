@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z60vizFtuTtrpzap-eKtcaA-t500x500.jpg">](https://soundcloud.com/idntrmmbr/fendidup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bpMZ6goO75UAAVO-eyiM2w-t500x500.jpg">](https://soundcloud.com/3treflip/a-storm)
 
-**Artist**: idntrmmbr. 🚬✨ 
+**Artist**: TRE FLIP 
 
-**Track**: big dawg. (fendi'd up.)
+**Track**: a storm
 
-Last updated at 06/06/2022 19:25
+Last updated at 06/06/2022 19:27
