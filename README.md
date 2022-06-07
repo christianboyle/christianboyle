@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PXtqjsj3iPoz8LTb-yQOJNw-t500x500.jpg">](https://soundcloud.com/lil_rocketman/flight-of-the-pheonix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bpMZ6goO75UAAVO-eyiM2w-t500x500.jpg">](https://soundcloud.com/3treflip/a-storm)
 
-**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
+**Artist**: TRE FLIP 
 
-**Track**: WELCOME TO TOWN w/ H X 7 (Forthcoming Team7urbo Album)
+**Track**: a storm
 
-Last updated at 06/07/2022 09:11
+Last updated at 06/07/2022 09:13
