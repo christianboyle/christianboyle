@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jubpq8qjd5Wtg4CA-yjKdOQ-t500x500.jpg">](https://soundcloud.com/angelsgunclub/von-riu-purple-denim-iddd-resauce-modded-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z60vizFtuTtrpzap-eKtcaA-t500x500.jpg">](https://soundcloud.com/idntrmmbr/fendidup)
 
-**Artist**: angels gun club 
+**Artist**: idntrmmbr. 🚬✨ 
 
-**Track**: Von Riu - Purple Denim IDDD Resauce
+**Track**: big dawg. (fendi'd up.)
 
-Last updated at 06/06/2022 19:23
+Last updated at 06/06/2022 19:25
