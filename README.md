@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olP93iL2q2eEQHJ-Rbvmdg-t500x500.jpg">](https://soundcloud.com/shmittee/bmth-die-4-u-shmittee-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rreZuNNkHHAy-0-t500x500.png">](https://soundcloud.com/hartshorn303/told-you-so)
 
-**Artist**: Shmittee 
+**Artist**: Hartshorn 
 
-**Track**: BMTH - Die 4 U (Shmittee Flip)
+**Track**: Told You So
 
-Last updated at 06/08/2022 11:21
+Last updated at 06/08/2022 11:25
