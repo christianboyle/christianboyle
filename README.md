@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnsd9SNxETmaWIv-9tGnsw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/mgk-halsey-forget-me-too-dnb-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktLAa7E4F6TfGcZ6-oWqkwA-t500x500.jpg">](https://soundcloud.com/iffoundmusic/slander-if-found-getting-late-feat-danni-carra)
 
 **Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
 
-**Track**: MGK, Halsey - FORGET ME TOO (𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 DnB Flip)
+**Track**: SLANDER & if found - Getting Late (feat. Danni Carra)
 
-Last updated at 06/08/2022 12:23
+Last updated at 06/08/2022 14:35
