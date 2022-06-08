@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SJuFIeSchFEl2aOM-Ecxx9Q-t500x500.jpg">](https://soundcloud.com/iffoundmusic/we-are-fury-remember-feat-emlyn-if-found-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPlHHwPzSFsL0RZL-e13ZlQ-t500x500.jpg">](https://soundcloud.com/iffoundmusic/juice-wrld-the-kid-laroi-reminds-me-of-you-if-found-flip)
 
 **Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
 
-**Track**: WE ARE FURY & emlyn - Remember (if found Remix)
+**Track**: Juice WRLD, The Kid Laroi - Reminds Me Of You (if found Flip)
 
-Last updated at 06/08/2022 16:32
+Last updated at 06/08/2022 16:35
