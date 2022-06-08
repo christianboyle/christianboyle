@@ -1,9 +1,30 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnsd9SNxETmaWIv-9tGnsw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/mgk-halsey-forget-me-too-dnb-flip)
+[<img align="left" width="100" src="">](https://www.youtube.com/c/RLGrime)
 
-**Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
+**Artist**: 
+  
+    RL Grime
+  
+  
+  
+    RL Grime
+  
 
-**Track**: MGK, Halsey - FORGET ME TOO (𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 DnB Flip)
 
-Last updated at 06/08/2022 12:02
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: RL Grime - Core (Official Music Video)
+
+Last updated at 06/08/2022 12:06
