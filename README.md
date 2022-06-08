@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UhCrQxnoDjnxVD7m-YaMnrA-t500x500.jpg">](https://soundcloud.com/darren-styles/hard-generation-with-darren-styles-episode-02-tnt-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6HX9z1CCoW7BF9m-7j6ysw-t500x500.jpg">](https://soundcloud.com/thxnder777/start-flyin)
 
-**Artist**: Darren Styles 
+**Artist**: THXNDER 
 
-**Track**: Hard Generation with Darren Styles - Episode 02 - TNT Guest Mix
+**Track**: start flyin
 
-Last updated at 06/07/2022 14:48
+Last updated at 06/07/2022 19:16
