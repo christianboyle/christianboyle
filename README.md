@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="">](https://www.youtube.com/c/RLGrime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olP93iL2q2eEQHJ-Rbvmdg-t500x500.jpg">](https://soundcloud.com/shmittee/bmth-die-4-u-shmittee-flip)
 
-**Artist**: 
-  
-    RL Grime
-  
-  
-  
-    RL Grime
-  
+**Artist**: Shmittee 
 
+**Track**: BMTH - Die 4 U (Shmittee Flip)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: RL Grime - Core (Official Music Video)
-
-Last updated at 06/08/2022 12:06
+Last updated at 06/08/2022 12:12
