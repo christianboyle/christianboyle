@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPlHHwPzSFsL0RZL-e13ZlQ-t500x500.jpg">](https://soundcloud.com/iffoundmusic/juice-wrld-the-kid-laroi-reminds-me-of-you-if-found-flip?in=iffoundmusic/sets/flips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000565642742-4f6ort-t500x500.jpg">](https://soundcloud.com/iffoundmusic/madeon-all-my-friends-if-found-remix?in=iffoundmusic/sets/flips)
 
 **Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
 
-**Track**: Juice WRLD, The Kid Laroi - Reminds Me Of You (if found Flip)
+**Track**: Madeon - All My Friends (if found Remix)
 
-Last updated at 06/08/2022 14:41
+Last updated at 06/08/2022 14:44
