@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olP93iL2q2eEQHJ-Rbvmdg-t500x500.jpg">](https://soundcloud.com/shmittee/bmth-die-4-u-shmittee-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhYZV4CExzjkXYAr-ypeoTg-t500x500.jpg">](https://soundcloud.com/raveculturemusic/darren-styles-x-stonebank-skank-in-the-rave)
 
-**Artist**: Shmittee 
+**Artist**: Rave Culture 
 
-**Track**: BMTH - Die 4 U (Shmittee Flip)
+**Track**: Darren Styles x Stonebank - Skank In The Rave
 
-Last updated at 06/08/2022 12:12
+Last updated at 06/08/2022 12:14
