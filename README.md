@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJZtEZJzM6Xpl0l9-pEO6CA-t500x500.jpg">](https://soundcloud.com/cleanbandit/everything-but-you-coastr-remix-clean-bandit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LC2VElrjlJsaimv0-Ovkhig-t500x500.jpg">](https://soundcloud.com/heartfeldt/syence-x-mgrd-sweet-escape)
 
-**Artist**: Clean Bandit 
+**Artist**: Heartfeldt Records 
 
-**Track**: Everything But You (COASTR. Remix)
+**Track**: Syence X MGRD - Sweet Escape
 
-Last updated at 06/08/2022 10:51
+Last updated at 06/08/2022 11:11
