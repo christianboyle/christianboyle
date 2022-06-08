@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rreZuNNkHHAy-0-t500x500.png">](https://soundcloud.com/hartshorn303/told-you-so)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
 
-**Artist**: Hartshorn 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Told You So
+**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
 
-Last updated at 06/08/2022 11:25
+Last updated at 06/08/2022 11:29
