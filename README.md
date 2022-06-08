@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaJ51XLzJk0TDCvY-FZzjPA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-43-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LC2VElrjlJsaimv0-Ovkhig-t500x500.jpg">](https://soundcloud.com/heartfeldt/syence-x-mgrd-sweet-escape)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Heartfeldt Records 
 
-**Track**: Bonkers Beats #43 on Beat 106 Scotland with Hartshorn 280122 (Hour 2)
+**Track**: Syence X MGRD - Sweet Escape
 
-Last updated at 06/08/2022 11:43
+Last updated at 06/08/2022 11:47
