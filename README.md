@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DzwCTvq7WRQ0omB-G7I4PQ-t500x500.jpg">](https://soundcloud.com/lookasmusic/who-r-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dWsPybLvzyL3cews-CO4khw-t500x500.jpg">](https://soundcloud.com/komuzofficial/glass-animals-heat-waves-komuz-live-edit)
 
-**Artist**: Lookas 
+**Artist**: Komuz 
 
-**Track**: WHO R U
+**Track**: Glass Animals - Heat Waves (Komuz Live Edit)
 
-Last updated at 06/08/2022 19:31
+Last updated at 06/08/2022 19:32
