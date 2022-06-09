@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5RGzJm5bCsaPLnk-MV9FNg-t500x500.jpg">](https://soundcloud.com/levity_music/hello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnsd9SNxETmaWIv-9tGnsw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/mgk-halsey-forget-me-too-dnb-flip)
 
-**Artist**: Levity 
+**Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
 
-**Track**: Martin Solveig ft. Dragonette - Hello (Levity Remix)
+**Track**: MGK, Halsey - FORGET ME TOO (𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 DnB Flip)
 
-Last updated at 06/09/2022 14:03
+Last updated at 06/09/2022 14:07
