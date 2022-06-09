@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dWsPybLvzyL3cews-CO4khw-t500x500.jpg">](https://soundcloud.com/komuzofficial/glass-animals-heat-waves-komuz-live-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIt2gk4CYYX0bGYb-ZaAPfw-t500x500.jpg">](https://soundcloud.com/an-invasive-species/oppshit)
 
-**Artist**: Komuz 
+**Artist**: invasivespecies 
 
-**Track**: Glass Animals - Heat Waves (Komuz Live Edit)
+**Track**: 적의활동 w/ fuckvaro, dthd
 
-Last updated at 06/08/2022 19:32
+Last updated at 06/08/2022 19:34
