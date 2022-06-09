@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIt2gk4CYYX0bGYb-ZaAPfw-t500x500.jpg">](https://soundcloud.com/an-invasive-species/oppshit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-otBNYDwgjBfYjzYW-rYH5bw-t500x500.jpg">](https://soundcloud.com/syence/the-chainsmokers-ipad-syence-niiko-x-swae-flip)
 
-**Artist**: invasivespecies 
+**Artist**: syence 
 
-**Track**: 적의활동 w/ fuckvaro, dthd
+**Track**: the chainsmokers - ipad (syence & niiko x swae flip)
 
-Last updated at 06/08/2022 19:34
+Last updated at 06/08/2022 19:35
