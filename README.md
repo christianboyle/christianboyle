@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJ1LhSrjomeNSbLx-UCyA8g-t500x500.jpg">](https://soundcloud.com/plvnktxn/showstopper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DzwCTvq7WRQ0omB-G7I4PQ-t500x500.jpg">](https://soundcloud.com/lookasmusic/who-r-u)
 
-**Artist**: PLVNKTXN187 
+**Artist**: Lookas 
 
-**Track**: SHOWSTOPPER
+**Track**: WHO R U
 
-Last updated at 06/08/2022 19:30
+Last updated at 06/08/2022 19:31
