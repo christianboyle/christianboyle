@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1b3tz0aOtyKw99I0-wzHqZA-t500x500.jpg">](https://soundcloud.com/spinninrecords/ship-wrek-silent-1?in=weareplusplus/sets/best-electronic-music-may-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SZFiRqiLaAy7lXCc-Syn6fg-t500x500.jpg">](https://soundcloud.com/fellsofficial/gryffin-you-were-loved-with-onerepublic-fells-remix?in=weareplusplus/sets/best-electronic-music-may-2022)
 
-**Artist**: Spinnin' Records 
+**Artist**: Fells 
 
-**Track**: Ship Wrek - Silent
+**Track**: Gryffin - You Were Loved (with OneRepublic) [Fells Remix]
 
-Last updated at 06/08/2022 19:25
+Last updated at 06/08/2022 19:26
