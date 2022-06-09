@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbHxJinOaaHK-0-t500x500.jpg">](https://soundcloud.com/ryan-cc/freddie-dredd-wrath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2YibnqXj9Sddl6G-4sbk0Q-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc098-maria-amor)
 
-**Artist**: Ryan C. 
+**Artist**: Rhythmic Culture 
 
-**Track**: Freddie Dredd - Wrath
+**Track**: RC:098 Maria Amor
 
-Last updated at 06/09/2022 16:50
+Last updated at 06/09/2022 16:51
