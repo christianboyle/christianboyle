@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HzZwJskc1WKYgON-XcKUcA-t500x500.jpg">](https://soundcloud.com/cutnsewmusic/live-at-shipwrecked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0hbRRDokRd9sYvzO-iZgSEQ-t500x500.jpg">](https://soundcloud.com/lizdek/avian-1?in=lizdek/sets/gemini)
 
-**Artist**: Cut & Sew 
+**Artist**: Lizdek 
 
-**Track**: Live at Shipwrecked
+**Track**: Avian (feat. joss lockwood)
 
-Last updated at 06/09/2022 14:24
+Last updated at 06/09/2022 16:49
