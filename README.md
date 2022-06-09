@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SZFiRqiLaAy7lXCc-Syn6fg-t500x500.jpg">](https://soundcloud.com/fellsofficial/gryffin-you-were-loved-with-onerepublic-fells-remix?in=weareplusplus/sets/best-electronic-music-may-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wJm3sQeg9qiNLpkx-kfw4cQ-t500x500.jpg">](https://soundcloud.com/enokalypse/re-up-1)
 
-**Artist**: Fells 
+**Artist**: ENOKALYPSE 
 
-**Track**: Gryffin - You Were Loved (with OneRepublic) [Fells Remix]
+**Track**: RE-UP
 
-Last updated at 06/08/2022 19:26
+Last updated at 06/08/2022 19:27
