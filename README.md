@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LC2VElrjlJsaimv0-Ovkhig-t500x500.jpg">](https://soundcloud.com/heartfeldt/syence-x-mgrd-sweet-escape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bpMZ6goO75UAAVO-eyiM2w-t500x500.jpg">](https://soundcloud.com/3treflip/a-storm)
 
-**Artist**: Heartfeldt Records 
+**Artist**: TRE FLIP 
 
-**Track**: Syence X MGRD - Sweet Escape
+**Track**: a storm
 
-Last updated at 06/09/2022 13:55
+Last updated at 06/09/2022 13:59
