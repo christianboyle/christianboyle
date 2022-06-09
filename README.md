@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bpMZ6goO75UAAVO-eyiM2w-t500x500.jpg">](https://soundcloud.com/3treflip/a-storm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p03oOgZ6vPzkBMJd-uZPEQQ-t500x500.jpg">](https://soundcloud.com/trzbts/sideways)
 
-**Artist**: TRE FLIP 
+**Artist**: TEARZ 
 
-**Track**: a storm
+**Track**: SIDEWAYS
 
-Last updated at 06/09/2022 13:59
+Last updated at 06/09/2022 14:02
