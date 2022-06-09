@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnsd9SNxETmaWIv-9tGnsw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/mgk-halsey-forget-me-too-dnb-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4olP93iL2q2eEQHJ-Rbvmdg-t500x500.jpg">](https://soundcloud.com/shmittee/bmth-die-4-u-shmittee-flip)
 
-**Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
+**Artist**: Shmittee 
 
-**Track**: MGK, Halsey - FORGET ME TOO (𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 DnB Flip)
+**Track**: BMTH - Die 4 U (Shmittee Flip)
 
-Last updated at 06/09/2022 14:07
+Last updated at 06/09/2022 14:10
