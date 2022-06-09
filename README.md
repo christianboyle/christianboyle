@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p03oOgZ6vPzkBMJd-uZPEQQ-t500x500.jpg">](https://soundcloud.com/trzbts/sideways)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5RGzJm5bCsaPLnk-MV9FNg-t500x500.jpg">](https://soundcloud.com/levity_music/hello)
 
-**Artist**: TEARZ 
+**Artist**: Levity 
 
-**Track**: SIDEWAYS
+**Track**: Martin Solveig ft. Dragonette - Hello (Levity Remix)
 
-Last updated at 06/09/2022 14:02
+Last updated at 06/09/2022 14:03
