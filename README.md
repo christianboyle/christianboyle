@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-otBNYDwgjBfYjzYW-rYH5bw-t500x500.jpg">](https://soundcloud.com/syence/the-chainsmokers-ipad-syence-niiko-x-swae-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rreZuNNkHHAy-0-t500x500.png">](https://soundcloud.com/hartshorn303/told-you-so)
 
-**Artist**: syence 
+**Artist**: Hartshorn 
 
-**Track**: the chainsmokers - ipad (syence & niiko x swae flip)
+**Track**: Told You So
 
-Last updated at 06/08/2022 19:35
+Last updated at 06/09/2022 13:42
