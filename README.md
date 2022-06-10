@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-34AMYsp8rNlsIe8q-3sHTWQ-t500x500.jpg">](https://soundcloud.com/raversreunited/ravers-reunited-x-squad-e-cd-2-album-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GOy6QavTAG37XWE-WErIyw-t500x500.jpg">](https://soundcloud.com/gudfellaofficial/she-knows)
 
-**Artist**: Ravers Reunited 
+**Artist**: GUDFELLA 
 
-**Track**: RAVERS REUNITED X SQUAD-E - CD 2 Album Mix
+**Track**: She Knows
 
-Last updated at 06/10/2022 12:33
+Last updated at 06/10/2022 15:56
