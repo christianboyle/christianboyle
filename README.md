@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000669299701-rvfem4-t500x500.jpg">](https://soundcloud.com/holt88/holt-88-the-who-baba-oriley-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uty0ad6UkfRrohMy-cr47Wg-t500x500.jpg">](https://soundcloud.com/bright_ideas/stalkers)
 
-**Artist**: 🐅 HOLT 88 🐅 
+**Artist**: BRIGHT IDEAS 
 
-**Track**: Holt 88 The Who - Baba O'riley  Remix
+**Track**: STALKERS
 
-Last updated at 06/09/2022 23:57
+Last updated at 06/10/2022 09:09
