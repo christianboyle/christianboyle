@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJP12bMtqqhoMOfU-vy97gQ-t500x500.jpg">](https://soundcloud.com/raversreunited/ravers-reunited-x-squad-e-cd-1-album-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnX1lc5Z3WyKKTAm-hOGz8Q-t500x500.jpg">](https://soundcloud.com/blubear2001/hit-the-deck)
 
-**Artist**: Ravers Reunited 
+**Artist**: blubear 
 
-**Track**: RAVERS REUNITED X SQUAD-E - CD 1 Album Mix
+**Track**: HIT THE DECK
 
-Last updated at 06/10/2022 11:04
+Last updated at 06/10/2022 12:32
