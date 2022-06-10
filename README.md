@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GOy6QavTAG37XWE-WErIyw-t500x500.jpg">](https://soundcloud.com/gudfellaofficial/she-knows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yf4I4garFSvQ23FP-rBt6Hw-t500x500.jpg">](https://soundcloud.com/tvvin/im-wondering-how-you-think-ive-been-tvvin-gerion-feat-lorena-ja-1)
 
-**Artist**: GUDFELLA 
+**Artist**: Tvvin 
 
-**Track**: She Knows
+**Track**: im wondering how you think ive been - Tvvin & Gerion (feat. Lorena Ja)
 
-Last updated at 06/10/2022 15:56
+Last updated at 06/10/2022 15:57
