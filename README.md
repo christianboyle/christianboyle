@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v8u7oeq9yh61qksq-E7bW0A-t500x500.jpg">](https://soundcloud.com/bunny_jp/halsey-so-good-bunny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rugv20PmQiKlM2hV-Ymp5yg-t500x500.jpg">](https://soundcloud.com/daizybydaizy/smoke)
 
-**Artist**: ///BUNNY/// NEW ACCOUNT 
+**Artist**: DAIZY 
 
-**Track**: Halsey - so good (BUNNY Alternative Remix)
+**Track**: Smoke
 
-Last updated at 06/12/2022 11:36
+Last updated at 06/12/2022 11:37
