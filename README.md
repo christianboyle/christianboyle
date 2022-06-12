@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i78YFHpaeACfkZAK-UjffLQ-t500x500.jpg">](https://soundcloud.com/amaryllis_no/used-to-be-trans-pride-war-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3PcXyDLpx5Blw69-ulughw-t500x500.jpg">](https://soundcloud.com/kastrosplace/broke)
 
-**Artist**: Amaryllis 
+**Artist**: KA$TRO 
 
-**Track**: Used To Be (TRANS PRIDE WAR DUB)
+**Track**: broke.
 
-Last updated at 06/12/2022 17:27
+Last updated at 06/12/2022 17:30
