@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ojNy4NbL2tcKiTVl-YNZpOQ-t500x500.jpg">](https://soundcloud.com/prodvaasco/dont-you-know)
 
-**Artist**: MARI 
+**Artist**: VAASCO. 
 
-**Track**: finesse
+**Track**: DONT YOU KNOW
 
-Last updated at 06/12/2022 11:31
+Last updated at 06/12/2022 11:32
