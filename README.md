@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mMBAszcc1wJXumyU-sMFA4g-t500x500.jpg">](https://soundcloud.com/berrymane/devil-knockin?in=berrymane/sets/new-music-soon-run-this-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
 
-**Artist**: BERRYMANE 
+**Artist**: MARI 
 
-**Track**: DEVIL KNOCKIN
+**Track**: finesse
 
-Last updated at 06/12/2022 17:11
+Last updated at 06/12/2022 17:12
