@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000287153753-fepav4-t500x500.jpg">](https://soundcloud.com/yvngtavo/slippery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000191481968-2nsmxd-t500x500.jpg">](https://soundcloud.com/backwoodboi/dont-make-a-move-x-emune-1)
 
-**Artist**: Yvng Tavo 
+**Artist**: BACKWOOD BOY 
 
-**Track**: Slippery
+**Track**: Dont Make A Move x EMUNE
 
-Last updated at 06/12/2022 17:35
+Last updated at 06/12/2022 17:39
