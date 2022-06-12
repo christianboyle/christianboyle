@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaFyT611yC06I1oQ-G7glYw-t500x500.jpg">](https://soundcloud.com/welcome-recs/subshock-evangelos-deus-ex-makina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EHdIBClZvMzAiDJl-2nvasQ-t500x500.jpg">](https://soundcloud.com/officialnohero/you?in=officialnohero/sets/you)
 
-**Artist**: Welcome Records 
+**Artist**: No Hero 
 
-**Track**: Subshock & Evangelos - Deus Ex Makina
+**Track**: You
 
-Last updated at 06/12/2022 11:38
+Last updated at 06/12/2022 11:39
