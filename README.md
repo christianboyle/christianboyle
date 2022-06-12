@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ojNy4NbL2tcKiTVl-YNZpOQ-t500x500.jpg">](https://soundcloud.com/prodvaasco/dont-you-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-anL5ngEj136MMass-pkYbmQ-t500x500.jpg">](https://soundcloud.com/prodescobar/fever-dream-w-yungmaple)
 
-**Artist**: VAASCO. 
+**Artist**: 1.9.9.9 
 
-**Track**: DONT YOU KNOW
+**Track**: FEVER DREAM w/ yungmaple
 
-Last updated at 06/12/2022 11:32
+Last updated at 06/12/2022 11:33
