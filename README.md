@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEO78Sc0vHHXy3xf-3b1nXQ-t500x500.jpg">](https://soundcloud.com/enforcerecords/clapyourhands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: MARI 
 
-**Track**: Why Not & Ducka Shan - Clap Your Hands (feat. Jonas Oberstaller)
+**Track**: finesse
 
-Last updated at 06/12/2022 11:30
+Last updated at 06/12/2022 11:31
