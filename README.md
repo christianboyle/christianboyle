@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCQuQtQbkXO8Jbl1-yKkM5Q-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-62-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-62-on-beat-106-scotland-with-ravine-cally-100622)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mMBAszcc1wJXumyU-sMFA4g-t500x500.jpg">](https://soundcloud.com/berrymane/devil-knockin?in=berrymane/sets/new-music-soon-run-this-up)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: BERRYMANE 
 
-**Track**: Bonkers Beats #62 on Beat 106 Scotland with Ravine 100622 (Hour 1)
+**Track**: DEVIL KNOCKIN
 
-Last updated at 06/12/2022 17:10
+Last updated at 06/12/2022 17:11
