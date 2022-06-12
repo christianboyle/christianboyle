@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxwlR8Z1iHLvVkfU-CUsYHw-t500x500.jpg">](https://soundcloud.com/shadowstar666/street-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
 
-**Artist**: SHADOWSTAR 
+**Artist**: MARI 
 
-**Track**: STREET TAPE
+**Track**: finesse
 
-Last updated at 06/12/2022 17:42
+Last updated at 06/12/2022 18:11
