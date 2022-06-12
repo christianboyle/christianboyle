@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxwlR8Z1iHLvVkfU-CUsYHw-t500x500.jpg">](https://soundcloud.com/shadowstar666/street-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xo1Eyy5F94al8Sc2-L9nmVA-t500x500.jpg">](https://soundcloud.com/cashcase11/fuck-everybody)
 
-**Artist**: SHADOWSTAR 
+**Artist**: localmackstar 
 
-**Track**: STREET TAPE
+**Track**: FUCK EVERYBODY
 
-Last updated at 06/12/2022 17:20
+Last updated at 06/12/2022 17:22
