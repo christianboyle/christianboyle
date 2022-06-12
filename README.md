@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sCU9LIDAlqZzooD-5qvOKA-t500x500.jpg">](https://soundcloud.com/pygmalionxxx/nightwalker-whxly_xo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vxtsgH0VBeuu99CN-K7Mb0g-t500x500.jpg">](https://soundcloud.com/fullbodydurag/wap-wsmavs)
 
-**Artist**: pygmalion 
+**Artist**: fullbodydurag 
 
-**Track**: NIGHTWALKER W/hxly_xo
+**Track**: W.A.P w/ SMAVS
 
-Last updated at 06/12/2022 11:34
+Last updated at 06/12/2022 11:35
