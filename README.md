@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rugv20PmQiKlM2hV-Ymp5yg-t500x500.jpg">](https://soundcloud.com/daizybydaizy/smoke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaFyT611yC06I1oQ-G7glYw-t500x500.jpg">](https://soundcloud.com/welcome-recs/subshock-evangelos-deus-ex-makina)
 
-**Artist**: DAIZY 
+**Artist**: Welcome Records 
 
-**Track**: Smoke
+**Track**: Subshock & Evangelos - Deus Ex Makina
 
-Last updated at 06/12/2022 11:37
+Last updated at 06/12/2022 11:38
