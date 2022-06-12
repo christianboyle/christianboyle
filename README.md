@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zbyUE0iZugZvdac-yt2LKA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-29-feat-sweet-like-chocolate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JkzRlZrINKHFrLf-rsLhxw-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/freak)
 
-**Artist**: syence experiments 
+**Artist**: FREDDY KONFEDDY 
 
-**Track**: syence lab: volume 29 (feat. sweet like chocolate)
+**Track**: FREAK (DEBUT ALBUM FORTHCOMING)
 
-Last updated at 06/12/2022 11:40
+Last updated at 06/12/2022 11:41
