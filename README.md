@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vxtsgH0VBeuu99CN-K7Mb0g-t500x500.jpg">](https://soundcloud.com/fullbodydurag/wap-wsmavs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v8u7oeq9yh61qksq-E7bW0A-t500x500.jpg">](https://soundcloud.com/bunny_jp/halsey-so-good-bunny-remix)
 
-**Artist**: fullbodydurag 
+**Artist**: ///BUNNY/// NEW ACCOUNT 
 
-**Track**: W.A.P w/ SMAVS
+**Track**: Halsey - so good (BUNNY Alternative Remix)
 
-Last updated at 06/12/2022 11:35
+Last updated at 06/12/2022 11:36
