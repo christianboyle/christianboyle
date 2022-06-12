@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acEQqIRZ8ypQnynG-aqWBag-t500x500.jpg">](https://soundcloud.com/blossoms-asia/bls057)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKoIzzs2qppKVeJp-nOzySA-t500x500.jpg">](https://soundcloud.com/divr/div134)
 
-**Artist**: Blossoms 🌸 Asia 
+**Artist**: Diversity 
 
-**Track**: No Hero - You
+**Track**: Oxlo - Your Love
 
-Last updated at 06/12/2022 17:24
+Last updated at 06/12/2022 17:26
