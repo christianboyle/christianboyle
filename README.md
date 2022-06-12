@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yvlz08e4fCa3hbv-BzhSbA-t500x500.jpg">](https://soundcloud.com/deadcrxw/jon1k-lucid-do-ya-like-x-resonance-deadcrow-wave-edit-patreon-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v8u7oeq9yh61qksq-E7bW0A-t500x500.jpg">](https://soundcloud.com/bunny_jp/halsey-so-good-bunny-remix)
 
-**Artist**: Deadcrow 
+**Artist**: ///BUNNY/// NEW ACCOUNT 
 
-**Track**: Jon1k, Lucid - Do Ya Like X Resonance (Deadcrow Wave Edit) [PATREON EXCLUSIVE]
+**Track**: Halsey - so good (BUNNY Alternative Remix)
 
-Last updated at 06/12/2022 16:10
+Last updated at 06/12/2022 16:11
