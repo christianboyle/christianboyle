@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/Gvk2fJq1xhQ/hqdefault.jpg">](https://www.youtube.com/watch?v=Gvk2fJq1xhQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
 
-**Artist**: XavierWulf 
+**Artist**: MARI 
 
-**Track**: Xavier Wulf - Check It Out (Official Video)
+**Track**: finesse
 
-Last updated at 06/12/2022 17:13
+Last updated at 06/12/2022 17:17
