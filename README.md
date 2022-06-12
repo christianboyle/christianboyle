@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-anL5ngEj136MMass-pkYbmQ-t500x500.jpg">](https://soundcloud.com/prodescobar/fever-dream-w-yungmaple)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gvFS4LQzIoAUzuDL-Kc20Zg-t500x500.jpg">](https://soundcloud.com/prodescobar/life-we-live-w-nxxxxxs)
 
 **Artist**: 1.9.9.9 
 
-**Track**: FEVER DREAM w/ yungmaple
+**Track**: LIFE WE LIVE w/ NxxxxxS
 
-Last updated at 06/12/2022 16:12
+Last updated at 06/12/2022 16:13
