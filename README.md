@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TFoZGUcWZyQ67DpY-e4cSuQ-t500x500.jpg">](https://soundcloud.com/simplifyrecs/misael-gauna-drewone-noctilucent-trembling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zbyUE0iZugZvdac-yt2LKA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-29-feat-sweet-like-chocolate)
 
-**Artist**: Simplify. 
+**Artist**: syence experiments 
 
-**Track**: Misael Gauna, DrewOne, Noctilucent - Trembling
+**Track**: syence lab: volume 29 (feat. sweet like chocolate)
 
-Last updated at 06/12/2022 18:22
+Last updated at 06/12/2022 18:25
