@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JkzRlZrINKHFrLf-rsLhxw-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xo1Eyy5F94al8Sc2-L9nmVA-t500x500.jpg">](https://soundcloud.com/cashcase11/fuck-everybody)
 
-**Artist**: FREDDY KONFEDDY 
+**Artist**: localmackstar 
 
-**Track**: FREAK (DEBUT ALBUM FORTHCOMING)
+**Track**: FUCK EVERYBODY
 
-Last updated at 06/12/2022 11:41
+Last updated at 06/12/2022 11:42
