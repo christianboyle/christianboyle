@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gvFS4LQzIoAUzuDL-Kc20Zg-t500x500.jpg">](https://soundcloud.com/prodescobar/life-we-live-w-nxxxxxs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xo1Eyy5F94al8Sc2-L9nmVA-t500x500.jpg">](https://soundcloud.com/cashcase11/fuck-everybody)
 
-**Artist**: 1.9.9.9 
+**Artist**: localmackstar 
 
-**Track**: LIFE WE LIVE w/ NxxxxxS
+**Track**: FUCK EVERYBODY
 
-Last updated at 06/12/2022 16:13
+Last updated at 06/12/2022 16:23
