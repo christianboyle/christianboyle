@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJ1t4CKjPx2zEvYL-OXJBzQ-t500x500.jpg">](https://soundcloud.com/lazarusxa/mind-full-of-numbers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZaT9GrDhVnN5BNVG-ombUyw-t500x500.jpg">](https://soundcloud.com/cloudymane/no-offense-instagram-cloudymane2k)
 
-**Artist**: Lazaru$ 
+**Artist**: Cloudymane 
 
-**Track**: MIND FULL OF NUMBERS
+**Track**: NO OFFENSE (Instagram: @cloudymane2k)
 
-Last updated at 06/13/2022 16:19
+Last updated at 06/13/2022 16:20
