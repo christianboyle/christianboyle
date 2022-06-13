@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zbyUE0iZugZvdac-yt2LKA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-29-feat-sweet-like-chocolate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJvQ90NgxiUHjueP-zuRyyA-t500x500.jpg">](https://soundcloud.com/spaceyacht/sqishi-skyro-funk)
 
-**Artist**: syence experiments 
+**Artist**: SPACE YACHT 
 
-**Track**: syence lab: volume 29 (feat. sweet like chocolate)
+**Track**: SQISHI - Skyro Funk
 
-Last updated at 06/12/2022 18:25
+Last updated at 06/12/2022 19:26
