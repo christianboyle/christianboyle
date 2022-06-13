@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJvQ90NgxiUHjueP-zuRyyA-t500x500.jpg">](https://soundcloud.com/spaceyacht/sqishi-skyro-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pfqIFyfjkVXoMeB1-SwoIVw-t500x500.jpg">](https://soundcloud.com/badmouthrecs/mstic-rari)
 
-**Artist**: SPACE YACHT 
+**Artist**: BADMOUTH RECORDS 
 
-**Track**: SQISHI - Skyro Funk
+**Track**: M?STIC - RARI
 
-Last updated at 06/12/2022 19:26
+Last updated at 06/12/2022 19:29
