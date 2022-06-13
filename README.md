@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCbvKV4NuCVIozF6-0eyotA-t500x500.jpg">](https://soundcloud.com/lunafreya000/guilty-idol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI2OB3BVFWzgUgdX-CHrnvg-t500x500.jpg">](https://soundcloud.com/mobstamane/ghetto-boy)
 
-**Artist**: Lunafreya 
+**Artist**: Mobsta Mane 
 
-**Track**: Guilty Idol
+**Track**: Ghetto Boy
 
-Last updated at 06/13/2022 16:12
+Last updated at 06/13/2022 16:13
