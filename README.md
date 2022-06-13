@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgcO6GP7z8TKNtm8-ih2lGA-t500x500.jpg">](https://soundcloud.com/freetownradio/gt-chosen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jtM6Zlz2kKBU010X-DfQBkw-t500x500.jpg">](https://soundcloud.com/user-556740300/ace-cino-in-my-zone)
 
-**Artist**: FREETOWN 
+**Artist**: Ace Cino 
 
-**Track**: gt - chosen
+**Track**: Ace Cino - In My Zone
 
-Last updated at 06/13/2022 16:48
+Last updated at 06/13/2022 16:50
