@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/04ufimjXEbA/maxresdefault.jpg">](https://www.youtube.com/watch?v=04ufimjXEbA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCbvKV4NuCVIozF6-0eyotA-t500x500.jpg">](https://soundcloud.com/lunafreya000/guilty-idol)
 
-**Artist**: RL Grime 
+**Artist**: Lunafreya 
 
-**Track**: Core (Official Music Video)
+**Track**: Guilty Idol
 
-Last updated at 06/13/2022 09:29
+Last updated at 06/13/2022 16:12
