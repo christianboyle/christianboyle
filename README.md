@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGT6zrdYysbyRp02-A57QjQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/die4u-death-code-x-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJ1t4CKjPx2zEvYL-OXJBzQ-t500x500.jpg">](https://soundcloud.com/lazarusxa/mind-full-of-numbers)
 
-**Artist**: Hartshorn 
+**Artist**: Lazaru$ 
 
-**Track**: DIE4U - Death Code X Hartshorn
+**Track**: MIND FULL OF NUMBERS
 
-Last updated at 06/13/2022 16:14
+Last updated at 06/13/2022 16:19
