@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y6wAGJGwxPzXa16M-0UQ0Pg-t500x500.jpg">](https://soundcloud.com/rio0g/rio-da-yung-og-its-a-brick-around-official-video-prod-marc-boomin-sprk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgcO6GP7z8TKNtm8-ih2lGA-t500x500.jpg">](https://soundcloud.com/freetownradio/gt-chosen)
 
-**Artist**: Rio Da Yung OG 
+**Artist**: FREETOWN 
 
-**Track**: Rio Da Yung OG - It's A Brick Around (Official Video) [Prod. Marc Boomin] #SPRK
+**Track**: gt - chosen
 
-Last updated at 06/13/2022 16:46
+Last updated at 06/13/2022 16:48
