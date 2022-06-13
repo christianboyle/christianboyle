@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI2OB3BVFWzgUgdX-CHrnvg-t500x500.jpg">](https://soundcloud.com/mobstamane/ghetto-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGT6zrdYysbyRp02-A57QjQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/die4u-death-code-x-hartshorn)
 
-**Artist**: Mobsta Mane 
+**Artist**: Hartshorn 
 
-**Track**: Ghetto Boy
+**Track**: DIE4U - Death Code X Hartshorn
 
-Last updated at 06/13/2022 16:13
+Last updated at 06/13/2022 16:14
