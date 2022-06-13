@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyADYxhKspG6C0yO-KC3Ckw-t500x500.jpg">](https://soundcloud.com/juicyjesus/jaml-x-juicy-jesus-like-a-rocketjaml-and-the-juiceman)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/04ufimjXEbA/maxresdefault.jpg">](https://www.youtube.com/watch?v=04ufimjXEbA)
 
-**Artist**: Juicy Jesus 
+**Artist**: RL Grime 
 
-**Track**: JamL x Juicy Jesus - Like A Rocket (JamL and the Juiceman)
+**Track**: Core (Official Music Video)
 
-Last updated at 06/12/2022 19:36
+Last updated at 06/13/2022 09:29
