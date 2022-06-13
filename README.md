@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJvQ90NgxiUHjueP-zuRyyA-t500x500.jpg">](https://soundcloud.com/spaceyacht/cromatik-sweettooth-active-decvy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyADYxhKspG6C0yO-KC3Ckw-t500x500.jpg">](https://soundcloud.com/juicyjesus/jaml-x-juicy-jesus-like-a-rocketjaml-and-the-juiceman)
 
-**Artist**: SPACE YACHT 
+**Artist**: Juicy Jesus 
 
-**Track**: Cromatik & SweetTooth - ACTIVE DECVY
+**Track**: JamL x Juicy Jesus - Like A Rocket (JamL and the Juiceman)
 
-Last updated at 06/12/2022 19:33
+Last updated at 06/12/2022 19:36
