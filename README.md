@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TKeE8IHPCjRxYyl9-QGx18g-t500x500.jpg">](https://soundcloud.com/user-946181148/glockboyz-teejaee-onfully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JGxA9Rm8u1Xe0z9Z-9pUOaQ-t500x500.jpg">](https://soundcloud.com/stevertino/babyface-ray-x-veeze-gallery)
 
-**Artist**: RoadRunner Jahu 
+**Artist**: stevert ☭ 
 
-**Track**: GlockBoyz Teejaee & OnFully & Eastway_santana
+**Track**: babyface ray x veeze - gallery dept
 
-Last updated at 06/14/2022 15:07
+Last updated at 06/14/2022 15:10
