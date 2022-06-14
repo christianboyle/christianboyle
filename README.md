@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Y065WdhqvtZImms-tv0RIQ-t500x500.jpg">](https://soundcloud.com/flexpistols/01-rec-2022-05-09)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000677749540-9i5iuk-t500x500.jpg">](https://soundcloud.com/erickdie/lunatic)
 
-**Artist**: Flex Pistols 
+**Artist**: erickD 
 
-**Track**: ROZRUSZNIK SERCA 🧙‍♂️ Ciało 30.04.2022
+**Track**: LUNATIC w/ Varo (1 MILLION PLAYS SPECIAL!)
 
-Last updated at 06/14/2022 14:03
+Last updated at 06/14/2022 14:04
