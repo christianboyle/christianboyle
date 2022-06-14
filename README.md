@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sBGESsi2wCRueZMu-f3432Q-t500x500.jpg">](https://soundcloud.com/8ball_305/3-lil-yachty-rio-da-yung-og-run-down-feat-veezermc-mikelouie-ray-grindhard-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uTKYqhazUgcXYAwY-6ymr2A-t500x500.jpg">](https://soundcloud.com/mr1oak/yn-jay-x-rmc-mike-coochie-man)
 
-**Artist**: 8Ball305 
+**Artist**: 187.Chubb 
 
-**Track**: 3) Lil Yachty & Rio Da Yung OG - Run Down (feat. Veeze,RMC Mike,Louie Ray & GrindHard E)
+**Track**: YN Jay x RMC Mike - Coochie Man & Kitty Master
 
-Last updated at 06/14/2022 15:01
+Last updated at 06/14/2022 15:04
