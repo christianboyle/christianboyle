@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIoQ2REHRWMbzrqt-9LwVnA-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-last-call?in=fraybandsx/sets/life-of-a-og)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DzBH3WdXTQeSUr7g-fY80dg-t500x500.jpg">](https://soundcloud.com/cheekymusicgroup/rrraaavvveee2-caspian-odyssey)
 
-**Artist**: Michiganshottesttracks 
+**Artist**: Cheeky Music Group 
 
-**Track**: Rio Da Yung Og - Last Call
+**Track**: RRRAAAVVVEEE2 // Caspian - Odyssey
 
-Last updated at 06/13/2022 22:44
+Last updated at 06/14/2022 08:05
