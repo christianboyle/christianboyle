@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000677749540-9i5iuk-t500x500.jpg">](https://soundcloud.com/erickdie/lunatic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HwXWEWFX27ds8QTU-2FVOSg-t500x500.jpg">](https://soundcloud.com/morflorecords/mersiv-444-radio-vol-8)
 
-**Artist**: erickD 
+**Artist**: MorFlo Records 
 
-**Track**: LUNATIC w/ Varo (1 MILLION PLAYS SPECIAL!)
+**Track**: Mersiv 44.4 Radio Vol. 08 - SuperAve. x Tape B
 
-Last updated at 06/14/2022 14:04
+Last updated at 06/14/2022 14:06
