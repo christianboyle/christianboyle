@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-22EoBO7zdKj7Isbs-Mgxa3g-t500x500.jpg">](https://soundcloud.com/destinuna/remy-heart-thinking-about-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMc5wS4avNlB8kPg-Zjlezg-t500x500.jpg">](https://soundcloud.com/mixmag-1/courtesy-dj-cover-mix)
 
-**Artist**: Destinuna 
+**Artist**: Mixmag 
 
-**Track**: Remy Heart - Thinking About You
+**Track**: The Cover Mix: Courtesy
 
-Last updated at 06/14/2022 14:11
+Last updated at 06/14/2022 14:14
