@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AW72GxeX4E2pnsr2-4sHQcQ-t500x500.jpg">](https://soundcloud.com/prodnoyse/sync)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Yg7fO2RGzBy8gze-RYqpog-t500x500.jpg">](https://soundcloud.com/novelevents/triple-j-radio-marli)
 
-**Artist**: noyse. 
+**Artist**: Novel 
 
-**Track**: sync
+**Track**: Triple J Radio: Marli
 
-Last updated at 06/14/2022 09:19
+Last updated at 06/14/2022 09:20
