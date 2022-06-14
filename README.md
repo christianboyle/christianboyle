@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGmFozYH0QEivEhO-SyxAlg-t500x500.jpg">](https://soundcloud.com/swanmeat/perfect-cherry-blossom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FENhgLzgldxB6U1v-ZxbqfA-t500x500.jpg">](https://soundcloud.com/houseum/premiere-tifra-entomology-duality-trax)
 
-**Artist**: SWAN MEAT 
+**Artist**: Houseum 
 
-**Track**: PERFECT CHERRY BLOSSOM
+**Track**: PREMIERE: Tifra - Entomology [DUALITY TRAX]
 
-Last updated at 06/14/2022 08:09
+Last updated at 06/14/2022 08:13
