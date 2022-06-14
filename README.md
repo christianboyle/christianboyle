@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMc5wS4avNlB8kPg-Zjlezg-t500x500.jpg">](https://soundcloud.com/mixmag-1/courtesy-dj-cover-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIoQ2REHRWMbzrqt-9LwVnA-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-whatchu-need)
 
-**Artist**: Mixmag 
+**Artist**: Michiganshottesttracks 
 
-**Track**: The Cover Mix: Courtesy
+**Track**: Rio Da Yung Og - Whatchu Need
 
-Last updated at 06/14/2022 14:14
+Last updated at 06/14/2022 14:40
