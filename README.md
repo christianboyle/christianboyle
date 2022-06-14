@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMc5wS4avNlB8kPg-Zjlezg-t500x500.jpg">](https://soundcloud.com/mixmag-1/courtesy-dj-cover-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ji6OgqS1rnpAEFw3-0u9BkQ-t500x500.jpg">](https://soundcloud.com/dimmakrecords/ailow-how-i-do-it)
 
-**Artist**: Mixmag 
+**Artist**: Dim Mak Records 
 
-**Track**: The Cover Mix: Courtesy
+**Track**: Ailow - How I Do It
 
-Last updated at 06/14/2022 10:41
+Last updated at 06/14/2022 11:52
