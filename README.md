@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jtM6Zlz2kKBU010X-DfQBkw-t500x500.jpg">](https://soundcloud.com/user-556740300/ace-cino-in-my-zone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sXN576y0TJ0qGoJe-16fPhw-t500x500.jpg">](https://soundcloud.com/ssradioo/veeze-aw-official-audio)
 
-**Artist**: Ace Cino 
+**Artist**: SS RADIO° 
 
-**Track**: Ace Cino - In My Zone
+**Track**: Veeze - A&W (Official Audio)
 
-Last updated at 06/14/2022 14:45
+Last updated at 06/14/2022 14:48
