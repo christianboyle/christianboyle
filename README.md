@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeiyBt5Fwye1H3S1-cnCFgQ-t500x500.jpg">](https://soundcloud.com/jamesrichy-rich/drego-popovich)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjNaTWMylMAmPWhG-EvKiHA-t500x500.jpg">](https://soundcloud.com/user-587404887/louie-ray-motivator)
 
-**Artist**: All The Hits 
+**Artist**: stayhighzoolin 
 
-**Track**: Drego - Popovich
+**Track**: Louie Ray - Motivator
 
-Last updated at 06/14/2022 14:51
+Last updated at 06/14/2022 14:53
