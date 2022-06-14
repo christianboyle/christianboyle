@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N08yA2gpKAqZEZVm-woyd4Q-t500x500.jpg">](https://soundcloud.com/clb_sounds/clb-another-day-bootlegs-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdpfEHUfzMuRR0qb-4H6qTg-t500x500.jpg">](https://soundcloud.com/zekebeats/dump-trucc?in=definitelynotwreckno/sets/dumptrucc-w-zeke-beats)
 
-**Artist**: CLB 
+**Artist**: ZEKE BEATS 
 
-**Track**: CLB | ANOTHER DAY
+**Track**: ZEKE BEATS X Wreckno - DUMP TRUCC
 
-Last updated at 06/14/2022 10:16
+Last updated at 06/14/2022 10:18
