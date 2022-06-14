@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8sq1CuJyOlMSd3Md-OU38Bg-t500x500.jpg">](https://soundcloud.com/wakaan/shlump-psychedelic-explorer-headbang-society-premiere-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Fqjjpn1SwDRKLHV-hyvbMA-t500x500.jpg">](https://soundcloud.com/higherpowerlabel/higher002-ceili-asquith-back-once-again-ep)
 
-**Artist**: Wakaan 
+**Artist**: Higher Power 
 
-**Track**: Shlump - Psychedelic Explorer [Headbang Society Premiere]
+**Track**: HIGHER002 // Céilí & Asquith - Back Once Again EP
 
-Last updated at 06/14/2022 14:01
+Last updated at 06/14/2022 14:02
