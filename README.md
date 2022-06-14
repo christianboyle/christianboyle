@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGT6zrdYysbyRp02-A57QjQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/die4u-death-code-x-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8sq1CuJyOlMSd3Md-OU38Bg-t500x500.jpg">](https://soundcloud.com/wakaan/shlump-psychedelic-explorer-headbang-society-premiere-1)
 
-**Artist**: Hartshorn 
+**Artist**: Wakaan 
 
-**Track**: DIE4U - Death Code X Hartshorn
+**Track**: Shlump - Psychedelic Explorer [Headbang Society Premiere]
 
-Last updated at 06/14/2022 11:55
+Last updated at 06/14/2022 14:01
