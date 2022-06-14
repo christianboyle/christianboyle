@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ji6OgqS1rnpAEFw3-0u9BkQ-t500x500.jpg">](https://soundcloud.com/dimmakrecords/ailow-how-i-do-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGT6zrdYysbyRp02-A57QjQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/die4u-death-code-x-hartshorn)
 
-**Artist**: Dim Mak Records 
+**Artist**: Hartshorn 
 
-**Track**: Ailow - How I Do It
+**Track**: DIE4U - Death Code X Hartshorn
 
-Last updated at 06/14/2022 11:52
+Last updated at 06/14/2022 11:55
