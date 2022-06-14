@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N08yA2gpKAqZEZVm-woyd4Q-t500x500.jpg">](https://soundcloud.com/clb_sounds/clb-another-day-bootlegs-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMc5wS4avNlB8kPg-Zjlezg-t500x500.jpg">](https://soundcloud.com/mixmag-1/courtesy-dj-cover-mix)
 
-**Artist**: CLB 
+**Artist**: Mixmag 
 
-**Track**: CLB | ANOTHER DAY
+**Track**: The Cover Mix: Courtesy
 
-Last updated at 06/14/2022 10:39
+Last updated at 06/14/2022 10:41
