@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdpfEHUfzMuRR0qb-4H6qTg-t500x500.jpg">](https://soundcloud.com/zekebeats/dump-trucc?in=definitelynotwreckno/sets/dumptrucc-w-zeke-beats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SoWWGmIojSDhzVYq-SJEBEA-t500x500.jpg">](https://soundcloud.com/sablevalley/redloop)
 
-**Artist**: ZEKE BEATS 
+**Artist**: SABLE VALLEY 
 
-**Track**: ZEKE BEATS X Wreckno - DUMP TRUCC
+**Track**: ISOxo - REDloop
 
-Last updated at 06/14/2022 10:18
+Last updated at 06/14/2022 10:19
