@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWIz9Jorr1I4moBE-P1ttzw-t500x500.jpg">](https://soundcloud.com/syndikaet/fallen-shrine-winds-of-change?in=fallenshrine/sets/fallen-shrine-winds-of-change)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGmFozYH0QEivEhO-SyxAlg-t500x500.jpg">](https://soundcloud.com/swanmeat/perfect-cherry-blossom)
 
-**Artist**: SYNDIKÆT 
+**Artist**: SWAN MEAT 
 
-**Track**: Fallen Shrine - Winds Of Change [SNDKT001]
+**Track**: PERFECT CHERRY BLOSSOM
 
-Last updated at 06/14/2022 08:07
+Last updated at 06/14/2022 08:09
