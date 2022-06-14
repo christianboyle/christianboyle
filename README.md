@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HwXWEWFX27ds8QTU-2FVOSg-t500x500.jpg">](https://soundcloud.com/morflorecords/mersiv-444-radio-vol-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-22EoBO7zdKj7Isbs-Mgxa3g-t500x500.jpg">](https://soundcloud.com/destinuna/remy-heart-thinking-about-you)
 
-**Artist**: MorFlo Records 
+**Artist**: Destinuna 
 
-**Track**: Mersiv 44.4 Radio Vol. 08 - SuperAve. x Tape B
+**Track**: Remy Heart - Thinking About You
 
-Last updated at 06/14/2022 14:06
+Last updated at 06/14/2022 14:11
