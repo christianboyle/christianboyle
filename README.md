@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4QjwaHyyMqJPdSlx-7OZu4Q-t500x500.jpg">](https://soundcloud.com/bass-kids-on-the-beat/bandgang-lonnie-bands-millionaires-navy-seals-prod-by-basskidsonthebeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jtM6Zlz2kKBU010X-DfQBkw-t500x500.jpg">](https://soundcloud.com/user-556740300/ace-cino-in-my-zone)
 
-**Artist**: Bass Kids On The Beat 
+**Artist**: Ace Cino 
 
-**Track**: BandGang Lonnie Bands - Millionaires & Navy Seals ( prod by basskidsonthebeat )
+**Track**: Ace Cino - In My Zone
 
-Last updated at 06/14/2022 14:43
+Last updated at 06/14/2022 14:45
