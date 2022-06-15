@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZoe6RRNGMZdQKoh-Wgip1A-t500x500.jpg">](https://soundcloud.com/user-851023404/flowdan-welcome-to-london-liquid-l-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0E2nBz8cGHMVnfMx-QWQHig-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/shiah-maisel-esai-away-from-me-ncs-release?in=thisisesai/sets/away-from-me-w-shiah-maisel)
 
-**Artist**: Liquid L 
+**Artist**: NCS 
 
-**Track**: Flowdan - Welcome To London (Liquid L Remix)
+**Track**: Shiah Maisel & ESAI - Away From Me [NCS Release]
 
-Last updated at 06/15/2022 14:27
+Last updated at 06/15/2022 14:28
