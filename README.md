@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i78YFHpaeACfkZAK-UjffLQ-t500x500.jpg">](https://soundcloud.com/amaryllis_no/used-to-be-trans-pride-war-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acEQqIRZ8ypQnynG-aqWBag-t500x500.jpg">](https://soundcloud.com/blossoms-asia/bls057)
 
-**Artist**: Amaryllis 
+**Artist**: Blossoms 🌸 Asia 
 
-**Track**: Used To Be (TRANS PRIDE WAR DUB)
+**Track**: No Hero - You
 
-Last updated at 06/15/2022 08:34
+Last updated at 06/15/2022 08:37
