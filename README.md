@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYaVsD6lpOzo8khR-HXqycA-t500x500.jpg">](https://soundcloud.com/faithloss/neglect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaQTVMpIl7cY5Iqx-cXCDbg-t500x500.jpg">](https://soundcloud.com/iyoaudio/aa-x)
 
-**Artist**: f a i t h | o s s 
+**Artist**: Iyo (@iyoaudio) 
 
-**Track**: neglect
+**Track**: AA
 
-Last updated at 06/15/2022 14:14
+Last updated at 06/15/2022 14:15
