@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2tN6XzTn40R1Zfj-JzBpNw-t500x500.jpg">](https://soundcloud.com/thxnder777/street-certified-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zzZpKuOtyxYXVgm-eVj64A-t500x500.jpg">](https://soundcloud.com/itsamagii/mychemicalromancehelenaamagiideuxces)
 
-**Artist**: THXNDER 
+**Artist**: AMAGII 
 
-**Track**: STREET CERTIFIED (EP)
+**Track**: MY CHEMICAL ROMANCE - HELENA (AMAGII x DEUXCES REMIX)
 
-Last updated at 06/15/2022 14:29
+Last updated at 06/15/2022 17:26
