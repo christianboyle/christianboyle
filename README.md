@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yvlz08e4fCa3hbv-BzhSbA-t500x500.jpg">](https://soundcloud.com/deadcrxw/jon1k-lucid-do-ya-like-x-resonance-deadcrow-wave-edit-patreon-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i78YFHpaeACfkZAK-UjffLQ-t500x500.jpg">](https://soundcloud.com/amaryllis_no/used-to-be-trans-pride-war-dub)
 
-**Artist**: Deadcrow 
+**Artist**: Amaryllis 
 
-**Track**: Jon1k, Lucid - Do Ya Like X Resonance (Deadcrow Wave Edit) [PATREON EXCLUSIVE]
+**Track**: Used To Be (TRANS PRIDE WAR DUB)
 
-Last updated at 06/15/2022 08:31
+Last updated at 06/15/2022 08:34
