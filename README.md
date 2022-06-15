@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGT6zrdYysbyRp02-A57QjQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/die4u-death-code-x-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjZblIFlA3OyAp5c-0N6Xag-t500x500.jpg">](https://soundcloud.com/amari-o/finesse)
 
-**Artist**: Hartshorn 
+**Artist**: MARI 
 
-**Track**: DIE4U - Death Code X Hartshorn
+**Track**: finesse
 
-Last updated at 06/15/2022 08:11
+Last updated at 06/15/2022 08:15
