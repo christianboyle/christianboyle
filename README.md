@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IebOPngaXGybWR86-y0G1Kg-t500x500.jpg">](https://soundcloud.com/john-meyer-223155962/safe-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N08yA2gpKAqZEZVm-woyd4Q-t500x500.jpg">](https://soundcloud.com/clb_sounds/clb-another-day-bootlegs-001)
 
-**Artist**: JOHN ALTO 
+**Artist**: CLB 
 
-**Track**: Safe - John Alto Remix
+**Track**: CLB | ANOTHER DAY
 
-Last updated at 06/14/2022 21:47
+Last updated at 06/14/2022 21:48
