@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxwlR8Z1iHLvVkfU-CUsYHw-t500x500.jpg">](https://soundcloud.com/shadowstar666/street-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYaVsD6lpOzo8khR-HXqycA-t500x500.jpg">](https://soundcloud.com/faithloss/neglect)
 
-**Artist**: SHADOWSTAR 
+**Artist**: f a i t h | o s s 
 
-**Track**: STREET TAPE
+**Track**: neglect
 
-Last updated at 06/15/2022 08:40
+Last updated at 06/15/2022 14:14
