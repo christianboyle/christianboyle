@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0E2nBz8cGHMVnfMx-QWQHig-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/shiah-maisel-esai-away-from-me-ncs-release?in=thisisesai/sets/away-from-me-w-shiah-maisel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2tN6XzTn40R1Zfj-JzBpNw-t500x500.jpg">](https://soundcloud.com/thxnder777/street-certified-ep)
 
-**Artist**: NCS 
+**Artist**: THXNDER 
 
-**Track**: Shiah Maisel & ESAI - Away From Me [NCS Release]
+**Track**: STREET CERTIFIED (EP)
 
-Last updated at 06/15/2022 14:28
+Last updated at 06/15/2022 14:29
