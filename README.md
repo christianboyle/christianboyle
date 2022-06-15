@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kcNkDvhMQ4gAwo8y-dPbQFw-t500x500.jpg">](https://soundcloud.com/street_ritual/deez-rinse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IebOPngaXGybWR86-y0G1Kg-t500x500.jpg">](https://soundcloud.com/john-meyer-223155962/safe-remix)
 
-**Artist**: Street Ritual 
+**Artist**: JOHN ALTO 
 
-**Track**: DeeZ - Rinse [Headbang Society Premiere]
+**Track**: Safe - John Alto Remix
 
-Last updated at 06/14/2022 21:46
+Last updated at 06/14/2022 21:47
