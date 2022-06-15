@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JGxA9Rm8u1Xe0z9Z-9pUOaQ-t500x500.jpg">](https://soundcloud.com/stevertino/babyface-ray-x-veeze-gallery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kcNkDvhMQ4gAwo8y-dPbQFw-t500x500.jpg">](https://soundcloud.com/street_ritual/deez-rinse)
 
-**Artist**: stevert ☭ 
+**Artist**: Street Ritual 
 
-**Track**: babyface ray x veeze - gallery dept
+**Track**: DeeZ - Rinse [Headbang Society Premiere]
 
-Last updated at 06/14/2022 15:10
+Last updated at 06/14/2022 21:46
