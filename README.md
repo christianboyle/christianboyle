@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-APHHeyv5onHnvLXC-SW2D7g-t500x500.jpg">](https://soundcloud.com/shwoops/shwoops-litty-3000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZoe6RRNGMZdQKoh-Wgip1A-t500x500.jpg">](https://soundcloud.com/user-851023404/flowdan-welcome-to-london-liquid-l-remix)
 
-**Artist**: Shwoops 
+**Artist**: Liquid L 
 
-**Track**: Shwoops & Sharkbait - LITTY 3000
+**Track**: Flowdan - Welcome To London (Liquid L Remix)
 
-Last updated at 06/15/2022 14:25
+Last updated at 06/15/2022 14:27
