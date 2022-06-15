@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkXbFMAfs9SotIIz-z88H0g-t500x500.jpg">](https://soundcloud.com/yungmaple/just-to-feel-like-im-trying-w-draf2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIoQ2REHRWMbzrqt-9LwVnA-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-whatchu-need)
 
-**Artist**: yungmaple 
+**Artist**: Michiganshottesttracks 
 
-**Track**: JUST TO FEEL LIKE IM TRYING w/ draf2k
+**Track**: Rio Da Yung Og - Whatchu Need
 
-Last updated at 06/14/2022 21:50
+Last updated at 06/15/2022 08:04
