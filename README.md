@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xF87PKNdjMEtGDWt-oBi7hQ-t500x500.jpg">](https://soundcloud.com/inextremis/sirius)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/alasen-accelerator)
 
-**Artist**: Inextremis 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: P3PPER, purpoze - Sirius
+**Track**: alasen - accelerator
 
-Last updated at 06/15/2022 14:21
+Last updated at 06/15/2022 14:22
