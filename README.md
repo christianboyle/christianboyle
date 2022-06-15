@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zzZpKuOtyxYXVgm-eVj64A-t500x500.jpg">](https://soundcloud.com/itsamagii/mychemicalromancehelenaamagiideuxces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cwOUGV2iQi9RFCYu-8OGymQ-t500x500.jpg">](https://soundcloud.com/ohlosha/hahaha)
 
-**Artist**: AMAGII 
+**Artist**: 𝕆𝕙 𝕃𝕠𝕤𝕙𝕒 (☝︎ ՞ਊ ՞)☝︎ 
 
-**Track**: MY CHEMICAL ROMANCE - HELENA (AMAGII x DEUXCES REMIX)
+**Track**: Oh Losha - HA!HA!HA!
 
-Last updated at 06/15/2022 17:26
+Last updated at 06/15/2022 17:27
