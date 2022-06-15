@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbeM8z6zGEj50VZ4-svXGcQ-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-2020-bag-x-prod-pablo-616)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkXbFMAfs9SotIIz-z88H0g-t500x500.jpg">](https://soundcloud.com/yungmaple/just-to-feel-like-im-trying-w-draf2k)
 
-**Artist**: Michiganshottesttracks 
+**Artist**: yungmaple 
 
-**Track**: Rio Da Yung OG - 2020 Bag x [Prod. Pablo 616]
+**Track**: JUST TO FEEL LIKE IM TRYING w/ draf2k
 
-Last updated at 06/14/2022 21:49
+Last updated at 06/14/2022 21:50
