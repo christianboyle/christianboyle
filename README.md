@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76aNzOJzYv7gKQ04-nUuyDA-t500x500.jpg">](https://soundcloud.com/youfiend/hitmyline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yvlz08e4fCa3hbv-BzhSbA-t500x500.jpg">](https://soundcloud.com/deadcrxw/jon1k-lucid-do-ya-like-x-resonance-deadcrow-wave-edit-patreon-exclusive)
 
-**Artist**: COSE 
+**Artist**: Deadcrow 
 
-**Track**: (281)-330-8004
+**Track**: Jon1k, Lucid - Do Ya Like X Resonance (Deadcrow Wave Edit) [PATREON EXCLUSIVE]
 
-Last updated at 06/15/2022 08:29
+Last updated at 06/15/2022 08:31
