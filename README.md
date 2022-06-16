@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCzewT0Gj7ipGS1v-1BVmOQ-t500x500.jpg">](https://soundcloud.com/area3000/psyche-transmissions-w-ephacy-14-june-2022)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/RDOeAX3CwxY/maxresdefault.jpg">](https://www.youtube.com/watch?v=RDOeAX3CwxY)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Robots With Rayguns 
 
-**Track**: Psyche. Transmissions w. Ephacy - 14 June 2022
+**Track**: Lil Dicky feat. Chris Brown - Freaky Friday (Robots With Rayguns Remix)
 
-Last updated at 06/16/2022 08:10
+Last updated at 06/16/2022 12:58
