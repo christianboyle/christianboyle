@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/RDOeAX3CwxY/maxresdefault.jpg">](https://www.youtube.com/watch?v=RDOeAX3CwxY)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SiHdaCU2rsxdIv5W-yJP4bg-t500x500.jpg">](https://soundcloud.com/beatkarma/golden-eye)
 
-**Artist**: Robots With Rayguns 
+**Artist**: Beatkarma 
 
-**Track**: Lil Dicky feat. Chris Brown - Freaky Friday (Robots With Rayguns Remix)
+**Track**: Golden Eye
 
-Last updated at 06/16/2022 12:58
+Last updated at 06/16/2022 14:08
