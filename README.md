@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SiHdaCU2rsxdIv5W-yJP4bg-t500x500.jpg">](https://soundcloud.com/beatkarma/golden-eye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPlQHRDOPKyjz48v-rVS2Zw-t500x500.jpg">](https://soundcloud.com/balamii/shy-one-june-2022)
 
-**Artist**: Beatkarma 
+**Artist**: Balamii 
 
-**Track**: Golden Eye
+**Track**: Shy One - June 2022
 
-Last updated at 06/16/2022 14:08
+Last updated at 06/16/2022 14:12
