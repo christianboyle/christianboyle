@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xo1Eyy5F94al8Sc2-L9nmVA-t500x500.jpg">](https://soundcloud.com/cashcase11/fuck-everybody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76aNzOJzYv7gKQ04-nUuyDA-t500x500.jpg">](https://soundcloud.com/youfiend/hitmyline)
 
-**Artist**: localmackstar 
+**Artist**: COSE 
 
-**Track**: FUCK EVERYBODY
+**Track**: (281)-330-8004
 
-Last updated at 06/15/2022 21:52
+Last updated at 06/15/2022 21:53
