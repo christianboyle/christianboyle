@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jj8vuJnqk5SQmpvG-X3tawQ-t500x500.jpg">](https://soundcloud.com/houzmusicblog/gruvee-sharons-groove-hzrx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCzewT0Gj7ipGS1v-1BVmOQ-t500x500.jpg">](https://soundcloud.com/area3000/psyche-transmissions-w-ephacy-14-june-2022)
 
-**Artist**: HOUZ 
+**Artist**: Area 3000 Radio 
 
-**Track**: GruVee - Sharon's Groove [HZRX]
+**Track**: Psyche. Transmissions w. Ephacy - 14 June 2022
 
-Last updated at 06/16/2022 08:09
+Last updated at 06/16/2022 08:10
