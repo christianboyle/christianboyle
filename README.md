@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s8ZypiXB7dFA9d1-c7gKYw-t500x500.jpg">](https://soundcloud.com/djskinnyprince/cape-fear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruK8ZyPxE6mUpeaL-5KNcJA-t500x500.jpg">](https://soundcloud.com/guccigarette/blood-fiend-vault-vol-2)
 
-**Artist**: DJ SKINNY PRINCE 
+**Artist**: GUCCIGARETTE 
 
-**Track**: CAPE FEAR
+**Track**: BLOOD FIEND VAULT VOL. 2
 
-Last updated at 06/17/2022 12:16
+Last updated at 06/17/2022 12:17
