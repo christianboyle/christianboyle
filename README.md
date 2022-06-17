@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPlQHRDOPKyjz48v-rVS2Zw-t500x500.jpg">](https://soundcloud.com/balamii/shy-one-june-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zEnZ1ow3z3ixinR-84y5jw-t500x500.jpg">](https://soundcloud.com/lowpocus/sunbath)
 
-**Artist**: Balamii 
+**Artist**: lowpocus 
 
-**Track**: Shy One - June 2022
+**Track**: Sunbath
 
-Last updated at 06/16/2022 14:12
+Last updated at 06/17/2022 11:06
