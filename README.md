@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s8ZypiXB7dFA9d1-c7gKYw-t500x500.jpg">](https://soundcloud.com/djskinnyprince/cape-fear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nu71Vtm1yYvHJS34-5JZQ3g-t500x500.jpg">](https://soundcloud.com/bonque/4fifteen)
 
-**Artist**: DJ SKINNY PRINCE 
+**Artist**: bonque 
 
-**Track**: CAPE FEAR
+**Track**: 4FIFTEEN
 
-Last updated at 06/17/2022 12:07
+Last updated at 06/17/2022 12:10
