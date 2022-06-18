@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruK8ZyPxE6mUpeaL-5KNcJA-t500x500.jpg">](https://soundcloud.com/guccigarette/blood-fiend-vault-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fovcg9M6PiswIia0-C3AlqA-t500x500.jpg">](https://soundcloud.com/saphirrre/sippin-all-night-w-skiba)
 
-**Artist**: GUCCIGARETTE 
+**Artist**: DJ SAPHIRRE 
 
-**Track**: BLOOD FIEND VAULT VOL. 2
+**Track**: SIPPIN ALL NIGHT w/ SKIBA
 
-Last updated at 06/17/2022 12:17
+Last updated at 06/18/2022 09:55
