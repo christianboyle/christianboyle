@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FIL8ztM01qtBNt67-WkiuIQ-t500x500.jpg">](https://soundcloud.com/spiderhash/how-are-you-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6sIcJrhbsn7Fc93a-2MO2qw-t500x500.jpg">](https://soundcloud.com/mahsiv/mahsiv-thew-but-u-never99)
 
-**Artist**: SPYDER550 
+**Artist**: Mahsiv 
 
-**Track**: HOW ARE YOU (EP)
+**Track**: Mahsiv & Thew - But U Never
 
-Last updated at 06/18/2022 10:01
+Last updated at 06/18/2022 10:06
