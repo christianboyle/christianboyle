@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6sIcJrhbsn7Fc93a-2MO2qw-t500x500.jpg">](https://soundcloud.com/mahsiv/mahsiv-thew-but-u-never99)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AimT5EYwqXzESSA3-4LybDw-t500x500.jpg">](https://soundcloud.com/dvnots/blank-page)
 
-**Artist**: Mahsiv 
+**Artist**: Dvnots 
 
-**Track**: Mahsiv & Thew - But U Never
+**Track**: Ⴆʅαɳƙ ραɠҽ
 
-Last updated at 06/18/2022 10:06
+Last updated at 06/18/2022 10:07
