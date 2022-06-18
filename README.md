@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fovcg9M6PiswIia0-C3AlqA-t500x500.jpg">](https://soundcloud.com/saphirrre/sippin-all-night-w-skiba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eImvQXzl7Q1IkUU2-yS0czg-t500x500.jpg">](https://soundcloud.com/yungsmartrider/run-up-a-check)
 
-**Artist**: DJ SAPHIRRE 
+**Artist**: YUNG SMARTRIDER 
 
-**Track**: SIPPIN ALL NIGHT w/ SKIBA
+**Track**: RUN UP A CHECK
 
-Last updated at 06/18/2022 09:55
+Last updated at 06/18/2022 09:58
