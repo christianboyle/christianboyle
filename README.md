@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eDAvREVi7r4ctfol-My9ptA-t500x500.jpg">](https://soundcloud.com/area3000/meganesia-w-administrator-17-june-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCaAwdTxwxusdfJz-0xG4TA-t500x500.jpg">](https://soundcloud.com/aajaradio/tim-sum-w-shjva-aaja-channel-2-17-06-22)
 
-**Artist**: Area 3000 Radio 
+**Artist**: Aaja Music 
 
-**Track**: MEGANESIA w. ADMINISTRATOR - 17 June 2022
+**Track**: tim-sum w/ Shjva - Aaja Channel 2 - 17 06 22
 
-Last updated at 06/18/2022 10:09
+Last updated at 06/20/2022 09:06
