@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4q8btMIWy3KXEmeR-b5KfmQ-t500x500.jpg">](https://soundcloud.com/menthalo666/bumpin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tgzbMDa70hoqVjrl-bUuwVQ-t500x500.jpg">](https://soundcloud.com/mybadmusic/my-bad-in-the-dark-feat-josh-rubin)
 
-**Artist**: MENTHALO 
+**Artist**: MY BAD 🤬 
 
-**Track**: BUMPIN
+**Track**: MY BAD - In The Dark (feat. Josh Rubin)
 
-Last updated at 06/20/2022 15:48
+Last updated at 06/20/2022 15:49
