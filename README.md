@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyTHWPifHNAI62Z-S1yJ2g-t500x500.jpg">](https://soundcloud.com/187nesseen/the-world-is-yours-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CIJyllOGXGOhuVHJ-a73z1A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/bloom-line-grow-up-with-daye)
 
-**Artist**: TENNESSEEN 
+**Artist**: Future Generation 
 
-**Track**: THE WORLD IS YOURS
+**Track**: Bloom Line - Grow Up (with Daye)
 
-Last updated at 06/20/2022 16:03
+Last updated at 06/20/2022 16:27
