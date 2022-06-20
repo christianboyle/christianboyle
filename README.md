@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CIJyllOGXGOhuVHJ-a73z1A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/bloom-line-grow-up-with-daye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kynYTTJuAqpb6rcS-PdWsLQ-t500x500.jpg">](https://soundcloud.com/lookasmusic/blow)
 
-**Artist**: Future Generation 
+**Artist**: Lookas 
 
-**Track**: Bloom Line - Grow Up (with Daye)
+**Track**: BLOW
 
-Last updated at 06/20/2022 16:27
+Last updated at 06/20/2022 16:28
