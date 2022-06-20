@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKens52Bt6R8oeJ0-uzZMDg-t500x500.jpg">](https://soundcloud.com/mybadmusic/my-bad-one-sided-love-feat-kindred)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyTHWPifHNAI62Z-S1yJ2g-t500x500.jpg">](https://soundcloud.com/187nesseen/the-world-is-yours-2)
 
-**Artist**: MY BAD 🤬 
+**Artist**: TENNESSEEN 
 
-**Track**: MY BAD - One Sided Love (feat. Kindred)
+**Track**: THE WORLD IS YOURS
 
-Last updated at 06/20/2022 15:51
+Last updated at 06/20/2022 16:03
