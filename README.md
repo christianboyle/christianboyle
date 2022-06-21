@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y3Rfz7XnUra1zvSS-KwzM4g-t500x500.jpg">](https://soundcloud.com/prod_chemist/wont-happen-again-wtojikara-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mNfWRXlyiIpohMKa-XfHkdg-t500x500.jpg">](https://soundcloud.com/morflorecords/hexed-z-dougie-187)
 
-**Artist**: CH3MIST 
+**Artist**: MorFlo Records 
 
-**Track**: Wont Happen Again w/tojikara
+**Track**: HEXED x Z-Dougie - 187
 
-Last updated at 06/21/2022 07:17
+Last updated at 06/21/2022 07:18
