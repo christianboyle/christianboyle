@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ldSMzKnsQOHMF0Ym-bKSGhg-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-race-top-gun-danger-zone-x-topgun-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y3Rfz7XnUra1zvSS-KwzM4g-t500x500.jpg">](https://soundcloud.com/prod_chemist/wont-happen-again-wtojikara-2)
 
-**Artist**: M-Project 
+**Artist**: CH3MIST 
 
-**Track**: M-Project & Race - Top Gun (Danger Zone X Top Gun Anthem)
+**Track**: Wont Happen Again w/tojikara
 
-Last updated at 06/21/2022 07:16
+Last updated at 06/21/2022 07:17
