@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ql1MCJi8xZmVt9P7-KjhWWA-t500x500.jpg">](https://soundcloud.com/osakaflip/sippin-pillss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRL2xywlD0pzQRNQ-0BRokg-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-feat-real-tears-guestmix-06202022)
 
-**Artist**: OSAKA 
+**Artist**: datafruits 
 
-**Track**: SIPPIN PILLS (PAYDIRT PLACER VOL.1)
+**Track**: Radio Show With Cralias (Feat Real Tears Guestmix) 06202022
 
-Last updated at 06/21/2022 15:08
+Last updated at 06/21/2022 15:10
