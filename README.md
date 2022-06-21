@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyTHWPifHNAI62Z-S1yJ2g-t500x500.jpg">](https://soundcloud.com/187nesseen/the-world-is-yours-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12cmAR7ZaKM9hzr3-L2DtBQ-t500x500.jpg">](https://soundcloud.com/buntasparks/raw-king-mixtape)
 
-**Artist**: TENNESSEEN 
+**Artist**: BuntaSparks 
 
-**Track**: THE WORLD IS YOURS
+**Track**: RAW KING (MIXTAPE)
 
-Last updated at 06/20/2022 20:34
+Last updated at 06/20/2022 20:35
