@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn3LddbPw3UmTs3w-2UjHcg-t500x500.jpg">](https://soundcloud.com/longjawns/closer)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: JAWNS 
 
-**Track**: Bonkers Beats #63 on Beat 106 Scotland with Daniel Seven 170622 (Hour 2)
+**Track**: NIN - Closer (JAWNS Version)
 
-Last updated at 06/22/2022 10:27
+Last updated at 06/22/2022 15:37
