@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8XfdK46qYVjClyz5-8fKFiA-t500x500.jpg">](https://soundcloud.com/bronzehardware/bronze56k-radio-mix-4-27-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rqM9VaTY7zQhIvN-rkYbig-t500x500.jpg">](https://soundcloud.com/magic_flowers/appetite-for-destruction?in=magic_flowers/sets/trip-flips-part-2)
 
-**Artist**: bronze56k 
+**Artist**: Magic Flowers 
 
-**Track**: BRONZE56K RADIO MIX 4/27/22
+**Track**: Appetite For Destruction
 
-Last updated at 06/22/2022 15:39
+Last updated at 06/22/2022 15:40
