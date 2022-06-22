@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn3LddbPw3UmTs3w-2UjHcg-t500x500.jpg">](https://soundcloud.com/longjawns/closer)
 
-**Artist**: Dirty Workz 
+**Artist**: JAWNS 
 
-**Track**: TNT & Darren Styles - Got The Music
+**Track**: NIN - Closer (JAWNS Version)
 
-Last updated at 06/22/2022 15:45
+Last updated at 06/22/2022 15:49
