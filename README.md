@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn3LddbPw3UmTs3w-2UjHcg-t500x500.jpg">](https://soundcloud.com/longjawns/closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzD29XfeYKKXb4zz-xXEl6g-t500x500.jpg">](https://soundcloud.com/after-label/gigi-d-agostino-bla-bla-bla)
 
-**Artist**: JAWNS 
+**Artist**: After Label & Agency 
 
-**Track**: NIN - Closer (JAWNS Version)
+**Track**: GiGi D´Agostino - Bla Bla Bla (Funk Tribu Rework) (FREE DOWNLOAD)
 
-Last updated at 06/22/2022 15:49
+Last updated at 06/22/2022 15:53
