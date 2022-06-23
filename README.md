@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vDdAhnjuGchstRY5-9c54oA-t500x500.jpg">](https://soundcloud.com/lucas-deyong/tomaz-vs-filterheadz-sunshine-lucas-deyong-rework)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Lucas Deyong Official 
 
-**Track**: Bonkers Beats #63 on Beat 106 Scotland with Daniel Seven 170622 (Hour 2)
+**Track**: Tomaz vs. Filterheadz - Sunshine (Lucas Deyong Rework) [FREE DOWNLOAD]
 
-Last updated at 06/23/2022 13:06
+Last updated at 06/23/2022 14:58
