@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zg6PjPXVXzb9WQ5A-I4oVwA-t500x500.jpg">](https://soundcloud.com/tsu_nami/flume-quiet-bison-escape-feat-kucka-tsu-nami-flip)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: TSU NAMI 
 
-**Track**: Bonkers Beats #63 on Beat 106 Scotland with Daniel Seven 170622 (Hour 2)
+**Track**: Flume & QUIET BISON - ESCAPE (feat. KUČKA) [TSU NAMI FLIP]
 
-Last updated at 06/23/2022 09:52
+Last updated at 06/23/2022 12:51
