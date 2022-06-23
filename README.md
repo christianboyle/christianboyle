@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kH40P9tQmudH15f0-LkM2KQ-t500x500.jpg">](https://soundcloud.com/viktoras-viktorassx/yeat-mix-1-hour-with-transitions)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Viktor7772 
 
-**Track**: Bonkers Beats #63 on Beat 106 Scotland with Daniel Seven 170622 (Hour 2)
+**Track**: Yeat Mix (1 Hour With Transitions)
 
-Last updated at 06/22/2022 15:57
+Last updated at 06/23/2022 08:00
