@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcDuTpVkVbx66fz6-ja6agg-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-534-event-festival-anthems-special)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5qhpudRvbEicTItP-zfGsYw-t500x500.jpg">](https://soundcloud.com/katahaifisch/air-horse-one-fata-irish-master?in=katahaifisch/sets/counting-colours-chapter-3)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: KataHaifisch 
 
-**Track**: KTRA Episode 534: Event / Festival Anthems Special
+**Track**: Air Horse One - Fata Irish [KataHaifisch]
 
-Last updated at 06/23/2022 08:01
+Last updated at 06/23/2022 08:02
