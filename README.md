@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPMlpFOsUVyDbMo4-1Wa1zg-t500x500.jpg">](https://soundcloud.com/puritylabel/home-again-out-now-on-spotify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
 
-**Artist**: purity 
+**Artist**: Dirty Workz 
 
-**Track**: home again (out now on spotify!)
+**Track**: TNT & Darren Styles - Got The Music
 
-Last updated at 06/24/2022 10:45
+Last updated at 06/24/2022 15:55
