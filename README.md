@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcRzOf5BoER1q5sR-slUzvg-t500x500.jpg">](https://soundcloud.com/saint-baek/you-step-to-the-goat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn3LddbPw3UmTs3w-2UjHcg-t500x500.jpg">](https://soundcloud.com/longjawns/closer)
 
-**Artist**: SAINT MILLER 
+**Artist**: JAWNS 
 
-**Track**: You Step To The -GOAT-
+**Track**: NIN - Closer (JAWNS Version)
 
-Last updated at 06/24/2022 16:44
+Last updated at 06/24/2022 16:51
