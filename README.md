@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kUAUdfvSHTIvphAJ-7QJm5A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/unsenses-nino-lucarelli-take-me-higher)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEaWIDnKB1a3cS9o-YXdKtg-t500x500.jpg">](https://soundcloud.com/t-e-e-d/forever1)
 
-**Artist**: Dirty Workz 
+**Artist**: Totally Enormous Extinct Dinosaurs 
 
-**Track**: Unsenses & Nino Lucarelli - Take Me Higher
+**Track**: Forever
 
-Last updated at 06/24/2022 15:59
+Last updated at 06/24/2022 16:11
