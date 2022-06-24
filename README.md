@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn3LddbPw3UmTs3w-2UjHcg-t500x500.jpg">](https://soundcloud.com/longjawns/closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJHuHeLe0L5FLNEE-z42A4g-t500x500.jpg">](https://soundcloud.com/iamtuple/do-or-die-vol-4)
 
-**Artist**: JAWNS 
+**Artist**: TUPLE 
 
-**Track**: NIN - Closer (JAWNS Version)
+**Track**: DO OR DIE VOL. 4
 
-Last updated at 06/24/2022 16:51
+Last updated at 06/24/2022 16:53
