@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEaWIDnKB1a3cS9o-YXdKtg-t500x500.jpg">](https://soundcloud.com/t-e-e-d/forever1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uPEzWNOnswfTd2Gs-yuwUPw-t500x500.jpg">](https://soundcloud.com/odneme/fallen-angel?in=odneme/sets/fallen-angel-1997-stellar)
 
-**Artist**: Totally Enormous Extinct Dinosaurs 
+**Artist**: odneme 
 
-**Track**: Forever
+**Track**: FALLEN ANGEL
 
-Last updated at 06/24/2022 16:11
+Last updated at 06/24/2022 16:30
