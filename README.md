@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlI8b3WzLT3tgAWt-CAYP7A-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/55555x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eImvQXzl7Q1IkUU2-yS0czg-t500x500.jpg">](https://soundcloud.com/yungsmartrider/run-up-a-check)
 
-**Artist**: kushface ☤ 
+**Artist**: YUNG SMARTRIDER 
 
-**Track**: /////
+**Track**: RUN UP A CHECK
 
-Last updated at 06/25/2022 08:37
+Last updated at 06/25/2022 08:41
