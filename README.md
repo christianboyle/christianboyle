@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlI8b3WzLT3tgAWt-CAYP7A-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/55555x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEaWIDnKB1a3cS9o-YXdKtg-t500x500.jpg">](https://soundcloud.com/t-e-e-d/forever1)
 
-**Artist**: kushface ☤ 
+**Artist**: Totally Enormous Extinct Dinosaurs 
 
-**Track**: /////
+**Track**: Forever
 
-Last updated at 06/25/2022 09:47
+Last updated at 06/25/2022 09:48
