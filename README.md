@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEaWIDnKB1a3cS9o-YXdKtg-t500x500.jpg">](https://soundcloud.com/t-e-e-d/forever1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPMlpFOsUVyDbMo4-1Wa1zg-t500x500.jpg">](https://soundcloud.com/puritylabel/home-again-out-now-on-spotify)
 
-**Artist**: Totally Enormous Extinct Dinosaurs 
+**Artist**: purity 
 
-**Track**: Forever
+**Track**: home again (out now on spotify!)
 
-Last updated at 06/25/2022 09:48
+Last updated at 06/25/2022 09:53
