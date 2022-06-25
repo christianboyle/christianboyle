@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ihzNm3P9ez8FUP2-c1c9vg-t500x500.png">](https://soundcloud.com/righten/armyoflove?in=wearenova/sets/nmf-6-24-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlI8b3WzLT3tgAWt-CAYP7A-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/55555x)
 
-**Artist**: Righten 
+**Artist**: kushface ☤ 
 
-**Track**: Kerli - Army Of Love (Righten's Love Remix)
+**Track**: /////
 
-Last updated at 06/25/2022 08:28
+Last updated at 06/25/2022 08:32
