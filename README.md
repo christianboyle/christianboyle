@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qa7svxGoyhN8wNQI-tUXpzw-t500x500.jpg">](https://soundcloud.com/djesports/innards-hard-to-swallow-esports-rework)
 
-**Artist**: Dirty Workz 
+**Artist**: DJ eSPORTS 
 
-**Track**: TNT & Darren Styles - Got The Music
+**Track**: innards - hard to swallow (esports rework)
 
-Last updated at 06/24/2022 21:15
+Last updated at 06/24/2022 21:43
