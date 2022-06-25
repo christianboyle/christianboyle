@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcPd9ctlhlSEaYEL-oW1ykw-t500x500.jpg">](https://soundcloud.com/warehouse-radio/episode-39-guest-mix-ghozt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
 
-**Artist**: Warehouse Radio 
+**Artist**: Dirty Workz 
 
-**Track**: Episode 39 • Guest Mix : Ghozt
+**Track**: TNT & Darren Styles - Got The Music
 
-Last updated at 06/24/2022 21:14
+Last updated at 06/24/2022 21:15
