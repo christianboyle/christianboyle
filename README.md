@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eImvQXzl7Q1IkUU2-yS0czg-t500x500.jpg">](https://soundcloud.com/yungsmartrider/run-up-a-check)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJHuHeLe0L5FLNEE-z42A4g-t500x500.jpg">](https://soundcloud.com/iamtuple/do-or-die-vol-4)
 
-**Artist**: YUNG SMARTRIDER 
+**Artist**: TUPLE 
 
-**Track**: RUN UP A CHECK
+**Track**: DO OR DIE VOL. 4
 
-Last updated at 06/25/2022 08:41
+Last updated at 06/25/2022 08:43
