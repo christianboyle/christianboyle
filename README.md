@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJHuHeLe0L5FLNEE-z42A4g-t500x500.jpg">](https://soundcloud.com/iamtuple/do-or-die-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcPd9ctlhlSEaYEL-oW1ykw-t500x500.jpg">](https://soundcloud.com/warehouse-radio/episode-39-guest-mix-ghozt)
 
-**Artist**: TUPLE 
+**Artist**: Warehouse Radio 
 
-**Track**: DO OR DIE VOL. 4
+**Track**: Episode 39 • Guest Mix : Ghozt
 
-Last updated at 06/24/2022 16:53
+Last updated at 06/24/2022 21:14
