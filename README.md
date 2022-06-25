@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVBzhhDHRRKPageZ-gbzGyg-t500x500.png">](https://soundcloud.com/djcostaboston/gayle-abcdefu-costa-bootie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kynYTTJuAqpb6rcS-PdWsLQ-t500x500.jpg">](https://soundcloud.com/lookasmusic/blow)
 
-**Artist**: Costa 
+**Artist**: Lookas 
 
-**Track**: GAYLE - ABCDEFU (COSTA BOOTIE)
+**Track**: BLOW
 
-Last updated at 06/24/2022 21:45
+Last updated at 06/24/2022 21:47
