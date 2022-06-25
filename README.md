@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHXbELxqC5BY8mes-C6QxlA-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc158)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EqZaIHz0ggf6NxPV-OhEMMQ-t500x500.jpg">](https://soundcloud.com/prkrblu/fightnomore?in=wearenova/sets/nmf-6-24-22)
 
-**Artist**: NON STOP NXC® 
+**Artist**: prkr blu 
 
-**Track**: NXC158 - GRAZ - BL1ND3D L1GHT5 (bonus track)
+**Track**: FIGHTNOMORE + pheni (monaco16 + secretsss)
 
-Last updated at 06/24/2022 21:50
+Last updated at 06/25/2022 08:11
