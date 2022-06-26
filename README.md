@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000576050927-8lqehh-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/whatever-you-got-i-got-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fPFms0AIcFTVquci-sL56fA-t500x500.jpg">](https://soundcloud.com/riotville-records/thatbehavior-yu-feel)
 
-**Artist**: kushface ☤ 
+**Artist**: Riotville Records 
 
-**Track**: WHATEVER YOU GOT, I GOT MORE
+**Track**: ThatBehavior - Yu Feel
 
-Last updated at 06/26/2022 08:53
+Last updated at 06/26/2022 08:54
