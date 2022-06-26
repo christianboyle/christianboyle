@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPMlpFOsUVyDbMo4-1Wa1zg-t500x500.jpg">](https://soundcloud.com/puritylabel/home-again-out-now-on-spotify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMTxqxuEGCMKsygO-N8C5vg-t500x500.jpg">](https://soundcloud.com/vibrancylabel/darren-after-underground-2)
 
-**Artist**: purity 
+**Artist**: VIBRANCY/// 
 
-**Track**: home again (out now on spotify!)
+**Track**: Darren After - Underground [Vibrancy]
 
-Last updated at 06/25/2022 09:53
+Last updated at 06/26/2022 08:38
