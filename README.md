@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPMlpFOsUVyDbMo4-1Wa1zg-t500x500.jpg">](https://soundcloud.com/puritylabel/home-again-out-now-on-spotify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x38DRPB1UyznVIgH-v4QGMw-t500x500.jpg">](https://soundcloud.com/snithbeats/creek)
 
-**Artist**: purity 
+**Artist**: SNITH 
 
-**Track**: home again (out now on spotify!)
+**Track**: CREEK
 
-Last updated at 06/26/2022 16:17
+Last updated at 06/26/2022 16:47
