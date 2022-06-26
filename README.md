@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7W15NjoLaDpsG1oG-PGy4lA-t500x500.jpg">](https://soundcloud.com/hpshawty/pockets-filled-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ULQE5i6f1DQAX6W7-CcTPfA-t500x500.jpg">](https://soundcloud.com/judgementg/heavy-11-bkr-tape)
 
-**Artist**: HPSHAWTY 
+**Artist**: Judgement G 
 
-**Track**: POCKETS FILLED ( FULL STREAM )
+**Track**: HEAVY 11 (BKR TAPE)
 
-Last updated at 06/26/2022 16:48
+Last updated at 06/26/2022 16:49
