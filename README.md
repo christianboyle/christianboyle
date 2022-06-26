@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dNzwxUyOz8Z39Dkc-sWqVFQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/hirohiro-stay-for-life-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEjDHWklGBv8Mryj-ZwbwSw-t500x500.png">](https://soundcloud.com/justicehardcore/fantasy-project-crazy-babyjel7yz-bootleg-free-download)
 
 **Artist**: Justice Hardcore 
 
-**Track**: HiroHiro - Stay For Life ⚠️OUT NOW⚠️
+**Track**: Fantasy Project - Crazy Baby(Jel7yz Bootleg) ✅FREE DOWNLOAD✅
 
-Last updated at 06/26/2022 16:56
+Last updated at 06/26/2022 16:57
