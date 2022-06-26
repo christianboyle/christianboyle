@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I8ppQ9737lFy4TDh-WDM6MQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/blindspot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LdfaRps6jfyKqnws-yuhR7g-t500x500.jpg">](https://soundcloud.com/djshimamura/energy-flash-produced-by-dj-shimamura)
 
-**Artist**: Justice Hardcore 
+**Artist**: DJShimamura 
 
-**Track**: Nurko - Blindspot  Ft. Devon Baldwin (Fader Remix) ✅FREE DOWNLOAD✅
+**Track**: アイロボ - ENERGY FLASH
 
-Last updated at 06/26/2022 17:01
+Last updated at 06/26/2022 17:02
