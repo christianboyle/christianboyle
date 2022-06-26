@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMTxqxuEGCMKsygO-N8C5vg-t500x500.jpg">](https://soundcloud.com/vibrancylabel/darren-after-underground-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JYa1eWCxy1ya5rF-NhNCYA-t500x500.jpg">](https://soundcloud.com/stvshboi/subzero-ep)
 
-**Artist**: VIBRANCY/// 
+**Artist**: STVSHBOI 
 
-**Track**: Darren After - Underground [Vibrancy]
+**Track**: SUBZERO EP (FULL STREAM)
 
-Last updated at 06/26/2022 08:38
+Last updated at 06/26/2022 08:39
