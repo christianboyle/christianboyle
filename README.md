@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLFJDmWsAzbqzVxF-53uUjg-t500x500.jpg">](https://soundcloud.com/purple_denim/born-with-that-attitude)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlI8b3WzLT3tgAWt-CAYP7A-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/55555x)
 
-**Artist**: ✆✰✿ 
+**Artist**: kushface ☤ 
 
-**Track**: BORN WITH THAT ATTITUDE
+**Track**: /////
 
-Last updated at 06/26/2022 13:50
+Last updated at 06/26/2022 16:06
