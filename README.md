@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CtkzUqrhWxCxioiS-VVuMyA-t500x500.jpg">](https://soundcloud.com/technopanderetamusic/metrakit-dj-tuerca-cuidao?in=emojiheap/sets/msg2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xHPjDuHYZBtWWiOG-BPezYg-t500x500.jpg">](https://soundcloud.com/djg2g/pls-stay?in=emojiheap/sets/msg2)
 
-**Artist**: Techno Pandereta Music 
+**Artist**: D̤̮J̤̮ G̤̮2G̤̮ ♪ ͜ ♪ 
 
-**Track**: Metrakit & DJ TUERCA - Cuidao
+**Track**: STAY</3
 
-Last updated at 06/26/2022 08:57
+Last updated at 06/26/2022 08:58
