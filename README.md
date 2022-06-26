@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ULQE5i6f1DQAX6W7-CcTPfA-t500x500.jpg">](https://soundcloud.com/judgementg/heavy-11-bkr-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-queS0oHhodmgt5uz-t2iAHg-t500x500.jpg">](https://soundcloud.com/perma-trip/cemetary-free-download)
 
-**Artist**: Judgement G 
+**Artist**: PERMA-TRIP 
 
-**Track**: HEAVY 11 (BKR TAPE)
+**Track**: Cemetary (Free download)
 
-Last updated at 06/26/2022 16:49
+Last updated at 06/26/2022 16:50
