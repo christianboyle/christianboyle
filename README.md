@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwAQ42247biF3bPz-GqSl9A-t500x500.jpg">](https://soundcloud.com/chrmaticrecords/dj-ish-falling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2RA4XSveTgl9Yzn-3SfXYg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/bassbrain-a-million-stars-dwx-copyright-free)
 
-**Artist**: Chrmatic 
+**Artist**: Dirty Workz 
 
-**Track**: Dj Ish - Falling
+**Track**: Bassbrain - A Million Stars (DWX Copyright Free)
 
-Last updated at 06/27/2022 08:08
+Last updated at 06/27/2022 08:09
