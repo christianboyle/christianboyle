@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2RA4XSveTgl9Yzn-3SfXYg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/bassbrain-a-million-stars-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106)
 
-**Artist**: Dirty Workz 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Bassbrain - A Million Stars (DWX Copyright Free)
+**Track**: Bonkers Beats #63 on Beat 106 Scotland with Daniel Seven 170622 (Hour 2)
 
-Last updated at 06/27/2022 08:09
+Last updated at 06/27/2022 08:10
