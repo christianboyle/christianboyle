@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rcnlMy1HPUktIYQF-Q2GszQ-t500x500.jpg">](https://soundcloud.com/vstro/hid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hcdnHyDg2SV0WX7F-jaTxKg-t500x500.jpg">](https://soundcloud.com/pootyh/the-tangy-mixxx-drumkit-out-now?in=pootyh/sets/new-junt-1)
 
-**Artist**: VSTRO 
+**Artist**: POOTY 
 
-**Track**: Hold It Down
+**Track**: THE TANGY MIXXX (DRUMKIT OUT NOW!)
 
-Last updated at 06/29/2022 08:37
+Last updated at 06/29/2022 09:29
