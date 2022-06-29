@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hcdnHyDg2SV0WX7F-jaTxKg-t500x500.jpg">](https://soundcloud.com/pootyh/the-tangy-mixxx-drumkit-out-now?in=pootyh/sets/new-junt-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4NfYfWwDT8EeaOTY-9A7SOQ-t500x500.jpg">](https://soundcloud.com/motztechno/motz-premiere-dj-physical-overshoot-palmslp003)
 
-**Artist**: POOTY 
+**Artist**: MOTZ 
 
-**Track**: THE TANGY MIXXX (DRUMKIT OUT NOW!)
+**Track**: MOTZ Premiere: DJ Physical - Overshoot [PALMSLP003]
 
-Last updated at 06/29/2022 09:29
+Last updated at 06/29/2022 09:30
