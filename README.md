@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1ejw5fcFJt4Pr3E-G4AQuQ-t500x500.jpg">](https://soundcloud.com/wrack90/internet-public-radiow-piccolo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rcnlMy1HPUktIYQF-Q2GszQ-t500x500.jpg">](https://soundcloud.com/vstro/hid)
 
-**Artist**: WRACK 
+**Artist**: VSTRO 
 
-**Track**: Internet Public Radio x WRACK w/ pìccolo (June 26th 2022)
+**Track**: Hold It Down
 
-Last updated at 06/28/2022 07:58
+Last updated at 06/29/2022 08:37
