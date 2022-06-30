@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334443048-albeqn-t500x500.jpg">](https://soundcloud.com/killmythic/yung-evil-impossible-feat-ronocold-topboytheo-prod-mythic-x-soudiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537693336-2wpk69-t500x500.jpg">](https://soundcloud.com/killmythic/takin-off-w-inteus)
 
 **Artist**: Mythic 
 
-**Track**: Yung Evil - Impossible feat. Ron$oCold & Topboytheo (prod. Mythic x Soudiere)
+**Track**: TAKIN' OFF w/ INTEUS
 
-Last updated at 06/30/2022 08:52
+Last updated at 06/30/2022 08:55
