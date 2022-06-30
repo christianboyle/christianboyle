@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197336615-ssv1go-t500x500.jpg">](https://soundcloud.com/killmythic/die-2-night-feat-grxgvr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000334443048-albeqn-t500x500.jpg">](https://soundcloud.com/killmythic/yung-evil-impossible-feat-ronocold-topboytheo-prod-mythic-x-soudiere)
 
 **Artist**: Mythic 
 
-**Track**: DIE 2 NIGHT Feat. GRXGVR
+**Track**: Yung Evil - Impossible feat. Ron$oCold & Topboytheo (prod. Mythic x Soudiere)
 
-Last updated at 06/30/2022 08:49
+Last updated at 06/30/2022 08:52
