@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qcyFNZG9cAZl6thL-yx6esg-t500x500.jpg">](https://soundcloud.com/berrymane/crime-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000136461723-gxxtre-t500x500.jpg">](https://soundcloud.com/killmythic/trappin-out-da-rezidence-pt-3)
 
-**Artist**: BERRYMANE 
+**Artist**: Mythic 
 
-**Track**: CRIME TIME (OUT ON ALL PLATFORMS)
+**Track**: TRAPPIN' OUT DA REZIDENCE III
 
-Last updated at 06/30/2022 17:08
+Last updated at 06/30/2022 17:29
