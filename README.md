@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PH6dMMy9J1qIvWi-5TNd5Q-t500x500.jpg">](https://soundcloud.com/riotville-records/john-alto-work-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3euOWFzqZBRnVEYJ-FHThPQ-t500x500.jpg">](https://soundcloud.com/itssodope/do-u-mind-feat-wxnder-y)
 
-**Artist**: Riotville Records 
+**Artist**: So Dope 
 
-**Track**: John Alto - Work It
+**Track**: Do U Mind (Feat. Wxnder Y)
 
-Last updated at 06/30/2022 08:15
+Last updated at 06/30/2022 08:17
