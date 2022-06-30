@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qcyFNZG9cAZl6thL-yx6esg-t500x500.jpg">](https://soundcloud.com/berrymane/crime-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAXzy2SOOZOaoSPr-XtsKFw-t500x500.jpg">](https://soundcloud.com/youngpirelli/stuck-in-my-ways)
 
-**Artist**: BERRYMANE 
+**Artist**: SOUDIERE 
 
-**Track**: CRIME TIME (OUT ON ALL PLATFORMS)
+**Track**: STUCK IN MY WAYS
 
-Last updated at 06/30/2022 08:57
+Last updated at 06/30/2022 10:47
