@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466590135-gfkdwv-t500x500.jpg">](https://soundcloud.com/killmythic/spittin-game-mythic-x-drae-da-skimask)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197336615-ssv1go-t500x500.jpg">](https://soundcloud.com/killmythic/die-2-night-feat-grxgvr)
 
 **Artist**: Mythic 
 
-**Track**: SPITTIN' GAME w/  Drae Da Skimask
+**Track**: DIE 2 NIGHT Feat. GRXGVR
 
-Last updated at 06/30/2022 08:45
+Last updated at 06/30/2022 08:49
