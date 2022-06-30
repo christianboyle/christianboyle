@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q837IptJuIUoZ1YX-jhlnoA-t500x500.jpg">](https://soundcloud.com/runningoutofsteam/roos015-greetings-dont-die-wondering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000136461723-gxxtre-t500x500.jpg">](https://soundcloud.com/killmythic/trappin-out-da-rezidence-pt-3)
 
-**Artist**: Running Out Of Steam 
+**Artist**: Mythic 
 
-**Track**: ROOS015 // GREETINGS - Don't Die Wondering
+**Track**: TRAPPIN' OUT DA REZIDENCE III
 
-Last updated at 06/30/2022 08:28
+Last updated at 06/30/2022 08:29
