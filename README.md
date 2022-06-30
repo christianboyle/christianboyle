@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgAvafqZ07jcxp5x-UtOgvg-t500x500.jpg">](https://soundcloud.com/criminalistic-records/southern-sigils-murda-is-tha-prophecy-prod-isvvc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-59bzaeZsEw8rdytT-1nzKXQ-t500x500.jpg">](https://soundcloud.com/skayo666/chroma-w-sway55)
 
-**Artist**: CRIMINALISTIC RECORDS 
+**Artist**: skayo 
 
-**Track**: SOUTHERN SIGILS - MURDA IS THA PROPHECY [PROD. ISVVC]
+**Track**: CHROMA w/ SWAY55
 
-Last updated at 06/30/2022 15:40
+Last updated at 06/30/2022 15:41
