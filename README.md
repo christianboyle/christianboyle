@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y5y4c7VdLZdQ6spD-nuvYsw-t500x500.jpg">](https://soundcloud.com/yuki-pons/iwannabeurgravity-w-o0o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
 
-**Artist**: shyburial 
+**Artist**: thirtyonetwentyfive (3125) 
 
-**Track**: IWannaBeUrGravity w/ o0o
+**Track**: lipgloss (thirtyonetwentyfive remix)
 
-Last updated at 06/29/2022 21:02
+Last updated at 06/29/2022 21:03
