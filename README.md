@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJUfgbqRGFhtbMFE-n9uuKA-t500x500.jpg">](https://soundcloud.com/rinsefm/scuffedrecordings280622)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cHFz741oRaucUpu-QhUGtw-t500x500.jpg">](https://soundcloud.com/optimo-music/tom-sharket-sampler)
 
-**Artist**: Rinse FM 
+**Artist**: Optimo Music 
 
-**Track**: Scuffed Recordings with Ian DPM - 28 June 2022
+**Track**: OMDD 43 - Tom Sharkett - Futuro EP
 
-Last updated at 06/29/2022 09:31
+Last updated at 06/29/2022 20:55
