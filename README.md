@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d2yNb0kzkjIpsP5H-7WZLtQ-t500x500.jpg">](https://soundcloud.com/mistmurk/former-hero-to-you-for-everything-mistmurk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgAvafqZ07jcxp5x-UtOgvg-t500x500.jpg">](https://soundcloud.com/criminalistic-records/southern-sigils-murda-is-tha-prophecy-prod-isvvc)
 
-**Artist**: mistmurk 
+**Artist**: CRIMINALISTIC RECORDS 
 
-**Track**: former hero - to you, for everything (mistmurk remix)
+**Track**: SOUTHERN SIGILS - MURDA IS THA PROPHECY [PROD. ISVVC]
 
-Last updated at 06/30/2022 15:38
+Last updated at 06/30/2022 15:40
