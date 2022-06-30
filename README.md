@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GAA2qRlPJwGOmSuG-iRiQvQ-t500x500.jpg">](https://soundcloud.com/youngpirelli/still-remember)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qcyFNZG9cAZl6thL-yx6esg-t500x500.jpg">](https://soundcloud.com/berrymane/crime-time)
 
-**Artist**: SOUDIERE 
+**Artist**: BERRYMANE 
 
-**Track**: STILL REMEMBER
+**Track**: CRIME TIME (OUT ON ALL PLATFORMS)
 
-Last updated at 06/30/2022 17:05
+Last updated at 06/30/2022 17:08
