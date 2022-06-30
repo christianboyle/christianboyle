@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4z2JZyFmjR9ySvhn-Iv3rIA-t500x500.jpg">](https://soundcloud.com/emoteria/whydoidothis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v61kHCzbnWZ9vxmB-7AzSzA-t500x500.jpg">](https://soundcloud.com/xxxsagexxx/altered-soul-mind-upload-sage-rmx)
 
-**Artist**: ᕦᙏᓌᖶᕦᖇᓰᕢ 
+**Artist**: xSAGEx 
 
-**Track**: whydoidothis
+**Track**: Altered Soul - Mind Upload (Sage rmx) Free wav
 
-Last updated at 06/30/2022 08:23
+Last updated at 06/30/2022 08:25
