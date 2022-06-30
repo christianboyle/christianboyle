@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000130275383-1gprxb-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-smokey-escobar-xanada-bodeine-fiendz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GAA2qRlPJwGOmSuG-iRiQvQ-t500x500.jpg">](https://soundcloud.com/youngpirelli/still-remember)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: SOUDIERE 
 
-**Track**: DJ Smokey - Smokey Escobar / Xanada Bodeine Fiendz
+**Track**: STILL REMEMBER
 
-Last updated at 06/30/2022 16:57
+Last updated at 06/30/2022 17:05
