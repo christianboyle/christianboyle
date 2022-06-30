@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwJEyycIENntRYF2-0UNzcw-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-jane-remix)
 
-**Artist**: thirtyonetwentyfive (3125) 
+**Artist**: Dan Larkin 
 
-**Track**: lipgloss (thirtyonetwentyfive remix)
+**Track**: The Diary Of Jane (Dan Larkin Remix)
 
-Last updated at 06/29/2022 21:03
+Last updated at 06/29/2022 21:10
