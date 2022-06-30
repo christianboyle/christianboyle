@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHGgf7GAv30TstaT-4oKVyw-t500x500.png">](https://soundcloud.com/visionrecordings/vision-radio-s02e26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4z2JZyFmjR9ySvhn-Iv3rIA-t500x500.jpg">](https://soundcloud.com/emoteria/whydoidothis)
 
-**Artist**: VISION 
+**Artist**: ᕦᙏᓌᖶᕦᖇᓰᕢ 
 
-**Track**: VISION Radio S02E26 // Hosted by Dave Colombo Jenkins & Martijn
+**Track**: whydoidothis
 
-Last updated at 06/30/2022 08:22
+Last updated at 06/30/2022 08:23
