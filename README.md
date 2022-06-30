@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-59bzaeZsEw8rdytT-1nzKXQ-t500x500.jpg">](https://soundcloud.com/skayo666/chroma-w-sway55)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0CwvvHARxuZ9yyl1-tyodQw-t500x500.jpg">](https://soundcloud.com/facade/two-friends-wish-you-were-here-facade-remix)
 
-**Artist**: skayo 
+**Artist**: Facade 
 
-**Track**: CHROMA w/ SWAY55
+**Track**: Two Friends ft. John K - Wish You Were Here (Facade Remix)
 
-Last updated at 06/30/2022 15:41
+Last updated at 06/30/2022 15:42
