@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ub54c8J3qi40bOih-2RaY7Q-t500x500.jpg">](https://soundcloud.com/nightmoderecs/eden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GX4aTIKlMT2Q99qP-jMyZVQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/orange-purple-shaped-out-of-my-mind)
 
-**Artist**: NIGHTMODE 
+**Artist**: Chill Planet 
 
-**Track**: Juelz - Eden
+**Track**: Orange Purple & Shaped - Out Of My Mind
 
-Last updated at 06/29/2022 20:57
+Last updated at 06/29/2022 20:58
