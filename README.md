@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwJEyycIENntRYF2-0UNzcw-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-jane-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6FDF5DkGTVFiMDN-znvjLw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-124-dan-larkin)
 
-**Artist**: Dan Larkin 
+**Artist**: Boiler Room 
 
-**Track**: The Diary Of Jane (Dan Larkin Remix)
+**Track**: Hard Dance 124: Dan Larkin
 
-Last updated at 06/29/2022 21:10
+Last updated at 06/29/2022 21:11
