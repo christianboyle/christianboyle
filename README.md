@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6FDF5DkGTVFiMDN-znvjLw-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-124-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PH6dMMy9J1qIvWi-5TNd5Q-t500x500.jpg">](https://soundcloud.com/riotville-records/john-alto-work-it)
 
-**Artist**: Boiler Room 
+**Artist**: Riotville Records 
 
-**Track**: Hard Dance 124: Dan Larkin
+**Track**: John Alto - Work It
 
-Last updated at 06/29/2022 21:11
+Last updated at 06/30/2022 08:15
