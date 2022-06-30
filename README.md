@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537693336-2wpk69-t500x500.jpg">](https://soundcloud.com/killmythic/takin-off-w-inteus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qcyFNZG9cAZl6thL-yx6esg-t500x500.jpg">](https://soundcloud.com/berrymane/crime-time)
 
-**Artist**: Mythic 
+**Artist**: BERRYMANE 
 
-**Track**: TAKIN' OFF w/ INTEUS
+**Track**: CRIME TIME (OUT ON ALL PLATFORMS)
 
-Last updated at 06/30/2022 08:55
+Last updated at 06/30/2022 08:57
