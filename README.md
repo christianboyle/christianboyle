@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReiaWHcLzDKdGKAO-kW91zg-t500x500.jpg">](https://soundcloud.com/slushiimusic/forever-with-u)
 
-**Artist**: Dirty Workz 
+**Artist**: slushii 
 
-**Track**: TNT & Darren Styles - Got The Music
+**Track**: Forever With U
 
-Last updated at 06/30/2022 19:57
+Last updated at 07/01/2022 10:14
