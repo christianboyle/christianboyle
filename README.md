@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReiaWHcLzDKdGKAO-kW91zg-t500x500.jpg">](https://soundcloud.com/slushiimusic/forever-with-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/pacific-patterns-spaz-out)
 
-**Artist**: slushii 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Forever With U
+**Track**: Pacific Patterns - Space Out
 
-Last updated at 07/01/2022 10:14
+Last updated at 07/01/2022 10:16
