@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaKDBDJ5iQUZHSOP-VdhR2Q-t500x500.jpg">](https://soundcloud.com/datboiodd/side-of-town-w-hxly-xo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQDGi0RctNKFGIg4-6xuzjg-t500x500.jpg">](https://soundcloud.com/odyzeymusic/super-future-sherwood-forest)
 
-**Artist**: ODD 1 OUT 
+**Artist**: Odyzey Music 
 
-**Track**: SIDE OF TOWN w. HXLY XO
+**Track**: Super Future - Sherwood Forest
 
-Last updated at 07/01/2022 10:19
+Last updated at 07/01/2022 10:20
