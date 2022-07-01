@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000136461723-gxxtre-t500x500.jpg">](https://soundcloud.com/killmythic/trappin-out-da-rezidence-pt-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
 
-**Artist**: Mythic 
+**Artist**: Dirty Workz 
 
-**Track**: TRAPPIN' OUT DA REZIDENCE III
+**Track**: TNT & Darren Styles - Got The Music
 
-Last updated at 06/30/2022 17:29
+Last updated at 06/30/2022 19:57
