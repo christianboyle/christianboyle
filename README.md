@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/pacific-patterns-spaz-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaKDBDJ5iQUZHSOP-VdhR2Q-t500x500.jpg">](https://soundcloud.com/datboiodd/side-of-town-w-hxly-xo)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: ODD 1 OUT 
 
-**Track**: Pacific Patterns - Space Out
+**Track**: SIDE OF TOWN w. HXLY XO
 
-Last updated at 07/01/2022 10:16
+Last updated at 07/01/2022 10:19
