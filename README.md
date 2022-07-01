@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQDGi0RctNKFGIg4-6xuzjg-t500x500.jpg">](https://soundcloud.com/odyzeymusic/super-future-sherwood-forest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzRgQ0e5fMumvwDi-nFmZSw-t500x500.jpg">](https://soundcloud.com/discoveryteam/bad-bunny-un-verano-sin-ti-bleznick-sander-house-mix)
 
-**Artist**: Odyzey Music 
+**Artist**: Discovery Team 
 
-**Track**: Super Future - Sherwood Forest
+**Track**: Bad Bunny - Un Verano Sin Ti (Bleznick Sander House Mix)
 
-Last updated at 07/01/2022 10:20
+Last updated at 07/01/2022 12:34
