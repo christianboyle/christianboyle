@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DOssAtVAzhkPd5w-4CzFwg-t500x500.jpg">](https://soundcloud.com/bitbird/scro-whyislavndr-i-dont-wanna-write-sad-songs-anymore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvcqrBrJVBjaippb-vVYOPw-t500x500.jpg">](https://soundcloud.com/knock2music/room202-live-los-angeles)
 
-**Artist**: bitbird 
+**Artist**: Knock2 
 
-**Track**: Scro & whyislavndr - i don’t wanna write sad songs anymore
+**Track**: ROOM202 (Live From Los Angeles)
 
-Last updated at 07/01/2022 15:41
+Last updated at 07/02/2022 17:19
