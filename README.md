@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvcqrBrJVBjaippb-vVYOPw-t500x500.jpg">](https://soundcloud.com/knock2music/room202-live-los-angeles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKkAjPSW7KvOh1th-ypE47A-t500x500.jpg">](https://soundcloud.com/hartshorn303/ak47-hartshorn-creation)
 
-**Artist**: Knock2 
+**Artist**: Hartshorn 
 
-**Track**: ROOM202 (Live From Los Angeles)
+**Track**: AK47 & Hartshorn - Creation
 
-Last updated at 07/02/2022 17:19
+Last updated at 07/03/2022 08:18
