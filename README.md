@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fM5Taay8CkPhuu11-BAiEfA-t500x500.jpg">](https://soundcloud.com/imyumyum/slay-war-dub-reply-to-dublink-send-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CS08FxtFVO39Vwh7-YGI7AQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-at-reentrance-062422)
 
-**Artist**: yum.yum 
+**Artist**: Hartshorn 
 
-**Track**: yum.yum - Slay
+**Track**: Hartshorn Live At ReEnTrance  06.24.22
 
-Last updated at 07/03/2022 18:05
+Last updated at 07/03/2022 18:06
