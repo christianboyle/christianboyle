@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000503869101-7ly7e9-t500x500.jpg">](https://soundcloud.com/ferrexdj/zomboy-eptic-bop-itferrex-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxTtdvjAxOQw-0-t500x500.jpg">](https://soundcloud.com/fiftygrand/different-places-1)
 
-**Artist**: FERREX ✪ 
+**Artist**: fifty grand 
 
-**Track**: Zomboy & Eptic -  Bop It(Ferrex Flip) [La Clinica Recs Premiere]
+**Track**: Different Places
 
-Last updated at 07/04/2022 16:37
+Last updated at 07/04/2022 16:38
