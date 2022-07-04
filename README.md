@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fzd69QR9RTGe2oaM-xkR4dg-t500x500.jpg">](https://soundcloud.com/leondismusic/the-script-breakeven-leondis-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9YjGhi2udRKdicst-1FAQpA-t500x500.jpg">](https://soundcloud.com/the_music_blender/plain-singularity-1)
 
-**Artist**: Leondis 
+**Artist**: The Music Blender 
 
-**Track**: The Script - Breakeven (Leondis Remix)
+**Track**: PLAIN - SINGULARITY
 
-Last updated at 07/04/2022 16:46
+Last updated at 07/04/2022 16:47
