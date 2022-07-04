@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ud8fwFFLvT5LjLFL-0Q8sVA-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/koax-ghosts-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvLbfAYOdUzOWZMo-Tlm8FQ-t500x500.jpg">](https://soundcloud.com/wearenova/walmart-field-trip?in=wearenova/sets/orbit-12-hyperpop)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Novatone 
 
-**Track**: Koax - Ghosts [Premiere]
+**Track**: DJ BIG HOMIE SQUATZ & Prime Ordnance - WALMART FIELD TRIP
 
-Last updated at 07/04/2022 16:51
+Last updated at 07/04/2022 16:52
