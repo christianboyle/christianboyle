@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJ9TtYdVa3Y65SHf-ZvuyAw-t500x500.jpg">](https://soundcloud.com/mood_ids/i-put-a-drill-beat-over-rick-astley-never-gonna-give-you-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ud8fwFFLvT5LjLFL-0Q8sVA-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/koax-ghosts-premiere)
 
-**Artist**: Mood ID's 
+**Artist**: Forbidden Frequencies 
 
-**Track**: I Put A Drill Beat Over “Rick Astley - Never Gonna Give You Up"
+**Track**: Koax - Ghosts [Premiere]
 
-Last updated at 07/04/2022 16:50
+Last updated at 07/04/2022 16:51
