@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwfBVzC7SMK1-0-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/sendr-nohc-jakka-b-heart-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olHayfbe4PgxqkEf-VRHUKQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-65-on-beat-106)
 
-**Artist**: Reaching Altitude Records 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Sendr, NOHC, Jakka-B - Heart To Break (Jakka-B Remix)
+**Track**: Bonkers Beats #65 on Beat 106 Scotland with Jakka B 010722 (Hour 2)
 
-Last updated at 07/05/2022 11:01
+Last updated at 07/05/2022 11:02
