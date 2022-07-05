@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olHayfbe4PgxqkEf-VRHUKQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-65-on-beat-106?in=beat106scotland/sets/bonkers-beats-65-on-beat-106-scotland-with-fracus-darwin-and-jakka-b-010722)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwfBVzC7SMK1-0-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/sendr-nohc-jakka-b-heart-to)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Reaching Altitude Records 
 
-**Track**: Bonkers Beats #65 on Beat 106 Scotland with Jakka B 010722 (Hour 2)
+**Track**: Sendr, NOHC, Jakka-B - Heart To Break (Jakka-B Remix)
 
-Last updated at 07/05/2022 09:56
+Last updated at 07/05/2022 10:58
