@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uu4ohijo3XXFratC-u5FxpQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-reverie-tatsunoshin-i-need-u-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olHayfbe4PgxqkEf-VRHUKQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-65-on-beat-106)
 
-**Artist**: Dirty Workz 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Mike Reverie & Tatsunoshin - I Need U (Electric Fox)
+**Track**: Bonkers Beats #65 on Beat 106 Scotland with Jakka B 010722 (Hour 2)
 
-Last updated at 07/05/2022 11:44
+Last updated at 07/05/2022 11:46
