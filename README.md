@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fzxzaQxw43PlWHuf-aECivA-t500x500.jpg">](https://soundcloud.com/bankaji/danny-brown-lie4-bankaji-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bRtS9NHMsVB1XUT-lSWXyw-t500x500.jpg">](https://soundcloud.com/officialrampant/take-u-there-rampant-flip-2)
 
-**Artist**: BANkaJI 
+**Artist**: Rampant 
 
-**Track**: Danny Brown - Lie4 (BANkaJI Bootleg)
+**Track**: Take U There (Rampant Flip)
 
-Last updated at 07/05/2022 14:38
+Last updated at 07/05/2022 14:39
