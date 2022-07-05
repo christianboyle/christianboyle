@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tzv7hlrzXfoAlQHF-JsJlwg-t500x500.jpg">](https://soundcloud.com/ngk999/dirty-hoes-w-m1sk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4PMlTdkp6yw0jhwp-R7BQRg-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/glock-tight)
 
-**Artist**: NGK999 
+**Artist**: LAZLOW 
 
-**Track**: DIRTY HOES w/ M1SK [ HOTLINE Mixtape coming soon ]
+**Track**: GLOCK TIGHT (FORTHCOMINTAPE)
 
-Last updated at 07/05/2022 14:43
+Last updated at 07/05/2022 14:44
