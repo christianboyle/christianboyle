@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tL6r4cJFCnSYoI5o-MhOhmQ-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/breakin-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tzv7hlrzXfoAlQHF-JsJlwg-t500x500.jpg">](https://soundcloud.com/ngk999/dirty-hoes-w-m1sk)
 
-**Artist**: LAZLOW 
+**Artist**: NGK999 
 
-**Track**: BREAKIN' OUT
+**Track**: DIRTY HOES w/ M1SK [ HOTLINE Mixtape coming soon ]
 
-Last updated at 07/05/2022 14:42
+Last updated at 07/05/2022 14:43
