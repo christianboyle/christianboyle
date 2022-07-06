@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CduxKyoNA6H92z8y-yudwmw-t500x500.jpg">](https://soundcloud.com/coastrsbackupstash/i-like-you-coastr-remix?in=coastrmusic/sets/post-malone-doja-cat-i-like)
 
-**Artist**: OVER EASY 
+**Artist**: COASTR.'s BACKUP STASH 
 
-**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
+**Track**: Post Malone, Doja Cat - I Like You (A Happier Song) [COASTR. Remix]
 
-Last updated at 07/06/2022 15:25
+Last updated at 07/06/2022 15:30
