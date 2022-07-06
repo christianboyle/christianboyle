@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e7JA6z6qGVBwJfkB-5zyh2A-t500x500.jpg">](https://soundcloud.com/beatlabradio/beat-kitty-exclusive-mix-beat-lab-radio-390)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
 
-**Artist**: Beat Lab Radio 
+**Artist**: OVER EASY 
 
-**Track**: Beat Kitty - Exclusive Mix - Beat Lab Radio 390
+**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
 
-Last updated at 07/06/2022 15:14
+Last updated at 07/06/2022 15:22
