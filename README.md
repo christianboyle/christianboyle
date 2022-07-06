@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aYkT5S6E2aK3Icbe-PBniLA-t500x500.jpg">](https://soundcloud.com/addal/sexational-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJ9TtYdVa3Y65SHf-ZvuyAw-t500x500.jpg">](https://soundcloud.com/mood_ids/i-put-a-drill-beat-over-rick-astley-never-gonna-give-you-up)
 
-**Artist**: ADDAL 
+**Artist**: Mood ID's 
 
-**Track**: ADDAL - SEXATIONAL #8
+**Track**: I Put A Drill Beat Over “Rick Astley - Never Gonna Give You Up"
 
-Last updated at 07/06/2022 18:56
+Last updated at 07/06/2022 18:57
