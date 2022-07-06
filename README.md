@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EznoylgoJ6UGM1eQ-fCn9mw-t500x500.jpg">](https://soundcloud.com/midairuk/a-mix-from-ian-dpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ka1h5P6K5lLMN75s-lHmpZQ-t500x500.jpg">](https://soundcloud.com/jerry_kay/the-country-club-mix)
 
-**Artist**: Mid Air 
+**Artist**: JERRY KAY 
 
-**Track**: a mix from ian dpm
+**Track**: The Country Club Mix (Summer 2022)
 
-Last updated at 07/06/2022 08:17
+Last updated at 07/06/2022 15:10
