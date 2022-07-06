@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ka1h5P6K5lLMN75s-lHmpZQ-t500x500.jpg">](https://soundcloud.com/jerry_kay/the-country-club-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUPb0iQ59k2jiCND-4eL4dw-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/longstoryshort-red-dot-original-mix)
 
-**Artist**: JERRY KAY 
+**Artist**: longstoryshort 
 
-**Track**: The Country Club Mix (Summer 2022)
+**Track**: Red Dot
 
-Last updated at 07/06/2022 15:10
+Last updated at 07/06/2022 15:11
