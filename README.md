@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CduxKyoNA6H92z8y-yudwmw-t500x500.jpg">](https://soundcloud.com/coastrsbackupstash/i-like-you-coastr-remix?in=coastrmusic/sets/post-malone-doja-cat-i-like)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t500x500.jpg">](https://soundcloud.com/lootemusic/somebody-else?in=lootemusic/sets/heart-eyes-ep)
 
-**Artist**: COASTR.'s BACKUP STASH 
+**Artist**: Loote 
 
-**Track**: Post Malone, Doja Cat - I Like You (A Happier Song) [COASTR. Remix]
+**Track**: Somebody Else
 
-Last updated at 07/06/2022 15:30
+Last updated at 07/06/2022 15:32
