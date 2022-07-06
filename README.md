@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GUPb0iQ59k2jiCND-4eL4dw-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/longstoryshort-red-dot-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Lx1CpN5AeJnfcil-tHUdDw-t500x500.jpg">](https://soundcloud.com/reishio/phantom)
 
-**Artist**: longstoryshort 
+**Artist**: REISHIO 
 
-**Track**: Red Dot
+**Track**: PHANTOM
 
-Last updated at 07/06/2022 15:11
+Last updated at 07/06/2022 15:12
