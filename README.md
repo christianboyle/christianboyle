@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXBum7FpvOwNNZyd-x4ITWg-t500x500.jpg">](https://soundcloud.com/undehfined/anticipate?in=undehfined/sets/anticipate-ep-undehfined)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4PMlTdkp6yw0jhwp-R7BQRg-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/glock-tight)
 
-**Artist**: Undehfined 
+**Artist**: LAZLOW 
 
-**Track**: Anticipate [Headbang Society Premiere]
+**Track**: GLOCK TIGHT (FORTHCOMINTAPE)
 
-Last updated at 07/06/2022 17:02
+Last updated at 07/06/2022 18:50
