@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0MYjvLUiXTxiUZkL-FIasvA-t500x500.jpg">](https://soundcloud.com/coastrmusic/clean-bandit-remix-01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8PJOWI0WeEY9yCX-tZVUfg-t500x500.jpg">](https://soundcloud.com/lootemusic/somebody-else)
 
-**Artist**: COASTR. 
+**Artist**: Loote 
 
-**Track**: Clean Bandit - Everything But You (feat. A7S)[COASTR. Remix]
+**Track**: Somebody Else
 
-Last updated at 07/06/2022 18:53
+Last updated at 07/06/2022 18:54
