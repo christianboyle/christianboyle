@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6yrlzlq2PAglych-iPJ5Ag-t500x500.jpg">](https://soundcloud.com/bluntedastronaut/ba-007-roland-jones-smoked-out)
 
-**Artist**: OVER EASY 
+**Artist**: Blunted Astronaut 
 
-**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
+**Track**: BA-007 Roland Jones "Smoked Out"
 
-Last updated at 07/06/2022 15:33
+Last updated at 07/06/2022 16:42
