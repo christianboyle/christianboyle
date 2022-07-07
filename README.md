@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xrsvzFBdTnf40ioJ-GmlPpA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-jorkes-you-will-be-mine-live-at-robert-johnson)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
 
-**Artist**: Ransom Note 
+**Artist**: OVER EASY 
 
-**Track**: PREMIERE: Jorkes - You Will Be Mine [Live at Robert Johnson]
+**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
 
-Last updated at 07/07/2022 16:15
+Last updated at 07/07/2022 16:16
