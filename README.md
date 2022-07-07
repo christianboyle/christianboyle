@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLJR6gyHWylZkD8c-sFUTLQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-536-jakka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p2Agmu4JEshoX7zG-ja9Pqw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf-mix-67-dj-physical)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Shall Not Fade 
 
-**Track**: KTRA Episode 536: Jakka-B
+**Track**: SNF Mix 67 // DJ Physical
 
-Last updated at 07/07/2022 08:29
+Last updated at 07/07/2022 08:31
