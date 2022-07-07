@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGX8HKmywlokAPWz-NY1CGw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-x-dr-phunk-x-technikore-ghost-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLJR6gyHWylZkD8c-sFUTLQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-536-jakka-b)
 
-**Artist**: Ben Nicky 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Ben Nicky x Dr Phunk x Technikore - Ghost Town
+**Track**: KTRA Episode 536: Jakka-B
 
-Last updated at 07/07/2022 08:28
+Last updated at 07/07/2022 08:29
