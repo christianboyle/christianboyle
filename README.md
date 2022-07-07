@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hubgwRCb3qt6AQtq-qEyp0Q-t500x500.jpg">](https://soundcloud.com/stayloosemusic/long-way-down)
 
-**Artist**: OVER EASY 
+**Artist**: StéLouse | StayLoose 
 
-**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
+**Track**: Long Way Down
 
-Last updated at 07/07/2022 08:48
+Last updated at 07/07/2022 15:22
