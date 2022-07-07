@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LMNOxfEeMU4rQyK1-bKZzlg-t500x500.jpg">](https://soundcloud.com/spinninrecords/bhaskar-d-groov-galck-i-feel-you-1?in=weareplusplus/sets/best-electronic-music-june-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jRbDynVfCt5s-0-t500x500.jpg">](https://soundcloud.com/oliverheldens/oliver-heldens-tchami-anabel?in=weareplusplus/sets/best-electronic-music-june-3)
 
-**Artist**: Spinnin' Records 
+**Artist**: Oliver Heldens 
 
-**Track**: Bhaskar, D - Groov, Galck - I Feel You
+**Track**: Oliver Heldens, Tchami, & Anabel Englund - LOW
 
-Last updated at 07/07/2022 16:11
+Last updated at 07/07/2022 16:12
