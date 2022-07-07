@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJEI4l1DHzT46HwH-09JCzA-t500x500.jpg">](https://soundcloud.com/novelevents/novelcast-137-turbo-thot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
 
-**Artist**: Novel 
+**Artist**: OVER EASY 
 
-**Track**: Novelcast 137: Turbo Thot
+**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
 
-Last updated at 07/07/2022 08:35
+Last updated at 07/07/2022 08:48
