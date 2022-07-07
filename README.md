@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOO3fIdLG38bqsT8-E31nCQ-t500x500.jpg">](https://soundcloud.com/twerknation28/dj-secret-guest-untwerks-me-damnshawty-oktwentytwentytwlou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqHlW832LLGrWGwK-rfU44w-t500x500.jpg">](https://soundcloud.com/mixmag-1/impact-reni-mix)
 
-**Artist**: TwerkNation28 
+**Artist**: Mixmag 
 
-**Track**: DJ SECRET GUEST UNTWERKS ME #DAMNSHAWTY #OKTWENTYTWENTYTWLOU
+**Track**: Impact: re:ni
 
-Last updated at 07/07/2022 16:13
+Last updated at 07/07/2022 16:14
