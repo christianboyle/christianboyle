@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKva91PSnrJDHsrv-x4uXAQ-t500x500.jpg">](https://soundcloud.com/enforcerecords/kadillaxgoodones?in=weareplusplus/sets/best-electronic-music-june-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LMNOxfEeMU4rQyK1-bKZzlg-t500x500.jpg">](https://soundcloud.com/spinninrecords/bhaskar-d-groov-galck-i-feel-you-1?in=weareplusplus/sets/best-electronic-music-june-3)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: Spinnin' Records 
 
-**Track**: Ducka Shan & Kadillax - Good Ones
+**Track**: Bhaskar, D - Groov, Galck - I Feel You
 
-Last updated at 07/07/2022 15:24
+Last updated at 07/07/2022 16:11
