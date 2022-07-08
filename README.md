@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000228525502-ixbm14-t500x500.jpg">](https://soundcloud.com/hartshorn303/iyf-hartshorn-w-mc-domer-mc-stafford-subb-sonic-worlds-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000102322794-4gpeyx-t500x500.jpg">](https://soundcloud.com/hartshorn303/waffle-hazard-nye-2015-live-destination-radio-denver)
 
 **Artist**: Hartshorn 
 
-**Track**: IYF & Hartshorn w/ MC Domer & MC Stafford - Subb Sonic Worlds Apart
+**Track**: Waffle & Hartshorn NYE 2015 Live @ Destination Radio Denver
 
-Last updated at 07/08/2022 10:58
+Last updated at 07/08/2022 10:59
