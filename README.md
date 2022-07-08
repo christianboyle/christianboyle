@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwniNFXhWVF8jvzb-V4dQsg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/wasted-penguinz-d-charged-city-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzhgqf16cNvqI9s7-lGmRxA-t500x500.jpg">](https://soundcloud.com/kalibvr/strapped-w-aldamane)
 
-**Artist**: Dirty Workz 
+**Artist**: kalibvr 
 
-**Track**: Wasted Penguinz & D-Charged - City Lights
+**Track**: STRAPPED w/ ALDAMANE
 
-Last updated at 07/08/2022 17:32
+Last updated at 07/08/2022 17:33
