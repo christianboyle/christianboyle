@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tNRNhXrIJ4RzwA0h-oobyUQ-t500x500.jpg">](https://soundcloud.com/insomniacrecords/boston-bun-dont-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzyBznwK7dBOz7cL-OzKoWA-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-ricky-montana-cry-no-more-hrag-beko-remix-vamos-music)
 
-**Artist**: Insomniac Records 
+**Artist**: Raven Musik 
 
-**Track**: Boston Bun - Don't Stop
+**Track**: PREMIERE: Ricky Montana - Cry No More (Hrag Beko Remix) [Vamos Music]
 
-Last updated at 07/08/2022 17:14
+Last updated at 07/08/2022 17:15
