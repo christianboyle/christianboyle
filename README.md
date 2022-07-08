@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000102322794-4gpeyx-t500x500.jpg">](https://soundcloud.com/hartshorn303/waffle-hazard-nye-2015-live-destination-radio-denver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CS08FxtFVO39Vwh7-YGI7AQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-at-reentrance-062422)
 
 **Artist**: Hartshorn 
 
-**Track**: Waffle & Hartshorn NYE 2015 Live @ Destination Radio Denver
+**Track**: Hartshorn Live At ReEnTrance  06.24.22
 
-Last updated at 07/08/2022 10:59
+Last updated at 07/08/2022 11:23
