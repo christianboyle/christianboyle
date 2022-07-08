@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVrM7zsG85BkMrvN-PtfXUg-t500x500.jpg">](https://soundcloud.com/sxlvr/elevating)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqNFzSC3Vu1oYFM2-pTomYA-t500x500.jpg">](https://soundcloud.com/boomboxcartel/boombox-cartel-veneno-clb-remix?in=clb_sounds/sets/boombox-cartel-veneno-clb-1)
 
-**Artist**: sxlvr 
+**Artist**: Boombox Cartel 
 
-**Track**: ELEVATING
+**Track**: Boombox Cartel - Veneno (CLB Remix)
 
-Last updated at 07/08/2022 17:18
+Last updated at 07/08/2022 17:27
