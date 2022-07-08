@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzyBznwK7dBOz7cL-OzKoWA-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-ricky-montana-cry-no-more-hrag-beko-remix-vamos-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVrM7zsG85BkMrvN-PtfXUg-t500x500.jpg">](https://soundcloud.com/sxlvr/elevating)
 
-**Artist**: Raven Musik 
+**Artist**: sxlvr 
 
-**Track**: PREMIERE: Ricky Montana - Cry No More (Hrag Beko Remix) [Vamos Music]
+**Track**: ELEVATING
 
-Last updated at 07/08/2022 17:15
+Last updated at 07/08/2022 17:18
