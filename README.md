@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAIW11t79noaMTX0-1gK4rw-t500x500.jpg">](https://soundcloud.com/buunshin/make-money?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r0aOkR1sjjdiHCua-WXtwxQ-t500x500.jpg">](https://soundcloud.com/jadudala/sasha-rome-carlie-release?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Buunshin 
+**Artist**: Jadū Dala 
 
-**Track**: Make Money (w. The Caracal Project)
+**Track**: Sasha Rome & CARLIE - Release
 
-Last updated at 07/08/2022 18:53
+Last updated at 07/08/2022 18:56
