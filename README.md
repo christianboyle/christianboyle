@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5UhWzuEcJzpyCor-iovCAQ-t500x500.jpg">](https://soundcloud.com/playmerecords/enkei-nobodys-flow-feat-magmag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0Kp4Mt0OzzYMhk7-nDrP8w-t500x500.jpg">](https://soundcloud.com/karl-guapo/l3nny-no-chance-ft-mime?in=weareplusplus/sets/best-electronic-music-june-3)
 
-**Artist**: Play Me Records 
+**Artist**: L3NNY 
 
-**Track**: Enkei - Nobody's Flow (feat. MagMag)
+**Track**: No Chance (ft. M.I.M.E)
 
-Last updated at 07/08/2022 17:29
+Last updated at 07/08/2022 17:30
