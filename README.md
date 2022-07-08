@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyJRG7scWzY1Mllb-pXdmdw-t500x500.jpg">](https://soundcloud.com/dylandelato/dylan-delato-live-love-house?in=arkadiaproject/sets/maml-mully-with-neel-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5UhWzuEcJzpyCor-iovCAQ-t500x500.jpg">](https://soundcloud.com/playmerecords/enkei-nobodys-flow-feat-magmag)
 
-**Artist**: Dylan Delato 
+**Artist**: Play Me Records 
 
-**Track**: Live Love House
+**Track**: Enkei - Nobody's Flow (feat. MagMag)
 
-Last updated at 07/08/2022 17:28
+Last updated at 07/08/2022 17:29
