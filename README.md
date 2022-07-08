@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzhgqf16cNvqI9s7-lGmRxA-t500x500.jpg">](https://soundcloud.com/kalibvr/strapped-w-aldamane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqgPbYBKgfpPU8RD-GhRM8A-t500x500.jpg">](https://soundcloud.com/crystalskies/moonlight-feat-ashley-apollodor-fells-remix)
 
-**Artist**: kalibvr 
+**Artist**: Crystal Skies 
 
-**Track**: STRAPPED w/ ALDAMANE
+**Track**: Moonlight (feat. Ashley Apollodor) (Fells Remix)
 
-Last updated at 07/08/2022 17:33
+Last updated at 07/08/2022 17:34
