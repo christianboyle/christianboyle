@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C0BNayt1HUcVZuBa-gvNOCA-t500x500.jpg">](https://soundcloud.com/codecrecs/previews-rhythmist-temporal-factors-cdc011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XiKkxznqryQnmCaK-XhOcKA-t500x500.jpg">](https://soundcloud.com/sebjin/security?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Codec Recordings 
+**Artist**: sebjin 
 
-**Track**: (PREVIEWS) Rhythmist - Temporal Factors [CDC011]
+**Track**: SECURITY
 
-Last updated at 07/08/2022 18:43
+Last updated at 07/08/2022 18:47
