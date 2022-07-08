@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qocCVEjeRLWlESEj-6qVDuQ-t500x500.jpg">](https://soundcloud.com/playasinmp3/tread-samples-2k22-crysquad-doomrushaz-treadrussiaup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WqN4MfgW35NDvjQX-hkfJmw-t500x500.jpg">](https://soundcloud.com/esseks/the-uncertain-future-full-ep-mix?in=esseks/sets/the-uncertain-future)
 
-**Artist**: playa$in (@playasin.mp3) 
+**Artist**: Esseks 
 
-**Track**: Tread Samples 2K22 #crysquad #doomrushaz #treadrussiaup
+**Track**: The Uncertain Future Full EP Mix
 
-Last updated at 07/08/2022 17:07
+Last updated at 07/08/2022 17:08
