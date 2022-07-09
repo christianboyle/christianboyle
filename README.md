@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iG1IFAKpDtVGYzHo-qqJyeQ-t500x500.jpg">](https://soundcloud.com/ju-mer/trance-nxc-jumer-dj-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f3qtWhfPynVjIikU-GRq9Ew-t500x500.jpg">](https://soundcloud.com/addal/gipsy-kings-vs-plaster-hands-bamboleo-gipsy-addal-mashup)
 
-**Artist**: ✨JUMER✨ 
+**Artist**: ADDAL 
 
-**Track**: TRANCE NXC - JUMER DJ SET
+**Track**: Gipsy Kings vs Plaster Hands - Bamboléo Gipsy (Addal Mashup)
 
-Last updated at 07/09/2022 09:42
+Last updated at 07/09/2022 09:44
