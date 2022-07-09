@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9YjGhi2udRKdicst-1FAQpA-t500x500.jpg">](https://soundcloud.com/the_music_blender/plain-singularity-1?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gt6A7bSKfLXpGyIL-hB6Rmg-t500x500.png">](https://soundcloud.com/djlogangarrett/kelly-rollin-feat-gorilla-zoe?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: The Music Blender 
+**Artist**: Logan Garrett 
 
-**Track**: PLAIN - SINGULARITY
+**Track**: Kelly Rollin (Feat Gorilla Zoe)
 
-Last updated at 07/08/2022 19:11
+Last updated at 07/08/2022 19:14
