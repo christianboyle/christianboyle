@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj2Ip1EGXZ4aWHfD-kWXjPQ-t500x500.jpg">](https://soundcloud.com/neverworryrecords/longstoryshort-like-i-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJ6WKpYQ13o4iycH-K34jSQ-t500x500.jpg">](https://soundcloud.com/ayyofree/thred-what-chu-got)
 
-**Artist**: Never Worry Records 
+**Artist**: AY YO TRIP! 
 
-**Track**: Longstoryshort - Like I Do
+**Track**: Thred - What Chu Got
 
-Last updated at 07/09/2022 09:45
+Last updated at 07/09/2022 09:46
