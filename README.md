@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gt6A7bSKfLXpGyIL-hB6Rmg-t500x500.png">](https://soundcloud.com/djlogangarrett/kelly-rollin-feat-gorilla-zoe?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NlPjJL92d3zXJxti-yjcJBQ-t500x500.jpg">](https://soundcloud.com/dj4b/4b-diesel-shut-up-ft-trick-daddy?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Logan Garrett 
+**Artist**: 4B 
 
-**Track**: Kelly Rollin (Feat Gorilla Zoe)
+**Track**: 4B & DIESEL - Shut Up (Ft. Trick Daddy)
 
-Last updated at 07/08/2022 19:14
+Last updated at 07/08/2022 19:18
