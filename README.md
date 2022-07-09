@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCEucxU3nIO6USCn-nHYUow-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bigbellygucci)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hpiFi6nWJA1z84Bn-PABAzw-t500x500.jpg">](https://soundcloud.com/thxnder777/gun-n-a-mask-w-northposse)
 
-**Artist**: kushface ☤ 
+**Artist**: THXNDER 
 
-**Track**: BIGBELLYGUCCI
+**Track**: GUN N A MASK w/ NORTHPOSSE
 
-Last updated at 07/09/2022 17:14
+Last updated at 07/09/2022 17:23
