@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJ6WKpYQ13o4iycH-K34jSQ-t500x500.jpg">](https://soundcloud.com/ayyofree/thred-what-chu-got)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y4AXdSZqMImppBEm-WOwgug-t500x500.jpg">](https://soundcloud.com/ion_music/ion-ghost)
 
-**Artist**: AY YO TRIP! 
+**Artist**: .ION. 
 
-**Track**: Thred - What Chu Got
+**Track**: ION - Ghost
 
-Last updated at 07/09/2022 09:46
+Last updated at 07/09/2022 09:47
