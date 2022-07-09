@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UbYI8N8FxrfZFgs6-nRelsw-t500x500.jpg">](https://soundcloud.com/stizzzy/florida-keys-sunset-lp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JE66X7kbvyHKp7ye-jNBsag-t500x500.jpg">](https://soundcloud.com/deadlyft/smd-vip)
 
-**Artist**: Stizzzyyy 
+**Artist**: DEADLYFT 
 
-**Track**: Florida Keys Sunset LP
+**Track**: SMD (VIP)
 
-Last updated at 07/09/2022 09:55
+Last updated at 07/09/2022 17:12
