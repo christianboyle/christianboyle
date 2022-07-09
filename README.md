@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruK8ZyPxE6mUpeaL-5KNcJA-t500x500.jpg">](https://soundcloud.com/guccigarette/blood-fiend-vault-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhGGBKuG6yYEnfG3-ea8l9Q-t500x500.jpg">](https://soundcloud.com/guccigarette/shakin-da-blocc)
 
 **Artist**: GUCCIGARETTE 
 
-**Track**: BLOOD FIEND VAULT VOL. 2
+**Track**: SHAKING DA BLOCC
 
-Last updated at 07/09/2022 02:13
+Last updated at 07/09/2022 02:55
