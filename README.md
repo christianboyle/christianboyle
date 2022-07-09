@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0WSqKvuqKuGRKMXE-9Pcqgg-t500x500.jpg">](https://soundcloud.com/oversleptbeats/fuck-servin-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNmlJA5ynq6sLz8a-EjFnIg-t500x500.jpg">](https://soundcloud.com/oversleptbeats/run-yo-mouth)
 
 **Artist**: overslept 
 
-**Track**: fuck servin'
+**Track**: run yo mouth (out on spotify)
 
-Last updated at 07/09/2022 02:05
+Last updated at 07/09/2022 02:08
