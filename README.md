@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqIwP1Kkdo5gB2Jw-gcyF8Q-t500x500.jpg">](https://soundcloud.com/gotnotime/servin-narcotics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaYt6iyI3u4x8OaD-LhGqyQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/tatyana-jane-psaume92)
 
-**Artist**: GOTNOTIME 
+**Artist**: Lobster Theremin 
 
-**Track**: SERVIN' NARCOTICS
+**Track**: Tatyana Jane - PSAUME92
 
-Last updated at 07/08/2022 21:21
+Last updated at 07/08/2022 21:24
