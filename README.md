@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPRpVbC2yv2HWWLL-LDuMeQ-t500x500.jpg">](https://soundcloud.com/notvaro/dangerous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pqlf6AfyDqy6FTVv-ldGDfQ-t500x500.jpg">](https://soundcloud.com/balamii/first-word-show-w-kaidi-tatham-july-2022)
 
-**Artist**: varo 
+**Artist**: Balamii 
 
-**Track**: DANGEROUS
+**Track**: First Word Records w/ Bopperson - July 2022
 
-Last updated at 07/08/2022 21:35
+Last updated at 07/08/2022 21:40
