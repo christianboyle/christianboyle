@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Itr6j6QtTf554fTY-k5HOvw-t500x500.jpg">](https://soundcloud.com/vladkush/thinkingtwice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GipxAC930czDuHHt-AVJ8CA-t500x500.jpg">](https://soundcloud.com/prodescobar/land-of-the-lost-mixx)
 
-**Artist**: VLADKUSH 
+**Artist**: 1.9.9.9 
 
-**Track**: THINKING TWICE
+**Track**: LAND OF THE LOST MIXX
 
-Last updated at 07/09/2022 17:33
+Last updated at 07/09/2022 17:35
