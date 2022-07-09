@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tnEk5dIJYY2Ox55M-1Nmz0Q-t500x500.jpg">](https://soundcloud.com/demxnstr8/uprising-iii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yC0OwX08mXAwTNn3-XkBLPw-t500x500.jpg">](https://soundcloud.com/oversleptbeats/hittin-that-lick)
 
-**Artist**: demxnstr8 
+**Artist**: overslept 
 
-**Track**: UPRISING III
+**Track**: hittin' that lick
 
-Last updated at 07/09/2022 01:40
+Last updated at 07/09/2022 02:00
