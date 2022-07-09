@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yC0OwX08mXAwTNn3-XkBLPw-t500x500.jpg">](https://soundcloud.com/oversleptbeats/hittin-that-lick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2ltdxCP7zBNM5no-dxP7fQ-t500x500.jpg">](https://soundcloud.com/oversleptbeats/punk-bitch-wanna-be-me)
 
 **Artist**: overslept 
 
-**Track**: hittin' that lick
+**Track**: punk bitch wanna be me
 
-Last updated at 07/09/2022 02:00
+Last updated at 07/09/2022 02:03
