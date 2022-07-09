@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aX0UhN4zcRjDHzJV-hnIkWg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/culture-code-good-4-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-68PwGm83wPMw-0-t500x500.jpg">](https://soundcloud.com/wandw/w-w-x-harris-ford-x-special-d)
 
-**Artist**: Future Generation 
+**Artist**: W&W 
 
-**Track**: Culture Code - good 4 u
+**Track**: W&W x Harris & Ford x Special D - Come With Me
 
-Last updated at 07/09/2022 07:17
+Last updated at 07/09/2022 07:20
