@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r0aOkR1sjjdiHCua-WXtwxQ-t500x500.jpg">](https://soundcloud.com/jadudala/sasha-rome-carlie-release?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cNOo1dcCz9LhYash-s87a3Q-t500x500.jpg">](https://soundcloud.com/luminox/thepullup?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Jadū Dala 
+**Artist**: 𝖑𝖚𝖒𝖎𝖓𝖔𝖝 
 
-**Track**: Sasha Rome & CARLIE - Release
+**Track**: the Pull Up
 
-Last updated at 07/08/2022 18:56
+Last updated at 07/08/2022 19:00
