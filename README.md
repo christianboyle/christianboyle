@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CwSBWpRUgF46DsRy-FP20Zg-t500x500.jpg">](https://soundcloud.com/particaartistgroup/radioep6?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WkyUEOZ6QH9BXbB1-AXRoLw-t500x500.jpg">](https://soundcloud.com/pryzmsmusic/pryzms-party-with-me-1?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Partica Artist Group 
+**Artist**: PRYZMS 
 
-**Track**: Partica Radio: Ep. 06
+**Track**: PRYZMS - PARTY WITH ME
 
-Last updated at 07/08/2022 20:14
+Last updated at 07/08/2022 20:50
