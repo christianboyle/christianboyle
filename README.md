@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J1pjC88z79yAfsDG-9kn7BQ-t500x500.jpg">](https://soundcloud.com/hysteriarecords/mr-sid-robin-aristo-love-you-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLJR6gyHWylZkD8c-sFUTLQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-536-jakka-b)
 
-**Artist**: Hysteria Records 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Mr. Sid & Robin Aristo - Love You More
+**Track**: KTRA Episode 536: Jakka-B
 
-Last updated at 07/09/2022 04:06
+Last updated at 07/09/2022 04:10
