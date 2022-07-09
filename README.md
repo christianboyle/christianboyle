@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6u51rZQdc34cPfZV-q1znMQ-t500x500.jpg">](https://soundcloud.com/balamii/gabs-july-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLz1zNy4lHYgujJI-lHUmxw-t500x500.jpg">](https://soundcloud.com/allegedbeats/the-entrance)
 
-**Artist**: Balamii 
+**Artist**: ALLEGED 
 
-**Track**: Gabs - July 2022
+**Track**: THE ENTRANCE
 
-Last updated at 07/09/2022 07:23
+Last updated at 07/09/2022 09:23
