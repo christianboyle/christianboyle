@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pqlf6AfyDqy6FTVv-ldGDfQ-t500x500.jpg">](https://soundcloud.com/balamii/first-word-show-w-kaidi-tatham-july-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tnEk5dIJYY2Ox55M-1Nmz0Q-t500x500.jpg">](https://soundcloud.com/demxnstr8/uprising-iii)
 
-**Artist**: Balamii 
+**Artist**: demxnstr8 
 
-**Track**: First Word Records w/ Bopperson - July 2022
+**Track**: UPRISING III
 
-Last updated at 07/08/2022 21:40
+Last updated at 07/09/2022 01:40
