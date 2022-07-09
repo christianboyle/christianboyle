@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f3qtWhfPynVjIikU-GRq9Ew-t500x500.jpg">](https://soundcloud.com/addal/gipsy-kings-vs-plaster-hands-bamboleo-gipsy-addal-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj2Ip1EGXZ4aWHfD-kWXjPQ-t500x500.jpg">](https://soundcloud.com/neverworryrecords/longstoryshort-like-i-do)
 
-**Artist**: ADDAL 
+**Artist**: Never Worry Records 
 
-**Track**: Gipsy Kings vs Plaster Hands - Bamboléo Gipsy (Addal Mashup)
+**Track**: Longstoryshort - Like I Do
 
-Last updated at 07/09/2022 09:44
+Last updated at 07/09/2022 09:45
