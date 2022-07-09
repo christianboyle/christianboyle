@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mnA5eAz0E0Cc6PU7-yUTZlg-t500x500.jpg">](https://soundcloud.com/esseks/looking-in?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brFQ4Uz1H8B8BS4Z-Kpb1xA-t500x500.jpg">](https://soundcloud.com/greenmatterofficial/react?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: Esseks 
+**Artist**: Green Matter 
 
-**Track**: Looking In
+**Track**: React
 
-Last updated at 07/08/2022 19:25
+Last updated at 07/08/2022 19:28
