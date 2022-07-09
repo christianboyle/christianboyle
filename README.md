@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WkyUEOZ6QH9BXbB1-AXRoLw-t500x500.jpg">](https://soundcloud.com/pryzmsmusic/pryzms-party-with-me-1?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9buJqT2NJhGmnKg-5OTUPA-t500x500.jpg">](https://soundcloud.com/robbgikma/dirty-souls-ep)
 
-**Artist**: PRYZMS 
+**Artist**: ROBBGIKMA 
 
-**Track**: PRYZMS - PARTY WITH ME
+**Track**: DIRTY SOULS (EP)
 
-Last updated at 07/08/2022 20:50
+Last updated at 07/08/2022 20:54
