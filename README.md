@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JYa1eWCxy1ya5rF-NhNCYA-t500x500.jpg">](https://soundcloud.com/stvshboi/subzero-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Itr6j6QtTf554fTY-k5HOvw-t500x500.jpg">](https://soundcloud.com/vladkush/thinkingtwice)
 
-**Artist**: STVSHBOI 
+**Artist**: VLADKUSH 
 
-**Track**: SUBZERO EP (FULL STREAM)
+**Track**: THINKING TWICE
 
-Last updated at 07/09/2022 17:25
+Last updated at 07/09/2022 17:33
