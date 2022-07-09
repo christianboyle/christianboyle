@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cNOo1dcCz9LhYash-s87a3Q-t500x500.jpg">](https://soundcloud.com/luminox/thepullup?in=fuxwithit-1/sets/fuxwithitfridays-438)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Oh0l8PO1Xus5r8Q-YRd1zg-t500x500.jpg">](https://soundcloud.com/longjawns/sanity-burn?in=fuxwithit-1/sets/fuxwithitfridays-438)
 
-**Artist**: 𝖑𝖚𝖒𝖎𝖓𝖔𝖝 
+**Artist**: JAWNS 
 
-**Track**: the Pull Up
+**Track**: Sanity Burn
 
-Last updated at 07/08/2022 19:00
+Last updated at 07/08/2022 19:03
