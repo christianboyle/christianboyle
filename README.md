@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/pacific-patterns-spaz-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLsK6rpZfdlJ2zG4-0GDsvA-t500x500.jpg">](https://soundcloud.com/prodlvst/kirxcy-anguish-lvst-remix-1)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: lvst 
 
-**Track**: Pacific Patterns - Space Out
+**Track**: Kirxcy - Anguish [Lvst Remix]
 
-Last updated at 07/08/2022 21:11
+Last updated at 07/08/2022 21:14
