@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76JNpVuRtqb6rAPC-xYhV7Q-t500x500.jpg">](https://soundcloud.com/dopxset/leanin-like-forthcomingfnm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JE66X7kbvyHKp7ye-jNBsag-t500x500.jpg">](https://soundcloud.com/deadlyft/smd-vip)
 
-**Artist**: DOPXSET 
+**Artist**: DEADLYFT 
 
-**Track**: LEANIN LIKE [FORTHCOMINGFNM]
+**Track**: SMD (VIP)
 
-Last updated at 07/09/2022 17:41
+Last updated at 07/09/2022 17:44
