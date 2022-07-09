@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tRY1LQMpV15a-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/jakka-b-toy-soldierz-neon-soul?in=jakka-b/sets/jakka-b-x-toy-soldierz-neon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J1pjC88z79yAfsDG-9kn7BQ-t500x500.jpg">](https://soundcloud.com/hysteriarecords/mr-sid-robin-aristo-love-you-more)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Hysteria Records 
 
-**Track**: Jakka-B, Toy Soldierz - Neon Soul
+**Track**: Mr. Sid & Robin Aristo - Love You More
 
-Last updated at 07/09/2022 04:00
+Last updated at 07/09/2022 04:06
