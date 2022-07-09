@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaYt6iyI3u4x8OaD-LhGqyQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/tatyana-jane-psaume92)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yF9zQR6iLF2frCvg-2JzUNQ-t500x500.jpg">](https://soundcloud.com/cheesy-kut/light-it-up)
 
-**Artist**: Lobster Theremin 
+**Artist**: CHEESY KUT 
 
-**Track**: Tatyana Jane - PSAUME92
+**Track**: LIGHT IT UP
 
-Last updated at 07/08/2022 21:24
+Last updated at 07/08/2022 21:29
