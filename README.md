@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJdlucjrklUqPJsu-9XRQMg-t500x500.jpg">](https://soundcloud.com/justzayle/blood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYAQz53W92Vafd5y-4aZEZg-t500x500.jpg">](https://soundcloud.com/akavirusmafia/strays)
 
-**Artist**: ZAYLE 
+**Artist**: Virus Mafia 
 
-**Track**: Blood
+**Track**: Strays - Virus Mafia & Schlnglein
 
-Last updated at 07/10/2022 14:32
+Last updated at 07/10/2022 15:07
