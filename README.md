@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZYJgqzbxbkYpr1zB-N53WgQ-t500x500.jpg">](https://soundcloud.com/trapcity/32stitches-blklght-reload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJdlucjrklUqPJsu-9XRQMg-t500x500.jpg">](https://soundcloud.com/justzayle/blood)
 
-**Artist**: Trap City 
+**Artist**: ZAYLE 
 
-**Track**: 32Stitches & blklght - Reload
+**Track**: Blood
 
-Last updated at 07/10/2022 14:29
+Last updated at 07/10/2022 14:32
