@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fnc7NgGggKJhjfSC-5nMbfg-t500x500.jpg">](https://soundcloud.com/rawppl/rawcast131-dj-plant-texture)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UgCiOtqHjwF2WgB-R21HLg-t500x500.jpg">](https://soundcloud.com/stupidbeats/mindgames-full-tape)
 
-**Artist**: RAW 
+**Artist**: stupidbeats 
 
-**Track**: RAWCAST131 • DJ Plant Texture
+**Track**: MINDGAMES [FULL TAPE]
 
-Last updated at 07/10/2022 09:37
+Last updated at 07/10/2022 13:45
