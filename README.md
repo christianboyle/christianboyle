@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYAQz53W92Vafd5y-4aZEZg-t500x500.jpg">](https://soundcloud.com/akavirusmafia/strays)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fnc7NgGggKJhjfSC-5nMbfg-t500x500.jpg">](https://soundcloud.com/rawppl/rawcast131-dj-plant-texture)
 
-**Artist**: Virus Mafia 
+**Artist**: RAW 
 
-**Track**: Strays - Virus Mafia & Schlnglein
+**Track**: RAWCAST131 • DJ Plant Texture
 
-Last updated at 07/10/2022 15:07
+Last updated at 07/10/2022 15:08
