@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UgCiOtqHjwF2WgB-R21HLg-t500x500.jpg">](https://soundcloud.com/stupidbeats/mindgames-full-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6zSrpmGwrRMQwZA-kz7D1w-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/everything-u-need)
 
-**Artist**: stupidbeats 
+**Artist**: FREDDY KONFEDDY 
 
-**Track**: MINDGAMES [FULL TAPE]
+**Track**: EVERYTHING U NEED (DRUMKIT PREVIEW)
 
-Last updated at 07/10/2022 13:45
+Last updated at 07/10/2022 14:08
