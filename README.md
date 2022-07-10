@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeheKMI1ClpV6Ozo-ZxIefg-t500x500.jpg">](https://soundcloud.com/moskalus/free-download-bulova-jaudy-yailin-la-mas-viral-vamo-pal-bronx-thomas-garcia-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2i53AafQpzPnHzFE-mp47MQ-t500x500.jpg">](https://soundcloud.com/osiasmusic/echoes-ft-euphorizer)
 
-**Artist**: Moskalus 
+**Artist**: OSIAS (@osiasmusic) 
 
-**Track**: FREE DOWNLOAD: Bulova, Jaudy, Yailin La Mas Viral - Vamo Pal Bronx (Thomas Garcia Edit)
+**Track**: ECHOES (FT. EUPHORIZER)
 
-Last updated at 07/10/2022 14:17
+Last updated at 07/10/2022 14:24
