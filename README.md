@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/87nG3LuabUs/hqdefault.jpg">](https://www.youtube.com/watch?v=87nG3LuabUs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCEucxU3nIO6USCn-nHYUow-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bigbellygucci)
 
-**Artist**: The 1975 
+**Artist**: kushface ☤ 
 
-**Track**: Part Of The Band (Official Music Video)
+**Track**: BIGBELLYGUCCI
 
-Last updated at 07/09/2022 18:59
+Last updated at 07/09/2022 19:02
