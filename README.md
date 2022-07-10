@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jynx9g8eOkhKyAzN-2MszUw-t500x500.jpg">](https://soundcloud.com/kalibvr/leadsupply)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-stX4e7hI6FPCFCOf-FgZ5Kg-t500x500.jpg">](https://soundcloud.com/imausik/trough-the-dark)
 
-**Artist**: kalibvr 
+**Artist**: MAUSIK 
 
-**Track**: LEAD SUPPLY VOL. 1 (PHONK MIX)
+**Track**: TROUGH THE DARK
 
-Last updated at 07/10/2022 00:37
+Last updated at 07/10/2022 09:36
