@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6zSrpmGwrRMQwZA-kz7D1w-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/everything-u-need)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-An6KiMiYMQ0ighjz-T7uRvw-t500x500.jpg">](https://soundcloud.com/codeinenwine/reality)
 
-**Artist**: FREDDY KONFEDDY 
+**Artist**: CODEWINE 
 
-**Track**: EVERYTHING U NEED (DRUMKIT PREVIEW)
+**Track**: REALITY
 
-Last updated at 07/10/2022 14:08
+Last updated at 07/10/2022 14:12
