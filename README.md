@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UgCiOtqHjwF2WgB-R21HLg-t500x500.jpg">](https://soundcloud.com/stupidbeats/mindgames-full-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szbBjlTnMPzBtWze-q7WcPw-t500x500.jpg">](https://soundcloud.com/acryl64/the-mirror)
 
-**Artist**: stupidbeats 
+**Artist**: acryl64 
 
-**Track**: MINDGAMES [FULL TAPE]
+**Track**: The Mirror
 
-Last updated at 07/10/2022 15:10
+Last updated at 07/10/2022 18:01
