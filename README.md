@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3KHbynuRQ6H3Wol-RzenNw-t500x500.jpg">](https://soundcloud.com/skypierr/vinland-saga-opening-mukanjyo-skypierr-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZmDAPgWz7uZjPlDH-HRq2vQ-t500x500.jpg">](https://soundcloud.com/1bxgdvn7/take-care-ya-bizness-pt2)
 
-**Artist**: skypierr 
+**Artist**: 1BXGDVN7 
 
-**Track**: Vinland Saga Opening | Mukanjyo (skypierr remix)
+**Track**: TAKE CARE YA BIZNESS PT.2
 
-Last updated at 07/11/2022 10:16
+Last updated at 07/11/2022 10:19
