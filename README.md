@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOLRyeTXJVWUsTPs-UJysSw-t500x500.jpg">](https://soundcloud.com/rakaokra/ancientdreams?in=rakaokra/sets/dirt-mixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNxtYcgDccCiAAgV-mIMPzQ-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-867-e-saggila-jul-22)
 
-**Artist**: OKRA 
+**Artist**: Fact Magazine 
 
-**Track**: ANCIENT DREAMS
+**Track**: Fact Mix 867: E-Saggila (Jul '22)
 
-Last updated at 07/11/2022 10:27
+Last updated at 07/11/2022 10:29
