@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jYMOx4y4UOawCUnX-NOsQIg-t500x500.jpg">](https://soundcloud.com/slimilky/slim-ilky-chevy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNxtYcgDccCiAAgV-mIMPzQ-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-867-e-saggila-jul-22)
 
-**Artist**: $LIM ILKY 666 
+**Artist**: Fact Magazine 
 
-**Track**: SLIM ILKY - CHEVY THANG /// TAPE COMING REAL SOON
+**Track**: Fact Mix 867: E-Saggila (Jul '22)
 
-Last updated at 07/11/2022 14:04
+Last updated at 07/11/2022 14:46
