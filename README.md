@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zegpi0TgQ2DaQ6Tx-R5rRqw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-dkapz-truth-is-a-ruin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMbR4YuDZxAYXVU1-y2zUUQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-ambien-baby-engendrx-delicate-records)
 
 **Artist**: Ransom Note 
 
-**Track**: PREMIERE: DKAPZ - Truth Is A Ruin
+**Track**: PREMIERE: Ambien Baby - Engendrx [Delicate Records]
 
-Last updated at 07/11/2022 10:00
+Last updated at 07/11/2022 10:04
