@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szbBjlTnMPzBtWze-q7WcPw-t500x500.jpg">](https://soundcloud.com/acryl64/the-mirror)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zegpi0TgQ2DaQ6Tx-R5rRqw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-dkapz-truth-is-a-ruin)
 
-**Artist**: acryl64 
+**Artist**: Ransom Note 
 
-**Track**: The Mirror
+**Track**: PREMIERE: DKAPZ - Truth Is A Ruin
 
-Last updated at 07/10/2022 18:01
+Last updated at 07/11/2022 10:00
