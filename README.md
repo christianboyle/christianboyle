@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMbR4YuDZxAYXVU1-y2zUUQ-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-ambien-baby-engendrx-delicate-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwWvAPS9f8ESUKtj-sTwbbQ-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/turbulenceremix)
 
-**Artist**: Ransom Note 
+**Artist**: Inquisitive [Remixes] 2 
 
-**Track**: PREMIERE: Ambien Baby - Engendrx [Delicate Records]
+**Track**: Steve Aoki & Laidback Luke ft. Lil Jon - Turbulence (Inquisitive HARDER Remix)
 
-Last updated at 07/11/2022 10:04
+Last updated at 07/11/2022 10:12
