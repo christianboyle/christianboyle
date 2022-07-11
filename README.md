@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNxtYcgDccCiAAgV-mIMPzQ-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-867-e-saggila-jul-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RP8vxnEUXot4J9an-l1UiNQ-t500x500.jpg">](https://soundcloud.com/mood_ids/seth-hills-vluarr-id-feat-magnus)
 
-**Artist**: Fact Magazine 
+**Artist**: Mood ID's 
 
-**Track**: Fact Mix 867: E-Saggila (Jul '22)
+**Track**: Seth Hills & Vluarr - ID (feat. MAGNUS)
 
-Last updated at 07/11/2022 10:29
+Last updated at 07/11/2022 13:05
