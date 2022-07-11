@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZmDAPgWz7uZjPlDH-HRq2vQ-t500x500.jpg">](https://soundcloud.com/1bxgdvn7/take-care-ya-bizness-pt2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOLRyeTXJVWUsTPs-UJysSw-t500x500.jpg">](https://soundcloud.com/rakaokra/dirty-handz?in=rakaokra/sets/dirt-mixx)
 
-**Artist**: 1BXGDVN7 
+**Artist**: OKRA 
 
-**Track**: TAKE CARE YA BIZNESS PT.2
+**Track**: DIRTY HANDZ
 
-Last updated at 07/11/2022 10:19
+Last updated at 07/11/2022 10:21
