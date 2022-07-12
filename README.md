@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3KHbynuRQ6H3Wol-RzenNw-t500x500.jpg">](https://soundcloud.com/skypierr/vinland-saga-opening-mukanjyo-skypierr-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwWvAPS9f8ESUKtj-sTwbbQ-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/turbulenceremix)
 
-**Artist**: skypierr 
+**Artist**: Inquisitive [Remixes] 2 
 
-**Track**: Vinland Saga Opening | Mukanjyo (skypierr remix)
+**Track**: Steve Aoki & Laidback Luke ft. Lil Jon - Turbulence (Inquisitive HARDER Remix)
 
-Last updated at 07/12/2022 16:53
+Last updated at 07/12/2022 16:55
