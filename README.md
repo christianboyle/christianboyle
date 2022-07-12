@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNxtYcgDccCiAAgV-mIMPzQ-t500x500.jpg">](https://soundcloud.com/factmag/fact-mix-867-e-saggila-jul-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KCuHJg4znLRbLWZ-3xlHVQ-t500x500.jpg">](https://soundcloud.com/mastersofhardcore/death-punch-wall-street-rapture)
 
-**Artist**: Fact Magazine 
+**Artist**: Masters of Hardcore 
 
-**Track**: Fact Mix 867: E-Saggila (Jul '22)
+**Track**: Death Punch - Wall Street (Rapture)
 
-Last updated at 07/11/2022 14:46
+Last updated at 07/12/2022 15:38
