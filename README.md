@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KCuHJg4znLRbLWZ-3xlHVQ-t500x500.jpg">](https://soundcloud.com/mastersofhardcore/death-punch-wall-street-rapture)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uuzWURXJDsjl14r-U7wEHw-t500x500.jpg">](https://soundcloud.com/bkayeofficial/crash)
 
-**Artist**: Masters of Hardcore 
+**Artist**: BKAYE 
 
-**Track**: Death Punch - Wall Street (Rapture)
+**Track**: Crash (ft. Casey Cook)
 
-Last updated at 07/12/2022 15:38
+Last updated at 07/12/2022 15:41
