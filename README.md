@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwWvAPS9f8ESUKtj-sTwbbQ-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/turbulenceremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76JNpVuRtqb6rAPC-xYhV7Q-t500x500.jpg">](https://soundcloud.com/dopxset/leanin-like-forthcomingfnm)
 
-**Artist**: Inquisitive [Remixes] 2 
+**Artist**: DOPXSET 
 
-**Track**: Steve Aoki & Laidback Luke ft. Lil Jon - Turbulence (Inquisitive HARDER Remix)
+**Track**: LEANIN LIKE [FORTHCOMINGFNM]
 
-Last updated at 07/12/2022 16:55
+Last updated at 07/12/2022 16:57
