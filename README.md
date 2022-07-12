@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ncW2xFo8zxphcm6d-ZvCCSw-t500x500.jpg">](https://soundcloud.com/whoishaku/crank-dat-w-fireplex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9buJqT2NJhGmnKg-5OTUPA-t500x500.jpg">](https://soundcloud.com/robbgikma/dirty-souls-ep)
 
-**Artist**: haku 
+**Artist**: ROBBGIKMA 
 
-**Track**: CRANK DAT W/ Fireplex
+**Track**: DIRTY SOULS (EP)
 
-Last updated at 07/12/2022 16:11
+Last updated at 07/12/2022 16:13
