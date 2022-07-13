@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtCMxbmT2r3W5jXL-fR7JSg-t500x500.jpg">](https://soundcloud.com/cigarettesaregay/farbanenights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7v6wRjV86FaFDsu-IYqzCQ-t500x500.jpg">](https://soundcloud.com/katebi/rotterdam-wkushface)
 
-**Artist**: scvmbxg 
+**Artist**: KATEBI 
 
-**Track**: farbanenights
+**Track**: Rotterdam w/KUSHFACE
 
-Last updated at 07/13/2022 08:42
+Last updated at 07/13/2022 09:01
