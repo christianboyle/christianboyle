@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCEucxU3nIO6USCn-nHYUow-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bigbellygucci)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KCuHJg4znLRbLWZ-3xlHVQ-t500x500.jpg">](https://soundcloud.com/mastersofhardcore/death-punch-wall-street-rapture)
 
-**Artist**: kushface ☤ 
+**Artist**: Masters of Hardcore 
 
-**Track**: BIGBELLYGUCCI
+**Track**: Death Punch - Wall Street (Rapture)
 
-Last updated at 07/12/2022 17:01
+Last updated at 07/12/2022 21:29
