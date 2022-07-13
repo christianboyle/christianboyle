@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7v6wRjV86FaFDsu-IYqzCQ-t500x500.jpg">](https://soundcloud.com/katebi/rotterdam-wkushface)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RgcUPLTe8rDlhdOX-CKhQhg-t500x500.jpg">](https://soundcloud.com/liptonex/pokara-flip)
 
-**Artist**: KATEBI 
+**Artist**: LIPTONE 
 
-**Track**: Rotterdam w/KUSHFACE
+**Track**: POKARA FLIP
 
-Last updated at 07/13/2022 08:37
+Last updated at 07/13/2022 08:39
