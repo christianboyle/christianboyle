@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pqAwOWk5hVUVdgFM-Y0E1jw-t500x500.jpg">](https://soundcloud.com/flockaboi/make-a-killin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EumFYB8LP6gCo2Wy-HtNqgw-t500x500.jpg">](https://soundcloud.com/viergeascendant/au-top-promo-link)
 
-**Artist**: FLOCKABOI 
+**Artist**: ascendant vierge 
 
-**Track**: MAKE A KILLIN
+**Track**: AU TOP
 
-Last updated at 07/14/2022 09:22
+Last updated at 07/14/2022 09:23
