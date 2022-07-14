@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czu9YjzKnz7e0xZH-gzwp2Q-t500x500.jpg">](https://soundcloud.com/datboiryen/doing-2-much-p-typhoon-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGv2eUvAjLjawyWi-UG0cSw-t500x500.jpg">](https://soundcloud.com/1glaive/walking-around-with-no-hands-bonus-track)
 
-**Artist**: datboiryen 
+**Artist**: glaive 
 
-**Track**: doing 2 much (p. typhoon)
+**Track**: Walking Around With No Hands
 
-Last updated at 07/14/2022 16:16
+Last updated at 07/14/2022 16:18
