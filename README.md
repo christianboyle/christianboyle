@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmpaJKfC4xiYIOxp-yL8VhQ-t500x500.jpg">](https://soundcloud.com/lootemusic/this-is-how-u-feel-coastr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
 
-**Artist**: Loote 
+**Artist**: OVER EASY 
 
-**Track**: This Is How U Feel (COASTR. Remix)
+**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
 
-Last updated at 07/14/2022 16:22
+Last updated at 07/14/2022 16:25
