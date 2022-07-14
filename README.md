@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xt3Bs0KrJxC-0-t500x500.jpg">](https://soundcloud.com/ericdoa/lifeline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j50ixo8G041Z-0-t500x500.jpg">](https://soundcloud.com/midwxst/sidelines)
 
-**Artist**: ericdoa 
+**Artist**: midwxst 
 
-**Track**: lifeline
+**Track**: sidelines
 
-Last updated at 07/14/2022 16:11
+Last updated at 07/14/2022 16:14
