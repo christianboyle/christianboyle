@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wiJLrnJKOYpojWQM-TSa9aw-t500x500.jpg">](https://soundcloud.com/mybadfuckups/post-malone-hateful-my-bad-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T40o6vgFo4ZHUwZr-T7PR8w-t500x500.jpg">](https://soundcloud.com/radiantlove/rl-033-roza-terenzi)
 
-**Artist**: MY BAD F#*K UPS 
+**Artist**: RADIANT LOVE 
 
-**Track**: Post Malone - Hateful (MY BAD Remix)
+**Track**: RL 033 - ROZA TERENZI
 
-Last updated at 07/14/2022 09:25
+Last updated at 07/14/2022 09:26
