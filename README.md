@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0aVl8eDdVxWyxKwH-oyz1fw-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-3-feat-coastr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFGsMJkqyb9J-0-t500x500.png">](https://soundcloud.com/arty_music/arty-feat-annie-schindel-where)
 
-**Artist**: OVER EASY 
+**Artist**: ARTY 
 
-**Track**: Scrambled Sessions - Ep 3 (feat. COASTR.)
+**Track**: ARTY feat. Annie Schindel - Where Have You Been
 
-Last updated at 07/14/2022 09:41
+Last updated at 07/14/2022 14:18
