@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGv2eUvAjLjawyWi-UG0cSw-t500x500.jpg">](https://soundcloud.com/1glaive/justlikeu4theimage-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmpaJKfC4xiYIOxp-yL8VhQ-t500x500.jpg">](https://soundcloud.com/lootemusic/this-is-how-u-feel-coastr-remix)
 
-**Artist**: glaive 
+**Artist**: Loote 
 
-**Track**: Justlikeu4theimage
+**Track**: This Is How U Feel (COASTR. Remix)
 
-Last updated at 07/14/2022 16:20
+Last updated at 07/14/2022 16:22
