@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFGsMJkqyb9J-0-t500x500.png">](https://soundcloud.com/arty_music/arty-feat-annie-schindel-where)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGX8HKmywlokAPWz-NY1CGw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-x-dr-phunk-x-technikore-ghost-town)
 
-**Artist**: ARTY 
+**Artist**: Ben Nicky 
 
-**Track**: ARTY feat. Annie Schindel - Where Have You Been
+**Track**: Ben Nicky x Dr Phunk x Technikore - Ghost Town
 
-Last updated at 07/14/2022 17:52
+Last updated at 07/14/2022 17:54
