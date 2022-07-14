@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j50ixo8G041Z-0-t500x500.jpg">](https://soundcloud.com/midwxst/sidelines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czu9YjzKnz7e0xZH-gzwp2Q-t500x500.jpg">](https://soundcloud.com/datboiryen/doing-2-much-p-typhoon-1)
 
-**Artist**: midwxst 
+**Artist**: datboiryen 
 
-**Track**: sidelines
+**Track**: doing 2 much (p. typhoon)
 
-Last updated at 07/14/2022 16:14
+Last updated at 07/14/2022 16:16
