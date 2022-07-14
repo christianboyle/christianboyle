@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T40o6vgFo4ZHUwZr-T7PR8w-t500x500.jpg">](https://soundcloud.com/radiantlove/rl-033-roza-terenzi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xt3Bs0KrJxC-0-t500x500.jpg">](https://soundcloud.com/ericdoa/lifeline)
 
-**Artist**: RADIANT LOVE 
+**Artist**: ericdoa 
 
-**Track**: RL 033 - ROZA TERENZI
+**Track**: lifeline
 
-Last updated at 07/14/2022 09:26
+Last updated at 07/14/2022 09:27
