@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FoyVcn2PrCULHDNq-Wc0n6Q-t500x500.jpg">](https://soundcloud.com/balamii/dre-w-yop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7v6wRjV86FaFDsu-IYqzCQ-t500x500.jpg">](https://soundcloud.com/katebi/rotterdam-wkushface)
 
-**Artist**: Balamii 
+**Artist**: KATEBI 
 
-**Track**: Dre w/ Yop - July 2022
+**Track**: Rotterdam w/KUSHFACE
 
-Last updated at 07/13/2022 22:24
+Last updated at 07/14/2022 09:20
