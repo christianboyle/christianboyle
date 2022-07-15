@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHXxAMUGhSYd-0-t500x500.jpg">](https://soundcloud.com/iambru/no-excuses-hedex-remix?in=invictaaudio/sets/selected-by-invicta-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-imhuls4rZZkX0A4b-78JZlg-t500x500.jpg">](https://soundcloud.com/upgrade_productions/on-you?in=invictaaudio/sets/selected-by-invicta-audio)
 
-**Artist**: @Iambru_UK 
+**Artist**: Upgrade(UK) 
 
-**Track**: No Excuses (Hedex Remix)
+**Track**: Upgrade - On You
 
-Last updated at 07/15/2022 12:06
+Last updated at 07/15/2022 12:09
