@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cjGkNmzIrWKD4zM7-t4dkVA-t500x500.jpg">](https://soundcloud.com/990x/vert)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-gyyHaRqfwlIyAzPu-IsK9Pw-t500x500.jpg">](https://soundcloud.com/foolburgundy/wishfulthinkingsh2flipslow)
 
-**Artist**: 990x 
+**Artist**: fool 
 
-**Track**: Vert
+**Track**: staring at the water
 
-Last updated at 07/15/2022 08:21
+Last updated at 07/15/2022 08:22
