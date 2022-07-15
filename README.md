@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NtLMAeg1iYXvTP1Y-xVSPgw-t500x500.jpg">](https://soundcloud.com/gradientrecords/amplify-frontline-general-cliprelease-1722?in=invictaaudio/sets/selected-by-invicta-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000372478863-wt4jij-t500x500.jpg">](https://soundcloud.com/lu9ius/spark-a-wood-mixxx)
 
-**Artist**: Gradient Records 
+**Artist**: lυ9ιυѕ 
 
-**Track**: AMPLIFY - FRONTLINE GENERAL (CLIP)(OUT NOW)
+**Track**: SPARK A WOOD MIXXX
 
-Last updated at 07/15/2022 12:12
+Last updated at 07/15/2022 12:16
