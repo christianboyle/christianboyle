@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AktrzFDUOKvqTRbM-Dc9CWw-t500x500.jpg">](https://soundcloud.com/futureretrolondon/crfr001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spxVkbrzSj7PJDuA-cHM6wQ-t500x500.jpg">](https://soundcloud.com/djmag/on-cue-sully)
 
-**Artist**: Future Retro London 
+**Artist**: djmag 
 
-**Track**: CRFR001
+**Track**: On Cue: Sully
 
-Last updated at 07/15/2022 08:24
+Last updated at 07/15/2022 08:39
