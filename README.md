@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tkYuIy338nq9RUxe-BFzKgQ-t500x500.jpg">](https://soundcloud.com/groove-magazin/sully-memories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-arZ3jNVvMZfyin1b-Pr9Bqg-t500x500.jpg">](https://soundcloud.com/erickdie/who-that)
 
-**Artist**: Groove Magazin 
+**Artist**: erickD 
 
-**Track**: Sully – Memories
+**Track**: Who That w/ Dthd
 
-Last updated at 07/15/2022 12:02
+Last updated at 07/15/2022 12:03
