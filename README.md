@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76JNpVuRtqb6rAPC-xYhV7Q-t500x500.jpg">](https://soundcloud.com/dopxset/leanin-like-forthcomingfnm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCEucxU3nIO6USCn-nHYUow-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/bigbellygucci)
 
-**Artist**: DOPXSET 
+**Artist**: kushface ☤ 
 
-**Track**: LEANIN LIKE [FORTHCOMINGFNM]
+**Track**: BIGBELLYGUCCI
 
-Last updated at 07/15/2022 12:19
+Last updated at 07/15/2022 12:23
