@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wbbBFqPz6bMYl336-4MR4wQ-t500x500.jpg">](https://soundcloud.com/kxnxv/know-va-artefact-sully-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
 
-**Artist**: K/N/I/V/E/S 
+**Artist**: Astrophonica 
 
-**Track**: Know V.A. - Artefact (Sully Remix)
+**Track**: Astrophonica Podcast 03 - Sully
 
-Last updated at 07/15/2022 09:51
+Last updated at 07/15/2022 09:57
