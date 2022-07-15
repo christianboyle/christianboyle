@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fk7qkK2851upXlfv-tyrefw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-026-eyezic-wanted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FoyVcn2PrCULHDNq-Wc0n6Q-t500x500.jpg">](https://soundcloud.com/balamii/dre-w-yop)
 
-**Artist**: Quality Goods Records 
+**Artist**: Balamii 
 
-**Track**: QGR-026 | Eyezic - Wanted [HIHF Premiere]
+**Track**: Dre w/ Yop - July 2022
 
-Last updated at 07/15/2022 14:01
+Last updated at 07/15/2022 14:04
