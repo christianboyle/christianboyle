@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGX8HKmywlokAPWz-NY1CGw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-x-dr-phunk-x-technikore-ghost-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fk7qkK2851upXlfv-tyrefw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-026-eyezic-wanted)
 
-**Artist**: Ben Nicky 
+**Artist**: Quality Goods Records 
 
-**Track**: Ben Nicky x Dr Phunk x Technikore - Ghost Town
+**Track**: QGR-026 | Eyezic - Wanted [HIHF Premiere]
 
-Last updated at 07/14/2022 17:54
+Last updated at 07/15/2022 08:18
