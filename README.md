@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-gyyHaRqfwlIyAzPu-IsK9Pw-t500x500.jpg">](https://soundcloud.com/foolburgundy/wishfulthinkingsh2flipslow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zDG15HyigGlmNYcm-xSiEoQ-t500x500.jpg">](https://soundcloud.com/xxxsagexxx/chaser)
 
-**Artist**: fool 
+**Artist**: xSAGEx 
 
-**Track**: staring at the water
+**Track**: Chaser (Free DL)
 
-Last updated at 07/15/2022 08:22
+Last updated at 07/15/2022 08:23
