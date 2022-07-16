@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NMQXQw5RzNhSZNWE-AYt9yg-t500x500.jpg">](https://soundcloud.com/djride/noisia-invites-dj-ride-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tvm7Wy5GgQ80Anzg-t6TEqg-t500x500.jpg">](https://soundcloud.com/thebassspaceofficial/melopocalypse)
 
-**Artist**: 「 DJ RI̵DE̸ 」 
+**Artist**: The Bass Space 
 
-**Track**: NOISIA INVITES - Dj Ride Set
+**Track**: MELOPOCALYPSE
 
-Last updated at 07/15/2022 16:05
+Last updated at 07/16/2022 13:08
