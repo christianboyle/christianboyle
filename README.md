@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJS0T8aeNnhEzxsY-jxXb2w-t500x500.jpg">](https://soundcloud.com/lazarusxa/you-aint-no-killa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LPKlZzooK5Uzrq0Y-RPHFWQ-t500x500.jpg">](https://soundcloud.com/itsleemz/midwxst-sidelines-leemz-remix)
 
-**Artist**: Lazaru$ 
+**Artist**: Leemz 
 
-**Track**: YOU AIN'T NO KILLA
+**Track**: midwxst - sidelines (Leemz Jersey Club Remix)
 
-Last updated at 07/17/2022 07:30
+Last updated at 07/17/2022 07:31
