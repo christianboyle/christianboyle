@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/_wjFahULCK8/maxresdefault.jpg">](https://www.youtube.com/watch?v=_wjFahULCK8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdyusK5iClIL46VF-z83zQQ-t500x500.jpg">](https://soundcloud.com/itsleemz/shake-it-leemz-remix)
 
-**Artist**: Metro Station 
+**Artist**: Leemz 
 
-**Track**: Shake It (Official Video)
+**Track**: Metro Station - Shake It (Leemz Jersey Club Remix)
 
-Last updated at 07/17/2022 07:37
+Last updated at 07/17/2022 18:37
