@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LPKlZzooK5Uzrq0Y-RPHFWQ-t500x500.jpg">](https://soundcloud.com/itsleemz/midwxst-sidelines-leemz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdyusK5iClIL46VF-z83zQQ-t500x500.jpg">](https://soundcloud.com/itsleemz/shake-it-leemz-remix)
 
 **Artist**: Leemz 
 
-**Track**: midwxst - sidelines (Leemz Jersey Club Remix)
+**Track**: Metro Station - Shake It (Leemz Jersey Club Remix)
 
-Last updated at 07/17/2022 07:31
+Last updated at 07/17/2022 07:34
