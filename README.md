@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fk7qkK2851upXlfv-tyrefw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-026-eyezic-wanted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdyusK5iClIL46VF-z83zQQ-t500x500.jpg">](https://soundcloud.com/itsleemz/shake-it-leemz-remix)
 
-**Artist**: Quality Goods Records 
+**Artist**: Leemz 
 
-**Track**: QGR-026 | Eyezic - Wanted [HIHF Premiere]
+**Track**: Metro Station - Shake It (Leemz Jersey Club Remix)
 
-Last updated at 07/17/2022 18:45
+Last updated at 07/17/2022 18:47
