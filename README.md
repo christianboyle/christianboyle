@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/A1uNvJMjhEc/maxresdefault.jpg">](https://www.youtube.com/watch?v=A1uNvJMjhEc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWwLwFIm88ZUG7zV-doS9AQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-67-on-beat-106-1)
 
-**Artist**: 
-  
-    Song 1 of 2
-  
-  
-  
-    Song 1 of 2
-  
+**Artist**: Beat 106 Scotland 
 
+**Track**: Bonkers Beats #67 on Beat 106 Scotland with Kaylene Scar - A tribute to DJ Dangerous 150722 (Hour 1)
 
-
-
-
- 
-
-**Track**: My live with Tito's Made To Order
-
-Last updated at 07/18/2022 09:30
+Last updated at 07/18/2022 09:31
