@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9YjGhi2udRKdicst-1FAQpA-t500x500.jpg">](https://soundcloud.com/the_music_blender/plain-singularity-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAzL5mTAnQMC68lz-7OJvZQ-t500x500.jpg">](https://soundcloud.com/bitbird/left-unsaid-cozmoe-now-im-grown)
 
-**Artist**: The Music Blender 
+**Artist**: bitbird 
 
-**Track**: PLAIN - SINGULARITY
+**Track**: Left Unsaid & Cozmoe - Now I'm Grown
 
-Last updated at 07/17/2022 22:02
+Last updated at 07/17/2022 22:03
