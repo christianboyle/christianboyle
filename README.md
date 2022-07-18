@@ -1,22 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/A1uNvJMjhEc/maxresdefault.jpg">](https://www.youtube.com/watch?v=A1uNvJMjhEc)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/04ufimjXEbA/maxresdefault.jpg">](https://www.youtube.com/watch?v=04ufimjXEbA)
 
-**Artist**: 
-  
-    Song 1 of 2
-  
-  
-  
-    Song 1 of 2
-  
+**Artist**: RL Grime 
 
+**Track**: Core (Official Music Video)
 
-
-
-
- 
-
-**Track**: My live with Tito's Made To Order
-
-Last updated at 07/17/2022 22:25
+Last updated at 07/18/2022 09:29
