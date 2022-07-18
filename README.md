@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkVTJ8MIE5miDhF4-voJQfw-t500x500.jpg">](https://soundcloud.com/cutnsewmusic/cut-sew-live-at-big-bond)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/CARHyGAsv6Y/maxresdefault.jpg">](https://www.youtube.com/watch?v=CARHyGAsv6Y)
 
-**Artist**: Cut & Sew 
+**Artist**: This Never Happened 
 
-**Track**: Cut & Sew Live at Big Bond: Minimal Tech House/Garage
+**Track**: Lane 8 - Brightest Lights feat. POLIÇA
 
-Last updated at 07/17/2022 21:35
+Last updated at 07/17/2022 21:39
