@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/NgsWGfUlwJI/hqdefault.jpg">](https://www.youtube.com/watch?v=NgsWGfUlwJI)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/7aTLCinzeL0/hqdefault.jpg">](https://www.youtube.com/watch?v=7aTLCinzeL0)
 
-**Artist**: Joji 
+**Artist**: glaive 
 
-**Track**: Glimpse of Us (Official Video)
+**Track**: glaive – prick (official video)
 
-Last updated at 07/17/2022 21:07
+Last updated at 07/17/2022 21:13
