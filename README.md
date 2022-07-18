@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/CARHyGAsv6Y/maxresdefault.jpg">](https://www.youtube.com/watch?v=CARHyGAsv6Y)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYOh6BsxUzJQHWEw-O3b5Eg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-got-the-music)
 
-**Artist**: This Never Happened 
+**Artist**: Dirty Workz 
 
-**Track**: Lane 8 - Brightest Lights feat. POLIÇA
+**Track**: TNT & Darren Styles - Got The Music
 
-Last updated at 07/17/2022 21:39
+Last updated at 07/17/2022 21:57
