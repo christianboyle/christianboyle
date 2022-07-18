@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FoyVcn2PrCULHDNq-Wc0n6Q-t500x500.jpg">](https://soundcloud.com/balamii/dre-w-yop)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/NgsWGfUlwJI/hqdefault.jpg">](https://www.youtube.com/watch?v=NgsWGfUlwJI)
 
-**Artist**: Balamii 
+**Artist**: Joji 
 
-**Track**: Dre w/ Yop - July 2022
+**Track**: Glimpse of Us (Official Video)
 
-Last updated at 07/17/2022 19:05
+Last updated at 07/17/2022 21:07
