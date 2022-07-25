@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000035103867-wxf294-t500x500.jpg">](https://soundcloud.com/maddecent/oh-okay-yeah-thats-cool-philip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000139891313-tikgfi-t500x500.jpg">](https://soundcloud.com/trapworldtv/cola-splash-curry-drinker-djemba-djemba-remix)
 
-**Artist**: Mad Decent 
+**Artist**: Trap World 
 
-**Track**: Djemba Djemba- Oh Okay Yeah That's Cool (PhilipAlways Remix)
+**Track**: Cola Splash - Curry Drinker (Djemba Djemba Remix)
 
-Last updated at 07/25/2022 13:08
+Last updated at 07/25/2022 13:09
