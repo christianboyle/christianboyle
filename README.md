@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WD13orJTLJJCnQ1u-X0qzIA-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-volume-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2OZP7ffqjzZpdfr-dXoQ3Q-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-vol-6)
 
 **Artist**: MC4D 
 
-**Track**: Down Under Vol. 5 (DU Vol.6 OUT NOW)
+**Track**: Down Under Vol. 6
 
-Last updated at 07/25/2022 12:25
+Last updated at 07/25/2022 12:26
