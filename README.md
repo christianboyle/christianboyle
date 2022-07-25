@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000132605395-qtw55m-t500x500.jpg">](https://soundcloud.com/lingu518/lil-ugly-mane-bitch-im-lugubrious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085357563-05vbtv-t500x500.jpg">](https://soundcloud.com/alanjacome/lil-ugly-mane-lean-got-me-fucked-up)
 
-**Artist**: Lingu 
+**Artist**: Alan Jacome 
 
-**Track**: LIL UGLY MANE - BITCH I'M LUGUBRIOUS
+**Track**: LIL UGLY MANE - LEAN GOT ME FUCKED UP
 
-Last updated at 07/24/2022 21:57
+Last updated at 07/24/2022 22:02
