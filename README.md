@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572650628-oggaps-t500x500.jpg">](https://soundcloud.com/d-tor/mitomoro-s3rl-ft-lexi-dream-girl-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W7VDm5mhwzuf8OHz-TNm50g-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/the-hardcore-underground-show-podcast-33-fracus-darwin-april-2021-hupodcast33)
 
-**Artist**: D-tor 
+**Artist**: Hardcore Underground 
 
-**Track**: Mitomoro & S3RL ft. Lexi - Dream Girl (Original Mix) [OUT NOW on Lucky Lotus]
+**Track**: The Hardcore Underground Show - Podcast 33 (Fracus & Darwin) - APRIL 2021 #HUPODCAST33
 
-Last updated at 07/24/2022 21:07
+Last updated at 07/24/2022 21:08
