@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000085357563-05vbtv-t500x500.jpg">](https://soundcloud.com/alanjacome/lil-ugly-mane-lean-got-me-fucked-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qeuAu8JZY2hEJn7-Pyyb9A-t500x500.jpg">](https://soundcloud.com/alltrapnation/post-malone-cooped-up-bkaye-remix)
 
-**Artist**: Alan Jacome 
+**Artist**: Trap Nation 
 
-**Track**: LIL UGLY MANE - LEAN GOT ME FUCKED UP
+**Track**: Post Malone - Cooped Up (BKAYE Remix)
 
-Last updated at 07/24/2022 22:02
+Last updated at 07/24/2022 22:03
