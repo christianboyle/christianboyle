@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fzppg0MpuYo3TaKl-Ewn6yA-t500x500.jpg">](https://soundcloud.com/travelermusic/traveler-balance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sp3dgzaXElKZVlCW-QS4hUw-t500x500.jpg">](https://soundcloud.com/kushalienz/thxnder-x-arturo-off-da-bud)
 
-**Artist**: Traveler 
+**Artist**: KUSH ALIENZ 
 
-**Track**: Traveler - Balance
+**Track**: THXNDER X ARTURO - OFF DA BUD
 
-Last updated at 07/24/2022 21:11
+Last updated at 07/24/2022 21:18
