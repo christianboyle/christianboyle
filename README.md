@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000017293529-2ccju4-t500x500.jpg">](https://soundcloud.com/panamamusicofficial/magic-master-final-320kb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000061014477-svzljn-t500x500.jpg">](https://soundcloud.com/futureclassic/panama-always-wave-racer-2)
 
-**Artist**: P a n a m a 
+**Artist**: future classic 
 
-**Track**: Magic (Original)
+**Track**: Panama - Always (Wave Racer Remix)
 
-Last updated at 07/25/2022 12:47
+Last updated at 07/25/2022 12:48
