@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t6zWy7PTjuqVQrrc-mLmvog-t500x500.jpg">](https://soundcloud.com/dvdmtl/pg-d-v-d-what-ive-done)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6a1ZenBt0nT10OjK-gZMxtQ-t500x500.jpg">](https://soundcloud.com/osiasbootleg/hakan-hellstrom-jag-vill-bara-va-med-dej-osias-hardstyle-remix)
 
-**Artist**: D V D 
+**Artist**: osias (2) 
 
-**Track**: PG-D V D - WHAT I'VE DONE
+**Track**: håkan hellström - jag vill bara va med dej (osias hardstyle remix)
 
-Last updated at 07/24/2022 22:04
+Last updated at 07/24/2022 22:08
