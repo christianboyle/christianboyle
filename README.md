@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sp3dgzaXElKZVlCW-QS4hUw-t500x500.jpg">](https://soundcloud.com/kushalienz/thxnder-x-arturo-off-da-bud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UV5olf66x0gyb2uv-Q7jwiw-t500x500.jpg">](https://soundcloud.com/nocv/dream-girl-2022)
 
-**Artist**: KUSH ALIENZ 
+**Artist**: Noc.V 
 
-**Track**: THXNDER X ARTURO - OFF DA BUD
+**Track**: S3RL & Mitomoro - Dream Girl (Noc.V 2022 VIP)
 
-Last updated at 07/24/2022 21:18
+Last updated at 07/24/2022 21:20
