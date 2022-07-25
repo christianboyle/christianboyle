@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000212041711-pyq72k-t500x500.jpg">](https://soundcloud.com/jnthnstein/changes-djemba-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000035103867-wxf294-t500x500.jpg">](https://soundcloud.com/maddecent/oh-okay-yeah-thats-cool-philip)
 
-**Artist**: JNTHN STEIN 
+**Artist**: Mad Decent 
 
-**Track**: JNTHN STEIN - Changes (Djemba Djemba Remix)
+**Track**: Djemba Djemba- Oh Okay Yeah That's Cool (PhilipAlways Remix)
 
-Last updated at 07/25/2022 13:07
+Last updated at 07/25/2022 13:08
