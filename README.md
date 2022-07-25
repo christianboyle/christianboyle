@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XhBsnLYiDTgzXzt-9xZyAw-t500x500.jpg">](https://soundcloud.com/mybadfuckups/ownboss-sevek-move-your-body-my-bad-remix-150-130-bpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egfHBcoGhLFFyvDF-gufkCg-t500x500.jpg">](https://soundcloud.com/slushiimusic/forgive-me-1)
 
-**Artist**: MY BAD F#*K UPS 
+**Artist**: slushii 
 
-**Track**: Öwnboss, Sevek - Move Your Body (MY BAD Remix) (150 - 130 BPM)
+**Track**: Forgive Me
 
-Last updated at 07/25/2022 12:14
+Last updated at 07/25/2022 12:16
