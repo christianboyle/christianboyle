@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-poCgOhd3SlcLLkHv-q46OlQ-t500x500.jpg">](https://soundcloud.com/mkultraproductions/its-about-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMEQL3lCETg1QeQT-hbtKwg-t500x500.jpg">](https://soundcloud.com/squired/nycdebut)
 
-**Artist**: MKULTRA 
+**Artist**: Squired 
 
-**Track**: It's About Time
+**Track**: debut 7/8 @ mercury lounge nyc
 
-Last updated at 07/25/2022 12:58
+Last updated at 07/25/2022 13:02
