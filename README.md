@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWwLwFIm88ZUG7zV-doS9AQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-67-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvwQsLIlHOmUKLwA-HmAELA-t500x500.jpg">](https://soundcloud.com/user-612196404/petal-supply-rude)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: NTS Sunday 
 
-**Track**: Bonkers Beats #67 on Beat 106 Scotland with Kaylene Scar - A tribute to DJ Dangerous 150722 (Hour 1)
+**Track**: Petal Supply: rude
 
-Last updated at 07/18/2022 09:31
+Last updated at 07/24/2022 21:05
