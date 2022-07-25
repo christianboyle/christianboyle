@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000139891313-tikgfi-t500x500.jpg">](https://soundcloud.com/trapworldtv/cola-splash-curry-drinker-djemba-djemba-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000079249238-f38yov-t500x500.jpg">](https://soundcloud.com/thepompoms/retr0grade-prod-djemba-djemba)
 
-**Artist**: Trap World 
+**Artist**: The Pom-Poms 
 
-**Track**: Cola Splash - Curry Drinker (Djemba Djemba Remix)
+**Track**: Ψ retr0grade (prod. djemba djemba) Ψ
 
-Last updated at 07/25/2022 13:09
+Last updated at 07/25/2022 13:10
