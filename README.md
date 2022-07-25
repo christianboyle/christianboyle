@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UV5olf66x0gyb2uv-Q7jwiw-t500x500.jpg">](https://soundcloud.com/nocv/dream-girl-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xsDi6NKMimUDXC8e-zzSqWg-t500x500.jpg">](https://soundcloud.com/whoskid/kd-if-this-is-a-dream)
 
-**Artist**: Noc.V 
+**Artist**: k?d 
 
-**Track**: S3RL & Mitomoro - Dream Girl (Noc.V 2022 VIP)
+**Track**: IF THIS IS A DREAM
 
-Last updated at 07/24/2022 21:20
+Last updated at 07/24/2022 21:46
