@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317626224-5k5cyr-t500x500.jpg">](https://soundcloud.com/partyfavor/party-favor-x-baauer-mdr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMEQL3lCETg1QeQT-hbtKwg-t500x500.jpg">](https://soundcloud.com/squired/nycdebut)
 
-**Artist**: PARTY FAVOR 
+**Artist**: Squired 
 
-**Track**: Party Favor X Baauer - MDR
+**Track**: debut 7/8 @ mercury lounge nyc
 
-Last updated at 07/25/2022 12:50
+Last updated at 07/25/2022 12:51
