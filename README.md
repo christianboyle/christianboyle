@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000148456330-o8fku6-t500x500.jpg">](https://soundcloud.com/yungsimmie/kurt-codeine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxfPqsMYKb67xNzD-xQy2qQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-68-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-68-on-beat-106-scotland-with-jimni-cricket-dj-defective-220722)
 
-**Artist**: Yung Simmie 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Kurt Codeine Prod YUNG SIMMIE
+**Track**: Bonkers Beats #68 on Beat 106 Scotland with Jimni Cricket 220722 (Hour 1)
 
-Last updated at 07/25/2022 12:22
+Last updated at 07/25/2022 12:23
