@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMEQL3lCETg1QeQT-hbtKwg-t500x500.jpg">](https://soundcloud.com/squired/nycdebut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MB65LAmVTosvvFtD-jGcF3w-t500x500.jpg">](https://soundcloud.com/itsxclub/x-club-time-to-groove)
 
-**Artist**: Squired 
+**Artist**: X CLUB. 
 
-**Track**: debut 7/8 @ mercury lounge nyc
+**Track**: X CLUB. - TIME TO GROOVE
 
-Last updated at 07/25/2022 12:51
+Last updated at 07/25/2022 12:54
