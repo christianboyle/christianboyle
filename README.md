@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ddyo5gZIdCxqLbG-W5LWDw-t500x500.jpg">](https://soundcloud.com/s3rl/punch-the-gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000572650628-oggaps-t500x500.jpg">](https://soundcloud.com/d-tor/mitomoro-s3rl-ft-lexi-dream-girl-original-mix)
 
-**Artist**: S3RL 
+**Artist**: D-tor 
 
-**Track**: Punch The Gas - Brisk & S3RL
+**Track**: Mitomoro & S3RL ft. Lexi - Dream Girl (Original Mix) [OUT NOW on Lucky Lotus]
 
-Last updated at 07/24/2022 21:06
+Last updated at 07/24/2022 21:07
