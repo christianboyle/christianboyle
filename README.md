@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxfPqsMYKb67xNzD-xQy2qQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-68-on-beat-106?in=beat106scotland/sets/bonkers-beats-68-on-beat-106-scotland-with-jimni-cricket-dj-defective-220722)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WD13orJTLJJCnQ1u-X0qzIA-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-volume-5)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: MC4D 
 
-**Track**: Bonkers Beats #68 on Beat 106 Scotland with DJ Defective 220722 (Hour 2)
+**Track**: Down Under Vol. 5 (DU Vol.6 OUT NOW)
 
-Last updated at 07/25/2022 12:24
+Last updated at 07/25/2022 12:25
