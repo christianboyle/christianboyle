@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvwQsLIlHOmUKLwA-HmAELA-t500x500.jpg">](https://soundcloud.com/user-612196404/petal-supply-rude)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ddyo5gZIdCxqLbG-W5LWDw-t500x500.jpg">](https://soundcloud.com/s3rl/punch-the-gas)
 
-**Artist**: NTS Sunday 
+**Artist**: S3RL 
 
-**Track**: Petal Supply: rude
+**Track**: Punch The Gas - Brisk & S3RL
 
-Last updated at 07/24/2022 21:05
+Last updated at 07/24/2022 21:06
