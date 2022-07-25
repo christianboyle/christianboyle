@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egfHBcoGhLFFyvDF-gufkCg-t500x500.jpg">](https://soundcloud.com/slushiimusic/forgive-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxCOeBoZrkixUI5Y-7Mu6ug-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-dark-heart)
 
-**Artist**: slushii 
+**Artist**: iEDM Radio 
 
-**Track**: Forgive Me
+**Track**: iEDM Radio Guest Mix - Dark Heart
 
-Last updated at 07/25/2022 12:16
+Last updated at 07/25/2022 12:19
