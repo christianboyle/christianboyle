@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000345376209-v5ls6a-t500x500.jpg">](https://soundcloud.com/phuturecollective/underscores-throwing-tantrums-while-the-cars-parked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000132605395-qtw55m-t500x500.jpg">](https://soundcloud.com/lingu518/lil-ugly-mane-bitch-im-lugubrious)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Lingu 
 
-**Track**: underscores - throwing tantrums while the car's parked
+**Track**: LIL UGLY MANE - BITCH I'M LUGUBRIOUS
 
-Last updated at 07/24/2022 21:56
+Last updated at 07/24/2022 21:57
