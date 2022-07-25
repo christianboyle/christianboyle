@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ZWAtbdKJ5fyTOzZ-df703A-t500x500.jpg">](https://soundcloud.com/cyberpunkers/stranger-things-cyberpunkers-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oaQE9MFg38ske57Q-ipnA5Q-t500x500.jpg">](https://soundcloud.com/bitbird/synova-the-finer-things-club)
 
-**Artist**: CYBERPUNKERS 
+**Artist**: bitbird 
 
-**Track**: Stranger Things (Cyberpunkers Remix)
+**Track**: Synova - The Finer Things Club
 
-Last updated at 07/24/2022 21:48
+Last updated at 07/24/2022 21:49
