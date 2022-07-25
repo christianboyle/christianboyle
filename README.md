@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000061014477-svzljn-t500x500.jpg">](https://soundcloud.com/futureclassic/panama-always-wave-racer-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z1Yk9NP8WZgGJcgy-TJrFlA-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-203-mystic)
 
-**Artist**: future classic 
+**Artist**: FUXWITHIT 
 
-**Track**: Panama - Always (Wave Racer Remix)
+**Track**: FUXWITHIT Guest Mix: 203 - M?STIC
 
-Last updated at 07/25/2022 12:48
+Last updated at 07/25/2022 12:49
