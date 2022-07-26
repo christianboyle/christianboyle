@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0prth4ZgTAo6-0-t500x500.jpg">](https://soundcloud.com/slothacid/truth-x-lies-feat-josh-tobias)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj2Ip1EGXZ4aWHfD-kWXjPQ-t500x500.jpg">](https://soundcloud.com/neverworryrecords/longstoryshort-like-i-do)
 
-**Artist**: Slothacid 
+**Artist**: Never Worry Records 
 
-**Track**: Truth x Lies feat. Josh Tobias - Kink
+**Track**: Longstoryshort - Like I Do
 
-Last updated at 07/26/2022 13:39
+Last updated at 07/26/2022 13:42
