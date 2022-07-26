@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6E6COLwcBRH-0-t500x500.jpg">](https://soundcloud.com/pheelz-beat/finesse-feat-bnxn-4b-mix-4b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M1nbjcsiFZT4edvs-zADDGQ-t500x500.jpg">](https://soundcloud.com/nicki-minaj-2-243225213/ways-maknae-drowning-nicki-minaj-2-remix)
 
-**Artist**: Pheelz beat 
+**Artist**: Nicki Minaj 2 
 
-**Track**: Finesse (feat. BNXN) [4B Mix] (4B Mix)
+**Track**: Ways & Maknae - Drowning (Nicki Minaj 2 remix) #DILFWORLD
 
-Last updated at 07/26/2022 13:46
+Last updated at 07/26/2022 16:00
