@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5VhlAcOtaxUEiHz-47kY6w-t500x500.jpg">](https://soundcloud.com/nullsect/hellbound-ooze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MB65LAmVTosvvFtD-jGcF3w-t500x500.jpg">](https://soundcloud.com/itsxclub/x-club-time-to-groove)
 
-**Artist**: NULLSECT 
+**Artist**: X CLUB. 
 
-**Track**: HELLBOUND! - OOZE
+**Track**: X CLUB. - TIME TO GROOVE
 
-Last updated at 07/26/2022 13:35
+Last updated at 07/26/2022 13:36
