@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHGwWEg6QLM7A6z9-yRqbHg-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-global-mix-050-x-club?in=itsxclub/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NlPjJL92d3zXJxti-yjcJBQ-t500x500.jpg">](https://soundcloud.com/dj4b/4b-diesel-shut-up-ft-trick-daddy)
 
-**Artist**: Four Four Magazine 
+**Artist**: 4B 
 
-**Track**: Four Four Global Mix 050 - X CLUB
+**Track**: 4B & DIESEL - Shut Up (Ft. Trick Daddy)
 
-Last updated at 07/26/2022 13:37
+Last updated at 07/26/2022 13:38
