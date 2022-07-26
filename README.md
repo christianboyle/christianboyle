@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYqBkwxMlybyYIBX-ElWGQA-t500x500.jpg">](https://soundcloud.com/isoxo/charge-isoxo-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5v4WLOsXajJLU1xm-Q5YM8Q-t500x500.jpg">](https://soundcloud.com/lemaylemay/lemay-tadashi-boom-bap)
 
-**Artist**: ISOxo 
+**Artist**: LEMAY 
 
-**Track**: Chargé (ISOxo Edit) - Boombox Cartel, Kaaris & Mr Carmack
+**Track**: Lemay & Tadashi - Boom Bap
 
-Last updated at 07/26/2022 13:31
+Last updated at 07/26/2022 13:32
