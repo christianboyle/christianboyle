@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000127758995-0pso9k-t500x500.jpg">](https://soundcloud.com/friday-dj-set/djemba-djemba-triple-j-friday-mix-28082015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwcjYAx0BWgtqjId-5qoi0w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-63-on-beat-106-1)
 
-**Artist**: Triple J Friday DJ Set 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Djemba Djemba - Triple J Friday Mix - 28.08.2015
+**Track**: Bonkers Beats #63 on Beat 106 Scotland with Shimamura  170622 (Hour 1)
 
-Last updated at 07/25/2022 13:41
+Last updated at 07/26/2022 10:52
