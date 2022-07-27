@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M1nbjcsiFZT4edvs-zADDGQ-t500x500.jpg">](https://soundcloud.com/nicki-minaj-2-243225213/ways-maknae-drowning-nicki-minaj-2-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJB04ELEC1tWUzrS-PXGxxw-t500x500.jpg">](https://soundcloud.com/dj4b/4b-damian-avila-drum)
 
-**Artist**: Nicki Minaj 2 
+**Artist**: 4B 
 
-**Track**: Ways & Maknae - Drowning (Nicki Minaj 2 remix) #DILFWORLD
+**Track**: 4B & Damian Avila - Drum
 
-Last updated at 07/26/2022 16:00
+Last updated at 07/26/2022 20:17
