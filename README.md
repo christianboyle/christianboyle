@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRvynQMSLJ80lEfN-FgjnCw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/that-aint-shit-dirt-tape-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCcJBKzQsjpttTrK-Z9DBEw-t500x500.jpg">](https://soundcloud.com/everen-maxwell/phocust-the-other-side-feat-joegarratt-everen-maxwell-remix)
 
-**Artist**: kushface ☤ 
+**Artist**: Everen Maxwell 
 
-**Track**: THAT AIN'T SHIT (*DIRT TAPE V*)
+**Track**: Phocust - The Other Side Feat. Joegarratt (Everen Maxwell Remix)
 
-Last updated at 07/26/2022 22:20
+Last updated at 07/27/2022 09:59
