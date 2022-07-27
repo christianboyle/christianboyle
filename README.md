@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mYV3sczj7qMN9Zmv-sJtvrg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/lost-melodies-faster-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TmM1hui9Zkqh3fQB-Uw3onA-t500x500.jpg">](https://soundcloud.com/camouflybeats/havemercy)
 
-**Artist**: Dirty Workz 
+**Artist**: camoufly 
 
-**Track**: Lost Melodies - Faster (DWX Copyright Free)
+**Track**: have mercy
 
-Last updated at 07/27/2022 10:02
+Last updated at 07/27/2022 10:03
