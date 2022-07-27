@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8fA2UvyJzb6D9GZ-eRzyNA-t500x500.jpg">](https://soundcloud.com/asteria/i-didnt-need-you-anyway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJB04ELEC1tWUzrS-PXGxxw-t500x500.jpg">](https://soundcloud.com/dj4b/4b-damian-avila-drum)
 
-**Artist**: asteria 
+**Artist**: 4B 
 
-**Track**: i didn't need you anyway (elwood)
+**Track**: 4B & Damian Avila - Drum
 
-Last updated at 07/27/2022 15:59
+Last updated at 07/27/2022 16:00
