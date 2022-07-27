@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNepKOydRZL2l1Jy-nOVQBQ-t500x500.jpg">](https://soundcloud.com/isvvcisvvcisvvc/lay-it-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgiXKCizn4kysoMw-CdRIvw-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/hop-out)
 
-**Artist**: ISVVC 
+**Artist**: FREDDY KONFEDDY 
 
-**Track**: LAY IT DOWN
+**Track**: HOP OUT
 
-Last updated at 07/27/2022 10:00
+Last updated at 07/27/2022 10:01
