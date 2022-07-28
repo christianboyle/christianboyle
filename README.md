@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GipxAC930czDuHHt-AVJ8CA-t500x500.jpg">](https://soundcloud.com/prodescobar/land-of-the-lost-mixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231998339-8mm6rx-t500x500.jpg">](https://soundcloud.com/purpleposse/issue06)
 
-**Artist**: 1.9.9.9 
+**Artist**: PURPLE POSSE 
 
-**Track**: LAND OF THE LOST MIXX
+**Track**: ISSUE 06 (Full Stream)
 
-Last updated at 07/28/2022 10:22
+Last updated at 07/28/2022 11:29
