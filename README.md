@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U01kUrOsBlkl3VEr-jIgb5g-t500x500.jpg">](https://soundcloud.com/djmag/premiere-nick-leon-xtasis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TUf2du9iwGryn0r6-sZ864w-t500x500.jpg">](https://soundcloud.com/user-965517279-929467073/dance-mix)
 
-**Artist**: djmag 
+**Artist**: ROWA 
 
-**Track**: Premiere: Nick León ‘Xtasis Feat. DJ Babatr'
+**Track**: DANCE MIX
 
-Last updated at 07/28/2022 13:58
+Last updated at 07/28/2022 14:03
