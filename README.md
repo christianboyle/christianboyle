@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231998339-8mm6rx-t500x500.jpg">](https://soundcloud.com/purpleposse/issue06)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVKn62f238raxdrv-JRykfQ-t500x500.png">](https://soundcloud.com/rinsefm/scuffed-recordings-with-wager-95bones-26-july-2022)
 
-**Artist**: PURPLE POSSE 
+**Artist**: Rinse FM 
 
-**Track**: ISSUE 06 (Full Stream)
+**Track**: Scuffed Recordings with Wager & 95Bones - 26 July 2022
 
-Last updated at 07/28/2022 11:29
+Last updated at 07/28/2022 11:31
