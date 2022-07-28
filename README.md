@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cx2WPj1YWFPCOU7O-z4Bjmw-t500x500.jpg">](https://soundcloud.com/jslaisknife/laserbeam-hardstyle-ray-volpe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnkgAsa31iVP-0-t500x500.png">](https://soundcloud.com/darren-styles/darren-styles-mark-sixma-feat)
 
-**Artist**: J Slai's Knife 
+**Artist**: Darren Styles 
 
-**Track**: LASERBEAM [J. SLAI HARD RESLAI] - RAY VOLPE
+**Track**: Darren Styles & Mark Sixma feat. Noubya - Louder
 
-Last updated at 07/28/2022 15:16
+Last updated at 07/28/2022 15:17
