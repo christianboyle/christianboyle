@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bnVODTiyZyRuLngc-PrrVNg-t500x500.jpg">](https://soundcloud.com/sapphire_gawd/ukrainian-carnage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tpRglrMqOChTM1P-xb9oFA-t500x500.jpg">](https://soundcloud.com/montarecs/lemay-secret-island)
 
-**Artist**: SAPPHIREGAWD 
+**Artist**: MONTA 
 
-**Track**: DJ Turquoise - Hard Hitta Mix II: Склеп Полный Трупов
+**Track**: Lemay - Secret Island
 
-Last updated at 07/28/2022 12:23
+Last updated at 07/28/2022 12:24
