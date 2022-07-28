@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgiXKCizn4kysoMw-CdRIvw-t500x500.jpg">](https://soundcloud.com/freddykonfeddy/hop-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJB04ELEC1tWUzrS-PXGxxw-t500x500.jpg">](https://soundcloud.com/dj4b/4b-damian-avila-drum)
 
-**Artist**: FREDDY KONFEDDY 
+**Artist**: 4B 
 
-**Track**: HOP OUT
+**Track**: 4B & Damian Avila - Drum
 
-Last updated at 07/28/2022 15:28
+Last updated at 07/28/2022 15:31
