@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000090169833-m1bqlf-t500x500.jpg">](https://soundcloud.com/mermaidsandthingsmayra/paramore-last-hope-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ElvgJGlLUk3w-0-t500x500.jpg">](https://soundcloud.com/paramore/fast-in-my-car)
 
-**Artist**: mermaidsandthings 
+**Artist**: Paramore 
 
-**Track**: Paramore- Last Hope (LIVE)
+**Track**: Fast in My Car
 
-Last updated at 07/28/2022 15:19
+Last updated at 07/28/2022 15:21
