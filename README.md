@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVKn62f238raxdrv-JRykfQ-t500x500.png">](https://soundcloud.com/rinsefm/scuffed-recordings-with-wager-95bones-26-july-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7kAdQNHprGuf9Jh2-bMD7fA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/munro-dabl-better-off-not-knowing)
 
-**Artist**: Rinse FM 
+**Artist**: Quality Goods Records 
 
-**Track**: Scuffed Recordings with Wager & 95Bones - 26 July 2022
+**Track**: QGRS-027 | munro & dabl – Better Off Not Knowing
 
-Last updated at 07/28/2022 11:31
+Last updated at 07/28/2022 12:22
