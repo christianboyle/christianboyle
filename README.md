@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rzryml3nNLkRgzhX-AODXfg-t500x500.jpg">](https://soundcloud.com/itsrestricted/lights-restricted-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U01kUrOsBlkl3VEr-jIgb5g-t500x500.jpg">](https://soundcloud.com/djmag/premiere-nick-leon-xtasis)
 
-**Artist**: Restricted 
+**Artist**: djmag 
 
-**Track**: Lights (Restricted Edit)
+**Track**: Premiere: Nick León ‘Xtasis Feat. DJ Babatr'
 
-Last updated at 07/28/2022 13:55
+Last updated at 07/28/2022 13:58
