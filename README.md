@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-my8lNkIHrGM1zaeh-WnQUNA-t500x500.jpg">](https://soundcloud.com/subsidia/yookie-voices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cx2WPj1YWFPCOU7O-z4Bjmw-t500x500.jpg">](https://soundcloud.com/jslaisknife/laserbeam-hardstyle-ray-volpe)
 
-**Artist**: Subsidia 
+**Artist**: J Slai's Knife 
 
-**Track**: YOOKiE - VOiCES
+**Track**: LASERBEAM [J. SLAI HARD RESLAI] - RAY VOLPE
 
-Last updated at 07/28/2022 15:14
+Last updated at 07/28/2022 15:16
