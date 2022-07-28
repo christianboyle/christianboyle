@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnkgAsa31iVP-0-t500x500.png">](https://soundcloud.com/darren-styles/darren-styles-mark-sixma-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000090169833-m1bqlf-t500x500.jpg">](https://soundcloud.com/mermaidsandthingsmayra/paramore-last-hope-live)
 
-**Artist**: Darren Styles 
+**Artist**: mermaidsandthings 
 
-**Track**: Darren Styles & Mark Sixma feat. Noubya - Louder
+**Track**: Paramore- Last Hope (LIVE)
 
-Last updated at 07/28/2022 15:17
+Last updated at 07/28/2022 15:19
