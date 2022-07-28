@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7kAdQNHprGuf9Jh2-bMD7fA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/munro-dabl-better-off-not-knowing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bnVODTiyZyRuLngc-PrrVNg-t500x500.jpg">](https://soundcloud.com/sapphire_gawd/ukrainian-carnage)
 
-**Artist**: Quality Goods Records 
+**Artist**: SAPPHIREGAWD 
 
-**Track**: QGRS-027 | munro & dabl – Better Off Not Knowing
+**Track**: DJ Turquoise - Hard Hitta Mix II: Склеп Полный Трупов
 
-Last updated at 07/28/2022 12:22
+Last updated at 07/28/2022 12:23
