@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tpRglrMqOChTM1P-xb9oFA-t500x500.jpg">](https://soundcloud.com/montarecs/lemay-secret-island)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRvynQMSLJ80lEfN-FgjnCw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/that-aint-shit-dirt-tape-v)
 
-**Artist**: MONTA 
+**Artist**: kushface ☤ 
 
-**Track**: Lemay - Secret Island
+**Track**: THAT AIN'T SHIT (*DIRT TAPE V*)
 
-Last updated at 07/28/2022 12:24
+Last updated at 07/28/2022 12:27
