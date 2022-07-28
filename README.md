@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRvynQMSLJ80lEfN-FgjnCw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/that-aint-shit-dirt-tape-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rzryml3nNLkRgzhX-AODXfg-t500x500.jpg">](https://soundcloud.com/itsrestricted/lights-restricted-edit)
 
-**Artist**: kushface ☤ 
+**Artist**: Restricted 
 
-**Track**: THAT AIN'T SHIT (*DIRT TAPE V*)
+**Track**: Lights (Restricted Edit)
 
-Last updated at 07/28/2022 12:27
+Last updated at 07/28/2022 13:55
