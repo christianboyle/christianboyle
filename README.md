@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSMqY7JfrblfCbpG-dQ0yXA-t500x500.jpg">](https://soundcloud.com/slattluv2244/louie-ray-x-lil-yachty-instressing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1zgoa0U7pmm-0-t500x500.jpg">](https://soundcloud.com/gavinjamesofficial/greatest-hits)
 
-**Artist**: SLATTluv2244 
+**Artist**: Gavin James Official 
 
-**Track**: Louie Ray x Lil Yachty - INSTRESSING
+**Track**: Greatest Hits
 
-Last updated at 07/29/2022 07:17
+Last updated at 07/29/2022 07:18
