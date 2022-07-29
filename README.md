@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eSOpYzjNwZXNvzmI-RsvpXA-t500x500.jpg">](https://soundcloud.com/hysteriarecords/bingo-players-state-of-mind-ft-sarah-de-warren-guz-remix?in=bingoplayers/sets/bingo-players-state-of-mind-feat-sarah-de-warren)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pr4uJzPSLYKhdNeX-ky9Ohg-t500x500.jpg">](https://soundcloud.com/hysteriarecords/artelax-paradise?in=hysteriarecords/sets/hysteria-ep-vol-13)
 
 **Artist**: Hysteria Records 
 
-**Track**: Bingo Players - State Of Mind (feat. Sarah De Warren) (GUZ Remix)
+**Track**: Artelax - Paradise
 
-Last updated at 07/29/2022 09:27
+Last updated at 07/29/2022 09:28
