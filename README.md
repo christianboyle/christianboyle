@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GCldxKY0Fc1B8gy-tNEJfw-t500x500.jpg">](https://soundcloud.com/uberjakd/hard-flips-vol2-edit-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SS6iZauFadchqhz5-60zL9Q-t500x500.jpg">](https://soundcloud.com/foreverstoned2003/darkbday-drop)
 
-**Artist**: Uberjak'd 
+**Artist**: FOREVER ST0NED 
 
-**Track**: Hard Flips vol.2 [Edit Pack]
+**Track**: DARK FORCES(BDAY DROP)
 
-Last updated at 07/29/2022 09:24
+Last updated at 07/29/2022 09:25
