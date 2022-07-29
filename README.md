@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SS6iZauFadchqhz5-60zL9Q-t500x500.jpg">](https://soundcloud.com/foreverstoned2003/darkbday-drop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s9oMi1UnHMnumVZG-gpByTg-t500x500.jpg">](https://soundcloud.com/static-angel/within?in=static-angel/sets/phantom-sense-ep-1)
 
-**Artist**: FOREVER ST0NED 
+**Artist**: STATIC ANGEL 
 
-**Track**: DARK FORCES(BDAY DROP)
+**Track**: Within
 
-Last updated at 07/29/2022 09:25
+Last updated at 07/29/2022 09:26
