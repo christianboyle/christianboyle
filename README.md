@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcAEM1iQQKrH0Ltg-kZVGwg-t500x500.jpg">](https://soundcloud.com/djcriticalsoundz/addicted-to-the-core-reincarnated-220722)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxfPqsMYKb67xNzD-xQy2qQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-68-on-beat-106-1)
 
-**Artist**: REINCARNATED 
+**Artist**: Beat 106 Scotland 
 
-**Track**: ADDICTED TO THE CORE REINCARNATED 22.07.22
+**Track**: Bonkers Beats #68 on Beat 106 Scotland with Jimni Cricket 220722 (Hour 1)
 
-Last updated at 07/29/2022 16:45
+Last updated at 07/29/2022 16:52
