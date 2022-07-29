@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxfPqsMYKb67xNzD-xQy2qQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-68-on-beat-106?in=beat106scotland/sets/bonkers-beats-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HzzuX7ny2v0zKSv-jzzSEA-t500x500.jpg">](https://soundcloud.com/gmafiarecords/the-nobody-holding-my-breath?in=club_for_losers/sets/spring-awakening)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: Bonkers Beats #68 on Beat 106 Scotland with DJ Defective 220722 (Hour 2)
+**Track**: The Nobody - Holding My Breath (Original Mix) [G-MAFIA RECORDS]
 
-Last updated at 07/29/2022 10:27
+Last updated at 07/29/2022 11:37
