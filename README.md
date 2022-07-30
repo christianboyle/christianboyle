@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pb70Px30jjEp-0-t500x500.jpg">](https://soundcloud.com/1glaive/astrid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g1H5ViL6TFd-0-t500x500.jpg">](https://soundcloud.com/1glaive/cloak-n-dagger)
 
 **Artist**: glaive 
 
-**Track**: astrid
+**Track**: cloak n dagger
 
-Last updated at 07/30/2022 10:52
+Last updated at 07/30/2022 10:54
