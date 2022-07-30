@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxfPqsMYKb67xNzD-xQy2qQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-68-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fIwpolOoYyZnyBFA-4b2Pig-t500x500.jpg">](https://soundcloud.com/atikmusic/atik-my-favorite-things)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Atik 👻 
 
-**Track**: Bonkers Beats #68 on Beat 106 Scotland with Jimni Cricket 220722 (Hour 1)
+**Track**: Atik - My Favorite Things
 
-Last updated at 07/30/2022 11:12
+Last updated at 07/30/2022 11:17
