@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGv2eUvAjLjawyWi-UG0cSw-t500x500.jpg">](https://soundcloud.com/1glaive/walking-around-with-no-hands-bonus-track)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/KolZJ7TPfFY/hqdefault.jpg">](https://www.youtube.com/watch?v=KolZJ7TPfFY)
 
-**Artist**: glaive 
+**Artist**: aldn 
 
-**Track**: Walking Around With No Hands
+**Track**: aldn, glaive - "what was the last thing u said" [official music video]
 
-Last updated at 07/30/2022 10:32
+Last updated at 07/30/2022 10:39
