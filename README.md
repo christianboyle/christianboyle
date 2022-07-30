@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000172037108-72hr3a-t500x500.jpg">](https://soundcloud.com/atikmusic/zomboy-dip-it-atik-remix-2?in=atikmusic/sets/originals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000108661552-42a09s-t500x500.jpg">](https://soundcloud.com/your-edms-collection/atik-mufasa?in=atikmusic/sets/originals)
 
-**Artist**: Atik 👻 
+**Artist**: Your EDM's Collection 
 
-**Track**: ZOMBOY - Dip It (Atik Remix)
+**Track**: Atik - Mufasa
 
-Last updated at 07/30/2022 11:25
+Last updated at 07/30/2022 11:27
