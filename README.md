@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000162697862-7jbhtb-t500x500.jpg">](https://soundcloud.com/atikmusic/atik-get-love-cymatics-jawz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g1H5ViL6TFd-0-t500x500.jpg">](https://soundcloud.com/1glaive/cloak-n-dagger)
 
-**Artist**: Atik 👻 
+**Artist**: glaive 
 
-**Track**: Atik - Get Love (Cymatics JAWZ Contest Popular Vote Winner)
+**Track**: cloak n dagger
 
-Last updated at 07/30/2022 15:31
+Last updated at 07/30/2022 15:34
