@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000162697862-7jbhtb-t500x500.jpg">](https://soundcloud.com/atikmusic/atik-get-love-cymatics-jawz?in=atikmusic/sets/originals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VzqrYvzUTfXeDg6-CzMDmw-t500x500.jpg">](https://soundcloud.com/bassfacedubs/freakmeowt-bassface-destroy)
 
-**Artist**: Atik 👻 
+**Artist**: BASSFACE 
 
-**Track**: Atik - Get Love (Cymatics JAWZ Contest Popular Vote Winner)
+**Track**: FreakMEOWt & BASSFACE - DESTROY
 
-Last updated at 07/30/2022 11:28
+Last updated at 07/30/2022 15:26
