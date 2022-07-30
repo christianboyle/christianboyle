@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g1H5ViL6TFd-0-t500x500.jpg">](https://soundcloud.com/1glaive/cloak-n-dagger)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/8TyZQuxctJA/maxresdefault.jpg">](https://www.youtube.com/watch?v=8TyZQuxctJA)
 
 **Artist**: glaive 
 
-**Track**: cloak n dagger
+**Track**: glaive, ericdoa - cloak n dagger
 
-Last updated at 07/30/2022 15:34
+Last updated at 07/30/2022 15:35
