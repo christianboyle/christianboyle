@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190049314-f0xdmh-t500x500.jpg">](https://soundcloud.com/brednbutterrec/in-heaven-2night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000172037108-72hr3a-t500x500.jpg">](https://soundcloud.com/atikmusic/zomboy-dip-it-atik-remix-2)
 
-**Artist**: brednbutter 
+**Artist**: Atik 👻 
 
-**Track**: Atik - In Heaven 2Night
+**Track**: ZOMBOY - Dip It (Atik Remix)
 
-Last updated at 07/30/2022 15:27
+Last updated at 07/30/2022 15:28
