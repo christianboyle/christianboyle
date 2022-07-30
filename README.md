@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzS6zwyoWbpb7nHV-mI32Hw-t500x500.jpg">](https://soundcloud.com/riotcode/banshee-high-let-me-fly-riot-code-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEzaDTWzMy0lDOgt-CN1YSw-t500x500.jpg">](https://soundcloud.com/funkshway/moment)
 
-**Artist**: RIOT CODE 
+**Artist**: funkshway 
 
-**Track**: Banshee - High Let Me Fly (RIOT CODE Remix) *FREE DL*
+**Track**: moment
 
-Last updated at 07/30/2022 10:28
+Last updated at 07/30/2022 10:29
