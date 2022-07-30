@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000583538636-r3jjne-t500x500.jpg">](https://soundcloud.com/evilokai666/i-cheefa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znuubVXG7UlaJd6Y-ahTi4Q-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-july-22-uk-hardcore-mix-forgotten-favourites)
 
-**Artist**: EVIL 
+**Artist**: SDJ 
 
-**Track**: I CHEEFA
+**Track**: SDJ - July 22 UK Hardcore Mix - Forgotten Favourites
 
-Last updated at 07/30/2022 10:30
+Last updated at 07/30/2022 10:31
