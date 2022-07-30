@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuCrvy7H1QRzuTcF-M3pYMg-t500x500.jpg">](https://soundcloud.com/1glaive/sticks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0gWVZIqNxBuhmyG-dEruRw-t500x500.jpg">](https://soundcloud.com/vindata/luchini-vindata-flip)
 
-**Artist**: glaive 
+**Artist**: Vindata 
 
-**Track**: sticks (p. heartdept)
+**Track**: Luchini (VINDATA FLIP)
 
-Last updated at 07/30/2022 10:55
+Last updated at 07/30/2022 10:56
