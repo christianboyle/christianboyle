@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEzaDTWzMy0lDOgt-CN1YSw-t500x500.jpg">](https://soundcloud.com/funkshway/moment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000583538636-r3jjne-t500x500.jpg">](https://soundcloud.com/evilokai666/i-cheefa)
 
-**Artist**: funkshway 
+**Artist**: EVIL 
 
-**Track**: moment
+**Track**: I CHEEFA
 
-Last updated at 07/30/2022 10:29
+Last updated at 07/30/2022 10:30
