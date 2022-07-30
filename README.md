@@ -2,8 +2,29 @@
 
 [<img align="left" width="100" src="https://i.ytimg.com/vi/KolZJ7TPfFY/hqdefault.jpg">](https://www.youtube.com/watch?v=KolZJ7TPfFY)
 
-**Artist**: aldn 
+**Artist**: 
+  
+    aldn
+  
+  
+  
+    aldn
+  
 
-**Track**: aldn, glaive - "what was the last thing u said" [official music video]
 
-Last updated at 07/30/2022 10:39
+
+
+  
+    
+    
+  
+  Official Artist Channel
+
+
+
+
+ 
+
+**Track**: aldn - denial & acceptance (official music video)
+
+Last updated at 07/30/2022 10:40
