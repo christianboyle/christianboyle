@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XpqsLzpxPfefEYoz-Hzhj0Q-t500x500.jpg">](https://soundcloud.com/kenziedesu/kenzie-black-blk-crx-blurry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbjBqNbJjVUQ-0-t500x500.jpg">](https://soundcloud.com/fredagain/jungle)
 
-**Artist**: Kenzie Black 
+**Artist**: Fred again.. 
 
-**Track**: Kenzie Black & Blk Crx - Blurry
+**Track**: Jungle
 
-Last updated at 08/02/2022 12:53
+Last updated at 08/02/2022 12:54
