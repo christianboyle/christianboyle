@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJiRic1wz8LyGdWd-PynOmA-t500x500.jpg">](https://soundcloud.com/mistxplaya/enemy-and-revenge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0hoTrOmpUU7DQtSy-YVEksg-t500x500.jpg">](https://soundcloud.com/sacrifice7/posted-up)
 
-**Artist**: MISTA PLAYA 
+**Artist**: SACRIFICE 
 
-**Track**: ENEMY AND REVENGE
+**Track**: POSTED UP
 
-Last updated at 08/03/2022 14:24
+Last updated at 08/03/2022 14:26
