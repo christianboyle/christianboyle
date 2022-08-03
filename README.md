@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zGzZ6ZvvozTzim0P-b9PVDg-t500x500.jpg">](https://soundcloud.com/killahmantis/panzer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y34EIMSHZoh8uscX-3mEKHQ-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/oski-neotek-california)
 
-**Artist**: KILLER MANTIS 
+**Artist**: Quality Goods Records 
 
-**Track**: PANZER w/ E R R O R (UNDERWORLD 2 COMING SOON)
+**Track**: QGR-027S | Oski & NEOTEK - California
 
-Last updated at 08/03/2022 14:10
+Last updated at 08/03/2022 14:12
