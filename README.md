@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlcPi6ENOOct62TU-wgvS1Q-t500x500.jpg">](https://soundcloud.com/ispycoleman/the-one-mix-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tSQ71rayFbJi-0-t500x500.jpg">](https://soundcloud.com/fredagain/turn-on-the-lights-again-feat)
 
-**Artist**: Cole-Man 
+**Artist**: Fred again.. 
 
-**Track**: The One (feat. Alex Gresham)
+**Track**: Turn On The Lights again.. (feat. Future)
 
-Last updated at 08/03/2022 18:01
+Last updated at 08/03/2022 18:02
