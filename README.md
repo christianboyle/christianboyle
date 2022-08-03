@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qi37UEfxnRGwLUx7-QUBF6A-t500x500.jpg">](https://soundcloud.com/sp00kybrat/cant-fuck-wit-me-isvvc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJiRic1wz8LyGdWd-PynOmA-t500x500.jpg">](https://soundcloud.com/mistxplaya/enemy-and-revenge)
 
-**Artist**: SPOOKYBRAT 
+**Artist**: MISTA PLAYA 
 
-**Track**: CANT FUCK WIT ME / ISVVC
+**Track**: ENEMY AND REVENGE
 
-Last updated at 08/03/2022 14:23
+Last updated at 08/03/2022 14:24
