@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sMZZwO72Terf95G-iTwWNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-summer-mix)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/bZH9U1efx1c/hqdefault.jpg">](https://www.youtube.com/watch?v=bZH9U1efx1c)
 
-**Artist**: Hartshorn 
+**Artist**: Fred again . . 
 
-**Track**: Summer Mix
+**Track**: Fred again.. - Studio Live 2 (London, 21 October 2021)
 
-Last updated at 08/03/2022 14:53
+Last updated at 08/03/2022 16:23
