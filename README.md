@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y34EIMSHZoh8uscX-3mEKHQ-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/oski-neotek-california)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ErGPMB37SQ6dy4iu-qvrhWg-t500x500.jpg">](https://soundcloud.com/aash-mehta/therightwords)
 
-**Artist**: Quality Goods Records 
+**Artist**: Aash Mehta 
 
-**Track**: QGR-027S | Oski & NEOTEK - California
+**Track**: The Right Words
 
-Last updated at 08/03/2022 14:12
+Last updated at 08/03/2022 14:14
