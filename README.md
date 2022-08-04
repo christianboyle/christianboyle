@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tzUWeHH8vLZFKJeM-fRTxLA-t500x500.jpg">](https://soundcloud.com/ghostdragonofficial/ghostdragon-the-heat-ft-charlie-copper-hannah-zhao)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EFycJO20ITZSPoyt-i9FONg-t500x500.jpg">](https://soundcloud.com/tropixvip/summermix2022)
 
-**Artist**: GhostDragon 
+**Artist**: Tropix VIP 
 
-**Track**: GhostDragon - the heat (ft. Charlie Copper & Hannah Zhao)
+**Track**: Tropix SUMMER SYLLABUS MIX 2022
 
-Last updated at 08/04/2022 17:23
+Last updated at 08/04/2022 17:24
