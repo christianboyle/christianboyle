@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-44CaOJtdyTA0RaJA-LB87ZQ-t500x500.jpg">](https://soundcloud.com/the-hostage-situation/hostage-situation-unholy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lzIDOyWo66p0BfS-stdTwg-t500x500.jpg">](https://soundcloud.com/frozenpyramid/jcl-summerwave?in=hardcoreshows/sets/jcl-summerwave-2022-07-02)
 
-**Artist**: Hostage Situation 
+**Artist**: FrozenPyramid 
 
-**Track**: Hostage Situation - Unholy
+**Track**: JCL SummerWave 2022-07-23
 
-Last updated at 08/04/2022 14:48
+Last updated at 08/04/2022 14:49
