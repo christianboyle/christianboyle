@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pE5Mex4alrb7Z6Qj-y9Tt6A-t500x500.jpg">](https://soundcloud.com/alwaysproperrecords/ghostface-playa-ignorant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KIp422MHdxbnh0Gt-HeuYbw-t500x500.jpg">](https://soundcloud.com/dozydoe/dark-phonk-mister-drifter-150bpm)
 
-**Artist**: ALWAYS PROPER RECORDS 
+**Artist**: dozy doe 
 
-**Track**: GHOSTFACE PLAYA - IGNORANT
+**Track**: MISTA DRIFTA
 
-Last updated at 08/04/2022 14:12
+Last updated at 08/04/2022 14:13
