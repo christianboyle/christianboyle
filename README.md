@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21UIjapUSfF7GqHs-7OtHjg-t500x500.jpg">](https://soundcloud.com/cause4concern-recordings/dropset-eye-opener-ltdc4c030-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A40zHIvJ6cYrSJ3g-UQKPBg-t500x500.jpg">](https://soundcloud.com/luvelymusic/charli-xcx-no-angel-remix)
 
-**Artist**: Cause4Concern 
+**Artist**: LUVELY 
 
-**Track**: Dropset // Eye Opener // LTDC4C030 // [PREMIERE]
+**Track**: 「 CHARLI XCX - NO ANGEL (LUVELY REMIX) 」
 
-Last updated at 08/05/2022 09:38
+Last updated at 08/05/2022 09:39
