@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPL1gMbbc0K9sizQ-p6hRmA-t500x500.jpg">](https://soundcloud.com/sglily/oceans-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/rmbr-th3-n4me)
 
-**Artist**: @sglilyy 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Oceans Apart
+**Track**: 07 - F0RT M1N0R - RMBR TH3 N4ME (DAN LARKIN REMIX)
 
-Last updated at 08/05/2022 09:58
+Last updated at 08/05/2022 09:59
