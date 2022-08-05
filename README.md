@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvi4d8BFkQeUPbEL-v5gddQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/lipgloss-thirtyonetwentyfive-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LNYzIzjJ4eWr-0-t500x500.jpg">](https://soundcloud.com/charlixcx/detonate)
 
-**Artist**: thirtyonetwentyfive (3125) 
+**Artist**: charlixcx 
 
-**Track**: lipgloss (thirtyonetwentyfive remix)
+**Track**: detonate
 
-Last updated at 08/05/2022 09:44
+Last updated at 08/05/2022 09:45
