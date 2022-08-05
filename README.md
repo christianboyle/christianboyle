@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y5y4c7VdLZdQ6spD-nuvYsw-t500x500.jpg">](https://soundcloud.com/yuki-pons/iwannabeurgravity-w-o0o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLN7Fc6tfHwptJri-sowTYg-t500x500.jpg">](https://soundcloud.com/danlrk/fat-lip-remix)
 
-**Artist**: shyburial 
+**Artist**: Dan Larkin 
 
-**Track**: IWannaBeUrGravity w/ o0o
+**Track**: Fat Lip (Dan Larkin Remix)
 
-Last updated at 08/05/2022 09:56
+Last updated at 08/05/2022 09:57
