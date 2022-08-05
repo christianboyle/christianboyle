@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWgrFUXOT30xMvzR-z0HaGA-t500x500.jpg">](https://soundcloud.com/itthatkid/cobra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3JNGSq9fodbbfJF-qCWejw-t500x500.jpg">](https://soundcloud.com/danlrk/loveless)
 
-**Artist**: That Kid 
+**Artist**: Dan Larkin 
 
-**Track**: Cobra
+**Track**: loveless
 
-Last updated at 08/04/2022 19:24
+Last updated at 08/05/2022 06:29
