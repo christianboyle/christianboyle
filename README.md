@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sMZZwO72Terf95G-iTwWNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-summer-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EFycJO20ITZSPoyt-i9FONg-t500x500.jpg">](https://soundcloud.com/tropixvip/summermix2022)
 
-**Artist**: Hartshorn 
+**Artist**: Tropix VIP 
 
-**Track**: Summer Mix
+**Track**: Tropix SUMMER SYLLABUS MIX 2022
 
-Last updated at 08/04/2022 18:16
+Last updated at 08/04/2022 19:10
