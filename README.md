@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JpBtBLmafMP-0-t500x500.jpg">](https://soundcloud.com/diplo/diplo-sidepiece-on-my-mind-4?in=diplo/sets/diplo-deluxe-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9c61z8ykcQz5MCXo-yRf6Wg-t500x500.jpg">](https://soundcloud.com/elijah_ghost/weapons-to-choose-ft-apoc-krysis-prod-tre-flip)
 
-**Artist**: Diplo 
+**Artist**: Elijah Ghost 
 
-**Track**: Diplo & SIDEPIECE - On My Mind (Extended)
+**Track**: WEAPONS TO CHOOSE FT. APOC KRYSIS [PROD. TRE FLIP]
 
-Last updated at 08/05/2022 14:07
+Last updated at 08/05/2022 17:21
