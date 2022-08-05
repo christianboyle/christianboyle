@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPL1gMbbc0K9sizQ-p6hRmA-t500x500.jpg">](https://soundcloud.com/sglily/oceans-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EFycJO20ITZSPoyt-i9FONg-t500x500.jpg">](https://soundcloud.com/tropixvip/summermix2022)
 
-**Artist**: @sglilyy 
+**Artist**: Tropix VIP 
 
-**Track**: Oceans Apart
+**Track**: Tropix SUMMER SYLLABUS MIX 2022
 
-Last updated at 08/05/2022 17:27
+Last updated at 08/05/2022 17:29
