@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pi7M6LspYliclgSL-sDVwKg-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-117-cltx?in=platform/sets/hard-dance-mix-series)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/bZH9U1efx1c/hqdefault.jpg">](https://www.youtube.com/watch?v=bZH9U1efx1c)
 
-**Artist**: Boiler Room 
+**Artist**: Fred again . . 
 
-**Track**: Hard Dance 117: CLTX
+**Track**: Fred again.. - Studio Live 2 (London, 21 October 2021)
 
-Last updated at 08/05/2022 11:33
+Last updated at 08/05/2022 11:42
