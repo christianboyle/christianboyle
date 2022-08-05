@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNskJsiFhSs1-0-t500x500.jpg">](https://soundcloud.com/charlieputh/we-dont-talk-anymore-feat-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3JNGSq9fodbbfJF-qCWejw-t500x500.jpg">](https://soundcloud.com/danlrk/loveless)
 
-**Artist**: Charlie Puth 
+**Artist**: Dan Larkin 
 
-**Track**: We Don't Talk Anymore (feat. Selena Gomez) (DROELOE Remix)
+**Track**: loveless
 
-Last updated at 08/05/2022 09:53
+Last updated at 08/05/2022 09:54
