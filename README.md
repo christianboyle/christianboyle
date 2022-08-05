@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A40zHIvJ6cYrSJ3g-UQKPBg-t500x500.jpg">](https://soundcloud.com/luvelymusic/charli-xcx-no-angel-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317626224-5k5cyr-t500x500.jpg">](https://soundcloud.com/partyfavor/party-favor-x-baauer-mdr)
 
-**Artist**: LUVELY 
+**Artist**: PARTY FAVOR 
 
-**Track**: 「 CHARLI XCX - NO ANGEL (LUVELY REMIX) 」
+**Track**: Party Favor X Baauer - MDR
 
-Last updated at 08/05/2022 09:39
+Last updated at 08/05/2022 09:40
