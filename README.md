@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568335995-4sendx-t500x500.jpg">](https://soundcloud.com/notstrider/charli-xcx-1999-strider-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNskJsiFhSs1-0-t500x500.jpg">](https://soundcloud.com/charlieputh/we-dont-talk-anymore-feat-5)
 
-**Artist**: STRIDER 
+**Artist**: Charlie Puth 
 
-**Track**: CHARLI XCX - 1999 (STRIDER REMIX)
+**Track**: We Don't Talk Anymore (feat. Selena Gomez) (DROELOE Remix)
 
-Last updated at 08/05/2022 09:52
+Last updated at 08/05/2022 09:53
