@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOspqisGJrvO1dPw-xK1s6w-t500x500.jpg">](https://soundcloud.com/warecollective/wavm8s-058-dan-larkin)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/TPxt_5lpBKU/maxresdefault.jpg">](https://www.youtube.com/watch?v=TPxt_5lpBKU)
 
-**Artist**: WARE 
+**Artist**: underoathmusic 
 
-**Track**: WAV.M8'S 058 - Dan Larkin
+**Track**: Underoath - A Boy Brushed Red Living In Black and White (Live from The Observatory)
 
-Last updated at 08/05/2022 10:00
+Last updated at 08/05/2022 10:33
