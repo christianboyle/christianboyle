@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000250871278-e659gy-t500x500.jpg">](https://soundcloud.com/four-tet/champion-world-ft-four-tet)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/rk7BxyoKk_I/maxresdefault.jpg">](https://www.youtube.com/watch?v=rk7BxyoKk_I)
 
-**Artist**: Four Tet 
+**Artist**: Goldfinger Music 
 
-**Track**: Champion - World Ft. Four Tet
+**Track**: Goldfinger - Here In Your Bedroom
 
-Last updated at 08/05/2022 10:42
+Last updated at 08/05/2022 11:03
