@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LA9kJFkAm271-0-t500x500.jpg">](https://soundcloud.com/charlixcx/forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568335995-4sendx-t500x500.jpg">](https://soundcloud.com/notstrider/charli-xcx-1999-strider-remix-1)
 
-**Artist**: charlixcx 
+**Artist**: STRIDER 
 
-**Track**: forever
+**Track**: CHARLI XCX - 1999 (STRIDER REMIX)
 
-Last updated at 08/05/2022 09:50
+Last updated at 08/05/2022 09:52
