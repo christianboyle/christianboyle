@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000317626224-5k5cyr-t500x500.jpg">](https://soundcloud.com/partyfavor/party-favor-x-baauer-mdr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000382151064-6ztkg8-t500x500.jpg">](https://soundcloud.com/awoltalk/party-favor-x-baauer-mdr-awoltalk-remix)
 
-**Artist**: PARTY FAVOR 
+**Artist**: AWOLTALK 
 
-**Track**: Party Favor X Baauer - MDR
+**Track**: Party Favor X Baauer - MDR (Awoltalk Remix)
 
-Last updated at 08/05/2022 09:40
+Last updated at 08/05/2022 09:41
