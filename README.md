@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4BnWX0Qiromzgk9-gSHNpw-t500x500.jpg">](https://soundcloud.com/raversreunited/ravers-reunited-raveland-2021-hixxy-b2b-dougal-mc-whizzkid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JpBtBLmafMP-0-t500x500.jpg">](https://soundcloud.com/diplo/diplo-sidepiece-on-my-mind-4?in=diplo/sets/diplo-deluxe-extended)
 
-**Artist**: Ravers Reunited 
+**Artist**: Diplo 
 
-**Track**: Ravers Reunited: Raveland 2021 - Hixxy B2B Dougal & MC Whizzkid
+**Track**: Diplo & SIDEPIECE - On My Mind (Extended)
 
-Last updated at 08/05/2022 14:02
+Last updated at 08/05/2022 14:07
