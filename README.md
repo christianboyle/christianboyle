@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBLOqyuLDxEOyV6B-Q4GzJg-t500x500.jpg">](https://soundcloud.com/weirdnxc/rmbr-th3-n4me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOspqisGJrvO1dPw-xK1s6w-t500x500.jpg">](https://soundcloud.com/warecollective/wavm8s-058-dan-larkin)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: WARE 
 
-**Track**: 07 - F0RT M1N0R - RMBR TH3 N4ME (DAN LARKIN REMIX)
+**Track**: WAV.M8'S 058 - Dan Larkin
 
-Last updated at 08/05/2022 09:59
+Last updated at 08/05/2022 10:00
