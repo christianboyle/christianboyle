@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qs0z2oO9niOSBeBX-r4bz6A-t500x500.jpg">](https://soundcloud.com/vexor_phonk/out-da-roof-w-dakkagob)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JanNN1jNysffQVKT-hp7zhw-t500x500.jpg">](https://soundcloud.com/xxxsagexxx/mourn)
 
-**Artist**: VEXOR 
+**Artist**: xSAGEx 
 
-**Track**: OUT DA ROOF w/ dakkagob
+**Track**: Mourn (Free DL)
 
-Last updated at 08/06/2022 12:42
+Last updated at 08/06/2022 12:43
