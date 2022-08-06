@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXAxPOyALDhZOPob-TJjvpw-t500x500.jpg">](https://soundcloud.com/playamuthafuckind/free-slimesito-x-fluhkunxhkos-x-beezyb-type-beat-out-on-bond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqG5kkZWjmtG8Igu-pAltlQ-t500x500.jpg">](https://soundcloud.com/berrymane/caught-up-in-a-click-w-roland-jones)
 
-**Artist**: Playah D 
+**Artist**: BERRYMANE 
 
-**Track**: [FREE] Slimesito x Fluhkunxhkos x BeezyB Type Beat "Out On Bond"
+**Track**: CAUGHT UP IN A CLICK w/ ROLAND JONES
 
-Last updated at 08/06/2022 12:44
+Last updated at 08/06/2022 12:45
