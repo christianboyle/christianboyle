@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IH3LCtMEguTZerY9-eZnZYA-t500x500.jpg">](https://soundcloud.com/violence-g/pure-anna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607744831-wowpvq-t500x500.jpg">](https://soundcloud.com/mobstamane/the-beatnuts-do-you-believe-mobsta-mane-remix)
 
-**Artist**: Playa Violence 
+**Artist**: Mobsta Mane 
 
-**Track**: Pure Anna
+**Track**: The Beatnuts - Do You Believe (MOBSTA MANE Remix)
 
-Last updated at 08/06/2022 08:59
+Last updated at 08/06/2022 09:00
