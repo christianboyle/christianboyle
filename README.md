@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5e6JftAbiUy56PFL-qwWxSA-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-2022-official-mixtape-series-rossyyouredm?in=hardfest/sets/hard-summer-2022-official)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVAV1boXkqpfLtMB-JmMahg-t500x500.jpg">](https://soundcloud.com/nitepunk/nitepunk-grounded?in=hardfest/sets/nitepunk-grounded-hard-recs)
 
-**Artist**: HARD hardfest.com 
+**Artist**: Nitepunk 
 
-**Track**: HARD Summer 2022 Official Mixtape Series: Rossy (YourEDM)
+**Track**: Nitepunk - Grounded
 
-Last updated at 08/07/2022 10:53
+Last updated at 08/07/2022 10:54
