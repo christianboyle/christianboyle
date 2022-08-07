@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mpd6ge17f4iOSA4b-zvltGQ-t500x500.jpg">](https://soundcloud.com/telykast/somebodynew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000621565249-7geeua-t500x500.jpg">](https://soundcloud.com/lemaylemay/left-hand-poison)
 
-**Artist**: TELYKast 
+**Artist**: LEMAY 
 
-**Track**: TELYKast - Somebody New
+**Track**: Left Hand Poison
 
-Last updated at 08/07/2022 10:48
+Last updated at 08/07/2022 10:49
