@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AD1btlYwTqwpjrV1-6KriHA-t500x500.jpg">](https://soundcloud.com/bassrush/subshock-evangelos-back-with?in=bassrush/sets/subshock-evangelos-made-for-this-back-with-the-mf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r1e9rVwXyDsYNyGe-gOGHnw-t500x500.jpg">](https://soundcloud.com/berrymane/risky-bizness-ii)
 
-**Artist**: Bassrush 
+**Artist**: BERRYMANE 
 
-**Track**: Subshock & Evangelos - Back With The MF
+**Track**: RISKY BIZNESS II
 
-Last updated at 08/07/2022 08:53
+Last updated at 08/07/2022 08:56
