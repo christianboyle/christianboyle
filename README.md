@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwjTqUPRmyIi-0-t500x500.png">](https://soundcloud.com/hardstylepianist/next-stage-feat-mark-vayne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000625258795-bzwwrv-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hardstyle-pianist-helix-ft-mark-vayne-next-stage-dwx-copyright-free)
 
-**Artist**: Hardstyle Pianist 
+**Artist**: Dirty Workz 
 
-**Track**: Next stage (feat. Mark Vayne)
+**Track**: Hardstyle Pianist & Helix ft. Mark Vayne - Next Stage (DWX Copyright Free)
 
-Last updated at 08/07/2022 10:37
+Last updated at 08/07/2022 10:38
