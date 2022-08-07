@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VF6zRdzurSEBNwek-jjQymw-t500x500.jpg">](https://soundcloud.com/doyudigital/wolfd-universe-of-sounds-minding-our-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EboujhYirbOz-0-t500x500.jpg">](https://soundcloud.com/liquidritual/angel-cannon-lie)
 
-**Artist**: DoYu Digital 
+**Artist**: Liquid Ritual 
 
-**Track**: Wolf'd & Universe Of Sounds - Minding Our Business
+**Track**: Angel Cannon - Lie
 
-Last updated at 08/07/2022 08:41
+Last updated at 08/07/2022 08:45
