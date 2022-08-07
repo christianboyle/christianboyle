@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HOyaC3wabdBzn6pT-06DNHg-t500x500.jpg">](https://soundcloud.com/bvrnout/bvrnoutmattmarateaparalyzed?in=weareplusplus/sets/best-electronic-music-july-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxlrJQXcBo9aY074-GOotmw-t500x500.jpg">](https://soundcloud.com/isvvcisvvcisvvc/grab-tha-mask)
 
-**Artist**: BVRNOUT 
+**Artist**: ISVVC 
 
-**Track**: BVRNOUT Ft. Matt Maratea - Paralyzed
+**Track**: GRAB THA MASK
 
-Last updated at 08/07/2022 10:42
+Last updated at 08/07/2022 10:43
