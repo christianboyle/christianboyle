@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mWsZfViy6oqSXyX-bszuKg-t500x500.jpg">](https://soundcloud.com/ericdoa/coming2terms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g1H5ViL6TFd-0-t500x500.jpg">](https://soundcloud.com/1glaive/cloak-n-dagger?in=1glaive/sets/then-ill-be-happy)
 
-**Artist**: ericdoa 
+**Artist**: glaive 
 
-**Track**: coming2terms (delto & ryo)
+**Track**: cloak n dagger
 
-Last updated at 08/06/2022 21:52
+Last updated at 08/06/2022 21:54
