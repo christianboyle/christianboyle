@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000425946537-atmiar-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh223)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQsWntobeCKezpJz-qywBoQ-t500x500.jpg">](https://soundcloud.com/kkoosk/pokkun-virgo)
 
-**Artist**: Justice Hardcore 
+**Artist**: Pokkun 
 
-**Track**: [JH223] Pokkun - You ■OUT NOW■ |official music video in description|
+**Track**: Pokkun - Virgo
 
-Last updated at 08/06/2022 21:44
+Last updated at 08/06/2022 21:46
