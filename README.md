@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IGJJVxzbIw9qy6wq-brzECA-t500x500.jpg">](https://soundcloud.com/listen25/three-6-nine-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8WuirzPlFmrZ1KPr-EgU8nQ-t500x500.jpg">](https://soundcloud.com/shadowstar666/state-of-mind)
 
-**Artist**: SIR YOGI 
+**Artist**: SHADOWSTAR 
 
-**Track**: THREE-6-NINE
+**Track**: STATE OF MIND
 
-Last updated at 08/07/2022 17:11
+Last updated at 08/07/2022 17:12
