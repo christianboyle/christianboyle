@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IRyn3goA5dhxtWN-GLkITA-t500x500.jpg">](https://soundcloud.com/nicjohnstonandfriends/nic-johnston-mashup-pack-2022?in=nicjohnstonplaylists/sets/new-club-festival-mashups-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RNS6jeZuF7FpOPV7-7lytyA-t500x500.jpg">](https://soundcloud.com/kkoosk/pokkun-affection)
 
-**Artist**: Nic Johnston & Friends 
+**Artist**: Pokkun 
 
-**Track**: NIC JOHNSTON MASHUP PACK 2022
+**Track**: Pokkun - Affection
 
-Last updated at 08/06/2022 21:39
+Last updated at 08/06/2022 21:40
