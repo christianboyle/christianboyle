@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-if5HrbYRynnajdst-HF5log-t500x500.jpg">](https://soundcloud.com/slimilky/slim-ilky-chevy-thang?in=slimilky/sets/eternal-hustler)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mWsZfViy6oqSXyX-bszuKg-t500x500.jpg">](https://soundcloud.com/ericdoa/coming2terms)
 
-**Artist**: $LIM ILKY 666 
+**Artist**: ericdoa 
 
-**Track**: SLIM ILKY - CHEVY THANG /// TAPE (eternal hustler)COMING REAL SOON
+**Track**: coming2terms (delto & ryo)
 
-Last updated at 08/06/2022 21:51
+Last updated at 08/06/2022 21:52
