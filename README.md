@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bnRWiBAltwQh6Ii-MfKL8Q-t500x500.jpg">](https://soundcloud.com/theastrolizard/psychedelic-bass-project)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QTgxnqfTkLRcy7Xf-ezH9fg-t500x500.jpg">](https://soundcloud.com/shwoops/starlight-drive)
 
-**Artist**: AstroLizard 
+**Artist**: Shwoops 
 
-**Track**: Psychedelic Bass Project [Headbang Society Premiere]
+**Track**: Starlight Drive
 
-Last updated at 08/07/2022 08:34
+Last updated at 08/07/2022 08:38
