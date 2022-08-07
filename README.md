@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZdOsfC7mNpqDFJCE-f1OKfQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/said-the-sky-gold-feat-caly-bevier-fells-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fS90E4vUMz2wsvkz-10aD3A-t500x500.jpg">](https://soundcloud.com/ophelia_records/jvna-lick-phenomenon-ophelia-records)
 
-**Artist**: Fells 
+**Artist**: Ophelia Records 
 
-**Track**: Said The Sky - Gold (feat. Caly Bevier) [Fells Remix]
+**Track**: JVNA & LICK - Phenomenon | Ophelia Records
 
-Last updated at 08/06/2022 19:01
+Last updated at 08/06/2022 19:05
