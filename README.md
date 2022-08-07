@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzNN4WoioCuDBhBX-k3dSjA-t500x500.jpg">](https://soundcloud.com/walshi303/get-ya-cash-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mpd6ge17f4iOSA4b-zvltGQ-t500x500.jpg">](https://soundcloud.com/telykast/somebodynew)
 
-**Artist**: BadKidsGoodPeople 
+**Artist**: TELYKast 
 
-**Track**: GET YA CASH UP w/ blunted
+**Track**: TELYKast - Somebody New
 
-Last updated at 08/07/2022 10:47
+Last updated at 08/07/2022 10:48
