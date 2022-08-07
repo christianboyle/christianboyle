@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-by3YRNDrB0QfhN4x-B43rCw-t500x500.jpg">](https://soundcloud.com/synymata/hate-to-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p336bsbAfBhA9gdX-831nFA-t500x500.jpg">](https://soundcloud.com/iffoundmusic/william-black-nurko-essenger-worth-it-if-found-remix)
 
-**Artist**: Synymata 
+**Artist**: 𝙞𝙛 𝙛𝙤𝙪𝙣𝙙 
 
-**Track**: Synymata & Medyk - Hate To Be
+**Track**: William Black, Nurko, Essenger - Worth It (if found Remix)
 
-Last updated at 08/06/2022 19:08
+Last updated at 08/06/2022 19:13
