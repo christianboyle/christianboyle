@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000425946537-atmiar-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh223)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlcPi6ENOOct62TU-wgvS1Q-t500x500.jpg">](https://soundcloud.com/ispycoleman/the-one-mix-v3)
 
-**Artist**: Justice Hardcore 
+**Artist**: Cole-Man 
 
-**Track**: [JH223] Pokkun - You ■OUT NOW■ |official music video in description|
+**Track**: The One (feat. Alex Gresham)
 
-Last updated at 08/07/2022 08:27
+Last updated at 08/07/2022 08:31
