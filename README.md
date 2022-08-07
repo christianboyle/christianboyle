@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PkLv2jv72a8IhCJl-eTegZw-t500x500.jpg">](https://soundcloud.com/almogfx/fast-turn-w-re_v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9X3av4EpKBqOMOAf-3Iv5yA-t500x500.jpg">](https://soundcloud.com/berrymane/hoodrich?in=berrymane/sets/smooooothest-shit-new-drop)
 
-**Artist**: almogfx 
+**Artist**: BERRYMANE 
 
-**Track**: fast turn w/ re_v
+**Track**: HOODRICH
 
-Last updated at 08/07/2022 09:26
+Last updated at 08/07/2022 09:29
