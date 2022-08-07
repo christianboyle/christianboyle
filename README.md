@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000467135298-1034bj-t500x500.jpg">](https://soundcloud.com/gennadysx/alphaville-forever-young-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwjTqUPRmyIi-0-t500x500.png">](https://soundcloud.com/hardstylepianist/next-stage-feat-mark-vayne)
 
-**Artist**: GennadySX 
+**Artist**: Hardstyle Pianist 
 
-**Track**: Alphaville - Forever Young (Remix)
+**Track**: Next stage (feat. Mark Vayne)
 
-Last updated at 08/07/2022 10:36
+Last updated at 08/07/2022 10:37
