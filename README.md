@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000162694017-61x7u7-t500x500.jpg">](https://soundcloud.com/youngbombs/alessia-cara-x-g-eazy-wild-things-young-bombs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000467135298-1034bj-t500x500.jpg">](https://soundcloud.com/gennadysx/alphaville-forever-young-remix)
 
-**Artist**: YOUNG BOMBS 
+**Artist**: GennadySX 
 
-**Track**: Alessia Cara X G-Eazy - Wild Things (Young Bombs Remix)
+**Track**: Alphaville - Forever Young (Remix)
 
-Last updated at 08/07/2022 10:35
+Last updated at 08/07/2022 10:36
