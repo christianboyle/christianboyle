@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBCtW5t3OkCVYULT-FyYMVg-t500x500.jpg">](https://soundcloud.com/stephengame/ellie-goulding-lights-stephen-game-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3JNGSq9fodbbfJF-qCWejw-t500x500.jpg">](https://soundcloud.com/danlrk/loveless)
 
-**Artist**: Stephen Game 
+**Artist**: Dan Larkin 
 
-**Track**: Ellie Goulding - Lights (Stephen Game Remix)
+**Track**: loveless
 
-Last updated at 08/06/2022 18:59
+Last updated at 08/06/2022 19:00
