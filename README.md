@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DZ2NSxw6qWZRN2MY-ALhWyg-t500x500.jpg">](https://soundcloud.com/embracepastel/colours-089-shades-of-pozy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5e6JftAbiUy56PFL-qwWxSA-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-2022-official-mixtape-series-rossyyouredm?in=hardfest/sets/hard-summer-2022-official)
 
-**Artist**: pastel 
+**Artist**: HARD hardfest.com 
 
-**Track**: COLOURS 089 - Shades of POZY
+**Track**: HARD Summer 2022 Official Mixtape Series: Rossy (YourEDM)
 
-Last updated at 08/07/2022 10:51
+Last updated at 08/07/2022 10:53
