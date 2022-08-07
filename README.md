@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fS90E4vUMz2wsvkz-10aD3A-t500x500.jpg">](https://soundcloud.com/ophelia_records/jvna-lick-phenomenon-ophelia-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-by3YRNDrB0QfhN4x-B43rCw-t500x500.jpg">](https://soundcloud.com/synymata/hate-to-be)
 
-**Artist**: Ophelia Records 
+**Artist**: Synymata 
 
-**Track**: JVNA & LICK - Phenomenon | Ophelia Records
+**Track**: Synymata & Medyk - Hate To Be
 
-Last updated at 08/06/2022 19:05
+Last updated at 08/06/2022 19:08
