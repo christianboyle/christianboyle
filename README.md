@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3JNGSq9fodbbfJF-qCWejw-t500x500.jpg">](https://soundcloud.com/danlrk/loveless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZdOsfC7mNpqDFJCE-f1OKfQ-t500x500.jpg">](https://soundcloud.com/fellsofficial/said-the-sky-gold-feat-caly-bevier-fells-remix)
 
-**Artist**: Dan Larkin 
+**Artist**: Fells 
 
-**Track**: loveless
+**Track**: Said The Sky - Gold (feat. Caly Bevier) [Fells Remix]
 
-Last updated at 08/06/2022 19:00
+Last updated at 08/06/2022 19:01
