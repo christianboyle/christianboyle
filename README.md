@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVAV1boXkqpfLtMB-JmMahg-t500x500.jpg">](https://soundcloud.com/nitepunk/nitepunk-grounded?in=hardfest/sets/nitepunk-grounded-hard-recs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P6GBuFXkgO28z6Tz-EIwedw-t500x500.jpg">](https://soundcloud.com/hardfest/hsmf-2021-official-mixtape-series-holly)
 
-**Artist**: Nitepunk 
+**Artist**: HARD hardfest.com 
 
-**Track**: Nitepunk - Grounded
+**Track**: HSMF 2021 Official Mixtape Series: Holly (This Song Is Sick Premiere)
 
-Last updated at 08/07/2022 10:54
+Last updated at 08/07/2022 10:55
