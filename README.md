@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4g1H5ViL6TFd-0-t500x500.jpg">](https://soundcloud.com/1glaive/cloak-n-dagger?in=1glaive/sets/then-ill-be-happy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HDR7HXJq5jIL1b2z-Wti86g-t500x500.jpg">](https://soundcloud.com/10_05/prince-of-darkness-1)
 
-**Artist**: glaive 
+**Artist**: ‎mayten 
 
-**Track**: cloak n dagger
+**Track**: prince of darkness
 
-Last updated at 08/06/2022 21:54
+Last updated at 08/07/2022 08:11
