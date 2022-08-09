@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRsH9BisysL5ylCL-5XeQUA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/broke-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzDOFyyyBDI7I67R-Sn2zDA-t500x500.jpg">](https://soundcloud.com/bkbeats/butterfly)
 
-**Artist**: Quickdrop 
+**Artist**: bk beats 
 
-**Track**: Broke Inside (with Stolen Valor & Koo Read)
+**Track**: cr@zy tøwn - butterfly (dembow refix)
 
-Last updated at 08/09/2022 18:03
+Last updated at 08/09/2022 18:04
