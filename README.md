@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-orZzT2yDtSCmzMug-7Kz3IQ-t500x500.jpg">](https://soundcloud.com/cheekymusicgroup/brkn024-carlton-doom-the-lost-tracks-blue-galaxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AtaPLE1G5Y9zR5Nl-zY18Tw-t500x500.jpg">](https://soundcloud.com/otplayaz/wtf)
 
-**Artist**: Cheeky Music Group 
+**Artist**: ONETAKEPLAYAZ 
 
-**Track**: BRKN024 // Carlton Doom - The Lost Tracks: Blue Galaxy
+**Track**: WITH DA FAMILY by SHADXWEVIL(exclusive on otp)
 
-Last updated at 08/09/2022 08:30
+Last updated at 08/09/2022 08:38
