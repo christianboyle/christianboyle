@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LvvPwGIzNeuKj65-BFhmyA-t500x500.jpg">](https://soundcloud.com/user-719841332/alone-slamma-free-downloadd-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRsH9BisysL5ylCL-5XeQUA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/broke-inside)
 
-**Artist**: SLAMMA 
+**Artist**: Quickdrop 
 
-**Track**: Alone Slamma free downloadd 22
+**Track**: Broke Inside (with Stolen Valor & Koo Read)
 
-Last updated at 08/09/2022 10:57
+Last updated at 08/09/2022 11:02
