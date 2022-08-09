@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTPya2AFzO1a9ztB-BpG2bw-t500x500.jpg">](https://soundcloud.com/oneseventy/steelnix-waiting-for-you-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5AU1SkPLD49Lmg8-Wf9Pzg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jel7yz-chan-fighting-for-out-now)
 
-**Artist**: OneSeventy 
+**Artist**: Justice Hardcore 
 
-**Track**: SteelniX - Waiting For You (Radio Edit)
+**Track**: Jel7yz & ChAn. - Fighting For ⚠️OUT NOW⚠️
 
-Last updated at 08/09/2022 10:22
+Last updated at 08/09/2022 10:25
