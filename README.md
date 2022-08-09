@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQDlm2C3PU1azAhD-FVShwg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-70-on-beat-106?in=beat106scotland/sets/bonkers-beats-70-on-beat-106-scotland-with-kutski-daniel-seven-050822)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-orZzT2yDtSCmzMug-7Kz3IQ-t500x500.jpg">](https://soundcloud.com/cheekymusicgroup/brkn024-carlton-doom-the-lost-tracks-blue-galaxy)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Cheeky Music Group 
 
-**Track**: Bonkers Beats #70 on Beat 106 Scotland with  Daniel Seven 050822 (Hour 2)
+**Track**: BRKN024 // Carlton Doom - The Lost Tracks: Blue Galaxy
 
-Last updated at 08/08/2022 11:17
+Last updated at 08/09/2022 08:30
