@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E6EKVhytSr1gFoWy-z9rdNg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sdf020-silicon-xx-s3rl-ft-nikolett-wyld-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTPya2AFzO1a9ztB-BpG2bw-t500x500.jpg">](https://soundcloud.com/oneseventy/steelnix-waiting-for-you-radio-edit)
 
-**Artist**: scarreddigital.com 
+**Artist**: OneSeventy 
 
-**Track**: SDF021. Silicon XX - S3RL Ft Nikolett  (Wyld Remix)*FREE DOWNLOAD*
+**Track**: SteelniX - Waiting For You (Radio Edit)
 
-Last updated at 08/09/2022 10:17
+Last updated at 08/09/2022 10:22
