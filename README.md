@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-to5AAbFGRlJ1T8dS-TbZ6sQ-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/rita-ora-let-you-love-me-country-club-martini-crew-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x543aEbbG9Vq-0-t500x500.jpg">](https://soundcloud.com/speedhousemovement/chyl-sweat?in=chylofficial/sets/sweat-ep)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: SPEED HOUSE MOVEMENT 
 
-**Track**: Rita Ora - Let You Love Me (Country Club Martini Crew Remix) [FREE DOWNLOAD]
+**Track**: CHYL - Sweat
 
-Last updated at 08/10/2022 15:07
+Last updated at 08/10/2022 15:09
