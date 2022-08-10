@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xyq64U9scfB4-0-t500x500.png">](https://soundcloud.com/datweekaz/music-is-my-drug-radio-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3gvkNasmr8Jl-0-t500x500.png">](https://soundcloud.com/officialdjcyber/me-you)
 
-**Artist**: Da Tweekaz 
+**Artist**: Cyberdj 
 
-**Track**: Music Is My Drug (Radio Version) [feat. Anklebreaker]
+**Track**: Me & You
 
-Last updated at 08/09/2022 22:00
+Last updated at 08/09/2022 22:02
