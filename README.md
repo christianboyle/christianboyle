@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xyq64U9scfB4-0-t500x500.png">](https://soundcloud.com/datweekaz/music-is-my-drug-radio-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYKk1b3PWDjh-0-t500x500.png">](https://soundcloud.com/datweekaz/together-feat-matthew-steeper)
 
 **Artist**: Da Tweekaz 
 
-**Track**: Music Is My Drug (Radio Version) [feat. Anklebreaker]
+**Track**: Together (feat. Matthew Steeper)
 
-Last updated at 08/10/2022 09:03
+Last updated at 08/10/2022 09:07
