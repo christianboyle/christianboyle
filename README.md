@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KFwUcBsz8uiC-0-t500x500.png">](https://soundcloud.com/officialdjcyber/look-for-the-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxjpuFLcgj7P-0-t500x500.png">](https://soundcloud.com/officialdjcyber/closer)
 
 **Artist**: Cyberdj 
 
-**Track**: Look For The Light
+**Track**: Closer
 
-Last updated at 08/09/2022 21:50
+Last updated at 08/09/2022 21:52
