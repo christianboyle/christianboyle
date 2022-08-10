@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQsWntobeCKezpJz-qywBoQ-t500x500.jpg">](https://soundcloud.com/kkoosk/pokkun-virgo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2U8hPOhNeLE6-0-t500x500.png">](https://soundcloud.com/officialdjcyber/no-escape-jay-reeve-remix)
 
-**Artist**: Pokkun 
+**Artist**: Cyberdj 
 
-**Track**: Pokkun - Virgo
+**Track**: No Escape (Jay Reeve Remix)
 
-Last updated at 08/10/2022 13:31
+Last updated at 08/10/2022 13:32
