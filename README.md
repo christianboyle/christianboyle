@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPQdlzHQySVQhtQV-JVJU0w-t500x500.jpg">](https://soundcloud.com/yungmaple/such-a-waste)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wDfnIHS9q4eW-0-t500x500.png">](https://soundcloud.com/officialdjcyber/mf-bass)
 
-**Artist**: yungmaple 
+**Artist**: Cyberdj 
 
-**Track**: SUCH A WASTE
+**Track**: MF BASS
 
-Last updated at 08/10/2022 16:11
+Last updated at 08/10/2022 16:14
