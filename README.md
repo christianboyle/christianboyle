@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vz2JkKAqIVzD-0-t500x500.png">](https://soundcloud.com/djbrisk-music/eye-opener)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/81QqHUpyBhg/hqdefault.jpg">](https://www.youtube.com/watch?v=81QqHUpyBhg)
 
-**Artist**: DJ Brisk 
+**Artist**: Fred again . . 
 
-**Track**: Eye Opener
+**Track**: Fred again.. - Actual Life 2 Piano Live (20 March 2022) #Livestream
 
-Last updated at 08/09/2022 21:16
+Last updated at 08/09/2022 21:26
