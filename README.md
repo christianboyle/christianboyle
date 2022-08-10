@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRsH9BisysL5ylCL-5XeQUA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/broke-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4vQx9GAxh8nuUlu-3bMS6w-t500x500.jpg">](https://soundcloud.com/e_tank/cosplay-beach-party-2022-summer-mix)
 
-**Artist**: Quickdrop 
+**Artist**: E*Tank 
 
-**Track**: Broke Inside (with Stolen Valor & Koo Read)
+**Track**: Cosplay Beach Party 2022 (Summer Mix)
 
-Last updated at 08/10/2022 10:26
+Last updated at 08/10/2022 10:29
