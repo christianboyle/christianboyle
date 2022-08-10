@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dSmWGxlMNtHv9zaI-nl9ykA-t500x500.jpg">](https://soundcloud.com/colonelgatito/dresden-barbarellas-love-international-140722)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPQdlzHQySVQhtQV-JVJU0w-t500x500.jpg">](https://soundcloud.com/yungmaple/such-a-waste)
 
-**Artist**: ivan smagghe 
+**Artist**: yungmaple 
 
-**Track**: DRESDEN @ BARBARELLAS-LOVE INTERNATIONAL/RSN-140722
+**Track**: SUCH A WASTE
 
-Last updated at 08/10/2022 15:10
+Last updated at 08/10/2022 15:50
