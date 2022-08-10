@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gYuxBI5RU4NC9XXo-eS7gAw-t500x500.jpg">](https://soundcloud.com/moonbeams_uk/glacci-air)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBCtW5t3OkCVYULT-FyYMVg-t500x500.jpg">](https://soundcloud.com/stephengame/ellie-goulding-lights-stephen-game-remix-1)
 
-**Artist**: MOONBEAMS Ⓡ 
+**Artist**: Stephen Game 
 
-**Track**: Glacci - Air
+**Track**: Ellie Goulding - Lights (Stephen Game Remix)
 
-Last updated at 08/10/2022 11:25
+Last updated at 08/10/2022 11:28
