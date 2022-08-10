@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYKk1b3PWDjh-0-t500x500.png">](https://soundcloud.com/datweekaz/together-feat-matthew-steeper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDROlmtlOdRXrryS-jwns6A-t500x500.jpg">](https://soundcloud.com/razzix/razzix-call-you-mine)
 
-**Artist**: Da Tweekaz 
+**Artist**: Razzix 
 
-**Track**: Together (feat. Matthew Steeper)
+**Track**: Razzix - Call You Mine
 
-Last updated at 08/10/2022 09:07
+Last updated at 08/10/2022 09:11
