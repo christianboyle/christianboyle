@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LUHVm3EMo0KChPcY-aQScSA-t500x500.jpg">](https://soundcloud.com/scantraxx/keltek-dark-sky?in=user-84113333/sets/euph-hardstyle-kopie)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/1TdySQT9mLo/hqdefault.jpg">](https://www.youtube.com/watch?v=1TdySQT9mLo)
 
-**Artist**: Scantraxx 
+**Artist**: Yung Gravy 
 
-**Track**: KELTEK - Dark Sky
+**Track**: Betty (Get Money) (Official Music Video)
 
-Last updated at 08/09/2022 19:55
+Last updated at 08/09/2022 21:04
