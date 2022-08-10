@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEwiAz00YEyfbD79-Jq1fzg-t500x500.jpg">](https://soundcloud.com/nathan-smith-203/eye-opener-dj-brisk-dj-trixxy-1997)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vz2JkKAqIVzD-0-t500x500.png">](https://soundcloud.com/djbrisk-music/eye-opener)
 
-**Artist**: Nathan Smith 195 
+**Artist**: DJ Brisk 
 
-**Track**: Eye Opener - Dj Brisk & Dj Trixxy (1997)
+**Track**: Eye Opener
 
-Last updated at 08/09/2022 21:15
+Last updated at 08/09/2022 21:16
