@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mOPb9Aekf1D0ebNY-JM9FLw-t500x500.jpg">](https://soundcloud.com/domdolla/miracle-maker-ft-clementine-douglas-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUDRizvSA8WzcP32-Dfoa3A-t500x500.jpg">](https://soundcloud.com/hardstyle/irradiate-hardstyle-pianist-rebel-heart-feat-diandra-faye)
 
-**Artist**: ⠶ Dom Dolla ⠶ 
+**Artist**: Hardstyle 
 
-**Track**: Miracle Maker feat. Clementine Douglas
+**Track**: Irradiate & Hardstyle Pianist - Rebel Heart feat. Diandra Faye
 
-Last updated at 08/10/2022 11:15
+Last updated at 08/10/2022 11:18
