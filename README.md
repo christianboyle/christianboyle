@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyJRG7scWzY1Mllb-pXdmdw-t500x500.jpg">](https://soundcloud.com/dylandelato/dylan-delato-live-love-house?in=black_magic_kingdom/sets/jane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
 
-**Artist**: Dylan Delato 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Live Love House
+**Track**: dj smokey - nukeparty
 
-Last updated at 08/11/2022 15:41
+Last updated at 08/11/2022 15:42
