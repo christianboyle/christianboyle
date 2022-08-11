@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4UBU2lbJNpDjieER-5wbFMQ-t500x500.jpg">](https://soundcloud.com/decorumdjs/u-sure-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
 
-**Artist**: Decorum 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: U Sure Do
+**Track**: dj smokey - nukeparty
 
-Last updated at 08/11/2022 15:45
+Last updated at 08/11/2022 15:49
