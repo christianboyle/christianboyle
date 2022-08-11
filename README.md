@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-59KIQJyLHprvfQyb-rlGF5Q-t500x500.jpg">](https://soundcloud.com/musichighcourt/timian-shstr-resolute)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Music High Court (MHC) 
 
-**Track**: dj smokey - nukeparty
+**Track**: TIMIAN & SHSTR - Resolute
 
-Last updated at 08/11/2022 15:42
+Last updated at 08/11/2022 15:43
