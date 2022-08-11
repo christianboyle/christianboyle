@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDROlmtlOdRXrryS-jwns6A-t500x500.jpg">](https://soundcloud.com/razzix/razzix-call-you-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENdox5hNyqJyNWQG-jmzGzA-t500x500.jpg">](https://soundcloud.com/locplaya/the-house-of-mystery)
 
-**Artist**: Razzix 
+**Artist**: LOCPLAYA 
 
-**Track**: Razzix - Call You Mine
+**Track**: THE HOUSE OF MYSTERY
 
-Last updated at 08/10/2022 17:13
+Last updated at 08/11/2022 09:29
