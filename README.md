@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVjCWgzeI6lYZI20-lnQlGQ-t500x500.jpg">](https://soundcloud.com/housecallrecs/eleganto-dark-cities-reckless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qca9RYFLmR8SVdZL-DmMA9w-t500x500.jpg">](https://soundcloud.com/paper-chaxes/hell-ammo-ft-mstfts-vlad)
 
-**Artist**: House Call Records 
+**Artist**: PAPER CHAXES 
 
-**Track**: Eleganto & Dark Cities - Reckless (feat Kota)
+**Track**: HELL AMMO (FT. MSTFTS) VLAD ❤🦇
 
-Last updated at 08/11/2022 15:38
+Last updated at 08/11/2022 15:40
