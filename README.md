@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qca9RYFLmR8SVdZL-DmMA9w-t500x500.jpg">](https://soundcloud.com/paper-chaxes/hell-ammo-ft-mstfts-vlad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyJRG7scWzY1Mllb-pXdmdw-t500x500.jpg">](https://soundcloud.com/dylandelato/dylan-delato-live-love-house?in=black_magic_kingdom/sets/jane)
 
-**Artist**: PAPER CHAXES 
+**Artist**: Dylan Delato 
 
-**Track**: HELL AMMO (FT. MSTFTS) VLAD ❤🦇
+**Track**: Live Love House
 
-Last updated at 08/11/2022 15:40
+Last updated at 08/11/2022 15:41
