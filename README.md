@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2gJDXxftnaJBNuh6-DF3f9Q-t500x500.jpg">](https://soundcloud.com/olegxo/fred-again-romy-be-so-strong-boiler-room-id-unreleased)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: xoLEG 
 
-**Track**: dj smokey - nukeparty
+**Track**: Fred again.. & Romy - Be So Strong (Boiler Room ID) (Unreleased)
 
-Last updated at 08/11/2022 21:53
+Last updated at 08/12/2022 08:42
