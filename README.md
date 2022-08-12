@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163382532-jm7hjq-t500x500.jpg">](https://soundcloud.com/i_d_magazine/06-sepalcure-hearts-in-danger)
 
-**Artist**: SABLE VALLEY 
+**Artist**: i-D 
 
-**Track**: DJ Ride - TAKETHISWAY
+**Track**: Sepalcure - Hearts In Danger
 
-Last updated at 08/11/2022 20:40
+Last updated at 08/11/2022 20:44
