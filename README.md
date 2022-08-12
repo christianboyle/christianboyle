@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/hTDb0ebFh8E/maxresdefault.jpg">](https://www.youtube.com/watch?v=hTDb0ebFh8E)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDROlmtlOdRXrryS-jwns6A-t500x500.jpg">](https://soundcloud.com/razzix/razzix-call-you-mine)
 
-**Artist**: Joyner Lucas 
+**Artist**: Razzix 
 
-**Track**: Joyner Lucas ft. Logic - ISIS (ADHD)
+**Track**: Razzix - Call You Mine
 
-Last updated at 08/11/2022 20:46
+Last updated at 08/11/2022 20:47
