@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA0BeIny35BO7hQw-x4CUrg-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-03-sully)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000389429481-03ysce-t500x500.jpg">](https://soundcloud.com/officialdjcyber/gavin-james-always-cyber-bootleg)
 
-**Artist**: Astrophonica 
+**Artist**: Cyberdj 
 
-**Track**: Astrophonica Podcast 03 - Sully
+**Track**: Gavin James - Always (Cyber Bootleg)
 
-Last updated at 08/11/2022 19:45
+Last updated at 08/11/2022 20:19
