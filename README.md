@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDROlmtlOdRXrryS-jwns6A-t500x500.jpg">](https://soundcloud.com/razzix/razzix-call-you-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sMZZwO72Terf95G-iTwWNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-summer-mix)
 
-**Artist**: Razzix 
+**Artist**: Hartshorn 
 
-**Track**: Razzix - Call You Mine
+**Track**: Summer Mix
 
-Last updated at 08/11/2022 20:47
+Last updated at 08/11/2022 21:51
