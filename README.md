@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDROlmtlOdRXrryS-jwns6A-t500x500.jpg">](https://soundcloud.com/razzix/razzix-call-you-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRsH9BisysL5ylCL-5XeQUA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/broke-inside)
 
-**Artist**: Razzix 
+**Artist**: Quickdrop 
 
-**Track**: Razzix - Call You Mine
+**Track**: Broke Inside (with Stolen Valor & Koo Read)
 
-Last updated at 08/12/2022 10:20
+Last updated at 08/12/2022 10:24
