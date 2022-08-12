@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTbQHVZBWBg0U2oS-aA4Rdw-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/corona-rhythm-of-the-night-gestalt-weapon-edit)
 
-**Artist**: glaive 
+**Artist**: Dancefloor Impact Research 
 
-**Track**: prick
+**Track**: [DIRW02] Corona - Rhythm Of The Night (Gestalt Weapon Edit) [FREE DOWNLOAD]
 
-Last updated at 08/11/2022 20:34
+Last updated at 08/11/2022 20:36
