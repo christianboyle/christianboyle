@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000163382532-jm7hjq-t500x500.jpg">](https://soundcloud.com/i_d_magazine/06-sepalcure-hearts-in-danger)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/hTDb0ebFh8E/maxresdefault.jpg">](https://www.youtube.com/watch?v=hTDb0ebFh8E)
 
-**Artist**: i-D 
+**Artist**: Joyner Lucas 
 
-**Track**: Sepalcure - Hearts In Danger
+**Track**: Joyner Lucas ft. Logic - ISIS (ADHD)
 
-Last updated at 08/11/2022 20:44
+Last updated at 08/11/2022 20:46
