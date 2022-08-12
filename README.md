@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sMZZwO72Terf95G-iTwWNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-summer-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
 
-**Artist**: Hartshorn 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Summer Mix
+**Track**: dj smokey - nukeparty
 
-Last updated at 08/11/2022 21:51
+Last updated at 08/11/2022 21:53
