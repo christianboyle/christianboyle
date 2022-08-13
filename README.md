@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgi7wyGNVHQ7soEo-CnAxiw-t500x500.jpg">](https://soundcloud.com/shaedistrict/lane-8-brighter-days-shae-district-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Eb5jYNrw2yv4aIA-meSoTg-t500x500.jpg">](https://soundcloud.com/judgementg/getbuck-up-up-apoc-krysis)
 
-**Artist**: Shae District 
+**Artist**: Judgement G 
 
-**Track**: Lane 8 - Brightest Lights (Shae District Remix)
+**Track**: GETBUCK UP UP (APOC KRYSIS)
 
-Last updated at 08/13/2022 09:43
+Last updated at 08/13/2022 09:51
