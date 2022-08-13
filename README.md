@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lpI0D1xobOzAxcX8-yI1Iaw-t500x500.jpg">](https://soundcloud.com/beatsbyexplore/gap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rujid9mTkxyZ6VM3-ruGjyA-t500x500.jpg">](https://soundcloud.com/jonnyeuphon/moonshine-mob-forthcoming-blowing-speakers-vol-2)
 
-**Artist**: EXPLORE 
+**Artist**: JONNY EUPHON 
 
-**Track**: EXPLORE - GAP
+**Track**: MOONSHINE MOB (FORTHCOMING BLOWING SPEAKERS Vol. 2)
 
-Last updated at 08/13/2022 09:40
+Last updated at 08/13/2022 09:41
