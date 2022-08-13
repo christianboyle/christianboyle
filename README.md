@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4vQx9GAxh8nuUlu-3bMS6w-t500x500.jpg">](https://soundcloud.com/e_tank/cosplay-beach-party-2022-summer-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPQdlzHQySVQhtQV-JVJU0w-t500x500.jpg">](https://soundcloud.com/yungmaple/such-a-waste)
 
-**Artist**: E*Tank 
+**Artist**: yungmaple 
 
-**Track**: Cosplay Beach Party 2022 (Summer Mix)
+**Track**: SUCH A WASTE
 
-Last updated at 08/12/2022 10:27
+Last updated at 08/13/2022 07:32
