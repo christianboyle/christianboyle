@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ddyo5gZIdCxqLbG-W5LWDw-t500x500.jpg">](https://soundcloud.com/s3rl/punch-the-gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000189781876-foobnj-t500x500.jpg">](https://soundcloud.com/ruffbeatz-entertainment/s3rl-wipeout-bird)
 
-**Artist**: S3RL 
+**Artist**: RuffBeatz Entertainment 
 
-**Track**: Punch The Gas - Brisk & S3RL
+**Track**: S3RL - Wipeout Bird [RB002]
 
-Last updated at 08/13/2022 20:46
+Last updated at 08/13/2022 20:49
