@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218386270-dhnifz-t500x500.jpg">](https://soundcloud.com/justicehardcore/myhouse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231109000-suw4p2-t500x500.jpg">](https://soundcloud.com/mc_riddle/riddle-nerdcore-filibusta-crazy-town-edit)
 
-**Artist**: Justice Hardcore 
+**Artist**: MC Riddle 
 
-**Track**: Alex Prospect & Hartshorn Feat. MC Riddle- My House (FREE DOWNLOAD)
+**Track**: Riddle - NerdCore (Filibusta / Crazy Town Edit)
 
-Last updated at 08/13/2022 20:59
+Last updated at 08/13/2022 21:00
