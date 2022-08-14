@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.ggpht.com/ytc/AMLnZu-db2y18zGApgzd8uerUwV-9W2dz5S8kHGGRE47Sw=s900-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UCb6JTMjrHZCYFD9Y04CBk9g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0dDcZ5xd1rHBy5yT-hJ95uw-t500x500.jpg">](https://soundcloud.com/hirohiro_hrhr/darren-styles-feat-andrea-britton-show-me-the-sunshinehirohiro-remix)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: HiroHiro 
 
+**Track**: Darren Styles Feat. Andrea Britton - Show Me The Sunshine(HiroHiro Remix)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: Punch the Gas - Brisk & S3RL
-
-Last updated at 08/13/2022 21:28
+Last updated at 08/14/2022 07:27
