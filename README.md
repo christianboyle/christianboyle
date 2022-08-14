@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NquyQQgX48gzAhvG-zuw3AA-t500x500.jpg">](https://soundcloud.com/s3rl/snow-white-line-atef-remix-s3rl-ft-tamika)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000192826640-9lne9u-t500x500.jpg">](https://soundcloud.com/hartshorn303/outforce-hartshorn-feat-mc-riddle-keep-it-mellow-s3rl-remix-fc-justice-hardcore)
 
-**Artist**: S3RL 
+**Artist**: Hartshorn 
 
-**Track**: Snow White Line (Atef Remix) - S3RL Ft Tamika
+**Track**: Outforce & Hartshorn Feat MC Riddle - Keep It Mello (S3RL Remix) F/C Justice Hardcore
 
-Last updated at 08/13/2022 21:04
+Last updated at 08/13/2022 21:09
