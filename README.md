@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000195095642-uk46un-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/heart-attack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZSMLjry4pvl4rBz-RdlVYw-t500x500.jpg">](https://soundcloud.com/s3rl/it-went-laxal-remix-s3rl-ft-tamika)
 
-**Artist**: M-Project 
+**Artist**: S3RL 
 
-**Track**: S3RL vs M-Project Feat. Krystal - Heart Attack
+**Track**: It Went (LaXal Remix) - S3RL ft Tamika
 
-Last updated at 08/13/2022 21:16
+Last updated at 08/13/2022 21:17
