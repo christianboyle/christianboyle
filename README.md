@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKR16Z8jTvssw1WW-tfobtw-t500x500.jpg">](https://soundcloud.com/djmatduke/matduke-hard-loud-podcast-episode-121-euphoric-hardstyle-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dhxT1pM22l2XHhVy-XLWSRA-t500x500.jpg">](https://soundcloud.com/s3rl/forever-neoqor-remix)
 
-**Artist**: Matduke 
+**Artist**: S3RL 
 
-**Track**: Matduke - Hard & Loud Podcast Episode 121 (Euphoric Hardstyle) [Free download]
+**Track**: Forever (NeoQor Remix) - S3RL
 
-Last updated at 08/13/2022 20:04
+Last updated at 08/13/2022 20:05
