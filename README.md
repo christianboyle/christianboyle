@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4gliUnC2KQtt3gJ-pNJM8g-t500x500.jpg">](https://soundcloud.com/beastwang/lewis-taylor-be-your-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000288687785-q6750v-t500x500.jpg">](https://soundcloud.com/nobodyhardcore/bewater)
 
-**Artist**: Beastwang 
+**Artist**: Nobody (Justice Hardcore) 
 
-**Track**: Lewis Taylor - Be Your Girl
+**Track**: Nobody Ft. MC Riddle - Be Water ■ OUT NOW ■
 
-Last updated at 08/14/2022 07:37
+Last updated at 08/14/2022 07:38
