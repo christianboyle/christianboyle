@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-84an2mO3X1iSAud1-SDlfQA-t500x500.jpg">](https://soundcloud.com/glacci/tdj-everything-is-forever-glacci-xtc-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vN4xEsLTtA1Yumjz-aYevJg-t500x500.jpg">](https://soundcloud.com/cosplanysus/pillow-talk-cosplanysus)
 
-**Artist**: Glacci 
+**Artist**: cosplanysus 
 
-**Track**: TDJ - Everything Is Forever (Glacci XTC Mix)
+**Track**: Pillow Talk RMX
 
-Last updated at 08/14/2022 07:34
+Last updated at 08/14/2022 07:35
