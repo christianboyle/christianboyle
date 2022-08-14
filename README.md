@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000192826640-9lne9u-t500x500.jpg">](https://soundcloud.com/hartshorn303/outforce-hartshorn-feat-mc-riddle-keep-it-mellow-s3rl-remix-fc-justice-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000123414830-xbq037-t500x500.jpg">](https://soundcloud.com/kreedz1/s3rl-come-on-do-it)
 
-**Artist**: Hartshorn 
+**Artist**: Z\H 
 
-**Track**: Outforce & Hartshorn Feat MC Riddle - Keep It Mello (S3RL Remix) F/C Justice Hardcore
+**Track**: S3RL — Come On Do It
 
-Last updated at 08/14/2022 09:02
+Last updated at 08/14/2022 09:04
