@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRpvMPjoad0uN7yr-6z1yLQ-t500x500.jpg">](https://soundcloud.com/bandoum/whiteflame)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAO8yoqWPEZw3MGy-ilgWOg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/electro-light-symbolism-pt-iii-ncs-release?in=nocopyrightsounds/sets/the-symbolism-trilogy)
 
-**Artist**: bandoum 
+**Artist**: NCS 
 
-**Track**: white flame [19]
+**Track**: Electro-Light - Symbolism pt. III [NCS Release]
 
-Last updated at 08/15/2022 08:29
+Last updated at 08/15/2022 08:30
