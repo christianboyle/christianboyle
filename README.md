@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fLKSxbzA88oIqP3X-1J5xsw-t500x500.jpg">](https://soundcloud.com/prodmino/lovelovelove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WtXKnwbsJyFRB8p-2UkKlA-t500x500.jpg">](https://soundcloud.com/ninetyniiine/kankan-babysantana-obama-crib-remix)
 
-**Artist**: mino(o_o”) 
+**Artist**: ninetyniiine (@ninetyniiine) 
 
-**Track**: ☆○o｡..:･”valentine samples”･:..｡o○☆ #2022
+**Track**: Kankan, BabySantana - Obama Crib Remix (prod. mino, yetii, & ninetyniiine)
 
-Last updated at 08/15/2022 08:24
+Last updated at 08/15/2022 08:28
