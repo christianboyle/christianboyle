@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WtXKnwbsJyFRB8p-2UkKlA-t500x500.jpg">](https://soundcloud.com/ninetyniiine/kankan-babysantana-obama-crib-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRpvMPjoad0uN7yr-6z1yLQ-t500x500.jpg">](https://soundcloud.com/bandoum/whiteflame)
 
-**Artist**: ninetyniiine (@ninetyniiine) 
+**Artist**: bandoum 
 
-**Track**: Kankan, BabySantana - Obama Crib Remix (prod. mino, yetii, & ninetyniiine)
+**Track**: white flame [19]
 
-Last updated at 08/15/2022 08:28
+Last updated at 08/15/2022 08:29
