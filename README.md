@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PA3RyehzxTgysCT8-qOVs2g-t500x500.jpg">](https://soundcloud.com/user-637448757/moxie-w-harrison-bdp-100822)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vUiTmq7nYfx6KD9-ibA5rQ-t500x500.jpg">](https://soundcloud.com/kushalienz/shadowstar-x-isvvc-like-a-villain)
 
-**Artist**: NTS Wednesday 
+**Artist**: KUSH ALIENZ 
 
-**Track**: Moxie w/ Harrison bdp - 100822
+**Track**: SHADOWSTAR X ISVVC - LIKE A VILLAIN
 
-Last updated at 08/14/2022 19:23
+Last updated at 08/14/2022 19:24
