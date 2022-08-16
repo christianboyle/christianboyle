@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-but87T97IWQlGh6z-wwW5uw-t500x500.jpg">](https://soundcloud.com/beatcuddles/going-down-4-lock-in-session)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7FgHTWDUA7HnKfQ-DtM8LA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-71-on-beat-106-1)
 
-**Artist**: ©Beatcuddles Music 
+**Artist**: Beat 106 Scotland 
 
-**Track**: going down [lock-in session]
+**Track**: Bonkers Beats #71 on Beat 106 Scotland with Hixxy 120822 (Hour 1)
 
-Last updated at 08/15/2022 21:14
+Last updated at 08/16/2022 08:38
