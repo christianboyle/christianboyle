@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZyUKHjzqWUrArpf-C8Vq3Q-t500x500.jpg">](https://soundcloud.com/dethconi/vomit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-but87T97IWQlGh6z-wwW5uw-t500x500.jpg">](https://soundcloud.com/beatcuddles/going-down-4-lock-in-session)
 
-**Artist**: deth coni 
+**Artist**: ©Beatcuddles Music 
 
-**Track**: vomit w/ blackwinterwells & misakufoxx (4am + kaito)
+**Track**: going down [lock-in session]
 
-Last updated at 08/15/2022 21:13
+Last updated at 08/15/2022 21:14
