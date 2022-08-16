@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/H2I6V0NlaHg/maxresdefault.jpg">](https://www.youtube.com/watch?v=H2I6V0NlaHg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUAAXnJvFE1eQ8ff-DbRKjA-t500x500.jpg">](https://soundcloud.com/immnnt/soulify-cold-tense)
 
-**Artist**: Fred again . . 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Fred again.. - Studio Live (London, April 2021)
+**Track**: SOULIFY — Cold Tense
 
-Last updated at 08/15/2022 18:27
+Last updated at 08/15/2022 21:12
