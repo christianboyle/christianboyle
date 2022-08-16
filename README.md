@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUAAXnJvFE1eQ8ff-DbRKjA-t500x500.jpg">](https://soundcloud.com/immnnt/soulify-cold-tense)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZyUKHjzqWUrArpf-C8Vq3Q-t500x500.jpg">](https://soundcloud.com/dethconi/vomit)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: deth coni 
 
-**Track**: SOULIFY — Cold Tense
+**Track**: vomit w/ blackwinterwells & misakufoxx (4am + kaito)
 
-Last updated at 08/15/2022 21:12
+Last updated at 08/15/2022 21:13
