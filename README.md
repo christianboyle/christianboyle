@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dNLpeySPHuMyYe4Y-q9tfNg-t500x500.jpg">](https://soundcloud.com/grrrreatdane/number-feat-jon-casey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gakYJl3VB963QqAj-tsdJmw-t500x500.jpg">](https://soundcloud.com/sablevalley/hideaway)
 
-**Artist**: great dane 
+**Artist**: SABLE VALLEY 
 
-**Track**: number feat. Jon Casey
+**Track**: Juelz - Hideaway
 
-Last updated at 08/17/2022 09:18
+Last updated at 08/17/2022 09:19
