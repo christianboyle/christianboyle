@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UmGJWscDM63jpBqu-E9Gdxw-t500x500.jpg">](https://soundcloud.com/iamwuki/weliketowuki)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsPkyJTLauwXnAy3-hB2ZAQ-t500x500.jpg">](https://soundcloud.com/pedicure-records/kittynxc-dont-try-it-now)
 
-**Artist**: wuki 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: We Like To Wuki (with Vengaboys and Yo Majesty)
+**Track**: Kittynxc - Don't Try It Now
 
-Last updated at 08/17/2022 09:33
+Last updated at 08/17/2022 09:36
