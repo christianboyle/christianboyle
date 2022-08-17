@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gakYJl3VB963QqAj-tsdJmw-t500x500.jpg">](https://soundcloud.com/sablevalley/hideaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DbPM23jrQaCqEVrN-aMtHsw-t500x500.jpg">](https://soundcloud.com/sablevalley/jawns-bbc-radio-1-sable-valley)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: Juelz - Hideaway
+**Track**: JAWNS BBC Radio 1 Sable Valley Takeover Mix
 
-Last updated at 08/17/2022 09:19
+Last updated at 08/17/2022 09:21
