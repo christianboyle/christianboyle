@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLveUSg2FVwzpqc8-RiuPDw-t500x500.jpg">](https://soundcloud.com/farrahsounds/glow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iTlYS6dhBqyCBfEi-L9CuZw-t500x500.jpg">](https://soundcloud.com/sablevalley/blicky)
 
-**Artist**: Farrah 
+**Artist**: SABLE VALLEY 
 
-**Track**: Farrah - Glow
+**Track**: Montell2099 - Blicky
 
-Last updated at 08/17/2022 09:14
+Last updated at 08/17/2022 09:15
