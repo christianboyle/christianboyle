@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5AU1SkPLD49Lmg8-Wf9Pzg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jel7yz-chan-fighting-for-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IfAHhSLsPjc9No60-HbvcBA-t500x500.jpg">](https://soundcloud.com/djtmane/mad-dawg)
 
-**Artist**: Justice Hardcore 
+**Artist**: DJ T-MANE 
 
-**Track**: Jel7yz & ChAn. - Fighting For ⚠️OUT NOW⚠️
+**Track**: MAD DAWG w/ JASON RICH
 
-Last updated at 08/17/2022 09:11
+Last updated at 08/17/2022 09:12
