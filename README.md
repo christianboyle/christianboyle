@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VDajkpm9OHpAwBIa-1FyskQ-t500x500.jpg">](https://soundcloud.com/ninetyniiine/n-2-deep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5AU1SkPLD49Lmg8-Wf9Pzg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jel7yz-chan-fighting-for-out-now)
 
-**Artist**: ninetyniiine (@ninetyniiine) 
+**Artist**: Justice Hardcore 
 
-**Track**: n 2 deep w/ five + xynothing
+**Track**: Jel7yz & ChAn. - Fighting For ⚠️OUT NOW⚠️
 
-Last updated at 08/17/2022 09:10
+Last updated at 08/17/2022 09:11
