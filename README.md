@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WUKUyzmLXxuoothD-LnIrnQ-t500x500.jpg">](https://soundcloud.com/s3rl/i-feel-alive-s3rl-ft-igikopop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UmGJWscDM63jpBqu-E9Gdxw-t500x500.jpg">](https://soundcloud.com/iamwuki/weliketowuki)
 
-**Artist**: S3RL 
+**Artist**: wuki 
 
-**Track**: I Feel Alive - S3RL ft IgikoPop
+**Track**: We Like To Wuki (with Vengaboys and Yo Majesty)
 
-Last updated at 08/16/2022 21:41
+Last updated at 08/17/2022 09:08
