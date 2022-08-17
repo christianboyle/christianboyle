@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-StHRdBz3rHzkza7Q-GD5TFg-t500x500.jpg">](https://soundcloud.com/diamonds4alex/dance-party?in=diamonds4alex/sets/bright-beautiful-dance-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EE0wn7lblhCzDmHB-xhPgGg-t500x500.jpg">](https://soundcloud.com/theo0109/fission)
 
-**Artist**: Alex Diamond 
+**Artist**: Théo 
 
-**Track**: Dance Party
+**Track**: FISSION
 
-Last updated at 08/16/2022 21:15
+Last updated at 08/16/2022 21:17
