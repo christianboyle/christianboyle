@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRsH9BisysL5ylCL-5XeQUA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/broke-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oe8qyR7noZ116kJl-9g1hug-t500x500.jpg">](https://soundcloud.com/hartshorn303/bonkers-beats-april-resident-mix)
 
-**Artist**: Quickdrop 
+**Artist**: Hartshorn 
 
-**Track**: Broke Inside (with Stolen Valor & Koo Read)
+**Track**: Bonkers Beats - April Resident Mix
 
-Last updated at 08/18/2022 17:55
+Last updated at 08/18/2022 17:56
