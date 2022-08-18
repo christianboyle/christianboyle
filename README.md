@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000668791837-o0j3kf-t500x500.jpg">](https://soundcloud.com/sublabmusic/lose-my-breath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOUNdZlOvxAl6LZy-j5pnOA-t500x500.jpg">](https://soundcloud.com/originssound/origins-tapes-069-amy-dabbs)
 
-**Artist**: Sublab 
+**Artist**: Origins Sound 
 
-**Track**: Lose My Breath
+**Track**: Origins Tapes 069 - Amy Dabbs
 
-Last updated at 08/17/2022 21:25
+Last updated at 08/18/2022 08:19
