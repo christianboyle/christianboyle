@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2U8hPOhNeLE6-0-t500x500.png">](https://soundcloud.com/officialdjcyber/no-escape-jay-reeve-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
 
-**Artist**: Cyberdj 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: No Escape (Jay Reeve Remix)
+**Track**: dj smokey - nukeparty
 
-Last updated at 08/17/2022 20:59
+Last updated at 08/17/2022 21:01
