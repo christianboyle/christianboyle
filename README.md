@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lb6D79uZuAN4-0-t500x500.png">](https://soundcloud.com/hartshorn303/wind-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDxlmitS6PxVaz6p-yGEQpQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tatsunoshin-getty-valhalla-electric-fox)
 
-**Artist**: Hartshorn 
+**Artist**: Dirty Workz 
 
-**Track**: Wind Me Up
+**Track**: Tatsunoshin & Getty - Valhalla (Electric Fox)
 
-Last updated at 08/18/2022 17:51
+Last updated at 08/18/2022 17:52
