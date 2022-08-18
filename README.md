@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPQdlzHQySVQhtQV-JVJU0w-t500x500.jpg">](https://soundcloud.com/yungmaple/such-a-waste)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: yungmaple 
 
-**Track**: dj smokey - nukeparty
+**Track**: SUCH A WASTE
 
-Last updated at 08/17/2022 21:01
+Last updated at 08/17/2022 21:04
