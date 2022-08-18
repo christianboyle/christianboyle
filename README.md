@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOUNdZlOvxAl6LZy-j5pnOA-t500x500.jpg">](https://soundcloud.com/originssound/origins-tapes-069-amy-dabbs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vE4yvpouJJrLN3mz-1TFfUg-t500x500.jpg">](https://soundcloud.com/koastle/literal-goals-feat-jake-neumar)
 
-**Artist**: Origins Sound 
+**Artist**: Koastle 
 
-**Track**: Origins Tapes 069 - Amy Dabbs
+**Track**: Literal Goals (feat. Jake Neumar)
 
-Last updated at 08/18/2022 08:19
+Last updated at 08/18/2022 16:54
