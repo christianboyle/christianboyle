@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcvdbuV1RKr1GXmt-VU1DXw-t500x500.jpg">](https://soundcloud.com/farrahsounds/arrival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j0umO75fweqb-0-t500x500.jpg">](https://soundcloud.com/juuku/home-2)
 
-**Artist**: Farrah 
+**Artist**: juuku 
 
-**Track**: Farrah - Arrival
+**Track**: home
 
-Last updated at 08/17/2022 21:18
+Last updated at 08/17/2022 21:19
