@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPQdlzHQySVQhtQV-JVJU0w-t500x500.jpg">](https://soundcloud.com/yungmaple/such-a-waste)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuCrvy7H1QRzuTcF-M3pYMg-t500x500.jpg">](https://soundcloud.com/1glaive/sticks)
 
-**Artist**: yungmaple 
+**Artist**: glaive 
 
-**Track**: SUCH A WASTE
+**Track**: sticks (p. heartdept)
 
-Last updated at 08/17/2022 21:04
+Last updated at 08/17/2022 21:14
