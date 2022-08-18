@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000389429481-03ysce-t500x500.jpg">](https://soundcloud.com/officialdjcyber/gavin-james-always-cyber-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzDOFyyyBDI7I67R-Sn2zDA-t500x500.jpg">](https://soundcloud.com/bkbeats/butterfly)
 
-**Artist**: Cyberdj 
+**Artist**: bk beats 
 
-**Track**: Gavin James - Always (Cyber Bootleg)
+**Track**: cr@zy tøwn - butterfly (dembow refix)
 
-Last updated at 08/17/2022 20:51
+Last updated at 08/17/2022 20:54
