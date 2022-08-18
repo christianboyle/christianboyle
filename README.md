@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000230748257-7tl37h-t500x500.jpg">](https://soundcloud.com/mc_riddle/all-that-i-need-s3rl-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FemLzMzCfqyZLGnQ-CnYYCA-t500x500.jpg">](https://soundcloud.com/itsrestricted/turn-on-the-lights-restricted-edit)
 
-**Artist**: MC Riddle 
+**Artist**: Restricted 
 
-**Track**: All That I Need - S3RL feat Kayliana & MC Riddle (Alternate Angry Edit)
+**Track**: Turn On The Lights (Restricted Edit)
 
-Last updated at 08/17/2022 20:32
+Last updated at 08/17/2022 20:35
