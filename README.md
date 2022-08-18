@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzDOFyyyBDI7I67R-Sn2zDA-t500x500.jpg">](https://soundcloud.com/bkbeats/butterfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3gvkNasmr8Jl-0-t500x500.png">](https://soundcloud.com/officialdjcyber/me-you)
 
-**Artist**: bk beats 
+**Artist**: Cyberdj 
 
-**Track**: cr@zy tøwn - butterfly (dembow refix)
+**Track**: Me & You
 
-Last updated at 08/17/2022 20:54
+Last updated at 08/17/2022 20:57
