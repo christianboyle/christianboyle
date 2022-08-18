@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH8jF1UsOL8gE6Ch-h7PJZg-t500x500.jpg">](https://soundcloud.com/voxnoxberlin/premiere-new-frames-proton-isospace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJW7HOKTkKAsihBS-s42cDg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/ian-snow-eyes-closed-ft-born-i-2)
 
-**Artist**: Voxnox 
+**Artist**: Gravitas Music 
 
-**Track**: PREMIERE: New Frames - Proton Isospace [HVN013]
+**Track**: Ian Snow - Eyes Closed Ft. Born I  [The Dropz Premiere]
 
-Last updated at 08/18/2022 16:55
+Last updated at 08/18/2022 16:59
