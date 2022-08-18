@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UmGJWscDM63jpBqu-E9Gdxw-t500x500.jpg">](https://soundcloud.com/iamwuki/weliketowuki)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qXbLmJNFDlU7RLWT-1OjC3g-t500x500.jpg">](https://soundcloud.com/aqnb/mikey-kids-2022-courtesy-body-motion-london)
 
-**Artist**: wuki 
+**Artist**: AQNB 
 
-**Track**: We Like To Wuki (with Vengaboys and Yo Majesty)
+**Track**: Mikey, 'Kids' (2022). Courtesy Body Motion, London.
 
-Last updated at 08/17/2022 20:23
+Last updated at 08/17/2022 20:26
