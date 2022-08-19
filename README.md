@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/sjgJOkunjkU/hqdefault.jpg">](https://www.youtube.com/watch?v=sjgJOkunjkU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
 
-**Artist**: Daya 
+**Artist**: JEFF?! 
 
-**Track**: Love You When You’re Gone (Official Video)
+**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
 
-Last updated at 08/18/2022 20:45
+Last updated at 08/18/2022 20:47
