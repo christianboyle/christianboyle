@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYP8hn1VTvZCKzwZ-uRlMVQ-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166395049-yj5cth-t500x500.jpg">](https://soundcloud.com/grazcore/k80-p3rry-walkin-on-air-graz-remix)
 
-**Artist**: Sublab 
+**Artist**: Graz 
 
-**Track**: CASTLES IN THE SKY (feat. Seven)
+**Track**: K80 Perry - Walkin On Air (Graz Remix)
 
-Last updated at 08/18/2022 20:54
+Last updated at 08/18/2022 21:03
