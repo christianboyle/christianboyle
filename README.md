@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwBxwcYMyIGi5Yno-qv6kfw-t500x500.jpg">](https://soundcloud.com/wearenova/debisco-ez-ecli-remix?in=wearenova/sets/orbit-20-the-remixes-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YsXgufHKK5eNj35J-83me9g-t500x500.jpg">](https://soundcloud.com/gjonesbass/g-jones-eprom-final-lap)
 
-**Artist**: Novatone 
+**Artist**: G JONES 
 
-**Track**: DeBisco - EZ (Ecli Remix)
+**Track**: G JONES & EPROM - Final Lap
 
-Last updated at 08/19/2022 08:53
+Last updated at 08/19/2022 08:54
