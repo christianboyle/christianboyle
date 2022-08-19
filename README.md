@@ -1,9 +1,9 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/1fwJ8H5wWCU/hqdefault.jpg">](https://www.youtube.com/watch?v=1fwJ8H5wWCU)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/H5v3kku4y6Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=H5v3kku4y6Q)
 
-**Artist**: Em Beihold 
+**Artist**: Harry Styles 
 
-**Track**: Numb Little Bug (Official Music Video)
+**Track**: As It Was (Official Video)
 
-Last updated at 08/18/2022 20:30
+Last updated at 08/18/2022 20:35
