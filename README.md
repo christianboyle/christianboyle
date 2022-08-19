@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH8jF1UsOL8gE6Ch-h7PJZg-t500x500.jpg">](https://soundcloud.com/voxnoxberlin/premiere-new-frames-proton-isospace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZosxnpQdzj6Bs5Pd-LFfM5A-t500x500.jpg">](https://soundcloud.com/datboiodd/midnight-smoke-vol2-full-mix)
 
-**Artist**: Voxnox 
+**Artist**: ODD 1 OUT 
 
-**Track**: PREMIERE: New Frames - Proton Isospace [HVN013]
+**Track**: MIDNIGHT SMOKE VOL.2 (FULL MIX)
 
-Last updated at 08/18/2022 21:05
+Last updated at 08/19/2022 08:45
