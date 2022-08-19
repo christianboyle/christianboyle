@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hZ2xyV5UyfdG-0-t500x500.jpg">](https://soundcloud.com/katyperry/rise-purity-ring-remix)
 
-**Artist**: JEFF?! 
+**Artist**: KatyPerry 
 
-**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
+**Track**: Rise (Purity Ring Remix)
 
-Last updated at 08/18/2022 20:47
+Last updated at 08/18/2022 20:48
