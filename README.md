@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YsXgufHKK5eNj35J-83me9g-t500x500.jpg">](https://soundcloud.com/gjonesbass/g-jones-eprom-final-lap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000164291050-z3gdl5-t500x500.jpg">](https://soundcloud.com/hinatar/without-you-hinatar-remix)
 
-**Artist**: G JONES 
+**Artist**: Hinatar 
 
-**Track**: G JONES & EPROM - Final Lap
+**Track**: Illenium - Without You feat. SKYLR (Hinatar Remix)
 
-Last updated at 08/19/2022 08:54
+Last updated at 08/19/2022 08:55
