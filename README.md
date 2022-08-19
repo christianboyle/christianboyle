@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/H5v3kku4y6Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=H5v3kku4y6Q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cLbs3CrybHqLY0Iy-Xz9QLA-t500x500.jpg">](https://soundcloud.com/joncasey/lord-genmu-trap-eight-six-jon-casey-remix)
 
-**Artist**: Harry Styles 
+**Artist**: Jon Casey 
 
-**Track**: As It Was (Official Video)
+**Track**: Lord Genmu - TRAP-EIGHT-SIX (Jon Casey Remix)
 
-Last updated at 08/18/2022 20:35
+Last updated at 08/18/2022 20:38
