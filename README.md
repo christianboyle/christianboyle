@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ByEEHoUVV0mZUMf6-4bwrdA-t500x500.jpg">](https://soundcloud.com/iamkasiopi/naked)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/sjgJOkunjkU/hqdefault.jpg">](https://www.youtube.com/watch?v=sjgJOkunjkU)
 
-**Artist**: Kasi Opi 
+**Artist**: Daya 
 
-**Track**: Kasi Opi - Naked (feat. Nevve)
+**Track**: Love You When You’re Gone (Official Video)
 
-Last updated at 08/18/2022 20:44
+Last updated at 08/18/2022 20:45
