@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azy5FvzphvBkLd7E-4Ngnyg-t500x500.jpg">](https://soundcloud.com/wearenova/prime-ordnance-heartbloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJ83WKTrckWqOnpq-lzsqoQ-t500x500.jpg">](https://soundcloud.com/dwineth/odyssey-edit)
 
-**Artist**: Novatone 
+**Artist**: dwineth 
 
-**Track**: Prime Ordnance - Heartbloom (viewtifulday HC Edit)
+**Track**: prime ordnance & fluxe - odyssey (feat. fossegrim) (dwineth edit)
 
-Last updated at 08/19/2022 19:16
+Last updated at 08/19/2022 19:19
