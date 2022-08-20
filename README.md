@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkVQDQ0yxWszdVoF-yX9Y1w-t500x500.jpg">](https://soundcloud.com/gangstahouserec/chris-nanite-flip-ya-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaOW90h76hIebLhc-0MZzZQ-t500x500.jpg">](https://soundcloud.com/feelqrecordings/fqr225)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: FeelQ Recordings 
 
-**Track**: Chris Nanite - Flip Ya (Original Mix)
+**Track**: JOXION - Okay
 
-Last updated at 08/20/2022 10:21
+Last updated at 08/20/2022 10:25
