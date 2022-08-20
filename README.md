@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsE8yzUHE45mK7r7-VWfYqQ-t500x500.jpg">](https://soundcloud.com/discoveryproject/kittrix-all-famous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1cQtueose1h0Hzm5-yU3vZg-t500x500.jpg">](https://soundcloud.com/divergerecords/sacre-bleu-so-good)
 
-**Artist**: Discovery Project 
+**Artist**: DIVERGE RECORDS 
 
-**Track**: Kittrix - All Famous
+**Track**: Sacre Bleu - So Good
 
-Last updated at 08/20/2022 10:28
+Last updated at 08/20/2022 10:31
