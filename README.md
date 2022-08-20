@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsPkyJTLauwXnAy3-hB2ZAQ-t500x500.jpg">](https://soundcloud.com/pedicure-records/kittynxc-can-u-feel-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YmWSz77eUjjlkv05-ZhVITQ-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-legalizenukes)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Kittynxc - Can U Feel It?
+**Track**: dj smokey - legalizenukes
 
-Last updated at 08/19/2022 19:21
+Last updated at 08/19/2022 19:22
