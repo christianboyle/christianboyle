@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uaOW90h76hIebLhc-0MZzZQ-t500x500.jpg">](https://soundcloud.com/feelqrecordings/fqr225)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsE8yzUHE45mK7r7-VWfYqQ-t500x500.jpg">](https://soundcloud.com/discoveryproject/kittrix-all-famous)
 
-**Artist**: FeelQ Recordings 
+**Artist**: Discovery Project 
 
-**Track**: JOXION - Okay
+**Track**: Kittrix - All Famous
 
-Last updated at 08/20/2022 10:25
+Last updated at 08/20/2022 10:28
