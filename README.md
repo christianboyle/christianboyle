@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlHqsPmTBRv8Ak0Y-K4tsIA-t500x500.jpg">](https://soundcloud.com/future-house-cloud/crystal-rock-c-ro-mingue-family-affair)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkVQDQ0yxWszdVoF-yX9Y1w-t500x500.jpg">](https://soundcloud.com/gangstahouserec/chris-nanite-flip-ya-original-mix)
 
-**Artist**: Future House Cloud 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Crystal Rock, C - Ro & Mingue - Family Affair
+**Track**: Chris Nanite - Flip Ya (Original Mix)
 
-Last updated at 08/20/2022 10:19
+Last updated at 08/20/2022 10:21
