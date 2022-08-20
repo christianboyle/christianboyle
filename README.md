@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azy5FvzphvBkLd7E-4Ngnyg-t500x500.jpg">](https://soundcloud.com/wearenova/wontolla-the-nova-irone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJ7yd9dTsKHER4sy-34zBZA-t500x500.jpg">](https://soundcloud.com/felmax/dominate)
 
-**Artist**: Novatone 
+**Artist**: FELMAX 
 
-**Track**: Wontolla - The Nova Irone Symphony Orchestra
+**Track**: DOMINATE(FELMAX & ANTIHERO 2022 KAIOKEN FLIP)
 
-Last updated at 08/19/2022 20:40
+Last updated at 08/19/2022 21:02
