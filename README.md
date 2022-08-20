@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8mOyDF508Nb5zD2-zBKS1g-t500x500.jpg">](https://soundcloud.com/tron3x/tron3x-go-low)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YC6R89owy6d2iQ9G-nyd6Cg-t500x500.jpg">](https://soundcloud.com/weekendwarriorsdub/riddim-tings-vip-weekend-warriors)
 
-**Artist**: TRON3X 
+**Artist**: Weekend Warriors 
 
-**Track**: TRON3X - Go Low
+**Track**: RIDDIM TINGS VIP - WEEKEND WARRIORS
 
-Last updated at 08/19/2022 21:03
+Last updated at 08/19/2022 21:04
