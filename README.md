@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGM2bpao5q7jH3zN-f1es0g-t500x500.jpg">](https://soundcloud.com/eaukimusic/eauki-ambush-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yiderHePzRF52WPg-LCe99w-t500x500.jpg">](https://soundcloud.com/dipaulodj/regis-lima-di-paulo-is-now-extended-mix)
 
-**Artist**: Eauki 
+**Artist**: Di Paulo 
 
-**Track**: Eauki - Ambush (Radio Edit)
+**Track**: Regis Lima, Di Paulo - Is Now (Extended Mix)
 
-Last updated at 08/20/2022 10:48
+Last updated at 08/20/2022 10:51
