@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUtWqOyMYWtM057M-xOeB5w-t500x500.jpg">](https://soundcloud.com/fhcselection/ascence-right-now-na-na-na)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGM2bpao5q7jH3zN-f1es0g-t500x500.jpg">](https://soundcloud.com/eaukimusic/eauki-ambush-radio-edit)
 
-**Artist**: FHC Selection 
+**Artist**: Eauki 
 
-**Track**: Ascence - Right Now (Na Na Na)
+**Track**: Eauki - Ambush (Radio Edit)
 
-Last updated at 08/20/2022 10:46
+Last updated at 08/20/2022 10:48
