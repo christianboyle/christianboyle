@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH8jF1UsOL8gE6Ch-h7PJZg-t500x500.jpg">](https://soundcloud.com/voxnoxberlin/premiere-new-frames-proton-isospace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mPd1q3yUL3abnGDe-q3hflg-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-way-too-far)
 
-**Artist**: Voxnox 
+**Artist**: Sublab 
 
-**Track**: PREMIERE: New Frames - Proton Isospace [HVN013]
+**Track**: WAY TOO FAR
 
-Last updated at 08/19/2022 21:15
+Last updated at 08/19/2022 21:21
