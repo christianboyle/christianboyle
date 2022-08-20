@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jl5ATDMhJnzIxAQL-g3pAyQ-t500x500.jpg">](https://soundcloud.com/stoppa-huch/primecube-072022-strictly-underground-culture-after-hour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QF1SGQr3VdltkI58-unkKHw-t500x500.jpg">](https://soundcloud.com/huskibass/huski-protect-you-free-downloadstems)
 
-**Artist**: STOPPA HUCH 
+**Artist**: HUSKI 🐺 
 
-**Track**: PrimeCube - 07/2022 "Strictly Underground Culture" after hour
+**Track**: HUSKI - PROTECT YOU (FREE DOWNLOAD/STEMS)
 
-Last updated at 08/19/2022 19:43
+Last updated at 08/19/2022 20:38
