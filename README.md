@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkVoRWDr7qtMohI4-Jn9OZQ-t500x500.jpg">](https://soundcloud.com/vonbuoyage/you-aint-close-ft-honey-b-sweet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlHqsPmTBRv8Ak0Y-K4tsIA-t500x500.jpg">](https://soundcloud.com/future-house-cloud/crystal-rock-c-ro-mingue-family-affair)
 
-**Artist**: VON BUOYAGE 
+**Artist**: Future House Cloud 
 
-**Track**: You Ain't Close (ft. Honey-B-Sweet)
+**Track**: Crystal Rock, C - Ro & Mingue - Family Affair
 
-Last updated at 08/20/2022 10:16
+Last updated at 08/20/2022 10:19
