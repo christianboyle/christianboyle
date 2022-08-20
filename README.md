@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJ83WKTrckWqOnpq-lzsqoQ-t500x500.jpg">](https://soundcloud.com/dwineth/odyssey-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsPkyJTLauwXnAy3-hB2ZAQ-t500x500.jpg">](https://soundcloud.com/pedicure-records/kittynxc-can-u-feel-it)
 
-**Artist**: dwineth 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: prime ordnance & fluxe - odyssey (feat. fossegrim) (dwineth edit)
+**Track**: Kittynxc - Can U Feel It?
 
-Last updated at 08/19/2022 19:19
+Last updated at 08/19/2022 19:21
