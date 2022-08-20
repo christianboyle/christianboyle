@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJ7yd9dTsKHER4sy-34zBZA-t500x500.jpg">](https://soundcloud.com/felmax/dominate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8mOyDF508Nb5zD2-zBKS1g-t500x500.jpg">](https://soundcloud.com/tron3x/tron3x-go-low)
 
-**Artist**: FELMAX 
+**Artist**: TRON3X 
 
-**Track**: DOMINATE(FELMAX & ANTIHERO 2022 KAIOKEN FLIP)
+**Track**: TRON3X - Go Low
 
-Last updated at 08/19/2022 21:02
+Last updated at 08/19/2022 21:03
