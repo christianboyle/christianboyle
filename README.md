@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yiderHePzRF52WPg-LCe99w-t500x500.jpg">](https://soundcloud.com/dipaulodj/regis-lima-di-paulo-is-now-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpSMKbNqiNP0m8fc-0ylTAQ-t500x500.jpg">](https://soundcloud.com/onimusicc/onilastbreath)
 
-**Artist**: Di Paulo 
+**Artist**: ONI 
 
-**Track**: Regis Lima, Di Paulo - Is Now (Extended Mix)
+**Track**: ONI - Last Breath
 
-Last updated at 08/20/2022 10:51
+Last updated at 08/20/2022 10:57
