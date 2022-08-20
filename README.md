@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1cQtueose1h0Hzm5-yU3vZg-t500x500.jpg">](https://soundcloud.com/divergerecords/sacre-bleu-so-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrvfSHpebhdXVEcK-3MwpGQ-t500x500.jpg">](https://soundcloud.com/highupbass/drake-vs-lister-just-a-sticky-dream-highup-edit)
 
-**Artist**: DIVERGE RECORDS 
+**Artist**: Highup 
 
-**Track**: Sacre Bleu - So Good
+**Track**: Drake VS Lister - Just A Sticky Dream (Highup Edit) FREE DOWNLOAD
 
-Last updated at 08/20/2022 10:31
+Last updated at 08/20/2022 10:34
