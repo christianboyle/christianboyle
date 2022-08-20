@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-suVH7urosxTYs0SR-MRbsWw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/rvh-bring-it-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bEGBSNWwAauf2Ad-Es5MyA-t500x500.jpg">](https://soundcloud.com/musical-freedom/ownboss-sevek-move-your-body-subb-cajun-remix)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Musical Freedom 
 
-**Track**: RVH - Bring It (Original Mix)
+**Track**: Öwnboss, Sevek – Move Your Body (SUBB & CAJUN Remix)
 
-Last updated at 08/20/2022 10:36
+Last updated at 08/20/2022 10:40
