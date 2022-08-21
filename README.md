@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GVAzwkVLTK2zecUa-1Me1pQ-t500x500.jpg">](https://soundcloud.com/djyari/house-mania-side-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CSexaUZI4CQLqNju-OetOvw-t500x500.jpg">](https://soundcloud.com/smolbeats/id-showcase-pt-4-hybrid-edition)
 
-**Artist**: DJ YARI 
+**Artist**: smol 
 
-**Track**: HOUSE MANIA (SIDE A)
+**Track**: ID Showcase pt. 4 🧬 Hybrid Edition 🧬
 
-Last updated at 08/21/2022 18:09
+Last updated at 08/21/2022 18:10
