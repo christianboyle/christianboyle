@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaxybzwBHHNf3dXh-6dUkLg-t500x500.jpg">](https://soundcloud.com/bassbykick/93-octane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lEXEOISiB4vzQvbp-dLufLg-t500x500.jpg">](https://soundcloud.com/gmbeat_official/echo-gmb)
 
-**Artist**: Kick 
+**Artist**: GMB 
 
-**Track**: 93 Octane
+**Track**: "Echo" - GMB
 
-Last updated at 08/21/2022 17:50
+Last updated at 08/21/2022 17:51
