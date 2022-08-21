@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azwLhS0HePGEoWPE-gSY4Kw-t500x500.jpg">](https://soundcloud.com/dilateofficial/dilate-presents-reactor-mix-series-003-drakk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mkFnckiebNgFUKL-oNVGzg-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-69-dna-guest-mix)
 
-**Artist**: Dilate 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: Dilate Presents - REACTOR MIX SERIES - #003 - DRAKK
+**Track**: Episode 69 - DNA guest mix
 
-Last updated at 08/21/2022 17:55
+Last updated at 08/21/2022 17:56
