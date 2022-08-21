@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CJDfpnlkLpxz4xny-HH9IKg-t500x500.jpg">](https://soundcloud.com/cromatikdubstep/take-control-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BXnjtM9Z0UCsPUNj-OoyzTg-t500x500.jpg">](https://soundcloud.com/smoove_antt/contrast-1?in=smoove_antt/sets/wild-world)
 
-**Artist**: CROMATIK 
+**Artist**: Smoove Antt 
 
-**Track**: Lizzy Jane X Figure - Take Control (Cromatik Remix)
+**Track**: Contrast
 
-Last updated at 08/21/2022 17:58
+Last updated at 08/21/2022 17:59
