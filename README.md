@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170529172-8twafs-t500x500.jpg">](https://soundcloud.com/morethanrecs/twenty-one-pilots-ride-jaydon-lewis-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000065797054-pwus6f-t500x500.jpg">](https://soundcloud.com/marcus-mj/chief-keef-hate-being-sober-50)
 
-**Artist**: More Than Records 
+**Artist**: Marcus mj 
 
-**Track**: Twenty One Pilots - Ride (Jaydon Lewis Remix)
+**Track**: Chief Keef - Hate Being Sober - 50 Cent & Wiz Khalifa (Dotcom's Festival Trap Remix)
 
-Last updated at 08/22/2022 07:54
+Last updated at 08/22/2022 07:56
