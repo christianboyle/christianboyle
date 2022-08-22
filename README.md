@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FxlO58hYjwmNsuz5-E3yHXw-t500x500.jpg">](https://soundcloud.com/dj-brynwhiting/bryn-whiting-live-at-tidy-weekender-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PHTC2rFPgIvR230t-knptbg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-72-on-beat-106)
 
-**Artist**: BrynWhiting 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Bryn Whiting - Live At The Tidy Land Weekender 2022 (Tidy Management Summer Promo Mix 2022)
+**Track**: Bonkers Beats #72 On Beat 106 Scotland with DJ Defective 190822 (Hour 2)
 
-Last updated at 08/22/2022 09:40
+Last updated at 08/22/2022 09:41
