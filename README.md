@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pPs6l62d3fm31Quq-HvOFyQ-t500x500.jpg">](https://soundcloud.com/kyrosradio/episode-010-azn-l?in=kyrosradio/sets/kyros-radio-episode-010-azn-l)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170529172-8twafs-t500x500.jpg">](https://soundcloud.com/morethanrecs/twenty-one-pilots-ride-jaydon-lewis-remix)
 
-**Artist**: Kyros Radio 
+**Artist**: More Than Records 
 
-**Track**: Kyros Radio Episode 010 - AZN-L (Free Download)
+**Track**: Twenty One Pilots - Ride (Jaydon Lewis Remix)
 
-Last updated at 08/21/2022 18:28
+Last updated at 08/22/2022 07:54
