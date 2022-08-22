@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zm1OaGebaln96gTt-1exgUw-t500x500.jpg">](https://soundcloud.com/ym_production/wegz-dorak-gai-mrb6-remixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PHTC2rFPgIvR230t-knptbg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-72-on-beat-106-1)
 
-**Artist**: YM PRODUCTION 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Wegz - Dorak Gai | ويجز- دورك جاي YM REMIX | instagram: YM__PRODUCTION
+**Track**: Bonkers Beats #72 On Beat 106 Scotland with Alvarez 190822 (Hour 1)
 
-Last updated at 08/22/2022 07:57
+Last updated at 08/22/2022 08:14
