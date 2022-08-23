@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PHTC2rFPgIvR230t-knptbg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-72-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FjjCpC6ajkhKFYwR-mKwBbQ-t500x500.jpg">](https://soundcloud.com/kylamartin88/alvarezreloaded)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: ALVAREZ 
 
-**Track**: Bonkers Beats #72 On Beat 106 Scotland with Alvarez 190822 (Hour 1)
+**Track**: Reloaded ~ Aug 2022
 
-Last updated at 08/23/2022 13:34
+Last updated at 08/23/2022 16:16
