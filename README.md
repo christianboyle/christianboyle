@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EplzHKPVmTY9IaDk-uDy5FA-t500x500.jpg">](https://soundcloud.com/coastal-haze/suchi-lotus-priori-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9NbsHHzdYT1y6Lc7-8Qqiqg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/avivx-the-shine-a-light-on-mix)
 
-**Artist**: Coastal Haze 
+**Artist**: Ransom Note 
 
-**Track**: SUCHI - Lotus (Priori Remix)
+**Track**: AVIVX: The 'Shine A Light On' Mix
 
-Last updated at 08/23/2022 10:04
+Last updated at 08/23/2022 10:05
