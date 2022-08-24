@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDdmyCzUbxWV0V1U-TxJYwQ-t500x500.jpg">](https://soundcloud.com/the-games-we-play/two-weeks-astropop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e1q8J0mWTAj2PAaX-5M6clA-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/carre-daisychain-240)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: Daisychain 
 
-**Track**: two-weeks - Astropop
+**Track**: Daisychain 240 - Carré
 
-Last updated at 08/23/2022 21:24
+Last updated at 08/23/2022 21:25
