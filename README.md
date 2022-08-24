@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EiYK4lmS35jSXfo-RTQScQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-coone-ft-atilax-mind-of-a-warrior)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLd5hCMMezOU-0-t500x500.png">](https://soundcloud.com/subzeroproject/fly-with-me?in=subzeroproject/sets/renaissance-of-rave-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Sub Zero Project 
 
-**Track**: Sub Zero Project & Coone ft. ATILAX - Mind Of A Warrior
+**Track**: Fly With Me
 
-Last updated at 08/24/2022 17:12
+Last updated at 08/24/2022 17:13
