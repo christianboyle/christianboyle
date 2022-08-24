@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7KyfBFwHyfeToyq6-Zkb0fA-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/usher-dj-got-us-fallin-in-love-geses-lusso-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z88cLyqinzDsNSsL-Db0ucg-t500x500.jpg">](https://soundcloud.com/arcadian_sound/vitality-1)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Arcadian Sound 
 
-**Track**: Usher - DJ Got Us Fallin' In Love (GESES & LUSSO Remix) [FREE DOWNLOAD]
+**Track**: Vitality
 
-Last updated at 08/24/2022 16:43
+Last updated at 08/24/2022 16:44
