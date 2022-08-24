@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lUGlQoSl81T-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/faze2-fyh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iH26cWwgtRT1-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/hpnotic-what-i-need)
 
 **Artist**: Keeping The Rave Alive 
 
-**Track**: Faze2 - FYH
+**Track**: Hpnotic - What I Need
 
-Last updated at 08/24/2022 17:07
+Last updated at 08/24/2022 17:08
