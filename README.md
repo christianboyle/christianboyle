@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gHp9A7ikeVuUziTU-hbU9jg-t500x500.jpg">](https://soundcloud.com/alchemistarecords/ar009-javfstrackt-day-11-decoder-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyvMmMwz6IpJz3ez-bkjyYA-t500x500.jpg">](https://soundcloud.com/omasofficial/omas-toxic-summer-2022-live-set)
 
-**Artist**: Alchemista Records 
+**Artist**: OMAS 
 
-**Track**: AR009 Javfstrackt - Day 11 (Decoder Remix)
+**Track**: OMAS TOXIC SUMMER 2022 LIVE SET (TRACKLIST IN DESCRIPTION)
 
-Last updated at 08/24/2022 16:41
+Last updated at 08/24/2022 16:42
