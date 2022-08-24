@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2LgKQD8mCqbjWtzN-ZHvNSg-t500x500.jpg">](https://soundcloud.com/spaceddd/dope-fiendz-mixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FjjCpC6ajkhKFYwR-mKwBbQ-t500x500.jpg">](https://soundcloud.com/kylamartin88/alvarezreloaded)
 
-**Artist**: SPACED 
+**Artist**: ALVAREZ 
 
-**Track**: DOPE FIENDZ
+**Track**: Reloaded ~ Aug 2022
 
-Last updated at 08/23/2022 22:12
+Last updated at 08/23/2022 22:14
