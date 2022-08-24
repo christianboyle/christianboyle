@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8F0vR6sR5D3ltCj8-tdgROw-t500x500.jpg">](https://soundcloud.com/lost_sundays/lost-sundays-sessions-020-human-movement)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wDcO6MrL8NJh4OWc-bMAzBA-t500x500.jpg">](https://soundcloud.com/balamii/morgan-elder-w-twelve-seven-august-2022)
 
-**Artist**: Lost Sundays 
+**Artist**: Balamii 
 
-**Track**: Lost Sundays Sessions 020: Human Movement
+**Track**: Morgan Elder w/ Twelve Seven - August 2022
 
-Last updated at 08/24/2022 10:26
+Last updated at 08/24/2022 11:01
