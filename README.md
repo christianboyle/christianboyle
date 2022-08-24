@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ohn3ndtK49wXmBfk-fcIKiQ-t500x500.jpg">](https://soundcloud.com/darren-styles/live-at-tomorrowland-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sfLI7WhSTbes-0-t500x500.png">](https://soundcloud.com/djtechnoboy/mindcontroller-2k20)
 
-**Artist**: Darren Styles 
+**Artist**: djtechnoboy 
 
-**Track**: Live at Tomorrowland 2022
+**Track**: Mindcontroller 2k20
 
-Last updated at 08/24/2022 16:47
+Last updated at 08/24/2022 17:04
