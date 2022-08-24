@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FjjCpC6ajkhKFYwR-mKwBbQ-t500x500.jpg">](https://soundcloud.com/kylamartin88/alvarezreloaded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdZXILYr7M75xB1N-7IpeCQ-t500x500.jpg">](https://soundcloud.com/pygmalionxxx/afterworld-full-ep)
 
-**Artist**: ALVAREZ 
+**Artist**: pygmalion 
 
-**Track**: Reloaded ~ Aug 2022
+**Track**: AFTERWORLD (FULL EP)
 
-Last updated at 08/23/2022 22:14
+Last updated at 08/24/2022 09:23
