@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e1q8J0mWTAj2PAaX-5M6clA-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/carre-daisychain-240)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwOu7QnvF5ZD1cF1-gNTKSg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/camouflage)
 
-**Artist**: Daisychain 
+**Artist**: kushface ☤ 
 
-**Track**: Daisychain 240 - Carré
+**Track**: CAMOUFLAGE
 
-Last updated at 08/23/2022 21:25
+Last updated at 08/23/2022 21:26
