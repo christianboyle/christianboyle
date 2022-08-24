@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iH26cWwgtRT1-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/hpnotic-what-i-need)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oc5KucL0cJ4XuyD0-DX6Xsw-t500x500.jpg">](https://soundcloud.com/s3rl/not-alone-tatsunoshin-remix)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: S3RL 
 
-**Track**: Hpnotic - What I Need
+**Track**: Not Alone (Tatsunoshin Remix) - S3RL Ft Ella
 
-Last updated at 08/24/2022 17:08
+Last updated at 08/24/2022 17:09
