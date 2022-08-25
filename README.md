@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/yQIt1C5YsYY/maxresdefault.jpg">](https://www.youtube.com/watch?v=yQIt1C5YsYY)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQCqwsMCg8C3-0-t500x500.png">](https://soundcloud.com/subzeroproject/lions?in=subzeroproject/sets/renaissance-of-rave-1)
 
-**Artist**: 
-  
-    Song 1 of 10
-  
-  
-  
-    Song 1 of 10
-  
+**Artist**: Sub Zero Project 
 
+**Track**: Lions
 
-
-
-
- 
-
-**Track**: BLASTERJAXX LIVE @ BOOTSHAUS | 2021 | [FULL SET]
-
-Last updated at 08/24/2022 17:17
+Last updated at 08/24/2022 19:36
