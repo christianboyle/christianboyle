@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dwKQmEYvs4qcA3GO-ex6ANg-t500x500.jpg">](https://soundcloud.com/estellaboersma/the-wave-eb-ten-eight-seven-mastered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgyfxRnloFryuYwB-sc9s7A-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt108-estella-boersma-contact)
 
-**Artist**: Estella Boersma 
+**Artist**: Lobster Theremin 
 
-**Track**: Estella Boersma - The Wave [Lobster Theremin]
+**Track**: LT108 // Estella Boersma - Contact
 
-Last updated at 08/25/2022 08:12
+Last updated at 08/25/2022 08:21
