@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QGTMIUuJWOqDxfsh-flbx9w-t500x500.jpg">](https://soundcloud.com/rawppl/rawcast125-estella-boersma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6VYGgj1pwXzFh47-emq7TA-t500x500.jpg">](https://soundcloud.com/s3rl/history-maker-brisk-x-s3rl-ft-tamika)
 
-**Artist**: RAW 
+**Artist**: S3RL 
 
-**Track**: RAWCAST125 • Estella Boersma
+**Track**: History Maker - Brisk x S3RL ft Tamika
 
-Last updated at 08/25/2022 08:25
+Last updated at 08/25/2022 14:49
