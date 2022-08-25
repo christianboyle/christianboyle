@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/mHPx-nPcMJk/maxresdefault.jpg">](https://www.youtube.com/watch?v=mHPx-nPcMJk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wrlvwksIdMxMmKg-tPmsFg-t500x500.jpg">](https://soundcloud.com/cartinez3/ddm4)
 
-**Artist**: 
-  
-    DJ Smokey
-  
-  
-  
-    DJ Smokey
-  
+**Artist**: Cartinez 
 
+**Track**: Daydreamz Mix Vol IV
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: dj smokey - legalizenukes **NUKE RADIO EXCLUSIVE**
-
-Last updated at 08/25/2022 14:55
+Last updated at 08/25/2022 16:36
