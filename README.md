@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Tyb99XPU4O9KvYY-U0Adeg-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s02e34?in=joncasey/sets/vision-radio-s02e34-co-hosted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YmWSz77eUjjlkv05-ZhVITQ-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-legalizenukes)
 
-**Artist**: VISION 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: VISION Radio S02E34 // Co-hosted by Jon Casey
+**Track**: dj smokey - legalizenukes
 
-Last updated at 08/25/2022 14:51
+Last updated at 08/25/2022 14:52
