@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6VYGgj1pwXzFh47-emq7TA-t500x500.jpg">](https://soundcloud.com/s3rl/history-maker-brisk-x-s3rl-ft-tamika)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbgTw098rswkwTKI-PJpp2A-t500x500.jpg">](https://soundcloud.com/katebi/just-me)
 
-**Artist**: S3RL 
+**Artist**: KATEBI 
 
-**Track**: History Maker - Brisk x S3RL ft Tamika
+**Track**: just me 💔
 
-Last updated at 08/25/2022 14:49
+Last updated at 08/25/2022 14:50
