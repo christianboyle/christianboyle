@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbgTw098rswkwTKI-PJpp2A-t500x500.jpg">](https://soundcloud.com/katebi/just-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Tyb99XPU4O9KvYY-U0Adeg-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s02e34?in=joncasey/sets/vision-radio-s02e34-co-hosted)
 
-**Artist**: KATEBI 
+**Artist**: VISION 
 
-**Track**: just me 💔
+**Track**: VISION Radio S02E34 // Co-hosted by Jon Casey
 
-Last updated at 08/25/2022 14:50
+Last updated at 08/25/2022 14:51
