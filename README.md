@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UchgEqYCMzHmVKev-fupoMw-t500x500.jpg">](https://soundcloud.com/ascentrecordings/bioluminescence-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sx4OPzeMEPrZ1fS7-xoO64w-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-006)
 
 **Artist**: Ascent Recordings 
 
-**Track**: Bioluminescence (Radio Edit)
+**Track**: Ascent Sessions 006 - Scorching Summer Heat
 
-Last updated at 08/26/2022 10:04
+Last updated at 08/26/2022 11:53
