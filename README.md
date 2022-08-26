@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgxlzeVBHQf0A0O3-MuBTbg-t500x500.jpg">](https://soundcloud.com/penciler/take-me-higher-pencil-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ISF19TmvpmqWIQa-wz1jwg-t500x500.jpg">](https://soundcloud.com/ascentrecordings/waiting-for-you-radio-edit?in=ascentrecordings/sets/sancar-yildirim-cenk-eroge-waiting-for-you)
 
-**Artist**: pencil 
+**Artist**: Ascent Recordings 
 
-**Track**: Take Me Higher (pencil Remix) [F/C Aural Adrenaline]
+**Track**: Sancar Yildirim & Cenk Eroge - Waiting For You (Radio Edit)
 
-Last updated at 08/26/2022 09:55
+Last updated at 08/26/2022 09:56
