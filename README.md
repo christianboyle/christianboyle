@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yR5NJZ6g1tyPdf6C-XeCBLQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-543-hardest-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0DTQZuNhSxuo-0-t500x500.jpg">](https://soundcloud.com/hudsonmohawke/hudson-mohawke-expo?in=hudsonmohawke/sets/cry-sugar)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Hudson Mohawke 
 
-**Track**: KTRA Episode 543: Hardest Records
+**Track**: Hudson Mohawke - Expo
 
-Last updated at 08/25/2022 16:39
+Last updated at 08/26/2022 09:50
