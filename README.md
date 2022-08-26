@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YKTANaawGudNuBsr-mubwnQ-t500x500.jpg">](https://soundcloud.com/ascentrecordings/derek-ryan-feat-sarah-de-warren-starts-tonight-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sx4OPzeMEPrZ1fS7-xoO64w-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-006)
 
 **Artist**: Ascent Recordings 
 
-**Track**: Derek Ryan feat. Sarah De Warren - Starts Tonight (Original Mix)
+**Track**: Ascent Sessions 006 - Scorching Summer Heat
 
-Last updated at 08/26/2022 10:01
+Last updated at 08/26/2022 10:02
