@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1Bpus6Fu4eyeAMZ-Qkfi2A-t500x500.jpg">](https://soundcloud.com/xxdustbunnyxy/babylonmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sx4OPzeMEPrZ1fS7-xoO64w-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-006)
 
-**Artist**: dustBunny 
+**Artist**: Ascent Recordings 
 
-**Track**: 𝔏𝔦𝔳𝔢♥ₗₐᵤgₕ♥𝐿𝑜𝓃𝒹𝑜𝓃 - ʙᴀʙʏʟᴏɴ ｍｉｘ(ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴᴄʟᴜᴅᴇᴅ)
+**Track**: Ascent Sessions 006 - Scorching Summer Heat
 
-Last updated at 08/27/2022 08:33
+Last updated at 08/27/2022 12:42
