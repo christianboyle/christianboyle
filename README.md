@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-quuVfny9rI6uU3XP-tQCmng-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-161-strahinja-arbutina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgxlzeVBHQf0A0O3-MuBTbg-t500x500.jpg">](https://soundcloud.com/penciler/take-me-higher-pencil-remix)
 
-**Artist**: Boiler Room 
+**Artist**: pencil 
 
-**Track**: Hard Dance 161: Strahinja Arbutina
+**Track**: Take Me Higher (pencil Remix) [F/C Aural Adrenaline]
 
-Last updated at 08/27/2022 16:38
+Last updated at 08/27/2022 17:37
