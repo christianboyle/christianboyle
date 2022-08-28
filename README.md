@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aWaF9VWTYWpYCyFY-xCAziA-t500x500.jpg">](https://soundcloud.com/smoakland/rise-up-deadbeats-vol-5?in=deadbeatsrecords/sets/we-are-deadbeats-vol-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgxlzeVBHQf0A0O3-MuBTbg-t500x500.jpg">](https://soundcloud.com/penciler/take-me-higher-pencil-remix)
 
-**Artist**: Smoakland 
+**Artist**: pencil 
 
-**Track**: Rise Up
+**Track**: Take Me Higher (pencil Remix) [F/C Aural Adrenaline]
 
-Last updated at 08/27/2022 20:59
+Last updated at 08/27/2022 21:00
