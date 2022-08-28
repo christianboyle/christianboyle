@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbkPNa6E4ClBq5u-y85qdg-t500x500.jpg">](https://soundcloud.com/toshiki-extra/sick-individuals-philip-strand-tungevaag-vs-bts-with-my-dynamites-toshiki-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aWaF9VWTYWpYCyFY-xCAziA-t500x500.jpg">](https://soundcloud.com/smoakland/rise-up-deadbeats-vol-5?in=deadbeatsrecords/sets/we-are-deadbeats-vol-5)
 
-**Artist**: TOSHIKI✪EXTRA 
+**Artist**: Smoakland 
 
-**Track**: SICK INDIVIDUALS, Philip Strand & Tungevaag vs. BTS - With My Dynamites (TOSHIKI Edit)
+**Track**: Rise Up
 
-Last updated at 08/27/2022 20:58
+Last updated at 08/27/2022 20:59
