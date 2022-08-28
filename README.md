@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3I9QwBw6JfYsSjyz-1a3sbQ-t500x500.jpg">](https://soundcloud.com/itsthathades/bliss-w-sage-motionxbeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ItYA9C5TcWO5-0-t500x500.jpg">](https://soundcloud.com/hudsonmohawke/hudson-mohawke-3-sheets-to-the)
 
-**Artist**: hades 
+**Artist**: Hudson Mohawke 
 
-**Track**: bliss. w/ SAGE & motionxbeats
+**Track**: Hudson Mohawke - 3 Sheets To The Wind
 
-Last updated at 08/28/2022 10:26
+Last updated at 08/28/2022 10:27
