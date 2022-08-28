@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536838099-xb96hb-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/splurge)
 
-**Artist**: FIEND WORLD 
+**Artist**: kushface ☤ 
 
-**Track**: TIR3D X CUTSPACE  ~ VERTIGO
+**Track**: SPLURGE
 
-Last updated at 08/27/2022 21:05
+Last updated at 08/27/2022 21:06
