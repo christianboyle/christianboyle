@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000535490400-l1165u-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/throwin-dirt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
 
-**Artist**: kushface ☤ 
+**Artist**: FIEND WORLD 
 
-**Track**: THROWIN DIRT
+**Track**: TIR3D X CUTSPACE  ~ VERTIGO
 
-Last updated at 08/28/2022 14:39
+Last updated at 08/28/2022 14:42
