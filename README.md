@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbgTw098rswkwTKI-PJpp2A-t500x500.jpg">](https://soundcloud.com/katebi/just-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
 
-**Artist**: KATEBI 
+**Artist**: FIEND WORLD 
 
-**Track**: just me 💔
+**Track**: TIR3D X CUTSPACE  ~ VERTIGO
 
-Last updated at 08/27/2022 21:01
+Last updated at 08/27/2022 21:05
