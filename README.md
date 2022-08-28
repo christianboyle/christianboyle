@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgxlzeVBHQf0A0O3-MuBTbg-t500x500.jpg">](https://soundcloud.com/penciler/take-me-higher-pencil-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbgTw098rswkwTKI-PJpp2A-t500x500.jpg">](https://soundcloud.com/katebi/just-me)
 
-**Artist**: pencil 
+**Artist**: KATEBI 
 
-**Track**: Take Me Higher (pencil Remix) [F/C Aural Adrenaline]
+**Track**: just me 💔
 
-Last updated at 08/27/2022 21:00
+Last updated at 08/27/2022 21:01
