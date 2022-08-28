@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnukYQb2bZmdRzVj-K783gw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/tir3d-x-cutspace-vertigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbkPNa6E4ClBq5u-y85qdg-t500x500.jpg">](https://soundcloud.com/toshiki-extra/sick-individuals-philip-strand-tungevaag-vs-bts-with-my-dynamites-toshiki-edit)
 
-**Artist**: FIEND WORLD 
+**Artist**: TOSHIKI✪EXTRA 
 
-**Track**: TIR3D X CUTSPACE  ~ VERTIGO
+**Track**: SICK INDIVIDUALS, Philip Strand & Tungevaag vs. BTS - With My Dynamites (TOSHIKI Edit)
 
-Last updated at 08/28/2022 14:42
+Last updated at 08/28/2022 14:45
