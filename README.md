@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ItYA9C5TcWO5-0-t500x500.jpg">](https://soundcloud.com/hudsonmohawke/hudson-mohawke-3-sheets-to-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KQk2fEz4i8e8JiaU-M8tDZQ-t500x500.png">](https://soundcloud.com/djsabrinatheteenagedj/dj-sabrina-the-teenage-djs-pseudo-quest)
 
-**Artist**: Hudson Mohawke 
+**Artist**: DJ Sabrina The Teenage DJ 
 
-**Track**: Hudson Mohawke - 3 Sheets To The Wind
+**Track**: DJ Sabrina The Teenage DJ's Pseudo Quest
 
-Last updated at 08/28/2022 10:27
+Last updated at 08/28/2022 14:35
