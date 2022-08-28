@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbkPNa6E4ClBq5u-y85qdg-t500x500.jpg">](https://soundcloud.com/toshiki-extra/sick-individuals-philip-strand-tungevaag-vs-bts-with-my-dynamites-toshiki-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3I9QwBw6JfYsSjyz-1a3sbQ-t500x500.jpg">](https://soundcloud.com/itsthathades/bliss-w-sage-motionxbeats)
 
-**Artist**: TOSHIKI✪EXTRA 
+**Artist**: hades 
 
-**Track**: SICK INDIVIDUALS, Philip Strand & Tungevaag vs. BTS - With My Dynamites (TOSHIKI Edit)
+**Track**: bliss. w/ SAGE & motionxbeats
 
-Last updated at 08/28/2022 10:25
+Last updated at 08/28/2022 10:26
