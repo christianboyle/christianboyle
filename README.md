@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3?in=fiendworldwide/sets/cold-sweats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxPdPsUbCpOiYJNQ-KFbztA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/dewaxedbadmanclouds?in=psychocybindeep/sets/dewaxedbadmanclouds)
 
-**Artist**: FIEND WORLD 
+**Artist**: Psychocybin Recordings 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: Dewaxed - Badman Clouds
 
-Last updated at 08/27/2022 21:08
+Last updated at 08/28/2022 10:22
