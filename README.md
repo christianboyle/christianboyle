@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pbyy3vPmmXmdoUFm-6NxEyQ-t500x500.jpg">](https://soundcloud.com/arcadiumproject/shuz-x-frison-mk-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536838099-xb96hb-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/splurge)
 
-**Artist**: The Arcadium Project 
+**Artist**: kushface ☤ 
 
-**Track**: SHUZ X Frison - MK-II
+**Track**: SPLURGE
 
-Last updated at 08/28/2022 14:37
+Last updated at 08/28/2022 14:38
