@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Lzq3Ef8qEdN62Fc-5iP1fg-t500x500.jpg">](https://soundcloud.com/scytheshawty/fuck-u-up-w-thxnder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbkPNa6E4ClBq5u-y85qdg-t500x500.jpg">](https://soundcloud.com/toshiki-extra/sick-individuals-philip-strand-tungevaag-vs-bts-with-my-dynamites-toshiki-edit)
 
-**Artist**: $CYTHE SHAWTY 
+**Artist**: TOSHIKI✪EXTRA 
 
-**Track**: STAINZ w/ THXNDER
+**Track**: SICK INDIVIDUALS, Philip Strand & Tungevaag vs. BTS - With My Dynamites (TOSHIKI Edit)
 
-Last updated at 08/27/2022 20:55
+Last updated at 08/27/2022 20:56
