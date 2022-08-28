@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jz9YIDKvVav8Dzu1-TYpYug-t500x500.jpg">](https://soundcloud.com/euphorixdj/id-2-cd-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0n1GykY4LmdomF6-PoYbrg-t500x500.jpg">](https://soundcloud.com/snipes_uprisin88/snipes-murf-the-mix-2022)
 
-**Artist**: euphorix 
+**Artist**: Deejay Snipes 
 
-**Track**: cardiem
+**Track**: Snipes & Murf - The Mix 2022
 
-Last updated at 08/28/2022 10:23
+Last updated at 08/28/2022 10:24
