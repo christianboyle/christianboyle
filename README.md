@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yR5NJZ6g1tyPdf6C-XeCBLQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-543-hardest-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wynY9fNg7qQgzAff-cVzZYg-t500x500.jpg">](https://soundcloud.com/officialneoqor/foreverremix)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: NeoQor 
 
-**Track**: KTRA Episode 543: Hardest Records
+**Track**: S3RL ft. Sara - Forever (NeoQor Remix)
 
-Last updated at 08/27/2022 17:53
+Last updated at 08/27/2022 20:52
