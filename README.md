@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sx4OPzeMEPrZ1fS7-xoO64w-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-006)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwd4yBlJUtLgy9Bv-1jAmIg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-73-on-beat-106-1)
 
-**Artist**: Ascent Recordings 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Ascent Sessions 006 - Scorching Summer Heat
+**Track**: Bonkers Beats #73 on Beat 106 Scotland with Marc Smith 260822 (Hour 1)
 
-Last updated at 08/28/2022 14:56
+Last updated at 08/29/2022 08:23
