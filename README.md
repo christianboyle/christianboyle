@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwd4yBlJUtLgy9Bv-1jAmIg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-73-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000536838099-xb96hb-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/splurge)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: kushface ☤ 
 
-**Track**: Bonkers Beats #73 on Beat 106 Scotland with Marc Smith 260822 (Hour 1)
+**Track**: SPLURGE
 
-Last updated at 08/30/2022 16:15
+Last updated at 08/30/2022 17:03
