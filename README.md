@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz1CwfQz6Jmvzvkb-oFgKqw-t500x500.jpg">](https://soundcloud.com/capshun/lost-wearedeadbeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjuEA9HsVJVsbkyM-OyNtZg-t500x500.jpg">](https://soundcloud.com/ascentrecordings/u-g-80-000-ft-radio-edit)
 
-**Artist**: capshun 
+**Artist**: Ascent Recordings 
 
-**Track**: Lost
+**Track**: U - G - 80,000 Ft (Radio Edit)
 
-Last updated at 08/30/2022 17:59
+Last updated at 08/30/2022 18:03
