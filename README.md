@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbkPNa6E4ClBq5u-y85qdg-t500x500.jpg">](https://soundcloud.com/toshiki-extra/sick-individuals-philip-strand-tungevaag-vs-bts-with-my-dynamites-toshiki-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz1CwfQz6Jmvzvkb-oFgKqw-t500x500.jpg">](https://soundcloud.com/capshun/lost-wearedeadbeats)
 
-**Artist**: TOSHIKI✪EXTRA 
+**Artist**: capshun 
 
-**Track**: SICK INDIVIDUALS, Philip Strand & Tungevaag vs. BTS - With My Dynamites (TOSHIKI Edit)
+**Track**: Lost
 
-Last updated at 08/30/2022 17:56
+Last updated at 08/30/2022 17:59
