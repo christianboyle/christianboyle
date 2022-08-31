@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g3TBrC7AqSBX6Kuu-LjsVmQ-t500x500.jpg">](https://soundcloud.com/trujeger/cw001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CaZXqEuh3SmB1LIC-4dyr0g-t500x500.jpg">](https://soundcloud.com/higherpowerlabel/higher003-ak-sports-eurostar-ep)
 
-**Artist**: jéger 
+**Artist**: Higher Power 
 
-**Track**: jéger b2b Static Angel @ Cyberwave Monthly 001
+**Track**: HIGHER003 // AK SPORTS - Eurostar EP
 
-Last updated at 08/31/2022 08:26
+Last updated at 08/31/2022 08:28
