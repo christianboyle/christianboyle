@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CaZXqEuh3SmB1LIC-4dyr0g-t500x500.jpg">](https://soundcloud.com/higherpowerlabel/higher003-ak-sports-eurostar-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bO5ekzB2sizJmSez-MWzsGw-t500x500.jpg">](https://soundcloud.com/bassrush/reaper-pulse-slang-dogs-remix)
 
-**Artist**: Higher Power 
+**Artist**: Bassrush 
 
-**Track**: HIGHER003 // AK SPORTS - Eurostar EP
+**Track**: REAPER - PULSE (Slang Dogs Remix)
 
-Last updated at 08/31/2022 08:28
+Last updated at 08/31/2022 09:01
