@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gYxmNLYz5RsxtFud-XdRF6w-t500x500.jpg">](https://soundcloud.com/kyrosradio/episode-011-jimepiza?in=djkostamusic/sets/kyros-radio-episode-011-jime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbgTw098rswkwTKI-PJpp2A-t500x500.jpg">](https://soundcloud.com/katebi/just-me)
 
-**Artist**: Kyros Radio 
+**Artist**: KATEBI 
 
-**Track**: Kyros Radio Episode 011 - Jime Piza (Free Download)
+**Track**: just me 💔
 
-Last updated at 08/30/2022 20:04
+Last updated at 08/30/2022 22:27
