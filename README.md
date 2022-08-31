@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWotY9Nx457QAYeB-KkutyQ-t500x500.jpg">](https://soundcloud.com/pr6ttye/games-prod-sxzu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwd4yBlJUtLgy9Bv-1jAmIg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-73-on-beat-106-1)
 
-**Artist**: PR6TTY E 
+**Artist**: Beat 106 Scotland 
 
-**Track**: 03- Games (prod. SXZU)
+**Track**: Bonkers Beats #73 on Beat 106 Scotland with Marc Smith 260822 (Hour 1)
 
-Last updated at 08/31/2022 09:02
+Last updated at 08/31/2022 09:11
