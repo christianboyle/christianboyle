@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hJOKsB3YRXzbfut-kyZxpg-t500x500.jpg">](https://soundcloud.com/yourcoffin/danger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4s6ddBY2YA4qxFde-Z9ay7g-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-a-parasite)
 
-**Artist**: COFFIN 
+**Artist**: Dan Larkin 
 
-**Track**: COFFIN - Danger
+**Track**: Juniper Fields - Diary of a Parasite (Dan Larkin Remix)
 
-Last updated at 09/03/2022 22:07
+Last updated at 09/03/2022 22:08
