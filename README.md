@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBUKxzQkJfGi4YiS-Vuzvdw-t500x500.jpg">](https://soundcloud.com/g-soiid/baby-ft-fallen-shrine?in=g-soiid/sets/gasoiid-baby-ft-fallen-shrine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHFlqQpuCpkXhXs1-WOVGBw-t500x500.jpg">](https://soundcloud.com/neavesofficial/neave-lazrus-eternal-wrath)
 
-**Artist**: gasoiid² 
+**Artist**: NEAVE$ 
 
-**Track**: ²baby₂ (ft. Fallen Shrine)
+**Track**: NEAVE$ & LAZRUS - ETERNAL WRATH
 
-Last updated at 09/05/2022 12:13
+Last updated at 09/05/2022 12:14
