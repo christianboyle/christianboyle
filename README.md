@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBymrnzDD5jGULwW-Ym89IQ-t500x500.jpg">](https://soundcloud.com/rolandjones/then-hunt-her-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBUKxzQkJfGi4YiS-Vuzvdw-t500x500.jpg">](https://soundcloud.com/g-soiid/baby-ft-fallen-shrine?in=g-soiid/sets/gasoiid-baby-ft-fallen-shrine)
 
-**Artist**: ROLAND JONES 
+**Artist**: gasoiid² 
 
-**Track**: THEN HUNT HER DREAMS
+**Track**: ²baby₂ (ft. Fallen Shrine)
 
-Last updated at 09/05/2022 12:12
+Last updated at 09/05/2022 12:13
