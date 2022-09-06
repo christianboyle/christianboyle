@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zr82Tofy8NbJzI17-MokCmQ-t500x500.jpg">](https://soundcloud.com/droplitz/energy-droplitz-promo-mix-original-unreleased-uptempo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPnZQMy4GkP1NDE6-IEgemQ-t500x500.jpg">](https://soundcloud.com/djslickmusic/edit-pack-vol-9)
 
-**Artist**: DRØPLITZ 
+**Artist**: SLICK 
 
-**Track**: ENERGY- DROPLITZ PROMO MIX- Original/ Unreleased/ Uptempo
+**Track**: EDIT PACK VOL. 9 [Supported by RL GRIME, DJ DIESEL, Flosstradamus, Adventure Club & BENZI]
 
-Last updated at 09/06/2022 08:29
+Last updated at 09/06/2022 09:41
