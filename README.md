@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsiBoQb3zM44nTnO-c4D7Yw-t500x500.jpg">](https://soundcloud.com/lobster-theremin/ltwht034-ravetrx-hardcore-junglist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zr82Tofy8NbJzI17-MokCmQ-t500x500.jpg">](https://soundcloud.com/droplitz/energy-droplitz-promo-mix-original-unreleased-uptempo)
 
-**Artist**: Lobster Theremin 
+**Artist**: DRØPLITZ 
 
-**Track**: LTWHT034 // RAVETRX - Hardcore Junglist
+**Track**: ENERGY- DROPLITZ PROMO MIX- Original/ Unreleased/ Uptempo
 
-Last updated at 09/06/2022 08:28
+Last updated at 09/06/2022 08:29
