@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rVXGGXFwjoW2NSoe-Cgb2kw-t500x500.jpg">](https://soundcloud.com/djslickmusic/slicko-mode-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFGVm8hD5i7f-0-t500x500.png">](https://soundcloud.com/onwrddd/let-me-go-2)
 
-**Artist**: SLICK 
+**Artist**: onwrd 
 
-**Track**: SLICKO MODE VOL. 4
+**Track**: Let Me Go
 
-Last updated at 09/06/2022 09:42
+Last updated at 09/06/2022 10:27
