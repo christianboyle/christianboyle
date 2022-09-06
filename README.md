@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFGVm8hD5i7f-0-t500x500.png">](https://soundcloud.com/onwrddd/let-me-go-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsiBoQb3zM44nTnO-c4D7Yw-t500x500.jpg">](https://soundcloud.com/lobster-theremin/ltwht034-ravetrx-hardcore-junglist)
 
-**Artist**: onwrd 
+**Artist**: Lobster Theremin 
 
-**Track**: Let Me Go
+**Track**: LTWHT034 // RAVETRX - Hardcore Junglist
 
-Last updated at 09/05/2022 12:15
+Last updated at 09/06/2022 08:28
