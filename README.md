@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3LVq3Jueh8Tsvjr-1LBq7A-t500x500.jpg">](https://soundcloud.com/plasticpet/perfect-scarecrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rVXGGXFwjoW2NSoe-Cgb2kw-t500x500.jpg">](https://soundcloud.com/djslickmusic/slicko-mode-vol-4)
 
-**Artist**: plastic pet 
+**Artist**: SLICK 
 
-**Track**: Perfect Scarecrow (ft. Gasoiid)
+**Track**: SLICKO MODE VOL. 4
 
-Last updated at 09/06/2022 14:31
+Last updated at 09/06/2022 14:51
