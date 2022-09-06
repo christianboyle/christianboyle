@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sjlIlOdqIH4hJcTS-b1lI0Q-t500x500.jpg">](https://soundcloud.com/bassrush/slippy-heimanu-only-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R6ovw0KuL7vwDHFx-9SuzzQ-t500x500.jpg">](https://soundcloud.com/declares/summet-solitude-declares-remix)
 
-**Artist**: Bassrush 
+**Artist**: declares. 
 
-**Track**: Slippy, Heimanu - Only You
+**Track**: summet - solitude (declares. remix)
 
-Last updated at 09/06/2022 14:27
+Last updated at 09/06/2022 14:28
