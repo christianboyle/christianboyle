@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFGVm8hD5i7f-0-t500x500.png">](https://soundcloud.com/onwrddd/let-me-go-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBUKxzQkJfGi4YiS-Vuzvdw-t500x500.jpg">](https://soundcloud.com/g-soiid/baby-ft-fallen-shrine)
 
-**Artist**: onwrd 
+**Artist**: gasoiid² 
 
-**Track**: Let Me Go
+**Track**: ²baby₂ (ft. Fallen Shrine)
 
-Last updated at 09/06/2022 16:00
+Last updated at 09/06/2022 16:03
