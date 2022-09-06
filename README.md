@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBUKxzQkJfGi4YiS-Vuzvdw-t500x500.jpg">](https://soundcloud.com/g-soiid/baby-ft-fallen-shrine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3LVq3Jueh8Tsvjr-1LBq7A-t500x500.jpg">](https://soundcloud.com/plasticpet/perfect-scarecrow)
 
-**Artist**: gasoiid² 
+**Artist**: plastic pet 
 
-**Track**: ²baby₂ (ft. Fallen Shrine)
+**Track**: Perfect Scarecrow (ft. Gasoiid)
 
-Last updated at 09/06/2022 12:18
+Last updated at 09/06/2022 12:39
