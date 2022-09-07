@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYL85SlWb0Bcj5hY-sUdrWw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/freshtuff-everything-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Eau9steROaN7z9z-KlqzWg-t500x500.jpg">](https://soundcloud.com/ariaveil/to-the-future)
 
-**Artist**: Dirty Workz 
+**Artist**: ARIA VEIL 
 
-**Track**: Freshtuff - Everything (DWX Copyright Free)
+**Track**: to the future!
 
-Last updated at 09/07/2022 11:01
+Last updated at 09/07/2022 11:02
