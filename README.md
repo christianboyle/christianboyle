@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xnty6Dd1JsqI5Ywh-axrhDw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-hassan-abou-alam-ice-nehza-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-upmbDBqPyhWLvCji-iEKlqg-t500x500.jpg">](https://soundcloud.com/airwolfparadise/massive-ap-edit)
 
-**Artist**: Ransom Note 
+**Artist**: AIRWOLF PARADISE 
 
-**Track**: PREMIERE: Hassan Abou Alam - Ice [Nehza Records]
+**Track**: Massive [Airwolf Paradise Edit] - Drake
 
-Last updated at 09/07/2022 10:36
+Last updated at 09/07/2022 10:41
