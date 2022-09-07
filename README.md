@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8CkxjOtIgyPtWrV-oGABsQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt109-samantha-togni-dark-horse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYL85SlWb0Bcj5hY-sUdrWw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/freshtuff-everything-dwx-copyright-free)
 
-**Artist**: Lobster Theremin 
+**Artist**: Dirty Workz 
 
-**Track**: LT109 // Samantha Togni - Dark Horse
+**Track**: Freshtuff - Everything (DWX Copyright Free)
 
-Last updated at 09/07/2022 10:52
+Last updated at 09/07/2022 11:01
