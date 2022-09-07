@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZfdXf08AyXeQSw6-1JdjSQ-t500x500.jpg">](https://soundcloud.com/itsmsft/the-only)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000441586206-tnf6bu-t500x500.jpg">](https://soundcloud.com/rinsefm/lexdeluxe171118)
 
-**Artist**: msft. 
+**Artist**: Rinse FM 
 
-**Track**: the only [FUXWITHIT Premiere]
+**Track**: Steel City Dance Discs Takeover: Lex Deluxe
 
-Last updated at 09/07/2022 11:25
+Last updated at 09/07/2022 11:26
