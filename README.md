@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RazTNz8uEXqcCg71-1VVrwQ-t500x500.jpg">](https://soundcloud.com/kennedysucks/north-carolina-king-theta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4RNTPQ0jde7k3jf-nvugZA-t500x500.jpg">](https://soundcloud.com/sablevalley/lotus)
 
-**Artist**: ♤kennedyxoxo♤[@kndyxoxo] 
+**Artist**: SABLE VALLEY 
 
-**Track**: north carolina (king theta)
+**Track**: Jon Casey & Oddly Godly - Lotus
 
-Last updated at 09/07/2022 16:56
+Last updated at 09/07/2022 16:58
