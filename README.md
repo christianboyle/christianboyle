@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-upmbDBqPyhWLvCji-iEKlqg-t500x500.jpg">](https://soundcloud.com/airwolfparadise/massive-ap-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2poy2BRc757XCcm-MGjEUg-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf087-fred-p-out-all-night-ep)
 
-**Artist**: AIRWOLF PARADISE 
+**Artist**: Shall Not Fade 
 
-**Track**: Massive [Airwolf Paradise Edit] - Drake
+**Track**: SNF087 // Fred P - Out All Night EP
 
-Last updated at 09/07/2022 10:41
+Last updated at 09/07/2022 10:46
