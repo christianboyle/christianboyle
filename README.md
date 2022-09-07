@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2poy2BRc757XCcm-MGjEUg-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf087-fred-p-out-all-night-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8CkxjOtIgyPtWrV-oGABsQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/lt109-samantha-togni-dark-horse)
 
-**Artist**: Shall Not Fade 
+**Artist**: Lobster Theremin 
 
-**Track**: SNF087 // Fred P - Out All Night EP
+**Track**: LT109 // Samantha Togni - Dark Horse
 
-Last updated at 09/07/2022 10:46
+Last updated at 09/07/2022 10:52
