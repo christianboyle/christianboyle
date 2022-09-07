@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000016937721-0128fh-t500x500.jpg">](https://soundcloud.com/slipmatt-1/jimmy-j-cru-l-t-take-me-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wtc9ciHii4K6y7Vj-rWnzzA-t500x500.jpg">](https://soundcloud.com/remyheartmusic/next-to-me)
 
-**Artist**: Slipmatt 
+**Artist**: Remy Heart 
 
-**Track**: Jimmy J & Cru-L-T - Take Me Away (Slipmatt Remix) 1994
+**Track**: Next To Me
 
-Last updated at 09/06/2022 16:08
+Last updated at 09/07/2022 09:33
