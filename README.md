@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8WpiibK8yWHNcwx-AHridQ-t500x500.jpg">](https://soundcloud.com/gldmusic/watchyourman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ciaw8O237L2HLJW-Zp5ESQ-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps083-sicaria-sound)
 
-**Artist**: GLD 
+**Artist**: ILIAN TAPE 
 
-**Track**: Rico Nasty - Watch Your Man ft. Marshmello (GLD REMIX)  170-90-128BPM
+**Track**: ITPS083 SICARIA SOUND
 
-Last updated at 09/07/2022 09:48
+Last updated at 09/07/2022 09:49
