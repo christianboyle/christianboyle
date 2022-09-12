@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4s6ddBY2YA4qxFde-Z9ay7g-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-a-parasite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCmbgxZmy37hR7PF-qaEzdg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-andy-rantzen-the-blender-mind-dance)
 
-**Artist**: Dan Larkin 
+**Artist**: Ransom Note 
 
-**Track**: Juniper Fields - Diary of a Parasite (Dan Larkin Remix)
+**Track**: PREMIERE: Andy Rantzen - The Blender [Mind Dance]
 
-Last updated at 09/07/2022 17:04
+Last updated at 09/12/2022 09:00
