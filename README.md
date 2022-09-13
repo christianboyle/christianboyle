@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJdQ1vaRFkhEPq0u-nz8oMA-t500x500.png">](https://soundcloud.com/djkaku/crankdat-sara-skinner-welcome-to-the-jungle-kaku-x-808gong-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JnkgAsa31iVP-0-t500x500.png">](https://soundcloud.com/darren-styles/darren-styles-mark-sixma-feat?in=darren-styles/sets/2022-releases)
 
-**Artist**: KAKU 
+**Artist**: Darren Styles 
 
-**Track**: Crankdat & Sara Skinner - Welcome To The Jungle (KAKU x 808GONG REMIX)
+**Track**: Darren Styles & Mark Sixma feat. Noubya - Louder
 
-Last updated at 09/13/2022 10:26
+Last updated at 09/13/2022 10:27
