@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RRE92fAyIg70t1Nw-yf1GaA-t500x500.jpg">](https://soundcloud.com/h-b-recording/divine-phonk-2-full-tape)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/NN1f066QTMU/maxresdefault.jpg">](https://www.youtube.com/watch?v=NN1f066QTMU)
 
-**Artist**: ZER0 
+**Artist**: Bebe Rexha 
 
-**Track**: Divine Phonk Vol. II
+**Track**: David Guetta & I'm Good (Blue) [Official Lyric Video]
 
-Last updated at 09/13/2022 09:27
+Last updated at 09/13/2022 09:40
