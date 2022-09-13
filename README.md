@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozDa9gPhBTa272oV-TxZlVw-t500x500.jpg">](https://soundcloud.com/floatrecords/decoder-kanavugal-float061-previews)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIzocOUUAXLXdyFQ-40nMtA-t500x500.jpg">](https://soundcloud.com/mc4d_official/you-proof-mc4d-remix)
 
-**Artist**: Float Records 
+**Artist**: MC4D 
 
-**Track**: Decoder - Kanavugal [FLOAT061] (previews)
+**Track**: Morgan Wallen - You Proof (MC4D Remix)
 
-Last updated at 09/13/2022 10:08
+Last updated at 09/13/2022 10:15
