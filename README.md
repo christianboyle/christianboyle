@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIA8RSgQeRqKiSlL-9yYszw-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/gurf-big-pizzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DXK0fyCbxU30wllB-h31Aug-t500x500.jpg">](https://soundcloud.com/drevm/pistolgrip-1)
 
-**Artist**: FUXWITHIT 
+**Artist**: DREVM 
 
-**Track**: Gurf - Big Pizzo
+**Track**: pistolgrip
 
-Last updated at 09/13/2022 09:21
+Last updated at 09/13/2022 09:22
