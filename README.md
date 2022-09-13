@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wEmUQMHtX3BU-0-t500x500.png">](https://soundcloud.com/loudluxury/loud-luxury-feat-wav3pop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxFFbj4XixWcL3Xn-74yXiw-t500x500.jpg">](https://soundcloud.com/loudkult/mc4d-gabby-patrice-lose-track)
 
-**Artist**: LOUD LUXURY 
+**Artist**: LoudKult 
 
-**Track**: Loud Luxury feat. WAV3POP - Wasted
+**Track**: MC4D & Gabby Patrice - Lose Track
 
-Last updated at 09/13/2022 09:45
+Last updated at 09/13/2022 09:46
