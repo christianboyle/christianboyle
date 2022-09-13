@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3LVq3Jueh8Tsvjr-1LBq7A-t500x500.jpg">](https://soundcloud.com/plasticpet/perfect-scarecrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFGVm8hD5i7f-0-t500x500.png">](https://soundcloud.com/onwrddd/let-me-go-2)
 
-**Artist**: plastic pet 
+**Artist**: onwrd 
 
-**Track**: Perfect Scarecrow (ft. Gasoiid)
+**Track**: Let Me Go
 
-Last updated at 09/13/2022 09:52
+Last updated at 09/13/2022 10:03
