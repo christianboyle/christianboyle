@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCmbgxZmy37hR7PF-qaEzdg-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-andy-rantzen-the-blender-mind-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000359482632-85t4gr-t500x500.jpg">](https://soundcloud.com/phuturecollective/jack-cates-riverside?in=phuturecollective/sets/fall-vibin)
 
-**Artist**: Ransom Note 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: PREMIERE: Andy Rantzen - The Blender [Mind Dance]
+**Track**: jack cates - riverside
 
-Last updated at 09/12/2022 09:00
+Last updated at 09/13/2022 09:12
