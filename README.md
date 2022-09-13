@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A09X7i1GBhhz-0-t500x500.jpg">](https://soundcloud.com/dimension_uk/offender-1?in=dimension_uk/sets/offender-remixes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJdQ1vaRFkhEPq0u-nz8oMA-t500x500.png">](https://soundcloud.com/djkaku/crankdat-sara-skinner-welcome-to-the-jungle-kaku-x-808gong-remix)
 
-**Artist**: DIMENSION 
+**Artist**: KAKU 
 
-**Track**: Offender
+**Track**: Crankdat & Sara Skinner - Welcome To The Jungle (KAKU x 808GONG REMIX)
 
-Last updated at 09/13/2022 10:25
+Last updated at 09/13/2022 10:26
