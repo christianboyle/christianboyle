@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYyynmlzhZzTGVhG-FLk7hw-t500x500.jpg">](https://soundcloud.com/kaseytaylor/kasey-taylor-live-at-evolution-festival-germany-030922)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIA8RSgQeRqKiSlL-9yYszw-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/gurf-big-pizzo)
 
-**Artist**: Kasey Taylor 
+**Artist**: FUXWITHIT 
 
-**Track**: Kasey Taylor Live at Evolution Festival (Germany) 03/09/22
+**Track**: Gurf - Big Pizzo
 
-Last updated at 09/13/2022 09:20
+Last updated at 09/13/2022 09:21
