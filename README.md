@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxFFbj4XixWcL3Xn-74yXiw-t500x500.jpg">](https://soundcloud.com/loudkult/mc4d-gabby-patrice-lose-track)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SDuvVZaI6kRe4wl-zmkYfA-t500x500.jpg">](https://soundcloud.com/overeasyofficial/liarliar)
 
-**Artist**: LoudKult 
+**Artist**: OVER EASY 
 
-**Track**: MC4D & Gabby Patrice - Lose Track
+**Track**: Over Easy & J12 - Liar Liar
 
-Last updated at 09/13/2022 09:46
+Last updated at 09/13/2022 09:47
