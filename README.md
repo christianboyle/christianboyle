@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JYcoqeTzmZQOzYk-5ZSI7g-t500x500.jpg">](https://soundcloud.com/aexhy/02-aexhy-x-dj-traytex-glasversteck-fallen-shrine-nxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozDa9gPhBTa272oV-TxZlVw-t500x500.jpg">](https://soundcloud.com/floatrecords/decoder-kanavugal-float061-previews)
 
-**Artist**: AEXHY 
+**Artist**: Float Records 
 
-**Track**: 02. Aexhy X Dj Traytex - Glasversteck (Fallen Shrine nxc)
+**Track**: Decoder - Kanavugal [FLOAT061] (previews)
 
-Last updated at 09/13/2022 10:07
+Last updated at 09/13/2022 10:08
