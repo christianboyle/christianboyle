@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egfGRMgs4ilG5xNF-psdb7Q-t500x500.jpg">](https://soundcloud.com/freshbvked/milano-dark-energy-fresh-bvked-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLJ4CtkYYzy3NMDm-C1K6Fw-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/your-thang-free-download)
 
-**Artist**: FRESH BVKED 
+**Artist**: Smokestax 
 
-**Track**: Milano - Dark Energy (FRESH BVKED Remix)
+**Track**: Your Thang (Free Download)
 
-Last updated at 09/13/2022 09:23
+Last updated at 09/13/2022 09:24
