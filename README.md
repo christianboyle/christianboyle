@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vcYIToKXH2oClut-5XZiQA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-on-beat-106-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PL44MxsxMYDVoNu6-JoMi8Q-t500x500.jpg">](https://soundcloud.com/jakka-b/ultimate-high)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Jakka-B 
 
-**Track**: Bonkers Beats #75 on Beat 106 Scotland with Jakka B 090922 (Hour 1)
+**Track**: Stargazer - Ultimate High (Jakka-B Remix) [Free Download]
 
-Last updated at 09/14/2022 09:29
+Last updated at 09/14/2022 10:02
