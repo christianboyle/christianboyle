@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000485197674-oaqtql-t500x500.jpg">](https://soundcloud.com/beatlabradio/rohaan-exclusive-mix-beat-lab-radio-230?in=beatlabradio/sets/beat-lab-230)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vcYIToKXH2oClut-5XZiQA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-on-beat-106-7)
 
-**Artist**: Beat Lab Radio 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Rohaan - Exclusive Mix - Beat Lab Radio 230
+**Track**: Bonkers Beats #75 on Beat 106 Scotland with Jakka B 090922 (Hour 1)
 
-Last updated at 09/14/2022 09:19
+Last updated at 09/14/2022 09:20
