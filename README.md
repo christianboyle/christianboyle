@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6fgv14OTEb6ZFpN-Tk1xgA-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd207-terminus-ep-b2bk-schrodingers-box)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32JJF8pY7JMEEtZA-wzYbsw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-tony-y-not-send-me-up-me-me-me)
 
-**Artist**: scarreddigital.com 
+**Artist**: Ransom Note 
 
-**Track**: SD207 Terminus EP -  B2BK - Schrödinger's Box. Release 14/7/2022
+**Track**: PREMIERE: Tony Y Not - Send Me Up [Me Me Me]
 
-Last updated at 09/14/2022 08:08
+Last updated at 09/14/2022 08:09
