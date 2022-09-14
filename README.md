@@ -1,9 +1,9 @@
 ## Currently Playing on YTMusic
 
-[<img align="left" width="100" src="https://lh3.googleusercontent.com/339pPEl6bswtwzsDr9Gan5_VLaYlz4CiTf87JhSKHEWToSBe6k8KgU1TX0-vq3cp1gV6MjF_BrRgXkYN">](https://music.youtube.com/watch?v=OaYX8cOtw7o)
+[<img align="left" width="100" src="https://lh3.googleusercontent.com/DH06-uIGHbCggulSlumVp2lRccgZvcADgGUEeQyRRX_YA5Bi812UQDjaKsD5P8z649CMc_wk-MqxWrDH">](https://music.youtube.com/watch?v=5JScYWHBxcw)
 
-**Artist**: Sultan + Shepard 
+**Artist**: Fred again.. & The Blessed Madonna 
 
-**Track**: American Dream
+**Track**: Marea (we’ve lost dancing)
 
-Last updated at 09/14/2022 09:24
+Last updated at 09/14/2022 09:26
