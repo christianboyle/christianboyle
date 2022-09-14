@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3p4PXWREonwGi6fO-uOVBLA-t500x500.jpg">](https://soundcloud.com/rinsefm/lobstertheremin090922)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SV8HWZE2KBjo1yvL-tY8DkA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/alleviate-drifting-in-the-dark-dwx-copyright-free)
 
-**Artist**: Rinse FM 
+**Artist**: Dirty Workz 
 
-**Track**: Lobster Theremin with DJ Fucci - 09 September 2022
+**Track**: Alleviate - Drifting In The Dark (DWX Copyright Free)
 
-Last updated at 09/14/2022 09:10
+Last updated at 09/14/2022 09:11
