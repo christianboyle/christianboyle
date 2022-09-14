@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32JJF8pY7JMEEtZA-wzYbsw-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-tony-y-not-send-me-up-me-me-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dkuRHrDH6P5txYwi-hGpgyQ-t500x500.jpg">](https://soundcloud.com/psychlodnb/magnetic-man-i-need-air-psychlo-bootleg)
 
-**Artist**: Ransom Note 
+**Artist**: PSYCHLO 
 
-**Track**: PREMIERE: Tony Y Not - Send Me Up [Me Me Me]
+**Track**: Magnetic Man - I Need Air (Psychlo Bootleg)[FREE DL]
 
-Last updated at 09/14/2022 08:09
+Last updated at 09/14/2022 08:10
