@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YTMusic
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vcYIToKXH2oClut-5XZiQA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-on-beat-106-7)
+[<img align="left" width="100" src="https://lh3.googleusercontent.com/339pPEl6bswtwzsDr9Gan5_VLaYlz4CiTf87JhSKHEWToSBe6k8KgU1TX0-vq3cp1gV6MjF_BrRgXkYN">](https://music.youtube.com/watch?v=OaYX8cOtw7o)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Sultan + Shepard 
 
-**Track**: Bonkers Beats #75 on Beat 106 Scotland with Jakka B 090922 (Hour 1)
+**Track**: American Dream
 
-Last updated at 09/14/2022 09:20
+Last updated at 09/14/2022 09:24
