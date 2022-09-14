@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bdSVCFeOyOwGAglE-pY712A-t500x500.jpg">](https://soundcloud.com/darren-styles/hard-generation-with-darren-styles-episode-04-anime-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6fgv14OTEb6ZFpN-Tk1xgA-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd207-terminus-ep-b2bk-schrodingers-box)
 
-**Artist**: Darren Styles 
+**Artist**: scarreddigital.com 
 
-**Track**: Hard Generation with Darren Styles - Episode 04 - AniMe Guest Mix
+**Track**: SD207 Terminus EP -  B2BK - Schrödinger's Box. Release 14/7/2022
 
-Last updated at 09/13/2022 10:40
+Last updated at 09/14/2022 08:08
