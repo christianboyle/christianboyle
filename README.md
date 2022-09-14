@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SV8HWZE2KBjo1yvL-tY8DkA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/alleviate-drifting-in-the-dark-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGpzR3rSBI4nfMUB-4teGgw-t500x500.jpg">](https://soundcloud.com/bearboymusica/bear-boy-mix-set-double-target)
 
-**Artist**: Dirty Workz 
+**Artist**: Bear Boy 
 
-**Track**: Alleviate - Drifting In The Dark (DWX Copyright Free)
+**Track**: Bear Boy Mixset : Double Target
 
-Last updated at 09/14/2022 09:11
+Last updated at 09/14/2022 09:12
