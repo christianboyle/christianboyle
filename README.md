@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YywCm6P8anWBDNVd-4Nzepg-t500x500.jpg">](https://soundcloud.com/softesthard/do-over-feat-stacy-barthe?in=hardfest/sets/softest-hard-do-over-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aareLhihO8pbwn6w-EF8KyA-t500x500.jpg">](https://soundcloud.com/manilakilla/manila-killa-live-hard-summer-2021)
 
-**Artist**: Softest Hard 
+**Artist**: Manila Killa 
 
-**Track**: Do Over feat. Stacy Barthe
+**Track**: MANILA KILLA LIVE @ HARD SUMMER 2021
 
-Last updated at 09/16/2022 15:54
+Last updated at 09/16/2022 15:55
