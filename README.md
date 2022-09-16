@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxpuZz5AmB8nJUql-zct06g-t500x500.jpg">](https://soundcloud.com/whoskid/kd-three-in-the-morning-ft-cecilia-gault?in=hardfest/sets/k-d-three-in-the-morning-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TO7MWM3EVQRDYXXy-88yxsA-t500x500.jpg">](https://soundcloud.com/xandg/mtv)
 
-**Artist**: k?d 
+**Artist**: X&G 
 
-**Track**: k?d - THREE IN THE MORNING (ft Cecilia Gault)
+**Track**: Nitepunk - MTV (X&G Remix)
 
-Last updated at 09/16/2022 15:52
+Last updated at 09/16/2022 15:53
