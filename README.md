@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578203178-nroaq2-t500x500.jpg">](https://soundcloud.com/ninety9lives/friendzone-alone-feat-sara-skinner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbLkzcWgDYizKUMI-zpG9yg-t500x500.jpg">](https://soundcloud.com/s3rl/random-encounter)
 
-**Artist**: Ninety9Lives 
+**Artist**: S3RL 
 
-**Track**: Friendzone - Alone (feat. Sara Skinner)
+**Track**: Random Encounter - S3RL Vs NeoQor ft IC3MANIA
 
-Last updated at 09/16/2022 15:57
+Last updated at 09/16/2022 15:58
