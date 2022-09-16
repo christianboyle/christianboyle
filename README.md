@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRDa0AKeVaFZUhVr-ztzr3A-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/coldwar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000662009113-cexezi-t500x500.jpg">](https://soundcloud.com/basscon/geo-dreams)
 
-**Artist**: GEO 
+**Artist**: BASSCON 
 
-**Track**: GEO FT JOSH RUBIN - COLD WAR
+**Track**: GEO - Dreams
 
-Last updated at 09/16/2022 16:05
+Last updated at 09/16/2022 16:06
