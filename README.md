@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vcYIToKXH2oClut-5XZiQA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-on-beat-106-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0fdUhpmz0Dzfog7-ZkqZLQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe130)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Gearbox Digital 
 
-**Track**: Bonkers Beats #75 on Beat 106 Scotland with Jakka B 090922 (Hour 1)
+**Track**: Avi8 - Outta My Head [GBE130]
 
-Last updated at 09/14/2022 10:05
+Last updated at 09/16/2022 14:30
