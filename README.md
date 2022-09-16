@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbLkzcWgDYizKUMI-zpG9yg-t500x500.jpg">](https://soundcloud.com/s3rl/random-encounter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dhxT1pM22l2XHhVy-XLWSRA-t500x500.jpg">](https://soundcloud.com/s3rl/forever-neoqor-remix)
 
 **Artist**: S3RL 
 
-**Track**: Random Encounter - S3RL Vs NeoQor ft IC3MANIA
+**Track**: Forever (NeoQor Remix) - S3RL
 
-Last updated at 09/16/2022 15:58
+Last updated at 09/16/2022 15:59
