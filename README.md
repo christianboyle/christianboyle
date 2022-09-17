@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JZeX8uAKVGO1gJN-I6al4g-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc185)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdPGtkx9oZYZZW9a-VrTMDQ-t500x500.jpg">](https://soundcloud.com/y3krecords/radio-y3k-008)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Y3K 
 
-**Track**: NXC185 - LADY'S ONLY - Keep It Real (WORLDWIDEWOLF EUROGARAGE REMIX)
+**Track**: Radio Y3K - 008
 
-Last updated at 09/17/2022 13:33
+Last updated at 09/17/2022 13:34
