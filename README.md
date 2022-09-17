@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdPGtkx9oZYZZW9a-VrTMDQ-t500x500.jpg">](https://soundcloud.com/y3krecords/radio-y3k-008)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqIlFSbjymT87wfz-jgpmOA-t500x500.jpg">](https://soundcloud.com/stripess/lovesomebody)
 
-**Artist**: Y3K 
+**Artist**: stripess 
 
-**Track**: Radio Y3K - 008
+**Track**: love somebody
 
-Last updated at 09/17/2022 13:34
+Last updated at 09/17/2022 14:49
