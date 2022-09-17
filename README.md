@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NEEzDIX0o5zxO4yZ-2aSLXw-t500x500.jpg">](https://soundcloud.com/pictureus/abdominal-assault-db-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000308888112-05nupy-t500x500.jpg">](https://soundcloud.com/nitecorp/rabbit-crime-boyz?in=nitecorp/sets/frequency)
 
-**Artist**: PictureUs 
+**Artist**: NITE CORP. 
 
-**Track**: DNB BABY - PICTUREUS + LIQUIDSTYLEZ
+**Track**: Rabbit Crime - Boyz
 
-Last updated at 09/17/2022 13:27
+Last updated at 09/17/2022 13:28
