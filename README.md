@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGW00CZyKv7XRRqQ-qbu1jg-t500x500.jpg">](https://soundcloud.com/pictureus/let-it-house-pictureus-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NEEzDIX0o5zxO4yZ-2aSLXw-t500x500.jpg">](https://soundcloud.com/pictureus/abdominal-assault-db-mix)
 
 **Artist**: PictureUs 
 
-**Track**: LET IT HOUSE - PICTUREUS MIX
+**Track**: DNB BABY - PICTUREUS + LIQUIDSTYLEZ
 
-Last updated at 09/17/2022 13:26
+Last updated at 09/17/2022 13:27
