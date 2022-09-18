@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000118962767-7o38ce-t500x500.jpg">](https://soundcloud.com/djtechnoboy/tnt-headhunterz-synergy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEcDMW0xJhti4uy5-491WBQ-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-knock-out-knckd-remix?in=holytrapmusic/sets/komplvint-knock-out-remixes)
 
-**Artist**: djtechnoboy 
+**Artist**: Holy Trap 
 
-**Track**: TNT & Headhunterz - Synergy
+**Track**: KOMPLVINT - KNOCK OUT (KNCKD REMIX)
 
-Last updated at 09/17/2022 21:58
+Last updated at 09/18/2022 08:01
