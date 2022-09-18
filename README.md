@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-559ICE9zIPPJUq0c-Caxsfw-t500x500.jpg">](https://soundcloud.com/nitepunk/gentlemens-club-1999-nitepunk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000854792504-v7v3ke-t500x500.jpg">](https://soundcloud.com/skrillex/kliptown-empyrean)
 
-**Artist**: Nitepunk 
+**Artist**: Skrillex 
 
-**Track**: Gentlemens Club - 1999 (Nitepunk Remix)
+**Track**: Kliptown Empyrean
 
-Last updated at 09/17/2022 20:36
+Last updated at 09/17/2022 20:37
