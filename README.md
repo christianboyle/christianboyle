@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LlBAyfD5TMej-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-ft-drean-your-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lixCXs7MfYzDyJPY-Bzyygg-t500x500.jpg">](https://soundcloud.com/basscon/quickdrop-its-me?in=basscon/sets/basscon-recon-volume-2)
 
-**Artist**: Gearbox Digital 
+**Artist**: BASSCON 
 
-**Track**: Avi8 ft. Drean - Your Light
+**Track**: Quickdrop - It's Me
 
-Last updated at 09/17/2022 20:47
+Last updated at 09/17/2022 21:06
