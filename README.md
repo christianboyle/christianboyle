@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9oVYpshfuKST-0-t500x500.jpg">](https://soundcloud.com/from-first-to-last/surrender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0fdUhpmz0Dzfog7-ZkqZLQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe130)
 
-**Artist**: From First To Last 
+**Artist**: Gearbox Digital 
 
-**Track**: Surrender
+**Track**: Avi8 - Outta My Head [GBE130]
 
-Last updated at 09/17/2022 20:38
+Last updated at 09/17/2022 20:43
