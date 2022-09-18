@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGW00CZyKv7XRRqQ-qbu1jg-t500x500.jpg">](https://soundcloud.com/pictureus/let-it-house-pictureus-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HHIiuMith7cKrgWF-nuOotg-t500x500.jpg">](https://soundcloud.com/bitbirdradio/torr-presents-bitbird-radio-108)
 
-**Artist**: PictureUs 
+**Artist**: bitbird radio 
 
-**Track**: LET IT HOUSE - PICTUREUS MIX
+**Track**: torr Presents: bitbird radio #108
 
-Last updated at 09/17/2022 20:29
+Last updated at 09/17/2022 20:30
