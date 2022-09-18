@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DgM7fkRzJFGFLxY-zzHaUg-t500x500.jpg">](https://soundcloud.com/officialstaysick/throw-sum-mo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwXJOQT5tZ7PED1v-1zrcDA-t500x500.jpg">](https://soundcloud.com/adieusounds/concreto2)
 
-**Artist**: Staysick 
+**Artist**: adieu 
 
-**Track**: Throw Sum Mo
+**Track**: concreto²
 
-Last updated at 09/18/2022 08:02
+Last updated at 09/18/2022 08:03
