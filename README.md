@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TB0OmskzJUU3JOt0-LIdCBw-t500x500.jpg">](https://soundcloud.com/basscon/soren-rave-music-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-013L3yWJXrowYkhd-yXpGQQ-t500x500.jpg">](https://soundcloud.com/t0rr/the-scientific-method)
 
-**Artist**: BASSCON 
+**Artist**: torr 
 
-**Track**: SOREN - Rave Music
+**Track**: the scientific method
 
-Last updated at 09/17/2022 21:08
+Last updated at 09/17/2022 21:09
