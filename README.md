@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jcu7O96yo8RJiJ3-SN1LLA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/kamas-starlight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000221796387-8h9nxv-t500x500.jpg">](https://soundcloud.com/auxparis/congrats)
 
-**Artist**: Simplify. 
+**Artist**: Aux Paris 
 
-**Track**: Kamas - Starlight
+**Track**: Post Malone - Congratulations (BKAYE X TELYKast Remix)
 
-Last updated at 09/17/2022 20:31
+Last updated at 09/17/2022 20:32
