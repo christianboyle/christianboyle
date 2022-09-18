@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HHIiuMith7cKrgWF-nuOotg-t500x500.jpg">](https://soundcloud.com/bitbirdradio/torr-presents-bitbird-radio-108)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jcu7O96yo8RJiJ3-SN1LLA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/kamas-starlight)
 
-**Artist**: bitbird radio 
+**Artist**: Simplify. 
 
-**Track**: torr Presents: bitbird radio #108
+**Track**: Kamas - Starlight
 
-Last updated at 09/17/2022 20:30
+Last updated at 09/17/2022 20:31
