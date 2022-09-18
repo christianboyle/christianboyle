@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEcDMW0xJhti4uy5-491WBQ-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-knock-out-knckd-remix?in=holytrapmusic/sets/komplvint-knock-out-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DgM7fkRzJFGFLxY-zzHaUg-t500x500.jpg">](https://soundcloud.com/officialstaysick/throw-sum-mo)
 
-**Artist**: Holy Trap 
+**Artist**: Staysick 
 
-**Track**: KOMPLVINT - KNOCK OUT (KNCKD REMIX)
+**Track**: Throw Sum Mo
 
-Last updated at 09/18/2022 08:01
+Last updated at 09/18/2022 08:02
