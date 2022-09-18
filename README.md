@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LmA9bzgDe0Vv-0-t500x500.png">](https://soundcloud.com/djtechnoboy/got-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrliJzIZTk9K-0-t500x500.jpg">](https://soundcloud.com/djtechnoboy/lets-get-together-radio-mix)
 
 **Artist**: djtechnoboy 
 
-**Track**: Got The Music
+**Track**: Let's Get Together (Radio Mix)
 
-Last updated at 09/17/2022 21:55
+Last updated at 09/17/2022 21:56
