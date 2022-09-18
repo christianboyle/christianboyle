@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LmA9bzgDe0Vv-0-t500x500.png">](https://soundcloud.com/djtechnoboy/got-the-music)
 
-**Artist**: SOREN 
+**Artist**: djtechnoboy 
 
-**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
+**Track**: Got The Music
 
-Last updated at 09/17/2022 21:51
+Last updated at 09/17/2022 21:55
