@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyUTxpwE1ayUrVdn-qmu6AA-t500x500.jpg">](https://soundcloud.com/weirdnxc/piccolo-nx3-un10n-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsNNyjMCNH7vDEaf-JyY8zQ-t500x500.jpg">](https://soundcloud.com/brainsickrecords/kozik-descendant)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Brainsick Records 
 
-**Track**: pìccolo - nx3 un10n
+**Track**: KOZIK - Descendant
 
-Last updated at 09/18/2022 09:05
+Last updated at 09/18/2022 09:06
