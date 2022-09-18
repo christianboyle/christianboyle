@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rG0wR2TXkmAEgdSG-OdbZ9w-t500x500.jpg">](https://soundcloud.com/ripavah/strawberryperfume)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pkN5hwgEdHOB-0-t500x500.jpg">](https://soundcloud.com/hereisalden/go-away-feat-midwxst)
 
-**Artist**: avah 
+**Artist**: aldn 
 
-**Track**: strawberry perfume (siem spark + heyrick)
+**Track**: go away (feat. midwxst)
 
-Last updated at 09/17/2022 21:40
+Last updated at 09/17/2022 21:42
