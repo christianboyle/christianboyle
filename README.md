@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6P8Lriqrvy23laep-G5RDnQ-t500x500.jpg">](https://soundcloud.com/killnord/seven-deadly-sins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rG0wR2TXkmAEgdSG-OdbZ9w-t500x500.jpg">](https://soundcloud.com/ripavah/strawberryperfume)
 
-**Artist**: killnord 
+**Artist**: avah 
 
-**Track**: seven deadly sins
+**Track**: strawberry perfume (siem spark + heyrick)
 
-Last updated at 09/17/2022 21:39
+Last updated at 09/17/2022 21:40
