@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eVNJYkNTJXChzdZj-zCUAVg-t500x500.jpg">](https://soundcloud.com/street_ritual/lhomie-dark-nrg-headbang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGW00CZyKv7XRRqQ-qbu1jg-t500x500.jpg">](https://soundcloud.com/pictureus/let-it-house-pictureus-mix)
 
-**Artist**: Street Ritual 
+**Artist**: PictureUs 
 
-**Track**: L'Homie - DARK NRG [Headbang Society Premiere]
+**Track**: LET IT HOUSE - PICTUREUS MIX
 
-Last updated at 09/17/2022 20:28
+Last updated at 09/17/2022 20:29
