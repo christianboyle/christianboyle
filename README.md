@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnT2J7PEUA5x-0-t500x500.jpg">](https://soundcloud.com/1glaive/fuck-this-town?in=1glaive/sets/then-ill-be-happy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F786dldJ094o-0-t500x500.jpg">](https://soundcloud.com/ericdoa/back-n-forth)
 
-**Artist**: glaive 
+**Artist**: ericdoa 
 
-**Track**: fuck this town
+**Track**: back n forth
 
-Last updated at 09/17/2022 21:35
+Last updated at 09/17/2022 21:37
