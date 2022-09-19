@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLYOXmYVdUcMXLce-q5LoYw-t500x500.jpg">](https://soundcloud.com/berrymane/premeditated-murder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tOtm3OkivBOgTekx-Ae9zOA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-76-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-76-on-beat-106-scotland-with-cally-j-trax-ravine)
 
-**Artist**: BERRYMANE 
+**Artist**: Beat 106 Scotland 
 
-**Track**: ROLAND JONES & BERRYMANE - PREMEDITATED MURDER
+**Track**: Bonkers Beats #76 on Beat 106 Scotland with Cally (J-Trax guest mix) 160922 (Hour 1)
 
-Last updated at 09/18/2022 09:07
+Last updated at 09/19/2022 10:31
