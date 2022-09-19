@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GKy9ezvBnORjTvJ-kfMHjw-t500x500.jpg">](https://soundcloud.com/the-funky-cat/invocation-d00d-remix?in=the-funky-cat/sets/remixed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-40z2IZ4x4aHhPbhz-6Nkyqg-t500x500.jpg">](https://soundcloud.com/the-funky-cat/exklusive-brimborium?in=the-funky-cat/sets/exklusive-brimborium)
 
 **Artist**: The Funky Cat 
 
-**Track**: Geck-o - Invocation (D00d Remix) 👉🙂👈
+**Track**: STOIK - Exklusive Brimborium
 
-Last updated at 09/19/2022 14:15
+Last updated at 09/19/2022 14:16
