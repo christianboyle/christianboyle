@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgEGFpV9fEaJ601y-eN6E9g-t500x500.jpg">](https://soundcloud.com/mazaretheparacosm/mazare-presents-the-paracosm-007-insomniac-radio)
 
-**Artist**: SOREN 
+**Artist**: The Paracosm with Mazare 
 
-**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
+**Track**: Mazare Presents: The Paracosm #007 [Insomniac Radio]
 
-Last updated at 09/20/2022 11:27
+Last updated at 09/20/2022 14:19
