@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VIr4zAaZnACn99pg-nuRnGw-t500x500.jpg">](https://soundcloud.com/xdezend/acraze-do-it-to-it-xdezend-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEA9cIS4J5TVwh2L-auKE0Q-t500x500.jpg">](https://soundcloud.com/the-ransom-note/premiere-xindl-smash-bowser-subject-to-restrictions-discs)
 
-**Artist**: XDezend 
+**Artist**: Ransom Note 
 
-**Track**: Acraze - Do It To It (XDezend Remix)
+**Track**: PREMIERE: XINDL - Smash Bowser [Subject To Restrictions Discs]
 
-Last updated at 09/20/2022 10:35
+Last updated at 09/20/2022 10:39
