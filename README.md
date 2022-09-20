@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-465WIsLfjIgGutha-zk2HVw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/gomperzmiownizewhatisay?in=psychocybinpromotions/sets/recent-bangers)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/3CkLMG5NwUg/maxresdefault.jpg">](https://www.youtube.com/watch?v=3CkLMG5NwUg)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Morgan Wallen 
 
-**Track**: Gomperz & MioWnize - What I Say
+**Track**: You Proof (Official Music Video)
 
-Last updated at 09/20/2022 10:12
+Last updated at 09/20/2022 10:16
