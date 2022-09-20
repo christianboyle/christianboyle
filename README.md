@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D3OPhrPLRWZF3QXb-ydHyhw-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/snakes-in-the-grass-dirt-tape-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7v6wRjV86FaFDsu-IYqzCQ-t500x500.jpg">](https://soundcloud.com/katebi/rotterdam-wkushface)
 
-**Artist**: kushface ☤ 
+**Artist**: katebi 
 
-**Track**: SNAKES IN THE GRASS (*DIRT TAPE V*)
+**Track**: Rotterdam w/KUSHFACE
 
-Last updated at 09/19/2022 21:15
+Last updated at 09/19/2022 21:16
