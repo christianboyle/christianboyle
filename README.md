@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/NgPmRt3OYXs/maxresdefault.jpg">](https://www.youtube.com/watch?v=NgPmRt3OYXs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NICl3O3A0JRBNhqy-yYiZBQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/fullspeed)
 
-**Artist**: FORGOTTENAGE 
+**Artist**: kushface ☤ 
 
-**Track**: END OF THE WORLD
+**Track**: FULLSPEED
 
-Last updated at 09/19/2022 21:11
+Last updated at 09/19/2022 21:12
