@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9quJ3ptIiQJdSet-yg9nDg-t500x500.jpg">](https://soundcloud.com/lizdek/radiowave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0hbRRDokRd9sYvzO-iZgSEQ-t500x500.jpg">](https://soundcloud.com/lizdek/outlaw_01?in=lizdek/sets/gemini)
 
 **Artist**: Lizdek 
 
-**Track**: Radiowave
+**Track**: outlaw_01
 
-Last updated at 09/20/2022 10:58
+Last updated at 09/20/2022 10:59
