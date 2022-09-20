@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EwSsiXkss5Fwm88q-wGq5EQ-t500x500.jpg">](https://soundcloud.com/knetica/laststand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svzv4IWuMCsKR3as-Bgplzw-t500x500.jpg">](https://soundcloud.com/mostafa-ryad/four-to_the-floor)
 
-**Artist**: Knetica 
+**Artist**: XRayda 
 
-**Track**: Last Stand
+**Track**: OLD 4 Two The Floor (Original mix)
 
-Last updated at 09/19/2022 21:21
+Last updated at 09/19/2022 21:22
