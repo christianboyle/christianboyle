@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWQGd1oUkwDHxAfk-FQMsyA-t500x500.jpg">](https://soundcloud.com/shallnotfade/palms054-dj-psychiatre-lucidity-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kOLuDTP9822HJ6rX-vKSELA-t500x500.jpg">](https://soundcloud.com/ivankobishh/a-song-for-everyone-who-hears)
 
-**Artist**: Shall Not Fade 
+**Artist**: IVANKO (@vankobishh) 
 
-**Track**: PALMS054 // DJ Psychiatre - Lucidity EP
+**Track**: A SONG FOR EVERYONE WHO HEARS IT
 
-Last updated at 09/20/2022 10:53
+Last updated at 09/20/2022 10:56
