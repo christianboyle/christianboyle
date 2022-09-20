@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/3CkLMG5NwUg/maxresdefault.jpg">](https://www.youtube.com/watch?v=3CkLMG5NwUg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxPdPsUbCpOiYJNQ-KFbztA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/dewaxedbadmanclouds?in=psychocybinpromotions/sets/recent-bangers)
 
-**Artist**: Morgan Wallen 
+**Artist**: Psychocybin Recordings 
 
-**Track**: You Proof (Official Music Video)
+**Track**: Dewaxed - Badman Clouds
 
-Last updated at 09/20/2022 10:16
+Last updated at 09/20/2022 10:20
