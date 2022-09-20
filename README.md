@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wojZSHZqrNTucm3-Eg3BrA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/devioussick?in=psychocybinpromotions/sets/recent-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3VusT61rpf0uIyI-AQxouw-t500x500.jpg">](https://soundcloud.com/rough-records316/sythyst-lazrus-reaper)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Rough Records 
 
-**Track**: Devious - Sick
+**Track**: SYTHYST & LAZRUS - REAPER
 
-Last updated at 09/20/2022 10:26
+Last updated at 09/20/2022 10:29
