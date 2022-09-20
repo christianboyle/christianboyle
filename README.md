@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OYKi0D0oTzDE1lR-ETCOZA-t500x500.jpg">](https://soundcloud.com/slangdogs/shanghai-doom-platinum-artists-slang-dogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BRic7gUEPSAeOtNI-sMssdg-t500x500.jpg">](https://soundcloud.com/aylen/shanghai-doom-platinum-artists-aylen-remix)
 
-**Artist**: Slang Dogs 
+**Artist**: Aylen 
 
-**Track**: Shanghai Doom - Platinum Artists (Slang Dogs Remix)
+**Track**: Shanghai Doom - Platinum Artists (Aylen Remix)
 
-Last updated at 09/20/2022 16:02
+Last updated at 09/20/2022 16:03
