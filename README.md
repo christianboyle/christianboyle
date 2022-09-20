@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3VusT61rpf0uIyI-AQxouw-t500x500.jpg">](https://soundcloud.com/rough-records316/sythyst-lazrus-reaper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kN9oZy9rnK9oHS18-2tJI0g-t500x500.jpg">](https://soundcloud.com/vlcnofficial/excision-decimate-vlcn-remix-1)
 
-**Artist**: Rough Records 
+**Artist**: VLCN 
 
-**Track**: SYTHYST & LAZRUS - REAPER
+**Track**: Excision - Decimate (VLCN Remix)
 
-Last updated at 09/20/2022 10:29
+Last updated at 09/20/2022 10:32
