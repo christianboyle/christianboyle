@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c9tNT5zy3porJbIZ-11anHA-t500x500.jpg">](https://soundcloud.com/karl-guapo/comming-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BRic7gUEPSAeOtNI-sMssdg-t500x500.jpg">](https://soundcloud.com/aylen/shanghai-doom-platinum-artists-aylen-remix?in=shanghaidoom/sets/shanghai-doom-platinum-artist)
 
-**Artist**: L3NNY 
+**Artist**: Aylen 
 
-**Track**: Comming Back
+**Track**: Shanghai Doom - Platinum Artists (Aylen Remix)
 
-Last updated at 09/20/2022 11:00
+Last updated at 09/20/2022 11:01
