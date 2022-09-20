@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CuAGk0dmlLzFdYip-KiQy6w-t500x500.jpg">](https://soundcloud.com/hirbawi/beit-jala-hirbawi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TwjA0KFvD5esuIpt-FfXFVA-t500x500.jpg">](https://soundcloud.com/3treflip/tre-flip-x-aukina-tears)
 
-**Artist**: hirbawi 
+**Artist**: TRE FLIP 
 
-**Track**: 09: beit jala hirbawi [بيت جالا الحرباوي]
+**Track**: TRE FLIP X AUKINA - TEARS
 
-Last updated at 09/19/2022 21:18
+Last updated at 09/19/2022 21:19
