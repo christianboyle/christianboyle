@@ -1,30 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/3kd-xgZFcQs/maxresdefault.jpg">](https://www.youtube.com/watch?v=3kd-xgZFcQs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OYKi0D0oTzDE1lR-ETCOZA-t500x500.jpg">](https://soundcloud.com/slangdogs/shanghai-doom-platinum-artists-slang-dogs-remix)
 
-**Artist**: 
-  
-    YUNGBLUD
-  
-  
-  
-    YUNGBLUD
-  
+**Artist**: Slang Dogs 
 
+**Track**: Shanghai Doom - Platinum Artists (Slang Dogs Remix)
 
-
-
-  
-    
-    
-  
-  Official Artist Channel
-
-
-
-
- 
-
-**Track**: YUNGBLUD - Don’t Feel Like Feeling Sad Today (Official Video)
-
-Last updated at 09/20/2022 14:22
+Last updated at 09/20/2022 16:02
