@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e05Ny39DyBUUhJuW-I0sB9w-t500x500.jpg">](https://soundcloud.com/psychocybinrec/bankajitreegaudfluteman?in=psychocybinpromotions/sets/recent-bangers)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/7vpyTP9pgvo/maxresdefault.jpg">](https://www.youtube.com/watch?v=7vpyTP9pgvo)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Jordan Davis 
 
-**Track**: BANkaJI & Tree Gaud - Flute Man
+**Track**: What My World Spins Around (Official Audio Video)
 
-Last updated at 09/20/2022 10:08
+Last updated at 09/20/2022 10:10
