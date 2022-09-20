@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aifyhbK6LtQ7TRsq-UrlnOg-t500x500.jpg">](https://soundcloud.com/bo0tyleak/aatw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXAQYDaqqw6J-0-t500x500.jpg">](https://soundcloud.com/axmomusic/i-like-to-party)
 
-**Artist**: BOOTY LEAK 
+**Artist**: AXMO 
 
-**Track**: The Late Night Project + Booty Leak & Mirïa - All Around The World [ FREE DOWNLOAD ]
+**Track**: I Like To Party
 
-Last updated at 09/20/2022 10:48
+Last updated at 09/20/2022 10:51
