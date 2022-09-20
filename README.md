@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EwrmNW7TF19GJVtS-BqiAOw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/utoniumeverybodymove?in=psychocybinpromotions/sets/recent-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wojZSHZqrNTucm3-Eg3BrA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/devioussick?in=psychocybinpromotions/sets/recent-bangers)
 
 **Artist**: Psychocybin Recordings 
 
-**Track**: UtoNiuM - Everybody Move
+**Track**: Devious - Sick
 
-Last updated at 09/20/2022 10:23
+Last updated at 09/20/2022 10:26
