@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgEGFpV9fEaJ601y-eN6E9g-t500x500.jpg">](https://soundcloud.com/mazaretheparacosm/mazare-presents-the-paracosm-007-insomniac-radio)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/3kd-xgZFcQs/maxresdefault.jpg">](https://www.youtube.com/watch?v=3kd-xgZFcQs)
 
-**Artist**: The Paracosm with Mazare 
+**Artist**: YUNGBLUD 
 
-**Track**: Mazare Presents: The Paracosm #007 [Insomniac Radio]
+**Track**: Don’t Feel Like Feeling Sad Today (Official Video)
 
-Last updated at 09/20/2022 14:19
+Last updated at 09/20/2022 14:20
