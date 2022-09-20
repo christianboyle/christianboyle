@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AVgBrXBzoByrqhCz-KzBTGg-t500x500.jpg">](https://soundcloud.com/musicby2sk/lookalive1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9quJ3ptIiQJdSet-yg9nDg-t500x500.jpg">](https://soundcloud.com/lizdek/radiowave)
 
-**Artist**: 2SK 
+**Artist**: Lizdek 
 
-**Track**: lookalive
+**Track**: Radiowave
 
-Last updated at 09/20/2022 10:57
+Last updated at 09/20/2022 10:58
