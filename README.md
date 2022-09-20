@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svzv4IWuMCsKR3as-Bgplzw-t500x500.jpg">](https://soundcloud.com/mostafa-ryad/four-to_the-floor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKNpzb5PJKrpR5oL-3Rp2ZA-t500x500.jpg">](https://soundcloud.com/prodjaydeville/check-my-paper)
 
-**Artist**: XRayda 
+**Artist**: Jay Deville 
 
-**Track**: OLD 4 Two The Floor (Original mix)
+**Track**: Check My Paper
 
-Last updated at 09/19/2022 21:22
+Last updated at 09/19/2022 21:23
