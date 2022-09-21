@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0fdUhpmz0Dzfog7-ZkqZLQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe130)
 
-**Artist**: SOREN 
+**Artist**: Gearbox Digital 
 
-**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
+**Track**: Avi8 - Outta My Head [GBE130]
 
-Last updated at 09/21/2022 09:17
+Last updated at 09/21/2022 11:59
