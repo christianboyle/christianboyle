@@ -4,6 +4,6 @@
 
 **Artist**: Juice WRLD 
 
-**Track**: Flaws and Sins (Official Audio)
+**Track**: Cigarettes (Official Music Video)
 
-Last updated at 09/21/2022 14:03
+Last updated at 09/21/2022 14:05
