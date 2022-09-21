@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DbjsgKyXCoZ38azY-4iA0Ow-t500x500.jpg">](https://soundcloud.com/rawppl/h369-x-dj-traytex-sundance-chicken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
 
-**Artist**: RAW 
+**Artist**: SOREN 
 
-**Track**: H369 x DJ Traytex - Sundance Chicken [RAWS4]
+**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
 
-Last updated at 09/21/2022 09:15
+Last updated at 09/21/2022 09:17
