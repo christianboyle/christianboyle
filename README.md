@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xypu6Y2mRHbNJ1Fg-lfKRCw-t500x500.jpg">](https://soundcloud.com/0rch_id/i-crave-it-prod-simply-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wYK7k5SFfNVsmS7e-J6xMdA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/far-from-you)
 
-**Artist**: orchid 
+**Artist**: BOOTY LEAK 
 
-**Track**: I Crave It prod. Simply Funk
+**Track**: TARS. + ROWKA & Booty Leak - Far From You [ FREE DOWNLOAD ]
 
-Last updated at 09/21/2022 13:45
+Last updated at 09/21/2022 13:46
