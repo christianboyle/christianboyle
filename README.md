@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-koPynpNOSCAJXP2N-9zOvKw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/ellie-goulding-flux-country-club-martini-crew-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gr1MiYI1L5lZvtRD-jYuRcA-t500x500.jpg">](https://soundcloud.com/rinsefm/lobster-theremin-ap-records-takeover-with-juliet-mendoza-greg-may-15-september-2022)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Rinse FM 
 
-**Track**: Ellie Goulding - Flux (Country Club Martini Crew Remix) [FREE DOWNLOAD]
+**Track**: Lobster Theremin A&P Records Takeover with Juliet Mendoza & Greg May - 15 September 2022
 
-Last updated at 09/21/2022 09:13
+Last updated at 09/21/2022 09:14
