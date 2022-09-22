@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jU7XrfLsZZslezCJ-CYI0rg-t500x500.jpg">](https://soundcloud.com/w-a-production/future-house-for-babylon-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iF21CBzkq9VCourz-pe3SKg-t500x500.jpg">](https://soundcloud.com/huskibass/huski-never-wanna-leave-1)
 
-**Artist**: W. A. Production® 
+**Artist**: HUSKI 🐺 
 
-**Track**: Future House for Babylon 2 | 140 Babylon Presets
+**Track**: HUSKI - NEVER WANNA LEAVE (FREE DL/STEMS)
 
-Last updated at 09/22/2022 10:39
+Last updated at 09/22/2022 10:57
