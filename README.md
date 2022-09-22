@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUdiqzCQcui13ISr-z9jNZQ-t500x500.jpg">](https://soundcloud.com/danlrk/1-night)
 
-**Artist**: Dirty Workz 
+**Artist**: Dan Larkin 
 
-**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
+**Track**: 1 night [remix] d1v/buffalobang/ddertbag
 
 Last updated at 09/22/2022 16:23
