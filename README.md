@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUdiqzCQcui13ISr-z9jNZQ-t500x500.jpg">](https://soundcloud.com/danlrk/1-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
 
-**Artist**: Dan Larkin 
+**Artist**: SOREN 
 
-**Track**: 1 night [remix] d1v/buffalobang/ddertbag
+**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
 
-Last updated at 09/21/2022 19:21
+Last updated at 09/21/2022 19:23
