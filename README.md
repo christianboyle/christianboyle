@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyWAoLzZrzgSw1l2-5uw65A-t500x500.jpg">](https://soundcloud.com/staminarecords/digital-commandos-feat-mc-cyx?in=staminarecords/sets/stamina-records-071-httpstmfanlinkto071)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jU7XrfLsZZslezCJ-CYI0rg-t500x500.jpg">](https://soundcloud.com/w-a-production/future-house-for-babylon-2)
 
-**Artist**: Stamina Records 
+**Artist**: W. A. Production® 
 
-**Track**: Digital Commandos Feat. MC Cyx - Feel The Vibe
+**Track**: Future House for Babylon 2 | 140 Babylon Presets
 
-Last updated at 09/22/2022 10:38
+Last updated at 09/22/2022 10:39
