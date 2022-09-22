@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyWAoLzZrzgSw1l2-5uw65A-t500x500.jpg">](https://soundcloud.com/staminarecords/digital-commandos-feat-mc-cyx?in=staminarecords/sets/stamina-records-071-httpstmfanlinkto071)
 
-**Artist**: SOREN 
+**Artist**: Stamina Records 
 
-**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
+**Track**: Digital Commandos Feat. MC Cyx - Feel The Vibe
 
-Last updated at 09/21/2022 19:23
+Last updated at 09/22/2022 10:38
