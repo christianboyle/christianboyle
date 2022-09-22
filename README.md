@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q264p59hghRrZOQp-CkTn0A-t500x500.jpg">](https://soundcloud.com/ripeveryst/light-in-the-dark)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
 
-**Artist**: EVERYST 
+**Artist**: Dirty Workz 
 
-**Track**: LIGHT IN THE DARK (full stream)
+**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
 
-Last updated at 09/22/2022 11:09
+Last updated at 09/22/2022 16:23
