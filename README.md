@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZBSH6L5eeWj5QN5o-CvZyXw-t500x500.jpg">](https://soundcloud.com/wubaholics/ecstasy-w-minimonster?in=minimonstermm/sets/saint-miller-minimonster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OYKi0D0oTzDE1lR-ETCOZA-t500x500.jpg">](https://soundcloud.com/slangdogs/shanghai-doom-platinum-artists-slang-dogs-remix)
 
-**Artist**: Wubaholics 
+**Artist**: Slang Dogs 
 
-**Track**: SAINT MILLER & MINIMONSTER - Ecstacy
+**Track**: Shanghai Doom - Platinum Artists (Slang Dogs Remix)
 
-Last updated at 09/22/2022 11:07
+Last updated at 09/22/2022 11:08
