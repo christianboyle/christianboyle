@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mm8jR715yyLMX9lw-E2QZrw-t500x500.jpg">](https://soundcloud.com/air_or/over-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q264p59hghRrZOQp-CkTn0A-t500x500.jpg">](https://soundcloud.com/ripeveryst/light-in-the-dark)
 
-**Artist**: airynore 
+**Artist**: EVERYST 
 
-**Track**: Over It
+**Track**: LIGHT IN THE DARK (full stream)
 
-Last updated at 09/23/2022 13:42
+Last updated at 09/23/2022 13:43
