@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t0O1qMo5Bjf5O7Fw-K8Tomw-t500x500.jpg">](https://soundcloud.com/pedicure-records/ghostmemory-midnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUUyqsoJZzyXEf36-hrFeQQ-t500x500.jpg">](https://soundcloud.com/shaedistrict/odesza-official-denver-afterparty-shae-district-club-set)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: Shae District 
 
-**Track**: ghostmemory - Midnight
+**Track**: ODESZA Official Denver Afterparty: Shae District (Club Set)
 
-Last updated at 09/23/2022 11:45
+Last updated at 09/23/2022 11:50
