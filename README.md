@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DJVPZn1FO4d6GdRm-Ur9NnA-t500x500.jpg">](https://soundcloud.com/ayyofree/manic-tantrum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lauiGI1OMSHb1uj-azhYeQ-t500x500.jpg">](https://soundcloud.com/guccigarette/under-pressure-gucci-x-thxnder)
 
-**Artist**: AY YO TRIP! 
+**Artist**: GUCCIGARETTE 
 
-**Track**: Manic - Tantrum
+**Track**: UNDER PRESSURE (THXNDER X GUCCI)
 
-Last updated at 09/23/2022 10:37
+Last updated at 09/23/2022 10:38
