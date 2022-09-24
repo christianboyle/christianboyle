@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZuMjJ62fgdPYW8U-OgDMBg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/comeback?in=hybridtrapradio/sets/tearitup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niy4obxMRU6j0lWP-Z3JSzg-t500x500.jpg">](https://soundcloud.com/playmerecords/bel-air-witch-in-my-head)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Play Me Records 
 
-**Track**: Say Word x Risky Biz - Comeback
+**Track**: BEL AIR WITCH - In My Head
 
-Last updated at 09/24/2022 10:09
+Last updated at 09/24/2022 10:10
