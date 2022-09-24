@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4OvIYjyfmZgcKxe-c8dBYA-t500x500.jpg">](https://soundcloud.com/dropunited/bad-bunny-chencho-corleone-me-porto-bonito-hawk-booty-leak-edit-dropunited-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U6QYopGoMNfdbi7g-nIEg9A-t500x500.jpg">](https://soundcloud.com/gaszia/ride1)
 
-**Artist**: DropUnited 
+**Artist**: Gaszia 
 
-**Track**: Bad Bunny, Chencho Corleone - Me Porto Bonito (HAWK. & BOOTY LEAK Edit) [DropUnited Exclusive]
+**Track**: Gaszia, Sooski - Ride
 
-Last updated at 09/24/2022 10:04
+Last updated at 09/24/2022 10:05
