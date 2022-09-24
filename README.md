@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EP8zOpv2OOdLGwAJ-YRCUWg-t500x500.jpg">](https://soundcloud.com/rejectionjp/breakthrough-w-ruxxi?in=ruxxi/sets/rejection-ruxxi-breakthrough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cY343OEc1mzV1iV0-beAscA-t500x500.jpg">](https://soundcloud.com/alstorm/01-rob-iyf-al-storm-tarantulargh?in=alstorm/sets/dark-shadows-8-the-void-out)
 
-**Artist**: rejection 
+**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
 
-**Track**: Breakthrough w/ Ruxxi
+**Track**: 01 Rob IYF & Al Storm - Tarantulargh!
 
-Last updated at 09/24/2022 10:06
+Last updated at 09/24/2022 10:07
