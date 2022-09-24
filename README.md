@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q264p59hghRrZOQp-CkTn0A-t500x500.jpg">](https://soundcloud.com/ripeveryst/light-in-the-dark)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4OvIYjyfmZgcKxe-c8dBYA-t500x500.jpg">](https://soundcloud.com/dropunited/bad-bunny-chencho-corleone-me-porto-bonito-hawk-booty-leak-edit-dropunited-exclusive)
 
-**Artist**: EVERYST 
+**Artist**: DropUnited 
 
-**Track**: LIGHT IN THE DARK (full stream)
+**Track**: Bad Bunny, Chencho Corleone - Me Porto Bonito (HAWK. & BOOTY LEAK Edit) [DropUnited Exclusive]
 
-Last updated at 09/23/2022 13:43
+Last updated at 09/24/2022 10:04
