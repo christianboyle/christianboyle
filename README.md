@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3h0kzkyA2bthQyOE-6IUWCw-t500x500.jpg">](https://soundcloud.com/avantsamples/dackjaniels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgDZrKZmW6Z11PdA-yAj2zw-t500x500.jpg">](https://soundcloud.com/chilltrapnetwork/lovesongs)
 
-**Artist**: Avant Samples 
+**Artist**: Chill Trap Records 
 
-**Track**: Dack Janiels Dubstep Essentials Sample Pack [DOWNLOAD NOW]
+**Track**: Nesta Malcolm, JCB & Temø - Love Songs [Chill Trap Release]
 
-Last updated at 09/24/2022 19:21
+Last updated at 09/25/2022 07:40
