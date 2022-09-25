@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAsfCJB0zxeNzzsa-zkU2iw-t500x500.jpg">](https://soundcloud.com/club_paradiso/ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVlpTOGBh5bJzvzC-g283fA-t500x500.jpg">](https://soundcloud.com/indigenousdubz/indigneous-hot-saucedub)
 
-**Artist**: ‎Club Paradiso 
+**Artist**: Indigenous 
 
-**Track**: -    ii.
+**Track**: Hot Sauce
 
-Last updated at 09/25/2022 08:07
+Last updated at 09/25/2022 08:42
