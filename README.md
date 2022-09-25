@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgDZrKZmW6Z11PdA-yAj2zw-t500x500.jpg">](https://soundcloud.com/chilltrapnetwork/lovesongs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAsfCJB0zxeNzzsa-zkU2iw-t500x500.jpg">](https://soundcloud.com/club_paradiso/ii)
 
-**Artist**: Chill Trap Records 
+**Artist**: ‎Club Paradiso 
 
-**Track**: Nesta Malcolm, JCB & Temø - Love Songs [Chill Trap Release]
+**Track**: -    ii.
 
-Last updated at 09/25/2022 08:06
+Last updated at 09/25/2022 08:07
