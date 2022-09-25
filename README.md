@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVlpTOGBh5bJzvzC-g283fA-t500x500.jpg">](https://soundcloud.com/indigenousdubz/indigneous-hot-saucedub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3T3gXMDRiz3ALKm-XzSy5Q-t500x500.jpg">](https://soundcloud.com/adamtheshinobi/hit-tha-gas)
 
-**Artist**: Indigenous 
+**Artist**: ADAM THE SHINOBI 
 
-**Track**: Hot Sauce
+**Track**: HIT THA GAS
 
-Last updated at 09/25/2022 08:42
+Last updated at 09/25/2022 08:43
