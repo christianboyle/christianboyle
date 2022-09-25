@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMYucvKTY8Qts4ET-FsYeRQ-t500x500.jpg">](https://soundcloud.com/rinse_france/the-dj-plant-texture-sessions-with-peder-mannerfelt-15-septembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3h0kzkyA2bthQyOE-6IUWCw-t500x500.jpg">](https://soundcloud.com/avantsamples/dackjaniels)
 
-**Artist**: Rinse France 
+**Artist**: Avant Samples 
 
-**Track**: The Dj Plant Texture Sessions with Peder Mannerfelt - 15 Septembre 2022
+**Track**: Dack Janiels Dubstep Essentials Sample Pack [DOWNLOAD NOW]
 
-Last updated at 09/24/2022 15:03
+Last updated at 09/24/2022 19:21
