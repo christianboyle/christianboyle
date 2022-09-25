@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMYucvKTY8Qts4ET-FsYeRQ-t500x500.jpg">](https://soundcloud.com/rinse_france/the-dj-plant-texture-sessions-with-peder-mannerfelt-15-septembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBhRbfz575GGW1AY-ISED1g-t500x500.jpg">](https://soundcloud.com/spaceyetimusic/the-voyage)
 
-**Artist**: Rinse France 
+**Artist**: SpaceYeti 
 
-**Track**: The Dj Plant Texture Sessions with Peder Mannerfelt - 15 Septembre 2022
+**Track**: The Voyage
 
-Last updated at 09/25/2022 08:54
+Last updated at 09/25/2022 16:00
