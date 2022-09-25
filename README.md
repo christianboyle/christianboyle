@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3T3gXMDRiz3ALKm-XzSy5Q-t500x500.jpg">](https://soundcloud.com/adamtheshinobi/hit-tha-gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZuMjJ62fgdPYW8U-OgDMBg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/comeback)
 
-**Artist**: ADAM THE SHINOBI 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: HIT THA GAS
+**Track**: Say Word x Risky Biz - Comeback
 
-Last updated at 09/25/2022 08:43
+Last updated at 09/25/2022 08:45
