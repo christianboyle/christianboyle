@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBhRbfz575GGW1AY-ISED1g-t500x500.jpg">](https://soundcloud.com/spaceyetimusic/the-voyage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWvBKOWeDE6m76Mf-pPfsWA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-77-on-beat-106-1)
 
-**Artist**: SpaceYeti 
+**Artist**: Beat 106 Scotland 
 
-**Track**: The Voyage
+**Track**: Bonkers Beats #77 on Beat 106 Scotland with DJ Defective 230922 (Hour 1)
 
-Last updated at 09/25/2022 16:00
+Last updated at 09/26/2022 08:12
