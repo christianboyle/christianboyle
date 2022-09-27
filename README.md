@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000487731876-n5cfwy-t500x500.jpg">](https://soundcloud.com/user-586552550/time-machine-warm-up-mix-by-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0fdUhpmz0Dzfog7-ZkqZLQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe130)
 
-**Artist**: D2B_Official 
+**Artist**: Gearbox Digital 
 
-**Track**: TIME MACHINE WARM UP MIX BY AVI8
+**Track**: Avi8 - Outta My Head [GBE130]
 
-Last updated at 09/27/2022 12:38
+Last updated at 09/27/2022 13:08
