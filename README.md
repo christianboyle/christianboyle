@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1g6DmXCxTJklHQOz-TFJQ4A-t500x500.jpg">](https://soundcloud.com/soren_music/basscon-radio-023-feat-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xN3DxoYVjCdp1MVx-JMkSFw-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/ezkill-vs-brady-mortal-kombat)
 
-**Artist**: SOREN 
+**Artist**: scarreddigital.com 
 
-**Track**: BASSCON RADIO #023 (FEAT HARTSHORN)
+**Track**: SD204 EzKill & Brady - Mortal Kombat
 
-Last updated at 09/27/2022 10:18
+Last updated at 09/27/2022 10:20
