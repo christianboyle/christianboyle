@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMYucvKTY8Qts4ET-FsYeRQ-t500x500.jpg">](https://soundcloud.com/rinse_france/the-dj-plant-texture-sessions-with-peder-mannerfelt-15-septembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDvEfbpl1HThTSIT-z7d0DQ-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd209-delusion-and-ceci-imaginary-release-19102022)
 
-**Artist**: Rinse France 
+**Artist**: scarreddigital.com 
 
-**Track**: The Dj Plant Texture Sessions with Peder Mannerfelt - 15 Septembre 2022
+**Track**: SD209 Delusion And Ceci - Imaginary. Release 19/10/2022
 
-Last updated at 09/26/2022 14:52
+Last updated at 09/27/2022 09:19
