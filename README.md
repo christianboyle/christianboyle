@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a1Qm2dcDupia-0-t500x500.jpg">](https://soundcloud.com/whytefang-music/333a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUdiqzCQcui13ISr-z9jNZQ-t500x500.jpg">](https://soundcloud.com/danlrk/1-night)
 
-**Artist**: Whyte Fang 
+**Artist**: Dan Larkin 
 
-**Track**: 333
+**Track**: 1 night [remix] d1v/buffalobang/ddertbag
 
-Last updated at 09/27/2022 10:16
+Last updated at 09/27/2022 10:17
