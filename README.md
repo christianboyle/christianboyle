@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czz5cLjq5iH9HGvy-hcBphQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe109)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jcu7O96yo8RJiJ3-SN1LLA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/kamas-starlight)
 
-**Artist**: Gearbox Digital 
+**Artist**: Simplify. 
 
-**Track**: Avi8 - Closer [GBE109]
+**Track**: Kamas - Starlight
 
-Last updated at 09/27/2022 13:29
+Last updated at 09/27/2022 13:33
