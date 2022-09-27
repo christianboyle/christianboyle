@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXwTx6U9UyB8UBf1-ckb3XA-t500x500.jpg">](https://soundcloud.com/basscon/technikore-suae-falling-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xN3DxoYVjCdp1MVx-JMkSFw-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/ezkill-vs-brady-mortal-kombat)
 
-**Artist**: BASSCON 
+**Artist**: scarreddigital.com 
 
-**Track**: Technikore, Suae - Falling Apart
+**Track**: SD204 EzKill & Brady - Mortal Kombat
 
-Last updated at 09/27/2022 10:07
+Last updated at 09/27/2022 10:08
