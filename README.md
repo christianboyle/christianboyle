@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3T3gXMDRiz3ALKm-XzSy5Q-t500x500.jpg">](https://soundcloud.com/adamtheshinobi/hit-tha-gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xN3DxoYVjCdp1MVx-JMkSFw-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/ezkill-vs-brady-mortal-kombat)
 
-**Artist**: ADAM THE SHINOBI 
+**Artist**: scarreddigital.com 
 
-**Track**: HIT THA GAS
+**Track**: SD204 EzKill & Brady - Mortal Kombat
 
-Last updated at 09/27/2022 10:24
+Last updated at 09/27/2022 10:56
