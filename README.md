@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3T3gXMDRiz3ALKm-XzSy5Q-t500x500.jpg">](https://soundcloud.com/adamtheshinobi/hit-tha-gas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a1Qm2dcDupia-0-t500x500.jpg">](https://soundcloud.com/whytefang-music/333a1)
 
-**Artist**: ADAM THE SHINOBI 
+**Artist**: Whyte Fang 
 
-**Track**: HIT THA GAS
+**Track**: 333
 
-Last updated at 09/27/2022 10:13
+Last updated at 09/27/2022 10:16
