@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jcu7O96yo8RJiJ3-SN1LLA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/kamas-starlight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oy9esZuUzUk1e4TB-yu2vtw-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/house-of-ghetto-karbon-036)
 
-**Artist**: Simplify. 
+**Artist**: GHETTO GHETTO 
 
-**Track**: Kamas - Starlight
+**Track**: House of Ghetto - KARBON (036)
 
-Last updated at 09/27/2022 13:33
+Last updated at 09/27/2022 13:36
