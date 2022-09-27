@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDvEfbpl1HThTSIT-z7d0DQ-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd209-delusion-and-ceci-imaginary-release-19102022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3T3gXMDRiz3ALKm-XzSy5Q-t500x500.jpg">](https://soundcloud.com/adamtheshinobi/hit-tha-gas)
 
-**Artist**: scarreddigital.com 
+**Artist**: ADAM THE SHINOBI 
 
-**Track**: SD209 Delusion And Ceci - Imaginary. Release 19/10/2022
+**Track**: HIT THA GAS
 
-Last updated at 09/27/2022 10:22
+Last updated at 09/27/2022 10:24
