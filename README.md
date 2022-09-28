@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432743487-hlc2ip-t500x500.jpg">](https://soundcloud.com/one-eight-hundred/fluke-nukes-finals-ft-bk-beats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233115366-zb4enu-t500x500.jpg">](https://soundcloud.com/itsleemz/lil-yachty-quavo-no-hook-fluke-nukes-leemz-bootleg)
 
-**Artist**: ONE EIGHT HUNDRED 
+**Artist**: Leemz 
 
-**Track**: Fluke Nukes - Finals (ft. bk beats)
+**Track**: Lil Yachty & Quavo - No Hook (Fluke Nukes & Leemz Bootleg)
 
-Last updated at 09/28/2022 10:24
+Last updated at 09/28/2022 10:58
