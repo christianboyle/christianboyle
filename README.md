@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000078171920-6gchfo-t500x500.jpg">](https://soundcloud.com/mesozoicwindmirage/sundrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000409191843-nbtdhp-t500x500.jpg">](https://soundcloud.com/flukenukes/shoot?in=one-eight-hundred/sets/fluke-nukes)
 
-**Artist**: MESOZOIC WIND MIRAGE 
+**Artist**: jame 
 
-**Track**: Sundrip ft. Fluke Nukes
+**Track**: shoot
 
-Last updated at 09/28/2022 09:03
+Last updated at 09/28/2022 09:05
