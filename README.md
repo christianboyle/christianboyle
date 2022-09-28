@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000137180485-4elhvj-t500x500.jpg">](https://soundcloud.com/itsr3llofficial/skylines-feat-fluke-nukes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daIFIKqqDawqTJ5l-13QjYA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mandy-lift-me-up)
 
-**Artist**: R3LL 
+**Artist**: Dirty Workz 
 
-**Track**: Skylines Feat. Fluke Nukes
+**Track**: MANDY - Lift Me Up
 
-Last updated at 09/28/2022 09:07
+Last updated at 09/28/2022 09:27
