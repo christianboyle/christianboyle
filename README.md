@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daIFIKqqDawqTJ5l-13QjYA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mandy-lift-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgfI0alZAwpAsvVZ-hIJA6Q-t500x500.jpg">](https://soundcloud.com/bcco/bcco-premiere-dj-physical-x-dj-bigspin-human-cannonball-lip006)
 
-**Artist**: Dirty Workz 
+**Artist**: BCCO 
 
-**Track**: MANDY - Lift Me Up
+**Track**: BCCO Premiere: DJ Physical X DJ Bigspin - Human Cannonball [LIP006]
 
-Last updated at 09/28/2022 09:27
+Last updated at 09/28/2022 09:28
