@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yFFUMgcHVMRV6yE-AcOqdg-t500x500.jpg">](https://soundcloud.com/plurthlings/faded-city?in=plurthlings/sets/top-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157149891-po948i-t500x500.jpg">](https://soundcloud.com/atikmusic/zomboy-like-a-bitch-atik-remix?in=atikmusic/sets/originals)
 
-**Artist**: Plurthlings 
+**Artist**: Atik 👻 
 
-**Track**: Faded City
+**Track**: Zomboy - Like A Bitch (Atik Remix)
 
-Last updated at 09/28/2022 21:57
+Last updated at 09/29/2022 08:26
