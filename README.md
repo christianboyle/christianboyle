@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157149891-po948i-t500x500.jpg">](https://soundcloud.com/atikmusic/zomboy-like-a-bitch-atik-remix?in=atikmusic/sets/originals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M6SIwm3862CaUKzL-MjjG3w-t500x500.jpg">](https://soundcloud.com/itsrestricted-second/move-your-body-x-my-humps-restricted-edit)
 
-**Artist**: Atik 👻 
+**Artist**: Restricted (Bootlegs & Mixes) 
 
-**Track**: Zomboy - Like A Bitch (Atik Remix)
+**Track**: Move Your Body X My Humps (Restricted Edit)
 
-Last updated at 09/29/2022 08:26
+Last updated at 09/29/2022 08:34
