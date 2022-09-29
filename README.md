@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000569572970-ngry9t-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-feat-alvin-risk-fuji-opener)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000172037108-72hr3a-t500x500.jpg">](https://soundcloud.com/atikmusic/zomboy-dip-it-atik-remix-2)
 
-**Artist**: Skrillex 
+**Artist**: Atik 👻 
 
-**Track**: Fuji Opener (feat. Alvin Risk)
+**Track**: ZOMBOY - Dip It (Atik Remix)
 
-Last updated at 09/28/2022 21:44
+Last updated at 09/28/2022 21:52
