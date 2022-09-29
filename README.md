@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233115366-zb4enu-t500x500.jpg">](https://soundcloud.com/itsleemz/lil-yachty-quavo-no-hook-fluke-nukes-leemz-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mo6Hc8dWf5ggjLYF-UowDOw-t500x500.jpg">](https://soundcloud.com/rebelscummusic/ruffneck)
 
-**Artist**: Leemz 
+**Artist**: Rebel Scum 
 
-**Track**: Lil Yachty & Quavo - No Hook (Fluke Nukes & Leemz Bootleg)
+**Track**: Skrillex - Ruffneck (Rebel Scum Remix)
 
-Last updated at 09/28/2022 21:33
+Last updated at 09/28/2022 21:37
