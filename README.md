@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/3L8nycP_XLI/hqdefault.jpg">](https://www.youtube.com/watch?v=3L8nycP_XLI)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBP9UDJyfWhjLQy2-CZ1cHg-t500x500.jpg">](https://soundcloud.com/beatlabradio/sorsari-live-at-bass-coast-2022-beat-lab-radio-400)
 
-**Artist**: glaive 
+**Artist**: Beat Lab Radio 
 
-**Track**: three wheels and it still drives! (official video)
+**Track**: Sorsari - Live at Bass Coast 2022 - Beat Lab Radio 400
 
-Last updated at 09/28/2022 19:51
+Last updated at 09/28/2022 21:19
