@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M6SIwm3862CaUKzL-MjjG3w-t500x500.jpg">](https://soundcloud.com/itsrestricted-second/move-your-body-x-my-humps-restricted-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJdQ1vaRFkhEPq0u-nz8oMA-t500x500.png">](https://soundcloud.com/djkaku/crankdat-sara-skinner-welcome-to-the-jungle-kaku-x-808gong-remix)
 
-**Artist**: Restricted (Bootlegs & Mixes) 
+**Artist**: KAKU 
 
-**Track**: Move Your Body X My Humps (Restricted Edit)
+**Track**: Crankdat & Sara Skinner - Welcome To The Jungle (KAKU x 808GONG REMIX)
 
-Last updated at 09/29/2022 08:34
+Last updated at 09/29/2022 09:25
