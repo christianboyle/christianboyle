@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000569572970-ngry9t-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-feat-alvin-risk-fuji-opener)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n5yz2KKhu8fa-0-t500x500.jpg">](https://soundcloud.com/from-first-to-last/surrender)
 
-**Artist**: Skrillex 
+**Artist**: From First To Last 
 
-**Track**: Fuji Opener (feat. Alvin Risk)
+**Track**: Surrender
 
-Last updated at 09/28/2022 21:40
+Last updated at 09/28/2022 21:43
