@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000487731876-n5cfwy-t500x500.jpg">](https://soundcloud.com/user-586552550/time-machine-warm-up-mix-by-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cejPqTRTwG7pq8na-wwwXIw-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-divine-shine)
 
-**Artist**: D2B_Official 
+**Artist**: M-Project 
 
-**Track**: TIME MACHINE WARM UP MIX BY AVI8
+**Track**: M-Project - Divine Shine
 
-Last updated at 09/30/2022 16:01
+Last updated at 09/30/2022 16:20
