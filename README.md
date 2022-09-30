@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000319900695-ke6p1t-t500x500.jpg">](https://soundcloud.com/boxedldn/snow-in-the-ruins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248734693-srm1wu-t500x500.jpg">](https://soundcloud.com/flukenukes/want-it)
 
-**Artist**: BoxedLDN 
+**Artist**: jame 
 
-**Track**: Inner - Snow In The Ruins
+**Track**: want It
 
-Last updated at 09/30/2022 09:09
+Last updated at 09/30/2022 09:11
