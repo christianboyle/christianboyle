@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gr2NcC5VQEULt149-M8xh4Q-t500x500.jpg">](https://soundcloud.com/xotixmusic/bring-it-back-1?in=xotixmusic/sets/best-coast-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wemurkGDdmvXePek-rgiuvA-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/xotix-x-star-monster-x-dalfin-wagmi?in=xotixmusic/sets/2022-releases)
 
-**Artist**: Xotix 
+**Artist**: Star Monster 
 
-**Track**: Bring it Back
+**Track**: Xotix x Star Monster x Dalfin - Wagmi [Headbang Society Premiere]
 
-Last updated at 09/30/2022 08:32
+Last updated at 09/30/2022 08:33
