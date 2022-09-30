@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248734693-srm1wu-t500x500.jpg">](https://soundcloud.com/flukenukes/want-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZoA2BBKvxHaC4B3-AJhbhg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hard-driver-villain-one-more-track)
 
-**Artist**: jame 
+**Artist**: Dirty Workz 
 
-**Track**: want It
+**Track**: Hard Driver & Villain - One More Track
 
-Last updated at 09/30/2022 09:11
+Last updated at 09/30/2022 09:49
