@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32VOcUjz48DkzNz6-fucGhA-t500x500.jpg">](https://soundcloud.com/djgammer/ray-volpe-laserbeam-gammer-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEHdDgjP8lPRy8z0-XyZTfw-t500x500.jpg">](https://soundcloud.com/xandg/hittit)
 
-**Artist**: Gammer 
+**Artist**: X&G 
 
-**Track**: RAY VOLPE - LASERBEAM (GAMMER FLIP) (Free DL)
+**Track**: HITTIT
 
-Last updated at 09/30/2022 15:46
+Last updated at 09/30/2022 15:47
