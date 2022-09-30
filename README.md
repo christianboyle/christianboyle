@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyFKIlzDvU9N3xN7-fXUqlA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/ascension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wDNqkvx5mg56R4J-iB5UQg-t500x500.jpg">](https://soundcloud.com/aamourocean/02-life-sim-idl-aamourocean-remix)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: aamourocean 
 
-**Track**: Universe - Ascension
+**Track**: 02  Life Sim - IDL aamourocean ( ˇ෴ˇ ) ♪ ♫  Remix
 
-Last updated at 09/30/2022 09:00
+Last updated at 09/30/2022 09:01
