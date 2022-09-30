@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wDNqkvx5mg56R4J-iB5UQg-t500x500.jpg">](https://soundcloud.com/aamourocean/01-life-sim-idl-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000319900695-ke6p1t-t500x500.jpg">](https://soundcloud.com/boxedldn/snow-in-the-ruins)
 
-**Artist**: aamourocean 
+**Artist**: BoxedLDN 
 
-**Track**: 01  Life Sim - IDL aamourocean ◖ᵔᴥᵔ◗ ♪ ♫ Remix
+**Track**: Inner - Snow In The Ruins
 
-Last updated at 09/30/2022 09:05
+Last updated at 09/30/2022 09:09
