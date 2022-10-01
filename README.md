@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y29CGganZo7HYdrk-b0wmbQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/two-friends-wish-you-were-here-feat-john-k-coastr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gClTfkfzLkve0DzN-naSg2Q-t500x500.jpg">](https://soundcloud.com/theskulkids/ghost-skulkidsxchad-remix)
 
-**Artist**: COASTR. 
+**Artist**: SkulKids 
 
-**Track**: Two Friends - Wish You Were Here (feat. John K) [COASTR. Remix]
+**Track**: Justin Bieber - Ghost (SkulKids X Chad Bannister Remix)
 
-Last updated at 10/01/2022 10:13
+Last updated at 10/01/2022 10:14
