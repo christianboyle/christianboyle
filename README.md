@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o7jk7zqFzzIfDl6k-81pbJQ-t500x500.jpg">](https://soundcloud.com/soviet_kid/crash-bash-lil-uzi-vert-x-lil-tecca-tropical-rage-type-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VlNBA3f5uvm3gPoT-yGqE2A-t500x500.jpg">](https://soundcloud.com/inteus666/planetarium)
 
-**Artist**: $OViET KiD 
+**Artist**: Inteus 
 
-**Track**: "Crash Bash" Lil Uzi Vert x Lil Tecca | Tropical RAGE Type Beat
+**Track**: Planetarium w/ BACKWHEN
 
-Last updated at 10/01/2022 09:59
+Last updated at 10/01/2022 10:00
