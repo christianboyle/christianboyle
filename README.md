@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJdKTx7kVdj7-0-t500x500.jpg">](https://soundcloud.com/katyperry/small-talk-white-panda-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
 
-**Artist**: KatyPerry 
+**Artist**: MC4D 
 
-**Track**: Small Talk (White Panda Remix)
+**Track**: Down Under Country Mix Vol. 3
 
-Last updated at 10/01/2022 17:15
+Last updated at 10/01/2022 17:16
