@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y29CGganZo7HYdrk-b0wmbQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/two-friends-wish-you-were-here-feat-john-k-coastr-remix)
 
-**Artist**: MC4D 
+**Artist**: COASTR. 
 
-**Track**: Down Under Country Mix Vol. 3
+**Track**: Two Friends - Wish You Were Here (feat. John K) [COASTR. Remix]
 
-Last updated at 10/01/2022 10:12
+Last updated at 10/01/2022 10:13
