@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQbIqUzO9dWliUoa-o7rO3Q-t500x500.jpg">](https://soundcloud.com/rebelscummusic/lightbeam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKsiKdlEpiQit1Mt-ybQpnA-t500x500.jpg">](https://soundcloud.com/zenchant/zenchant-less-than-three-3)
 
-**Artist**: Rebel Scum 
+**Artist**: Zenchant 
 
-**Track**: Lightbeam
+**Track**: Zenchant - Less Than Three
 
-Last updated at 10/01/2022 10:07
+Last updated at 10/01/2022 10:08
