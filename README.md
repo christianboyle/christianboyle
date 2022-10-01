@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c4HRgtcEJ0POgulh-fySo9g-t500x500.jpg">](https://soundcloud.com/djstephenhurtley/tim-berg-vs-mg-dua-lipa-vs-jeriko-seek-bromance-lonely-stephen-hurtley-festival-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJdKTx7kVdj7-0-t500x500.jpg">](https://soundcloud.com/katyperry/small-talk-white-panda-remix)
 
-**Artist**: Stephen Hurtley 
+**Artist**: KatyPerry 
 
-**Track**: Tim Berg vs. MG & Dua Lipa vs. JERIKO - Seek Bromance Lonely (Stephen Hurtley Festival Edit)
+**Track**: Small Talk (White Panda Remix)
 
-Last updated at 10/01/2022 10:15
+Last updated at 10/01/2022 10:16
