@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJdKTx7kVdj7-0-t500x500.jpg">](https://soundcloud.com/katyperry/small-talk-white-panda-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEHdDgjP8lPRy8z0-XyZTfw-t500x500.jpg">](https://soundcloud.com/xandg/hittit)
 
-**Artist**: KatyPerry 
+**Artist**: X&G 
 
-**Track**: Small Talk (White Panda Remix)
+**Track**: HITTIT
 
-Last updated at 10/01/2022 16:43
+Last updated at 10/01/2022 16:44
