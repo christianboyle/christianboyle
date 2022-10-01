@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aEHdDgjP8lPRy8z0-XyZTfw-t500x500.jpg">](https://soundcloud.com/xandg/hittit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wDNqkvx5mg56R4J-iB5UQg-t500x500.jpg">](https://soundcloud.com/aamourocean/02-life-sim-idl-aamourocean-remix)
 
-**Artist**: X&G 
+**Artist**: aamourocean 
 
-**Track**: HITTIT
+**Track**: 02  Life Sim - IDL aamourocean ( ˇ෴ˇ ) ♪ ♫  Remix
 
-Last updated at 10/01/2022 16:44
+Last updated at 10/01/2022 16:45
