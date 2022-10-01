@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1HlMIbwKxVc0lxf9-zkUoBw-t500x500.jpg">](https://soundcloud.com/whatever001/september-clips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQbIqUzO9dWliUoa-o7rO3Q-t500x500.jpg">](https://soundcloud.com/rebelscummusic/lightbeam)
 
-**Artist**: whatever51 
+**Artist**: Rebel Scum 
 
-**Track**: september22 w/ robsurreal, iji, gianni, greyworld, lj, thirdeye, eli-o, silver & cutspace
+**Track**: Lightbeam
 
-Last updated at 10/01/2022 10:06
+Last updated at 10/01/2022 10:07
