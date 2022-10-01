@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wDNqkvx5mg56R4J-iB5UQg-t500x500.jpg">](https://soundcloud.com/aamourocean/02-life-sim-idl-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CduxKyoNA6H92z8y-yudwmw-t500x500.jpg">](https://soundcloud.com/coastrsbackupstash/i-like-you-coastr-remix)
 
-**Artist**: aamourocean 
+**Artist**: COASTR.'s BACKUP STASH 
 
-**Track**: 02  Life Sim - IDL aamourocean ( ˇ෴ˇ ) ♪ ♫  Remix
+**Track**: Post Malone, Doja Cat - I Like You (A Happier Song) [COASTR. Remix] BUY FOR FREE DOWNLOAD
 
-Last updated at 10/01/2022 16:45
+Last updated at 10/01/2022 16:46
