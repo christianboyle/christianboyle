@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2oAxsBuSLuLBr4D-Ly9J9A-t500x500.jpg">](https://soundcloud.com/itstooscar/iknoweveryone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gHNA8q5G7H2DynQ5-Zp5cHg-t500x500.jpg">](https://soundcloud.com/saschaamir/50-cent-in-da-club-rework)
 
-**Artist**: To Oscar 
+**Artist**: Sascha Amir 
 
-**Track**: facelift, i know everyone in the room
+**Track**: 50 Cent- In Da Club (Rework)
 
-Last updated at 10/01/2022 10:03
+Last updated at 10/01/2022 10:04
