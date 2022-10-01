@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Y6vPGbdrzr3b2y0-BYcNbg-t500x500.jpg">](https://soundcloud.com/vyyl/postmaloneflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
 
-**Artist**: 𝐕𝐘𝐘𝐋 
+**Artist**: MC4D 
 
-**Track**: Post Malone - Better Now (VYYL REMIX)
+**Track**: Down Under Country Mix Vol. 3
 
-Last updated at 10/01/2022 10:21
+Last updated at 10/01/2022 14:27
