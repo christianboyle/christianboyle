@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rByjAi0phLFqMSqt-YDk3DA-t500x500.jpg">](https://soundcloud.com/presentlylifted/tucker-doubt-x-p-baby-nahmsayin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqcO5x7drD2q-0-t500x500.jpg">](https://soundcloud.com/whydontweofficial/trust-fund-baby-the-white)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: Why Don't We 
 
-**Track**: Tucker Doubt x P-BABY - NAHMSAYIN
+**Track**: Trust Fund Baby (The White Panda Remix)
 
-Last updated at 10/01/2022 18:28
+Last updated at 10/01/2022 18:29
