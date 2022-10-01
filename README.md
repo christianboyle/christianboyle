@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cejPqTRTwG7pq8na-wwwXIw-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-divine-shine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o7jk7zqFzzIfDl6k-81pbJQ-t500x500.jpg">](https://soundcloud.com/soviet_kid/crash-bash-lil-uzi-vert-x-lil-tecca-tropical-rage-type-beat)
 
-**Artist**: M-Project 
+**Artist**: $OViET KiD 
 
-**Track**: M-Project - Divine Shine
+**Track**: "Crash Bash" Lil Uzi Vert x Lil Tecca | Tropical RAGE Type Beat
 
-Last updated at 09/30/2022 16:20
+Last updated at 10/01/2022 09:59
