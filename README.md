@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyAN6bMrK5kENYaN-wIijLQ-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-september-22-top-15-uk-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
 
-**Artist**: SDJ 
+**Artist**: MC4D 
 
-**Track**: SDJ - September 22 Top 15 - UK Hardcore
+**Track**: Down Under Country Mix Vol. 3
 
-Last updated at 10/01/2022 10:11
+Last updated at 10/01/2022 10:12
