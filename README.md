@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyGjpI716z00CukQ-6fUCSg-t500x500.jpg">](https://soundcloud.com/headbangsociety/sacred-snow-elevate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsCV5xZptkUIvTJz-U7v6GQ-t500x500.jpg">](https://soundcloud.com/recallrecords/shix-emergency?in=recallrecords/sets/shix-starchaser)
 
-**Artist**: Headbang Society 
+**Artist**: Recall Records 
 
-**Track**: SACRED SNOW - ELEVATE
+**Track**: SHIX - EMERGENCY
 
-Last updated at 10/01/2022 14:59
+Last updated at 10/01/2022 16:41
