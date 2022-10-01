@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AXW4fpP3TBZxr2CT-yDvScA-t500x500.jpg">](https://soundcloud.com/space-wafflez/as-memories-fade-away)
 
-**Artist**: MC4D 
+**Artist**: Space Wafflez 
 
-**Track**: Down Under Country Mix Vol. 3
+**Track**: as memories fade away
 
-Last updated at 10/01/2022 17:16
+Last updated at 10/01/2022 17:45
