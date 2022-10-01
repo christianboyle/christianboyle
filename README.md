@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4s6ddBY2YA4qxFde-Z9ay7g-t500x500.jpg">](https://soundcloud.com/danlrk/diary-of-a-parasite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJdKTx7kVdj7-0-t500x500.jpg">](https://soundcloud.com/katyperry/small-talk-white-panda-remix)
 
-**Artist**: Dan Larkin 
+**Artist**: KatyPerry 
 
-**Track**: Juniper Fields - Diary of a Parasite (Dan Larkin Remix)
+**Track**: Small Talk (White Panda Remix)
 
-Last updated at 10/01/2022 17:14
+Last updated at 10/01/2022 17:15
