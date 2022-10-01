@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqcO5x7drD2q-0-t500x500.jpg">](https://soundcloud.com/whydontweofficial/trust-fund-baby-the-white)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wDNqkvx5mg56R4J-iB5UQg-t500x500.jpg">](https://soundcloud.com/aamourocean/02-life-sim-idl-aamourocean-remix)
 
-**Artist**: Why Don't We 
+**Artist**: aamourocean 
 
-**Track**: Trust Fund Baby (The White Panda Remix)
+**Track**: 02  Life Sim - IDL aamourocean ( ˇ෴ˇ ) ♪ ♫  Remix
 
-Last updated at 10/01/2022 10:17
+Last updated at 10/01/2022 10:18
