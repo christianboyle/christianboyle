@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CduxKyoNA6H92z8y-yudwmw-t500x500.jpg">](https://soundcloud.com/coastrsbackupstash/i-like-you-coastr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqcO5x7drD2q-0-t500x500.jpg">](https://soundcloud.com/whydontweofficial/trust-fund-baby-the-white)
 
-**Artist**: COASTR.'s BACKUP STASH 
+**Artist**: Why Don't We 
 
-**Track**: Post Malone, Doja Cat - I Like You (A Happier Song) [COASTR. Remix] BUY FOR FREE DOWNLOAD
+**Track**: Trust Fund Baby (The White Panda Remix)
 
-Last updated at 10/01/2022 17:00
+Last updated at 10/01/2022 17:01
