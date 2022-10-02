@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mWxoy8qaev6mHU85-NolDLA-t500x500.jpg">](https://soundcloud.com/vowlmusic/vowl-x-sace-2000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rx9sm1kcWYHl6eLY-LYuD0Q-t500x500.jpg">](https://soundcloud.com/kawaiiry/silence-open-amincmaj-151bpmprod-notamachine-joe-leytrick)
 
-**Artist**: vowl. 
+**Artist**: Kawaii Ry 
 
-**Track**: vowl. x sace - 2000
+**Track**: Silence (feat. Jackie Platinum)(prod. Notamachine + Joe Leytrick)
 
-Last updated at 10/02/2022 09:52
+Last updated at 10/02/2022 09:53
