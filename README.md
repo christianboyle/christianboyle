@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqcO5x7drD2q-0-t500x500.jpg">](https://soundcloud.com/whydontweofficial/trust-fund-baby-the-white)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000414164970-u22op6-t500x500.jpg">](https://soundcloud.com/whitepanda/how-good-we-got-it-feat-caye)
 
-**Artist**: Why Don't We 
+**Artist**: White Panda 
 
-**Track**: Trust Fund Baby (The White Panda Remix)
+**Track**: How Good We Got It (feat. Caye)
 
-Last updated at 10/01/2022 18:29
+Last updated at 10/02/2022 09:46
