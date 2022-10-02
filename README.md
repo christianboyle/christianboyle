@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AFl0nxGToslOpywX-rRXuCg-t500x500.jpg">](https://soundcloud.com/jgdubz/klimbuva)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mWxoy8qaev6mHU85-NolDLA-t500x500.jpg">](https://soundcloud.com/vowlmusic/vowl-x-sace-2000)
 
-**Artist**: JG Dubz 
+**Artist**: vowl. 
 
-**Track**: JG DUBZ & SAIGGA - KLIMBUVA ( FREE DL )
+**Track**: vowl. x sace - 2000
 
-Last updated at 10/02/2022 09:51
+Last updated at 10/02/2022 09:52
