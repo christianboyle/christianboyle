@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NEYSD07ne9tKsAvW-ReJkXg-t500x500.jpg">](https://soundcloud.com/crisosound/criso-foolery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toaOi3rjTxoG7RmF-qTeAJA-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-custom-house-square-belfast-2022)
 
-**Artist**: Criso 
+**Artist**: Ben Nicky 
 
-**Track**: Foolery
+**Track**: Ben Nicky Live @ Custom House Square, Belfast 2022
 
-Last updated at 10/02/2022 12:22
+Last updated at 10/05/2022 13:11
