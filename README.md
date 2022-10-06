@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628091911-rae89c-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-first-of-the-yearbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zLShN1M53Gnjyy9-5TojvQ-t500x500.jpg">](https://soundcloud.com/djcostaboston/chainsmokers-x-retrovision-closer-costas-bootie)
 
-**Artist**: Dimitri K 
+**Artist**: Costa 
 
-**Track**: First Of The Year(Bootleg)
+**Track**: Chainsmokers x Retrovision - Closer (COSTA BOOTIE)
 
-Last updated at 10/06/2022 13:59
+Last updated at 10/06/2022 14:00
