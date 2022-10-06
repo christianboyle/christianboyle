@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGBSIzyVvcwIODlM-ymzMVw-t500x500.jpg">](https://soundcloud.com/n_ninety/systematic-terror)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6s9IGwjuSZ8Otzm-862AHw-t500x500.jpg">](https://soundcloud.com/s3rl/feel-the-melody-examelodica-remix-s3rl)
 
-**Artist**: nninety 
+**Artist**: S3RL 
 
-**Track**: SYSTEMATIC TERROR④
+**Track**: Feel The Melody (ExaMelodica Remix) - S3RL
 
-Last updated at 10/06/2022 08:34
+Last updated at 10/06/2022 08:35
