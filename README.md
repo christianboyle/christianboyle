@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vj7fFKjkQ6udx7UE-czdKHQ-t500x500.jpg">](https://soundcloud.com/itsluistorres/deadmau5-arguru-luis-torres-2022-bootleg-radio-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZ0wQzzTRLC3gFE9-NxzpRQ-t500x500.jpg">](https://soundcloud.com/trekkie-trax/dayzero-subworld-communication-teaser-1)
 
-**Artist**: Luis Torres 
+**Artist**: TREKKIE TRAX 
 
-**Track**: Deadmau5 - Arguru (Luis Torres 2022 Bootleg)
+**Track**: Dayzero - Subworld Communication [Official Teaser]
 
-Last updated at 10/06/2022 08:32
+Last updated at 10/06/2022 08:33
