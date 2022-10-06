@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zLShN1M53Gnjyy9-5TojvQ-t500x500.jpg">](https://soundcloud.com/djcostaboston/chainsmokers-x-retrovision-closer-costas-bootie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaPSLHzhpe4f-0-t500x500.jpg">](https://soundcloud.com/wearelostkings/save-me-feat-kiddo-ai)
 
-**Artist**: Costa 
+**Artist**: Lost Kings 
 
-**Track**: Chainsmokers x Retrovision - Closer (COSTA BOOTIE)
+**Track**: Save Me (feat. Kiddo A.I.)
 
-Last updated at 10/06/2022 14:00
+Last updated at 10/06/2022 14:01
