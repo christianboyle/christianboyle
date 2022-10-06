@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZ0wQzzTRLC3gFE9-NxzpRQ-t500x500.jpg">](https://soundcloud.com/trekkie-trax/dayzero-subworld-communication-teaser-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGBSIzyVvcwIODlM-ymzMVw-t500x500.jpg">](https://soundcloud.com/n_ninety/systematic-terror)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: nninety 
 
-**Track**: Dayzero - Subworld Communication [Official Teaser]
+**Track**: SYSTEMATIC TERROR④
 
-Last updated at 10/06/2022 08:33
+Last updated at 10/06/2022 08:34
