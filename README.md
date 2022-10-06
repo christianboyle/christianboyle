@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6s9IGwjuSZ8Otzm-862AHw-t500x500.jpg">](https://soundcloud.com/s3rl/feel-the-melody-examelodica-remix-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628091911-rae89c-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-first-of-the-yearbootleg)
 
-**Artist**: S3RL 
+**Artist**: Dimitri K 
 
-**Track**: Feel The Melody (ExaMelodica Remix) - S3RL
+**Track**: First Of The Year(Bootleg)
 
-Last updated at 10/06/2022 08:35
+Last updated at 10/06/2022 13:59
