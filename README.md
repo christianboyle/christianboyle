@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vj7fFKjkQ6udx7UE-czdKHQ-t500x500.jpg">](https://soundcloud.com/itsluistorres/deadmau5-arguru-luis-torres-2022-bootleg-radio-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CBzzzSfw7pzg8KDh-A3Iirw-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-edit-pack-vol-3)
 
-**Artist**: Luis Torres 
+**Artist**: BLVD. 
 
-**Track**: Deadmau5 - Arguru (Luis Torres 2022 Bootleg)
+**Track**: BLVD. Edit Pack Vol. 3
 
-Last updated at 10/07/2022 17:19
+Last updated at 10/07/2022 17:22
