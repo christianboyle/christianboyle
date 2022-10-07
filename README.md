@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsoJkYW3TYHjIvRQ-y81FJg-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-chane-rastaya-thanda-maxx-rossi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-wxvQxKIrKD9On4z2-pzR2dw-t500x500.jpg">](https://soundcloud.com/djsmth/nicee3)
 
-**Artist**: Techno Wereld 
+**Artist**: dj something 
 
-**Track**: Premiere: Chané - Rastaya Thanda (Maxx Rossi Remix)
+**Track**: be nicee 2 me
 
-Last updated at 10/07/2022 17:27
+Last updated at 10/07/2022 17:34
