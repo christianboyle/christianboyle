@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSiiXoMerzlBWDbf-Oo0aig-t500x500.jpg">](https://soundcloud.com/whethan/fall-out-girl-ft-zai1k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bF99NLFAfPovZqnm-Rvi0sg-t500x500.jpg">](https://soundcloud.com/valentinokhan/valentino-khan-dillon-francis-move-it-jawns-remix)
 
-**Artist**: Whethan 
+**Artist**: Valentino Khan 
 
-**Track**: Fall Out  Girl Ft. Zai1k
+**Track**: Valentino Khan & Dillon Francis - Move It (JAWNS Remix)
 
-Last updated at 10/07/2022 17:58
+Last updated at 10/07/2022 18:00
