@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cWRocxSbeMSFDC1-hMS3ng-t500x500.jpg">](https://soundcloud.com/thegoblinslair/thred-pull-up-high-caliber-records?in=threddedbass/sets/pull-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nenxzU06BPRCpE6N-lqrWUg-t500x500.jpg">](https://soundcloud.com/author-wind1823/love-divewruya?in=imruyaya/sets/heart-tracker-ep)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: Author wind 
 
-**Track**: Thred - Pull Up [High Caliber Records]
+**Track**: Love Dive(w/RuYA)
 
-Last updated at 10/07/2022 12:19
+Last updated at 10/07/2022 12:20
