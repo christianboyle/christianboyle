@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bF99NLFAfPovZqnm-Rvi0sg-t500x500.jpg">](https://soundcloud.com/valentinokhan/valentino-khan-dillon-francis-move-it-jawns-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592926206-52vwgq-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/griztronicsgflip)
 
-**Artist**: Valentino Khan 
+**Artist**: GEO 
 
-**Track**: Valentino Khan & Dillon Francis - Move It (JAWNS Remix)
+**Track**: GRIZ FT SUBTRONICS - GRIZTRONICS (GEO FLIP)
 
-Last updated at 10/07/2022 18:00
+Last updated at 10/07/2022 18:04
