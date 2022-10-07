@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enC6RA11r01cOjq1-yEzWRA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/fine-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z03BfU8dBT5hfTuQ-wDncgQ-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-166-dj-pacifier)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Boiler Room 
 
-**Track**: FINE DAY
+**Track**: Hard Dance 166: DJ Pacifier
 
-Last updated at 10/07/2022 12:15
+Last updated at 10/07/2022 12:16
