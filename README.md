@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-wxvQxKIrKD9On4z2-pzR2dw-t500x500.jpg">](https://soundcloud.com/djsmth/nicee3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eEONtXjAi0Vqkeyp-oSoqEA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/fight)
 
-**Artist**: dj something 
+**Artist**: Quickdrop 
 
-**Track**: be nicee 2 me
+**Track**: Fight (with NIKSTER)
 
-Last updated at 10/07/2022 16:28
+Last updated at 10/07/2022 16:32
