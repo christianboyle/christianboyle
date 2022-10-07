@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-84SzyyMAhI2iBn0k-p2DRUQ-t500x500.jpg">](https://soundcloud.com/djharrymore/chris-brown-3x-yeah-harry-more-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSiiXoMerzlBWDbf-Oo0aig-t500x500.jpg">](https://soundcloud.com/whethan/fall-out-girl-ft-zai1k)
 
-**Artist**: Harry More 
+**Artist**: Whethan 
 
-**Track**: Chris Brown - 3x Yeah (Harry More Bootleg)
+**Track**: Fall Out  Girl Ft. Zai1k
 
-Last updated at 10/07/2022 18:20
+Last updated at 10/07/2022 18:23
