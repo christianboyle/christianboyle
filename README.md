@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNK5D6Ot7q2BG5N7-TSYhsg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/steji-back-to-the-beat?in=golddiggerrecs/sets/staygoldvol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbnVMjx3NpgiGlDb-4gFMKA-t500x500.jpg">](https://soundcloud.com/traptownrecords/fwm)
 
-**Artist**: GOLD DiGGER [RECORDS] 
+**Artist**: Trap Town Records 
 
-**Track**: Steji - Back To The Beat [Gold Digger]
+**Track**: Sneaky Ollie & BLVKSTN - FWM
 
-Last updated at 10/07/2022 12:17
+Last updated at 10/07/2022 12:18
