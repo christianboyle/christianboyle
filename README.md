@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSiiXoMerzlBWDbf-Oo0aig-t500x500.jpg">](https://soundcloud.com/whethan/fall-out-girl-ft-zai1k)
 
-**Artist**: No Hero 
+**Artist**: Whethan 
 
-**Track**: Katy Perry - Hot N Cold (No Hero Remix)
+**Track**: Fall Out  Girl Ft. Zai1k
 
-Last updated at 10/07/2022 17:57
+Last updated at 10/07/2022 17:58
