@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vj7fFKjkQ6udx7UE-czdKHQ-t500x500.jpg">](https://soundcloud.com/itsluistorres/deadmau5-arguru-luis-torres-2022-bootleg-radio-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
 
-**Artist**: Luis Torres 
+**Artist**: No Hero 
 
-**Track**: Deadmau5 - Arguru (Luis Torres 2022 Bootleg)
+**Track**: Katy Perry - Hot N Cold (No Hero Remix)
 
-Last updated at 10/07/2022 17:52
+Last updated at 10/07/2022 17:57
