@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HCYuM65BVbqPAwj-TBAO8A-t500x500.jpg">](https://soundcloud.com/un_ty/2022-08-07-15h58m54)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7c6mCpZbZyprRDBF-UT64dQ-t500x500.jpg">](https://soundcloud.com/oneseventy/aurede-would-u-do)
 
-**Artist**: UN.TY 
+**Artist**: OneSeventy 
 
-**Track**: UN.TY - Generator [ Melodic Techno Mix Set ]
+**Track**: Aurede - Would U Do (Radio Edit)
 
-Last updated at 10/07/2022 16:35
+Last updated at 10/07/2022 17:06
