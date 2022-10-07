@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GOd6S39Ben2SqKW-98znqw-t500x500.jpg">](https://soundcloud.com/hambolicious/aida-corvana-dj-hammy-2022-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9ak8TwyCzq3UiWv-Q91PXg-t500x500.jpg">](https://soundcloud.com/dunkmellowd/guava-light-of-my-life-mellowd-remix)
 
-**Artist**: DJ Hammy 
+**Artist**: MellowD 
 
-**Track**: A.I.D.A - Corvana (DJ Hammy 2022 Bounce Mix)
+**Track**: Guava - Light Of My Life (MellowD Remix)
 
-Last updated at 10/07/2022 18:07
+Last updated at 10/07/2022 18:14
