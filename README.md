@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/6gO_Jjk3pyQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=6gO_Jjk3pyQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vj7fFKjkQ6udx7UE-czdKHQ-t500x500.jpg">](https://soundcloud.com/itsluistorres/deadmau5-arguru-luis-torres-2022-bootleg-radio-cut)
 
-**Artist**: 
-  
-    StephenWalking
-  
-  
-  
-    StephenWalking
-  
+**Artist**: Luis Torres 
 
+**Track**: Deadmau5 - Arguru (Luis Torres 2022 Bootleg)
 
-
-
-
- 
-
-**Track**: Top of the World 2
-
-Last updated at 10/07/2022 08:21
+Last updated at 10/07/2022 08:22
