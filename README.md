@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000326109008-ns68k4-t500x500.jpg">](https://soundcloud.com/djgammer/fallingdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ssnKRJXzugPHSJi-QyhwIQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-gldy-lx-basstrain-rebelion-remix)
 
-**Artist**: Gammer 
+**Artist**: Dirty Workz 
 
-**Track**: GAMMER & TECHNIKORE FT. MYLK - FALLING DOWN
+**Track**: Sub Zero Project & GLDY LX - Basstrain (Rebelion Remix)
 
-Last updated at 10/07/2022 12:12
+Last updated at 10/07/2022 12:13
