@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TAxoMp0uADaMxHx3-Z7voNg-t500x500.jpg">](https://soundcloud.com/aqua_land/aqualand-misery-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zLShN1M53Gnjyy9-5TojvQ-t500x500.jpg">](https://soundcloud.com/djcostaboston/chainsmokers-x-retrovision-closer-costas-bootie)
 
-**Artist**: AQUALAND 
+**Artist**: Costa 
 
-**Track**: MISERY BUSINESS
+**Track**: Chainsmokers x Retrovision - Closer (COSTA BOOTIE)
 
-Last updated at 10/07/2022 17:14
+Last updated at 10/07/2022 17:17
