@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTl4fDWfPq3aKXhz-6bBSCg-t500x500.jpg">](https://soundcloud.com/tsurha/highest-building-ryder-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8jSbu8d4MUsnE6k-uPDRnw-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/expld)
 
-**Artist**: ryder 
+**Artist**: MASAYOSHI IIMORI 
 
-**Track**: Highest Building (Ryder Flip)
+**Track**: EXPLD
 
-Last updated at 10/07/2022 12:22
+Last updated at 10/07/2022 12:23
