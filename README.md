@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewn3l8p8n3LlPqfL-2BNf7A-t500x500.jpg">](https://soundcloud.com/its-1drfl/travis-scott-wonderful-1drfl-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000628091911-rae89c-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-first-of-the-yearbootleg)
 
-**Artist**: 1DRFL 
+**Artist**: Dimitri K 
 
-**Track**: Travis Scott - wonderful (1DRFL Edit) [FREE DL]
+**Track**: First Of The Year(Bootleg)
 
-Last updated at 10/07/2022 12:30
+Last updated at 10/07/2022 12:31
