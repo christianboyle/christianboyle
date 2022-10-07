@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d4CU0U0Lt9Gx-0-t500x500.jpg">](https://soundcloud.com/subfocus/ready-to-fly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TAxoMp0uADaMxHx3-Z7voNg-t500x500.jpg">](https://soundcloud.com/aqua_land/aqualand-misery-business)
 
-**Artist**: Sub Focus 
+**Artist**: AQUALAND 
 
-**Track**: Ready To Fly
+**Track**: MISERY BUSINESS
 
-Last updated at 10/07/2022 17:12
+Last updated at 10/07/2022 17:14
