@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7c6mCpZbZyprRDBF-UT64dQ-t500x500.jpg">](https://soundcloud.com/oneseventy/aurede-would-u-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YaeUO38oZy1y6QcV-rnKhnQ-t500x500.jpg">](https://soundcloud.com/leftrightmusic/left-right-comfort)
 
-**Artist**: OneSeventy 
+**Artist**: Left/Right 
 
-**Track**: Aurede - Would U Do (Radio Edit)
+**Track**: Left/Right - Comfort
 
-Last updated at 10/07/2022 17:06
+Last updated at 10/07/2022 17:09
