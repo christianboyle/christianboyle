@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RtuCxSS5F4yzOZ2b-xxAqCw-t500x500.jpg">](https://soundcloud.com/waterin/voices-schranz-refuck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
 
-**Artist**: watering 
+**Artist**: No Hero 
 
-**Track**: voices schranz refuck
+**Track**: Katy Perry - Hot N Cold (No Hero Remix)
 
-Last updated at 10/08/2022 11:37
+Last updated at 10/08/2022 11:39
