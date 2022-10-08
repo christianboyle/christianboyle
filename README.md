@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/the-next-diggity-brllnt-edit?in=brill2ant/sets/remixes-edits-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RtuCxSS5F4yzOZ2b-xxAqCw-t500x500.jpg">](https://soundcloud.com/waterin/voices-schranz-refuck)
 
-**Artist**: B R L L N T 
+**Artist**: watering 
 
-**Track**: THE NEXT DIGGITY (BRLLNT EDIT)
+**Track**: voices schranz refuck
 
-Last updated at 10/08/2022 11:36
+Last updated at 10/08/2022 11:37
