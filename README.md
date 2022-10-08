@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b9wh9RNq2Z590kzc-o5lesg-t500x500.jpg">](https://soundcloud.com/geezuzmusic/geezuz-never-letting-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6wBmJJvEDO3gymB-7PKYyA-t500x500.png">](https://soundcloud.com/biggestlittlecollective/blaow-the-chupacabra)
 
-**Artist**: GEEZUZ 
+**Artist**: Biggest Little Collective 
 
-**Track**: Geezuz - Never Letting Go
+**Track**: BLAOW! - The Chupacabra
 
-Last updated at 10/07/2022 18:24
+Last updated at 10/08/2022 11:35
