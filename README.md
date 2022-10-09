@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Enndmh9qxWIDFVFU-ATcPDQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-brainheart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wj9tVeL6BcGz8Qc-RUIDuA-t500x500.jpg">](https://soundcloud.com/happy-and-core-160530034/happy-core-ft-no-hero-episode-5)
 
-**Artist**: iEDM Radio 
+**Artist**: Happy & Core 
 
-**Track**: iEDM Radio Guest Mix - Brainheart
+**Track**: Happy & Core - ft. No Hero [Episode 5#]
 
-Last updated at 10/09/2022 08:44
+Last updated at 10/09/2022 12:26
