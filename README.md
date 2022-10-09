@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wj9tVeL6BcGz8Qc-RUIDuA-t500x500.jpg">](https://soundcloud.com/happy-and-core-160530034/happy-core-ft-no-hero-episode-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/jungle-brllnt-edit)
 
-**Artist**: Happy & Core 
+**Artist**: B R L L N T 
 
-**Track**: Happy & Core - ft. No Hero [Episode 5#]
+**Track**: JUNGLE (BRLLNT EDIT)
 
-Last updated at 10/09/2022 12:26
+Last updated at 10/09/2022 15:59
