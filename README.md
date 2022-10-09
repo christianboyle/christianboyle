@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgL7RCzbe3GQs42K-hi6wyw-t500x500.jpg">](https://soundcloud.com/brethuuu/lil-nas-x-star-walkin-breth-remix)
 
-**Artist**: No Hero 
+**Artist**: Breth 
 
-**Track**: Katy Perry - Hot N Cold (No Hero Remix)
+**Track**: Lil Nas X - STAR WALKIN' (Breth Remix)
 
-Last updated at 10/08/2022 11:39
+Last updated at 10/09/2022 08:00
