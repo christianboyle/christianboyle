@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/look-at-me-now-brllnt-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H0QrxkC6u2ku55cU-cLxS2Q-t500x500.jpg">](https://soundcloud.com/rinse_france/miley-serious-invite-x-club-07-octobre-2022)
 
-**Artist**: B R L L N T 
+**Artist**: Rinse France 
 
-**Track**: LOOK AT ME NOW (BRLLNT EDIT)
+**Track**: Miley serious invite X Club. - 07 Octobre 2022
 
-Last updated at 10/09/2022 16:02
+Last updated at 10/09/2022 16:04
