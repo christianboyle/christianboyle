@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3UY8ADYVxA7BmbW3-rOz79A-t500x500.jpg">](https://soundcloud.com/gretchenbazooka/azriel-experimental-techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fInTzmpByfUiP1xC-jUd9AQ-t500x500.png">](https://soundcloud.com/dollarbear/gettin-money)
 
-**Artist**: Gretchen Bazooka 
+**Artist**: Dollar Bear 
 
-**Track**: FREE DOWNLOAD - Azriel
+**Track**: Gettin Money [BEAST TRAP]
 
-Last updated at 10/10/2022 12:38
+Last updated at 10/10/2022 12:39
