@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8mKy7PpovPEYgal-ZCfYDg-t500x500.jpg">](https://soundcloud.com/waterin/dojacore-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-204Xisypzr9RP4WC-vRQiEw-t500x500.jpg">](https://soundcloud.com/djk1ra/white-leaf)
 
-**Artist**: watering 
+**Artist**: DJ K1RA 
 
-**Track**: Dojacore 2
+**Track**: ワイト・リーフ
 
-Last updated at 10/10/2022 17:02
+Last updated at 10/10/2022 17:03
