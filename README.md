@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RtuCxSS5F4yzOZ2b-xxAqCw-t500x500.jpg">](https://soundcloud.com/waterin/voices-schranz-refuck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/jungle-brllnt-edit)
 
-**Artist**: watering 
+**Artist**: B R L L N T 
 
-**Track**: voices schranz refuck
+**Track**: JUNGLE (BRLLNT EDIT)
 
-Last updated at 10/10/2022 13:18
+Last updated at 10/10/2022 13:21
