@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0bCRIpFVLlW5-0-t500x500.png">](https://soundcloud.com/iamawakend/find-my-way-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dXGkJKLidtzrojbF-OOqing-t500x500.jpg">](https://soundcloud.com/officialtrapparty/jay-koli-happiness-feat-nathan-brumley)
 
-**Artist**: AWAKEND 
+**Artist**: Trap Party 
 
-**Track**: Find My Way
+**Track**: Jay Koli - Happiness (feat. Nathan Brumley)
 
-Last updated at 10/10/2022 17:25
+Last updated at 10/10/2022 17:29
