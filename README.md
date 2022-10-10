@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sY4BgzTI776s-0-t500x500.jpg">](https://soundcloud.com/syence/a-little-bit-bored-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jTSN7TJIQM0n9IBM-MlIxCw-t500x500.jpg">](https://soundcloud.com/ginandplatonic/b1-72reclosable-tapioca-chrome)
 
-**Artist**: syence 
+**Artist**: Gin&Platonic 
 
-**Track**: a little bit bored (feat. ruuth)
+**Track**: toiret status - #72 - Reclosable Tapioca Chrome (feat. Cat Psalm)
 
-Last updated at 10/10/2022 12:35
+Last updated at 10/10/2022 12:36
