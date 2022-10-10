@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIOPwp7NsJzTnQ7R-yHAKdg-t500x500.jpg">](https://soundcloud.com/presentlylifted/mr-jennings-x-beat-kitty-maximum-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cWRocxSbeMSFDC1-hMS3ng-t500x500.jpg">](https://soundcloud.com/thegoblinslair/thred-pull-up-high-caliber-records)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: THE GOBLINS LAIR 
 
-**Track**: Mr Jennings X Beat Kitty - Maximum Bounce
+**Track**: Thred - Pull Up [High Caliber Records]
 
-Last updated at 10/10/2022 17:05
+Last updated at 10/10/2022 17:06
