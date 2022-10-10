@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HCYuM65BVbqPAwj-TBAO8A-t500x500.jpg">](https://soundcloud.com/un_ty/2022-08-07-15h58m54)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: UN.TY 
+**Artist**: Trapical Music 
 
-**Track**: UN.TY - Generator [ Melodic Techno Mix Set ]
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/10/2022 13:35
+Last updated at 10/10/2022 15:33
