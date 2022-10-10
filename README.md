@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0bCRIpFVLlW5-0-t500x500.png">](https://soundcloud.com/iamawakend/find-my-way-1)
 
-**Artist**: Dj Plant Texture / A662 
+**Artist**: AWAKEND 
 
-**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
+**Track**: Find My Way
 
-Last updated at 10/10/2022 17:19
+Last updated at 10/10/2022 17:25
