@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Enndmh9qxWIDFVFU-ATcPDQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-brainheart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: iEDM Radio 
+**Artist**: Trapical Music 
 
-**Track**: iEDM Radio Guest Mix - Brainheart
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/10/2022 16:46
+Last updated at 10/10/2022 16:47
