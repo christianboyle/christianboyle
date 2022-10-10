@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wj9tVeL6BcGz8Qc-RUIDuA-t500x500.jpg">](https://soundcloud.com/happy-and-core-160530034/happy-core-ft-no-hero-episode-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4fJzYnlHem5wcxRH-WzwbbA-t500x500.jpg">](https://soundcloud.com/dyce-anonymous/daddy-yankee-gasolina-dyce-remix)
 
-**Artist**: Happy & Core 
+**Artist**: Dyce 
 
-**Track**: Happy & Core - ft. No Hero [Episode 5#]
+**Track**: Daddy Yankee - Gasolina (Dyce Remix)
 
-Last updated at 10/09/2022 16:55
+Last updated at 10/10/2022 08:27
