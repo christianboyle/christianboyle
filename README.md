@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4fJzYnlHem5wcxRH-WzwbbA-t500x500.jpg">](https://soundcloud.com/dyce-anonymous/daddy-yankee-gasolina-dyce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-muuK27uC3llGSDWB-p2c0IQ-t500x500.jpg">](https://soundcloud.com/airkazi/necklace)
 
-**Artist**: Dyce 
+**Artist**: Kazi 
 
-**Track**: Daddy Yankee - Gasolina (Dyce Remix)
+**Track**: necklace
 
-Last updated at 10/10/2022 08:27
+Last updated at 10/10/2022 08:28
