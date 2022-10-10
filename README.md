@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032375789-8eg3mp-t500x500.jpg">](https://soundcloud.com/jekyll2112/old-skool-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2CFIl7jLZ6qS7hjj-zUDmvw-t500x500.jpg">](https://soundcloud.com/vitamine05/podcast-22-wmc-2022-promotional-mix)
 
-**Artist**: JEKYLL 
+**Artist**: Rogue Planet Podcasts 
 
-**Track**: Old skool florida breaks
+**Track**: Podcast #22 : WMC 2022 Promotional Mix
 
-Last updated at 10/10/2022 09:52
+Last updated at 10/10/2022 12:10
