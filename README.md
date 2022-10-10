@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/look-at-me-now-brllnt-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
 
-**Artist**: B R L L N T 
+**Artist**: Dj Plant Texture / A662 
 
-**Track**: LOOK AT ME NOW (BRLLNT EDIT)
+**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
 
-Last updated at 10/10/2022 16:49
+Last updated at 10/10/2022 16:51
