@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5cWRocxSbeMSFDC1-hMS3ng-t500x500.jpg">](https://soundcloud.com/thegoblinslair/thred-pull-up-high-caliber-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5SmYVYwz1P9bchc-uheVEA-t500x500.jpg">](https://soundcloud.com/prodopen/personality)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: OPEN 
 
-**Track**: Thred - Pull Up [High Caliber Records]
+**Track**: PERSONALITY
 
-Last updated at 10/10/2022 17:06
+Last updated at 10/10/2022 17:08
