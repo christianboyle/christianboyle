@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gV3RqfmzFXoP8Jd-vwA3cg-t500x500.jpg">](https://soundcloud.com/lancexcv/pimpyoslut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3UY8ADYVxA7BmbW3-rOz79A-t500x500.jpg">](https://soundcloud.com/gretchenbazooka/azriel-experimental-techno)
 
-**Artist**: LANCEXCV 
+**Artist**: Gretchen Bazooka 
 
-**Track**: PIMPYO$$LUT
+**Track**: FREE DOWNLOAD - Azriel
 
-Last updated at 10/10/2022 12:37
+Last updated at 10/10/2022 12:38
