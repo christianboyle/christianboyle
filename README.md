@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Sbjy9y6vnZWRKsy-a7aSCQ-t500x500.jpg">](https://soundcloud.com/lil_rocketman/slatt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2c6K1mDyN104hINU-EcrS3g-t500x500.jpg">](https://soundcloud.com/smolbeats/smol-fresh-bvked-shwilly-losing-my-mind)
 
-**Artist**: 𝐿𝒾𝓁' 𝑅𝑜𝒸𝓀𝑒𝓉𝓂𝒶𝓃 
+**Artist**: smol 
 
-**Track**: SLATT w/ COSMIC & Saleh Beats
+**Track**: smol & FRESH BVKED & shwiLLy  - Losing My Mind (ty for 8k😭🫶)
 
-Last updated at 10/10/2022 12:46
+Last updated at 10/10/2022 12:49
