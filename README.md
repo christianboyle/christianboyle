@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2c6K1mDyN104hINU-EcrS3g-t500x500.jpg">](https://soundcloud.com/smolbeats/smol-fresh-bvked-shwilly-losing-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tw6UZwCCWE06yk5p-qZXxIQ-t500x500.jpg">](https://soundcloud.com/m3nacemusic/land-of-the-lost-vol-4?in=m3nacemusic/sets/hardest-dubstep-mix-of-2022)
 
-**Artist**: smol 
+**Artist**: M3NACE 
 
-**Track**: smol & FRESH BVKED & shwiLLy  - Losing My Mind (ty for 8k😭🫶)
+**Track**: LAND OF THE LOST VOL 4
 
-Last updated at 10/10/2022 12:49
+Last updated at 10/10/2022 12:51
