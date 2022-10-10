@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9y1PrhMlyMy0gzkk-6uuo7g-t500x500.jpg">](https://soundcloud.com/111loggedin/roxy-live-set-the-lash-dtla-oct-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8tZUiu9Gucn5J0WZ-CtGYHg-t500x500.jpg">](https://soundcloud.com/waterin/drenching-in-the-90s)
 
-**Artist**: ✼✿ 111loggedin // ☆.。.:* roxy ♡ 
+**Artist**: watering 
 
-**Track**: live set @ the lash dtla oct 6
+**Track**: DRENCHING IN THE 90'S
 
-Last updated at 10/10/2022 17:00
+Last updated at 10/10/2022 17:01
