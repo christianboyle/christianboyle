@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GoTZPGXn5mYoEZuW-xCNWDg-t500x500.jpg">](https://soundcloud.com/waterin/you-suck-at-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIOPwp7NsJzTnQ7R-yHAKdg-t500x500.jpg">](https://soundcloud.com/presentlylifted/mr-jennings-x-beat-kitty-maximum-bounce)
 
-**Artist**: watering 
+**Artist**: Presently Lifted 👑 
 
-**Track**: you suck at love
+**Track**: Mr Jennings X Beat Kitty - Maximum Bounce
 
-Last updated at 10/10/2022 17:04
+Last updated at 10/10/2022 17:05
