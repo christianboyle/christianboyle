@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tw6UZwCCWE06yk5p-qZXxIQ-t500x500.jpg">](https://soundcloud.com/m3nacemusic/land-of-the-lost-vol-4?in=m3nacemusic/sets/hardest-dubstep-mix-of-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: M3NACE 
+**Artist**: Trapical Music 
 
-**Track**: LAND OF THE LOST VOL 4
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/10/2022 12:51
+Last updated at 10/10/2022 13:00
