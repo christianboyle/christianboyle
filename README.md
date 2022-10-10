@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: Dj Plant Texture / A662 
+**Artist**: Trapical Music 
 
-**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/10/2022 17:12
+Last updated at 10/10/2022 17:16
