@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8tZUiu9Gucn5J0WZ-CtGYHg-t500x500.jpg">](https://soundcloud.com/waterin/drenching-in-the-90s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8mKy7PpovPEYgal-ZCfYDg-t500x500.jpg">](https://soundcloud.com/waterin/dojacore-2)
 
 **Artist**: watering 
 
-**Track**: DRENCHING IN THE 90'S
+**Track**: Dojacore 2
 
-Last updated at 10/10/2022 17:01
+Last updated at 10/10/2022 17:02
