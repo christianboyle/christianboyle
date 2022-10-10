@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Enndmh9qxWIDFVFU-ATcPDQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-brainheart)
 
-**Artist**: Dj Plant Texture / A662 
+**Artist**: iEDM Radio 
 
-**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
+**Track**: iEDM Radio Guest Mix - Brainheart
 
-Last updated at 10/10/2022 15:36
+Last updated at 10/10/2022 15:42
