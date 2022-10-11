@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNcR6Z1hiBEcyaoL-udV5Kg-t500x500.jpg">](https://soundcloud.com/shogunjoseph/ballininthisbitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15v4lo83nbn0qLhC-XkFJVA-t500x500.jpg">](https://soundcloud.com/flowsessions/333-sessions-060-wilma)
 
-**Artist**: SHOGUN 
+**Artist**: Flow Music 
 
-**Track**: 5% TINT (PROD. ISVVC)
+**Track**: 333 Sessions 060 - Wilma
 
-Last updated at 10/11/2022 08:38
+Last updated at 10/11/2022 08:40
