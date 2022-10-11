@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIOPwp7NsJzTnQ7R-yHAKdg-t500x500.jpg">](https://soundcloud.com/presentlylifted/mr-jennings-x-beat-kitty-maximum-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bM9XZa1WyzJZmpvd-QUrvXg-t500x500.jpg">](https://soundcloud.com/hyper_daze/embrace)
 
-**Artist**: Presently Lifted 👑 
+**Artist**: HYPERDAZE 
 
-**Track**: Mr Jennings X Beat Kitty - Maximum Bounce
+**Track**: HYPERDAZE - Embrace
 
-Last updated at 10/11/2022 10:05
+Last updated at 10/11/2022 10:08
