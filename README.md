@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jID5cQbVaZZk1D9-ZF0dKQ-t500x500.jpg">](https://soundcloud.com/marita-steinsvik/marita-steinsvik-live-trance-lillehammer-felix-pub-scene-03092022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdD2YWfYEVajgw29-IIhcig-t500x500.jpg">](https://soundcloud.com/goupil-prod/coming-up-in-my-hood)
 
-**Artist**: Marita Steinsvik 
+**Artist**: Goupil. 
 
-**Track**: Marita Steinsvik @ Trance Lillehammer, Felix Pub & Scene 03.09.2022
+**Track**: COMIN' UP IN MY HOOD
 
-Last updated at 10/11/2022 10:02
+Last updated at 10/11/2022 10:03
