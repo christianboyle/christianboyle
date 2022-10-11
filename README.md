@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tYPjaf2kxrLRHbF8-ZEFwkA-t500x500.jpg">](https://soundcloud.com/balamii/common-ground-w-slouchy-october-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrRhmyZUw5V9X4hL-ogmkaA-t500x500.jpg">](https://soundcloud.com/traptownrecords/20-year-felon)
 
-**Artist**: Balamii 
+**Artist**: Trap Town Records 
 
-**Track**: Common Ground w/ Slouchy - October 2022
+**Track**: BLVKSTN & Hysaze - 20 Year Felon
 
-Last updated at 10/10/2022 17:31
+Last updated at 10/11/2022 08:11
