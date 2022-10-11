@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bIoQ2REHRWMbzrqt-9LwVnA-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-wockhardt-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: Michiganshottesttracks 
+**Artist**: Trapical Music 
 
-**Track**: Rio Da Yung Og - Wockhardt Freestyle
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/11/2022 13:29
+Last updated at 10/11/2022 16:01
