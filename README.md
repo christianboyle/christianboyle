@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdD2YWfYEVajgw29-IIhcig-t500x500.jpg">](https://soundcloud.com/goupil-prod/coming-up-in-my-hood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIOPwp7NsJzTnQ7R-yHAKdg-t500x500.jpg">](https://soundcloud.com/presentlylifted/mr-jennings-x-beat-kitty-maximum-bounce)
 
-**Artist**: Goupil. 
+**Artist**: Presently Lifted 👑 
 
-**Track**: COMIN' UP IN MY HOOD
+**Track**: Mr Jennings X Beat Kitty - Maximum Bounce
 
-Last updated at 10/11/2022 10:03
+Last updated at 10/11/2022 10:05
