@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wj9tVeL6BcGz8Qc-RUIDuA-t500x500.jpg">](https://soundcloud.com/happy-and-core-160530034/happy-core-ft-no-hero-episode-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yg80ZyTaum8yDuG-C75WPQ-t500x500.jpg">](https://soundcloud.com/ill-gates/videodrome)
 
-**Artist**: Happy & Core 
+**Artist**: ill.Gates 
 
-**Track**: Happy & Core - ft. No Hero [Episode 5#]
+**Track**: Videodrome
 
-Last updated at 10/11/2022 16:15
+Last updated at 10/11/2022 19:22
