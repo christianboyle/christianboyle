@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qusdgxCXEXvCzyUv-BIBgwQ-t500x500.jpg">](https://soundcloud.com/aiibee/ab-live-beat-cancer-harder-cyberdog-03092022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
 
-**Artist**: A.B 
+**Artist**: ETC! ETC! 
 
-**Track**: A.B Live @ Beat Cancer Harder Cyberdog 03.09.2022
+**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
 
-Last updated at 10/12/2022 13:19
+Last updated at 10/12/2022 14:03
