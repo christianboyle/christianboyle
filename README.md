@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ebHS6zUfQ80yPpmm-8VyAbQ-t500x500.jpg">](https://soundcloud.com/billykinn/jenaux-pia-toscano-renegades-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yJkzgjvNtoizjvp-rqzoVw-t500x500.jpg">](https://soundcloud.com/gjonesbass/rave)
 
-**Artist**: KINN 
+**Artist**: G JONES 
 
-**Track**: Jenaux & Pia Toscano – Renegades (KINN Remix) **FREE DOWNLOAD**
+**Track**: G Jones & Eprom - R.A.V.E.
 
-Last updated at 10/12/2022 08:05
+Last updated at 10/12/2022 08:06
