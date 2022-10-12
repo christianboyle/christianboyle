@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRp75uX8eEF6397o-gXdqbw-t500x500.jpg">](https://soundcloud.com/djmoooh/mooh-dimensions-016-sep-2022-live-set-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qsHLw7khwf9hnOnx-6pSLGQ-t500x500.jpg">](https://soundcloud.com/deejayectomorph/the-morph-harder-podcast-episode-04-fracus-darwin)
 
-**Artist**: Mooh 
+**Artist**: DJ Ectomorph 
 
-**Track**: Mooh - Dimensions #016 Sep 2022 [Live Set Mix]
+**Track**: The Morph Harder Podcast: Episode 04 - Fracus & Darwin
 
-Last updated at 10/11/2022 19:23
+Last updated at 10/12/2022 08:04
