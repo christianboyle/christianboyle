@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NfLhe3z2v5F5EEhw-0EHdbA-t500x500.jpg">](https://soundcloud.com/emoteria/update)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v86N1WmCsVbtWa5w-vLYDkg-t500x500.jpg">](https://soundcloud.com/pootyh/drugged-out)
 
-**Artist**: 𝓮ﾶ๑ƚ𝘦ɾ𝔦α 
+**Artist**: POOTY 
 
-**Track**: Update
+**Track**: DRUGGED OUT
 
-Last updated at 10/12/2022 13:15
+Last updated at 10/12/2022 13:16
