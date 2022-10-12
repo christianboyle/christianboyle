@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyH3e5be9Yyz4wnD-kOO8jw-t500x500.jpg">](https://soundcloud.com/rinse_france/paradoxe-club-le-dom-to-van-kao-b2b-12-octobre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgmtMNmtTl5K5z94-zzsc8Q-t500x500.jpg">](https://soundcloud.com/ayyofree/hevenly-astral)
 
-**Artist**: Rinse France 
+**Artist**: AY YO TRIP! 
 
-**Track**: Paradoxe Club : Le Dom & To Van Kao B2B - 12 Octobre 2022
+**Track**: Hevenly - Astral [Dubstep N Trap Premiere]
 
-Last updated at 10/12/2022 16:28
+Last updated at 10/12/2022 16:53
