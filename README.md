@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HtbPdVDz6RuXRRrA-fs1oLA-t500x500.jpg">](https://soundcloud.com/f1nneon/ff85f7-x-finneon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ol0A4SWjGu4K-0-t500x500.jpg">](https://soundcloud.com/chromeo/raspberry-blush)
 
-**Artist**: Finneon 
+**Artist**: Chromeo 
 
-**Track**: ੈ♡‧₊˚⋆⑅˚₊#ff85f7 x finneon ₊˚ʚ ᗢ₊˚✧ ﾟ.
+**Track**: Raspberry Blush
 
-Last updated at 10/12/2022 08:09
+Last updated at 10/12/2022 08:10
