@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RN2oTcli8doEmXYx-fyjyVQ-t500x500.jpg">](https://soundcloud.com/quosongs/messes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c3ELkSy1OauZRCcv-Gl73Yg-t500x500.jpg">](https://soundcloud.com/mekapr/gottahaveu-3)
 
-**Artist**: QUO 
+**Artist**: MEKA 
 
-**Track**: Messes
+**Track**: GOTTAHAVEU <3
 
-Last updated at 10/12/2022 08:07
+Last updated at 10/12/2022 08:08
