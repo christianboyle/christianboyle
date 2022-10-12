@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGzwn84lU2ZaSBoV-IUjwkQ-t500x500.jpg">](https://soundcloud.com/etc-etc/notmytempo-ep-46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdZzan1OClOwgbIV-0LJOvw-t500x500.jpg">](https://soundcloud.com/waterin/counting-breaks)
 
-**Artist**: ETC! ETC! 
+**Artist**: watering 
 
-**Track**: #NOTMYTEMPO EP 45
+**Track**: counting breaks
 
-Last updated at 10/12/2022 14:05
+Last updated at 10/12/2022 14:06
