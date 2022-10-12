@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdZzan1OClOwgbIV-0LJOvw-t500x500.jpg">](https://soundcloud.com/waterin/counting-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: watering 
+**Artist**: Trapical Music 
 
-**Track**: counting breaks
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/12/2022 14:06
+Last updated at 10/12/2022 14:08
