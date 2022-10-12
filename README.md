@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdZzan1OClOwgbIV-0LJOvw-t500x500.jpg">](https://soundcloud.com/waterin/counting-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXt0F0VWl49BkPr9-nhdFSQ-t500x500.jpg">](https://soundcloud.com/brill2ant/jungle-brllnt-edit)
 
-**Artist**: watering 
+**Artist**: B R L L N T 
 
-**Track**: counting breaks
+**Track**: JUNGLE (BRLLNT EDIT)
 
-Last updated at 10/12/2022 16:55
+Last updated at 10/12/2022 16:56
