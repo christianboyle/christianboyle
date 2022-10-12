@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjnVIa1nzQnkctPR-JtE8MA-t500x500.jpg">](https://soundcloud.com/dj-luca-g/luca-g-ifeel-summer-escape-2022-saturday-afternoon-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
 
-**Artist**: LUCA G. 
+**Artist**: ETC! ETC! 
 
-**Track**: Luca G, IFeel Summer Escape 2022, Saturday Afternoon Live Set
+**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
 
-Last updated at 10/12/2022 13:09
+Last updated at 10/12/2022 13:14
