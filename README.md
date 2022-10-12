@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyH3e5be9Yyz4wnD-kOO8jw-t500x500.jpg">](https://soundcloud.com/rinse_france/paradoxe-club-le-dom-to-van-kao-b2b-12-octobre-2022)
 
-**Artist**: ETC! ETC! 
+**Artist**: Rinse France 
 
-**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
+**Track**: Paradoxe Club : Le Dom & To Van Kao B2B - 12 Octobre 2022
 
-Last updated at 10/12/2022 14:12
+Last updated at 10/12/2022 16:28
