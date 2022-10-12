@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgmtMNmtTl5K5z94-zzsc8Q-t500x500.jpg">](https://soundcloud.com/ayyofree/hevenly-astral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dl0jFc2NQ9GkzOja-mvz8LA-t500x500.jpg">](https://soundcloud.com/byvesin/vesin-learn-to-love)
 
-**Artist**: AY YO TRIP! 
+**Artist**: Vesin 
 
-**Track**: Hevenly - Astral [Dubstep N Trap Premiere]
+**Track**: Vesin - Learn To Love
 
-Last updated at 10/12/2022 16:53
+Last updated at 10/12/2022 16:54
