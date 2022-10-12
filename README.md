@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXMFz82ZS4c3zq2r-gwbxnQ-t500x500.jpg">](https://soundcloud.com/bitbird/tails-on-hold-lorean-remix)
 
-**Artist**: ETC! ETC! 
+**Artist**: bitbird 
 
-**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
+**Track**: Tails - on hold (Lørean Remix)
 
-Last updated at 10/12/2022 17:05
+Last updated at 10/12/2022 17:27
