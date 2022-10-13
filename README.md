@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsfEvSla11XEe0Ul-z1vdDg-t500x500.jpg">](https://soundcloud.com/blaq-void/the-mix-022-slick-guest-mix?in=djslickmusic/sets/the-mix-023-slick-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itEqNG5LGemy1ahK-7e4xqQ-t500x500.jpg">](https://soundcloud.com/simplifyrecs/bh-supposed-to-do)
 
-**Artist**: BLAQ VOID 
+**Artist**: Simplify. 
 
-**Track**: THE MIX | #023 | SLICK Guest Mix
+**Track**: BH - Supposed To Do
 
-Last updated at 10/13/2022 11:48
+Last updated at 10/13/2022 12:48
