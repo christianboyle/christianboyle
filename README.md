@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iam1tioKYaqO9nHJ-TEymOQ-t500x500.jpg">](https://soundcloud.com/villasoundss/villa-brownies-lemonade-double-cross-fall-2022v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick)
 
-**Artist**: VILLA 
+**Artist**: glaive 
 
-**Track**: VILLA @ Brownies & Lemonade: Double Cross [Fall 2022]
+**Track**: prick
 
-Last updated at 10/13/2022 17:13
+Last updated at 10/13/2022 17:15
