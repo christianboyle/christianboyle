@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Ah7JuMnKDPdK00B-TLdB5g-t500x500.jpg">](https://soundcloud.com/lussomusic/lussos-nightclub-autumn-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
 
-**Artist**: LUSSO 
+**Artist**: Dj Plant Texture / A662 
 
-**Track**: LUSSO's Nightclub - Autumn 2022 | The BEST Tech House, Remixes & Mashups - [IG @LUSSOMUSICX]
+**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
 
-Last updated at 10/12/2022 17:29
+Last updated at 10/12/2022 20:23
