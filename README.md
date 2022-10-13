@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4d7kq0EUvzpOzsqB-ggwDlg-t500x500.jpg">](https://soundcloud.com/dona-sound/the-immortals-mortal-kombat-dj-plant-texture-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2R0qRqGvsheFdScC-zMTt5A-t500x500.jpg">](https://soundcloud.com/tuisessions/tui-me)
 
-**Artist**: Dj Plant Texture / A662 
+**Artist**: Tui 
 
-**Track**: The Immortals - Mortal Kombat (Dj Plant Texture Edit)
+**Track**: Me
 
-Last updated at 10/12/2022 20:23
+Last updated at 10/13/2022 11:37
