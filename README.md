@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P0wG7AJOmoQ3A3sr-kXODXg-t500x500.jpg">](https://soundcloud.com/sablevalley/void-theory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj54CnwFsh2A7PwI-Jg9y5A-t500x500.jpg">](https://soundcloud.com/nightmoderecs/angelslanding?in=isoxo/sets/isoxo-frosttop-angels-landing)
 
-**Artist**: SABLE VALLEY 
+**Artist**: NIGHTMODE 
 
-**Track**: X&G - Void Theory
+**Track**: ISOxo & FrostTop - Angels Landing
 
-Last updated at 10/13/2022 15:59
+Last updated at 10/13/2022 16:00
