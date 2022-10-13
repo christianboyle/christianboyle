@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v4RNTPQ0jde7k3jf-nvugZA-t500x500.jpg">](https://soundcloud.com/sablevalley/silo?in=sablevalley/sets/sable-valley-summer-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P0wG7AJOmoQ3A3sr-kXODXg-t500x500.jpg">](https://soundcloud.com/sablevalley/void-theory)
 
 **Artist**: SABLE VALLEY 
 
-**Track**: RL Grime & Hex Cougar - Silo (feat. fknsyd)
+**Track**: X&G - Void Theory
 
-Last updated at 10/13/2022 15:58
+Last updated at 10/13/2022 15:59
