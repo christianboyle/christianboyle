@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj54CnwFsh2A7PwI-Jg9y5A-t500x500.jpg">](https://soundcloud.com/nightmoderecs/angelslanding?in=isoxo/sets/isoxo-frosttop-angels-landing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zeHnzVTVqAxg6e-0W60sg-t500x500.jpg">](https://soundcloud.com/stripess/bethere)
 
-**Artist**: NIGHTMODE 
+**Artist**: stripess 
 
-**Track**: ISOxo & FrostTop - Angels Landing
+**Track**: be there
 
-Last updated at 10/13/2022 16:00
+Last updated at 10/13/2022 17:12
