@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qWcK7gqy3QDlzNGn-MqLD2A-t500x500.jpg">](https://soundcloud.com/flawlessexecution/dead-homies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7Ro1XHypRD1hdcL-DsIZrg-t500x500.jpg">](https://soundcloud.com/balamii/slipped-discs-october-2022)
 
-**Artist**: Amatsu-Mikaboshi 
+**Artist**: Balamii 
 
-**Track**: DEAD HOMIES
+**Track**: Slipped Discs - October 2022
 
-Last updated at 10/13/2022 11:46
+Last updated at 10/13/2022 11:47
