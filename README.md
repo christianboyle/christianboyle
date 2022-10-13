@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/k6Q0yGxU7PU/maxresdefault.jpg">](https://www.youtube.com/watch?v=k6Q0yGxU7PU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000124945608-mb74ho-t500x500.jpg">](https://soundcloud.com/togetherwerise/twrfree1)
 
-**Artist**: 
-  
-    glaive
-  
-  
-  
-    glaive
-  
+**Artist**: Together We Rise 
 
+**Track**: Re-Con - Ignite [FREE DOWNLOAD #1]
 
-
-
-
- 
-
-**Track**: glaive – prick (official video)
-
-Last updated at 10/13/2022 17:19
+Last updated at 10/13/2022 17:22
