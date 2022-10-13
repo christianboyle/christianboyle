@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/k6Q0yGxU7PU/maxresdefault.jpg">](https://www.youtube.com/watch?v=k6Q0yGxU7PU)
 
-**Artist**: glaive 
+**Artist**: 
+  
+    glaive
+  
+  
+  
+    glaive
+  
 
-**Track**: prick
 
-Last updated at 10/13/2022 17:15
+
+
+
+ 
+
+**Track**: glaive – prick (official video)
+
+Last updated at 10/13/2022 17:19
