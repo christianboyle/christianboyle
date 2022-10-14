@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9SLeTbuZtFpaFtfq-s0QCZg-t500x500.jpg">](https://soundcloud.com/sublabmusic/tryharder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
 
-**Artist**: Sublab 
+**Artist**: No Hero 
 
-**Track**: TRY HARDER
+**Track**: Katy Perry - Hot N Cold (No Hero Remix)
 
-Last updated at 10/13/2022 22:50
+Last updated at 10/13/2022 22:51
