@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FL2UfJ6rfPF2NzR8-xmdApA-t500x500.jpg">](https://soundcloud.com/the-ransom-note/slipmatt-the-ransom-note-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K9jeXkKocR0uusaE-uZ0zzQ-t500x500.jpg">](https://soundcloud.com/blueblooddubs/occult)
 
-**Artist**: Ransom Note 
+**Artist**: BLUE BLOOD 
 
-**Track**: Slipmatt: The Ransom Note Mix
+**Track**: OCCULT
 
-Last updated at 10/14/2022 15:16
+Last updated at 10/14/2022 16:07
