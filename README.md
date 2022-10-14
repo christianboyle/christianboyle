@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itEqNG5LGemy1ahK-7e4xqQ-t500x500.jpg">](https://soundcloud.com/simplifyrecs/bh-supposed-to-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
 
-**Artist**: Simplify. 
+**Artist**: ETC! ETC! 
 
-**Track**: BH - Supposed To Do
+**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
 
-Last updated at 10/13/2022 22:43
+Last updated at 10/13/2022 22:46
