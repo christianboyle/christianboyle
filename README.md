@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQGMw70kJwQP-0-t500x500.jpg">](https://soundcloud.com/snbrn/i-dont-think-u-do-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AECIoVy35q6b1gm4-wpKzNA-t500x500.jpg">](https://soundcloud.com/rejectionjp/beat-of-the-drum)
 
-**Artist**: SNBRN 
+**Artist**: rejection 
 
-**Track**: I Don't Think U Do
+**Track**: Beat Of The Drum 【F/C WE DIE YOUNG vol.1】
 
-Last updated at 10/14/2022 09:54
+Last updated at 10/14/2022 09:55
