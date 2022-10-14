@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRQsRSK4xnFXbCTL-lbxkNw-t500x500.jpg">](https://soundcloud.com/rinse_france/afraa-avec-sebastien-forrester-3phaz-14-octobre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HZpMXTMsqz2LVE3-TlYR9g-t500x500.jpg">](https://soundcloud.com/ghettoghettorecords/syn23-oabang)
 
-**Artist**: Rinse France 
+**Artist**: GHETTO GHETTO 
 
-**Track**: Afraa avec Sébastien Forrester & 3Phaz - 14 Octobre 2022
+**Track**: SYN23 - Oabang
 
-Last updated at 10/14/2022 15:10
+Last updated at 10/14/2022 15:12
