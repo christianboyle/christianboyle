@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K9jeXkKocR0uusaE-uZ0zzQ-t500x500.jpg">](https://soundcloud.com/blueblooddubs/occult)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cjmjLoKxZz202Wwy-iGb1Ag-t500x500.jpg">](https://soundcloud.com/katebi/moodswing)
 
-**Artist**: BLUE BLOOD 
+**Artist**: katebi 
 
-**Track**: OCCULT
+**Track**: moodswing
 
-Last updated at 10/14/2022 16:07
+Last updated at 10/14/2022 16:08
