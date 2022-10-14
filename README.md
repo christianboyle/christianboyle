@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSiiXoMerzlBWDbf-Oo0aig-t500x500.jpg">](https://soundcloud.com/whethan/fall-out-girl-ft-zai1k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
 
-**Artist**: Whethan 
+**Artist**: Trapical Music 
 
-**Track**: Fall Out  Girl Ft. Zai1k
+**Track**: Charli XCX - Move Me (Meddus Remix)
 
-Last updated at 10/13/2022 22:52
+Last updated at 10/13/2022 22:54
