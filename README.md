@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCmTn2wTgD3hdT5B-DDSGoQ-t500x500.jpg">](https://soundcloud.com/blasphemyrecords/navyy-i-need-you-the-most)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8x7anyh69VmcjkjY-B45XUQ-t500x500.jpg">](https://soundcloud.com/chaoscr3w/playmates?in=shogunmoryo/sets/ethereal-w-chaoscr3w)
 
-**Artist**: Blasphemy Records 
+**Artist**: chaos! 
 
-**Track**: Navyy - I Need You The Most (SHOGOTT REMIX) EXTRA TRACK FREE DOWNLOAD
+**Track**: PLAYMATES
 
-Last updated at 10/20/2022 08:37
+Last updated at 10/20/2022 08:38
