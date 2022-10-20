@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8x7anyh69VmcjkjY-B45XUQ-t500x500.jpg">](https://soundcloud.com/chaoscr3w/wht-id-do?in=shogunmoryo/sets/ethereal-w-chaoscr3w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scHumTh7XSnuyygP-zBhN1w-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-nu-hit)
 
-**Artist**: chaos! 
+**Artist**: Dabow 
 
-**Track**: WHT I'D DO
+**Track**: Dabow - NU $HIT
 
-Last updated at 10/20/2022 11:05
+Last updated at 10/20/2022 11:07
