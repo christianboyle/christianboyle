@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQcjWoc0AoMZixOW-huvOSQ-t500x500.jpg">](https://soundcloud.com/imkidkei/harshab)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYp9qL63Bz6PGBzr-NeV9GA-t500x500.jpg">](https://soundcloud.com/etheprofit/kenji-x-profit-afford-me)
 
-**Artist**: KID KEI 
+**Artist**: E The Profit 
 
-**Track**: HARSHAB
+**Track**: Afford Me (feat. Dro Kenji) prod. Rocco Roy
 
-Last updated at 10/20/2022 08:35
+Last updated at 10/20/2022 08:36
