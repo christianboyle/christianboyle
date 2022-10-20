@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DMZK0H0yVNi6-0-t500x500.jpg">](https://soundcloud.com/kobiblastoyz/colosseum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQcjWoc0AoMZixOW-huvOSQ-t500x500.jpg">](https://soundcloud.com/imkidkei/harshab)
 
-**Artist**: Blastoyz 
+**Artist**: KID KEI 
 
-**Track**: Colosseum
+**Track**: HARSHAB
 
-Last updated at 10/20/2022 08:28
+Last updated at 10/20/2022 08:35
