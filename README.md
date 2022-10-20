@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyxmyDHBUFMvQo6a-BbNFKA-t500x500.jpg">](https://soundcloud.com/rinse_france/reif-takeover-eleonora-sutter-201022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DMZK0H0yVNi6-0-t500x500.jpg">](https://soundcloud.com/kobiblastoyz/colosseum)
 
-**Artist**: Rinse France 
+**Artist**: Blastoyz 
 
-**Track**: Reif Takeover : Eleonora Sutter - 20 Octobre 2022
+**Track**: Colosseum
 
-Last updated at 10/20/2022 08:26
+Last updated at 10/20/2022 08:28
