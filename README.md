@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scHumTh7XSnuyygP-zBhN1w-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-nu-hit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: Dabow 
+**Artist**: S3RL 
 
-**Track**: Dabow - NU $HIT
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 10/20/2022 11:07
+Last updated at 10/20/2022 11:09
