@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ciMwyPXdELzk5OO-q0CnDg-t500x500.jpg">](https://soundcloud.com/saas-music/billie-eilish-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i6wgsANpupGODBAv-yGWNDw-t500x500.jpg">](https://soundcloud.com/youngpirelli/wifigawd-soudiere-36-chambers-of-pressure-full-stream)
 
-**Artist**: SAAS 
+**Artist**: SOUDIERE 
 
-**Track**: Armani White- Billie Eilish (SAAS Remix)
+**Track**: WIFIGAWD & SOUDIERE - 36 CHAMBERS OF PRESSURE (Full Stream)
 
-Last updated at 10/20/2022 08:21
+Last updated at 10/20/2022 08:22
