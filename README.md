@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/red-lights-x-the-business-over-easys-anywhere-tonight-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ofRoCIjGuYzJap7E-g9ODAQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/ruse-kudo)
 
-**Artist**: Over Easy [Edits] 
+**Artist**: Scuffed Recordings 
 
-**Track**: Red Lights x The Business [Over Easy's 'Anywhere Tonight' Edit]
+**Track**: Ruse - Kudo
 
-Last updated at 10/21/2022 16:28
+Last updated at 10/21/2022 16:29
