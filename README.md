@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/feel-good-x-dont-you-worry-child-over-easys-wrong-side-of-love-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzX7sC5Cqm6zTcPU-mLvfoA-t500x500.jpg">](https://soundcloud.com/whoskid/protect-me-w-yadosan)
 
-**Artist**: Over Easy [Edits] 
+**Artist**: k?d 
 
-**Track**: Feel Good x Don't You Worry Child [Over Easy's 'Wrong Side of Love' Edit]
+**Track**: PROTECT ME (w/ yadosan)
 
-Last updated at 10/21/2022 17:52
+Last updated at 10/21/2022 17:53
