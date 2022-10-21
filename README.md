@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzX7sC5Cqm6zTcPU-mLvfoA-t500x500.jpg">](https://soundcloud.com/whoskid/protect-me-w-yadosan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXtEYWvFPSwVQym2-yGP2EA-t500x500.jpg">](https://soundcloud.com/nocv/monsters)
 
-**Artist**: k?d 
+**Artist**: Noc.V 
 
-**Track**: PROTECT ME (w/ yadosan)
+**Track**: Monsters
 
-Last updated at 10/21/2022 18:01
+Last updated at 10/21/2022 18:03
