@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QuAPwrUzg8vvX1uP-VgbnWQ-t500x500.jpg">](https://soundcloud.com/its_galo/galo-bad-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjz0JdypjUpE-0-t500x500.png">](https://soundcloud.com/jimineedles/missing-sombrero)
 
-**Artist**: Galo 
+**Artist**: Jimi Needles 
 
-**Track**: Galo - Bad B
+**Track**: Missing Sombrero
 
-Last updated at 10/21/2022 16:25
+Last updated at 10/21/2022 16:26
