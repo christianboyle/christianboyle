@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjz0JdypjUpE-0-t500x500.png">](https://soundcloud.com/jimineedles/missing-sombrero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1VVeFcq20jM-0-t500x500.jpg">](https://soundcloud.com/kraftykuts/the-sauce-feat-pav4n)
 
-**Artist**: Jimi Needles 
+**Artist**: Krafty Kuts 
 
-**Track**: Missing Sombrero
+**Track**: The Sauce (feat. PAV4N)
 
-Last updated at 10/21/2022 16:26
+Last updated at 10/21/2022 16:27
