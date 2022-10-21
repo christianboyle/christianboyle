@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gGjtzpC3TRkXRNke-Ao7YxQ-t500x500.jpg">](https://soundcloud.com/dimatik/fred-again-x-swedish-house-mafia-turn-on-the-lights-again-dimatik-hard-psy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ys7tvD02YhlDmih-iKBvyA-t500x500.jpg">](https://soundcloud.com/rinse_france/lacchesi-invite-nuir-20-octobre-2022)
 
-**Artist**: Dimatik 
+**Artist**: Rinse France 
 
-**Track**: Fred Again X Swedish House Mafia- Turn On The Lights Again (Dimatik Hard Psy Remix)
+**Track**: Lacchesi invite NUI.R - 20 Octobre 2022
 
-Last updated at 10/21/2022 16:39
+Last updated at 10/21/2022 16:41
