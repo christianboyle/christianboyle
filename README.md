@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vvn9VayWNPkD8VJO-CvZZ1g-t500x500.jpg">](https://soundcloud.com/v_a_l_e/zaiaku-encompassing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QuAPwrUzg8vvX1uP-VgbnWQ-t500x500.jpg">](https://soundcloud.com/its_galo/galo-bad-b)
 
-**Artist**: VALE 
+**Artist**: Galo 
 
-**Track**: Zaiaku - Encompassing
+**Track**: Galo - Bad B
 
-Last updated at 10/21/2022 16:24
+Last updated at 10/21/2022 16:25
