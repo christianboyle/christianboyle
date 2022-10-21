@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzX7sC5Cqm6zTcPU-mLvfoA-t500x500.jpg">](https://soundcloud.com/whoskid/protect-me-w-yadosan?in=hardfest/sets/k-d-yadosan-protect-me-hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vvn9VayWNPkD8VJO-CvZZ1g-t500x500.jpg">](https://soundcloud.com/v_a_l_e/zaiaku-encompassing)
 
-**Artist**: k?d 
+**Artist**: VALE 
 
-**Track**: PROTECT ME (w/ yadosan)
+**Track**: Zaiaku - Encompassing
 
-Last updated at 10/21/2022 16:23
+Last updated at 10/21/2022 16:24
