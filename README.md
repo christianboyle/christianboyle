@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ofRoCIjGuYzJap7E-g9ODAQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/ruse-kudo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vip)
 
-**Artist**: Scuffed Recordings 
+**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
 
-**Track**: Ruse - Kudo
+**Track**: Alaguan - Good For You (VIP)
 
-Last updated at 10/21/2022 16:29
+Last updated at 10/21/2022 16:30
