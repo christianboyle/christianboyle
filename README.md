@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzX7sC5Cqm6zTcPU-mLvfoA-t500x500.jpg">](https://soundcloud.com/whoskid/protect-me-w-yadosan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
 
-**Artist**: k?d 
+**Artist**: Verox 
 
-**Track**: PROTECT ME (w/ yadosan)
+**Track**: Self Dilemma (No Hero Remix)
 
-Last updated at 10/21/2022 17:53
+Last updated at 10/21/2022 17:54
