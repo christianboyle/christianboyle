@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXtEYWvFPSwVQym2-yGP2EA-t500x500.jpg">](https://soundcloud.com/nocv/monsters)
 
-**Artist**: Verox 
+**Artist**: Noc.V 
 
-**Track**: Self Dilemma (No Hero Remix)
+**Track**: Monsters
 
-Last updated at 10/21/2022 17:54
+Last updated at 10/21/2022 17:55
