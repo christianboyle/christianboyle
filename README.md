@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/feel-good-x-dont-you-worry-child-over-easys-wrong-side-of-love-edit)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: Over Easy [Edits] 
 
-**Track**: Alaguan - Good For You (VIP)
+**Track**: Feel Good x Don't You Worry Child [Over Easy's 'Wrong Side of Love' Edit]
 
-Last updated at 10/21/2022 17:56
+Last updated at 10/21/2022 17:58
