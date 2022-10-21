@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXtEYWvFPSwVQym2-yGP2EA-t500x500.jpg">](https://soundcloud.com/nocv/monsters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9WADju5vpQMCReq9-dSjlUw-t500x500.jpg">](https://soundcloud.com/rinse_france/dj-plant-texture-21-octobre-2022)
 
-**Artist**: Noc.V 
+**Artist**: Rinse France 
 
-**Track**: Monsters
+**Track**: DJ Plant Texture - 21 Octobre 2022
 
-Last updated at 10/21/2022 18:03
+Last updated at 10/21/2022 18:27
