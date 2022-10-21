@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/RRKJiM9Njr8/maxresdefault.jpg">](https://www.youtube.com/watch?v=RRKJiM9Njr8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9WADju5vpQMCReq9-dSjlUw-t500x500.jpg">](https://soundcloud.com/rinse_france/dj-plant-texture-21-octobre-2022)
 
-**Artist**: 
-  
-    My Chemical Romance
-  
-  
-  
-    My Chemical Romance
-  
+**Artist**: Rinse France 
 
+**Track**: DJ Plant Texture - 21 Octobre 2022
 
-
-
-
- 
-
-**Track**: My Chemical Romance - Welcome To The Black Parade [Official Music Video] [HD]
-
-Last updated at 10/21/2022 14:04
+Last updated at 10/21/2022 15:28
