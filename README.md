@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fdlCkLoMS2BNJMAk-LnwMmQ-t500x500.jpg">](https://soundcloud.com/jakka-b/kr038)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5y5CZiYPdWCtG8Jv-LgXBPw-t500x500.jpg">](https://soundcloud.com/lucaagnelli/diction-dj-jamaican-luca-agnelli-ice-mc-edit-1)
 
-**Artist**: Jakka-B 
+**Artist**: Luca Agnelli 
 
-**Track**: Kontrast Radio #038
+**Track**: Diction Dj - Jamaican (LUCA AGNELLI Ice Mc Edit) FREE DOWNLOAD
 
-Last updated at 10/21/2022 16:44
+Last updated at 10/21/2022 16:47
