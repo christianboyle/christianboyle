@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynEi86GYQsftN9gW-L9rjQQ-t500x500.jpg">](https://soundcloud.com/djcueheat/poland-cueheat-jersey-club-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
 
-**Artist**: DJ Cueheat 
+**Artist**: Verox 
 
-**Track**: Poland - Cueheat ( Jersey Club Mix )
+**Track**: Self Dilemma (No Hero Remix)
 
-Last updated at 10/22/2022 10:24
+Last updated at 10/22/2022 10:25
