@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9WADju5vpQMCReq9-dSjlUw-t500x500.jpg">](https://soundcloud.com/rinse_france/dj-plant-texture-21-octobre-2022)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/lC-xy50r_cI/maxresdefault.jpg">](https://www.youtube.com/watch?v=lC-xy50r_cI)
 
-**Artist**: Rinse France 
+**Artist**: 
+  
+    Skrillex
+  
+  
+  
+    Skrillex
+  
 
-**Track**: DJ Plant Texture - 21 Octobre 2022
 
-Last updated at 10/21/2022 18:27
+
+
+
+ 
+
+**Track**: SKRILLEX LIVE @ ULTRA MUSIC FESTIVAL 2015
+
+Last updated at 10/21/2022 21:31
