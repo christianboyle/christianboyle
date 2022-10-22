@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W432HmquPyKwGOqD-kD6Kow-t500x500.jpg">](https://soundcloud.com/lilcubensis/give-me-all-your-money-feat-mkultra-and-4shley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ICKbESzyRFngaqyR-GW21fw-t500x500.jpg">](https://soundcloud.com/aether-one/alone-1?in=circuselectric/sets/aether-one-alone)
 
-**Artist**: CUBENSiS 
+**Artist**: Aether One 
 
-**Track**: Give Me All Your Money (Feat. MKULTRA and 4shley)
+**Track**: Alone
 
-Last updated at 10/22/2022 10:18
+Last updated at 10/22/2022 10:20
