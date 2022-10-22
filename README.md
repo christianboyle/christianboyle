@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ICKbESzyRFngaqyR-GW21fw-t500x500.jpg">](https://soundcloud.com/aether-one/alone-1?in=circuselectric/sets/aether-one-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBzFEmRghEVv0C5a-3h7W7w-t500x500.jpg">](https://soundcloud.com/bobyaccount/pegasus)
 
-**Artist**: Aether One 
+**Artist**: boby 
 
-**Track**: Alone
+**Track**: Pegasus (w/ tjweaver)
 
-Last updated at 10/22/2022 10:20
+Last updated at 10/22/2022 10:21
