@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tgm0DwpO3Z6SIiqF-3ljzHA-t500x500.jpg">](https://soundcloud.com/alexandarsmash/wasting-angels-alexandar-smash-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRliM6Sw1wCNwRkq-igJ1Bw-t500x500.jpg">](https://soundcloud.com/capshun/fallen-w-juelz)
 
-**Artist**: Alexandar Smash 
+**Artist**: capshun 
 
-**Track**: Wasting Angels (Alexandar Smash Remix)
+**Track**: Juelz & Capshun - Fallen
 
-Last updated at 10/22/2022 16:10
+Last updated at 10/22/2022 16:11
