@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLyjBJCu38Aopsyn-oSH5KQ-t500x500.jpg">](https://soundcloud.com/futurehousemusic/alott-insomnia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjNhoyLzYcFHtntv-bcIe9w-t500x500.jpg">](https://soundcloud.com/masterrygon/iridescence?in=wearenova/sets/nmf-10-21-22)
 
-**Artist**: Future House Music 
+**Artist**: xRGTMx / Drisello 
 
-**Track**: ALOTT - Insomnia
+**Track**: Fergu$on & Drisello - Iridescence
 
-Last updated at 10/22/2022 10:16
+Last updated at 10/22/2022 10:17
