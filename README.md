@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxsHAKYgc9QF4vAR-bSs3tQ-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-alaguan-v-eazyvibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/feel-good-x-dont-you-worry-child-over-easys-wrong-side-of-love-edit)
 
-**Artist**: SDJ 
+**Artist**: Over Easy [Edits] 
 
-**Track**: SDJ - Alaguan V Eazyvibe
+**Track**: Feel Good x Don't You Worry Child [Over Easy's 'Wrong Side of Love' Edit]
 
-Last updated at 10/22/2022 16:15
+Last updated at 10/22/2022 17:38
