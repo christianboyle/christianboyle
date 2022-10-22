@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBzFEmRghEVv0C5a-3h7W7w-t500x500.jpg">](https://soundcloud.com/bobyaccount/pegasus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynEi86GYQsftN9gW-L9rjQQ-t500x500.jpg">](https://soundcloud.com/djcueheat/poland-cueheat-jersey-club-mix)
 
-**Artist**: boby 
+**Artist**: DJ Cueheat 
 
-**Track**: Pegasus (w/ tjweaver)
+**Track**: Poland - Cueheat ( Jersey Club Mix )
 
-Last updated at 10/22/2022 10:21
+Last updated at 10/22/2022 10:24
