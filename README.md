@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxsHAKYgc9QF4vAR-bSs3tQ-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-alaguan-v-eazyvibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-beGKjAaLUcc5-0-t500x500.jpg">](https://soundcloud.com/touristmusic/avalanche-waleed-remix)
 
-**Artist**: SDJ 
+**Artist**: Tourist 
 
-**Track**: SDJ - Alaguan V Eazyvibe
+**Track**: Avalanche (Waleed Remix)
 
-Last updated at 10/22/2022 17:48
+Last updated at 10/22/2022 17:57
