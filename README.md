@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYac1mIyjf4K-0-t500x500.jpg">](https://soundcloud.com/machelmontano/never-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I24afXLVQTWUpKz5-CBJPQQ-t500x500.jpg">](https://soundcloud.com/lizdek/memory_machine)
 
-**Artist**: Machel Montano 
+**Artist**: Lizdek 
 
-**Track**: Never Again
+**Track**: MEMORY_MACHINE
 
-Last updated at 10/22/2022 10:36
+Last updated at 10/22/2022 10:40
