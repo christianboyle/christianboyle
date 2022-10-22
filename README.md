@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nadxcyH46vhzwNoS-egl0sw-t500x500.jpg">](https://soundcloud.com/rinse_france/takeover-la-mamies-15-ans-chivers-22-octobre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vnvwZhFMWZYnM8bx-T8RoiA-t500x500.jpg">](https://soundcloud.com/discoveryteam/fred-again-x-swedish-house-mafia-turn-on-the-lights-again-feat-future-ayor-remix)
 
-**Artist**: Rinse France 
+**Artist**: Discovery Team 
 
-**Track**: Takeover La Mamie's 15 ans : Chivers - 22 Octobre 2022
+**Track**: Fred Again.. X Swedish House Mafia - Turn On The Lights Again.. (feat. Future) (AYOR REMIX)
 
-Last updated at 10/22/2022 16:13
+Last updated at 10/22/2022 16:14
