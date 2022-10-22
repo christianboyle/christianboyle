@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gGjtzpC3TRkXRNke-Ao7YxQ-t500x500.jpg">](https://soundcloud.com/dimatik/fred-again-x-swedish-house-mafia-turn-on-the-lights-again-dimatik-hard-psy-remix)
 
-**Artist**: Verox 
+**Artist**: Dimatik 
 
-**Track**: Self Dilemma (No Hero Remix)
+**Track**: Fred Again X Swedish House Mafia- Turn On The Lights Again (Dimatik Hard Psy Remix)
 
-Last updated at 10/22/2022 10:25
+Last updated at 10/22/2022 10:28
