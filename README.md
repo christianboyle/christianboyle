@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjNhoyLzYcFHtntv-bcIe9w-t500x500.jpg">](https://soundcloud.com/masterrygon/iridescence?in=wearenova/sets/nmf-10-21-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W432HmquPyKwGOqD-kD6Kow-t500x500.jpg">](https://soundcloud.com/lilcubensis/give-me-all-your-money-feat-mkultra-and-4shley)
 
-**Artist**: xRGTMx / Drisello 
+**Artist**: CUBENSiS 
 
-**Track**: Fergu$on & Drisello - Iridescence
+**Track**: Give Me All Your Money (Feat. MKULTRA and 4shley)
 
-Last updated at 10/22/2022 10:17
+Last updated at 10/22/2022 10:18
