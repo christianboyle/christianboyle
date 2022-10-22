@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/red-lights-x-the-business-over-easys-anywhere-tonight-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cd0a5SttY0EiekQp-ADoj2w-t500x500.jpg">](https://soundcloud.com/yayoyanoh/alone-prod-bk-beats)
 
-**Artist**: Over Easy [Edits] 
+**Artist**: YAYOYANOH 
 
-**Track**: Red Lights x The Business [Over Easy's 'Anywhere Tonight' Edit]
+**Track**: Alone (Prod. Bk Beats)
 
-Last updated at 10/22/2022 17:41
+Last updated at 10/22/2022 17:45
