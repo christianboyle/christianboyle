@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/lC-xy50r_cI/maxresdefault.jpg">](https://www.youtube.com/watch?v=lC-xy50r_cI)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-beGKjAaLUcc5-0-t500x500.jpg">](https://soundcloud.com/touristmusic/avalanche-waleed-remix)
 
-**Artist**: 
-  
-    Skrillex
-  
-  
-  
-    Skrillex
-  
+**Artist**: Tourist 
 
+**Track**: Avalanche (Waleed Remix)
 
-
-
-
- 
-
-**Track**: SKRILLEX LIVE @ ULTRA MUSIC FESTIVAL 2015
-
-Last updated at 10/21/2022 21:31
+Last updated at 10/22/2022 08:04
