@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vnvwZhFMWZYnM8bx-T8RoiA-t500x500.jpg">](https://soundcloud.com/discoveryteam/fred-again-x-swedish-house-mafia-turn-on-the-lights-again-feat-future-ayor-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxsHAKYgc9QF4vAR-bSs3tQ-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-alaguan-v-eazyvibe)
 
-**Artist**: Discovery Team 
+**Artist**: SDJ 
 
-**Track**: Fred Again.. X Swedish House Mafia - Turn On The Lights Again.. (feat. Future) (AYOR REMIX)
+**Track**: SDJ - Alaguan V Eazyvibe
 
-Last updated at 10/22/2022 16:14
+Last updated at 10/22/2022 16:15
