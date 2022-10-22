@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b0Swc1jXqDR3Yv2W-STGFgw-t500x500.jpg">](https://soundcloud.com/bassgazm/clean-shot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLyjBJCu38Aopsyn-oSH5KQ-t500x500.jpg">](https://soundcloud.com/futurehousemusic/alott-insomnia)
 
-**Artist**: BASSGAZM 
+**Artist**: Future House Music 
 
-**Track**: Bassgazm - Clean Shot (feat. Messinian)
+**Track**: ALOTT - Insomnia
 
-Last updated at 10/22/2022 10:15
+Last updated at 10/22/2022 10:16
