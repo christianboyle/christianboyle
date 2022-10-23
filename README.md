@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzX7sC5Cqm6zTcPU-mLvfoA-t500x500.jpg">](https://soundcloud.com/whoskid/protect-me-w-yadosan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vip)
 
-**Artist**: k?d 
+**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
 
-**Track**: PROTECT ME (w/ yadosan)
+**Track**: Alaguan - Good For You (VIP)
 
-Last updated at 10/23/2022 08:49
+Last updated at 10/23/2022 08:51
