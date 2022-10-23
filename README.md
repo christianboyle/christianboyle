@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vip)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/5XR7naZ_zZA/hqdefault.jpg">](https://www.youtube.com/watch?v=5XR7naZ_zZA)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: 
+  
+    Galantis
+  
+  
+  
+    Galantis
+  
 
-**Track**: Alaguan - Good For You (VIP)
 
-Last updated at 10/23/2022 08:51
+
+
+
+ 
+
+**Track**: Galantis - Runaway (U & I) (Official Video)
+
+Last updated at 10/23/2022 17:31
