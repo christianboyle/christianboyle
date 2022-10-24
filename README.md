@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIoiRbTbdZtOQhht-d3Rugg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-81-on-beat-106?in=beat106scotland/sets/bonkers-beats-81-on-beat-106-scotland-with-dj-defective-mikey-motion-klubfiller-211022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IdTNaxxxosLr2e4-LSdQag-t500x500.jpg">](https://soundcloud.com/stackinpodcast/07-722-ft-franky-4-fingers-hosted-by-gumbar-promos-releases-style-radio-dab)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Stackin' HQ 
 
-**Track**: Bonkers Beats #81 on Beat 106 Scotland with Mikey Motion & Klubfiller 211022 (Hour 2)
+**Track**: 07 /7/22 Ft Franky 4 Fingers - Hosted By Gumbar (Promo's & Releases) - Style Radio DAB
 
-Last updated at 10/24/2022 11:16
+Last updated at 10/24/2022 16:11
