@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/5XR7naZ_zZA/hqdefault.jpg">](https://www.youtube.com/watch?v=5XR7naZ_zZA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wep5GBoWzp36jSQP-cY4wrw-t500x500.jpg">](https://soundcloud.com/simplifyrecs/bielov-follow-me)
 
-**Artist**: 
-  
-    Galantis
-  
-  
-  
-    Galantis
-  
+**Artist**: Simplify. 
 
+**Track**: Bielov - Follow Me
 
-
-
-
- 
-
-**Track**: Galantis - Runaway (U & I) (Official Video)
-
-Last updated at 10/23/2022 17:31
+Last updated at 10/24/2022 10:04
