@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/lA8F9sIhGdg/maxresdefault.jpg">](https://www.youtube.com/watch?v=lA8F9sIhGdg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
 
-**Artist**: 
-  
-    Zach Bryan
-  
-  
-  
-    Zach Bryan
-  
+**Artist**: MC4D 
 
+**Track**: Down Under Country Mix Vol. 3
 
-
-
-
- 
-
-**Track**: Zach Bryan - Something In The Orange
-
-Last updated at 10/26/2022 10:22
+Last updated at 10/26/2022 10:23
