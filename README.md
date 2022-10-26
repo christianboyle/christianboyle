@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555680661-q1x46e-t500x500.jpg">](https://soundcloud.com/avi8music/keeping-the-rave-alive-guestmix-avi8)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/lA8F9sIhGdg/maxresdefault.jpg">](https://www.youtube.com/watch?v=lA8F9sIhGdg)
 
-**Artist**: Avi8 
+**Artist**: 
+  
+    Zach Bryan
+  
+  
+  
+    Zach Bryan
+  
 
-**Track**: Keeping The Rave Alive Guestmix - Avi8
 
-Last updated at 10/26/2022 10:13
+
+
+
+ 
+
+**Track**: Zach Bryan - Something In The Orange
+
+Last updated at 10/26/2022 10:22
