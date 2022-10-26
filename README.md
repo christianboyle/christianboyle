@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move?in_system_playlist=personalized-tracks%3A%3Asaxurn%3A1360353868)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8eRaZLwuSyWOdYU-ECiAqQ-t500x500.jpg">](https://soundcloud.com/scantraxx/demi-kanon-adrenalize-hide-away)
 
-**Artist**: Trapical Music 
+**Artist**: Scantraxx 
 
-**Track**: Charli XCX - Move Me (Meddus Remix)
+**Track**: Demi Kanon & Adrenalize - Hide Away
 
-Last updated at 10/25/2022 23:51
+Last updated at 10/26/2022 09:50
