@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnkSYaF54g17-0-t500x500.jpg">](https://soundcloud.com/fellsofficial/waves-with-ryyzn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xR0TsYx3rhBs5j3R-I7T67A-t500x500.jpg">](https://soundcloud.com/baxterprod/boards-of-canada-music-is-math-bxtr-edit)
 
-**Artist**: Fells 
+**Artist**: BXTR 
 
-**Track**: Waves (with RYYZN)
+**Track**: Boards Of Canada - Music Is Math (BXTR Edit)
 
-Last updated at 10/26/2022 09:52
+Last updated at 10/26/2022 09:55
