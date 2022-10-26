@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgdBgviFDZPyKHjZ-SBubBw-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-mix-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555680661-q1x46e-t500x500.jpg">](https://soundcloud.com/avi8music/keeping-the-rave-alive-guestmix-avi8)
 
-**Artist**: MC4D 
+**Artist**: Avi8 
 
-**Track**: Down Under Country Mix Vol. 3
+**Track**: Keeping The Rave Alive Guestmix - Avi8
 
-Last updated at 10/26/2022 10:23
+Last updated at 10/26/2022 10:24
