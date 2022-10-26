@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8eRaZLwuSyWOdYU-ECiAqQ-t500x500.jpg">](https://soundcloud.com/scantraxx/demi-kanon-adrenalize-hide-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnkSYaF54g17-0-t500x500.jpg">](https://soundcloud.com/fellsofficial/waves-with-ryyzn)
 
-**Artist**: Scantraxx 
+**Artist**: Fells 
 
-**Track**: Demi Kanon & Adrenalize - Hide Away
+**Track**: Waves (with RYYZN)
 
-Last updated at 10/26/2022 09:50
+Last updated at 10/26/2022 09:52
