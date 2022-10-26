@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY4IhyHXYA6n1hFo-pa7Zfw-t500x500.jpg">](https://soundcloud.com/mikesrevenge/kodak-black-super-gremlin-mikes-revenge-x-lvrk-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnkSYaF54g17-0-t500x500.jpg">](https://soundcloud.com/fellsofficial/waves-with-ryyzn)
 
-**Artist**: Mikes Revenge 
+**Artist**: Fells 
 
-**Track**: Kodak Black - Super Gremlin ( Mikes Revenge x Lvrk Remix)
+**Track**: Waves (with RYYZN)
 
-Last updated at 10/26/2022 10:05
+Last updated at 10/26/2022 10:06
