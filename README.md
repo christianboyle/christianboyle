@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnkSYaF54g17-0-t500x500.jpg">](https://soundcloud.com/fellsofficial/waves-with-ryyzn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000185550279-jdc799-t500x500.jpg">](https://soundcloud.com/avi8music/avi8-wonderland)
 
-**Artist**: Fells 
+**Artist**: Avi8 
 
-**Track**: Waves (with RYYZN)
+**Track**: Avi8 - Wonderland
 
-Last updated at 10/26/2022 10:06
+Last updated at 10/26/2022 10:07
