@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYac1mIyjf4K-0-t500x500.jpg">](https://soundcloud.com/machelmontano/never-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
 
-**Artist**: Machel Montano 
+**Artist**: Verox 
 
-**Track**: Never Again
+**Track**: Self Dilemma (No Hero Remix)
 
-Last updated at 10/27/2022 14:03
+Last updated at 10/27/2022 16:28
