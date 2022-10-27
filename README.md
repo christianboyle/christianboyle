@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5y6uhXDQHUGb1yb-uyNy5Q-t500x500.jpg">](https://soundcloud.com/outforce/outforce-feat-klv-rainbow-island)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: Outforce 
+**Artist**: S3RL 
 
-**Track**: Outforce Feat. Katrina - Rainbow Island
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 10/27/2022 16:31
+Last updated at 10/27/2022 16:32
