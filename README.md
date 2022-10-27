@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000555254304-s11lx1-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-377-feat-avi8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000211724401-a5k5cj-t500x500.jpg">](https://soundcloud.com/dj-dougal/kryptonite)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: DJ Dougal 
 
-**Track**: KTRA Episode 377 feat. Avi8
+**Track**: KRYPTONITE Dougal & Gammer Feat Jenna
 
-Last updated at 10/26/2022 10:58
+Last updated at 10/27/2022 13:41
