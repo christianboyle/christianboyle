@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000115697935-tgo284-t500x500.jpg">](https://soundcloud.com/togetherwerise/twr8-restofyourlife)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0w8fRakUjYt-0-t500x500.jpg">](https://soundcloud.com/verox-scmusic/self-dilemma-no-hero-remix)
 
-**Artist**: Together We Rise 
+**Artist**: Verox 
 
-**Track**: Darren Styles & Re-Con feat. Matthew Steeper - Rest Of Your Life
+**Track**: Self Dilemma (No Hero Remix)
 
-Last updated at 10/27/2022 13:49
+Last updated at 10/27/2022 13:53
