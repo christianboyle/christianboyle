@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tnr0EylDDAFzhHR-mozywA-t500x500.jpg">](https://soundcloud.com/koastle/billiebloom-koastle-edit)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Koastle 
 
+**Track**: Billiebloom (Koastle Edit)
 
-
-
-
- 
-
-**Track**: S3RL Penultimately Presents...
-
-Last updated at 10/28/2022 12:00
+Last updated at 10/28/2022 12:04
