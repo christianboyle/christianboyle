@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrHXqCosyH8v0Tks-7RiNuA-t500x500.jpg">](https://soundcloud.com/houseofhustle/hls367-shapeshftr-dont-stop-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rblXewx4z3zPIeeV-zFPovg-t500x500.jpg">](https://soundcloud.com/balamii/latenight-locosessions-w-levphonic-october-2022)
 
-**Artist**: House Of Hustle 
+**Artist**: Balamii 
 
-**Track**: HLS367 SHAPESHFTR - Don't Stop (Original Mix)
+**Track**: Late Night Locosessions w/ Levphonic - October 2022
 
-Last updated at 10/28/2022 12:10
+Last updated at 10/28/2022 12:11
