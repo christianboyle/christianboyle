@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XPMCzJsQpgMXHzw-4vhmwA-t500x500.jpg">](https://soundcloud.com/matteo-tura-official/amour-courtois)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Matteo Tura 
 
+**Track**: AMOUR COURTOIS
 
-
-
-
- 
-
-**Track**: S3RL Penultimately Presents...
-
-Last updated at 10/28/2022 09:20
+Last updated at 10/28/2022 11:24
