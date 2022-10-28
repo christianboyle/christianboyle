@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCeRS6KC3rpdmSBK-x20MvQ-t500x500.jpg">](https://soundcloud.com/device_recordings/qumulus-leniz-heartbeat?in=lenizdnb/sets/heartbeat-device-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ekmoOdu1WHTsRDd-SmxiJQ-t500x500.jpg">](https://soundcloud.com/djharrymore/noodgeval-harry-more-refix)
 
-**Artist**: DeVice 
+**Artist**: Harry More 
 
-**Track**: Qumulus & Leniz - Heartbeat
+**Track**: Goldband - Noodgeval (Harry More Refix)
 
-Last updated at 10/28/2022 12:07
+Last updated at 10/28/2022 12:08
