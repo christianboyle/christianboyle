@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyVjJQRCiVQEDyLY-UAiwOg-t500x500.jpg">](https://soundcloud.com/bassrush/persona-non-grata-bring-the-noise)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
 
-**Artist**: Bassrush 
+**Artist**: 
+  
+    S3RL
+  
+  
+  
+    S3RL
+  
 
-**Track**: PERSONA NON GRATA - Bring The Noise
 
-Last updated at 10/28/2022 11:32
+
+
+
+ 
+
+**Track**: S3RL Penultimately Presents...
+
+Last updated at 10/28/2022 12:00
