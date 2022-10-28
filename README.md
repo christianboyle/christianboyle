@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7CI0uwRGv2iYz78M-RXXWLg-t500x500.jpg">](https://soundcloud.com/mistah211/da-return-of-mystic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yf74XJRd7bC8vCCu-6ASoKA-t500x500.jpg">](https://soundcloud.com/audiobambino/from-your-heart)
 
-**Artist**: MXSTVH 
+**Artist**: audio bambino 
 
-**Track**: DA RETURN OF MYSTIC
+**Track**: From Your Heart
 
-Last updated at 10/28/2022 12:15
+Last updated at 10/28/2022 12:16
