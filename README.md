@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gB6wu9WFSVfhGcPe-hjjIcA-t500x500.jpg">](https://soundcloud.com/matteo-tura-official/corrupt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyVjJQRCiVQEDyLY-UAiwOg-t500x500.jpg">](https://soundcloud.com/bassrush/persona-non-grata-bring-the-noise)
 
-**Artist**: Matteo Tura 
+**Artist**: Bassrush 
 
-**Track**: CORRUPT(feat. Biomechanimal)
+**Track**: PERSONA NON GRATA - Bring The Noise
 
-Last updated at 10/28/2022 11:25
+Last updated at 10/28/2022 11:32
