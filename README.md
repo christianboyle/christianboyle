@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ekmoOdu1WHTsRDd-SmxiJQ-t500x500.jpg">](https://soundcloud.com/djharrymore/noodgeval-harry-more-refix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydgJOyUdwtf4eQz8-dvEZOw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/soren-damon-sharpe-ft-sarah-de-warren-vacant-eyes-dwx-copyright-free)
 
-**Artist**: Harry More 
+**Artist**: Dirty Workz 
 
-**Track**: Goldband - Noodgeval (Harry More Refix)
+**Track**: SOREN & Damon Sharpe ft. Sarah de Warren - Vacant Eyes (DWX Copyright Free)
 
-Last updated at 10/28/2022 12:08
+Last updated at 10/28/2022 12:09
