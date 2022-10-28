@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rblXewx4z3zPIeeV-zFPovg-t500x500.jpg">](https://soundcloud.com/balamii/latenight-locosessions-w-levphonic-october-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-64r4KfkqRHeq-0-t500x500.jpg">](https://soundcloud.com/touristmusic/a-dedication-yu-su-remix)
 
-**Artist**: Balamii 
+**Artist**: Tourist 
 
-**Track**: Late Night Locosessions w/ Levphonic - October 2022
+**Track**: A Dedication (Yu Su Remix)
 
-Last updated at 10/28/2022 12:11
+Last updated at 10/28/2022 12:12
