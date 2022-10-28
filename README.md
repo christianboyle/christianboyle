@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000134031859-x6ol05-t500x500.jpg">](https://soundcloud.com/kittynxc/get-m3-out?in=kittynxc/sets/nightcore-fever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zboyOjKFxlYtq4NK-z3C6Vw-t500x500.jpg">](https://soundcloud.com/sodownbassmusic/gas-down)
 
-**Artist**: kittynxc 
+**Artist**: SoDown 
 
-**Track**: GET M3 OUT!
+**Track**: SoDown x Ahee - Gas Down (ft. Born I) [HEADBANG SOCIETY PREMIERE]
 
-Last updated at 10/28/2022 12:13
+Last updated at 10/28/2022 12:14
