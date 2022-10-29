@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1w0wH0QjCGqAhavF-egOyiA-t500x500.jpg">](https://soundcloud.com/casualjamrecords/i-just-wanna-love-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyVjJQRCiVQEDyLY-UAiwOg-t500x500.jpg">](https://soundcloud.com/bassrush/rebel-scum-system)
 
-**Artist**: Casual Jam Records 
+**Artist**: Bassrush 
 
-**Track**: Aash Mehta - I Just Wanna Love You
+**Track**: Rebel Scum - System
 
-Last updated at 10/29/2022 16:09
+Last updated at 10/29/2022 16:14
