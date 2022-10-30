@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TsQNS47ZUATf9gN-uwNjGQ-t500x500.jpg">](https://soundcloud.com/juuku/kammy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnQ2VyzM8ngzPbKQ-7lPVsw-t500x500.jpg">](https://soundcloud.com/manilakilla/manila-killa-dark-places-feat-kwesi-shadient-remix)
 
-**Artist**: juuku 
+**Artist**: Manila Killa 
 
-**Track**: fred again - kammy (juuku flip)
+**Track**: Manila Killa - Dark Places feat. Kwesi (Shadient Remix)
 
-Last updated at 10/30/2022 11:50
+Last updated at 10/30/2022 11:51
