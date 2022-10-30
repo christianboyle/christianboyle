@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000529997664-1od512-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/darren-glancy-left-in-the-shadows-paul-gannon-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000646200619-hjw7bq-t500x500.jpg">](https://soundcloud.com/isoxo/isoknock-1)
 
-**Artist**: Paul Gannon 
+**Artist**: ISOxo 
 
-**Track**: Darren Glancy - Follow Me Into The Shadows (Paul Gannon Remix)OUT NOW
+**Track**: ISOKNOCK 1: THE RAID
 
-Last updated at 10/30/2022 14:12
+Last updated at 10/30/2022 14:13
