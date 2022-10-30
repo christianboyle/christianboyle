@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0uItGXei0BmSaukT-yuDSwA-t500x500.jpg">](https://soundcloud.com/willsparks/clubwrk-radio-26-feat-paul-gannon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PlHdW05Mp8sO-0-t500x500.png">](https://soundcloud.com/arminvanbuuren/armin-van-buuren-this-is-a-3)
 
-**Artist**: Will Sparks 
+**Artist**: Armin van Buuren 
 
-**Track**: CLUBWRK Radio #26 Feat. Paul Gannon
+**Track**: Armin van Buuren - This Is A Test (Julian Jordan Remix)
 
-Last updated at 10/30/2022 14:08
+Last updated at 10/30/2022 14:09
