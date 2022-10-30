@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ARCvL11prHD6NfP-1KXQqQ-t500x500.jpg">](https://soundcloud.com/everen-maxwell/pink-clouds-1?in=circuselectric/sets/everen-maxwell-pink-clouds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9kYitJczHJEUFeWg-hmTKyw-t500x500.jpg">](https://soundcloud.com/kittynxc/halloween-2022-kittynxc-vinyl-mix)
 
-**Artist**: Everen Maxwell 
+**Artist**: kittynxc 
 
-**Track**: Pink Clouds
+**Track**: Halloween 2022 KITTYNXC Live Vinyl Mix
 
-Last updated at 10/30/2022 11:53
+Last updated at 10/30/2022 11:54
