@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPCSid94Er0Qzu2n-Bne0yg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-82-on-beat-106?in=beat106scotland/sets/bonkers-beats-82-on-beat-106-scotland-with-daniel-7-micky-modelle-281022)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 
+  
+    S3RL
+  
+  
+  
+    S3RL
+  
 
-**Track**: Bonkers Beats #82 on Beat 106 Scotland with Micky Modelle 281022 (Hour 2)
 
-Last updated at 10/31/2022 09:48
+
+
+
+ 
+
+**Track**: S3RL Penultimately Presents...
+
+Last updated at 10/31/2022 09:49
