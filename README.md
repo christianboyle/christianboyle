@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPCSid94Er0Qzu2n-Bne0yg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-82-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-82-on-beat-106-scotland-with-daniel-7-micky-modelle-281022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmlkGj67Ubmu-0-t500x500.jpg">](https://soundcloud.com/fredagain/clara-the-night-is-dark?in=fredagain/sets/actual-life-3-january-1)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Fred again.. 
 
-**Track**: Bonkers Beats #82 on Beat 106 Scotland with Daniel Seven 281022 (Hour 1)
+**Track**: Clara (the night is dark)
 
-Last updated at 10/31/2022 09:57
+Last updated at 10/31/2022 11:18
