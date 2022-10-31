@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PoBXg4X75dgW6dd-s7i8VQ-t500x500.jpg">](https://soundcloud.com/rinse_france/il-est-vilaine-31-octobre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-cySMnZ9g1Idz7mHK-2Xlzjg-t500x500.jpg">](https://soundcloud.com/user-630558689/r-kane-you-messing)
 
-**Artist**: Rinse France 
+**Artist**: R-Kane 
 
-**Track**: Il Est Vilaine - 31 Octobre 2022
+**Track**: R-Kane - You Messing
 
-Last updated at 10/31/2022 09:25
+Last updated at 10/31/2022 09:26
