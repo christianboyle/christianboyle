@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPCSid94Er0Qzu2n-Bne0yg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-82-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-82-on-beat-106-scotland-with-daniel-7-micky-modelle-281022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqQoxQjGHY8ecMkz-n7rVKg-t500x500.jpg">](https://soundcloud.com/latersleeperr/koi)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: latesleeper 
 
-**Track**: Bonkers Beats #82 on Beat 106 Scotland with Daniel Seven 281022 (Hour 1)
+**Track**: latesleeper - Koi (PATREON EXCLUSIVE)
 
-Last updated at 10/31/2022 12:41
+Last updated at 11/01/2022 08:27
