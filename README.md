@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3D9VkxH2FVDlHJUm-4l0ryg-t500x500.jpg">](https://soundcloud.com/audionitrate/blasterjaxx-children-of-today-audio-nitrate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mudzf0S7xFZUK2ra-OgdA5Q-t500x500.jpg">](https://soundcloud.com/ekozumusic/are-you-that-somebody-eko-zu-remix)
 
-**Artist**: Audio Nitrate 
+**Artist**: Eko Zu 
 
-**Track**: BlasterJaxx - Children Of Today (AUDIO NITRATE REMIX)
+**Track**: Are You That Somebody (Eko Zu remix)
 
-Last updated at 11/01/2022 09:21
+Last updated at 11/01/2022 09:22
