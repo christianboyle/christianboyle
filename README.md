@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqQoxQjGHY8ecMkz-n7rVKg-t500x500.jpg">](https://soundcloud.com/latersleeperr/koi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3D9VkxH2FVDlHJUm-4l0ryg-t500x500.jpg">](https://soundcloud.com/audionitrate/blasterjaxx-children-of-today-audio-nitrate-remix)
 
-**Artist**: latesleeper 
+**Artist**: Audio Nitrate 
 
-**Track**: latesleeper - Koi (PATREON EXCLUSIVE)
+**Track**: BlasterJaxx - Children Of Today (AUDIO NITRATE REMIX)
 
-Last updated at 11/01/2022 08:27
+Last updated at 11/01/2022 09:21
