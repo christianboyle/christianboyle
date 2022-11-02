@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhFdTvYJlr7FYMTr-M4Iidg-t500x500.jpg">](https://soundcloud.com/codeko/remedy-ft-nevve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c45oae8DcTW1k1i0-XYkXbQ-t500x500.jpg">](https://soundcloud.com/rinse_france/toh-imago-1er-novembre-2022)
 
-**Artist**: CODEKO 
+**Artist**: Rinse France 
 
-**Track**: Remedy w/ Nevve
+**Track**: Toh Imago - 1er Novembre 2022
 
-Last updated at 11/02/2022 07:42
+Last updated at 11/02/2022 08:43
