@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vylK642wu1idapxi-Gzbd4w-t500x500.jpg">](https://soundcloud.com/bel0ng/pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21C2aCqFZR8yLcE0-xQbzSw-t500x500.jpg">](https://soundcloud.com/sablevalley/2hearts-isoxo-remix?in=isoxo/sets/niteharts)
 
-**Artist**: Bel0ng 
+**Artist**: SABLE VALLEY 
 
-**Track**: Pressure (free dl)
+**Track**: Knock2 - 2HEARTs (ISOxo Remix)
 
-Last updated at 11/02/2022 07:39
+Last updated at 11/02/2022 07:40
