@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFVxovgdSB1qZ2Hl-RNXVFQ-t500x500.jpg">](https://soundcloud.com/sangstaa/parachute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vylK642wu1idapxi-Gzbd4w-t500x500.jpg">](https://soundcloud.com/bel0ng/pressure)
 
-**Artist**: sangstaa 
+**Artist**: Bel0ng 
 
-**Track**: Parachute
+**Track**: Pressure (free dl)
 
-Last updated at 11/01/2022 09:25
+Last updated at 11/02/2022 07:39
