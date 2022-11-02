@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21C2aCqFZR8yLcE0-xQbzSw-t500x500.jpg">](https://soundcloud.com/sablevalley/2hearts-isoxo-remix?in=isoxo/sets/niteharts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iu1VnE6VssrjcnEJ-ZSgEcA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/mylonrae-dreamin-ft-sarah-anglionin)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Chill Planet 
 
-**Track**: Knock2 - 2HEARTs (ISOxo Remix)
+**Track**: Mylonrae - Dreamin' (ft. Sarah Anglionin)
 
-Last updated at 11/02/2022 07:40
+Last updated at 11/02/2022 07:41
