@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iu1VnE6VssrjcnEJ-ZSgEcA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/mylonrae-dreamin-ft-sarah-anglionin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhFdTvYJlr7FYMTr-M4Iidg-t500x500.jpg">](https://soundcloud.com/codeko/remedy-ft-nevve)
 
-**Artist**: Chill Planet 
+**Artist**: CODEKO 
 
-**Track**: Mylonrae - Dreamin' (ft. Sarah Anglionin)
+**Track**: Remedy w/ Nevve
 
-Last updated at 11/02/2022 07:41
+Last updated at 11/02/2022 07:42
