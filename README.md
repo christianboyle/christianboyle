@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c45oae8DcTW1k1i0-XYkXbQ-t500x500.jpg">](https://soundcloud.com/rinse_france/toh-imago-1er-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIvvGTgihWnD0KJt-FLBWHw-t500x500.jpg">](https://soundcloud.com/snuffysounds/bagg-x-snuffy-gunslinger)
 
-**Artist**: Rinse France 
+**Artist**: snuffy 
 
-**Track**: Toh Imago - 1er Novembre 2022
+**Track**: Bagg x Snuffy - Gunslinger
 
-Last updated at 11/02/2022 08:43
+Last updated at 11/02/2022 19:49
