@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5VMAq8bo0r8fy8eR-y0SlBQ-t500x500.jpg">](https://soundcloud.com/yehme2/hahaha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyqDoEA3BOCbBno0-IBozFg-t500x500.jpg">](https://soundcloud.com/yonvolt/full-control-vip?in=wearenova/sets/nmf-11-4-22)
 
-**Artist**: YehMe2 
+**Artist**: yonvolt 
 
-**Track**: HAHAHA
+**Track**: Full Control [VIP]
 
-Last updated at 11/05/2022 09:16
+Last updated at 11/05/2022 09:17
