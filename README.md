@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c45oae8DcTW1k1i0-XYkXbQ-t500x500.jpg">](https://soundcloud.com/rinse_france/toh-imago-1er-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2g6amMpKzgMjUrj-yBN9Ow-t500x500.jpg">](https://soundcloud.com/morecreativityrecords/jives-octane-mcr?in=morecreativityrecords/sets/jives-ephemera-ep-mcr)
 
-**Artist**: Rinse France 
+**Artist**: more creativity 
 
-**Track**: Toh Imago - 1er Novembre 2022
+**Track**: jives - Octane
 
-Last updated at 11/04/2022 11:40
+Last updated at 11/05/2022 09:14
