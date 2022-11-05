@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ahO5WlYDGfioTPl8-CBWlUg-t500x500.jpg">](https://soundcloud.com/noiseprn/vtekz-back2u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MyqDoEA3BOCbBno0-IBozFg-t500x500.jpg">](https://soundcloud.com/yonvolt/full-control-vip)
 
-**Artist**: Noiseporn 
+**Artist**: yonvolt 
 
-**Track**: VTEKZ - Back2U
+**Track**: Full Control [VIP]
 
-Last updated at 11/05/2022 16:23
+Last updated at 11/05/2022 16:25
