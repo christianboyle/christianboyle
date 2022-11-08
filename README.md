@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udBlrInKB97ngX1E-LqKxWg-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-justin-bieber-don-toliver-dont-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-z5swcmwFczgNERjo-zEec3A-t500x500.jpg">](https://soundcloud.com/digi9652/edm-mixset_62-autumn-vibes-2022-pti)
 
-**Artist**: Skrillex 
+**Artist**: ✪digi9652✪ 
 
-**Track**: Skrillex, Justin Bieber & Don Toliver - Don't Go
+**Track**: EDM-Mixset #62 (autumn vibes 2022 pt.I)
 
-Last updated at 11/08/2022 11:37
+Last updated at 11/08/2022 11:38
