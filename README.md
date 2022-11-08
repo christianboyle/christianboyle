@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wLujqbcblFLHRz6B-kYNytw-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/calin-daisychain-251)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000143877738-37wqv3-t500x500.jpg">](https://soundcloud.com/nitecorp/foxfax-w1sh-i-d1dnt-u)
 
-**Artist**: Daisychain 
+**Artist**: NITE CORP. 
 
-**Track**: Daisychain 251 - Calin
+**Track**: foxfax - w1sh i d1dn't ❤ u
 
-Last updated at 11/08/2022 12:32
+Last updated at 11/08/2022 12:33
