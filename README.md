@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZYRF5WLdxNtIzWm-kzaLSA-t500x500.jpg">](https://soundcloud.com/baldrianmusic/baldrian-mory-electrified)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mVXiI7WnsMGgb1oC-digdXg-t500x500.jpg">](https://soundcloud.com/onetruegod/one-true-god-x-le-castle-vania-x-roniit-blood-flows)
 
-**Artist**: BALDRIAN 
+**Artist**: One True God 
 
-**Track**: BALDRIAN & MORY - Electrified
+**Track**: One True God x Le Castle Vania x Roniit - Blood Flows
 
-Last updated at 11/08/2022 11:22
+Last updated at 11/08/2022 11:23
