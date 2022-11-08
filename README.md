@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133471446-0tw2jy-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-life-is-calling)
 
 **Artist**: NITE CORP. 
 
-**Track**: aamourocean - u're not alone
+**Track**: aamourocean - life is calling
 
-Last updated at 11/08/2022 12:34
+Last updated at 11/08/2022 12:35
