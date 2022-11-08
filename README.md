@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-z5swcmwFczgNERjo-zEec3A-t500x500.jpg">](https://soundcloud.com/digi9652/edm-mixset_62-autumn-vibes-2022-pti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6ypZgQzuLyevUPc-o5QleA-t500x500.jpg">](https://soundcloud.com/platform/suchi-boiler-room-hyderabad?in=platform/sets/boiler-room-hyderabad)
 
-**Artist**: ✪digi9652✪ 
+**Artist**: Boiler Room 
 
-**Track**: EDM-Mixset #62 (autumn vibes 2022 pt.I)
+**Track**: SUCHI | Boiler Room:  Hyderabad
 
-Last updated at 11/08/2022 11:38
+Last updated at 11/08/2022 12:26
