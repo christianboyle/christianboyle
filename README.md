@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000179430936-o2ncyd-t500x500.jpg">](https://soundcloud.com/not-rave-toolz/notrave19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
 
-**Artist**: NOT RAVE TOOLZ 
+**Artist**: Nadsat 
 
-**Track**: DJ eSPORTS - NOT A RAVE TOOL 19
+**Track**: NADCAST #3 - AAMOUROCEAN
 
-Last updated at 11/08/2022 12:37
+Last updated at 11/08/2022 12:38
