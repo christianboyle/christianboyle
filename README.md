@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6dhmDMxz0bwmYUlK-YVhh3Q-t500x500.jpg">](https://soundcloud.com/bucqqi/weprllyshldnt-margoproxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udBlrInKB97ngX1E-LqKxWg-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-justin-bieber-don-toliver-dont-go)
 
-**Artist**: **Bucqqi  </3** @franqluqas 
+**Artist**: Skrillex 
 
-**Track**: .weprllyshldnt.* {margoproxy}*
+**Track**: Skrillex, Justin Bieber & Don Toliver - Don't Go
 
-Last updated at 11/08/2022 11:36
+Last updated at 11/08/2022 11:37
