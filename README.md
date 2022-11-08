@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDKQDU5eOs2o-0-t500x500.png">](https://soundcloud.com/zackmartino/zack-martino-x-jordan-grace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6dhmDMxz0bwmYUlK-YVhh3Q-t500x500.jpg">](https://soundcloud.com/bucqqi/weprllyshldnt-margoproxy)
 
-**Artist**: ZACK MARTINO 
+**Artist**: **Bucqqi  </3** @franqluqas 
 
-**Track**: Zack Martino x Jordan Grace - Fade Away
+**Track**: .weprllyshldnt.* {margoproxy}*
 
-Last updated at 11/08/2022 11:35
+Last updated at 11/08/2022 11:36
