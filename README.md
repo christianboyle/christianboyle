@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjEE1SRZ6fUyuy6Y-RNpKOg-t500x500.jpg">](https://soundcloud.com/immnnt/angel-cannon-burst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZYRF5WLdxNtIzWm-kzaLSA-t500x500.jpg">](https://soundcloud.com/baldrianmusic/baldrian-mory-electrified)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: BALDRIAN 
 
-**Track**: ANGEL CANNON — Burst
+**Track**: BALDRIAN & MORY - Electrified
 
-Last updated at 11/08/2022 11:21
+Last updated at 11/08/2022 11:22
