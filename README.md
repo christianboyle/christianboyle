@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjEE1SRZ6fUyuy6Y-RNpKOg-t500x500.jpg">](https://soundcloud.com/immnnt/angel-cannon-burst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FufI8OJX4S3gCwi-ZJ8KmQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/if-found-x-luma-twenty-five-ncs-release)
 
-**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
+**Artist**: NCS 
 
-**Track**: ANGEL CANNON — Burst
+**Track**: if found x Luma - twenty five [NCS Release]
 
-Last updated at 11/08/2022 13:14
+Last updated at 11/08/2022 13:18
