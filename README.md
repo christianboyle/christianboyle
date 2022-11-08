@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-008-october-delights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wLujqbcblFLHRz6B-kYNytw-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/calin-daisychain-251)
 
-**Artist**: Ascent Recordings 
+**Artist**: Daisychain 
 
-**Track**: Ascent Sessions 008 - October Delights
+**Track**: Daisychain 251 - Calin
 
-Last updated at 11/08/2022 12:28
+Last updated at 11/08/2022 12:32
