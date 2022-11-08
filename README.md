@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DefvNAzCrhe35oAM-CKKoSg-t500x500.jpg">](https://soundcloud.com/said-the-sky/we-know-who-we-are-feat-olivver-the-kid?in=thathard-magazine/sets/highertracks-legend-playlist-ll)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000129980521-eoxinn-t500x500.jpg">](https://soundcloud.com/nitecorp/pictureus)
 
-**Artist**: Said The Sky 
+**Artist**: NITE CORP. 
 
-**Track**: We Know Who We Are (feat. Olivver the Kid)
+**Track**: [MIX-05] PICTURE US
 
-Last updated at 11/08/2022 11:33
+Last updated at 11/08/2022 11:34
