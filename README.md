@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eio0EFSslrWxoWAo-vZEvVQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-83-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-83-on-beat-106-scotland-with-kutski-dj-thera-041122)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bf9jL7jIivr0-0-t500x500.jpg">](https://soundcloud.com/align_music/steady-with-max-green)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: ALIGN 
 
-**Track**: Bonkers Beats #83 on Beat 106 Scotland with DJ Thera 041122 (Hour 2)
+**Track**: Steady (with Max Green)
 
-Last updated at 11/07/2022 15:19
+Last updated at 11/08/2022 11:18
