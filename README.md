@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NViIT5UqFVn8dtiw-X4iKpA-t500x500.jpg">](https://soundcloud.com/gumgumworld/celestial-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz6aWKQEgkNjsq0q-HORIzg-t500x500.jpg">](https://soundcloud.com/terrorhythm/social-sport-jaga-proxy-self)
 
-**Artist**: Gum Gum 
+**Artist**: terrorhythm 
 
-**Track**: Ed Sheeran- Celestial (Gum Gum Remix)
+**Track**: Social Sport & Jaga - Proxy Self
 
-Last updated at 11/08/2022 11:25
+Last updated at 11/08/2022 11:27
