@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJuBMMN4HQ0YKwLo-rVrRwg-t500x500.jpg">](https://soundcloud.com/nadsatmusic/nadcast-3-aamourocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
 
-**Artist**: Nadsat 
+**Artist**: NITE CORP. 
 
-**Track**: NADCAST #3 - AAMOUROCEAN
+**Track**: aamourocean - u're not alone
 
-Last updated at 11/08/2022 12:38
+Last updated at 11/08/2022 12:39
