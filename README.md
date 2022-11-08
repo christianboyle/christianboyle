@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz8pazVTz7Fy5e1a-q0lh1Q-t500x500.jpg">](https://soundcloud.com/leondismusic/antiheroremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjEE1SRZ6fUyuy6Y-RNpKOg-t500x500.jpg">](https://soundcloud.com/immnnt/angel-cannon-burst)
 
-**Artist**: Leondis 
+**Artist**: 𝗜𝗠𝗠𝗜𝗡𝗘𝗡𝗧 𝗖𝗬𝗕𝗘𝗥𝗖𝗢𝗥𝗣𝗢𝗥𝗔𝗧𝗜𝗢𝗡 
 
-**Track**: Taylor Swift - Anti-Hero (COASTR. & Leondis Remix)
+**Track**: ANGEL CANNON — Burst
 
-Last updated at 11/08/2022 13:47
+Last updated at 11/08/2022 13:50
