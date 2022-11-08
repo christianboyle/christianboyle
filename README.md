@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000129980521-eoxinn-t500x500.jpg">](https://soundcloud.com/nitecorp/pictureus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDKQDU5eOs2o-0-t500x500.png">](https://soundcloud.com/zackmartino/zack-martino-x-jordan-grace)
 
-**Artist**: NITE CORP. 
+**Artist**: ZACK MARTINO 
 
-**Track**: [MIX-05] PICTURE US
+**Track**: Zack Martino x Jordan Grace - Fade Away
 
-Last updated at 11/08/2022 11:34
+Last updated at 11/08/2022 11:35
