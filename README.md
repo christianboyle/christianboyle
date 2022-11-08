@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6ypZgQzuLyevUPc-o5QleA-t500x500.jpg">](https://soundcloud.com/platform/suchi-boiler-room-hyderabad?in=platform/sets/boiler-room-hyderabad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-008-october-delights)
 
-**Artist**: Boiler Room 
+**Artist**: Ascent Recordings 
 
-**Track**: SUCHI | Boiler Room:  Hyderabad
+**Track**: Ascent Sessions 008 - October Delights
 
-Last updated at 11/08/2022 12:26
+Last updated at 11/08/2022 12:28
