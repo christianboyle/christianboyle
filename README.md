@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mVXiI7WnsMGgb1oC-digdXg-t500x500.jpg">](https://soundcloud.com/onetruegod/one-true-god-x-le-castle-vania-x-roniit-blood-flows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NViIT5UqFVn8dtiw-X4iKpA-t500x500.jpg">](https://soundcloud.com/gumgumworld/celestial-remix)
 
-**Artist**: One True God 
+**Artist**: Gum Gum 
 
-**Track**: One True God x Le Castle Vania x Roniit - Blood Flows
+**Track**: Ed Sheeran- Celestial (Gum Gum Remix)
 
-Last updated at 11/08/2022 11:23
+Last updated at 11/08/2022 11:25
