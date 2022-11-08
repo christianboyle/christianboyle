@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYTy874zNy5jjgc9-zwwCyQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/if-found-x-noll-die-4-u-feat-damnboy-ncs-release?in=nocopyrightsounds/sets/if-found-die-4-u-twenty-five)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5sCvqL6Bl75dQws-zHNJLA-t500x500.jpg">](https://soundcloud.com/murlockholms/hold-up)
 
-**Artist**: NCS 
+**Artist**: MurlockHolms 
 
-**Track**: if found x nøll - die 4 u (feat. damnboy!) [NCS Release]
+**Track**: Hold Up
 
-Last updated at 11/08/2022 11:19
+Last updated at 11/08/2022 11:20
