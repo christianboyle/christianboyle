@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bf9jL7jIivr0-0-t500x500.jpg">](https://soundcloud.com/align_music/steady-with-max-green)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYTy874zNy5jjgc9-zwwCyQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/if-found-x-noll-die-4-u-feat-damnboy-ncs-release?in=nocopyrightsounds/sets/if-found-die-4-u-twenty-five)
 
-**Artist**: ALIGN 
+**Artist**: NCS 
 
-**Track**: Steady (with Max Green)
+**Track**: if found x nøll - die 4 u (feat. damnboy!) [NCS Release]
 
-Last updated at 11/08/2022 11:18
+Last updated at 11/08/2022 11:19
