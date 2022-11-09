@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zGxtJ5mGRVJSd7y-gIEV3Q-t500x500.jpg">](https://soundcloud.com/marchsqr/trax-n-field-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cypYwZwFjfwPVw6H-Xz8lQQ-t500x500.jpg">](https://soundcloud.com/brainsickrecords/qbk-bing-bong)
 
-**Artist**: marchSQR 
+**Artist**: Brainsick Records 
 
-**Track**: trax 'n field - vol. 1
+**Track**: QB!K - B!NG BONG
 
-Last updated at 11/09/2022 08:27
+Last updated at 11/09/2022 08:28
