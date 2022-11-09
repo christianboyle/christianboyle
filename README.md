@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNM5ZVGVfIqvg5Ky-QlnJyQ-t500x500.jpg">](https://soundcloud.com/rinse_france/roni-invite-bebe-bad-08-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FufI8OJX4S3gCwi-ZJ8KmQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/if-found-x-luma-twenty-five-ncs-release)
 
-**Artist**: Rinse France 
+**Artist**: NCS 
 
-**Track**: RONI invite Bebe Bad - 08 Novembre 2022
+**Track**: if found x Luma - twenty five [NCS Release]
 
-Last updated at 11/08/2022 18:00
+Last updated at 11/09/2022 07:12
