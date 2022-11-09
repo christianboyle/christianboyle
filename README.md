@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acksr3eVs1oO-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-diamond-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqFU6YbK5GXJTzCs-dyHh0g-t500x500.jpg">](https://soundcloud.com/nctnetwork/brekk-ft-jenny-tormey-palm-trees)
 
-**Artist**: Gearbox Digital 
+**Artist**: Nu elect Records 
 
-**Track**: Avi8 - Diamond Eyes
+**Track**: Brekk ft. Jenny Tormey - Palm Trees
 
-Last updated at 11/09/2022 07:33
+Last updated at 11/09/2022 07:37
