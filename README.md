@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2Ll4r59QEruEyNk-DhmUzA-t500x500.jpg">](https://soundcloud.com/contagious-records/contagious-records-podcast-episode-11-with-mike-reverie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zGxtJ5mGRVJSd7y-gIEV3Q-t500x500.jpg">](https://soundcloud.com/marchsqr/trax-n-field-vol-1)
 
-**Artist**: CONTAGIOUS RECORDS 
+**Artist**: marchSQR 
 
-**Track**: Contagious Records Podcast Episode 11 With Mike Reverie
+**Track**: trax 'n field - vol. 1
 
-Last updated at 11/09/2022 07:48
+Last updated at 11/09/2022 08:27
