@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxHNDLlE2pdO24zw-1E9oyw-t500x500.jpg">](https://soundcloud.com/phuturecollective/runnit-eyezic-slippin?in=phuturecollective/sets/issue-eighteen-wonder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwBnZjKzsbVyyJAx-SFaU0w-t500x500.jpg">](https://soundcloud.com/overeasyedits/better-not-vs-best-is-yet-to-come-over-easys-trying-too-hard-edit)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Over Easy [Edits] 
 
-**Track**: Runnit & Eyezic - Slippin
+**Track**: Better Not vs. Best Is Yet To Come [Over Easy's 'Trying Too Hard' Edit]
 
-Last updated at 11/09/2022 08:33
+Last updated at 11/09/2022 08:34
