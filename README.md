@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIiTyuTx0vDBNm7G-H5fEKw-t500x500.jpg">](https://soundcloud.com/thebassspaceofficial/sh4d0w-f4ilur3-onisphere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNM5ZVGVfIqvg5Ky-QlnJyQ-t500x500.jpg">](https://soundcloud.com/rinse_france/roni-invite-bebe-bad-08-novembre-2022)
 
-**Artist**: The Bass Space 
+**Artist**: Rinse France 
 
-**Track**: SH4D0W F4ILUR3 - ONISPHERE(Bass Space Exclusive ) Free Download
+**Track**: RONI invite Bebe Bad - 08 Novembre 2022
 
-Last updated at 11/08/2022 16:54
+Last updated at 11/08/2022 18:00
