@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz8pazVTz7Fy5e1a-q0lh1Q-t500x500.jpg">](https://soundcloud.com/leondismusic/antiheroremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmlDsaJ1yp9CJNLT-Lc4YTQ-t500x500.jpg">](https://soundcloud.com/fiddestigsson/fidde-if-theres-a-heaven-i-wanna-see-it)
 
-**Artist**: Leondis 
+**Artist**: Fidde 
 
-**Track**: Taylor Swift - Anti-Hero (COASTR. & Leondis Remix)
+**Track**: Fidde - If Theres A Heaven I Wanna See It
 
-Last updated at 11/09/2022 07:40
+Last updated at 11/09/2022 07:43
