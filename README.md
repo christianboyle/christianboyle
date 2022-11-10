@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TbPQWNhYPSXjUbkY-8NrxCw-t500x500.jpg">](https://soundcloud.com/trapicalmusic/sharks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sA3OvFgzC7471S6x-o45pIg-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc107-pvssy)
 
-**Artist**: Trapical Music 
+**Artist**: Rhythmic Culture 
 
-**Track**: Imagine Dragons - Sharks (Wazad Cover Remix) feat. Marwan Khurshid
+**Track**: RC:107 PVSSY
 
-Last updated at 11/10/2022 12:40
+Last updated at 11/10/2022 12:41
