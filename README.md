@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKyimvIVYESc9LDg-qewEpA-t500x500.jpg">](https://soundcloud.com/dynamictechno/skrillex-cinema-lvgo-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TbPQWNhYPSXjUbkY-8NrxCw-t500x500.jpg">](https://soundcloud.com/trapicalmusic/sharks)
 
-**Artist**: DYNAMIC 
+**Artist**: Trapical Music 
 
-**Track**: Skrillex - Cinema (LVGŌ Edit) FREE DL
+**Track**: Imagine Dragons - Sharks (Wazad Cover Remix) feat. Marwan Khurshid
 
-Last updated at 11/10/2022 12:39
+Last updated at 11/10/2022 12:40
