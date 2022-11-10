@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3im0JpJSbHTT4fT3-rGBEsA-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-nobody-else-with-rory-hope)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hez5vSJxyxVGVouz-z2WLMw-t500x500.jpg">](https://soundcloud.com/feature_phone/detachment)
 
-**Artist**: Future Generation 
+**Artist**: Feature Phone 
 
-**Track**: Arcando - Nobody Else (with Rory Hope)
+**Track**: Detachment
 
-Last updated at 11/10/2022 13:35
+Last updated at 11/10/2022 13:37
