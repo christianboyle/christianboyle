@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E3k7CUNoOeRKvYUE-nZ2eLQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-blasterjaxx-ft-maikki-wasabi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YYWDnhsKylPk94FI-UqxKSQ-t500x500.jpg">](https://soundcloud.com/krl_mx/krl-mx-x-fred-again-turn-on-the-light-rex-club-2022-all-night-long-anthem)
 
-**Artist**: Dirty Workz 
+**Artist**: Krl Mx 
 
-**Track**: Da Tweekaz & Blasterjaxx Ft. MAIKKI - WASABI
+**Track**: Krl Mx X Fred Again - Turn On The Light (Rex Club 2022 All Night Long Anthem)[Free Download]
 
-Last updated at 11/10/2022 13:11
+Last updated at 11/10/2022 13:14
