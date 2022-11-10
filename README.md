@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rlNiUEgbwEP0i7F-Ab8tWg-t500x500.jpg">](https://soundcloud.com/karl-guapo/l3nny-calm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKyimvIVYESc9LDg-qewEpA-t500x500.jpg">](https://soundcloud.com/dynamictechno/skrillex-cinema-lvgo-edit-free-dl)
 
-**Artist**: L3NNY 
+**Artist**: DYNAMIC 
 
-**Track**: Calmdown
+**Track**: Skrillex - Cinema (LVGŌ Edit) FREE DL
 
-Last updated at 11/10/2022 12:38
+Last updated at 11/10/2022 12:39
