@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFQ5T1tTNCfrVg6U-eP8P5g-t500x500.jpg">](https://soundcloud.com/basscon/alessaa-hurricanes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYJqdDE9aiCz3lhB-a9ulJw-t500x500.jpg">](https://soundcloud.com/basscon/water-spirit-great-wave)
 
 **Artist**: BASSCON 
 
-**Track**: ALESSA.A - Hurricanes
+**Track**: Water Spirit - Great Wave
 
-Last updated at 11/11/2022 13:10
+Last updated at 11/11/2022 13:11
