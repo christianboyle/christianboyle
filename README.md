@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkC8HNq4ZyT9omDT-EcwK3A-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/cascada-everytime-we-touch-tatsunoshin-festival-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqPzNNuUXD134M1E-cyjiuw-t500x500.jpg">](https://soundcloud.com/basscon/bel-air-witch-never-knew-u)
 
-**Artist**: Tatsunoshin 
+**Artist**: BASSCON 
 
-**Track**: Cascada - Everytime We Touch (Tatsunoshin Festival Mix)
+**Track**: BEL AIR WITCH - Never Knew U
 
-Last updated at 11/11/2022 17:29
+Last updated at 11/11/2022 17:31
