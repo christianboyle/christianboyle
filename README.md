@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqPzNNuUXD134M1E-cyjiuw-t500x500.jpg">](https://soundcloud.com/basscon/bel-air-witch-never-knew-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E3k7CUNoOeRKvYUE-nZ2eLQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-blasterjaxx-ft-maikki-wasabi)
 
-**Artist**: BASSCON 
+**Artist**: Dirty Workz 
 
-**Track**: BEL AIR WITCH - Never Knew U
+**Track**: Da Tweekaz & Blasterjaxx Ft. MAIKKI - WASABI
 
-Last updated at 11/11/2022 17:31
+Last updated at 11/11/2022 17:32
