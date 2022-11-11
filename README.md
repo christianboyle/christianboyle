@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MOeuv6EWww22-0-t500x500.jpg">](https://soundcloud.com/kato2xofficial/spin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFQ5T1tTNCfrVg6U-eP8P5g-t500x500.jpg">](https://soundcloud.com/basscon/alessaa-hurricanes)
 
-**Artist**: KATO2X 
+**Artist**: BASSCON 
 
-**Track**: Spin
+**Track**: ALESSA.A - Hurricanes
 
-Last updated at 11/11/2022 13:09
+Last updated at 11/11/2022 13:10
