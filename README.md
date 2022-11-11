@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7YyWXRkZAa0PzDK-6YioFw-t500x500.jpg">](https://soundcloud.com/balamii/equiss-november-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-008-october-delights)
 
-**Artist**: Balamii 
+**Artist**: Ascent Recordings 
 
-**Track**: EQUISS - November 2022
+**Track**: Ascent Sessions 008 - October Delights
 
-Last updated at 11/11/2022 13:31
+Last updated at 11/11/2022 13:33
