@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cL4rer53BAPQ9Nvb-Ayys1g-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-170-la-penderie-noire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O4uz2dnxf33Vc13w-olWJXQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-reverie-parental-guidance-black-hole-dwx-copyright-free)
 
-**Artist**: Boiler Room 
+**Artist**: Dirty Workz 
 
-**Track**: Hard Dance 170: La Penderie Noire
+**Track**: Mike Reverie & Parental Guidance - Black Hole (DWX Copyright Free)
 
-Last updated at 11/11/2022 09:19
+Last updated at 11/11/2022 13:08
