@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GLgUviVFngU2-0-t500x500.jpg">](https://soundcloud.com/liamcolemusic/feel-forget?in=hysteriarecords/sets/liam-cole-bryan-v-feel-forget)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-75XUaWigUefyO6wS-6u84Qw-t500x500.jpg">](https://soundcloud.com/rossykate/karma-with-jazz-cartier)
 
-**Artist**: Liam Cole 
+**Artist**: ROSSY 
 
-**Track**: Feel & Forget
+**Track**: KARMA (With Jazz Cartier)
 
-Last updated at 11/11/2022 09:09
+Last updated at 11/11/2022 09:12
