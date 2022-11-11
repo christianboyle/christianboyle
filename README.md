@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c45oae8DcTW1k1i0-XYkXbQ-t500x500.jpg">](https://soundcloud.com/rinse_france/toh-imago-1er-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6tmjHx7CLU2OtnsC-WJiSPg-t500x500.jpg">](https://soundcloud.com/simplifyrecs/shea-michael-13imperial-truth-comes-out-dim-bolt-remix)
 
-**Artist**: Rinse France 
+**Artist**: Simplify. 
 
-**Track**: Toh Imago - 1er Novembre 2022
+**Track**: Shea Michael, 13imperial - Truth Comes Out (Dim Bolt Remix)
 
-Last updated at 11/10/2022 14:02
+Last updated at 11/11/2022 09:03
