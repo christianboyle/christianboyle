@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O0ls1v8fnhZG-0-t500x500.jpg">](https://soundcloud.com/vassy/pieces-3?in=bingoplayers/sets/vassy-x-bingo-players-x-disco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-no3lXtIAFB6H-0-t500x500.jpg">](https://soundcloud.com/swatkatmusic/call-you-out?in=hysteriarecords/sets/swatkat-jason-dewey-romi-lux-call-you-out)
 
-**Artist**: VASSY 
+**Artist**: Swatkat 
 
-**Track**: Pieces
+**Track**: Call You Out
 
-Last updated at 11/11/2022 09:07
+Last updated at 11/11/2022 09:08
