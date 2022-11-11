@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzrgThNZcy7cgYcZ-GUfQtQ-t500x500.jpg">](https://soundcloud.com/raversreunited/al-storm-b2b-iyf-mc-jack-b2b-energized-ravers-reunited-15th-birthday-the-black-party-2021?in=raversreunited/sets/ravers-reunited-15th-birthday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7YyWXRkZAa0PzDK-6YioFw-t500x500.jpg">](https://soundcloud.com/balamii/equiss-november-2022)
 
-**Artist**: Ravers Reunited 
+**Artist**: Balamii 
 
-**Track**: Al Storm B2B IYF & MC Jack B2B Energized - Ravers Reunited: 15th Birthday - The Black Party 2021
+**Track**: EQUISS - November 2022
 
-Last updated at 11/11/2022 13:25
+Last updated at 11/11/2022 13:31
