@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GQ4hF6Uy93Moz76-yI05FQ-t500x500.jpg">](https://soundcloud.com/vonstorm/yallmad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEDNybDYwwtUSf2P-ayg8zg-t500x500.jpg">](https://soundcloud.com/electronyze-me/vanilla-trap-wicked-game-1)
 
-**Artist**: VON STORM 
+**Artist**: Electronyze Me 
 
-**Track**: Y'ALL MAD w/ BERRYMANE
+**Track**: vanilla trap - wicked game
 
-Last updated at 11/11/2022 09:05
+Last updated at 11/11/2022 09:06
