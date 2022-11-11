@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYJqdDE9aiCz3lhB-a9ulJw-t500x500.jpg">](https://soundcloud.com/basscon/water-spirit-great-wave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rlNiUEgbwEP0i7F-Ab8tWg-t500x500.jpg">](https://soundcloud.com/karl-guapo/l3nny-calm)
 
-**Artist**: BASSCON 
+**Artist**: L3NNY 
 
-**Track**: Water Spirit - Great Wave
+**Track**: Calmdown
 
-Last updated at 11/11/2022 13:11
+Last updated at 11/11/2022 13:12
