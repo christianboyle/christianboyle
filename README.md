@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZHaIvzyLaSdvM1A-LIk4ng-t500x500.jpg">](https://soundcloud.com/cr_label/ravver-what-u-do-2-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7YyWXRkZAa0PzDK-6YioFw-t500x500.jpg">](https://soundcloud.com/balamii/equiss-november-2022)
 
-**Artist**: Circadian Rhythms 
+**Artist**: Balamii 
 
-**Track**: Ravver - What U Do 2 Me
+**Track**: EQUISS - November 2022
 
-Last updated at 11/11/2022 13:14
+Last updated at 11/11/2022 13:15
