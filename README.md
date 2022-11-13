@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4POYHzq3yxRcby3I-nxNwRg-t500x500.jpg">](https://soundcloud.com/drazius/g-jones-x-eprom-rave-drazius-tribute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyPTOFCQrTQpZvlC-kUKB2A-t500x500.jpg">](https://soundcloud.com/chris-murphy-mixes/murphy-burst-the-virus-vol6)
 
-**Artist**: Drazius 
+**Artist**: Chris Murphy Mixes 
 
-**Track**: G Jones & Eprom - R.A.V.E. (Drazius Tribute Remix)
+**Track**: MURPHY BURST THE VIRUS VOL.6
 
-Last updated at 11/13/2022 12:21
+Last updated at 11/13/2022 14:40
