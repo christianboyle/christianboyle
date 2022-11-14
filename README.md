@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3IoOlfjXzGdini9t-b3vUzw-t500x500.jpg">](https://soundcloud.com/slowpalace/pulse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqPzNNuUXD134M1E-cyjiuw-t500x500.jpg">](https://soundcloud.com/basscon/bel-air-witch-never-knew-u)
 
-**Artist**: Slowpalace 
+**Artist**: BASSCON 
 
-**Track**: PULSE
+**Track**: BEL AIR WITCH - Never Knew U
 
-Last updated at 11/14/2022 13:58
+Last updated at 11/14/2022 14:01
