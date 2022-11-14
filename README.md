@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7nnZOMcVDJC0VeP-no3Mng-t500x500.jpg">](https://soundcloud.com/officialtrapparty/anup4m-doubt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Mo2mD29qdndcQlL-yHoukg-t500x500.jpg">](https://soundcloud.com/ayyofree/sixeloso-gnash)
 
-**Artist**: Trap Party 
+**Artist**: AY YO TRIP! 
 
-**Track**: Anup4m - Doubt
+**Track**: SIXELOSO - GNASH
 
-Last updated at 11/14/2022 10:17
+Last updated at 11/14/2022 10:18
