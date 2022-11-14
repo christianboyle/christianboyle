@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hez5vSJxyxVGVouz-z2WLMw-t500x500.jpg">](https://soundcloud.com/feature_phone/detachment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acksr3eVs1oO-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-diamond-eyes)
 
-**Artist**: Feature Phone 
+**Artist**: Gearbox Digital 
 
-**Track**: Detachment
+**Track**: Avi8 - Diamond Eyes
 
-Last updated at 11/14/2022 14:33
+Last updated at 11/14/2022 14:37
