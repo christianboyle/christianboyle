@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5T2a1oLc3Yt0UrUq-uOG7sQ-t500x500.jpg">](https://soundcloud.com/pmprecords/other-plans-collins-dashi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lx5zJPCoozADBOba-xrvLOw-t500x500.jpg">](https://soundcloud.com/circusrecords/ace-aura-x-spaceyeti-say-it)
 
-**Artist**: PMP Records 
+**Artist**: Circus Records Official 
 
-**Track**: Other Plans - COLLINS, Dashi
+**Track**: Ace Aura X SpaceYeti - Say It
 
-Last updated at 11/14/2022 13:47
+Last updated at 11/14/2022 13:48
