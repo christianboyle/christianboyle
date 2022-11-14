@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-seTUWIxhfgZygRH8-zJRvUg-t500x500.jpg">](https://soundcloud.com/travelermusic/inxs-need-you-tonight-traveler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7nnZOMcVDJC0VeP-no3Mng-t500x500.jpg">](https://soundcloud.com/officialtrapparty/anup4m-doubt)
 
-**Artist**: Traveler 
+**Artist**: Trap Party 
 
-**Track**: INXS - Need You Tonight (Traveler Remix)
+**Track**: Anup4m - Doubt
 
-Last updated at 11/13/2022 14:41
+Last updated at 11/14/2022 10:17
