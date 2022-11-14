@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkC8HNq4ZyT9omDT-EcwK3A-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/cascada-everytime-we-touch-tatsunoshin-festival-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YYWDnhsKylPk94FI-UqxKSQ-t500x500.jpg">](https://soundcloud.com/krl_mx/krl-mx-x-fred-again-turn-on-the-light-rex-club-2022-all-night-long-anthem)
 
-**Artist**: Tatsunoshin 
+**Artist**: Krl Mx 
 
-**Track**: Cascada - Everytime We Touch (Tatsunoshin Festival Mix)
+**Track**: Krl Mx X Fred Again - Turn On The Light (Rex Club 2022 All Night Long Anthem)[Free Download]
 
-Last updated at 11/14/2022 14:06
+Last updated at 11/14/2022 14:10
