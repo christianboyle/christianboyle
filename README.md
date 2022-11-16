@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28j8POHaZhypJljE-pnk4zA-t500x500.jpg">](https://soundcloud.com/antidoteworldradio/awmu017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMXTwvVSMMqFxNfE-ybzuDg-t500x500.jpg">](https://soundcloud.com/emengy/hvrcrft-cosmos-2043?in=emengy/sets/hvrcrft-cosmos-2043-ep)
 
-**Artist**: Antidote. World Radio / Records 
+**Artist**: Emengy 
 
-**Track**: ANTIDOTE. WORLD MIX UP 017 — LACHIE.WAV
+**Track**: HVRCRFT - Cosmos 2043
 
-Last updated at 11/16/2022 11:19
+Last updated at 11/16/2022 13:15
