@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vVzFE6jcqekoO0Ae-MHsW8A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-84-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-84-on-beat-106-scotland-with-alvarez-rachel-vega-111122)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W3wEldnjUcwApEC8-iLXMIQ-t500x500.jpg">](https://soundcloud.com/ezkill715/another-day-coming-soon)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: EzKill / Robot Kitty Music 
 
-**Track**: Bonkers Beats #84 on Beat 106 Scotland with Alvarez 111122 (Hour 1)
+**Track**: Another Day ****Coming Soon****
 
-Last updated at 11/15/2022 08:38
+Last updated at 11/16/2022 11:16
