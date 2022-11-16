@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3IjzXw8XHQbYmOuI-xfWHuw-t500x500.jpg">](https://soundcloud.com/soundslikesaka/black-carl-saka-heaven-on-earth-ft-the-lie-within-callie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0mPnvzy8VkjtKfr1-WXp26w-t500x500.jpg">](https://soundcloud.com/ontherecradio/shallou-on-the-record-144)
 
-**Artist**: saka 
+**Artist**: On The Record 
 
-**Track**: Black Carl! & Saka - Heaven On Earth (ft. The Lie Within Callie)
+**Track**: Shallou - On The Record #144
 
-Last updated at 11/16/2022 13:16
+Last updated at 11/16/2022 13:17
