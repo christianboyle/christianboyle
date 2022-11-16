@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-seTUWIxhfgZygRH8-zJRvUg-t500x500.jpg">](https://soundcloud.com/travelermusic/inxs-need-you-tonight-traveler-remix)
 
-**Artist**: S3RL 
+**Artist**: Traveler 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: INXS - Need You Tonight (Traveler Remix)
 
-Last updated at 11/16/2022 13:23
+Last updated at 11/16/2022 14:20
