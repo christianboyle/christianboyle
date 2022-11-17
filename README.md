@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YZwL8cPB3nxWDAE-ULMAng-t500x500.jpg">](https://soundcloud.com/balamii/oscarjerome-nov-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIMCrrvz2uRJ8PVE-jRVH5g-t500x500.jpg">](https://soundcloud.com/callumtucker1/tucker-lets-move-it)
 
-**Artist**: Balamii 
+**Artist**: Tucker Official 
 
-**Track**: Oscar Jerome - November 2022
+**Track**: Tucker - Let’s Move It (FREE DL)
 
-Last updated at 11/17/2022 15:29
+Last updated at 11/17/2022 15:59
