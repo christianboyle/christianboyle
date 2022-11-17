@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjftoSuB0x1CIkhO-qhiJQg-t500x500.jpg">](https://soundcloud.com/themothershiprecs/pastello-jungle-tech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHvojemszzyYAUgI-jxR19w-t500x500.jpg">](https://soundcloud.com/goodsociety/sterfry-together)
 
-**Artist**: The Mothership Records 
+**Artist**: Good Society 
 
-**Track**: Pastello - Jungle Tech
+**Track**: Sterfry - Together (feat. Jason Leech & Go Yama)
 
-Last updated at 11/17/2022 14:39
+Last updated at 11/17/2022 15:26
