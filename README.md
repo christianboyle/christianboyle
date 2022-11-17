@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vVzFE6jcqekoO0Ae-MHsW8A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-84-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ahWdiTqyIZlP2K97-PTQzGw-t500x500.jpg">](https://soundcloud.com/teddykillerz/fred-again-skrillex-jungle-teddy-killerz-bootleg)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Teddy Killerz 
 
-**Track**: Bonkers Beats #84 on Beat 106 Scotland with Alvarez 111122 (Hour 1)
+**Track**: Fred Again.. & Skrillex - Jungle ( Teddy Killerz Bootleg )
 
-Last updated at 11/17/2022 11:55
+Last updated at 11/17/2022 13:50
