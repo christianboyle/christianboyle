@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBKW1fsQhFiHO3CB-8NrMMA-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/miranda-ritmo-y-decepcion-4b0u7m3-weapon-edit?in=dancefloorimpactresearch/sets/dirw-dancefloor-weapon-edits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qtZKf4ZJUrLn4sST-5bJufw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jnxd-lsd)
 
-**Artist**: Dancefloor Impact Research 
+**Artist**: Dirty Workz 
 
-**Track**: [DIRW010] Miranda! - Ritmo Y Decepción (4b0u7m3 Weapon Edit) [FREE DOWNLOAD]
+**Track**: JNXD - LSD
 
-Last updated at 11/17/2022 08:18
+Last updated at 11/17/2022 08:19
