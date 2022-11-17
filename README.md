@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YYWDnhsKylPk94FI-UqxKSQ-t500x500.jpg">](https://soundcloud.com/krl_mx/krl-mx-x-fred-again-turn-on-the-light-rex-club-2022-all-night-long-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ak1QXi45En2CXHT-vVEEBw-t500x500.jpg">](https://soundcloud.com/the_music_blender/ravevik-kxnflex-bliss)
 
-**Artist**: Krl Mx 
+**Artist**: The Music Blender 
 
-**Track**: Krl Mx X Fred Again - Turn On The Light (Rex Club 2022 All Night Long Anthem)[Free Download]
+**Track**: ravevik & KxNFLEX - Bliss
 
-Last updated at 11/16/2022 14:26
+Last updated at 11/16/2022 18:00
