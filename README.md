@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mX6rn4STQlpMy8Of-4IBuCQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms77-galaxies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W3wEldnjUcwApEC8-iLXMIQ-t500x500.jpg">](https://soundcloud.com/ezkill715/another-day-coming-soon)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: EzKill / Robot Kitty Music 
 
-**Track**: HPHF MS77: GALAXIES
+**Track**: Another Day ****Coming Soon****
 
-Last updated at 11/17/2022 08:20
+Last updated at 11/17/2022 11:52
