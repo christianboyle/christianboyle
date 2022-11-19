@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OjnzdH0d82DB0v1z-BNLBsA-t500x500.jpg">](https://soundcloud.com/jakkyboi/u-need-2-chill-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0zUDaGuU2Wnifb8T-EfqzKg-t500x500.jpg">](https://soundcloud.com/mrjennings/kelis-bossy-mr-jennings-flip)
 
-**Artist**: jakkyboí 
+**Artist**: Mr Jennings 
 
-**Track**: U Need 2 Chill
+**Track**: Kelis - Bossy (Mr Jennings Flip)
 
-Last updated at 11/19/2022 10:59
+Last updated at 11/19/2022 11:00
