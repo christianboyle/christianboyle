@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEdijWJ8TgSsf4jg-ycgOsg-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-555-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjRuDuo9oxYH0TdI-jjRhtg-t500x500.jpg">](https://soundcloud.com/drvmmermusic/gaszia-bite-feat-sooski-drvmmer-remix)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Drvmmer 
 
-**Track**: KTRA Episode 555: Hartshorn
+**Track**: Gaszia - Bite Feat. Sooski (Drvmmer Remix)
 
-Last updated at 11/17/2022 16:00
+Last updated at 11/19/2022 10:54
