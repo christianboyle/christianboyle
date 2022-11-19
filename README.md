@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0zUDaGuU2Wnifb8T-EfqzKg-t500x500.jpg">](https://soundcloud.com/mrjennings/kelis-bossy-mr-jennings-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rQ1YQswyyFzayWlK-VaYFEw-t500x500.jpg">](https://soundcloud.com/hardstyle_uk/the-hardstyle-uk-podcast-52-jordii-guestmix)
 
-**Artist**: Mr Jennings 
+**Artist**: Hardstyle UK 
 
-**Track**: Kelis - Bossy (Mr Jennings Flip)
+**Track**: The HARDSTYLE UK Podcast #52 (JORDII Guestmix)
 
-Last updated at 11/19/2022 11:00
+Last updated at 11/19/2022 11:51
