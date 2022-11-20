@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNWl4DmzZsyRt584-EYOqMA-t500x500.jpg">](https://soundcloud.com/frequencybender/unreleased-frequencies-mix-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AH6jCC7vxOhwOZ1l-r8lJeQ-t500x500.jpg">](https://soundcloud.com/huskibass/huski-never-wanna-leave-southgate-remix)
 
-**Artist**: Frequency Bender 
+**Artist**: HUSKI 🐺 
 
-**Track**: Unreleased Frequencies Mix Vol. 3
+**Track**: HUSKI -  NEVER WANNA LEAVE (SOUTHGATE. REMIX)
 
-Last updated at 11/19/2022 20:16
+Last updated at 11/19/2022 20:17
