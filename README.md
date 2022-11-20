@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e51RBREZbtB-0-t500x500.jpg">](https://soundcloud.com/a-ha/take-on-me?in=chevybands/sets/ryan-megan-wardensky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1AklfyTr8sFyzyOu-L0ROKA-t500x500.jpg">](https://soundcloud.com/rinse_france/didi-han-invite-jaymie-silk-19-novembre-2022)
 
-**Artist**: a-ha 
+**Artist**: Rinse France 
 
-**Track**: Take on Me
+**Track**: Didi Han invite Jaymie Silk - 19 Novembre 2022
 
-Last updated at 11/19/2022 20:21
+Last updated at 11/19/2022 20:22
