@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dtpqJJWdiOsn9G8m-zTDnyQ-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd200-violonc-hurricane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rB3BMGR2NupKYnyd-kWwUOQ-t500x500.jpg">](https://soundcloud.com/twofoot/ed-sheeran-shivers-wyld-dnb-remix)
 
-**Artist**: scarreddigital 
+**Artist**: Wyld (Producer) 
 
-**Track**: SD200  ViolonC - Hurricane
+**Track**: Ed Sheeran - Shivers (wyld Dnb Remix)
 
-Last updated at 11/19/2022 20:35
+Last updated at 11/19/2022 20:36
