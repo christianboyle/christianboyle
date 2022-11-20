@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1AklfyTr8sFyzyOu-L0ROKA-t500x500.jpg">](https://soundcloud.com/rinse_france/didi-han-invite-jaymie-silk-19-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqPzNNuUXD134M1E-cyjiuw-t500x500.jpg">](https://soundcloud.com/basscon/bel-air-witch-never-knew-u)
 
-**Artist**: Rinse France 
+**Artist**: BASSCON 
 
-**Track**: Didi Han invite Jaymie Silk - 19 Novembre 2022
+**Track**: BEL AIR WITCH - Never Knew U
 
-Last updated at 11/19/2022 20:22
+Last updated at 11/19/2022 20:24
