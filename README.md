@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e51RBREZbtB-0-t500x500.jpg">](https://soundcloud.com/a-ha/take-on-me?in=chevybands/sets/ryan-megan-wardensky)
 
-**Artist**: Snavs 
+**Artist**: a-ha 
 
-**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
+**Track**: Take on Me
 
-Last updated at 11/19/2022 20:20
+Last updated at 11/19/2022 20:21
