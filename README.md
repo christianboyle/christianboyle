@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AH6jCC7vxOhwOZ1l-r8lJeQ-t500x500.jpg">](https://soundcloud.com/huskibass/huski-never-wanna-leave-southgate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
 
-**Artist**: HUSKI 🐺 
+**Artist**: Snavs 
 
-**Track**: HUSKI -  NEVER WANNA LEAVE (SOUTHGATE. REMIX)
+**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
 
-Last updated at 11/19/2022 20:17
+Last updated at 11/19/2022 20:20
