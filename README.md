@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zL95zBSZet0K2Zc-mpyB3g-t500x500.jpg">](https://soundcloud.com/scantraxx/tnt-x-dj-isaac-rave-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NfVrXy01ncO1olmz-45EzSw-t500x500.jpg">](https://soundcloud.com/q-dancemusic/frontliner-sunshine)
 
-**Artist**: Scantraxx 
+**Artist**: Q-dance Music 
 
-**Track**: TNT X DJ Isaac - Rave Now
+**Track**: Frontliner - Sunshine | Q-dance Records
 
-Last updated at 11/22/2022 17:26
+Last updated at 11/22/2022 17:27
