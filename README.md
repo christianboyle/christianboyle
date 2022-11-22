@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYKruQgPNOuWAQrv-A0Ukjw-t500x500.jpg">](https://soundcloud.com/code-e/pm-better-now-code-e-flipfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zxlT44RyfXhVqW3-G8YhDw-t500x500.jpg">](https://soundcloud.com/user-268116528/hixxy-helter-skelter-human-1)
 
-**Artist**: Code-E 
+**Artist**: Hardcore Hooligan 
 
-**Track**: P.M. - Better Now (Code - E Flip)*FREE DL*
+**Track**: Hixxy @ Helter Skelter - Human Traffic - Launch Party - Volume 2 (09/11/2002)
 
-Last updated at 11/22/2022 15:01
+Last updated at 11/22/2022 15:02
