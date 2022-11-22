@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-COsbmb46RVjlqOPh-1kU1Qg-t500x500.jpg">](https://soundcloud.com/user-139746425-853885928/jay-g-wonderland-free-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjOUOyxzwd41haru-m374ww-t500x500.jpg">](https://soundcloud.com/djjayg-1/jay-g-happy-hard-mix)
 
-**Artist**: Digital Dragon 
+**Artist**: Jay G 
 
-**Track**: Jay G - Wonderland  (FREE RELEASE)
+**Track**: Jay G Happy Hard Mix
 
-Last updated at 11/22/2022 16:06
+Last updated at 11/22/2022 16:09
