@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zL95zBSZet0K2Zc-mpyB3g-t500x500.jpg">](https://soundcloud.com/scantraxx/tnt-x-dj-isaac-rave-now)
 
-**Artist**: Dirty Workz 
+**Artist**: Scantraxx 
 
-**Track**: TNT - OMG
+**Track**: TNT X DJ Isaac - Rave Now
 
-Last updated at 11/22/2022 17:24
+Last updated at 11/22/2022 17:26
