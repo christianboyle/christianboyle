@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJnyo6QJLlRwvgJF-nFpcag-t500x500.jpg">](https://soundcloud.com/oneseventy/jts-x-technikore-meet-her-at-the-love-parade-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgvHiIn0ux0p5g8y-pgV1BQ-t500x500.jpg">](https://soundcloud.com/oneseventy/jts-better-now-tatsunoshin-remix)
 
 **Artist**: OneSeventy 
 
-**Track**: JTS X Technikore - Meet Her At The Love Parade (Radio Edit)
+**Track**: JTS - Better Now (Tatsunoshin Remix)
 
-Last updated at 11/22/2022 17:28
+Last updated at 11/22/2022 17:29
