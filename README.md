@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hnnE7J4sO4aXv8vd-RWyzbw-t500x500.jpg">](https://soundcloud.com/djjayg-1/darren-styles-olly-james-forever-jay-g-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdgKZnpVv2osbVqS-iWAtpg-t500x500.jpg">](https://soundcloud.com/user-139746425-853885928/jay-g-kinn-whys-it-gotta-be-like-that)
 
-**Artist**: Jay G 
+**Artist**: Digital Dragon 
 
-**Track**: Darren Styles & Olly James -  Forever (Jay G Edit)
+**Track**: Jay G & Kinn Whys It Gotta Be Like That
 
-Last updated at 11/22/2022 17:16
+Last updated at 11/22/2022 17:18
