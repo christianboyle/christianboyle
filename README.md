@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XNpFW9WmMdky5ztq-zEiJyA-t500x500.jpg">](https://soundcloud.com/djjayg-1/alice-dj-better-off-alone-jay-g-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VIX5JecyBrHvR38W-lzdpHg-t500x500.jpg">](https://soundcloud.com/djjayg-1/tnt-double-dutch-darkies-jay-g-editfree-dl)
 
 **Artist**: Jay G 
 
-**Track**: Alice DJ - Better Off Alone (Jay G Remix)Free dL
+**Track**: TNT - Double Dutch Darkies (Jay G Edit)Free DL
 
-Last updated at 11/22/2022 15:06
+Last updated at 11/22/2022 15:07
