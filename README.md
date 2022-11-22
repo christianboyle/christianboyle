@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuvQR3Yog6BVhoTT-JXozKw-t500x500.jpg">](https://soundcloud.com/user-170742083-923187331/arnie-take-my-hand-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lMyWl0jlOScHYa18-R5Hpag-t500x500.jpg">](https://soundcloud.com/absolut-chaos-dj/absolut-chaos-vol-21)
 
-**Artist**: Hard To The Core 
+**Artist**: Absolut Chaos 
 
-**Track**: Arnie - Take My Hand (Out Now)
+**Track**: Absolut Chaos Vol 21
 
-Last updated at 11/22/2022 16:04
+Last updated at 11/22/2022 16:05
