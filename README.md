@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wusnc3nwfkqn2Rmo-jMDN4Q-t500x500.jpg">](https://soundcloud.com/blockfm/otaquest-radio-episode-24-tatsunoshin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wY5fnmySChzNvCkN-DD5w6Q-t500x500.jpg">](https://soundcloud.com/eliminamusic/elimina-intrepid-disconnect)
 
-**Artist**: block.fm 
+**Artist**: ELIMINA 
 
-**Track**: Otaquest Radio : EPISODE 24 - Tatsunoshin
+**Track**: ELIMINA - Intrepid Disconnect
 
-Last updated at 11/22/2022 17:31
+Last updated at 11/23/2022 08:13
