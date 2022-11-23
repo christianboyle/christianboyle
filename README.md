@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hGhVuDamIYK4Lp1M-fyD9tw-t500x500.jpg">](https://soundcloud.com/dj-alexmartin/beautiful-people-alex-martin-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B2jBUlYwXqW9ZGmZ-p3rMvw-t500x500.jpg">](https://soundcloud.com/goodnightcody/tenderly)
 
-**Artist**: ALEX MARTIN 
+**Artist**: Goodnight Cody 
 
-**Track**: Chris Brown & Benny Benassi - Beautiful People (Alex Martin Bootleg)
+**Track**: tenderly
 
-Last updated at 11/23/2022 08:56
+Last updated at 11/23/2022 08:58
