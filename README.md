@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNJqBGXWXJgtsii1-yvd3Zg-t500x500.jpg">](https://soundcloud.com/detectionaudio/premiere-a1-abdul-raeva-atlas-corporation-duality4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUogNTAeNdaF7ac1-6VO93g-t500x500.png">](https://soundcloud.com/rinsefm/scuffedrecordings221122)
 
-**Artist**: detectionaudio 
+**Artist**: Rinse FM 
 
-**Track**: PREMIERE: A1 - Abdul Raeva - Atlas Corporation [DUALITY4]
+**Track**: Scuffed Recordings - 22 November 2022
 
-Last updated at 11/23/2022 08:16
+Last updated at 11/23/2022 08:48
