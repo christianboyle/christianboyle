@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsDsicUTdsbwxXmJ-4LefOA-t500x500.jpg">](https://soundcloud.com/rinse_france/girls-dont-cry-festival-takeover-avec-xd_eric-22-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjOUOyxzwd41haru-m374ww-t500x500.jpg">](https://soundcloud.com/djjayg-1/jay-g-happy-hard-mix)
 
-**Artist**: Rinse France 
+**Artist**: Jay G 
 
-**Track**: Girls Don't Cry Festival Takeover avec xd_eric - 22 Novembre 2022
+**Track**: Jay G Happy Hard Mix
 
-Last updated at 11/23/2022 09:01
+Last updated at 11/23/2022 09:03
