@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wusnc3nwfkqn2Rmo-jMDN4Q-t500x500.jpg">](https://soundcloud.com/blockfm/otaquest-radio-episode-24-tatsunoshin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BFWZT6YTpN0xBvqM-yvuFyQ-t500x500.jpg">](https://soundcloud.com/blockfm/20221007-trekkie-trax-radio-masayoshi-iimori-live-mix)
 
 **Artist**: block.fm 
 
-**Track**: Otaquest Radio : EPISODE 24 - Tatsunoshin
+**Track**: 2022/10/07 TREKKIE TRAX RADIO : Masayoshi Iimori Live Mix
 
-Last updated at 11/23/2022 11:07
+Last updated at 11/23/2022 11:10
