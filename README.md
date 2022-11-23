@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lTv2BNfMZZStpLj5-Tl938g-t500x500.jpg">](https://soundcloud.com/rinse_france/victor-dermenghem-les-chroniques-du-sonore-another-day-in-ostara-22-novembre-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNJqBGXWXJgtsii1-yvd3Zg-t500x500.jpg">](https://soundcloud.com/detectionaudio/premiere-a1-abdul-raeva-atlas-corporation-duality4)
 
-**Artist**: Rinse France 
+**Artist**: detectionaudio 
 
-**Track**: Victor Dermenghem : Les Chroniques Du Sonore : another day in ostara - 22 Novembre 2022
+**Track**: PREMIERE: A1 - Abdul Raeva - Atlas Corporation [DUALITY4]
 
-Last updated at 11/23/2022 08:15
+Last updated at 11/23/2022 08:16
