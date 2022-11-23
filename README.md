@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6P9Idexr6yWhwmJ2-7kevyQ-t500x500.jpg">](https://soundcloud.com/les-yeux-orange/premiere-vrgo-fake-flat-white-chris-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjOUOyxzwd41haru-m374ww-t500x500.jpg">](https://soundcloud.com/djjayg-1/jay-g-happy-hard-mix)
 
-**Artist**: Les Yeux Orange 
+**Artist**: Jay G 
 
-**Track**: PREMIERE : VRGO - Fake! (Flat White Chris Remix)
+**Track**: Jay G Happy Hard Mix
 
-Last updated at 11/23/2022 11:25
+Last updated at 11/23/2022 12:32
