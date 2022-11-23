@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-906zCylBghyF7XYh-mNPpWw-t500x500.jpg">](https://soundcloud.com/latuofficial/far-east-movement-like-a-g6-latu-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
 
-**Artist**: LATU. 
+**Artist**: Snavs 
 
-**Track**: Far East Movement - LIKE A G6 [LATU. FLIP]
+**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
 
-Last updated at 11/23/2022 08:50
+Last updated at 11/23/2022 08:51
