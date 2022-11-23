@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNjHyzEd7jF6GEtM-Zzj5TQ-t500x500.jpg">](https://soundcloud.com/mikeenemy/mike-enemy-b2b-mike-reverie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wusnc3nwfkqn2Rmo-jMDN4Q-t500x500.jpg">](https://soundcloud.com/blockfm/otaquest-radio-episode-24-tatsunoshin)
 
-**Artist**: Mike Enemy 
+**Artist**: block.fm 
 
-**Track**: Mike Enemy B2B Mike Reverie live at Westfest 2022
+**Track**: Otaquest Radio : EPISODE 24 - Tatsunoshin
 
-Last updated at 11/23/2022 13:03
+Last updated at 11/23/2022 14:51
