@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oXlVHZ0GHfqwUcL-f5JEuw-t500x500.jpg">](https://soundcloud.com/keidenmusic/calma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-906zCylBghyF7XYh-mNPpWw-t500x500.jpg">](https://soundcloud.com/latuofficial/far-east-movement-like-a-g6-latu-flip-1)
 
-**Artist**: KEIDEN 
+**Artist**: LATU. 
 
-**Track**: CALMA (p. bømba)
+**Track**: Far East Movement - LIKE A G6 [LATU. FLIP]
 
-Last updated at 11/23/2022 08:49
+Last updated at 11/23/2022 08:50
