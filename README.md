@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eddJd3GC2rWtATJA-qLi9EA-t500x500.jpg">](https://soundcloud.com/musicbyjustus/kernkraft-400-vs-spectrum-justus-remix-mashup-vocal-is-filtererd)
 
-**Artist**: Snavs 
+**Artist**: Justus 
 
-**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
+**Track**: Kernkraft 400 vs. Spectrum (Justus Remix Mashup) [VOCAL IS FILTERERD]
 
-Last updated at 11/23/2022 08:51
+Last updated at 11/23/2022 08:53
