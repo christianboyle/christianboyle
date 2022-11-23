@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eddJd3GC2rWtATJA-qLi9EA-t500x500.jpg">](https://soundcloud.com/musicbyjustus/kernkraft-400-vs-spectrum-justus-remix-mashup-vocal-is-filtererd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hGhVuDamIYK4Lp1M-fyD9tw-t500x500.jpg">](https://soundcloud.com/dj-alexmartin/beautiful-people-alex-martin-bootleg)
 
-**Artist**: Justus 
+**Artist**: ALEX MARTIN 
 
-**Track**: Kernkraft 400 vs. Spectrum (Justus Remix Mashup) [VOCAL IS FILTERERD]
+**Track**: Chris Brown & Benny Benassi - Beautiful People (Alex Martin Bootleg)
 
-Last updated at 11/23/2022 08:53
+Last updated at 11/23/2022 08:56
