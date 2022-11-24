@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FufI8OJX4S3gCwi-ZJ8KmQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/if-found-x-luma-twenty-five-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkC8HNq4ZyT9omDT-EcwK3A-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/cascada-everytime-we-touch-tatsunoshin-festival-mix)
 
-**Artist**: NCS 
+**Artist**: Tatsunoshin 
 
-**Track**: if found x Luma - twenty five [NCS Release]
+**Track**: Cascada - Everytime We Touch (Tatsunoshin Festival Mix)
 
-Last updated at 11/24/2022 17:21
+Last updated at 11/24/2022 17:24
