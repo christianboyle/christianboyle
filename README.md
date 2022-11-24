@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmGMFxztqmHa2c2t-L6mqvQ-t500x500.jpg">](https://soundcloud.com/thisisevalyn/see-if-i-care)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8zNqoK61SQzYbpY-mRu9dQ-t500x500.jpg">](https://soundcloud.com/skypierr/nihonto)
 
-**Artist**: Evalyn 
+**Artist**: skypierr 
 
-**Track**: See If I Care
+**Track**: Nihontō
 
-Last updated at 11/24/2022 13:43
+Last updated at 11/24/2022 15:23
