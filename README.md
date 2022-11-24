@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZECVeIYLYyZNhf5R-MIKWxA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-032-pleeg-eyezic-dead-weight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0LtlEykmo39ob3ow-YYE5GQ-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/bot-circle)
 
-**Artist**: Quality Goods Records 
+**Artist**: SQISHI 
 
-**Track**: QGRS-032 | PLEEG & Eyezic - Dead Weight
+**Track**: BOT CIRCLE (FREE DOWNLOAD)
 
-Last updated at 11/24/2022 08:52
+Last updated at 11/24/2022 08:53
