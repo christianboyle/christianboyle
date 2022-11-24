@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjftoSuB0x1CIkhO-qhiJQg-t500x500.jpg">](https://soundcloud.com/themothershiprecs/pastello-jungle-tech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: The Mothership Records 
+**Artist**: Dirty Workz 
 
-**Track**: Pastello - Jungle Tech
+**Track**: TNT - OMG
 
-Last updated at 11/24/2022 08:58
+Last updated at 11/24/2022 08:59
