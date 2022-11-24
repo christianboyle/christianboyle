@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wk5fEkMvAJk6-0-t500x500.jpg">](https://soundcloud.com/touristmusic/avalanche-waleed-remix)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: Tourist 
 
-**Track**: Alaguan - Good For You (VIP)
+**Track**: Avalanche (Waleed Remix)
 
-Last updated at 11/24/2022 17:36
+Last updated at 11/24/2022 17:39
