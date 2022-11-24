@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000326109008-ns68k4-t500x500.jpg">](https://soundcloud.com/djgammer/underneath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: Gammer 
+**Artist**: Dirty Workz 
 
-**Track**: GAMMER & LINNEY - UNDERNEATH
+**Track**: TNT - OMG
 
-Last updated at 11/24/2022 16:56
+Last updated at 11/24/2022 16:57
