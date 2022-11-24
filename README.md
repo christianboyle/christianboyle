@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4C93uAkwqDXBmRT2-ZkKubg-t500x500.jpg">](https://soundcloud.com/ezediel717/a-dark-knight-screaming-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2rB97eHScLN024v-X21n1Q-t500x500.jpg">](https://soundcloud.com/chilltrapnetwork/runhide)
 
-**Artist**: EZEDIEL 
+**Artist**: Chill Trap Records 
 
-**Track**: A Dark Knight Screaming Inside
+**Track**: Harr. - Run And Hide [Chill Trap Release]
 
-Last updated at 11/24/2022 08:48
+Last updated at 11/24/2022 08:49
