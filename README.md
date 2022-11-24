@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz8pazVTz7Fy5e1a-q0lh1Q-t500x500.jpg">](https://soundcloud.com/leondismusic/antiheroremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RYBsUVkp0nqwSp9p-qqGfxQ-t500x500.jpg">](https://soundcloud.com/alstorm/ultravibes-dream-of-me-voodoo-panda)
 
-**Artist**: Leondis 
+**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
 
-**Track**: Taylor Swift - Anti-Hero (COASTR. & Leondis Remix)
+**Track**: Ultravibes - Dream Of Me (Voodoo Panda)
 
-Last updated at 11/24/2022 17:28
+Last updated at 11/24/2022 17:31
