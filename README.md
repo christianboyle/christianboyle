@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0WkSQsT8dR9bGMnj-aZU27w-t500x500.jpg">](https://soundcloud.com/luudeofficial/men-at-work-down-under-luude-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: LUUDE 
+**Artist**: Dirty Workz 
 
-**Track**: Men At Work - Down Under (Luude Remix) FULL VERSION ON SPOTIFY NOW
+**Track**: TNT - OMG
 
-Last updated at 11/24/2022 10:41
+Last updated at 11/24/2022 10:58
