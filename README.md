@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDky6yMl8sQac50P-2MzwUQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/angelslandingremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZECVeIYLYyZNhf5R-MIKWxA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-032-pleeg-eyezic-dead-weight)
 
-**Artist**: NIGHTMODE 
+**Artist**: Quality Goods Records 
 
-**Track**: ISOxo & FrostTop - Angels Landing (Midnight Kids Remix)
+**Track**: QGRS-032 | PLEEG & Eyezic - Dead Weight
 
-Last updated at 11/24/2022 08:51
+Last updated at 11/24/2022 08:52
