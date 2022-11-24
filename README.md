@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOeaKbzWMreCnyWy-wjBszw-t500x500.jpg">](https://soundcloud.com/nerdnationinc/pegboard-nerds-sophon-higher-stonebank-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Nerd Nation 
 
-**Track**: TNT - OMG
+**Track**: Pegboard Nerds & Sophon - Higher (Stonebank Remix)
 
-Last updated at 11/24/2022 08:59
+Last updated at 11/24/2022 09:00
