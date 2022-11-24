@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0LtlEykmo39ob3ow-YYE5GQ-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/bot-circle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxRyCSQSAXb55uVW-tRAIVw-t500x500.jpg">](https://soundcloud.com/neyvo/ringside)
 
-**Artist**: SQISHI 
+**Artist**: NEYVO 
 
-**Track**: BOT CIRCLE (FREE DOWNLOAD)
+**Track**: RINGSIDE (feat. Nat James)
 
-Last updated at 11/24/2022 08:53
+Last updated at 11/24/2022 08:54
