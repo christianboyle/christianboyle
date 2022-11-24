@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wusnc3nwfkqn2Rmo-jMDN4Q-t500x500.jpg">](https://soundcloud.com/blockfm/otaquest-radio-episode-24-tatsunoshin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8zNqoK61SQzYbpY-mRu9dQ-t500x500.jpg">](https://soundcloud.com/skypierr/nihonto)
 
-**Artist**: block.fm 
+**Artist**: skypierr 
 
-**Track**: Otaquest Radio : EPISODE 24 - Tatsunoshin
+**Track**: Nihontō
 
-Last updated at 11/23/2022 18:04
+Last updated at 11/24/2022 08:46
