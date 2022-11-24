@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acksr3eVs1oO-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-diamond-eyes)
 
-**Artist**: Dirty Workz 
+**Artist**: Gearbox Digital 
 
-**Track**: TNT - OMG
+**Track**: Avi8 - Diamond Eyes
 
-Last updated at 11/24/2022 17:02
+Last updated at 11/24/2022 17:13
