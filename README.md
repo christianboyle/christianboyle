@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmGMFxztqmHa2c2t-L6mqvQ-t500x500.jpg">](https://soundcloud.com/thisisevalyn/see-if-i-care)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: Evalyn 
+**Artist**: Dirty Workz 
 
-**Track**: See If I Care
+**Track**: TNT - OMG
 
-Last updated at 11/24/2022 17:00
+Last updated at 11/24/2022 17:02
