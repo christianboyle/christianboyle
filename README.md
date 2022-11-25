@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pD7PYETYnpivpzk-286Zow-t500x500.jpg">](https://soundcloud.com/simplifyrecs/d-sabber-inspira-fight-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DpD11XkYlBDhd2tD-XvblYQ-t500x500.jpg">](https://soundcloud.com/autokorekt/eazley-x-autokorekt-play-nice-free-download)
 
-**Artist**: Simplify. 
+**Artist**: AUTOKOREKT 
 
-**Track**: D-Sabber, INSPIRA - Fight VIP
+**Track**: Eazley X Autokorekt - PLAY NICE (Free Download)
 
-Last updated at 11/25/2022 10:35
+Last updated at 11/25/2022 10:36
