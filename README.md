@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aoV78QKhnHz4MCgq-25XJzw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/lost-in-dreams-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: if found 
+**Artist**: S3RL 
 
-**Track**: 「 Lost in Dreams Set 」
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 11/24/2022 17:45
+Last updated at 11/24/2022 18:46
