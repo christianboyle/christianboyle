@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pD7PYETYnpivpzk-286Zow-t500x500.jpg">](https://soundcloud.com/simplifyrecs/d-sabber-inspira-fight-vip)
 
-**Artist**: S3RL 
+**Artist**: Simplify. 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: D-Sabber, INSPIRA - Fight VIP
 
-Last updated at 11/24/2022 18:46
+Last updated at 11/25/2022 10:35
