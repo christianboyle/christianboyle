@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lv7yGKBcZZmkZGWW-zZ4Ceg-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/rogerson-the-feeling-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tmA5v29yzMU3jAS-jAKFcQ-t500x500.jpg">](https://soundcloud.com/lyxliv/severine-ex2nxc)
 
-**Artist**: EDM FAMILY 
+**Artist**: Lyxliv 
 
-**Track**: Rogerson - The Feeling [FREE DOWNLOAD]
+**Track**: Séverine - EX2NXC
 
-Last updated at 11/25/2022 10:51
+Last updated at 11/25/2022 10:52
