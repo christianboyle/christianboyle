@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VDzOjzLY32CBOBgB-QRs0TA-t500x500.jpg">](https://soundcloud.com/yascepedaofficial/juan-luis-guerra-la-bilirubina-yas-cepeda-afro-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NJZve8SPxtZFzqnM-X5pFWQ-t500x500.jpg">](https://soundcloud.com/ondeckrecs/honu-freakin)
 
-**Artist**: Yas Cepeda Official 
+**Artist**: On Deck Records 
 
-**Track**: Juan Luis Guerra - La Bilirubina ( Yas Cepeda Afro Remix )
+**Track**: HONÜ - Freakin'
 
-Last updated at 11/28/2022 17:24
+Last updated at 11/28/2022 17:26
