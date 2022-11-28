@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqB02Ls2bD57J6Xu-85FJnQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-86-on-beat-106?in=beat106scotland/sets/bonkers-beats-86-on-beat-106-scotland-with-kaylene-scr-kevin-energy-alaguan-251122)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VDzOjzLY32CBOBgB-QRs0TA-t500x500.jpg">](https://soundcloud.com/yascepedaofficial/juan-luis-guerra-la-bilirubina-yas-cepeda-afro-remix)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Yas Cepeda Official 
 
-**Track**: Bonkers Beats #86 on Beat 106 Scotland with Alaguan 251122 (Hour 2)
+**Track**: Juan Luis Guerra - La Bilirubina ( Yas Cepeda Afro Remix )
 
-Last updated at 11/28/2022 13:04
+Last updated at 11/28/2022 17:24
