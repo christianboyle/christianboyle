@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mnj0LNa0pjMnDPSH-jGoEcg-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rByjAi0phLFqMSqt-YDk3DA-t500x500.jpg">](https://soundcloud.com/presentlylifted/tucker-doubt-x-p-baby-nahmsayin)
 
-**Artist**: KULA 
+**Artist**: Presently Lifted 👑 
 
-**Track**: KULA_Breakbeat_UK_Bass _2_
+**Track**: Tucker Doubt x P-BABY - NAHMSAYIN
 
-Last updated at 11/30/2022 06:44
+Last updated at 11/30/2022 06:45
