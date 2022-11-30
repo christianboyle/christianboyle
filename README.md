@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-369ZOxneyDNsSJgI-E4IzgQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-420)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qi5tG4NXSiK4tVCU-nj50OQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-legacy-electric-fox)
 
-**Artist**: Dj EZC 
+**Artist**: Dirty Workz 
 
-**Track**: Hardcore Will Never Die Epiosde 420
+**Track**: Hartshorn - Legacy (Electric Fox)
 
-Last updated at 11/29/2022 10:42
+Last updated at 11/30/2022 06:36
