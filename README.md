@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvSOvjKoUnrL-0-t500x500.jpg">](https://soundcloud.com/hyd-music/so-clear-umru-corosion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-369ZOxneyDNsSJgI-E4IzgQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-420)
 
-**Artist**: Hyd 
+**Artist**: Dj EZC 
 
-**Track**: So Clear (umru corrosion)
+**Track**: Hardcore Will Never Die Epiosde 420
 
-Last updated at 11/30/2022 06:48
+Last updated at 11/30/2022 06:53
