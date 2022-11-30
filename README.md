@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szaOitykzrBl-0-t500x500.jpg">](https://soundcloud.com/officialnohero/show-you)
 
-**Artist**: Dirty Workz 
+**Artist**: No Hero 
 
-**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
+**Track**: Show You
 
-Last updated at 11/30/2022 06:37
+Last updated at 11/30/2022 06:39
