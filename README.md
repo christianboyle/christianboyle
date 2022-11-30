@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jq4lCqgKa9udjiFh-fj5OCQ-t500x500.jpg">](https://soundcloud.com/user-769256177/gearbox-2022-twin-turbo-warm-up-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fwxr2QrhHnFCGfTM-n50lsQ-t500x500.jpg">](https://soundcloud.com/circusrecords/ruxxi-x-p3pper-gemstone)
 
-**Artist**: K-Cntrl 
+**Artist**: Circus Records Official 
 
-**Track**: Gearbox 2022 Twin Turbo Warm-Up Mix
+**Track**: Ruxxi x P3PPER - Gemstone
 
-Last updated at 11/30/2022 06:42
+Last updated at 11/30/2022 06:43
