@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qi5tG4NXSiK4tVCU-nj50OQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-legacy-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
 
 **Artist**: Dirty Workz 
 
-**Track**: Hartshorn - Legacy (Electric Fox)
+**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
 
-Last updated at 11/30/2022 06:36
+Last updated at 11/30/2022 06:37
