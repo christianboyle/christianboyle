@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lF2iZqNU3rx2nYcz-U48yUA-t500x500.jpg">](https://soundcloud.com/q-dancemusic/genox-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvSOvjKoUnrL-0-t500x500.jpg">](https://soundcloud.com/hyd-music/so-clear-umru-corosion)
 
-**Artist**: Q-dance Music 
+**Artist**: Hyd 
 
-**Track**: Genox - OMG | Q-dance presents NEXT
+**Track**: So Clear (umru corrosion)
 
-Last updated at 11/30/2022 06:47
+Last updated at 11/30/2022 06:48
