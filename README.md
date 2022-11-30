@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgYn0DHL4Wj4d93x-PQPkyw-t500x500.jpg">](https://soundcloud.com/projectbrand/riot-code-four-four-takeover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lF2iZqNU3rx2nYcz-U48yUA-t500x500.jpg">](https://soundcloud.com/q-dancemusic/genox-omg)
 
-**Artist**: Project Radio 
+**Artist**: Q-dance Music 
 
-**Track**: RIOT CODE - FOUR FOUR Takeover
+**Track**: Genox - OMG | Q-dance presents NEXT
 
-Last updated at 11/30/2022 06:46
+Last updated at 11/30/2022 06:47
