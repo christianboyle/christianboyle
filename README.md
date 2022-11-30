@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-369ZOxneyDNsSJgI-E4IzgQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-420)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOeaKbzWMreCnyWy-wjBszw-t500x500.jpg">](https://soundcloud.com/nerdnationinc/pegboard-nerds-sophon-higher-stonebank-remix)
 
-**Artist**: Dj EZC 
+**Artist**: Nerd Nation 
 
-**Track**: Hardcore Will Never Die Epiosde 420
+**Track**: Pegboard Nerds & Sophon - Higher (Stonebank Remix)
 
-Last updated at 11/30/2022 06:53
+Last updated at 11/30/2022 16:54
