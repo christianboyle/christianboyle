@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
 
-**Artist**: Rave Presents 
+**Artist**: Dirty Workz 
 
-**Track**: RAVE Presents Guest Mix: RAVE TRAX
+**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
 
-Last updated at 12/01/2022 11:41
+Last updated at 12/01/2022 12:07
