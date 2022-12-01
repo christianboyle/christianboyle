@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOeaKbzWMreCnyWy-wjBszw-t500x500.jpg">](https://soundcloud.com/nerdnationinc/pegboard-nerds-sophon-higher-stonebank-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-98qbmNgOYdIn-0-t500x500.jpg">](https://soundcloud.com/fellsofficial/walk-on-water-with-danni-carra)
 
-**Artist**: Nerd Nation 
+**Artist**: Fells 
 
-**Track**: Pegboard Nerds & Sophon - Higher (Stonebank Remix)
+**Track**: Walk On Water (with Danni Carra)
 
-Last updated at 11/30/2022 16:54
+Last updated at 11/30/2022 18:54
