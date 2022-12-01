@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IApNltFezz2NAHfr-pJbnlQ-t500x500.jpg">](https://soundcloud.com/jokrmusicofficial/jokr-halloween-mix-2022-no-treats-only-tricks-trap-bass-house-dnb)
 
-**Artist**: Rave Presents 
+**Artist**: JOKR 
 
-**Track**: RAVE Presents Guest Mix: RAVE TRAX
+**Track**: JOKR -  HALLOWEEN MIX 2022 (NO TREATS ONLY TRICKS) TRAP, BASS HOUSE & DNB
 
-Last updated at 12/01/2022 09:45
+Last updated at 12/01/2022 11:05
