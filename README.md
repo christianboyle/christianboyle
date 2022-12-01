@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOCi8GBAy9cRCo09-Jjbw1A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-ft-elyn-the-dance-is-ours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHgEyvGHYWxP3qrT-8b9kcA-t500x500.jpg">](https://soundcloud.com/tomheist/school-of-seven-bells-open-your-eyes-tom-heist-97-remix-100-plays-unlocks-free-download)
 
-**Artist**: Dirty Workz 
+**Artist**: Tom Heist Hardcore Wot Wot 
 
-**Track**: Jay Reeve ft. Elyn - The Dance Is Ours
+**Track**: School of Seven Bells - Open Your Eyes (Tom Heist '97 Remix) [ FREE DOWNLOAD LINK COMING SHORTLY! ]
 
-Last updated at 12/01/2022 08:51
+Last updated at 12/01/2022 08:55
