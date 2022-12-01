@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHgEyvGHYWxP3qrT-8b9kcA-t500x500.jpg">](https://soundcloud.com/tomheist/school-of-seven-bells-open-your-eyes-tom-heist-97-remix-100-plays-unlocks-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
 
-**Artist**: Tom Heist Hardcore Wot Wot 
+**Artist**: Rave Presents 
 
-**Track**: School of Seven Bells - Open Your Eyes (Tom Heist '97 Remix) [ FREE DOWNLOAD LINK COMING SHORTLY! ]
+**Track**: RAVE Presents Guest Mix: RAVE TRAX
 
-Last updated at 12/01/2022 08:55
+Last updated at 12/01/2022 09:45
