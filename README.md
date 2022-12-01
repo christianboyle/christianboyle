@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Yv5yVLjc4DpnOJq-nsUMQw-t500x500.jpg">](https://soundcloud.com/barongfamily/rayray-full-speed-ft-ozi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
 
-**Artist**: Barong Family 
+**Artist**: Rave Presents 
 
-**Track**: RayRay - Full Speed ft. ØZI
+**Track**: RAVE Presents Guest Mix: RAVE TRAX
 
-Last updated at 12/01/2022 12:42
+Last updated at 12/01/2022 12:43
