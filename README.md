@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oI6lDHwtOvJFHLIs-AELN8A-t500x500.jpg">](https://soundcloud.com/saint-baek/fkme-if-you-want-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0U4kg4886JPhLCBN-sSr0vg-t500x500.jpg">](https://soundcloud.com/lizdek/marathon)
 
-**Artist**: SAINT MILLER 
+**Artist**: Lizdek 
 
-**Track**: Fkme If You Want
+**Track**: Vincent  - Marathon feat. JT Roach (Lizdek Remix)
 
-Last updated at 11/30/2022 18:55
+Last updated at 11/30/2022 18:57
