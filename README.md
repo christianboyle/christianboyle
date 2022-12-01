@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pD7PYETYnpivpzk-286Zow-t500x500.jpg">](https://soundcloud.com/simplifyrecs/d-sabber-inspira-fight-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjftoSuB0x1CIkhO-qhiJQg-t500x500.jpg">](https://soundcloud.com/themothershiprecs/pastello-jungle-tech)
 
-**Artist**: Simplify. 
+**Artist**: The Mothership Records 
 
-**Track**: D-Sabber, INSPIRA - Fight VIP
+**Track**: Pastello - Jungle Tech
 
-Last updated at 12/01/2022 12:37
+Last updated at 12/01/2022 12:41
