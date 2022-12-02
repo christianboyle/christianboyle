@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYRaLH52dy3OjcLj-99IzVQ-t500x500.jpg">](https://soundcloud.com/killthenoise/noisefm-ktn-lost-lands-2022-b2b-ktn-night-bass-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CYZ005CMOUfNM4Sd-mHYlhQ-t500x500.jpg">](https://soundcloud.com/skuddofficial/armed-dangerous)
 
-**Artist**: Kill The Noise 
+**Artist**: SKUDD 
 
-**Track**: NOISE.FM - KTN @ Lost Lands 2022 B2B KTN @ NIGHT BASS 2022
+**Track**: Armed & Dangerous
 
-Last updated at 12/02/2022 13:25
+Last updated at 12/02/2022 13:26
