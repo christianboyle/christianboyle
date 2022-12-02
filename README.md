@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzT9Y8QOIeLV-0-t500x500.jpg">](https://soundcloud.com/100gecs/hey-big-man)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGSIP5y7fkzhTpmh-1HQzGA-t500x500.jpg">](https://soundcloud.com/q-dancemusic/crude-intentions-feel-alive)
 
-**Artist**: 100 gecs 
+**Artist**: Q-dance Music 
 
-**Track**: Hey Big Man
+**Track**: Crude Intentions - Feel Alive | Q-dance presents SPEQTRUM
 
-Last updated at 12/02/2022 10:08
+Last updated at 12/02/2022 10:09
