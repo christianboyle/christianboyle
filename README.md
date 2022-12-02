@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIOIzVWuOsGQIasi-HTTb9Q-t500x500.jpg">](https://soundcloud.com/ophelia_records/yetep-sabai-feat-leslie-powell-lucky-ones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QATs8u5VEVJ0luT6-h6KzWg-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-kinetic)
 
-**Artist**: Ophelia Records 
+**Artist**: Rave Presents 
 
-**Track**: yetep & SABAI feat. Leslie Powell - Lucky Ones
+**Track**: RAVE Presents Guest Mix: Kinetic
 
-Last updated at 12/02/2022 13:29
+Last updated at 12/02/2022 14:27
