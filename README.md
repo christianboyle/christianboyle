@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzkiR1BrbRasH9aQ-g58KXw-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/kanetaker-omega?in=golddiggerrecs/sets/kanetaker-omega)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzT9Y8QOIeLV-0-t500x500.jpg">](https://soundcloud.com/100gecs/hey-big-man)
 
-**Artist**: GOLD DiGGER [RECORDS] 
+**Artist**: 100 gecs 
 
-**Track**: Kanetaker - Omega [Gold Digger]
+**Track**: Hey Big Man
 
-Last updated at 12/02/2022 10:07
+Last updated at 12/02/2022 10:08
