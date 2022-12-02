@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dNyTft2pZthkMgeg-C4zazw-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mkii-let-it-roll?in=hardcoreenergy/sets/mkii-let-it-roll-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fwxr2QrhHnFCGfTM-n50lsQ-t500x500.jpg">](https://soundcloud.com/circusrecords/ruxxi-x-p3pper-gemstone)
 
-**Artist**: Hardcore Energy 
+**Artist**: Circus Records Official 
 
-**Track**: MKII - Let It Roll
+**Track**: Ruxxi x P3PPER - Gemstone
 
-Last updated at 12/02/2022 10:00
+Last updated at 12/02/2022 10:01
