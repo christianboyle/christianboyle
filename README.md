@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QswnyVSI3tmuRAlH-imJrHA-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-172-kander)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYRaLH52dy3OjcLj-99IzVQ-t500x500.jpg">](https://soundcloud.com/killthenoise/noisefm-ktn-lost-lands-2022-b2b-ktn-night-bass-2022)
 
-**Artist**: Boiler Room 
+**Artist**: Kill The Noise 
 
-**Track**: Hard Dance 172: Kander
+**Track**: NOISE.FM - KTN @ Lost Lands 2022 B2B KTN @ NIGHT BASS 2022
 
-Last updated at 12/02/2022 10:15
+Last updated at 12/02/2022 13:25
