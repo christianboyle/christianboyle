@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xaBMHc00dTj7GpEx-etjQDg-t500x500.jpg">](https://soundcloud.com/wubaholics/hexed-lax-feat-jsiadi-noon)
 
-**Artist**: Rave Presents 
+**Artist**: Wubaholics 
 
-**Track**: RAVE Presents Guest Mix: RAVE TRAX
+**Track**: HEXED - LAX (feat. Jsiadi Noon)
 
-Last updated at 12/02/2022 09:51
+Last updated at 12/02/2022 09:59
