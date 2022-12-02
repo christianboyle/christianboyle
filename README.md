@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7SSRQo4pIkvJQnT-nL9xxw-t500x500.jpg">](https://soundcloud.com/raisedrecordings/lynxbangerz-r3pro-hands-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIOIzVWuOsGQIasi-HTTb9Q-t500x500.jpg">](https://soundcloud.com/ophelia_records/yetep-sabai-feat-leslie-powell-lucky-ones)
 
-**Artist**: Raised Recordings 
+**Artist**: Ophelia Records 
 
-**Track**: Lynxbangerz x R3PRO - Hands Up
+**Track**: yetep & SABAI feat. Leslie Powell - Lucky Ones
 
-Last updated at 12/02/2022 13:27
+Last updated at 12/02/2022 13:29
