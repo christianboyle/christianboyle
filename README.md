@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fwxr2QrhHnFCGfTM-n50lsQ-t500x500.jpg">](https://soundcloud.com/circusrecords/ruxxi-x-p3pper-gemstone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHHO59EN4dVlIKV4-HCOJCw-t500x500.jpg">](https://soundcloud.com/barongfamily/fovos-trigger-finger)
 
-**Artist**: Circus Records Official 
+**Artist**: Barong Family 
 
-**Track**: Ruxxi x P3PPER - Gemstone
+**Track**: FOVOS - Trigger Finger
 
-Last updated at 12/02/2022 10:01
+Last updated at 12/02/2022 10:03
