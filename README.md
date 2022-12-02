@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJBVyMX8KkApvk24-IdiYkg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/dillytek-ft-vee-nm-wont-give-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGPGS4WPMELNgzmW-RqzYqA-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/he-mix-series-11-tribe-steppaz)
 
-**Artist**: Dirty Workz 
+**Artist**: Hardcore Energy 
 
-**Track**: Dillytek ft. Vee NM - Won't Give In
+**Track**: HE Mix Series 11 - Tribe Steppaz
 
-Last updated at 12/02/2022 10:13
+Last updated at 12/02/2022 10:14
