@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sSjN2vN9zULUQkQv-gRpyKw-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-527)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAkEW1wlqvV0Y7cM-siRILA-t500x500.jpg">](https://soundcloud.com/boysnoize/sophie-hard-boys-noize-xg-remix)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: Boys Noize 
 
-**Track**: CYB3RPVNK Radio #527
+**Track**: Sophie "Hard" (Boys Noize X&G Remix)-FREE DL
 
-Last updated at 12/03/2022 08:15
+Last updated at 12/03/2022 08:16
