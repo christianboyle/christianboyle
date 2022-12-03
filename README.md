@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vO2W17j2fcapo8Kw-EIzQ1g-t500x500.jpg">](https://soundcloud.com/dinoshadix/walking-on-a-dream-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVmGWeGTVMN6GngC-zpQFHg-t500x500.jpg">](https://soundcloud.com/roudiej12/shmokey-killah-vol-3)
 
-**Artist**: Dino Shadix 🦖 
+**Artist**: Roudie J. 
 
-**Track**: Empire Of The Sun - Walking On A Dream (Dino Shadix Remix) - FREE DL
+**Track**: SHMOKEY KILLAH Vol. 3
 
-Last updated at 12/03/2022 08:39
+Last updated at 12/03/2022 08:42
