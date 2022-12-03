@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYRaLH52dy3OjcLj-99IzVQ-t500x500.jpg">](https://soundcloud.com/killthenoise/noisefm-ktn-lost-lands-2022-b2b-ktn-night-bass-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QATs8u5VEVJ0luT6-h6KzWg-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-kinetic)
 
-**Artist**: Kill The Noise 
+**Artist**: Rave Presents 
 
-**Track**: NOISE.FM - KTN @ Lost Lands 2022 B2B KTN @ NIGHT BASS 2022
+**Track**: RAVE Presents Guest Mix: Kinetic
 
-Last updated at 12/03/2022 10:29
+Last updated at 12/03/2022 10:30
