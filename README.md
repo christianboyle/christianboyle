@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAkEW1wlqvV0Y7cM-siRILA-t500x500.jpg">](https://soundcloud.com/boysnoize/sophie-hard-boys-noize-xg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MD14dZwsazDeMlVQ-3pFJvQ-t500x500.jpg">](https://soundcloud.com/saccosac/believe-it)
 
-**Artist**: Boys Noize 
+**Artist**: iᔕᗩᗩᑕ 
 
-**Track**: Sophie "Hard" (Boys Noize X&G Remix)-FREE DL
+**Track**: BELIEVE IT (Remix)
 
-Last updated at 12/03/2022 08:16
+Last updated at 12/03/2022 08:17
