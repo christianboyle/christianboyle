@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8ChiqVANwZsSnst-5Yyo9Q-t500x500.jpg">](https://soundcloud.com/alkynmusic/sober)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4HyGwYALtxsSwor3-Ry388g-t500x500.jpg">](https://soundcloud.com/arcando-official/love-your-name)
 
-**Artist**: Alkyn 
+**Artist**: Arcando 
 
-**Track**: Sober
+**Track**: Arcando - Love Your Name
 
-Last updated at 12/03/2022 08:20
+Last updated at 12/03/2022 08:21
