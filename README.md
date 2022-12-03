@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000023806059-h95l9n-t500x500.jpg">](https://soundcloud.com/ntrance-1/set-you-free-2012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sSjN2vN9zULUQkQv-gRpyKw-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-527)
 
-**Artist**: ntrance 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: Set You Free 2012
+**Track**: CYB3RPVNK Radio #527
 
-Last updated at 12/02/2022 18:32
+Last updated at 12/03/2022 08:15
