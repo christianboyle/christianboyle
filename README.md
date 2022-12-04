@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30c0RjYUlKLOhlv9-lGbA9w-t500x500.jpg">](https://soundcloud.com/palettes/shapeshifter?in=palettes/sets/losing-reception)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykxwP3CAMV2iyL8Z-qLPMCQ-t500x500.jpg">](https://soundcloud.com/omorimori/morimori-discover-project-countdown-2022)
 
-**Artist**: PALETTES 
+**Artist**: morimori 
 
-**Track**: SKYDYV & Shelf Nunny - Shapeshifter (feat. lostodyssey)
+**Track**: morimori - Discovery Project Countdown 2022
 
-Last updated at 12/04/2022 16:53
+Last updated at 12/04/2022 16:57
