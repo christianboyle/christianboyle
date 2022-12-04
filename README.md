@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QATs8u5VEVJ0luT6-h6KzWg-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-kinetic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qeUu9NSX91sLyPID-HYWCFQ-t500x500.jpg">](https://soundcloud.com/shweezofficial/44s)
 
-**Artist**: Rave Presents 
+**Artist**: SHWEEZ 
 
-**Track**: RAVE Presents Guest Mix: Kinetic
+**Track**: SHWEEZ - 44's
 
-Last updated at 12/03/2022 10:30
+Last updated at 12/04/2022 08:34
