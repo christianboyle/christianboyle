@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykxwP3CAMV2iyL8Z-qLPMCQ-t500x500.jpg">](https://soundcloud.com/omorimori/morimori-discover-project-countdown-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xEpf5lqqL85WAi8-hpcguQ-t500x500.jpg">](https://soundcloud.com/rushdee/hardcore-heaven-germany-promo-mini-mix)
 
-**Artist**: morimori 
+**Artist**: Rush Dee 
 
-**Track**: morimori - Discovery Project Countdown 2022
+**Track**: Hardcore Heaven Germany  Promo Mini Mix
 
-Last updated at 12/04/2022 16:57
+Last updated at 12/05/2022 08:58
