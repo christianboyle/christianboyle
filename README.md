@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EI2lp6DZYFpc-0-t500x500.jpg">](https://soundcloud.com/djsnake/nightbird?in=electronyzemepodcast/sets/bass-music-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G8GCoBXZDoNsUerd-Gfbtyw-t500x500.jpg">](https://soundcloud.com/3000deep/kid-kun-sideways-aspect-remix)
 
-**Artist**: DJ SNAKE 
+**Artist**: 3000 DEEP 
 
-**Track**: Nightbird
+**Track**: Kid Kun - Sideways [Aspect Remix]
 
-Last updated at 12/05/2022 16:05
+Last updated at 12/05/2022 16:06
