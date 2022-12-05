@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xEpf5lqqL85WAi8-hpcguQ-t500x500.jpg">](https://soundcloud.com/rushdee/hardcore-heaven-germany-promo-mini-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjOUOyxzwd41haru-m374ww-t500x500.jpg">](https://soundcloud.com/djjayg-1/jay-g-happy-hard-mix)
 
-**Artist**: Rush Dee 
+**Artist**: Jay G 
 
-**Track**: Hardcore Heaven Germany  Promo Mini Mix
+**Track**: Jay G Happy Hard Mix
 
-Last updated at 12/05/2022 10:54
+Last updated at 12/05/2022 15:24
