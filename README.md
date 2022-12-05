@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G8GCoBXZDoNsUerd-Gfbtyw-t500x500.jpg">](https://soundcloud.com/3000deep/kid-kun-sideways-aspect-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4X5up6XzIShWRf0T-CSHpRg-t500x500.jpg">](https://soundcloud.com/gmafiarecords/hotpxl-outta-my-head)
 
-**Artist**: 3000 DEEP 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: Kid Kun - Sideways [Aspect Remix]
+**Track**: Hotpxl - Outta My Head (Original Mix) [G-MAFIA RECORDS]
 
-Last updated at 12/05/2022 16:06
+Last updated at 12/05/2022 16:07
