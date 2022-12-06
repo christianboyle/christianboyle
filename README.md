@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szaOitykzrBl-0-t500x500.jpg">](https://soundcloud.com/officialnohero/show-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-alkynyiErXWF1xC3-PDFxeg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc189)
 
-**Artist**: No Hero 
+**Artist**: NON STOP NXC® 
 
-**Track**: Show You
+**Track**: NXC189 - Synova & PURJ - Shake It
 
-Last updated at 12/06/2022 16:43
+Last updated at 12/06/2022 16:46
