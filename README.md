@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NA3w5KW9vGVzRJl8-yxmglA-t500x500.jpg">](https://soundcloud.com/monstercat/ivory-dr-ushuu-madara?in=ivorydubz/sets/madara-w-dr-ushuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVzO8LAMYLWyuhqP-qyK9jA-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-bxtr-netsphere-access)
 
-**Artist**: Monstercat 
+**Artist**: RAW 
 
-**Track**: IVORY & Dr. Ushūu - Madara
+**Track**: Premiere: BXTR - Netsphere Access [ABS4]
 
-Last updated at 12/06/2022 10:19
+Last updated at 12/06/2022 10:23
