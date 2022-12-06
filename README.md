@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDMpjSMp0jWUd9Sm-foyl0Q-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra-live-170622-robin-stewart-giant-swan-sonar-barcelona)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NA3w5KW9vGVzRJl8-yxmglA-t500x500.jpg">](https://soundcloud.com/monstercat/ivory-dr-ushuu-madara?in=ivorydubz/sets/madara-w-dr-ushuu)
 
-**Artist**: Resident Advisor 
+**Artist**: Monstercat 
 
-**Track**: RA Live - 17.06.22 - Robin Stewart (Giant Swan), Sónar, Barcelona
+**Track**: IVORY & Dr. Ushūu - Madara
 
-Last updated at 12/06/2022 08:52
+Last updated at 12/06/2022 10:19
