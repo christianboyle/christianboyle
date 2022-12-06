@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n6LYCkN9zAe65Ily-r6Pv9A-t500x500.jpg">](https://soundcloud.com/jakka-b/kr039)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000314540883-cerntl-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/voodoohardpsy)
 
-**Artist**: Jakka-B 
+**Artist**: Inquisitive [Remixes] 
 
-**Track**: Kontrast Radio #039 [ft. Mike Enemy Takeover]
+**Track**: The Prodigy - Voodoo People (Inquisitive Hard Psy Remix)
 
-Last updated at 12/06/2022 12:50
+Last updated at 12/06/2022 12:55
