@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qczmrtEaYckOv4K-8seSBQ-t500x500.jpg">](https://soundcloud.com/narkalix/rauw-alejandro-de-carolina-narkalix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-96R03cDPoFPyO0f8-TIcoFQ-t500x500.jpg">](https://soundcloud.com/lizdek/digital-forest-sample-pack-by-lizdek-demos)
 
-**Artist**: Narkalix 
+**Artist**: Lizdek 
 
-**Track**: Rauw Alejandro - De Carolina (Narkalix Remix)
+**Track**: "Digital Forest" Sample Pack by Lizdek (Demos)
 
-Last updated at 12/07/2022 08:27
+Last updated at 12/07/2022 08:28
