@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMbFOImWewAw98dj-YxV6aw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/nothinbutthat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mPDzwLtrXoy01ArT-RbPatA-t500x500.jpg">](https://soundcloud.com/drippinginroses/enjac-holding-on-4-the-both-of-us)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: DRIPPING IN ROSES 
 
-**Track**: Psyoptic & Rekka Wubz - Nothin' But That
+**Track**: Enjac - HOLDING ON (4 THE BOTH OF US)
 
-Last updated at 12/07/2022 08:20
+Last updated at 12/07/2022 08:23
