@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mPDzwLtrXoy01ArT-RbPatA-t500x500.jpg">](https://soundcloud.com/drippinginroses/enjac-holding-on-4-the-both-of-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c577tkSstq3EpGp2-2fJTOA-t500x500.jpg">](https://soundcloud.com/traptownrecords/game-over)
 
-**Artist**: DRIPPING IN ROSES 
+**Artist**: Trap Town Records 
 
-**Track**: Enjac - HOLDING ON (4 THE BOTH OF US)
+**Track**: Solven, BLVKSTN & RVPTR - Game Over
 
-Last updated at 12/07/2022 08:23
+Last updated at 12/07/2022 08:25
