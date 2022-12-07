@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c577tkSstq3EpGp2-2fJTOA-t500x500.jpg">](https://soundcloud.com/traptownrecords/game-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBFjc7HXrwexiOqy-ndEVNQ-t500x500.jpg">](https://soundcloud.com/chemykid/in-the-dark-2spade-chemy)
 
-**Artist**: Trap Town Records 
+**Artist**: CHEMY 
 
-**Track**: Solven, BLVKSTN & RVPTR - Game Over
+**Track**: In The Dark - 2spade & Chemy
 
-Last updated at 12/07/2022 08:25
+Last updated at 12/07/2022 08:26
