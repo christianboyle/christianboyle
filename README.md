@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hW1lILoAQ5ksz94T-nZrboA-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: Rave Presents 
+**Artist**: Dirty Workz 
 
-**Track**: RAVE Presents Guest Mix: RAVE TRAX
+**Track**: TNT - OMG
 
-Last updated at 12/07/2022 13:07
+Last updated at 12/07/2022 14:05
