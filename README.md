@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JL5By5RhLg3MEzzy-iFOTWw-t500x500.jpg">](https://soundcloud.com/indeksjunts/endure-w-shicoba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMbFOImWewAw98dj-YxV6aw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/nothinbutthat)
 
-**Artist**: NDKS 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Endure w/ SHICOBA
+**Track**: Psyoptic & Rekka Wubz - Nothin' But That
 
-Last updated at 12/07/2022 08:16
+Last updated at 12/07/2022 08:20
