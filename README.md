@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RybXF50vMcHcnHQw-UNHd8A-t500x500.jpg">](https://soundcloud.com/maxximizerecords/stvw-x-tatsunoshin-burning-feat-drean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
 
-**Artist**: Maxximize Records 
+**Artist**: Snavs 
 
-**Track**: STVW X Tatsunoshin - Burning (feat. Drean)
+**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
 
-Last updated at 12/07/2022 14:13
+Last updated at 12/07/2022 14:16
