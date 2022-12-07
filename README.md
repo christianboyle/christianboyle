@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBFjc7HXrwexiOqy-ndEVNQ-t500x500.jpg">](https://soundcloud.com/chemykid/in-the-dark-2spade-chemy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qczmrtEaYckOv4K-8seSBQ-t500x500.jpg">](https://soundcloud.com/narkalix/rauw-alejandro-de-carolina-narkalix-remix)
 
-**Artist**: CHEMY 
+**Artist**: Narkalix 
 
-**Track**: In The Dark - 2spade & Chemy
+**Track**: Rauw Alejandro - De Carolina (Narkalix Remix)
 
-Last updated at 12/07/2022 08:26
+Last updated at 12/07/2022 08:27
