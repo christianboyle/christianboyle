@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgrt23Ky9CbI5iM-4usnqA-t500x500.jpg">](https://soundcloud.com/snavs/david-guetta-morten-juno-snavs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-alkynyiErXWF1xC3-PDFxeg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc189)
 
-**Artist**: Snavs 
+**Artist**: NON STOP NXC® 
 
-**Track**: David Guetta & MORTEN - Juno (Snavs Remix)
+**Track**: NXC189 - Synova & PURJ - Shake It
 
-Last updated at 12/07/2022 14:16
+Last updated at 12/07/2022 15:52
