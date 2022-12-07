@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H56Bj2HEpsY5bLb9-vdd2Bw-t500x500.jpg">](https://soundcloud.com/riodayungog/speak-the-truth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QATs8u5VEVJ0luT6-h6KzWg-t500x500.jpg">](https://soundcloud.com/ravescotland/rave-presents-guest-mix-kinetic)
 
-**Artist**: Rio Da Yung OG 
+**Artist**: Rave Presents 
 
-**Track**: Speak The Truth
+**Track**: RAVE Presents Guest Mix: Kinetic
 
-Last updated at 12/07/2022 08:54
+Last updated at 12/07/2022 09:01
