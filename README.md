@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hFSPLeFEsVLM2iqz-wkEYTg-t500x500.jpg">](https://soundcloud.com/zenxow/automhate-evolution-zenxow-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLvyXkoVZbJ21l6T-G2yUXg-t500x500.jpg">](https://soundcloud.com/manilakilla/manila-killa-feat-evan-giia-best-part-about-you-camoufly-remix)
 
-**Artist**: ZENXOW 
+**Artist**: Manila Killa 
 
-**Track**: AUTOMHATE - EVOLUTION (ZENXOW VIP)
+**Track**: Manila Killa  - Best Part About You Feat. EVAN GIIA (camoufly Remix)
 
-Last updated at 12/07/2022 08:11
+Last updated at 12/07/2022 08:12
