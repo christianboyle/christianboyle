@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLvyXkoVZbJ21l6T-G2yUXg-t500x500.jpg">](https://soundcloud.com/manilakilla/manila-killa-feat-evan-giia-best-part-about-you-camoufly-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JL5By5RhLg3MEzzy-iFOTWw-t500x500.jpg">](https://soundcloud.com/indeksjunts/endure-w-shicoba)
 
-**Artist**: Manila Killa 
+**Artist**: NDKS 
 
-**Track**: Manila Killa  - Best Part About You Feat. EVAN GIIA (camoufly Remix)
+**Track**: Endure w/ SHICOBA
 
-Last updated at 12/07/2022 08:12
+Last updated at 12/07/2022 08:16
