@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNjHyzEd7jF6GEtM-Zzj5TQ-t500x500.jpg">](https://soundcloud.com/mikeenemy/mike-enemy-b2b-mike-reverie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jvFoqnW2eVZ2Rf9-YxgPaQ-t500x500.jpg">](https://soundcloud.com/allhardnation/hakim-love-again-hn-release)
 
-**Artist**: Mike Enemy 
+**Artist**: Hard Nation 
 
-**Track**: Mike Enemy B2B Mike Reverie live at Westfest 2022
+**Track**: HAKIM - Love Again [HN Release]
 
-Last updated at 12/06/2022 16:51
+Last updated at 12/07/2022 08:10
