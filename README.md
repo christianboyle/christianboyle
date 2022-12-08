@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SdoWPaNxWCW7ZfOb-aPRQFg-t500x500.jpg">](https://soundcloud.com/karl-guapo/behind-barz-redo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-snbeA3UzdlXxfSmZ-LrOawA-t500x500.jpg">](https://soundcloud.com/karl-guapo/who-let-the-dog-out-contest)
 
 **Artist**: L3NNY 
 
-**Track**: Behind Barz Redo
+**Track**: About That - Who Let The Dogs Out (Feat. EVALINA) (L3NNY REMIX)
 
-Last updated at 12/08/2022 12:39
+Last updated at 12/08/2022 12:40
