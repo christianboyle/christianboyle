@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xEpf5lqqL85WAi8-hpcguQ-t500x500.jpg">](https://soundcloud.com/rushdee/hardcore-heaven-germany-promo-mini-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SdoWPaNxWCW7ZfOb-aPRQFg-t500x500.jpg">](https://soundcloud.com/karl-guapo/behind-barz-redo)
 
-**Artist**: Rush Dee 
+**Artist**: L3NNY 
 
-**Track**: Hardcore Heaven Germany  Promo Mini Mix
+**Track**: Behind Barz Redo
 
-Last updated at 12/07/2022 15:56
+Last updated at 12/08/2022 12:39
