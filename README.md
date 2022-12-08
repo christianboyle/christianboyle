@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDO5PznvHT4I45eb-kOj5SQ-t500x500.jpg">](https://soundcloud.com/fallenshrine/butterfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oXzbakgSUJuwhxjU-tuyWtw-t500x500.jpg">](https://soundcloud.com/ninajirachi/thingsinevernu?in=ninajirachi/sets/second-nature-mixtape)
 
-**Artist**: Fallen Shrine 
+**Artist**: Ninajirachi 
 
-**Track**: Butterfly
+**Track**: Things I Never Nu
 
-Last updated at 12/08/2022 12:42
+Last updated at 12/08/2022 12:43
