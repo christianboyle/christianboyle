@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qzMy4mZDqpMBhlE-mK4kmA-t500x500.jpg">](https://soundcloud.com/airkazi/real-ones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KuHAgEIGFpFhD8Sc-8hHGgw-t500x500.jpg">](https://soundcloud.com/airkazi/ruinmylife3)
 
 **Artist**: Kazi 
 
-**Track**: real ones
+**Track**: ruin my life
 
-Last updated at 12/09/2022 10:05
+Last updated at 12/09/2022 10:06
