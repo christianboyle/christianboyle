@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5TAl1Vc8K5C4WjW-HjIl7w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-558-early-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qzMy4mZDqpMBhlE-mK4kmA-t500x500.jpg">](https://soundcloud.com/airkazi/real-ones)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Kazi 
 
-**Track**: KTRA Episode 558: Early Rave
+**Track**: real ones
 
-Last updated at 12/09/2022 09:09
+Last updated at 12/09/2022 10:05
