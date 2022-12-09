@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000359289567-ujtcid-t500x500.jpg">](https://soundcloud.com/pure100/pure-100-vandal-rock-beyond-feat-kasa-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2g46AQKoawTK1a0-Ygvd5Q-t500x500.jpg">](https://soundcloud.com/twikipedia/oklike?in=twikipedia/sets/chronic)
 
-**Artist**: Pure 100% 
+**Artist**: twikipedia 
 
-**Track**: Pure 100% & Vandal Rock - Beyond (feat. KASA) [Preview]
+**Track**: ok like
 
-Last updated at 12/09/2022 08:49
+Last updated at 12/09/2022 08:50
