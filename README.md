@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEQyqCD0gNBKlhsC-N7aFpQ-t500x500.jpg">](https://soundcloud.com/dvnots/take-me-home-dvnots-taahliah-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
 
-**Artist**: Dvnots 
+**Artist**: Sopranos Bounce 
 
-**Track**: Take Me Home [Dvnots + TAAHLIAH Remix]
+**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
 
-Last updated at 12/09/2022 08:41
+Last updated at 12/09/2022 08:43
