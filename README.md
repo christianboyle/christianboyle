@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2g46AQKoawTK1a0-Ygvd5Q-t500x500.jpg">](https://soundcloud.com/twikipedia/rude?in=twikipedia/sets/chronic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nlqlvOyC9XIwywa5-iuOIww-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/goinko?in=electrostepnetwork/sets/undergroundoverlordsvol2)
 
-**Artist**: twikipedia 
+**Artist**: Electrostep Network 
 
-**Track**: rude
+**Track**: Sharpy & exilethepope - Goinko [Electrostep Network & Riddim Network EXCLUSIVE]
 
-Last updated at 12/09/2022 08:51
+Last updated at 12/09/2022 08:52
