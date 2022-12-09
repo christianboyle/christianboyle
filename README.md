@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000377247189-33dop4-t500x500.jpg">](https://soundcloud.com/pure100flip/claris-irony-porter-robinson-vs-pure-100-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000359289567-ujtcid-t500x500.jpg">](https://soundcloud.com/pure100/pure-100-vandal-rock-beyond-feat-kasa-preview)
 
-**Artist**: %001 ERUP 
+**Artist**: Pure 100% 
 
-**Track**: ClariS - Irony (Porter Robinson vs Pure 100% Remix)
+**Track**: Pure 100% & Vandal Rock - Beyond (feat. KASA) [Preview]
 
-Last updated at 12/09/2022 08:48
+Last updated at 12/09/2022 08:49
