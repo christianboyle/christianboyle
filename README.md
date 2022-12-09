@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f0Wv5PBNMXxZ9qsr-OTquxw-t500x500.jpg">](https://soundcloud.com/itsmsft/alley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvmwhRUcJyQYrrAD-41H7Mw-t500x500.jpg">](https://soundcloud.com/pure100flip/torture-me-ft-soulja-boy-pure-100-remix)
 
-**Artist**: msft. 
+**Artist**: %001 ERUP 
 
-**Track**: alley [Headbang Society Premiere]
+**Track**: Torture Me (ft. Soulja Boy) (Pure 100% Remix)
 
-Last updated at 12/09/2022 08:45
+Last updated at 12/09/2022 08:46
