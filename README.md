@@ -1,6 +1,6 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/LvTdPrX5ijg/maxresdefault.jpg">](https://www.youtube.com/watch?v=LvTdPrX5ijg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/1QGIdpfUBec/maxresdefault.jpg">](https://www.youtube.com/watch?v=1QGIdpfUBec)
 
 **Artist**: 
   
@@ -17,6 +17,6 @@
 
  
 
-**Track**: Kazi - real ones (Official Video)
+**Track**: Kazi - ruin my life (Official Music Video)
 
-Last updated at 12/09/2022 09:02
+Last updated at 12/09/2022 09:03
