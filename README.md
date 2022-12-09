@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iv2H9Ycb8dASNt87-dJGiAQ-t500x500.jpg">](https://soundcloud.com/kyle-hugan/bagssss-solarious-why-am-i-like-this-killakfromthebay-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5TAl1Vc8K5C4WjW-HjIl7w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-558-early-rave)
 
-**Artist**: Killakfromthebay 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Bagsss & Solarious -Why Am I Like This (Killakfromthebay edit)
+**Track**: KTRA Episode 558: Early Rave
 
-Last updated at 12/09/2022 09:00
+Last updated at 12/09/2022 09:01
