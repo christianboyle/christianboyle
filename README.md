@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/1QGIdpfUBec/maxresdefault.jpg">](https://www.youtube.com/watch?v=1QGIdpfUBec)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5TAl1Vc8K5C4WjW-HjIl7w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-558-early-rave)
 
-**Artist**: 
-  
-    Kazi
-  
-  
-  
-    Kazi
-  
+**Artist**: Keeping The Rave Alive 
 
+**Track**: KTRA Episode 558: Early Rave
 
-
-
-
- 
-
-**Track**: Kazi - ruin my life (Official Music Video)
-
-Last updated at 12/09/2022 09:03
+Last updated at 12/09/2022 09:09
