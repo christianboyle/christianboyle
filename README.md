@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nlqlvOyC9XIwywa5-iuOIww-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/goinko?in=electrostepnetwork/sets/undergroundoverlordsvol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sl7zLD0oX2yYD8Ey-KGybVQ-t500x500.jpg">](https://soundcloud.com/rizzidoxa/interstellar)
 
-**Artist**: Electrostep Network 
+**Artist**: Rizzi 
 
-**Track**: Sharpy & exilethepope - Goinko [Electrostep Network & Riddim Network EXCLUSIVE]
+**Track**: Interstellar
 
-Last updated at 12/09/2022 08:52
+Last updated at 12/09/2022 08:53
