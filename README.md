@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VDYyCPnHOIA555u7-Y0Bwhw-t500x500.jpg">](https://soundcloud.com/i-am-seimei/promo-mix-dec-08-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
 
-**Artist**: Seimei 
+**Artist**: Sopranos Bounce 
 
-**Track**: Promo Mix (Dec 08 2022)
+**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
 
-Last updated at 12/09/2022 10:09
+Last updated at 12/09/2022 17:57
