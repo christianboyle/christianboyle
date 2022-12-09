@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4WKcxgmFCLfYDdco-LXY6HA-t500x500.jpg">](https://soundcloud.com/gumgumworld/marshmello-alone-gumgum-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iv2H9Ycb8dASNt87-dJGiAQ-t500x500.jpg">](https://soundcloud.com/kyle-hugan/bagssss-solarious-why-am-i-like-this-killakfromthebay-edit)
 
-**Artist**: Gum Gum 
+**Artist**: Killakfromthebay 
 
-**Track**: Marshmello- Alone (Gum Gum Remix)
+**Track**: Bagsss & Solarious -Why Am I Like This (Killakfromthebay edit)
 
-Last updated at 12/09/2022 08:59
+Last updated at 12/09/2022 09:00
