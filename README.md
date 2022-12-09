@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NV4moXgzZmxWLjGh-Vp8zbw-t500x500.jpg">](https://soundcloud.com/smolbeats/flowanastasia-tyr-kohout-sending-signal-smol-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PXeAmxB0aKsWpY46-TlzCqQ-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-guest-mix-shizz-lo-1)
 
-**Artist**: smol 
+**Artist**: iEDM Radio 
 
-**Track**: Flowanastasia & Tyr Kohout - Sending Signal (smol Remix)
+**Track**: iEDM Radio Guest Mix - Shizz Lo
 
-Last updated at 12/09/2022 08:54
+Last updated at 12/09/2022 08:55
