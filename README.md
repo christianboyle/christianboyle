@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5TAl1Vc8K5C4WjW-HjIl7w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-558-early-rave)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/LvTdPrX5ijg/maxresdefault.jpg">](https://www.youtube.com/watch?v=LvTdPrX5ijg)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: 
+  
+    Kazi
+  
+  
+  
+    Kazi
+  
 
-**Track**: KTRA Episode 558: Early Rave
 
-Last updated at 12/09/2022 09:01
+
+
+
+ 
+
+**Track**: Kazi - real ones (Official Video)
+
+Last updated at 12/09/2022 09:02
