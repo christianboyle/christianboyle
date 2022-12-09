@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sl7zLD0oX2yYD8Ey-KGybVQ-t500x500.jpg">](https://soundcloud.com/rizzidoxa/interstellar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NV4moXgzZmxWLjGh-Vp8zbw-t500x500.jpg">](https://soundcloud.com/smolbeats/flowanastasia-tyr-kohout-sending-signal-smol-remix)
 
-**Artist**: Rizzi 
+**Artist**: smol 
 
-**Track**: Interstellar
+**Track**: Flowanastasia & Tyr Kohout - Sending Signal (smol Remix)
 
-Last updated at 12/09/2022 08:53
+Last updated at 12/09/2022 08:54
