@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M6ecseEdJvOrk9I-1hLZ4g-t500x500.jpg">](https://soundcloud.com/platform/hard-dance-173-roni)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEQyqCD0gNBKlhsC-N7aFpQ-t500x500.jpg">](https://soundcloud.com/dvnots/take-me-home-dvnots-taahliah-remix)
 
-**Artist**: Boiler Room 
+**Artist**: Dvnots 
 
-**Track**: Hard Dance 173: RONI
+**Track**: Take Me Home [Dvnots + TAAHLIAH Remix]
 
-Last updated at 12/09/2022 08:40
+Last updated at 12/09/2022 08:41
