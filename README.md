@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amXLzwULqQFruDBT-DYI5mg-t500x500.jpg">](https://soundcloud.com/sablevalley/let-you-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KuHAgEIGFpFhD8Sc-8hHGgw-t500x500.jpg">](https://soundcloud.com/airkazi/ruinmylife3)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Kazi 
 
-**Track**: Pauline Herr - Let You Go
+**Track**: ruin my life
 
-Last updated at 12/10/2022 09:25
+Last updated at 12/10/2022 09:26
