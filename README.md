@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1DeoTZUnJYB7E5VI-Kc08HQ-t500x500.jpg">](https://soundcloud.com/typ3on3/white-widow-ft-dead-hippie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6N3uO24IftW457M-k6DN9w-t500x500.jpg">](https://soundcloud.com/dltzk/obsessed)
 
-**Artist**: TYP3ON3 
+**Artist**: ⓸ 
 
-**Track**: WHITE WIDOW FT.  DEAD HIPPIE ( PROD. EERIE X OKRA)
+**Track**: OBSESSED POST-FRAILTY EXTENDED MIX
 
-Last updated at 12/10/2022 09:20
+Last updated at 12/10/2022 09:21
