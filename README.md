@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFJSR1zRLqReliBr-3z2Z8Q-t500x500.jpg">](https://soundcloud.com/liltexas/lil-texas-hole-in-the-speaker)
 
-**Artist**: Sopranos Bounce 
+**Artist**: LIL TEXAS 
 
-**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
+**Track**: LIL TEXAS - HOLE IN THE SPEAKER
 
-Last updated at 12/10/2022 09:27
+Last updated at 12/10/2022 11:02
