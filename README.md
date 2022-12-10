@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mp5rFeM3Gaf16w2y-pP1yiA-t500x500.jpg">](https://soundcloud.com/venture5/first-connection-morflo-records-premiere?in=venture5/sets/first-connection-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amXLzwULqQFruDBT-DYI5mg-t500x500.jpg">](https://soundcloud.com/sablevalley/let-you-go)
 
-**Artist**: Venture 5 
+**Artist**: SABLE VALLEY 
 
-**Track**: First Connection [MorFlo Records Premiere]
+**Track**: Pauline Herr - Let You Go
 
-Last updated at 12/10/2022 09:24
+Last updated at 12/10/2022 09:25
