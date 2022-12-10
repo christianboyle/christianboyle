@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvdewP3QrT0gjLZG-tjPztg-t500x500.jpg">](https://soundcloud.com/3000bass/dylan-jacomb-in-out)
 
-**Artist**: Sopranos Bounce 
+**Artist**: 3000 BASS 
 
-**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
+**Track**: Dylan Jacomb - In & Out
 
-Last updated at 12/09/2022 17:57
+Last updated at 12/10/2022 09:19
