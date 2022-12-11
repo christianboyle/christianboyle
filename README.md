@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9eRABp5jRGL7qFQ-6yYxIQ-t500x500.jpg">](https://soundcloud.com/edekit/gnosis-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sNbCxcMcMjpLnXsf-0czPMA-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-damn)
 
-**Artist**: Edekit 
+**Artist**: Lucha 
 
-**Track**: Gnosis
+**Track**: Lucha - DAMN
 
-Last updated at 12/11/2022 09:47
+Last updated at 12/11/2022 09:48
