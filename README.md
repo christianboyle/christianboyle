@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Osmve2zHMlXfgnWy-Kv9z5A-t500x500.jpg">](https://soundcloud.com/youngcardi444/stargazing-ft-nafe-smallz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oIEOvG3JI1YPijnD-rIaTjg-t500x500.jpg">](https://soundcloud.com/dojamane999/nameless-soldier)
 
-**Artist**: Young Cardi 
+**Artist**: DOJA 
 
-**Track**: STARGAZING ft. Nafe Smallz
+**Track**: NAMELESS SOLDIER
 
-Last updated at 12/11/2022 09:44
+Last updated at 12/11/2022 09:45
