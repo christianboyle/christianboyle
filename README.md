@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7xErINRbw80JyBLK-8O4YIQ-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-mikah-hybris-original-mixbeyond-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nKlLTtaNTm2zpJq-cI4uXQ-t500x500.jpg">](https://soundcloud.com/maxdoutrecords/blaize-x-ar-rolo-king-kong)
 
-**Artist**: Raven Musik 
+**Artist**: MAXD OUT RECORDS 
 
-**Track**: PREMIERE: Mikah - Hybris (Original Mix) [Beyond Now]
+**Track**: Blaize X AR Rolo - KING KONG
 
-Last updated at 12/11/2022 09:50
+Last updated at 12/11/2022 09:51
