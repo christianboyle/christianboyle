@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nKlLTtaNTm2zpJq-cI4uXQ-t500x500.jpg">](https://soundcloud.com/maxdoutrecords/blaize-x-ar-rolo-king-kong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VcyEguVpEQWMRjck-wIKvqg-t500x500.jpg">](https://soundcloud.com/yung-xg/suit-and-tie-finished?in=zerodayproductions/sets/supremepr-us-39135398)
 
-**Artist**: MAXD OUT RECORDS 
+**Artist**: Yung Xg 
 
-**Track**: Blaize X AR Rolo - KING KONG
+**Track**: Suit*Tie [Prodbylilshir]
 
-Last updated at 12/11/2022 09:51
+Last updated at 12/11/2022 09:52
