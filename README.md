@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scyxZr61jKWVQeRp-oojeBQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-88-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-88-on-beat-106-scotland-with-spyro-defective-091222)
 
-**Artist**: Sopranos Bounce 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
+**Track**: Bonkers Beats #88 on Beat 106 Scotland with Spyro 091222 (Hour 1)
 
-Last updated at 12/11/2022 09:53
+Last updated at 12/12/2022 09:07
