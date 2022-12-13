@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scyxZr61jKWVQeRp-oojeBQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-88-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-88-on-beat-106-scotland-with-spyro-defective-091222)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fBXof93KkLuD-0-t500x500.jpg">](https://soundcloud.com/steveaoki/you-dont-get-to-hate-me-ft)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Steve Aoki 
 
-**Track**: Bonkers Beats #88 on Beat 106 Scotland with Spyro 091222 (Hour 1)
+**Track**: You Don't Get To Hate Me ft. Goody Grace (Gammer Remix)
 
 Last updated at 12/13/2022 15:34
