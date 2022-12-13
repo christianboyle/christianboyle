@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scyxZr61jKWVQeRp-oojeBQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-88-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-88-on-beat-106-scotland-with-spyro-defective-091222)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/oYq0TOY0MZM/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHUB4AC0AWKAgwIABABGGUgYihSMA8=&rs=AOn4CLBk57eA2bKiwelaS2YF8zwUOdnm7Q">](https://www.youtube.com/watch?v=oYq0TOY0MZM)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 
+  
+    Steve Aoki
+  
+  
+  
+    Steve Aoki
+  
 
-**Track**: Bonkers Beats #88 on Beat 106 Scotland with Spyro 091222 (Hour 1)
 
-Last updated at 12/12/2022 12:38
+
+
+
+ 
+
+**Track**: Steve Aoki  - Movie Star ft. MOD SUN & Global Dan  (Official Music Video)
+
+Last updated at 12/13/2022 10:59
