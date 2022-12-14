@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhVqYATupGp5cbqX-XDKb3Q-t500x500.jpg">](https://soundcloud.com/lotustape/concentrate)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: Lotus Tape 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: CONCENTRATE
 
-Last updated at 12/13/2022 18:59
+Last updated at 12/13/2022 19:00
