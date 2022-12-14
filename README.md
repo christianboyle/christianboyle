@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/mZlLS9F4QcY/maxresdefault.jpg">](https://www.youtube.com/watch?v=mZlLS9F4QcY)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvQ2ANmpc1DPqXYr-kEAHOg-t500x500.jpg">](https://soundcloud.com/circuselectric/beatcore-x-aaron-shirk-x-vaance-finally-free?in=circuselectric/sets/beatcore-unison)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Circus Electric 
 
+**Track**: Beatcore x Aaron Shirk x Vaance - Finally Free
 
-
-
-
- 
-
-**Track**: Don't Care - S3RL & IC3MANIA ft Kayliana
-
-Last updated at 12/14/2022 16:10
+Last updated at 12/14/2022 17:16
