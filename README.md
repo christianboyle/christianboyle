@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000644605303-hrs9zh-t500x500.jpg">](https://soundcloud.com/willsparks/will-sparks-lost-boy-mona-lisa-toneshifterz-remix?in=stacieleez/sets/related-tracks-squad-e-vs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000012665398-x3o6ao-t500x500.jpg">](https://soundcloud.com/djkurt/dj-kurt-vs-tin-bum-dirty-talk?in=stacieleez/sets/related-tracks-squad-e-vs)
 
-**Artist**: Will Sparks 
+**Artist**: DJ Kurt Lethal Theory 
 
-**Track**: Will Sparks, Lost Boy - Mona Lisa (Toneshifterz Remix)
+**Track**: DJ Kurt vs Tin Bum - Dirty Talk
 
-Last updated at 12/14/2022 10:19
+Last updated at 12/14/2022 10:20
