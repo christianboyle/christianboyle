@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bL212RkO9b1yZRZi-QDXvxg-t500x500.jpg">](https://soundcloud.com/alstorm/10-visa-vs-al-storm-fly-away-eufeions-247-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000659007706-40zmnk-t500x500.jpg">](https://soundcloud.com/e_tank/paramore-misery-business-etank-remix)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: E*Tank 
 
-**Track**: 10 Visa Vs Al Storm - Fly Away (Eufeion's 24:7 Remix)
+**Track**: Paramore - Misery Business (E*Tank Remix)
 
-Last updated at 12/14/2022 10:41
+Last updated at 12/14/2022 10:42
