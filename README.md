@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThAMXlvhr4IQmQEd-RnMWlg-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-nostalgic-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUFzFzK0oJx4VLC2-Qxc7UQ-t500x500.jpg">](https://soundcloud.com/ancitydeep/luzyon-baby-you-know)
 
-**Artist**: KINN 
+**Artist**: Ancity Deep 
 
-**Track**: S3RL - Nostalgic (KINN Remix) **Free Download**
+**Track**: Luzyon - Baby You Know [FREE DOWNLOAD]
 
-Last updated at 12/13/2022 19:01
+Last updated at 12/13/2022 19:02
