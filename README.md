@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUFzFzK0oJx4VLC2-Qxc7UQ-t500x500.jpg">](https://soundcloud.com/ancitydeep/luzyon-baby-you-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DtF166yPlBX0jdSx-DMimyQ-t500x500.jpg">](https://soundcloud.com/dabrecordsofficial/a-death-delta)
 
-**Artist**: Ancity Deep 
+**Artist**: Dab Records 
 
-**Track**: Luzyon - Baby You Know [FREE DOWNLOAD]
+**Track**: A Death - Delta
 
-Last updated at 12/13/2022 19:02
+Last updated at 12/13/2022 19:03
