@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZImaxIDwxbkozap2-lf7i1w-t500x500.jpg">](https://soundcloud.com/basscon/yultron-llllnnnn-pump-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qzMy4mZDqpMBhlE-mK4kmA-t500x500.jpg">](https://soundcloud.com/airkazi/real-ones)
 
-**Artist**: BASSCON 
+**Artist**: Kazi 
 
-**Track**: Yultron, LLLLNNNN - Pump It
+**Track**: real ones
 
-Last updated at 12/13/2022 19:39
+Last updated at 12/13/2022 19:40
