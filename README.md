@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000449987694-bumpdr-t500x500.jpg">](https://soundcloud.com/nxcnov/nxcnov29)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000439530777-couhp4-t500x500.jpg">](https://soundcloud.com/nxcnov/nxcnov13)
 
 **Artist**: NXCNOV 
 
-**Track**: UNDERDOG - DREAMING
+**Track**: UNDERDOG - LET GO
 
-Last updated at 12/14/2022 14:45
+Last updated at 12/14/2022 14:46
