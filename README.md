@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EcuRTEL5xHSjNil-CN6RPg-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/g4bba-go-stupid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiyL1izMDdk97J9W-unWGvw-t500x500.jpg">](https://soundcloud.com/user-720309049/banging-fresh-vol-3-mixed-by-sdj)
 
-**Artist**: Dancing Dead 
+**Artist**: SDJ 
 
-**Track**: G4BBA - Go Stupid
+**Track**: Banging Fresh Vol 3 Mixed By SDJ
 
-Last updated at 12/14/2022 09:47
+Last updated at 12/14/2022 09:49
