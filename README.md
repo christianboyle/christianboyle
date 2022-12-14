@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LvvPwGIzNeuKj65-BFhmyA-t500x500.jpg">](https://soundcloud.com/user-719841332/alone-slamma-free-downloadd-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiyL1izMDdk97J9W-unWGvw-t500x500.jpg">](https://soundcloud.com/user-720309049/banging-fresh-vol-3-mixed-by-sdj)
 
-**Artist**: SLAMMA 
+**Artist**: SDJ 
 
-**Track**: Alone Slamma free downloadd 22
+**Track**: Banging Fresh Vol 3 Mixed By SDJ
 
-Last updated at 12/14/2022 09:56
+Last updated at 12/14/2022 09:57
