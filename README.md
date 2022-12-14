@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000659007706-40zmnk-t500x500.jpg">](https://soundcloud.com/e_tank/paramore-misery-business-etank-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEdijWJ8TgSsf4jg-ycgOsg-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-555-hartshorn)
 
-**Artist**: E*Tank 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Paramore - Misery Business (E*Tank Remix)
+**Track**: KTRA Episode 555: Hartshorn
 
-Last updated at 12/14/2022 10:42
+Last updated at 12/14/2022 10:44
