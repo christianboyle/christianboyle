@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432282465-7uuws5-t500x500.jpg">](https://soundcloud.com/nxcnov/nxcnov1)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/mZlLS9F4QcY/maxresdefault.jpg">](https://www.youtube.com/watch?v=mZlLS9F4QcY)
 
-**Artist**: NXCNOV 
+**Artist**: 
+  
+    S3RL
+  
+  
+  
+    S3RL
+  
 
-**Track**: G♡SOIID - WHERE I BELONG
 
-Last updated at 12/14/2022 14:47
+
+
+
+ 
+
+**Track**: Don't Care - S3RL & IC3MANIA ft Kayliana
+
+Last updated at 12/14/2022 16:10
