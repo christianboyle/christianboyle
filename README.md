@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZImaxIDwxbkozap2-lf7i1w-t500x500.jpg">](https://soundcloud.com/basscon/yultron-llllnnnn-pump-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s8zoVppwpWv9QsAq-J0lTJQ-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/modern-lover-quit-my-job-sqishi)
 
-**Artist**: BASSCON 
+**Artist**: SQISHI 
 
-**Track**: Yultron, LLLLNNNN - Pump It
+**Track**: MODERN LOVER - QUIT MY JOB [SQISHI BOOTLEG] (FREE DOWNLOAD)
 
-Last updated at 12/13/2022 19:41
+Last updated at 12/14/2022 09:33
