@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000009832110-0xiw0e-t500x500.jpg">](https://soundcloud.com/djkurt/right-about-now-2007?in=djkurt/sets/dj-kurt-tracks-packd)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/oYq0TOY0MZM/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHUB4AC0AWKAgwIABABGGUgYihSMA8=&rs=AOn4CLBk57eA2bKiwelaS2YF8zwUOdnm7Q">](https://www.youtube.com/watch?v=oYq0TOY0MZM)
 
-**Artist**: DJ Kurt Lethal Theory 
+**Artist**: 
+  
+    Steve Aoki
+  
+  
+  
+    Steve Aoki
+  
 
-**Track**: DJ KURT - RIGHT ABOUT NOW - LETHAL THEORY CLASSICS
 
-Last updated at 12/14/2022 10:22
+
+
+
+ 
+
+**Track**: Steve Aoki  - Movie Star ft. MOD SUN & Global Dan  (Official Music Video)
+
+Last updated at 12/14/2022 10:33
