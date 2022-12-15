@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMbFOImWewAw98dj-YxV6aw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/nothinbutthat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNmxS9MgCLx0-0-t500x500.jpg">](https://soundcloud.com/madgas-sa/bright-rhymes)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Madgas-SA 
 
-**Track**: Psyoptic & Rekka Wubz - Nothin' But That
+**Track**: Bright Rhymes
 
-Last updated at 12/15/2022 16:48
+Last updated at 12/15/2022 16:49
