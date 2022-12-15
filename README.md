@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vDzP8OkkZLUe6ndQ-awHJ1w-t500x500.jpg">](https://soundcloud.com/djantention/antention-shakal-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-riWofmTUYRCvtRuh-H1oT2g-t500x500.jpg">](https://soundcloud.com/soviet_kid/hadouken-yeat-x-ken-carson-rage-type-beat)
 
-**Artist**: Dj Antention 
+**Artist**: $OViET KiD 
 
-**Track**: Antention - Shakal ( Original Mix )
+**Track**: "Hadouken" Yeat x Ken Carson | RAGE Type Beat
 
-Last updated at 12/14/2022 23:56
+Last updated at 12/15/2022 00:07
