@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouKGzqyOS5YM7nZW-ndzlcA-t500x500.jpg">](https://soundcloud.com/steve-anarkia/cloudy-winter-12-progressive-electro-attack-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Oes5SWhjgXDLJxY-unZ2BQ-t500x500.jpg">](https://soundcloud.com/ganggangrecs/ryg-art?in=ganggangrecs/sets/face-melters-vol-4)
 
-**Artist**: Steve Anarkia 
+**Artist**: Gang Gang Records 
 
-**Track**: Cloudy Winter 12 - Progressive Electro Attack - 2022
+**Track**: RYG - ART
 
-Last updated at 12/15/2022 00:47
+Last updated at 12/15/2022 01:54
