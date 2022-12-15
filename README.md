@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWD7PWSojtOvsZHy-j8LvWw-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/david-guetta-bebe-rexha-im-good-lyfes-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9l40yG7hR6TnXi3-tZt08w-t500x500.jpg">](https://soundcloud.com/deepthought-sound/forever-feat-chester-watson-og-bey-harris-1)
 
-**Artist**: EDM FAMILY Remixes 
+**Artist**: Deep Thought 
 
-**Track**: David Guetta & Bebe Rexha - I'm Good (Lyfes Remix) [FREE DOWNLOAD]
+**Track**: Forever (feat. Chester Watson & OG Bey Harris)
 
-Last updated at 12/14/2022 20:33
+Last updated at 12/14/2022 20:37
