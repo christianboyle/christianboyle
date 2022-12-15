@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YuvoBbch7hTy2dFY-6f82Lg-t500x500.jpg">](https://soundcloud.com/ilian-tape/itps088-muhe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiyL1izMDdk97J9W-unWGvw-t500x500.jpg">](https://soundcloud.com/user-720309049/banging-fresh-vol-3-mixed-by-sdj)
 
-**Artist**: ILIAN TAPE 
+**Artist**: SDJ 
 
-**Track**: ITPS088 MU"HE
+**Track**: Banging Fresh Vol 3 Mixed By SDJ
 
-Last updated at 12/15/2022 04:49
+Last updated at 12/15/2022 06:33
