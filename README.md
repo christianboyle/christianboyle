@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNWRoS3xvPDKNkNI-9ECrCw-t500x500.jpg">](https://soundcloud.com/murderclubmixarchive/smilerip-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pr98QzP8LySlySl-JDYWVA-t500x500.jpg">](https://soundcloud.com/jadudala/venom)
 
-**Artist**: MURDER CLUB MIX ARCHIVE 
+**Artist**: Jadū Dala 
 
-**Track**: MURDER CLUB SET FOR SMILE.RIP RAVE (7/17/20)
+**Track**: AHEE - Venom (JADŪ200)
 
-Last updated at 12/15/2022 08:20
+Last updated at 12/15/2022 16:44
