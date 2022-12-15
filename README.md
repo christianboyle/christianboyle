@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nKJ5cTdktQFhO56r-yOlCNw-t500x500.jpg">](https://soundcloud.com/loudtink/main-de-gloire-cry-loudtink-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AhtFPcxrMXRUyO1A-nIAYhA-t500x500.jpg">](https://soundcloud.com/user-745683692/echo)
 
-**Artist**: Loudtink 
+**Artist**: Holmann 
 
-**Track**: Main-De-Gloire - CRY (Loudtink Remix)
+**Track**: Echo
 
-Last updated at 12/14/2022 20:13
+Last updated at 12/14/2022 20:17
