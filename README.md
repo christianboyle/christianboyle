@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p6xPrlrqOslIDjZ2-KiWVWA-t500x500.jpg">](https://soundcloud.com/basscapital/fenx-indecisive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hDDdFfUUaGkXyLNp-tfjJbg-t500x500.jpg">](https://soundcloud.com/wubaholics/blurrd-vzn-flexin-1)
 
-**Artist**: BassCapital Recs. 
+**Artist**: Wubaholics 
 
-**Track**: Fenx - Indecisive
+**Track**: blurrd vzn - flexin
 
-Last updated at 12/14/2022 23:39
+Last updated at 12/14/2022 23:43
