@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyizS18k7LNm7tJQ-ByPpeA-t500x500.jpg">](https://soundcloud.com/electroncdj/simulation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6QvkvyZrz82uywp-iyf72w-t500x500.jpg">](https://soundcloud.com/judgebeats/looming-1?in=judgebeats/sets/i-told-you-i-would-eat-you-up)
 
-**Artist**: Electron-C (electroncdj) 
+**Artist**: JUDGE 
 
-**Track**: Electron-C - Simulation (Original Mix)
+**Track**: LOOMING
 
-Last updated at 12/14/2022 19:33
+Last updated at 12/14/2022 19:38
