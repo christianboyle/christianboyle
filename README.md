@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o27uBSpLkUbDoy2D-YhZ7Ow-t500x500.jpg">](https://soundcloud.com/helloworldbeats/close-to-the-ground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
 
-**Artist**: helloworld 
+**Artist**: Truth x Lies Goodies 
 
-**Track**: close to the ground
+**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
 
-Last updated at 12/14/2022 23:16
+Last updated at 12/14/2022 23:19
