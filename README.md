@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pyFwEnbprSPKPnM1-sMDCqQ-t500x500.jpg">](https://soundcloud.com/arcadian_sound/warmth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EcuRTEL5xHSjNil-CN6RPg-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/g4bba-go-stupid)
 
-**Artist**: Arcadian Sound 
+**Artist**: Dancing Dead 
 
-**Track**: Warmth
+**Track**: G4BBA - Go Stupid
 
-Last updated at 12/15/2022 02:43
+Last updated at 12/15/2022 02:46
