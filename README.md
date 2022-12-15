@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m521lSItloby3CEF-Rf5R5g-t500x500.jpg">](https://soundcloud.com/ganggangrecs/gvnner-go-shtupid?in=ganggangrecs/sets/face-melters-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7oDGVKCFN9gZdQby-o9mGGQ-t500x500.jpg">](https://soundcloud.com/subsolow/dark-rune-mix-vol-ii)
 
-**Artist**: Gang Gang Records 
+**Artist**: SUBSOLOW 
 
-**Track**: GVNNER - GO SHTUPID
+**Track**: SUBSOLOW MIX VOL II - The Shamans Prophecy
 
-Last updated at 12/15/2022 02:01
+Last updated at 12/15/2022 02:05
