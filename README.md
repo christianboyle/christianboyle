@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvQ2ANmpc1DPqXYr-kEAHOg-t500x500.jpg">](https://soundcloud.com/circuselectric/beatcore-x-aaron-shirk-x-vaance-finally-free?in=circuselectric/sets/beatcore-unison)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcGi6E7UPg6jO9RW-mokqWg-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/rihanna-where-have-you-been-geses-lusso-remix-free-download?in=edmfamilyreposts/sets/rihanna-where-have-you-been)
 
-**Artist**: Circus Electric 
+**Artist**: EDM FAMILY Extras 
 
-**Track**: Beatcore x Aaron Shirk x Vaance - Finally Free
+**Track**: Rihanna - Where Have You Been (GESES & LUSSO Remix) [FREE DOWNLOAD]
 
-Last updated at 12/14/2022 17:16
+Last updated at 12/14/2022 18:43
