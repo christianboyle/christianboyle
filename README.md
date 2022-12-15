@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a9KpnOFySo7A9SHk-niUzDQ-t500x500.jpg">](https://soundcloud.com/no_li/flux-remix-maybe-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cCWx4YH3C0KtbmlL-T9wlCg-t500x500.jpg">](https://soundcloud.com/electronyze-me/kowz-warzone-1)
 
-**Artist**: NO-Li 
+**Artist**: Electronyze Me 
 
-**Track**: Flux Pavillion - Freeway (Flux Pavilion and Kill the Noise Remix) (NO-Li & Noiz-E-Boi FLIP)(FREEDL)
+**Track**: KOWZ - WARZONE
 
-Last updated at 12/14/2022 23:26
+Last updated at 12/14/2022 23:30
