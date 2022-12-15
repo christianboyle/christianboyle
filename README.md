@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4aBLphQraFWnNz8V-es4uug-t500x500.jpg">](https://soundcloud.com/subsidia/xotix-kuhlosul-brand-new)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0rdDAUx7CSMn23za-0vgeuQ-t500x500.png">](https://soundcloud.com/chao-gardem/dazegxd-loveme303-feat?in=chao-gardem/sets/jungle-sunday-vol-11)
 
-**Artist**: Subsidia 
+**Artist**: ღ†ChaoGardem†ღ 
 
-**Track**: Xotix & Kuhlosul - Brand New
+**Track**: Dazegxd - Loveme303 (feat. MANAPOOL)
 
-Last updated at 12/15/2022 08:18
+Last updated at 12/15/2022 08:19
