@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-riWofmTUYRCvtRuh-H1oT2g-t500x500.jpg">](https://soundcloud.com/soviet_kid/2-big-yeat-x-trippie-redd-rage-type-beat)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: $OViET KiD 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: "2 Big" Yeat x Trippie Redd | RAGE Type Beat
 
-Last updated at 12/14/2022 23:19
+Last updated at 12/14/2022 23:24
