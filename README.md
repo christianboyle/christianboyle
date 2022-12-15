@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HcXeocqQiU0L9rHA-G1jWIg-t500x500.jpg">](https://soundcloud.com/whaleyofficial/wylin-blunts-x-whaley-afterglow-whaley-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2lMxFbYCaUMEoFO-O2MdyQ-t500x500.jpg">](https://soundcloud.com/theofficialragunde/sam-smith-kim-petras-unholy-nic-johnston-ragunde-remix-radio-edit?in=nicjohnston/sets/unholy-remix)
 
-**Artist**: Whaley 
+**Artist**: Ragunde 
 
-**Track**: Wylin - Bluntz x Whaley - Afterglow (Whaley Edit)
+**Track**: Sam Smith, Kim Petras - Unholy (Nic Johnston & Ragunde Remix) - Radio Edit
 
-Last updated at 12/14/2022 18:50
+Last updated at 12/14/2022 18:52
