@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZRkrQbWmBFJnzlmF-PIdnBw-t500x500.jpg">](https://soundcloud.com/nayanraina/closer-on-bms-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-phJQxRDuWbrw6IK9-r5zuYQ-t500x500.jpg">](https://soundcloud.com/lucyelizamusic/notimetodiecover)
 
-**Artist**: NAYAN 
+**Artist**: LUCY ELIZA 
 
-**Track**: CLOSER ON BMS RADIO
+**Track**: NO TIME TO DIE ( BILLIE EILISH COVER)
 
-Last updated at 12/15/2022 00:23
+Last updated at 12/15/2022 00:28
