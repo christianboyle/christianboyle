@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UnS22fbwu7KVug7N-BDYZhQ-t500x500.jpg">](https://soundcloud.com/da-weskaa/code-name)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Oes5SWhjgXDLJxY-unZ2BQ-t500x500.jpg">](https://soundcloud.com/ganggangrecs/ryg-art)
 
-**Artist**: WESKVV [PURGE COLLECTIVE] 
+**Artist**: Gang Gang Records 
 
-**Track**: Code Name [birthday freebie]
+**Track**: RYG - ART
 
-Last updated at 12/15/2022 03:11
+Last updated at 12/15/2022 03:18
