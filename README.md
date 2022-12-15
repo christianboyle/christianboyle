@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IBeEGpFjGuSjQQLq-rLV5ow-t500x500.jpg">](https://soundcloud.com/deejay-instigate/hixxy-take-a-look-instigatexskindoggxprospect-rexixclip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMbFOImWewAw98dj-YxV6aw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/nothinbutthat)
 
-**Artist**: Deejay Instigate 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Hixxy - Take A Look (InstigateXSkindoggXProspect Rexix)(clip)
+**Track**: Psyoptic & Rekka Wubz - Nothin' But That
 
-Last updated at 12/15/2022 16:47
+Last updated at 12/15/2022 16:48
