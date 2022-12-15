@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0EcuRTEL5xHSjNil-CN6RPg-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/g4bba-go-stupid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtAPAr44nuz3tvxf-KRfsaw-t500x500.jpg">](https://soundcloud.com/ktkrecords/funk-tribu-namael-ktk036?in=ktkrecords/sets/funk-tribu-acid-angels-ep)
 
-**Artist**: Dancing Dead 
+**Artist**: KTK RECORDS 
 
-**Track**: G4BBA - Go Stupid
+**Track**: Funk Tribu - Namael [KTK036]
 
-Last updated at 12/15/2022 02:46
+Last updated at 12/15/2022 02:49
