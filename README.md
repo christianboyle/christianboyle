@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nKlLTtaNTm2zpJq-cI4uXQ-t500x500.jpg">](https://soundcloud.com/maxdoutrecords/chompy-2-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HcXeocqQiU0L9rHA-G1jWIg-t500x500.jpg">](https://soundcloud.com/whaleyofficial/wylin-blunts-x-whaley-afterglow-whaley-edit)
 
-**Artist**: MAXD OUT RECORDS 
+**Artist**: Whaley 
 
-**Track**: CHOMPY - 2 U
+**Track**: Wylin - Bluntz x Whaley - Afterglow (Whaley Edit)
 
-Last updated at 12/14/2022 18:46
+Last updated at 12/14/2022 18:50
