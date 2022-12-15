@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itPva8LXhdExsUo4-hRLTGw-t500x500.jpg">](https://soundcloud.com/dirtysnatcharecords/suffer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZRkrQbWmBFJnzlmF-PIdnBw-t500x500.jpg">](https://soundcloud.com/nayanraina/closer-on-bms-radio)
 
-**Artist**: DirtySnatcha Records 
+**Artist**: NAYAN 
 
-**Track**: Phobos & Deimos - Suffer
+**Track**: CLOSER ON BMS RADIO
 
-Last updated at 12/15/2022 00:20
+Last updated at 12/15/2022 00:23
