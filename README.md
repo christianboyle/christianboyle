@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c6nM8FjxXXz69b4U-E2nciA-t500x500.jpg">](https://soundcloud.com/laviermusic/ive-been-waiting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIbk07cqgFoa2gEl-VuaKcg-t500x500.jpg">](https://soundcloud.com/kingunivxrse/like-a-jet)
 
-**Artist**: Lavier 
+**Artist**: King Univxrse 
 
-**Track**: I've Been Waiting
+**Track**: LIKE A JET
 
-Last updated at 12/14/2022 18:54
+Last updated at 12/14/2022 18:59
