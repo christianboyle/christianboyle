@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wYK7k5SFfNVsmS7e-J6xMdA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/far-from-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itPva8LXhdExsUo4-hRLTGw-t500x500.jpg">](https://soundcloud.com/dirtysnatcharecords/suffer)
 
-**Artist**: BOOTY LEAK 
+**Artist**: DirtySnatcha Records 
 
-**Track**: TARS. + ROWKA & Booty Leak - Far From You [ FREE DOWNLOAD ]
+**Track**: Phobos & Deimos - Suffer
 
-Last updated at 12/15/2022 00:16
+Last updated at 12/15/2022 00:20
