@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2lMxFbYCaUMEoFO-O2MdyQ-t500x500.jpg">](https://soundcloud.com/theofficialragunde/sam-smith-kim-petras-unholy-nic-johnston-ragunde-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P94EsufNzi5N-0-t500x500.jpg">](https://soundcloud.com/inzo_music/inzo-drift-like-a-cloud-flow)
 
-**Artist**: Ragunde 
+**Artist**: INZO 
 
-**Track**: Sam Smith, Kim Petras - Unholy (Nic Johnston & Ragunde Remix) - Radio Edit
+**Track**: INZO - Drift Like A Cloud, Flow Like Water
 
-Last updated at 12/14/2022 20:40
+Last updated at 12/14/2022 20:44
