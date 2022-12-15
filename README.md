@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hDDdFfUUaGkXyLNp-tfjJbg-t500x500.jpg">](https://soundcloud.com/wubaholics/blurrd-vzn-flexin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jRDb8soaYLoVpSF-TK2r6A-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/glass-dragonflies)
 
-**Artist**: Wubaholics 
+**Artist**: Star Monster 
 
-**Track**: blurrd vzn - flexin
+**Track**: Glass Dragonflies
 
-Last updated at 12/14/2022 23:43
+Last updated at 12/14/2022 23:45
