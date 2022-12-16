@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uqyCUqLXJ2fS4Wem-EpaslA-t500x500.jpg">](https://soundcloud.com/highrollersonly/st-barth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxr4yOo6l25Ds6Lk-SwFUEw-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-63-flow-state)
 
-**Artist**: highrollersonly 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: St Barth
+**Track**: Episode 63 - Flow State
 
-Last updated at 12/16/2022 10:14
+Last updated at 12/16/2022 10:15
