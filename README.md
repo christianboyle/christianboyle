@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000026433251-3wqo2g-t500x500.jpg">](https://soundcloud.com/ryankore/ryan-kore-call-me-maybe-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhTCI6oA8WY7ls8L-hzR3Uw-t500x500.jpg">](https://soundcloud.com/j-neration/jnex0010)
 
-**Artist**: Ryan Kore 
+**Artist**: J-NERATION 
 
-**Track**: Ryan Kore - Call Me Maybe (master) (320kbps) *FREE TRACK* (Alternative link in description!)
+**Track**: インターネットパジャマパーティ！ Xfade Demo
 
-Last updated at 12/16/2022 11:32
+Last updated at 12/16/2022 11:35
