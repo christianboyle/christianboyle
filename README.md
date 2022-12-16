@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxr4yOo6l25Ds6Lk-SwFUEw-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-63-flow-state)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Brfs2x2HegeSsZxe-7dDj9w-t500x500.jpg">](https://soundcloud.com/flowstatemix/oiler-gamma)
 
-**Artist**: SoCal Nightcore Podcast 
+**Artist**: Flow State 
 
-**Track**: Episode 63 - Flow State
+**Track**: oiler - gamma [Melodic House & Techno] [FS106] [DJ Set]
 
-Last updated at 12/16/2022 10:15
+Last updated at 12/16/2022 11:00
