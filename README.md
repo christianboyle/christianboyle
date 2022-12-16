@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzuBbKe7PPuXGiHV-09K5vQ-t500x500.jpg">](https://soundcloud.com/future-bassnet/burnsfb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmhCGbjfz6fbHVEZ-N2o3lw-t500x500.jpg">](https://soundcloud.com/fishskale666/rags-2-riches-volume-1)
 
-**Artist**: Future Bass Records 
+**Artist**: Fi$HSK*LE 
 
-**Track**: Flarize - Burns [Future Bass Release]
+**Track**: RAGS 2 RICHES VOLUME 1
 
-Last updated at 12/16/2022 06:47
+Last updated at 12/16/2022 09:38
