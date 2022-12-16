@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000521934798-uaixxh-t500x500.jpg">](https://soundcloud.com/j-neration/jncd0010)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/ZyhrYis509A/maxresdefault.jpg">](https://www.youtube.com/watch?v=ZyhrYis509A)
 
-**Artist**: J-NERATION 
+**Artist**: 
+  
+    Aqua
+  
+  
+  
+    Aqua
+  
 
-**Track**: "J-NERATION 10" Crossfade Demo Out Now on Bandcamp
 
-Last updated at 12/16/2022 11:37
+
+
+
+ 
+
+**Track**: Aqua - Barbie Girl (Official Music Video)
+
+Last updated at 12/16/2022 12:42
