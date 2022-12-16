@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380141919-d2er3a-t500x500.jpg">](https://soundcloud.com/ryankore/delusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000379555149-wgze4a-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/fracus-feat-fraz-save-our-love-ryan-kore-remix-dj-tools-vol6-promo-clip)
 
-**Artist**: Ryan Kore 
+**Artist**: Hardcore Underground 
 
-**Track**: Will Sparks, Reece Low - Delusion Feat. Jacob Lee (Ryan Kore Remix) *FREE DOWNLOAD*
+**Track**: Fracus feat. Fraz - Save Our Love (Ryan Kore Remix) ('DJ Tools Vol.6' - Promo Clip)
 
-Last updated at 12/16/2022 11:25
+Last updated at 12/16/2022 11:29
