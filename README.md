@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xf535JU0RwUtrcrF-May1bQ-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-jennifer-rene-the-power-of-you-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEnE67jS7d36fBck-tJRSaA-t500x500.jpg">](https://soundcloud.com/marlomusic/marlo-voolgarizm-breathe-again)
 
-**Artist**: OneSeventy 
+**Artist**: MaRLo 
 
-**Track**: Technikore & Jennifer Rene - The Power Of You (Radio Edit)
+**Track**: MaRLo & Voolgarizm - Breathe Again
 
-Last updated at 12/16/2022 11:21
+Last updated at 12/16/2022 11:22
