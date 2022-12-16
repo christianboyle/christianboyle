@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000379555149-wgze4a-t500x500.jpg">](https://soundcloud.com/hardcoreunderground/fracus-feat-fraz-save-our-love-ryan-kore-remix-dj-tools-vol6-promo-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000258286988-c1i2ko-t500x500.jpg">](https://soundcloud.com/ryankore/wom_rkd7_remix)
 
-**Artist**: Hardcore Underground 
+**Artist**: Ryan Kore 
 
-**Track**: Fracus feat. Fraz - Save Our Love (Ryan Kore Remix) ('DJ Tools Vol.6' - Promo Clip)
+**Track**: Firelite - World Of Magic (Ryan Kore & Daniel Seven Remix)
 
-Last updated at 12/16/2022 11:29
+Last updated at 12/16/2022 11:31
