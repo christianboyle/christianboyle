@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYxLSE8TNikuEVw4-ZFOP4A-t500x500.jpg">](https://soundcloud.com/hikeii/amygdala?in=hikeii/sets/dra1n3d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9wBfMTceVSMXhhAR-rt9kZg-t500x500.jpg">](https://soundcloud.com/riddim-network/akronym-cop-hunter-riddim-network-exclusive-free-download)
 
-**Artist**: @hikeii 
+**Artist**: Riddim Network 
 
-**Track**: ecco2k & bladee - amygdala (@hikeii flip)
+**Track**: Akronym - Cop Hunter (Riddim Network Exclusive) Free Download
 
-Last updated at 12/16/2022 17:03
+Last updated at 12/16/2022 17:04
