@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix?in=electronyzemepodcast/sets/naeleck-creep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYxLSE8TNikuEVw4-ZFOP4A-t500x500.jpg">](https://soundcloud.com/hikeii/amygdala?in=hikeii/sets/dra1n3d)
 
-**Artist**: Naeleck 
+**Artist**: @hikeii 
 
-**Track**: Naeleck - Creep (BYOR Remix)
+**Track**: ecco2k & bladee - amygdala (@hikeii flip)
 
-Last updated at 12/16/2022 13:48
+Last updated at 12/16/2022 17:03
