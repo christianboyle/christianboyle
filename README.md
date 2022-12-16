@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PvQhr4cVWInqQ56y-EHgfZA-t500x500.jpg">](https://soundcloud.com/socalnightcore/72a)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: Episode 72 - Thermoptic
 
-Last updated at 12/16/2022 09:39
+Last updated at 12/16/2022 09:40
