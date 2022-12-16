@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2dREv9UB7L8HKF8-eg3HGA-t500x500.jpg">](https://soundcloud.com/oneseventy/steelnix-x-uwaukh-loved-by-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000620966947-g3xy2p-t500x500.jpg">](https://soundcloud.com/ryankore/enkorehardkore)
 
-**Artist**: OneSeventy 
+**Artist**: Ryan Kore 
 
-**Track**: SteelniX X Uwaukh - Loved By You (Radio Edit)
+**Track**: Ryan Kore @ Enkore Of Hardkore (Live Set) (Free Download)(2013)
 
-Last updated at 12/16/2022 11:23
+Last updated at 12/16/2022 11:24
