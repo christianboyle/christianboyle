@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CC3SrZ9egNg22zm9-R5kybQ-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/bombs-away-carol-of-the-bells)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzuBbKe7PPuXGiHV-09K5vQ-t500x500.jpg">](https://soundcloud.com/future-bassnet/burnsfb)
 
-**Artist**: Dancing Dead 
+**Artist**: Future Bass Records 
 
-**Track**: Bombs Away - Carol Of The Bells
+**Track**: Flarize - Burns [Future Bass Release]
 
-Last updated at 12/16/2022 06:46
+Last updated at 12/16/2022 06:47
