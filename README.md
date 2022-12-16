@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ZyhrYis509A/maxresdefault.jpg">](https://www.youtube.com/watch?v=ZyhrYis509A)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix?in=electronyzemepodcast/sets/naeleck-creep)
 
-**Artist**: 
-  
-    Aqua
-  
-  
-  
-    Aqua
-  
+**Artist**: Naeleck 
 
+**Track**: Naeleck - Creep (BYOR Remix)
 
-
-
-
- 
-
-**Track**: Aqua - Barbie Girl (Official Music Video)
-
-Last updated at 12/16/2022 12:42
+Last updated at 12/16/2022 13:48
