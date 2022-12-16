@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000026433251-3wqo2g-t500x500.jpg">](https://soundcloud.com/ryankore/ryan-kore-call-me-maybe-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380141919-d2er3a-t500x500.jpg">](https://soundcloud.com/ryankore/delusion)
 
 **Artist**: Ryan Kore 
 
-**Track**: Ryan Kore - Call Me Maybe (master) (320kbps) *FREE TRACK* (Alternative link in description!)
+**Track**: Will Sparks, Reece Low - Delusion Feat. Jacob Lee (Ryan Kore Remix) *FREE DOWNLOAD*
 
-Last updated at 12/16/2022 17:08
+Last updated at 12/16/2022 17:13
