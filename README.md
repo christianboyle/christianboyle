@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Brfs2x2HegeSsZxe-7dDj9w-t500x500.jpg">](https://soundcloud.com/flowstatemix/oiler-gamma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sfBK3xunAr6cf7AX-UG0BeQ-t500x500.jpg">](https://soundcloud.com/highrollersonly/tell-me-what-youre-thinking-nxc)
 
-**Artist**: Flow State 
+**Artist**: highrollersonly 
 
-**Track**: oiler - gamma [Melodic House & Techno] [FS106] [DJ Set]
+**Track**: Tell Me What You're Thinking Nxc
 
-Last updated at 12/16/2022 11:00
+Last updated at 12/16/2022 11:01
