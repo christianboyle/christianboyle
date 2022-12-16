@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000620966947-g3xy2p-t500x500.jpg">](https://soundcloud.com/ryankore/enkorehardkore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380141919-d2er3a-t500x500.jpg">](https://soundcloud.com/ryankore/delusion)
 
 **Artist**: Ryan Kore 
 
-**Track**: Ryan Kore @ Enkore Of Hardkore (Live Set) (Free Download)(2013)
+**Track**: Will Sparks, Reece Low - Delusion Feat. Jacob Lee (Ryan Kore Remix) *FREE DOWNLOAD*
 
-Last updated at 12/16/2022 11:24
+Last updated at 12/16/2022 11:25
