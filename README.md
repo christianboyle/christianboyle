@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380141919-d2er3a-t500x500.jpg">](https://soundcloud.com/ryankore/delusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
 
-**Artist**: Ryan Kore 
+**Artist**: Thred's  Resewn Tracks 
 
-**Track**: Will Sparks, Reece Low - Delusion Feat. Jacob Lee (Ryan Kore Remix) *FREE DOWNLOAD*
+**Track**: Yung Pinch - Perfect (Thred Remix)
 
-Last updated at 12/16/2022 17:13
+Last updated at 12/16/2022 19:33
