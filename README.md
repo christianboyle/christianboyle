@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIyFyLNdMTxAYLeC-Pvro0g-t500x500.jpg">](https://soundcloud.com/djryanganar/ryan-ganar-end-of-year-mix-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyUyQTJyzma12ynz-yTBH0g-t500x500.jpg">](https://soundcloud.com/itsamagii/fred-again-turn-on-the-lights-again-feat-future-amagii-remix)
 
-**Artist**: Ryan Ganar 
+**Artist**: AMAGII 
 
-**Track**: Ryan Ganar - End Of Year Mix 2022 [FREE DOWNLOAD]
+**Track**: Fred Again.. x Swedish House Mafia - Turn On The Lights Again.. (feat. Future) [AMAGII REMIX]
 
-Last updated at 12/17/2022 18:52
+Last updated at 12/18/2022 12:21
