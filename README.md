@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIyFyLNdMTxAYLeC-Pvro0g-t500x500.jpg">](https://soundcloud.com/djryanganar/ryan-ganar-end-of-year-mix-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273697580-mrjj2s-t500x500.jpg">](https://soundcloud.com/ganardj2/ganar-feat-allison-grey-change-2017-preview?in=williampatterson123/sets/my-new-playlist)
 
-**Artist**: Ryan Ganar 
+**Artist**: Ganar (Susumu) 
 
-**Track**: Ryan Ganar - End Of Year Mix 2022 [FREE DOWNLOAD]
+**Track**: Ganar Feat Allison Grey - Change (2017) [Preview]
 
-Last updated at 12/17/2022 17:30
+Last updated at 12/17/2022 18:51
