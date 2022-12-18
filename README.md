@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyUyQTJyzma12ynz-yTBH0g-t500x500.jpg">](https://soundcloud.com/itsamagii/fred-again-turn-on-the-lights-again-feat-future-amagii-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSNi8cylmfQVll8k-qW9j7w-t500x500.jpg">](https://soundcloud.com/killscript/kill-script-presents-advisory-radio-001)
 
-**Artist**: AMAGII 
+**Artist**: KILL SCRIPT 
 
-**Track**: Fred Again.. x Swedish House Mafia - Turn On The Lights Again.. (feat. Future) [AMAGII REMIX]
+**Track**: KILL SCRIPT Presents ADVISORY RADIO 001
 
-Last updated at 12/18/2022 12:21
+Last updated at 12/18/2022 12:22
