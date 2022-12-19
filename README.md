@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000026433251-3wqo2g-t500x500.jpg">](https://soundcloud.com/ryankore/ryan-kore-call-me-maybe-master)
 
-**Artist**: Naeleck 
+**Artist**: Ryan Kore 
 
-**Track**: Naeleck - Creep (BYOR Remix)
+**Track**: Ryan Kore - Call Me Maybe (master) (320kbps) *FREE TRACK* (Alternative link in description!)
 
-Last updated at 12/19/2022 16:58
+Last updated at 12/19/2022 17:00
