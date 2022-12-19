@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSNi8cylmfQVll8k-qW9j7w-t500x500.jpg">](https://soundcloud.com/killscript/kill-script-presents-advisory-radio-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAZyLEwZnIaKButi-zmt9mw-t500x500.jpg">](https://soundcloud.com/imkidkei/bordi)
 
-**Artist**: KILL SCRIPT 
+**Artist**: KID KEI 
 
-**Track**: KILL SCRIPT Presents ADVISORY RADIO 001
+**Track**: Bordi
 
-Last updated at 12/18/2022 12:22
+Last updated at 12/19/2022 10:27
