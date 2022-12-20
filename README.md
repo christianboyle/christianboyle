@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160750503-bgzhx2-t500x500.jpg">](https://soundcloud.com/darren-styles/da-tweekaz-darren-styles-heroes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yiRNcmVb4ZSUURVP-o008Bw-t500x500.jpg">](https://soundcloud.com/spinninrecords/le-shuuk-x-special-d-you-1)
 
-**Artist**: Darren Styles 
+**Artist**: Spinnin' Records 
 
-**Track**: Da Tweekaz & Darren Styles - Heroes (170 Mix)
+**Track**: Le Shuuk X Special D - You
 
-Last updated at 12/20/2022 17:03
+Last updated at 12/20/2022 17:05
