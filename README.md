@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REmkn1rZRrv51bUR-exjUbg-t500x500.jpg">](https://soundcloud.com/justicehardcore/faze2-bop-it-out-now)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: Justice Hardcore 
 
-**Track**: Yung Pinch - Perfect (Thred Remix)
+**Track**: Faze2 - Bop It ⚠️OUT NOW⚠️
 
-Last updated at 12/20/2022 16:32
+Last updated at 12/20/2022 16:37
