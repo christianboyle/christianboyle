@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
 
-**Artist**: Naeleck 
+**Artist**: Thred's  Resewn Tracks 
 
-**Track**: Naeleck - Creep (BYOR Remix)
+**Track**: Yung Pinch - Perfect (Thred Remix)
 
-Last updated at 12/20/2022 15:47
+Last updated at 12/20/2022 16:32
