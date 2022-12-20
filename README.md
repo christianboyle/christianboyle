@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REmkn1rZRrv51bUR-exjUbg-t500x500.jpg">](https://soundcloud.com/justicehardcore/faze2-bop-it-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000659007706-40zmnk-t500x500.jpg">](https://soundcloud.com/e_tank/paramore-misery-business-etank-remix)
 
-**Artist**: Justice Hardcore 
+**Artist**: E*Tank 
 
-**Track**: Faze2 - Bop It ⚠️OUT NOW⚠️
+**Track**: Paramore - Misery Business (E*Tank Remix)
 
-Last updated at 12/20/2022 16:37
+Last updated at 12/20/2022 16:40
