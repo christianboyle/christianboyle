@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqYyoE7d0WmDzKyN-P7M9LA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/charly-lownoise-re-style-magro-ft-diede-love-desire-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160750503-bgzhx2-t500x500.jpg">](https://soundcloud.com/darren-styles/da-tweekaz-darren-styles-heroes)
 
-**Artist**: Dirty Workz 
+**Artist**: Darren Styles 
 
-**Track**: Charly Lownoise & Re-Style & Magro Ft Diede - Love & Desire (Electric Fox)
+**Track**: Da Tweekaz & Darren Styles - Heroes (170 Mix)
 
-Last updated at 12/20/2022 17:00
+Last updated at 12/20/2022 17:03
