@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLXmVdGZIyaZM23t-8YFRbA-t500x500.jpg">](https://soundcloud.com/shamanabeats/trickstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eDpKyxcD6VnfLB7s-5qbc1A-t500x500.jpg">](https://soundcloud.com/samdayuk/loveu-aroundme)
 
-**Artist**: shamana 
+**Artist**: Sam Day 
 
-**Track**: trickSTAR
+**Track**: Love U, Around Me
 
-Last updated at 12/20/2022 08:36
+Last updated at 12/20/2022 08:37
