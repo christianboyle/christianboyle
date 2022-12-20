@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218350534-jivt7o-t500x500.jpg">](https://soundcloud.com/alexprospectbackup/alex-prospect-heaven-2017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000422309070-7yy7j5-t500x500.jpg">](https://soundcloud.com/technikoredj/avaxx-feat-kate-wild-surrender-technikore-remix-out-now)
 
-**Artist**: Alex Prospect (Back-up Page) 
+**Artist**: Technikore / Technikal 
 
-**Track**: Alex Prospect - Heaven 2017
+**Track**: Avaxx Feat. Kate Wild - Surrender (Technikore Remix) // Out now!
 
-Last updated at 12/20/2022 16:46
+Last updated at 12/20/2022 16:50
