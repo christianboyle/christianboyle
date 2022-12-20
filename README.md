@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eDpKyxcD6VnfLB7s-5qbc1A-t500x500.jpg">](https://soundcloud.com/samdayuk/loveu-aroundme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRHpbdJudJGp7Hyp-hOorcw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/jay-mv-roll-out-original-mix?in=gangstahouserec/sets/jay-mv-roll-out-original-mix)
 
-**Artist**: Sam Day 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Love U, Around Me
+**Track**: Jay Mv - Roll Out (Original Mix)
 
-Last updated at 12/20/2022 08:37
+Last updated at 12/20/2022 08:38
