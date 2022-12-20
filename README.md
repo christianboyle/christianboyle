@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrOPLOzcjzn1YLNL-TPsyNQ-t500x500.jpg">](https://soundcloud.com/voltmusicofficial/volt-x-viperactive-misfits-feat-mikey-rotten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLXmVdGZIyaZM23t-8YFRbA-t500x500.jpg">](https://soundcloud.com/shamanabeats/trickstar)
 
-**Artist**: Volt 
+**Artist**: shamana 
 
-**Track**: Volt x Viperactive - Misfits (feat Mikey Rotten) [Headbang Society Premiere]
+**Track**: trickSTAR
 
-Last updated at 12/20/2022 08:35
+Last updated at 12/20/2022 08:36
