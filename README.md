@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000273697580-mrjj2s-t500x500.jpg">](https://soundcloud.com/ganardj2/ganar-feat-allison-grey-change-2017-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HgEuC0bcOtkdE64z-dMFyPQ-t500x500.jpg">](https://soundcloud.com/gjonesbass/g-jones-eprom-on-my-mind?in=illusoryrecords/sets/acid-disk-2)
 
-**Artist**: Ganar (Susumu) 
+**Artist**: G JONES 
 
-**Track**: Ganar Feat Allison Grey - Change (2017) [Preview]
+**Track**: G Jones & Eprom - On My Mind
 
-Last updated at 12/20/2022 17:08
+Last updated at 12/20/2022 18:33
