@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OxMre82MB54kFvbK-ShbesQ-t500x500.jpg">](https://soundcloud.com/reinelex/niney-etheria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YsXgufHKK5eNj35J-83me9g-t500x500.jpg">](https://soundcloud.com/gjonesbass/on-the-platform)
 
-**Artist**: Reinelex Music 
+**Artist**: G JONES 
 
-**Track**: Niney - ETHERIA
+**Track**: On The Platform
 
-Last updated at 12/21/2022 16:01
+Last updated at 12/21/2022 16:11
