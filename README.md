@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuqk5M3d1H96HPo8-Kajq7w-t500x500.jpg">](https://soundcloud.com/axel-boy/axel-boy-dont-need-money-1)
 
-**Artist**: SICKISH 
+**Artist**: Axel Boy 
 
-**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
+**Track**: Axel Boy - Don't Need Money
 
-Last updated at 12/21/2022 16:22
+Last updated at 12/21/2022 16:24
