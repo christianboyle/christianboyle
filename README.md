@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuqk5M3d1H96HPo8-Kajq7w-t500x500.jpg">](https://soundcloud.com/axel-boy/axel-boy-dont-need-money-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-teCfEU6fAi1ZwQC4-gyPnWA-t500x500.jpg">](https://soundcloud.com/decadon/decadon-presents-dec-the-halls-vol-3)
 
-**Artist**: Axel Boy 
+**Artist**: DECADON 
 
-**Track**: Axel Boy - Don't Need Money
+**Track**: Decadon Presents: Dec The Halls Vol. 3
 
-Last updated at 12/21/2022 09:20
+Last updated at 12/21/2022 09:24
