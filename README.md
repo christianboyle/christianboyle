@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-teCfEU6fAi1ZwQC4-gyPnWA-t500x500.jpg">](https://soundcloud.com/decadon/decadon-presents-dec-the-halls-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
 
-**Artist**: DECADON 
+**Artist**: SICKISH 
 
-**Track**: Decadon Presents: Dec The Halls Vol. 3
+**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
 
-Last updated at 12/21/2022 09:24
+Last updated at 12/21/2022 09:43
