@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuqk5M3d1H96HPo8-Kajq7w-t500x500.jpg">](https://soundcloud.com/axel-boy/axel-boy-dont-need-money-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501897486-5ljo0p-t500x500.jpg">](https://soundcloud.com/dj-iyf/n-trance-set-you-free-the-watchmen-vs-slay-remix-radio-edit)
 
-**Artist**: Axel Boy 
+**Artist**: Rob IYF (24/7 Hardcore) 
 
-**Track**: Axel Boy - Don't Need Money
+**Track**: N - Trance - Set You Free (The Watchmen Vs Slay Remix) Radio Edit
 
-Last updated at 12/21/2022 16:24
+Last updated at 12/21/2022 16:29
