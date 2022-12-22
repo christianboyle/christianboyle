@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WhR2ua7tYeVcz60j-HCL3UA-t500x500.jpg">](https://soundcloud.com/rvfvelbeats/inertia-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGvoBbBy98OK01Pw-r4Ureg-t500x500.jpg">](https://soundcloud.com/longjawns/masterofpuppies)
 
-**Artist**: RVFVEL 
+**Artist**: JAWNS 
 
-**Track**: INERTIA (Full Stream)
+**Track**: Master Of Puppies
 
-Last updated at 12/22/2022 11:54
+Last updated at 12/22/2022 15:35
