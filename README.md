@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yiRNcmVb4ZSUURVP-o008Bw-t500x500.jpg">](https://soundcloud.com/spinninrecords/le-shuuk-x-special-d-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
 
-**Artist**: Spinnin' Records 
+**Artist**: SICKISH 
 
-**Track**: Le Shuuk X Special D - You
+**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
 
-Last updated at 12/22/2022 11:33
+Last updated at 12/22/2022 11:37
