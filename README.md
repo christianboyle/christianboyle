@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGvoBbBy98OK01Pw-r4Ureg-t500x500.jpg">](https://soundcloud.com/longjawns/masterofpuppies)
 
-**Artist**: SICKISH 
+**Artist**: JAWNS 
 
-**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
+**Track**: Master Of Puppies
 
-Last updated at 12/22/2022 11:37
+Last updated at 12/22/2022 11:39
