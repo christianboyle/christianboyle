@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OtVKvQqv2UEsUINi-MzcQrQ-t500x500.jpg">](https://soundcloud.com/future-bassnet/redhairedangel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
 
-**Artist**: Future Bass Records 
+**Artist**: Kevala 
 
-**Track**: WCKiD X MVLTI - Red Haired Angel [Future Bass Release]
+**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
 
-Last updated at 12/22/2022 10:59
+Last updated at 12/22/2022 11:01
