@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3s474EQMzoTzwp4l-14n8Fg-t500x500.jpg">](https://soundcloud.com/fourthplaceofficial/counting-circles-sold-my-soul)
 
-**Artist**: Kevala 
+**Artist**: Counting Circles 
 
-**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
+**Track**: Counting Circles - Sold My Soul
 
-Last updated at 12/22/2022 11:01
+Last updated at 12/22/2022 11:02
