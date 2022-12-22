@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGvoBbBy98OK01Pw-r4Ureg-t500x500.jpg">](https://soundcloud.com/longjawns/masterofpuppies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YsXgufHKK5eNj35J-83me9g-t500x500.jpg">](https://soundcloud.com/gjonesbass/on-the-platform)
 
-**Artist**: JAWNS 
+**Artist**: G JONES 
 
-**Track**: Master Of Puppies
+**Track**: On The Platform
 
-Last updated at 12/22/2022 11:39
+Last updated at 12/22/2022 11:40
