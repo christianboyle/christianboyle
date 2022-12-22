@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxoOKC7VVEsxROgg-2cge8g-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-ruvlo-rated-r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzFjfg6J1rXBIQAY-vpBU8Q-t500x500.jpg">](https://soundcloud.com/onarymusic/discostick-free-download-1)
 
-**Artist**: Wakaan 
+**Artist**: ONARY 
 
-**Track**: Ravenscoon, Ruvlo - RATED R
+**Track**: Discostick [ FREE DOWNLOAD ] [ DJ TOOL ]
 
-Last updated at 12/22/2022 11:08
+Last updated at 12/22/2022 11:09
