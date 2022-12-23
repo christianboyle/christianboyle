@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0ufPYPUEPaskOtp-UewWSg-t500x500.jpg">](https://soundcloud.com/ukf/dirtyphonics-run)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xCdPzNM26Epw8nxa-7Mvm8g-t500x500.jpg">](https://soundcloud.com/elex_page/away)
 
-**Artist**: UKF 
+**Artist**: ELEX 
 
-**Track**: Dirtyphonics - Run
+**Track**: ELEX - AWAY
 
-Last updated at 12/22/2022 18:24
+Last updated at 12/22/2022 18:25
