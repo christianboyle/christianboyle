@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N0ZS9XzRDyowxcvb-NtnHEg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/dashstaredit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DaEzBZXK3ZKphK8C-KyrusQ-t500x500.jpg">](https://soundcloud.com/hardstyle_uk/the-hardstyle-uk-podcast-53-mike-enemy-guestmix)
 
-**Artist**: NIGHTMODE 
+**Artist**: Hardstyle UK 
 
-**Track**: Knock2 - dashstar* (Yellow Claw Trap Edit)
+**Track**: The HARDSTYLE UK Podcast #53 (Mike Enemy Guestmix)
 
-Last updated at 12/23/2022 13:50
+Last updated at 12/23/2022 14:04
