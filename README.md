@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5L365gmRkWHCqRd4-WYNGZA-t500x500.jpg">](https://soundcloud.com/3000bass/a2z-dna-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fdmGnzn9PSlvnX5r-nuGmGg-t500x500.jpg">](https://soundcloud.com/jordan-dae/lady-gaga-bloody-mary-jordan-dae-x-nick-roberts-remix)
 
-**Artist**: 3000 BASS 
+**Artist**: Jordan Dae 
 
-**Track**: A.2.Z - DNA
+**Track**: LADY GAGA - BLOODY MARY (JORDAN DAE X NICK ROBERTS REMIX)
 
-Last updated at 12/22/2022 18:21
+Last updated at 12/22/2022 18:22
