@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJyOZyX6mey8MhdF-TPnn4w-t500x500.jpg">](https://soundcloud.com/nullsect/britney-spears-toxic-hellbound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5L365gmRkWHCqRd4-WYNGZA-t500x500.jpg">](https://soundcloud.com/3000bass/a2z-dna-1)
 
-**Artist**: NULLSECT 
+**Artist**: 3000 BASS 
 
-**Track**: BRITNEY SPEARS - TOXIC (HELLBOUND! REMIX)
+**Track**: A.2.Z - DNA
 
-Last updated at 12/22/2022 16:31
+Last updated at 12/22/2022 18:21
