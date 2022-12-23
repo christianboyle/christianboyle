@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fdmGnzn9PSlvnX5r-nuGmGg-t500x500.jpg">](https://soundcloud.com/jordan-dae/lady-gaga-bloody-mary-jordan-dae-x-nick-roberts-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S4U4yCgE7x9xAXHk-rm66zA-t500x500.jpg">](https://soundcloud.com/evolushawnmusic/dmvu-lantern-bearer-evolushawn-remix)
 
-**Artist**: Jordan Dae 
+**Artist**: EvoluShawn 
 
-**Track**: LADY GAGA - BLOODY MARY (JORDAN DAE X NICK ROBERTS REMIX)
+**Track**: DMVU - Lantern Bearer (EvoluShawn Remix)
 
-Last updated at 12/22/2022 18:22
+Last updated at 12/22/2022 18:23
