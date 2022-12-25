@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QBjV42mZd7ufzy6-9JnZoA-t500x500.jpg">](https://soundcloud.com/bvrnout/wham-last-christmas-bvrnout-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzknlzPW7EJjLxhF-2cZzyg-t500x500.jpg">](https://soundcloud.com/awepor/samurai-remix)
 
-**Artist**: BVRNOUT 
+**Artist**: AWEPOR 
 
-**Track**: Wham! - Last Christmas (BVRNOUT Remix)
+**Track**: Young Cister x Polima WestCoast - Samurai (remix)
 
-Last updated at 12/25/2022 15:50
+Last updated at 12/25/2022 16:21
