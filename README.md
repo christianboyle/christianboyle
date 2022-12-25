@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q2swWLyVdmvdUSly-6YEx8A-t500x500.jpg">](https://soundcloud.com/oddlyeazy/oddly-eazy-x-asa-spades-thatll-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzknlzPW7EJjLxhF-2cZzyg-t500x500.jpg">](https://soundcloud.com/awepor/samurai-remix)
 
-**Artist**: Oddly Eazy 
+**Artist**: AWEPOR 
 
-**Track**: Oddly Eazy x Asa Spades - That'll Do
+**Track**: Young Cister x Polima WestCoast - Samurai (remix)
 
-Last updated at 12/25/2022 16:22
+Last updated at 12/25/2022 16:48
