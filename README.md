@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G784tx0FFcXc-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-all-i-need)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKoLyMVdvbVcb7MX-sVC9sw-t500x500.jpg">](https://soundcloud.com/djblnmusic/touch-me-in-zenit)
 
-**Artist**: Gearbox Digital 
+**Artist**: BLN 
 
-**Track**: Avi8 - All I Need
+**Track**: Zac Waters X Paul Oakenfold vs BLN - Touch Me In Zenit |Supported by MaRLo!!!|
 
-Last updated at 12/25/2022 17:02
+Last updated at 12/25/2022 17:03
