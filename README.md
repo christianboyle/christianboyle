@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DaEzBZXK3ZKphK8C-KyrusQ-t500x500.jpg">](https://soundcloud.com/hardstyle_uk/the-hardstyle-uk-podcast-53-mike-enemy-guestmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QBjV42mZd7ufzy6-9JnZoA-t500x500.jpg">](https://soundcloud.com/bvrnout/wham-last-christmas-bvrnout-remix-1)
 
-**Artist**: Hardstyle UK 
+**Artist**: BVRNOUT 
 
-**Track**: The HARDSTYLE UK Podcast #53 (Mike Enemy Guestmix)
+**Track**: Wham! - Last Christmas (BVRNOUT Remix)
 
-Last updated at 12/23/2022 14:04
+Last updated at 12/25/2022 15:50
