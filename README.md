@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxKsDJTRtyIW5G1T-NuuuwQ-t500x500.jpg">](https://soundcloud.com/iamshylow/findyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bAyMkERjI46igvyC-Osk4ZQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-i-am-techno)
 
-**Artist**: Shylow 
+**Artist**: Dirty Workz 
 
-**Track**: Find You
+**Track**: TNT - I AM TECHNO
 
-Last updated at 12/26/2022 16:34
+Last updated at 12/26/2022 16:35
