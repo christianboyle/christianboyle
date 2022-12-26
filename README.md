@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PeHDwFTA05DkRoxH-ER6EVQ-t500x500.jpg">](https://soundcloud.com/vlcnofficial/hoang-vlcn-dont-want-to-be-lonely-ft-skye-silansky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwNriJpgljKOd53a-HEGgnQ-t500x500.jpg">](https://soundcloud.com/dubstepfbi/vlcn-riot-control-radio-065)
 
-**Artist**: VLCN 
+**Artist**: Dubstep FBI 
 
-**Track**: Hoang & VLCN - Don't Want To Be Lonely  Ft. skye silansky
+**Track**: VLCN - Riot Control Radio 065
 
-Last updated at 12/26/2022 12:19
+Last updated at 12/26/2022 12:20
