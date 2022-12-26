@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mD51he1y3IWs5AG-rUpi9A-t500x500.jpg">](https://soundcloud.com/endoflinerecordings/d-sturb-vertile-open-up-your-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3JJyYkhOQ67xdMB-DLHHfQ-t500x500.jpg">](https://soundcloud.com/gagan_rastogi/2022-year-end-mix?in=side_fx/sets/leaders)
 
-**Artist**: End of Line 
+**Artist**: GDKR 
 
-**Track**: D-Sturb & Vertile - Open Up Your Heart
+**Track**: 2022 - Year End Mix
 
-Last updated at 12/25/2022 19:25
+Last updated at 12/25/2022 19:46
