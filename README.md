@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bAyMkERjI46igvyC-Osk4ZQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-i-am-techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Kevala 
 
-**Track**: TNT - I AM TECHNO
+**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
 
-Last updated at 12/26/2022 16:35
+Last updated at 12/26/2022 16:37
