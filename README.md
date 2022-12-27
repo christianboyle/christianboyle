@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: SICKISH 
 
-**Track**: Yung Pinch - Perfect (Thred Remix)
+**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
 
-Last updated at 12/26/2022 21:23
+Last updated at 12/26/2022 21:24
