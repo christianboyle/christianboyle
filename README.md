@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QBjV42mZd7ufzy6-9JnZoA-t500x500.jpg">](https://soundcloud.com/bvrnout/wham-last-christmas-bvrnout-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501897486-5ljo0p-t500x500.jpg">](https://soundcloud.com/dj-iyf/n-trance-set-you-free-the-watchmen-vs-slay-remix-radio-edit)
 
-**Artist**: BVRNOUT 
+**Artist**: Rob IYF (24/7 Hardcore) 
 
-**Track**: Wham! - Last Christmas (BVRNOUT Remix)
+**Track**: N - Trance - Set You Free (The Watchmen Vs Slay Remix) Radio Edit
 
-Last updated at 12/26/2022 21:19
+Last updated at 12/26/2022 21:21
