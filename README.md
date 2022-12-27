@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NRu347E7kP8U5ELv-x100Gw-t500x500.jpg">](https://soundcloud.com/djwam/daft-punk-x-drake-x-21-savage-one-more-time-dj-wam-house-circo-loco-edit-quickie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zp3wGyiPH7WMxYky-VOCQRw-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-90-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-90-on-beat-106-scotland-with-fracus-darwin-and-summa-jae-231222)
 
-**Artist**: DJ WAM 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Daft Punk X Drake X 21 Savage - One More Time (DJ WAM 2022 House Edit)
+**Track**: Bonkers Beats #90 on Beat 106 Scotland with Fracus & Darwin 231222 (Hour 1)
 
-Last updated at 12/27/2022 08:51
+Last updated at 12/27/2022 08:57
