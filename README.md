@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501897486-5ljo0p-t500x500.jpg">](https://soundcloud.com/dj-iyf/n-trance-set-you-free-the-watchmen-vs-slay-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: Kevala 
 
-**Track**: N - Trance - Set You Free (The Watchmen Vs Slay Remix) Radio Edit
+**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
 
-Last updated at 12/26/2022 21:21
+Last updated at 12/26/2022 21:22
