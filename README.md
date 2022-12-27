@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056812210-gnil3q-t500x500.jpg">](https://soundcloud.com/kraftykuts/krafty-kuts-children-of-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTWyBbYVxkxTFGY3-WRxy5A-t500x500.jpg">](https://soundcloud.com/da-bow/jon-casey-x-dabow-i-surrender-fmu-records)
 
-**Artist**: Krafty Kuts 
+**Artist**: Dabow 
 
-**Track**: IVIBES010: Krafty Kuts Ft Stellar MC - Children Of The Night - Radio Edit- Instant Vibes - OUT NOW
+**Track**: Jon Casey x Dabow - I Surrender (FMU Records)
 
-Last updated at 12/26/2022 21:01
+Last updated at 12/26/2022 21:03
