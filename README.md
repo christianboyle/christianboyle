@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTWyBbYVxkxTFGY3-WRxy5A-t500x500.jpg">](https://soundcloud.com/da-bow/jon-casey-x-dabow-i-surrender-fmu-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000620010048-nnx16m-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/he-died)
 
-**Artist**: Dabow 
+**Artist**: beverly hills mom 
 
-**Track**: Jon Casey x Dabow - I Surrender (FMU Records)
+**Track**: he died
 
-Last updated at 12/26/2022 21:03
+Last updated at 12/26/2022 21:04
