@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
 
-**Artist**: Kevala 
+**Artist**: Thred's  Resewn Tracks 
 
-**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
+**Track**: Yung Pinch - Perfect (Thred Remix)
 
-Last updated at 12/26/2022 21:22
+Last updated at 12/26/2022 21:23
