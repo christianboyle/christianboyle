@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4qHiLrGpil8PJ0qD-zHOeDQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-x-hype-realm-whats-your-fantasy-flip-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mD51he1y3IWs5AG-rUpi9A-t500x500.jpg">](https://soundcloud.com/endoflinerecordings/d-sturb-vertile-open-up-your-heart)
 
-**Artist**: SICKISH 
+**Artist**: End of Line 
 
-**Track**: SICKISH X HYPE REALM - What's Your Fantasy Flip
+**Track**: D-Sturb & Vertile - Open Up Your Heart
 
-Last updated at 12/26/2022 21:24
+Last updated at 12/26/2022 21:26
