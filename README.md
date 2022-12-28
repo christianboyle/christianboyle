@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gsHzgoBiMfxfVewK-R6hZoA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/pleeg-spirit-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfuemEdJQ4Ah-0-t500x500.png">](https://soundcloud.com/jondaviz-music/i-should-have-known-radio-edit)
 
-**Artist**: NCS 
+**Artist**: Jon Daviz 
 
-**Track**: PLEEG - Spirit [NCS Release]
+**Track**: I Should Have Known (Radio-Edit)
 
-Last updated at 12/28/2022 09:42
+Last updated at 12/28/2022 09:43
