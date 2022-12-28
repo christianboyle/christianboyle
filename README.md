@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjzODfMMSsMQDXuU-JtrfPw-t500x500.jpg">](https://soundcloud.com/nocv/i-really-want-to-stay-at-your-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gsHzgoBiMfxfVewK-R6hZoA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/pleeg-spirit-ncs-release)
 
-**Artist**: Noc.V 
+**Artist**: NCS 
 
-**Track**: Noc.V - I Really Want To Stay At Your House (feat. Gennyrae)
+**Track**: PLEEG - Spirit [NCS Release]
 
-Last updated at 12/28/2022 09:37
+Last updated at 12/28/2022 09:42
