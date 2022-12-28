@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8p24ImsC2qHPDbty-eBnH2Q-t500x500.png">](https://soundcloud.com/platform/goth-jafar-boiler-room-nyc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjzODfMMSsMQDXuU-JtrfPw-t500x500.jpg">](https://soundcloud.com/nocv/i-really-want-to-stay-at-your-house)
 
-**Artist**: Boiler Room 
+**Artist**: Noc.V 
 
-**Track**: Goth Jafar | Boiler Room NYC: Paragon
+**Track**: Noc.V - I Really Want To Stay At Your House (feat. Gennyrae)
 
-Last updated at 12/28/2022 09:36
+Last updated at 12/28/2022 09:37
