@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfuemEdJQ4Ah-0-t500x500.png">](https://soundcloud.com/jondaviz-music/i-should-have-known-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHsTsXhKTCEXfl2n-gmPTHQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/pleeg-home-ncs-release)
 
-**Artist**: Jon Daviz 
+**Artist**: NCS 
 
-**Track**: I Should Have Known (Radio-Edit)
+**Track**: PLEEG - Home [NCS Release]
 
-Last updated at 12/28/2022 09:43
+Last updated at 12/28/2022 09:44
