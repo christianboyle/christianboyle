@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOkjGzpTBaJj23c6-hL5kgQ-t500x500.jpg">](https://soundcloud.com/litchmusic/litch-goes-orchestral-melodic-43)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-010-december-dopamine)
 
-**Artist**: L!TCH 
+**Artist**: Ascent Recordings 
 
-**Track**: Freedom (Clip)
+**Track**: Ascent Sessions 010 - December Dopamine
 
-Last updated at 12/29/2022 09:00
+Last updated at 12/29/2022 09:01
