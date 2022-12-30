@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsWzoHGdj3h6tOTU-Iue89w-t500x500.jpg">](https://soundcloud.com/birthdayypartyygoodiebag/misery-business-birthdayy-partyy-dnb-remixfree-dl?in=side_fx/sets/leaders)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3JJyYkhOQ67xdMB-DLHHfQ-t500x500.jpg">](https://soundcloud.com/gagan_rastogi/2022-year-end-mix?in=side_fx/sets/leaders)
 
-**Artist**: Birthdayy Partyy Goodie Bag 
+**Artist**: GDKR 
 
-**Track**: Misery Business (Birthdayy Partyy DnB Remix)🎁FREE DL🎁
+**Track**: 2022 - Year End Mix
 
-Last updated at 12/30/2022 11:48
+Last updated at 12/30/2022 11:49
