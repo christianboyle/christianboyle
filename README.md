@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dy1nj7ftxDyX2VsR-0ZTL9g-t500x500.jpg">](https://soundcloud.com/seiromemsound/thred-definition-seiromem-exclusive?in=threddedbass/sets/definition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mXWrKduIs3q0sjEW-qvEGow-t500x500.jpg">](https://soundcloud.com/reinelex/niney-utopia-feat-niji)
 
-**Artist**: Seiromem 
+**Artist**: Reinelex Music 
 
-**Track**: Thred - Definition [Seiromem Exclusive]
+**Track**: Niney - Utopia (feat. Niji)
 
-Last updated at 12/30/2022 11:32
+Last updated at 12/30/2022 11:38
