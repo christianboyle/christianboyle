@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mXWrKduIs3q0sjEW-qvEGow-t500x500.jpg">](https://soundcloud.com/reinelex/niney-utopia-feat-niji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAzrb1L7zql4byxl-ui8jlQ-t500x500.jpg">](https://soundcloud.com/xxcassyb/tales-of-revenge)
 
-**Artist**: Reinelex Music 
+**Artist**: cassyb 
 
-**Track**: Niney - Utopia (feat. Niji)
+**Track**: tales of revenge
 
-Last updated at 12/30/2022 11:38
+Last updated at 12/30/2022 11:42
