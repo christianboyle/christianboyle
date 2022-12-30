@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-010-december-dopamine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eje5TQDQBfrTyDGV-yNPypQ-t500x500.jpg">](https://soundcloud.com/gaszia/oklou-level-5-cuz-its-cute-g-edit?in=gaszia/sets/bandcamp-edits-vol-3)
 
-**Artist**: Ascent Recordings 
+**Artist**: Gaszia 
 
-**Track**: Ascent Sessions 010 - December Dopamine
+**Track**: Oklou - level 5 cuz its cute (G Edit)
 
-Last updated at 12/29/2022 09:01
+Last updated at 12/30/2022 08:24
