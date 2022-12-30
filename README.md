@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eje5TQDQBfrTyDGV-yNPypQ-t500x500.jpg">](https://soundcloud.com/gaszia/oklou-level-5-cuz-its-cute-g-edit?in=gaszia/sets/bandcamp-edits-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VOCtzCUP7u0bu22u-9k0ulA-t500x500.jpg">](https://soundcloud.com/playmerecords/phibes-running-to-you?in=playmerecords/sets/play-me-the-best-of-2022)
 
-**Artist**: Gaszia 
+**Artist**: Play Me Records 
 
-**Track**: Oklou - level 5 cuz its cute (G Edit)
+**Track**: Phibes - Running To You
 
-Last updated at 12/30/2022 08:26
+Last updated at 12/30/2022 08:42
