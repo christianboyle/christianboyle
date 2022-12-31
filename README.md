@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aazBj36Ff5cOwwe4-sLZ6YA-t500x500.jpg">](https://soundcloud.com/chozenofficial/bounce-like-dat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nnzmEQl5HFfKDyy8-f3qEHw-t500x500.jpg">](https://soundcloud.com/yesspyro/spyro-sample-pack-vol2-demo)
 
-**Artist**: CHOZEN 
+**Artist**: SPYRO 
 
-**Track**: Bounce Like Dat
+**Track**: Spyro Sample Pack Vol.2 *OUT NOW*
 
-Last updated at 12/31/2022 10:35
+Last updated at 12/31/2022 10:36
