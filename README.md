@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3JJyYkhOQ67xdMB-DLHHfQ-t500x500.jpg">](https://soundcloud.com/gagan_rastogi/2022-year-end-mix?in=side_fx/sets/leaders)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEVvf86LsnfcjQOl-Tr8MsA-t500x500.jpg">](https://soundcloud.com/delcherro/2022-homestretch-mix)
 
-**Artist**: GDKR 
+**Artist**: Delcherro 
 
-**Track**: 2022 - Year End Mix
+**Track**: 2022 Homestretch Mix
 
-Last updated at 12/30/2022 11:49
+Last updated at 12/31/2022 10:34
