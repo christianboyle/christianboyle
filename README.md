@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEVvf86LsnfcjQOl-Tr8MsA-t500x500.jpg">](https://soundcloud.com/delcherro/2022-homestretch-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aazBj36Ff5cOwwe4-sLZ6YA-t500x500.jpg">](https://soundcloud.com/chozenofficial/bounce-like-dat-1)
 
-**Artist**: Delcherro 
+**Artist**: CHOZEN 
 
-**Track**: 2022 Homestretch Mix
+**Track**: Bounce Like Dat
 
-Last updated at 12/31/2022 10:34
+Last updated at 12/31/2022 10:35
