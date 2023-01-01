@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zxH0gP0GHAFBuJG-RGwjKw-t500x500.jpg">](https://soundcloud.com/gudfellaofficial/always-in-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vmqlq4yq1nzakotT-5xFtIg-t500x500.jpg">](https://soundcloud.com/mysticalmobbing/decade-in-basedworld)
 
-**Artist**: GUDFELLA 
+**Artist**: SENSEi // SAYAKAさやか先生 
 
-**Track**: ALWAYS IN MY MIND :)
+**Track**: DECADE IN BASEDWORLD
 
-Last updated at 01/01/2023 13:22
+Last updated at 01/01/2023 13:24
