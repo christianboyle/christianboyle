@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wKGrR4Xyz8R5Gzyx-f9uQeg-t500x500.jpg">](https://soundcloud.com/strider_sc/strider-carnivore-v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TrBUma6gKT83xD4U-OWxMNw-t500x500.jpg">](https://soundcloud.com/theuntz/tsou-greaze-premiere)
 
-**Artist**: STRIDER 
+**Artist**: TheUntz.com 
 
-**Track**: Strider - Carnivore
+**Track**: tsou - Greaze [PREMIERE]
 
-Last updated at 01/01/2023 13:17
+Last updated at 01/01/2023 13:18
