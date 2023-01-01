@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-87yeT8cYUCWBDmeh-x99aZQ-t500x500.jpg">](https://soundcloud.com/p3pper/karamel-becausep3pper-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wKGrR4Xyz8R5Gzyx-f9uQeg-t500x500.jpg">](https://soundcloud.com/strider_sc/strider-carnivore-v1)
 
-**Artist**: P3PPER 
+**Artist**: STRIDER 
 
-**Track**: KarameL - Because。(P3PPER Remix)
+**Track**: Strider - Carnivore
 
-Last updated at 12/31/2022 10:38
+Last updated at 01/01/2023 13:17
