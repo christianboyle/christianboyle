@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vmqlq4yq1nzakotT-5xFtIg-t500x500.jpg">](https://soundcloud.com/mysticalmobbing/decade-in-basedworld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vtHxvlXobMsn0B5k-eUsXNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-so-stoked-snow-day-121622)
 
-**Artist**: SENSEi // SAYAKAさやか先生 
+**Artist**: Hartshorn 
 
-**Track**: DECADE IN BASEDWORLD
+**Track**: Hartshorn @ So Stoked: Snow Day 12/16/22
 
-Last updated at 01/01/2023 13:24
+Last updated at 01/01/2023 21:27
