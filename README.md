@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
-
-
-
-
-
- 
+**Artist**: S3RL 
 
 **Track**: S3RL Penultimately Presents...
 
-Last updated at 01/02/2023 23:19
+Last updated at 01/02/2023 23:20
