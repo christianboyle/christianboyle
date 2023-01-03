@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKsrqLzpWxn7vi2d-mWsQJw-t500x500.jpg">](https://soundcloud.com/dimmakrecords/swage-osaka-psycho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dETAlHaIJlzwquGy-jnuzqQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-jan-vercauteren-when-angels-cry-rave27)
 
-**Artist**: Dim Mak Records 
+**Artist**: Rave Alert 
 
-**Track**: SWAGE - Osaka Psycho
+**Track**: [PREMIERE] Jan Vercauteren - When Angels Cry (RAVE27)
 
-Last updated at 01/03/2023 10:12
+Last updated at 01/03/2023 10:16
