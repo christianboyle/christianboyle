@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CuHxtHEX5ZlCVQkF-2dYkUg-t500x500.jpg">](https://soundcloud.com/ayyofree/xplosn-the-void)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKsrqLzpWxn7vi2d-mWsQJw-t500x500.jpg">](https://soundcloud.com/dimmakrecords/swage-osaka-psycho)
 
-**Artist**: AY YO TRIP! 
+**Artist**: Dim Mak Records 
 
-**Track**: Xplosn - The Void
+**Track**: SWAGE - Osaka Psycho
 
-Last updated at 01/03/2023 10:09
+Last updated at 01/03/2023 10:12
