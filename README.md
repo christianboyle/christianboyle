@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPUlyAhndyBYuxnZ-Q7W5XA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-91-on-beat-106-scotland-with-hixxy-311222-hour-2)
 
-**Artist**: S3RL 
+**Artist**: Beat 106 Scotland 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: Bonkers Beats #91 on Beat 106 Scotland with Hixxy 311222 (Hour 2)
 
-Last updated at 01/02/2023 23:20
+Last updated at 01/03/2023 06:56
