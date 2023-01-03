@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dETAlHaIJlzwquGy-jnuzqQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-jan-vercauteren-when-angels-cry-rave27)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7VqSOcOWHkcdz2FX-XMjjQw-t500x500.jpg">](https://soundcloud.com/isolit/isolit-wtf)
 
-**Artist**: Rave Alert 
+**Artist**: isolit 
 
-**Track**: [PREMIERE] Jan Vercauteren - When Angels Cry (RAVE27)
+**Track**: ISOLIT - WTF
 
-Last updated at 01/03/2023 10:16
+Last updated at 01/03/2023 10:22
