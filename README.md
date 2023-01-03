@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vtHxvlXobMsn0B5k-eUsXNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-so-stoked-snow-day-121622)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzm0SumhhB3iooy2-TT1s6w-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-addict-kinn-remix-free-download)
 
-**Artist**: Hartshorn 
+**Artist**: KINN 
 
-**Track**: Hartshorn @ So Stoked: Snow Day 12/16/22
+**Track**: S3RL - ADDICT (KINN Remix) **FREE DOWNLOAD**
 
-Last updated at 01/02/2023 23:16
+Last updated at 01/02/2023 23:18
