@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbfvQzHMgchWhICU-3dp6JA-t500x500.jpg">](https://soundcloud.com/scuffedrecs/rumu-wightman-wibble-ep-previews?in=scuffedrecs/sets/releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92dFf9JjMWn4zOQD-mRzIvw-t500x500.jpg">](https://soundcloud.com/bvssbotz/cyber-noize-feat-kosmic-noize)
 
-**Artist**: Scuffed Recordings 
+**Artist**: Bvss Botz 
 
-**Track**: rumu - Wightman Wibble EP (Previews)
+**Track**: Bvss Botz x Kosmic Noize - Cyber Noize
 
-Last updated at 01/03/2023 10:04
+Last updated at 01/03/2023 10:05
