@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K7M2YLQRCRLBQG62-AZSsBA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-91-on-beat-106-scotland-with-sharkey-sy-311222-hour-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbfvQzHMgchWhICU-3dp6JA-t500x500.jpg">](https://soundcloud.com/scuffedrecs/rumu-wightman-wibble-ep-previews?in=scuffedrecs/sets/releases)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Scuffed Recordings 
 
-**Track**: Bonkers Beats #91 on Beat 106 Scotland with Sharkey & Sy 311222 (Hour 1)
+**Track**: rumu - Wightman Wibble EP (Previews)
 
-Last updated at 01/03/2023 10:03
+Last updated at 01/03/2023 10:04
