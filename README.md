@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hydqzvl8Ov304qwt-I3vygw-t500x500.jpg">](https://soundcloud.com/ramemes/envolvencia-futurista-na-selva-dj-ramemes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vimljoh0y5SyMPON-cqplpA-t500x500.jpg">](https://soundcloud.com/whatafuckingbitch/imsorry)
 
-**Artist**: DJ RaMeMes (O DESTRUIDOR DO FUNK) 
+**Artist**: whatafuckingbitch 
 
-**Track**: ENVOLVENCIA FUTURISTA NA SELVA [[ DJ RAMEMES ]] RUMBLE REMIX
+**Track**: Yeah I Can Get It Done Dont Worry
 
-Last updated at 01/04/2023 17:36
+Last updated at 01/04/2023 17:37
