@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-68Myf1i0em4drWIw-upzMUQ-t500x500.jpg">](https://soundcloud.com/aidubz/wl-test)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfxdA0JHxinWXjYZ-lrbTMw-t500x500.jpg">](https://soundcloud.com/ancityrecords/remezy-child)
 
-**Artist**: A.I. 
+**Artist**: Ancity Records 
 
-**Track**: A.I. - Scottisch Warlord Remix
+**Track**: Remezy - Child [FREE DOWNLOAD]
 
-Last updated at 01/05/2023 12:18
+Last updated at 01/05/2023 12:19
