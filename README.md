@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NjyarmjUglgAvdnL-gN6Y9Q-t500x500.jpg">](https://soundcloud.com/koastle/electric-oyster-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-68Myf1i0em4drWIw-upzMUQ-t500x500.jpg">](https://soundcloud.com/aidubz/wl-test)
 
-**Artist**: Koastle 
+**Artist**: A.I. 
 
-**Track**: Electric Oyster Vol. 1
+**Track**: A.I. - Scottisch Warlord Remix
 
-Last updated at 01/05/2023 12:17
+Last updated at 01/05/2023 12:18
