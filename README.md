@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2uORsbPyzy8gkC7-4xs8kA-t500x500.jpg">](https://soundcloud.com/nanobii/2nite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
 
-**Artist**: nanobii 
+**Artist**: BXTR 
 
-**Track**: 2NITE
+**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
 
-Last updated at 01/05/2023 15:34
+Last updated at 01/05/2023 15:37
