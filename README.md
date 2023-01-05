@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vtHxvlXobMsn0B5k-eUsXNQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-so-stoked-snow-day-121622)
 
-**Artist**: S3RL 
+**Artist**: Hartshorn 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: Hartshorn @ So Stoked: Snow Day 12/16/22
 
-Last updated at 01/05/2023 15:44
+Last updated at 01/05/2023 17:11
