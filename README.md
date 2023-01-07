@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0XxLlBsCYjl1zkD-Xx96IA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-fred-again-flowdan-rumble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2uORsbPyzy8gkC7-4xs8kA-t500x500.jpg">](https://soundcloud.com/nanobii/2nite)
 
-**Artist**: Skrillex 
+**Artist**: nanobii 
 
-**Track**: Skrillex, Fred again.. & Flowdan - Rumble
+**Track**: 2NITE
 
-Last updated at 01/07/2023 17:09
+Last updated at 01/07/2023 17:10
