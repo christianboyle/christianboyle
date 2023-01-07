@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRwXVa5TuePal4E3-Afbg0g-t500x500.jpg">](https://soundcloud.com/technikoredj/technikore-galaxia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2uORsbPyzy8gkC7-4xs8kA-t500x500.jpg">](https://soundcloud.com/nanobii/2nite)
 
-**Artist**: Technikore / Technikal 
+**Artist**: nanobii 
 
-**Track**: Technikore - Galaxia (Radio Edit)
+**Track**: 2NITE
 
-Last updated at 01/07/2023 17:23
+Last updated at 01/07/2023 17:24
