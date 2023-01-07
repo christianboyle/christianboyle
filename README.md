@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRwXVa5TuePal4E3-Afbg0g-t500x500.jpg">](https://soundcloud.com/technikoredj/technikore-galaxia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5LbSCnJbaKvv2sw-FwMLXg-t500x500.jpg">](https://soundcloud.com/chachuba/blakezd)
 
-**Artist**: Technikore / Technikal 
+**Artist**: Chachuba 
 
-**Track**: Technikore - Galaxia (Radio Edit)
+**Track**: Blake'zd
 
-Last updated at 01/07/2023 17:35
+Last updated at 01/07/2023 17:38
