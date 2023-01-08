@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/ixTkLjTBQyk/maxresdefault.jpg">](https://www.youtube.com/watch?v=ixTkLjTBQyk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-60CQ01uA2QtY6uJo-jf0qiQ-t500x500.jpg">](https://soundcloud.com/thisisevalyn/cool)
 
-**Artist**: 
-  
-    Omar Apollo
-  
-  
-  
-    Omar Apollo
-  
+**Artist**: Evalyn 
 
+**Track**: COOL
 
-
-
-
- 
-
-**Track**: Omar Apollo - Evergreen (You Didn’t Deserve Me At All) [Official Music Video]
-
-Last updated at 01/07/2023 20:21
+Last updated at 01/08/2023 13:32
