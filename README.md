@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PJlSx7bScN05xCr-Zjjd6g-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-425-marcin-m-gustmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5LbSCnJbaKvv2sw-FwMLXg-t500x500.jpg">](https://soundcloud.com/chachuba/blakezd)
 
-**Artist**: Dj EZC 
+**Artist**: Chachuba 
 
-**Track**: Hardcore Will Never Die Episode 425 (Marcin M Guestmix)
+**Track**: Blake'zd
 
-Last updated at 01/08/2023 14:15
+Last updated at 01/08/2023 16:48
