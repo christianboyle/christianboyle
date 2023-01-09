@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Gzaivt70mBduw1L-zCybiA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-92-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NV4moXgzZmxWLjGh-Vp8zbw-t500x500.jpg">](https://soundcloud.com/smolbeats/flowanastasia-tyr-kohout-sending-signal-smol-remix)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: smol 
 
-**Track**: Bonkers Beats #92 on Beat 106 Scotland with Daniel Seven / Triplestar Guest Mix 060123 (Hour 1)
+**Track**: Flowanastasia & Tyr Kohout - Sending Signal (smol Remix)
 
-Last updated at 01/09/2023 12:25
+Last updated at 01/09/2023 12:32
