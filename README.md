@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wuJFHub4b32hczoT-H0d6iw-t500x500.jpg">](https://soundcloud.com/latexfruit/loveme281abggypiel_sx355)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0NVfkyRE4bK7GLil-wAylaw-t500x500.jpg">](https://soundcloud.com/darbysounds/callonmermx)
 
-**Artist**: latex fruit 
+**Artist**: Darby 
 
-**Track**: #loveMe2///81abggYpIeL._SX355_
+**Track**: Eric Prydz - Call On Me (Darby Remix)
 
-Last updated at 01/09/2023 13:11
+Last updated at 01/09/2023 13:13
