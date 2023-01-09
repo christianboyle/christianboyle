@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlgdUoQIRKHPyFsg-t682bg-t500x500.jpg">](https://soundcloud.com/krushendo-music/krushendo-2023-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FqEp0tc44ISk37yj-5TihrA-t500x500.jpg">](https://soundcloud.com/revisedrecords/creeds-push-up-simox-edit-free-download)
 
-**Artist**: Krushendo 
+**Artist**: Revised Records 
 
-**Track**: 2023 Gem & Jam DJ Contest Mix
+**Track**: Creeds - Push Up (SIMOX Edit) [FREE DOWNLOAD]
 
-Last updated at 01/09/2023 12:34
+Last updated at 01/09/2023 12:35
