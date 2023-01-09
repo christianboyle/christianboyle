@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVzWNWEbcvZjif3c-PNANOA-t500x500.jpg">](https://soundcloud.com/itsdavidfeldman/oliver-tree-sunshine-david-feldman-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlgdUoQIRKHPyFsg-t682bg-t500x500.jpg">](https://soundcloud.com/krushendo-music/krushendo-2023-promo-mix)
 
-**Artist**: David Feldman 
+**Artist**: Krushendo 
 
-**Track**: Oliver Tree - Sunshine (David Feldman Remix)
+**Track**: 2023 Gem & Jam DJ Contest Mix
 
-Last updated at 01/09/2023 12:33
+Last updated at 01/09/2023 12:34
