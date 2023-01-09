@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zc9b8648ImPZhM9-EtkrOQ-t500x500.jpg">](https://soundcloud.com/platform/sydney-boiler-room-x-function)
 
-**Artist**: BXTR 
+**Artist**: Boiler Room 
 
-**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
+**Track**: Sydney | Boiler Room X Function.: El Paso
 
-Last updated at 01/09/2023 13:15
+Last updated at 01/09/2023 14:38
