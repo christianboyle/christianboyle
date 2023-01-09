@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Gzaivt70mBduw1L-zCybiA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-92-on-beat-106?in=beat106scotland/sets/bonkers-beats-92-on-beat-106-scotland-with-daniel-seven-060123-hour-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJzKNZ7cLf0JadNI-d5aRaA-t500x500.jpg">](https://soundcloud.com/oneseventy/jakka-b-lift-me-up)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: OneSeventy 
 
-**Track**: Bonkers Beats #92 on Beat 106 Scotland with D-Fuse 060123 (Hour 2)
+**Track**: Jakka - B - Lift Me Up (Radio Edit)
 
-Last updated at 01/09/2023 10:23
+Last updated at 01/09/2023 12:03
