@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HtHP2G0EaYmHAvAA-BFP6zw-t500x500.jpg">](https://soundcloud.com/mallgrab/1ofthozedaze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRGXiCxyGLVZ6nof-jhdPXA-t500x500.jpg">](https://soundcloud.com/ankudubs/anku-2k-lp-showcase)
 
-**Artist**: Mall Grab 
+**Artist**: ANKU 
 
-**Track**: 1ofthozedaze
+**Track**: ANKU - 2K LP SHOWCASE
 
-Last updated at 01/09/2023 12:41
+Last updated at 01/09/2023 13:09
