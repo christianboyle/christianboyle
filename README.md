@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0NVfkyRE4bK7GLil-wAylaw-t500x500.jpg">](https://soundcloud.com/darbysounds/callonmermx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
 
-**Artist**: Darby 
+**Artist**: BXTR 
 
-**Track**: Eric Prydz - Call On Me (Darby Remix)
+**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
 
-Last updated at 01/09/2023 13:13
+Last updated at 01/09/2023 13:15
