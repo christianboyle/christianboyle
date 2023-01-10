@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Knfz2nyJ5Chx7lo-Eii6Jg-t500x500.jpg">](https://soundcloud.com/realoblivionaudio/irwtsayh-oblivion-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5LbSCnJbaKvv2sw-FwMLXg-t500x500.jpg">](https://soundcloud.com/chachuba/blakezd)
 
-**Artist**: Oblivion 
+**Artist**: Chachuba 
 
-**Track**: Cyberpunk Edgerunners - I Really Want To Stay At Your House (Oblivion Cover)
+**Track**: Blake'zd
 
-Last updated at 01/10/2023 13:01
+Last updated at 01/10/2023 13:05
