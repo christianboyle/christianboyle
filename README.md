@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3OErzYgqQDV1V6Cg-f7giaQ-t500x500.jpg">](https://soundcloud.com/sum_rhythm_reggae/mixedspices013-feat-29legonz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Gzaivt70mBduw1L-zCybiA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-92-on-beat-106-1)
 
-**Artist**: SUM R&R 
+**Artist**: Beat 106 Scotland 
 
-**Track**: MIXEDSPICES015 Feat. 29LEG!ONZ
+**Track**: Bonkers Beats #92 on Beat 106 Scotland with Daniel Seven / Triplestar Guest Mix 060123 (Hour 1)
 
-Last updated at 01/10/2023 09:22
+Last updated at 01/10/2023 09:26
