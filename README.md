@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZzmmHz6q8ZTxaYM-sPoJTQ-t500x500.jpg">](https://soundcloud.com/ayyofree/killmaki-danazar-muerte)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXu0NJfBkCeyXmN7-fiXAmg-t500x500.jpg">](https://soundcloud.com/dontdieatwork/karezza-lemme-see)
 
-**Artist**: AY YO TRIP! 
+**Artist**: Dont Die At Work 
 
-**Track**: Killmaki & Danazar - Muerte [Dab Records Premiere]
+**Track**: Karezza - LEMME SEE
 
-Last updated at 01/10/2023 09:18
+Last updated at 01/10/2023 09:19
