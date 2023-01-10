@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NFQjCdcsCdB5jzUT-RJgpgg-t500x500.jpg">](https://soundcloud.com/dj-simox/simox-the-reverse-universe-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRwXVa5TuePal4E3-Afbg0g-t500x500.jpg">](https://soundcloud.com/technikoredj/technikore-galaxia)
 
-**Artist**: SIMOX - Smx 
+**Artist**: Technikore / Technikal 
 
-**Track**: Simox - The Reverse Universe (Original Mix)
+**Track**: Technikore - Galaxia (Radio Edit)
 
-Last updated at 01/10/2023 13:34
+Last updated at 01/10/2023 13:39
