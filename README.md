@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LDOKGjodNg381QJ-FT9fAw-t500x500.jpg">](https://soundcloud.com/polarbearbass/polarbear-mindcontrol-ft-magmag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-00P2ihqrh3yprqdW-z8Ldzg-t500x500.jpg">](https://soundcloud.com/mood_ids/skrillex-id-with-swae-leejeremih-live-hq)
 
-**Artist**: PolarBear 
+**Artist**: Mood ID's 
 
-**Track**: MindControl Ft. MagMag
+**Track**: Skrillex - ID (with Swae Lee/Jeremih) [Live HQ]
 
-Last updated at 01/10/2023 12:39
+Last updated at 01/10/2023 12:40
