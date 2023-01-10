@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbLkzcWgDYizKUMI-zpG9yg-t500x500.jpg">](https://soundcloud.com/s3rl/random-encounter)
 
 **Artist**: S3RL 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: Random Encounter - S3RL Vs NeoQor ft IC3MANIA
 
-Last updated at 01/10/2023 13:53
+Last updated at 01/10/2023 15:25
