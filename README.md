@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Knfz2nyJ5Chx7lo-Eii6Jg-t500x500.jpg">](https://soundcloud.com/realoblivionaudio/irwtsayh-oblivion-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HISWesKWUYy1Dinf-P3pzVQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/peggy-viennetta-big-room-blog-house-dj-tool)
 
-**Artist**: Oblivion 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Cyberpunk Edgerunners - I Really Want To Stay At Your House (Oblivion Cover)
+**Track**: Peggy Viennetta - Big Room Blog House DJ Tool
 
-Last updated at 01/09/2023 18:16
+Last updated at 01/10/2023 09:13
