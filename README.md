@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HISWesKWUYy1Dinf-P3pzVQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/peggy-viennetta-big-room-blog-house-dj-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WectU4ka3ywbg4D-fIMoNg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/strixter-chainix-bruh)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Dirty Workz 
 
-**Track**: Peggy Viennetta - Big Room Blog House DJ Tool
+**Track**: Strixter & Chainix - bruh
 
-Last updated at 01/10/2023 09:13
+Last updated at 01/10/2023 09:14
