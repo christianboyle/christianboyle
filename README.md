@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3OErzYgqQDV1V6Cg-f7giaQ-t500x500.jpg">](https://soundcloud.com/sum_rhythm_reggae/mixedspices013-feat-29legonz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WC4CFFmgAi2ztGaL-0sZivg-t500x500.jpg">](https://soundcloud.com/morecreativityrecords/ellpsis-caldera-mcr?in=ell1psis/sets/caldera-mcr)
 
-**Artist**: SUM R&R 
+**Artist**: more creativity 
 
-**Track**: MIXEDSPICES015 Feat. 29LEG!ONZ
+**Track**: ell!psis - caldera
 
-Last updated at 01/10/2023 09:16
+Last updated at 01/10/2023 09:17
