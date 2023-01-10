@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WectU4ka3ywbg4D-fIMoNg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/strixter-chainix-bruh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3OErzYgqQDV1V6Cg-f7giaQ-t500x500.jpg">](https://soundcloud.com/sum_rhythm_reggae/mixedspices013-feat-29legonz)
 
-**Artist**: Dirty Workz 
+**Artist**: SUM R&R 
 
-**Track**: Strixter & Chainix - bruh
+**Track**: MIXEDSPICES015 Feat. 29LEG!ONZ
 
-Last updated at 01/10/2023 09:14
+Last updated at 01/10/2023 09:16
