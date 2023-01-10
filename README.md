@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WC4CFFmgAi2ztGaL-0sZivg-t500x500.jpg">](https://soundcloud.com/morecreativityrecords/ellpsis-caldera-mcr?in=ell1psis/sets/caldera-mcr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZzmmHz6q8ZTxaYM-sPoJTQ-t500x500.jpg">](https://soundcloud.com/ayyofree/killmaki-danazar-muerte)
 
-**Artist**: more creativity 
+**Artist**: AY YO TRIP! 
 
-**Track**: ell!psis - caldera
+**Track**: Killmaki & Danazar - Muerte [Dab Records Premiere]
 
-Last updated at 01/10/2023 09:17
+Last updated at 01/10/2023 09:18
