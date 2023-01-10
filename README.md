@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2uORsbPyzy8gkC7-4xs8kA-t500x500.jpg">](https://soundcloud.com/nanobii/2nite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Knfz2nyJ5Chx7lo-Eii6Jg-t500x500.jpg">](https://soundcloud.com/realoblivionaudio/irwtsayh-oblivion-cover)
 
-**Artist**: nanobii 
+**Artist**: Oblivion 
 
-**Track**: 2NITE
+**Track**: Cyberpunk Edgerunners - I Really Want To Stay At Your House (Oblivion Cover)
 
-Last updated at 01/09/2023 18:15
+Last updated at 01/09/2023 18:16
