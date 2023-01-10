@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGnuAj6FG5olSxJI-pQ0zDA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-pinkpantheress-trippie-redd-way-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tA4OtNbzB6u9XS6k-O8hBrQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/slow-motion)
 
-**Artist**: Skrillex 
+**Artist**: Quickdrop 
 
-**Track**: Skrillex, PinkPantheress & Trippie Redd - Way Back
+**Track**: Slow Motion
 
-Last updated at 01/10/2023 10:23
+Last updated at 01/10/2023 10:25
