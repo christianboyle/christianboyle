@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0NVfkyRE4bK7GLil-wAylaw-t500x500.jpg">](https://soundcloud.com/darbysounds/callonmermx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5LbSCnJbaKvv2sw-FwMLXg-t500x500.jpg">](https://soundcloud.com/chachuba/blakezd)
 
-**Artist**: Darby 
+**Artist**: Chachuba 
 
-**Track**: Eric Prydz - Call On Me (Darby Remix)
+**Track**: Blake'zd
 
-Last updated at 01/10/2023 10:18
+Last updated at 01/10/2023 10:19
