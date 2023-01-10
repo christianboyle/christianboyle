@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJHqBjsppRMuJq0A-8Jb0Iw-t500x500.jpg">](https://soundcloud.com/weareriot/rumble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9ztXQnoViM2RAyU-64uH0A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/teddy-x-joshua-left-me-bleeding-electric-fox)
 
-**Artist**: RIOT 
+**Artist**: Dirty Workz 
 
-**Track**: Skrillex, Fred Again.. & Flowdan - Rumble (RIOT BOOTLEG)
+**Track**: TEDDY X Joshua - Left Me Bleeding (Electric Fox)
 
-Last updated at 01/10/2023 10:02
+Last updated at 01/10/2023 10:10
