@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YSuzE0mCLzb4qgft-e3zd9w-t500x500.jpg">](https://soundcloud.com/overdrivemelbourne/up-to-no-good-overdrive-kick-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0NVfkyRE4bK7GLil-wAylaw-t500x500.jpg">](https://soundcloud.com/darbysounds/callonmermx)
 
-**Artist**: OverDrive 
+**Artist**: Darby 
 
-**Track**: Up To No Good - OverDrive Kick Edit
+**Track**: Eric Prydz - Call On Me (Darby Remix)
 
-Last updated at 01/10/2023 10:17
+Last updated at 01/10/2023 10:18
