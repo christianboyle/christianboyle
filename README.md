@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38H2w2qZ5LMyVGgk-3vdmYw-t500x500.jpg">](https://soundcloud.com/rockbottomrecs/drop-top)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hS0QO2riAj2YhNs8-oCjdiQ-t500x500.jpg">](https://soundcloud.com/1laker/2-laker-tac-woody-1)
 
-**Artist**: ROCK BOTTOM RECORDS 
+**Artist**: ##Laker 
 
-**Track**: Tombz X Blasé - Drop Top
+**Track**: AMERICANA {Feat. Tacxin}
 
-Last updated at 01/09/2023 17:07
+Last updated at 01/09/2023 18:12
