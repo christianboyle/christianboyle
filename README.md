@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WectU4ka3ywbg4D-fIMoNg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/strixter-chainix-bruh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YSuzE0mCLzb4qgft-e3zd9w-t500x500.jpg">](https://soundcloud.com/overdrivemelbourne/up-to-no-good-overdrive-kick-edit)
 
-**Artist**: Dirty Workz 
+**Artist**: OverDrive 
 
-**Track**: Strixter & Chainix - bruh
+**Track**: Up To No Good - OverDrive Kick Edit
 
-Last updated at 01/10/2023 12:51
+Last updated at 01/10/2023 12:55
