@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-00P2ihqrh3yprqdW-z8Ldzg-t500x500.jpg">](https://soundcloud.com/mood_ids/skrillex-id-with-swae-leejeremih-live-hq)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXu0NJfBkCeyXmN7-fiXAmg-t500x500.jpg">](https://soundcloud.com/dontdieatwork/karezza-lemme-see)
 
-**Artist**: Mood ID's 
+**Artist**: Dont Die At Work 
 
-**Track**: Skrillex - ID (with Swae Lee/Jeremih) [Live HQ]
+**Track**: Karezza - LEMME SEE
 
-Last updated at 01/10/2023 12:40
+Last updated at 01/10/2023 12:42
