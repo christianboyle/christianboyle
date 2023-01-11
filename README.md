@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qsM7BC5W3vYI0dFt-nVsydg-t500x500.jpg">](https://soundcloud.com/fresh22stuff/camoufly-kaleidoscope-fresh-stuff-remix)
 
-**Artist**: S3RL 
+**Artist**: FRESH STUFF 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: Camoufly - Kaleidoscope (Fresh Stuff Remix)
 
-Last updated at 01/10/2023 15:29
+Last updated at 01/11/2023 08:15
