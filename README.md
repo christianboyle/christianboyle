@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNzQiAt9Xlxj3DWT-1KKk3Q-t500x500.jpg">](https://soundcloud.com/ramonpang/rumble-ramonpang-sidewalk-boy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOgyurodJCbv-0-t500x500.jpg">](https://soundcloud.com/scity-music/drown?in=clubwrk/sets/clubwrk-deep)
 
-**Artist**: RamonPang 
+**Artist**: Scity 
 
-**Track**: Skrillex, Fred again.., Flowdan - Rumble (RamonPang & sidewalk boy Remix)
+**Track**: Drown
 
-Last updated at 01/11/2023 08:18
+Last updated at 01/11/2023 08:19
