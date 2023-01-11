@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g764pLwdHHmH3a1p-iNKhPg-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-andyg-caution-1?in=clubwrk/sets/clubwrk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kTbZGH2nBrDYdB1e-tzXkDA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/focus-yuna-yuna-x-murder-club)
 
-**Artist**: Lister 
+**Artist**: yx2 
 
-**Track**: Lister & AndyG - Caution
+**Track**: focus (yuna yuna x murder club)
 
-Last updated at 01/11/2023 08:21
+Last updated at 01/11/2023 08:22
