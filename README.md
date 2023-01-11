@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCNkjsacKei8OZiM-Utfytw-t500x500.jpg">](https://soundcloud.com/dirtysnatcharecords/half-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gi1lYGRnYt8QsBiN-mrgjMA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/serzo-ancient-voices)
 
-**Artist**: DirtySnatcha Records 
+**Artist**: Dirty Workz 
 
-**Track**: Twisted, Chutez & Ladderz, R3Mark - Half Life
+**Track**: Serzo - Ancient Voices
 
-Last updated at 01/11/2023 08:16
+Last updated at 01/11/2023 08:17
