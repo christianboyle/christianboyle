@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FE95jfCYGT8p8LB3-jRqykw-t500x500.jpg">](https://soundcloud.com/blvckloud/shitshow-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
 
-**Artist**: Blvckloud 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Blvckloud 2023 Showcase Mix
+**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
 
-Last updated at 01/12/2023 14:49
+Last updated at 01/12/2023 16:51
