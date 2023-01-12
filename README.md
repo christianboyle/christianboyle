@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/iurhjlBum0o/maxresdefault.jpg">](https://www.youtube.com/watch?v=iurhjlBum0o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BX5jYCbRBTxrWgmN-czdTOQ-t500x500.jpg">](https://soundcloud.com/ryankore/highonlifefull)
 
-**Artist**: 
-  
-    MadRasana Official
-  
-  
-  
-    MadRasana Official
-  
+**Artist**: Ryan Kore 
 
+**Track**: Martin Garrix, Bonn - High On Life (Ryan Kore Remix) *FREE DOWNLOAD*
 
-
-
-
- 
-
-**Track**: V Shivapriya & BR Somashekar Jois | Konnakol Duet | MadRasana Unplugged
-
-Last updated at 01/12/2023 11:54
+Last updated at 01/12/2023 13:47
