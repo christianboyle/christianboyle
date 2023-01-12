@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpHFyq9zkxghZzRk-FN5bYQ-t500x500.jpg">](https://soundcloud.com/feddi-cairo-st/feddi-racks-up)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Feddi Cairo St 
 
-**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
+**Track**: Feddi - Racks Up
 
-Last updated at 01/12/2023 14:42
+Last updated at 01/12/2023 14:47
