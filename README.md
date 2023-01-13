@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FgrlkH7RCkorIT6-Ufz7kw-t500x500.jpg">](https://soundcloud.com/jorge_1edm/jorge_1-song-freestyle)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: jorge_1 
 
-**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
+**Track**: Jorge_1 - Song freestyle
 
-Last updated at 01/12/2023 16:51
+Last updated at 01/13/2023 08:20
