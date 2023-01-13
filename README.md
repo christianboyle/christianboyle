@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FgrlkH7RCkorIT6-Ufz7kw-t500x500.jpg">](https://soundcloud.com/jorge_1edm/jorge_1-song-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faKKQHfMtJzeZhCU-kiyfNw-t500x500.jpg">](https://soundcloud.com/user-740793613/wasted-hvken-x-murkish-juice-wrldslowed?in=heavygore/sets/c22)
 
-**Artist**: jorge_1 
+**Artist**: clueless 
 
-**Track**: Jorge_1 - Song freestyle
+**Track**: wasted - hvken x murkish (juice wrld)*SLOWED*
 
-Last updated at 01/13/2023 08:20
+Last updated at 01/13/2023 08:21
