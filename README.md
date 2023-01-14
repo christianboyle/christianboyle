@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: BXTR 
 
-**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
+**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
 
-Last updated at 01/14/2023 00:12
+Last updated at 01/14/2023 00:45
