@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7VYK8XJTHH88Bbd-wsbrgw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-022-dj-cheeze-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
 
-**Artist**: Sopranos Bounce 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Sopranos Podcast 022 - DJ Cheeze & Rave Trax
+**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
 
-Last updated at 01/13/2023 10:45
+Last updated at 01/14/2023 00:12
