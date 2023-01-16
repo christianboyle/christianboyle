@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A03bt9QzfvCz1ADg-vkM9Bw-t500x500.jpg">](https://soundcloud.com/seal-network/630feelalive?in=seal-playlists/sets/wyko-feel-alive-4)
 
-**Artist**: BXTR 
+**Artist**: Seal Network 
 
-**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
+**Track**: WYKO - Feel Alive
 
-Last updated at 01/14/2023 00:45
+Last updated at 01/15/2023 18:25
