@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A03bt9QzfvCz1ADg-vkM9Bw-t500x500.jpg">](https://soundcloud.com/seal-network/630feelalive?in=seal-playlists/sets/wyko-feel-alive-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J1sslTJbnDrJO4HH-BXexNQ-t500x500.jpg">](https://soundcloud.com/spaceghostdubs/salvatore-ganacci-take-me-to-america-spaceghost-remix-free-dl)
 
-**Artist**: Seal Network 
+**Artist**: SpaceGhost 
 
-**Track**: WYKO - Feel Alive
+**Track**: Salvatore Ganacci - Take Me To America [SpaceGhost Remix] FREE DL
 
-Last updated at 01/15/2023 18:25
+Last updated at 01/15/2023 18:26
