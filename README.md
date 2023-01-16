@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQxHoz33vsPSaq3z-2YJ7ug-t500x500.jpg">](https://soundcloud.com/m1ssjay/stay-here-ft-bk-beats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZoG2P5IyUPauBMep-G3APqA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-93-on-beat-106)
 
-**Artist**: Miss Jay 
+**Artist**: Beat 106 Scotland 
 
-**Track**: 100 BPM - Stay Here (ft. bk beats)
+**Track**: Bonkers Beats #93 on Beat 106 Scotland with Alaguan 130123 (Hour 2)
 
-Last updated at 01/15/2023 19:23
+Last updated at 01/16/2023 08:49
