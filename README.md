@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CAEHuEO6b5PRUvD9-Zx5JnA-t500x500.jpg">](https://soundcloud.com/dj-tall-paul-1/godskitchen-tp-dec-2022-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faKKQHfMtJzeZhCU-kiyfNw-t500x500.jpg">](https://soundcloud.com/user-740793613/wasted-hvken-x-murkish-juice-wrldslowed)
 
-**Artist**: DJ Tall Paul 
+**Artist**: clueless 
 
-**Track**: The Godskitchen Mix - Dec 2022
+**Track**: wasted - hvken x murkish (juice wrld)*SLOWED*
 
-Last updated at 01/15/2023 19:11
+Last updated at 01/15/2023 19:18
