@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OtGzGYHVjCZdfRcS-1LoPwg-t500x500.jpg">](https://soundcloud.com/gradient-map/make-me-feel?in=gradient-map/sets/antidote-for-a-bad-time-make-me-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a23uHsCMjyJT4HjU-psTuzQ-t500x500.jpg">](https://soundcloud.com/djlinordp/automotivo-derruba-mandrake-djl1no_djclaybeats)
 
-**Artist**: gradient map 
+**Artist**: DJ L1NO 👑 @dj.l1no_ 
 
-**Track**: onlytom - Make Me Feel
+**Track**: Automotivo Derruba Mandrake - @dj.l1no_ @djclaybeats
 
-Last updated at 01/17/2023 09:41
+Last updated at 01/17/2023 09:42
