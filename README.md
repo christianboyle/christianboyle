@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KTSEXg0vD0pkn1Z-4njmqg-t500x500.jpg">](https://soundcloud.com/vulllgur/vulllgur-dismembered-3k-freebie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
 
-**Artist**: VUlllGUR 
+**Artist**: sxlvr 
 
-**Track**: VUlllGUR - DISMEMBERED (3K FREEBIE)
+**Track**: SPLURGE
 
-Last updated at 01/18/2023 08:06
+Last updated at 01/18/2023 08:07
