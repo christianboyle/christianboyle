@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEfkyAnKJkWFF6Rd-URncVQ-t500x500.jpg">](https://soundcloud.com/platform/system-mix-086-bony-fly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KTSEXg0vD0pkn1Z-4njmqg-t500x500.jpg">](https://soundcloud.com/vulllgur/vulllgur-dismembered-3k-freebie)
 
-**Artist**: Boiler Room 
+**Artist**: VUlllGUR 
 
-**Track**: SYSTEM Mix 086: Bony Fly
+**Track**: VUlllGUR - DISMEMBERED (3K FREEBIE)
 
-Last updated at 01/18/2023 08:05
+Last updated at 01/18/2023 08:06
