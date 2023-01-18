@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOJSy5jFqRpJDtoE-8qPyqg-t500x500.jpg">](https://soundcloud.com/audien/audien-winter-mix-2023)
 
-**Artist**: sxlvr 
+**Artist**: Audien 
 
-**Track**: SPLURGE
+**Track**: Audien - Winter Mix 2023
 
-Last updated at 01/18/2023 08:07
+Last updated at 01/18/2023 08:08
