@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWQqXtduWIVzIkyk-kjqdWg-t500x500.jpg">](https://soundcloud.com/koastle/the-spins-koastle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-11n7ZmnU0MVQyhPy-uyqOmw-t500x500.jpg">](https://soundcloud.com/hexxos/bel-mercy-rmx)
 
-**Artist**: Koastle 
+**Artist**: HEXXOS 
 
-**Track**: The Spins (Koastle Remix)
+**Track**: Jengi - Bel Mercy (HEXXOS & kiimu Remix)
 
-Last updated at 01/19/2023 13:00
+Last updated at 01/19/2023 14:41
