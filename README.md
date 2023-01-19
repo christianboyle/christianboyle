@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVk3kwzFUBQPKhLy-hFqTFQ-t500x500.jpg">](https://soundcloud.com/jbhain/pinkpantheress-do-u-miss-me-jb-hain-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezgUvAtiSLBLUtoV-xu2uQA-t500x500.jpg">](https://soundcloud.com/amadramamusic/encore)
 
-**Artist**: JB Hain 
+**Artist**: 𝐀𝐌𝐀𝐃𝐑𝐀𝐌𝐀 
 
-**Track**: pinkpantheress - do you miss me? (jb hain flip)
+**Track**: Encore
 
-Last updated at 01/19/2023 14:43
+Last updated at 01/19/2023 14:44
