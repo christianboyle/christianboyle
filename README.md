@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyIxekqjwxGGod3l-fXMjYg-t500x500.jpg">](https://soundcloud.com/icelashes/into-ur-quicksand?in=icelashes/sets/nxc-tools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvPUUei1F2Vhoxns-1bAT7w-t500x500.jpg">](https://soundcloud.com/icelashes/driveaway?in=icelashes/sets/nxc-tools)
 
 **Artist**: icelashes 
 
-**Track**: INTO UR QUICKSAND
+**Track**: DRIVEAWAY
 
-Last updated at 01/19/2023 14:46
+Last updated at 01/19/2023 14:47
