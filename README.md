@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WS9rxHEnLpwaOS7Z-aZhY0g-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/yellow-is-the-new-white-x-febration-found-myself-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWTkSuwfO48le5ZE-CB1TTw-t500x500.jpg">](https://soundcloud.com/shokuofficial/shoku-energy-wip)
 
-**Artist**: EDM FAMILY 
+**Artist**: SHOKU 
 
-**Track**: Yellow Is The New White X Febration - Found Myself [FREE DOWNLOAD]
+**Track**: ENERGY
 
-Last updated at 01/19/2023 14:48
+Last updated at 01/19/2023 15:51
