@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvPUUei1F2Vhoxns-1bAT7w-t500x500.jpg">](https://soundcloud.com/icelashes/driveaway?in=icelashes/sets/nxc-tools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WS9rxHEnLpwaOS7Z-aZhY0g-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/yellow-is-the-new-white-x-febration-found-myself-free-download)
 
-**Artist**: icelashes 
+**Artist**: EDM FAMILY 
 
-**Track**: DRIVEAWAY
+**Track**: Yellow Is The New White X Febration - Found Myself [FREE DOWNLOAD]
 
-Last updated at 01/19/2023 14:47
+Last updated at 01/19/2023 14:48
