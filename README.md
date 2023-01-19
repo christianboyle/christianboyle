@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z2ZFu0W4TPKQnNHn-j5s8Ng-t500x500.jpg">](https://soundcloud.com/user-111256367/lidzter-devils-screech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyIxekqjwxGGod3l-fXMjYg-t500x500.jpg">](https://soundcloud.com/icelashes/into-ur-quicksand?in=icelashes/sets/nxc-tools)
 
-**Artist**: LIDZTER 
+**Artist**: icelashes 
 
-**Track**: LIDZTER - DEVIL'S SCREECH
+**Track**: INTO UR QUICKSAND
 
-Last updated at 01/19/2023 14:45
+Last updated at 01/19/2023 14:46
