@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddylJTjz71ZjccKM-Ilvl3Q-t500x500.jpg">](https://soundcloud.com/hard-duck/dj-biz-losing-track-of-time?in=hard-duck/sets/edits-program-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9QZYjWPzyx6yjglI-pVzWRw-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/dj-shimamura-my-name-is-hardcore-m-project-remix)
 
-**Artist**: Hard Duck 
+**Artist**: M-Project 
 
-**Track**: DJ Biz - Losing Track of Time (Hard Duck Edit)
+**Track**: DJ Shimamura - My Name Is Hardcore (M-Project Remix) *** Free DL ***
 
-Last updated at 01/20/2023 08:55
+Last updated at 01/20/2023 08:56
