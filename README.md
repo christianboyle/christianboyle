@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVk3kwzFUBQPKhLy-hFqTFQ-t500x500.jpg">](https://soundcloud.com/jbhain/pinkpantheress-do-u-miss-me-jb-hain-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-11n7ZmnU0MVQyhPy-uyqOmw-t500x500.jpg">](https://soundcloud.com/hexxos/bel-mercy-rmx)
 
-**Artist**: JB Hain 
+**Artist**: HEXXOS 
 
-**Track**: pinkpantheress - do you miss me? (jb hain flip)
+**Track**: Jengi - Bel Mercy (HEXXOS & kiimu Remix)
 
-Last updated at 01/20/2023 13:22
+Last updated at 01/20/2023 13:25
