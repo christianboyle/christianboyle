@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-85Gjt1leuZRtFx0d-GIC5nQ-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-x-jts-with-no-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
 
-**Artist**: OneSeventy 
+**Artist**: sxlvr 
 
-**Track**: Technikore x JTS - With No Heart (Radio Edit)
+**Track**: SPLURGE
 
-Last updated at 01/20/2023 13:31
+Last updated at 01/20/2023 13:34
