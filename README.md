@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J06D8m7uxbqoOWH2-dvXc0w-t500x500.jpg">](https://soundcloud.com/birthdayypartyy/revival-feat-jenni-rudolph?in=birthdayypartyy/sets/classic-v-future-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000429283386-9ykd3o-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/agen-wida-m-project-flip)
 
-**Artist**: Birthdayy Partyy 
+**Artist**: M-Project 
 
-**Track**: Revival (feat. Jenni Rudolph)
+**Track**: JOYRYDE & Skrillex - AGEN WIDA (M-Project Flip) (Free DL)
 
-Last updated at 01/20/2023 13:08
+Last updated at 01/20/2023 13:09
