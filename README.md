@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWTkSuwfO48le5ZE-CB1TTw-t500x500.jpg">](https://soundcloud.com/shokuofficial/shoku-energy-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8dFnz9yA6Y0wmdtp-NM23PQ-t500x500.jpg">](https://soundcloud.com/jgdubplates/dubpack009)
 
-**Artist**: SHOKU 
+**Artist**: JG DUBPLATES / ARCHIVE 
 
-**Track**: ENERGY
+**Track**: JG DUBZ DUBPACK 009 SHOWCASE
 
-Last updated at 01/19/2023 15:51
+Last updated at 01/20/2023 08:51
