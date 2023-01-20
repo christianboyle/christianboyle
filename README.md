@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWQqXtduWIVzIkyk-kjqdWg-t500x500.jpg">](https://soundcloud.com/koastle/the-spins-koastle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-85Gjt1leuZRtFx0d-GIC5nQ-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-x-jts-with-no-heart)
 
-**Artist**: Koastle 
+**Artist**: OneSeventy 
 
-**Track**: The Spins (Koastle Remix)
+**Track**: Technikore x JTS - With No Heart (Radio Edit)
 
-Last updated at 01/20/2023 13:28
+Last updated at 01/20/2023 13:31
