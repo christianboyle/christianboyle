@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUjFcasmX6LKM7zn-9zESCw-t500x500.jpg">](https://soundcloud.com/mcwhizzkid/whizzkid-a-class-sick-mix-recorded-live-at-metanoia-1119)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5YXI3z9zo7CHSVLy-04eeyQ-t500x500.jpg">](https://soundcloud.com/whjooi0xhynu/momentum-mix-mixed-by-null-1)
 
-**Artist**: MC Whizzkid 
+**Artist**: MOMENTUM 
 
-**Track**: DJ Whizzkid - A Class Sick Mix ( Recorded Live At Metanoia 11/19 )
+**Track**: MOMENTUM Mix mixed by HiroHiro #MNTMPDCT
 
-Last updated at 01/20/2023 08:58
+Last updated at 01/20/2023 08:59
