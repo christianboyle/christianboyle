@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUjFcasmX6LKM7zn-9zESCw-t500x500.jpg">](https://soundcloud.com/mcwhizzkid/whizzkid-a-class-sick-mix-recorded-live-at-metanoia-1119)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J06D8m7uxbqoOWH2-dvXc0w-t500x500.jpg">](https://soundcloud.com/birthdayypartyy/revival-feat-jenni-rudolph?in=birthdayypartyy/sets/classic-v-future-ep-1)
 
-**Artist**: MC Whizzkid 
+**Artist**: Birthdayy Partyy 
 
-**Track**: DJ Whizzkid - A Class Sick Mix ( Recorded Live At Metanoia 11/19 )
+**Track**: Revival (feat. Jenni Rudolph)
 
-Last updated at 01/20/2023 10:10
+Last updated at 01/20/2023 13:08
