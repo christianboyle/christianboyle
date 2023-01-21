@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BUBjmxmAj3K9CJII-Cq4n2A-t500x500.jpg">](https://soundcloud.com/murderclubmusik/think-im-playing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPA1BVuQeSUnGaN1-wyWpRg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/harvest-break-apart?in=hydeparkhifi/sets/harddancesummer-va)
 
-**Artist**: MURDER CLUB 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: "THINK IM PLAYING?" LIVE AT PORTAL - MONTREAL [01/06/23] ★★★
+**Track**: HARVEST - BREAK APART
 
-Last updated at 01/21/2023 10:26
+Last updated at 01/21/2023 10:27
