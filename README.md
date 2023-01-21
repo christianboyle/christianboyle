@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekZV1Vudg14Qy4Kt-cOyYtw-t500x500.jpg">](https://soundcloud.com/akatsuki-chopmusic/poklypz-vs-motar-vote-in-the-comments)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vRfOkoLvQJAtzfL9-abzYgw-t500x500.jpg">](https://soundcloud.com/cloakstatus/skrillex-bobby-raps-lmlt-cloakstatus-rmx)
 
-**Artist**: ☁The Akatsuki✖ChopMusic☁ 
+**Artist**: Cloak Status 
 
-**Track**: POKLYPZ VS MOTAR [MOTAR WINS]
+**Track**: Skrillex & Bobby Raps - Leave Me Like This (Cloak Status Remix)
 
-Last updated at 01/21/2023 10:01
+Last updated at 01/21/2023 10:02
