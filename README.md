@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekZV1Vudg14Qy4Kt-cOyYtw-t500x500.jpg">](https://soundcloud.com/akatsuki-chopmusic/poklypz-vs-motar-vote-in-the-comments)
 
-**Artist**: sxlvr 
+**Artist**: ☁The Akatsuki✖ChopMusic☁ 
 
-**Track**: SPLURGE
+**Track**: POKLYPZ VS MOTAR [MOTAR WINS]
 
-Last updated at 01/20/2023 13:34
+Last updated at 01/21/2023 10:01
