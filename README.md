@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DV4dLaT1DTsKpfs3-MQfcvA-t500x500.jpg">](https://soundcloud.com/shnch4nbeats/going-on-spike)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUjFcasmX6LKM7zn-9zESCw-t500x500.jpg">](https://soundcloud.com/mcwhizzkid/whizzkid-a-class-sick-mix-recorded-live-at-metanoia-1119)
 
-**Artist**: $hnCh4n 
+**Artist**: MC Whizzkid 
 
-**Track**: Going On $pike
+**Track**: DJ Whizzkid - A Class Sick Mix ( Recorded Live At Metanoia 11/19 )
 
-Last updated at 01/21/2023 16:36
+Last updated at 01/21/2023 16:37
