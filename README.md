@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPA1BVuQeSUnGaN1-wyWpRg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-gay-drake-song-master?in=hydeparkhifi/sets/harddancesummer-va)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BUBjmxmAj3K9CJII-Cq4n2A-t500x500.jpg">](https://soundcloud.com/murderclubmusik/think-im-playing)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: MURDER CLUB 
 
-**Track**: NICKI MINAJ 2 - GAY DRAKE SONG
+**Track**: "THINK IM PLAYING?" LIVE AT PORTAL - MONTREAL [01/06/23] ★★★
 
-Last updated at 01/21/2023 10:25
+Last updated at 01/21/2023 10:26
