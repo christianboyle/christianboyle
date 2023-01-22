@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3OLIb9Wp6IQquu7H-KlyOzw-t500x500.jpg">](https://soundcloud.com/sean_westley/elton-john-britney-spears-hold-me-closer-sean-westley-art-winder-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DmG6i9bYBdxbL2Ga-JV26yA-t500x500.jpg">](https://soundcloud.com/nghtklub/worldwide-parameters)
 
-**Artist**: Sean Westley 
+**Artist**: NGHT KLUB 
 
-**Track**: Elton John, Britney Spears - Hold Me Closer (Sean Westley & Art Winder Remix) [FREE DOWNLOAD]
+**Track**: Worldwide Parameters
 
-Last updated at 01/22/2023 08:07
+Last updated at 01/22/2023 08:09
