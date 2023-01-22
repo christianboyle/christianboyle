@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVk3kwzFUBQPKhLy-hFqTFQ-t500x500.jpg">](https://soundcloud.com/jbhain/pinkpantheress-do-u-miss-me-jb-hain-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6ZaSvXTdYgmBdSf-IiHKng-t500x500.jpg">](https://soundcloud.com/simplifyrecs/scurler-never)
 
-**Artist**: JB Hain 
+**Artist**: Simplify. 
 
-**Track**: pinkpantheress - do you miss me? (jb hain flip)
+**Track**: Scurler - Never
 
-Last updated at 01/22/2023 17:54
+Last updated at 01/22/2023 17:55
