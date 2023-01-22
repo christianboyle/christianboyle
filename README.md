@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DmG6i9bYBdxbL2Ga-JV26yA-t500x500.jpg">](https://soundcloud.com/nghtklub/worldwide-parameters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
 
-**Artist**: NGHT KLUB 
+**Artist**: luca rain 
 
-**Track**: Worldwide Parameters
+**Track**: Just for Fun (w/Fatshaudi)
 
-Last updated at 01/22/2023 08:09
+Last updated at 01/22/2023 16:19
