@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUjFcasmX6LKM7zn-9zESCw-t500x500.jpg">](https://soundcloud.com/mcwhizzkid/whizzkid-a-class-sick-mix-recorded-live-at-metanoia-1119)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQ0ZLvPycZOYH3AX-GzyjZw-t500x500.jpg">](https://soundcloud.com/bassrush/mstic-fck-em-feat-oblue)
 
-**Artist**: MC Whizzkid 
+**Artist**: Bassrush 
 
-**Track**: DJ Whizzkid - A Class Sick Mix ( Recorded Live At Metanoia 11/19 )
+**Track**: M?STIC - F*CK EM (feat. OBLUE)
 
-Last updated at 01/21/2023 16:37
+Last updated at 01/22/2023 08:01
