@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32VOcUjz48DkzNz6-fucGhA-t500x500.jpg">](https://soundcloud.com/djgammer/ray-volpe-laserbeam-gammer-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
 
-**Artist**: Gammer 
+**Artist**: ETC! ETC! 
 
-**Track**: RAY VOLPE - LASERBEAM (GAMMER FLIP) (Free DL)
+**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
 
-Last updated at 01/22/2023 17:58
+Last updated at 01/22/2023 17:59
