@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7VYK8XJTHH88Bbd-wsbrgw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-022-dj-cheeze-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bE9FzzNzJhi41n6-7ESQKg-t500x500.jpg">](https://soundcloud.com/ezkill715/lovin-you-up)
 
-**Artist**: Sopranos Bounce 
+**Artist**: EzKill 
 
-**Track**: Sopranos Podcast 022 - DJ Cheeze & Rave Trax
+**Track**: Lovin You Up
 
-Last updated at 01/22/2023 19:14
+Last updated at 01/22/2023 19:19
