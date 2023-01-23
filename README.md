@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000544088184-55n68g-t500x500.jpg">](https://soundcloud.com/dogblood/dog-blood-kokoe-with-otira?in=dogblood/sets/dog-blood-totl-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faKKQHfMtJzeZhCU-kiyfNw-t500x500.jpg">](https://soundcloud.com/user-740793613/wasted-hvken-x-murkish-juice-wrldslowed)
 
-**Artist**: dogblood 
+**Artist**: clueless 
 
-**Track**: Dog Blood with Otira - KOKOE
+**Track**: wasted - hvken x murkish (juice wrld)*SLOWED*
 
-Last updated at 01/22/2023 18:05
+Last updated at 01/22/2023 19:11
