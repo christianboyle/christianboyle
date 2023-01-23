@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBdTF4yVEljj5WPO-fhJAjA-t500x500.jpg">](https://soundcloud.com/etc-etc/ray-volpe-laserbeam-etcetc-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIrPAKGVPTMOGSLd-mjw30w-t500x500.jpg">](https://soundcloud.com/robinroij/wrecking-ball-robin-roij-remix)
 
-**Artist**: ETC! ETC! 
+**Artist**: Robin Roij 
 
-**Track**: Ray Volpe - Laserbeam (ETC!ETC! Remix)
+**Track**: Miley Cyrus - Wrecking Ball (Robin Roij Remix)
 
-Last updated at 01/22/2023 17:59
+Last updated at 01/22/2023 18:02
