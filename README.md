@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7VYK8XJTHH88Bbd-wsbrgw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-022-dj-cheeze-rave-trax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
 
-**Artist**: Sopranos Bounce 
+**Artist**: luca rain 
 
-**Track**: Sopranos Podcast 022 - DJ Cheeze & Rave Trax
+**Track**: Just for Fun (w/Fatshaudi)
 
-Last updated at 01/22/2023 20:33
+Last updated at 01/22/2023 20:45
