@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1fO8PLz9N6FS4Pf-hrfYVw-t500x500.jpg">](https://soundcloud.com/thefinesttechno/free-download-nicki-minaj-anaconda-1441-remix-tft024gt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gnh3zcm3DbumwMtl-p5qEQA-t500x500.jpg">](https://soundcloud.com/joncasey/hamdi-yum-jon-casey-edit)
 
-**Artist**: The Finest Techno 
+**Artist**: Jon Casey 
 
-**Track**: FREE DOWNLOAD: Nicki Minaj - Anaconda (1441 Remix) [TFT024GT]
+**Track**: Hamdi - Yum (Jon Casey Edit)
 
-Last updated at 01/24/2023 12:31
+Last updated at 01/24/2023 12:32
