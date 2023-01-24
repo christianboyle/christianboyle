@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LlBAyfD5TMej-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-ft-drean-your-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EQl6Yhz7Niv87Ez3-7kdGyQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/avi8-by-your-side-dwx-copyright-free)
 
-**Artist**: Gearbox Digital 
+**Artist**: Dirty Workz 
 
-**Track**: Avi8 ft. Drean - Your Light
+**Track**: Avi8 - By Your Side (DWX Copyright Free)
 
-Last updated at 01/24/2023 16:45
+Last updated at 01/24/2023 16:47
