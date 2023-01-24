@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-94-on-beat-106-scotland-with-deckheadz-malevolent-200123)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ZSc8sBBFxLSZyll-WPkCmQ-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-bxtr-assembled-screwed)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: RAW 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: Premiere: BXTR - Assembled & Screwed [MPR002]
 
-Last updated at 01/23/2023 08:18
+Last updated at 01/24/2023 10:24
