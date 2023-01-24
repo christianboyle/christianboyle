@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6hXg9p0N4a4Q0IW-QQkdzA-t500x500.jpg">](https://soundcloud.com/scantraxx/kronos-adaro-up-2-no-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
 
-**Artist**: Scantraxx 
+**Artist**: sxlvr 
 
-**Track**: Kronos & Adaro - Up 2 No Good
+**Track**: SPLURGE
 
-Last updated at 01/24/2023 16:48
+Last updated at 01/24/2023 16:49
