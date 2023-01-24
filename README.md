@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T9VlvEMIyNSMbnxM-gX5tgQ-t500x500.jpg">](https://soundcloud.com/inspektor_wah/cosa-nostra-efn-open-tekk-stendal?in=hakke-mic/sets/aug21)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Inspektor - WAH 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: Cosa Nostra @ OPEN TEKK STENDAL
 
-Last updated at 01/24/2023 14:14
+Last updated at 01/24/2023 14:15
