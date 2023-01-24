@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz3EFzHp3kkv8pen-yw0gvQ-t500x500.jpg">](https://soundcloud.com/controlfreakus/nofortune-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jyWcZlhiYREKSup-FLHjTA-t500x500.jpg">](https://soundcloud.com/galoski/power)
 
-**Artist**: Control Freak 
+**Artist**: Galoski 
 
-**Track**: NOFORTUNE. mix
+**Track**: Galoski - Power
 
-Last updated at 01/24/2023 16:57
+Last updated at 01/24/2023 16:58
