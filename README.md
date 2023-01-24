@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6hXg9p0N4a4Q0IW-QQkdzA-t500x500.jpg">](https://soundcloud.com/scantraxx/kronos-adaro-up-2-no-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnjhNzsh1cKgWl6H-NPzLWA-t500x500.jpg">](https://soundcloud.com/scantraxx/scabtik-lyrical-nameless)
 
 **Artist**: Scantraxx 
 
-**Track**: Kronos & Adaro - Up 2 No Good
+**Track**: Scabtik & Lyrical - Nameless
 
-Last updated at 01/24/2023 16:52
+Last updated at 01/24/2023 16:53
