@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3Omo3Tyhbcxgbgy-nFa3mg-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/ephoric-ilitsya-bring-back-the-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0fdUhpmz0Dzfog7-ZkqZLQ-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gbe130)
 
-**Artist**: Dutch Master Works 
+**Artist**: Gearbox Digital 
 
-**Track**: Ephoric & ILITSYA - Bring Back The Light
+**Track**: Avi8 - Outta My Head [GBE130]
 
-Last updated at 01/24/2023 14:18
+Last updated at 01/24/2023 14:20
