@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfkxOwvMKvysbeom-kR1KTg-t500x500.jpg">](https://soundcloud.com/runitt/run-itt-fade-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz3EFzHp3kkv8pen-yw0gvQ-t500x500.jpg">](https://soundcloud.com/controlfreakus/nofortune-mix)
 
-**Artist**: RUN ITT 
+**Artist**: Control Freak 
 
-**Track**: RUN ITT - Fade Away
+**Track**: NOFORTUNE. mix
 
-Last updated at 01/24/2023 16:56
+Last updated at 01/24/2023 16:57
