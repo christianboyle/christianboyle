@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rl1r2gDbQkl1R042-K7ujUw-t500x500.jpg">](https://soundcloud.com/scantraxx/keltek-oblivion-kronos-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfkxOwvMKvysbeom-kR1KTg-t500x500.jpg">](https://soundcloud.com/runitt/run-itt-fade-away)
 
-**Artist**: Scantraxx 
+**Artist**: RUN ITT 
 
-**Track**: KELTEK - Oblivion (Kronos Remix)
+**Track**: RUN ITT - Fade Away
 
-Last updated at 01/24/2023 16:55
+Last updated at 01/24/2023 16:56
