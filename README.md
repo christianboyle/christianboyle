@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQgI9B7wLxuR-0-t500x500.png">](https://soundcloud.com/datweekaz/trash-the-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AxnpQlWlFphpMgqz-PMtI7g-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/ephoric-how-i-like)
 
-**Artist**: Da Tweekaz 
+**Artist**: Dutch Master Works 
 
-**Track**: Trash The Party
+**Track**: Ephoric - How I Like
 
-Last updated at 01/24/2023 14:16
+Last updated at 01/24/2023 14:17
