@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TA5YqPtf15We8P1g-RUVoBA-t500x500.jpg">](https://soundcloud.com/brailled/brailled-grxgvr-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnAgKfSsE7FWZBlJ-gzxGIQ-t500x500.jpg">](https://soundcloud.com/longjawns/bannedv1)
 
-**Artist**: BRAILLED 
+**Artist**: JAWNS 
 
-**Track**: BRAILLED: GRXGVR 2023
+**Track**: Banned On The Radio Vol. 1
 
-Last updated at 01/24/2023 12:33
+Last updated at 01/24/2023 12:34
