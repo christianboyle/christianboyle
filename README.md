@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6hXg9p0N4a4Q0IW-QQkdzA-t500x500.jpg">](https://soundcloud.com/scantraxx/kronos-adaro-up-2-no-good)
 
-**Artist**: Luca Rain 
+**Artist**: Scantraxx 
 
-**Track**: Just for Fun (w/Fatshaudi)
+**Track**: Kronos & Adaro - Up 2 No Good
 
-Last updated at 01/24/2023 16:51
+Last updated at 01/24/2023 16:52
