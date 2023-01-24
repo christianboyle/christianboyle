@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gnh3zcm3DbumwMtl-p5qEQA-t500x500.jpg">](https://soundcloud.com/joncasey/hamdi-yum-jon-casey-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TA5YqPtf15We8P1g-RUVoBA-t500x500.jpg">](https://soundcloud.com/brailled/brailled-grxgvr-2023)
 
-**Artist**: Jon Casey 
+**Artist**: BRAILLED 
 
-**Track**: Hamdi - Yum (Jon Casey Edit)
+**Track**: BRAILLED: GRXGVR 2023
 
-Last updated at 01/24/2023 12:32
+Last updated at 01/24/2023 12:33
