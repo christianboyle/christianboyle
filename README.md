@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8t8FL9i4726Qw4zr-ulWpmw-t500x500.jpg">](https://soundcloud.com/daggz/equanimous-stoik-the-crest-daggz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1fO8PLz9N6FS4Pf-hrfYVw-t500x500.jpg">](https://soundcloud.com/thefinesttechno/free-download-nicki-minaj-anaconda-1441-remix-tft024gt)
 
-**Artist**: DAGGZ 
+**Artist**: The Finest Techno 
 
-**Track**: Equanimous & Stoik - The Crest (Daggz Remix)
+**Track**: FREE DOWNLOAD: Nicki Minaj - Anaconda (1441 Remix) [TFT024GT]
 
-Last updated at 01/24/2023 10:25
+Last updated at 01/24/2023 12:31
