@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
 
-**Artist**: sxlvr 
+**Artist**: Luca Rain 
 
-**Track**: SPLURGE
+**Track**: Just for Fun (w/Fatshaudi)
 
-Last updated at 01/24/2023 16:49
+Last updated at 01/24/2023 16:51
