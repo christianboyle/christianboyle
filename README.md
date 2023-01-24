@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnAgKfSsE7FWZBlJ-gzxGIQ-t500x500.jpg">](https://soundcloud.com/longjawns/bannedv1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
 
-**Artist**: JAWNS 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Banned On The Radio Vol. 1
+**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
 
-Last updated at 01/24/2023 12:34
+Last updated at 01/24/2023 12:37
