@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdvlrBX1P0DVAHte-KcB8WA-t500x500.jpg">](https://soundcloud.com/szgmusic/szggustavsg6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5PmLyrDCTVIQWH1-N3rHvA-t500x500.jpg">](https://soundcloud.com/sxlvr/splurge)
 
-**Artist**: SZG 
+**Artist**: sxlvr 
 
-**Track**: SZG & Gustav:s - G6
+**Track**: SPLURGE
 
-Last updated at 01/25/2023 10:27
+Last updated at 01/25/2023 10:28
