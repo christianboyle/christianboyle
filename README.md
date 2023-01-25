@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvPUUei1F2Vhoxns-1bAT7w-t500x500.jpg">](https://soundcloud.com/icelashes/driveaway?in=icelashes/sets/nxc-tools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JeQaiaYhKorBNvsN-KKAMXg-t500x500.jpg">](https://soundcloud.com/icelashes/i-think-i-found-you?in=icelashes/sets/nxc-tools)
 
 **Artist**: icelashes 
 
-**Track**: DRIVEAWAY
+**Track**: I THINK I FOUND YOU
 
-Last updated at 01/25/2023 14:13
+Last updated at 01/25/2023 14:16
