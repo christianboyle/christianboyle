@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6hXg9p0N4a4Q0IW-QQkdzA-t500x500.jpg">](https://soundcloud.com/scantraxx/kronos-adaro-up-2-no-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
 
-**Artist**: Scantraxx 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Kronos & Adaro - Up 2 No Good
+**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
 
-Last updated at 01/25/2023 09:38
+Last updated at 01/25/2023 09:40
