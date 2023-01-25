@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdvlrBX1P0DVAHte-KcB8WA-t500x500.jpg">](https://soundcloud.com/szgmusic/szggustavsg6)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: SZG 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: SZG & Gustav:s - G6
 
-Last updated at 01/25/2023 09:40
+Last updated at 01/25/2023 10:27
