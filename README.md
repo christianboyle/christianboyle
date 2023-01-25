@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyIxekqjwxGGod3l-fXMjYg-t500x500.jpg">](https://soundcloud.com/icelashes/into-ur-quicksand?in=icelashes/sets/nxc-tools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OFKoQoxZWay5c1s-h0UQyA-t500x500.jpg">](https://soundcloud.com/icelashes/upupup?in=icelashes/sets/nxc-tools)
 
 **Artist**: icelashes 
 
-**Track**: INTO UR QUICKSAND
+**Track**: UPUPUP!
 
-Last updated at 01/25/2023 14:08
+Last updated at 01/25/2023 14:10
