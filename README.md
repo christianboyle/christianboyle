@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vcd25Y0CoUazLZDt-YIE7YA-t500x500.jpg">](https://soundcloud.com/imkelbin/daphni-cloudy-kelbin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x3vB5R9A7QJwY8H2-FmMltg-t500x500.jpg">](https://soundcloud.com/jadudala/nointernet)
 
-**Artist**: Kelbin 
+**Artist**: Jadū Dala 
 
-**Track**: Daphni - Cloudy (Kelbin Remix)
+**Track**: eugene - no internet (JADŪ201)
 
-Last updated at 01/26/2023 14:06
+Last updated at 01/26/2023 15:58
