@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sy5GIVGIZrMXKNMe-GRMu4Q-t500x500.jpg">](https://soundcloud.com/dmonskull/what-did-i-do-wrong-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEAKkb9OONugQz22-6RziOw-t500x500.jpg">](https://soundcloud.com/rudeservice/blaize-flip-flops)
 
-**Artist**: DMONSKULL 
+**Artist**: Rude Service 
 
-**Track**: WHAT DID I DO WRONG
+**Track**: Blaize - Flip Flops
 
-Last updated at 01/26/2023 16:01
+Last updated at 01/26/2023 16:02
