@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5mw3BJEzD3TkdwOO-ZIVvYA-t500x500.jpg">](https://soundcloud.com/davidyess/yess-civilized)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GxV8tYzj4aviveci-AtEaxg-t500x500.jpg">](https://soundcloud.com/ayyofree/mr-deck-fire-flight?in=ayyofree/sets/mr-deck-fire-flight)
 
-**Artist**: YE$ 
+**Artist**: AY YO TRIP! 
 
-**Track**: CIVILIZED (FREE DL)
+**Track**: Mr. Deck - Fire Flight
 
-Last updated at 01/26/2023 08:28
+Last updated at 01/26/2023 08:30
