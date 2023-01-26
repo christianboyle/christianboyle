@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x3vB5R9A7QJwY8H2-FmMltg-t500x500.jpg">](https://soundcloud.com/jadudala/nointernet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nv6vY7wjVzqm5VX6-VyZXHg-t500x500.jpg">](https://soundcloud.com/objectivecollective/velvet-niave)
 
-**Artist**: Jadū Dala 
+**Artist**: Objective Audio 
 
-**Track**: eugene - no internet (JADŪ201)
+**Track**: Velvet - Naive
 
-Last updated at 01/26/2023 15:58
+Last updated at 01/26/2023 15:59
