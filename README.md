@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0U15rTbFwTxiMsi-4l5msA-t500x500.jpg">](https://soundcloud.com/gangstahouserec/shelby-wayne-funky-land?in=gangstahouserec/sets/shelby-wayne-funky-land)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5mw3BJEzD3TkdwOO-ZIVvYA-t500x500.jpg">](https://soundcloud.com/davidyess/yess-civilized)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: YE$ 
 
-**Track**: Shelby Wayne - Funky Land
+**Track**: CIVILIZED (FREE DL)
 
-Last updated at 01/26/2023 08:26
+Last updated at 01/26/2023 08:28
