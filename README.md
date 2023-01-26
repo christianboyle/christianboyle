@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JElc8n32rxUIAhjp-VKi7Yw-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/yung-pinch-perfect-thred-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3FQhl82iFwW7Qam-ntY2kQ-t500x500.jpg">](https://soundcloud.com/rachelvegadj/rachel-vega-superstar)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: Rachel Vega 
 
-**Track**: Yung Pinch - Perfect (Thred Remix)
+**Track**: Superstar - Free Download
 
-Last updated at 01/26/2023 08:31
+Last updated at 01/26/2023 08:32
