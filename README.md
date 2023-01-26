@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nv6vY7wjVzqm5VX6-VyZXHg-t500x500.jpg">](https://soundcloud.com/objectivecollective/velvet-niave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pg7gBllGvy81WBMU-oCQ0Qg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/wyld-psycho-remix)
 
-**Artist**: Objective Audio 
+**Artist**: scarreddigital 
 
-**Track**: Velvet - Naive
+**Track**: SDF023 Wyld - Psycho DNB booty FREE DOWNLOAD
 
-Last updated at 01/26/2023 15:59
+Last updated at 01/26/2023 16:00
