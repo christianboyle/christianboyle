@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faGFw4yxnt3bveFZ-gfBENA-t500x500.jpg">](https://soundcloud.com/nickstevanson14/lil-nas-x-star-walkin-nick-stevanson-remix-league-of-legends-worlds-anthem-extended-1)
 
-**Artist**: Ben Nicky 
+**Artist**: Nick Stevanson 
 
-**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
+**Track**: Lil Nas X - Star Walkin' (Nick Stevanson Remix)
 
-Last updated at 01/27/2023 13:39
+Last updated at 01/27/2023 15:55
