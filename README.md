@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fC2ZVwyvR8nP2II3-zdpLZA-t500x500.jpg">](https://soundcloud.com/evalutionmusic/buss-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLdy1yEzDoBYrq5X-lXkyjw-t500x500.jpg">](https://soundcloud.com/telykast/broadkast1)
 
-**Artist**: EVALUTION 
+**Artist**: TELYKast 
 
-**Track**: BUSS IT
+**Track**: BROADKAST - Mix 01
 
-Last updated at 01/27/2023 17:44
+Last updated at 01/27/2023 17:46
