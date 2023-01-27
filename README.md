@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLdy1yEzDoBYrq5X-lXkyjw-t500x500.jpg">](https://soundcloud.com/telykast/broadkast1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gyvh0D6rxjJ5pbuV-lGT44A-t500x500.jpg">](https://soundcloud.com/prodlenny/secret)
 
-**Artist**: TELYKast 
+**Artist**: Lenny 
 
-**Track**: BROADKAST - Mix 01
+**Track**: Secret
 
-Last updated at 01/27/2023 16:00
+Last updated at 01/27/2023 17:42
