@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8H3GbkCwGYzThPS-5HZddQ-t500x500.jpg">](https://soundcloud.com/akemiogrey/lobsta-b-dreamphase-mix)
 
-**Artist**: BXTR 
+**Artist**: Akemiö Grey 
 
-**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
+**Track**: Dreamphase Mixtape 43: LOBSTA B
 
-Last updated at 01/27/2023 09:59
+Last updated at 01/27/2023 10:07
