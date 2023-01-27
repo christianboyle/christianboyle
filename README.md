@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBiY244j0A5GyJYs-Gv7hRA-t500x500.jpg">](https://soundcloud.com/rough-records316/scafetta-x-father-mercy-witchcraft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLdy1yEzDoBYrq5X-lXkyjw-t500x500.jpg">](https://soundcloud.com/telykast/broadkast1)
 
-**Artist**: Rough Records 
+**Artist**: TELYKast 
 
-**Track**: SCAFETTA X FATHER MERCY - WITCHCRAFT
+**Track**: BROADKAST - Mix 01
 
-Last updated at 01/27/2023 15:58
+Last updated at 01/27/2023 16:00
