@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000501897486-5ljo0p-t500x500.jpg">](https://soundcloud.com/dj-iyf/n-trance-set-you-free-the-watchmen-vs-slay-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-clG5HvIEZfZ0I0Uu-VSfQvA-t500x500.jpg">](https://soundcloud.com/oneseventy/marlo-x-matrick-x-sendr-x-nohc-this-way-technikore-x-suae-remix)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: OneSeventy 
 
-**Track**: N - Trance - Set You Free (The Watchmen Vs Slay Remix) Radio Edit
+**Track**: MaRLo x MatricK x Sendr x NOHC - This Way (Technikore x Suae Remix)
 
-Last updated at 01/27/2023 11:07
+Last updated at 01/27/2023 11:12
