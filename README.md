@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-clG5HvIEZfZ0I0Uu-VSfQvA-t500x500.jpg">](https://soundcloud.com/oneseventy/marlo-x-matrick-x-sendr-x-nohc-this-way-technikore-x-suae-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqFU6YbK5GXJTzCs-dyHh0g-t500x500.jpg">](https://soundcloud.com/nctnetwork/brekk-ft-jenny-tormey-palm-trees)
 
-**Artist**: OneSeventy 
+**Artist**: Nu elect Records 
 
-**Track**: MaRLo x MatricK x Sendr x NOHC - This Way (Technikore x Suae Remix)
+**Track**: Brekk ft. Jenny Tormey - Palm Trees
 
-Last updated at 01/27/2023 11:12
+Last updated at 01/27/2023 11:16
