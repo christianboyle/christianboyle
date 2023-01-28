@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwdDe2mWOi2kgUD1-mYLklQ-t500x500.jpg">](https://soundcloud.com/osiasmusic/nightmares-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
 
-**Artist**: OSIAS (@osiasmusic) 
+**Artist**: Ben Nicky 
 
-**Track**: NIGHTMARES
+**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
 
-Last updated at 01/28/2023 12:18
+Last updated at 01/28/2023 17:25
