@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLdy1yEzDoBYrq5X-lXkyjw-t500x500.jpg">](https://soundcloud.com/telykast/broadkast1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
 
-**Artist**: TELYKast 
+**Artist**: Ben Nicky 
 
-**Track**: BROADKAST - Mix 01
+**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
 
-Last updated at 01/27/2023 17:46
+Last updated at 01/27/2023 18:33
