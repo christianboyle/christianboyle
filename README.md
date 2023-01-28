@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK1pUfBUBX1JP0Hs-stKlKA-t500x500.jpg">](https://soundcloud.com/groove-control/sub-focus-dimension-ready-to-fly-groove-control-dj-rome-hard-dance-edit-soundcloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwdDe2mWOi2kgUD1-mYLklQ-t500x500.jpg">](https://soundcloud.com/osiasmusic/nightmares-1)
 
-**Artist**: Groove Control 
+**Artist**: OSIAS (@osiasmusic) 
 
-**Track**: Sub Focus, Dimension - Ready To Fly (Groove Control & DJ Rome 'Hard Dance' Edit)
+**Track**: NIGHTMARES
 
-Last updated at 01/28/2023 12:17
+Last updated at 01/28/2023 12:18
