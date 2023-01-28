@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK1pUfBUBX1JP0Hs-stKlKA-t500x500.jpg">](https://soundcloud.com/groove-control/sub-focus-dimension-ready-to-fly-groove-control-dj-rome-hard-dance-edit-soundcloud)
 
-**Artist**: Ben Nicky 
+**Artist**: Groove Control 
 
-**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
+**Track**: Sub Focus, Dimension - Ready To Fly (Groove Control & DJ Rome 'Hard Dance' Edit)
 
-Last updated at 01/27/2023 18:33
+Last updated at 01/28/2023 12:17
