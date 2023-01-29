@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: luca rain 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: Just for Fun (w/Fatshaudi)
 
-Last updated at 01/29/2023 16:38
+Last updated at 01/29/2023 17:47
