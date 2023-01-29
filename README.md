@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8wZk9snFIG6Szm2M-y3MhKg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/gettinhott?in=nightmoderecs/sets/room202ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-efJxM502pMgB52pe-h6eWbg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/psyopticexperiment8?in=psyopticmusic/sets/experiment8)
 
-**Artist**: NIGHTMODE 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Knock2 - Gettin' Hott
+**Track**: Psyoptic - Experiment 8
 
-Last updated at 01/29/2023 08:44
+Last updated at 01/29/2023 08:45
