@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T88VgUqSp5bRpC9o-htVZMw-t500x500.jpg">](https://soundcloud.com/sultanshepard/dialekt-radio-162)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IDfNzbzzlbjkJTaJ-QhvhfA-t500x500.jpg">](https://soundcloud.com/baceface/come-with-me-and-ride)
 
-**Artist**: Sultan + Shepard 
+**Artist**: BACEFACE™ 
 
-**Track**: DIALEKT RADIO #162
+**Track**: Baceface x Frankie Waterz  - Come With Me And Ride
 
-Last updated at 01/29/2023 15:06
+Last updated at 01/29/2023 16:37
