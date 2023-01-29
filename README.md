@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqYyoE7d0WmDzKyN-P7M9LA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/charly-lownoise-re-style-magro-ft-diede-love-desire-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Blulh6Dhyh2KTMWx-Hp82Gg-t500x500.jpg">](https://soundcloud.com/saywordofficial/say-word-shake-sum)
 
-**Artist**: Dirty Workz 
+**Artist**: Say Word 
 
-**Track**: Charly Lownoise & Re-Style & Magro Ft Diede - Love & Desire (Electric Fox)
+**Track**: Say Word - Shake Sum
 
-Last updated at 01/29/2023 11:36
+Last updated at 01/29/2023 11:57
