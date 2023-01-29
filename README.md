@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wm9BYQbbt8hFQNnq-MX0iyw-t500x500.jpg">](https://soundcloud.com/stubo-house/ciera-goodies-stubo-remix-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8wZk9snFIG6Szm2M-y3MhKg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/gettinhott?in=nightmoderecs/sets/room202ep)
 
-**Artist**: Stubo 
+**Artist**: NIGHTMODE 
 
-**Track**: Ciara - Goodies (Stubo Remix)
+**Track**: Knock2 - Gettin' Hott
 
-Last updated at 01/29/2023 08:43
+Last updated at 01/29/2023 08:44
