@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-efJxM502pMgB52pe-h6eWbg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/psyopticexperiment8?in=psyopticmusic/sets/experiment8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqYyoE7d0WmDzKyN-P7M9LA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/charly-lownoise-re-style-magro-ft-diede-love-desire-electric-fox)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Dirty Workz 
 
-**Track**: Psyoptic - Experiment 8
+**Track**: Charly Lownoise & Re-Style & Magro Ft Diede - Love & Desire (Electric Fox)
 
-Last updated at 01/29/2023 08:45
+Last updated at 01/29/2023 11:36
