@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Blulh6Dhyh2KTMWx-Hp82Gg-t500x500.jpg">](https://soundcloud.com/saywordofficial/say-word-shake-sum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caXpgqHehkSxxlUw-jDa7qA-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-atlantis-with-justin-j-moore)
 
-**Artist**: Say Word 
+**Artist**: Future Generation 
 
-**Track**: Say Word - Shake Sum
+**Track**: Arcando - Atlantis (with Justin J. Moore)
 
-Last updated at 01/29/2023 11:57
+Last updated at 01/29/2023 11:59
