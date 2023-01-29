@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPA1BVuQeSUnGaN1-wyWpRg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/carm3lldans3n-carm3lla-girls-julian-tonkin-revenge-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6ZaSvXTdYgmBdSf-IiHKng-t500x500.jpg">](https://soundcloud.com/simplifyrecs/scurler-never)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Simplify. 
 
-**Track**: JULIAN TONKIN - K3WPI3_TOLD_ME_TO_MAKE_THIS
+**Track**: Scurler - Never
 
-Last updated at 01/29/2023 17:50
+Last updated at 01/29/2023 17:53
