@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JVTQP8BIFk5Hvzb5-UlaWdA-t500x500.jpg">](https://soundcloud.com/davormusic/davor-live-metro-city-perth)
 
-**Artist**: Ben Nicky 
+**Artist**: DAVOR 
 
-**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
+**Track**: DAVOR LIVE @ Metro City, Perth (20.08.2022)
 
-Last updated at 01/28/2023 17:25
+Last updated at 01/28/2023 20:43
