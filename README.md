@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IDfNzbzzlbjkJTaJ-QhvhfA-t500x500.jpg">](https://soundcloud.com/baceface/come-with-me-and-ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
 
-**Artist**: BACEFACE™ 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Baceface x Frankie Waterz  - Come With Me And Ride
+**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
 
-Last updated at 01/29/2023 16:37
+Last updated at 01/29/2023 16:38
