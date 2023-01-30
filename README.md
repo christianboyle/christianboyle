@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzm0SumhhB3iooy2-TT1s6w-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-addict-kinn-remix-free-download)
 
-**Artist**: S3RL 
+**Artist**: KINN 
 
-**Track**: S3RL Penultimately Presents...
+**Track**: S3RL - ADDICT (KINN Remix) **FREE DOWNLOAD**
 
-Last updated at 01/30/2023 00:20
+Last updated at 01/30/2023 01:46
