@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XyUyQTJyzma12ynz-yTBH0g-t500x500.jpg">](https://soundcloud.com/itsamagii/fred-again-turn-on-the-lights-again-feat-future-amagii-remix1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6N3uO24IftW457M-k6DN9w-t500x500.jpg">](https://soundcloud.com/dltzk/obsessed)
 
-**Artist**: AMAGII 
+**Artist**: ⓸ 
 
-**Track**: Fred Again.. x Swedish House Mafia - Turn On The Lights Again.. (feat. Future) [AMAGII REMIX]
+**Track**: OBSESSED POST-FRAILTY EXTENDED MIX
 
-Last updated at 01/30/2023 07:10
+Last updated at 01/30/2023 07:15
