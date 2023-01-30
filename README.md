@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tA4OtNbzB6u9XS6k-O8hBrQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/slow-motion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NFQjCdcsCdB5jzUT-RJgpgg-t500x500.jpg">](https://soundcloud.com/dj-simox/simox-the-reverse-universe-original-mix)
 
-**Artist**: Quickdrop 
+**Artist**: SIMOX - Smx 
 
-**Track**: Slow Motion
+**Track**: Simox - The Reverse Universe (Original Mix)
 
-Last updated at 01/29/2023 23:58
+Last updated at 01/30/2023 00:01
