@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KuHAgEIGFpFhD8Sc-8hHGgw-t500x500.jpg">](https://soundcloud.com/airkazi/ruinmylife3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
 
-**Artist**: Kazi 
+**Artist**: Sopranos Bounce 
 
-**Track**: ruin my life
+**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
 
-Last updated at 01/30/2023 07:33
+Last updated at 01/30/2023 07:36
