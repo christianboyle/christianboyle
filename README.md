@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WhR2ua7tYeVcz60j-HCL3UA-t500x500.jpg">](https://soundcloud.com/rvfvelbeats/inertia-full-stream)
 
-**Artist**: Kevala 
+**Artist**: RVFVEL 
 
-**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
+**Track**: INERTIA (Full Stream)
 
-Last updated at 01/30/2023 05:07
+Last updated at 01/30/2023 05:12
