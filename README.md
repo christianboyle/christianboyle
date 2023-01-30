@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThAMXlvhr4IQmQEd-RnMWlg-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-nostalgic-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
 
-**Artist**: KINN 
+**Artist**: Truth x Lies Goodies 
 
-**Track**: S3RL - Nostalgic (KINN Remix) **Free Download**
+**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
 
-Last updated at 01/30/2023 06:52
+Last updated at 01/30/2023 06:59
