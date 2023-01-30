@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DwvnZmLAkzGmzAq9-DrvDAQ-t500x500.jpg">](https://soundcloud.com/officialcelo/murdah-celo-moshca-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8H3GbkCwGYzThPS-5HZddQ-t500x500.jpg">](https://soundcloud.com/akemiogrey/lobsta-b-dreamphase-mix)
 
-**Artist**: CELO 
+**Artist**: Akemiö Grey 
 
-**Track**: KNOCK2 - MURDAH (CELO & MO$HCA REMIX)
+**Track**: Dreamphase Mixtape 43: LOBSTA B
 
-Last updated at 01/30/2023 02:05
+Last updated at 01/30/2023 02:07
