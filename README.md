@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0XxLlBsCYjl1zkD-Xx96IA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-fred-again-flowdan-rumble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: Skrillex 
+**Artist**: S3RL 
 
-**Track**: Skrillex, Fred again.. & Flowdan - Rumble
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 01/30/2023 00:18
+Last updated at 01/30/2023 00:20
