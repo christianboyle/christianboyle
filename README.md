@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fBXof93KkLuD-0-t500x500.jpg">](https://soundcloud.com/steveaoki/you-dont-get-to-hate-me-ft)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: Steve Aoki 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: You Don't Get To Hate Me ft. Goody Grace (Gammer Remix)
 
-Last updated at 01/30/2023 06:59
+Last updated at 01/30/2023 07:04
