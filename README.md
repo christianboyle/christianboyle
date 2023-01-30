@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6N3uO24IftW457M-k6DN9w-t500x500.jpg">](https://soundcloud.com/dltzk/obsessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qzMy4mZDqpMBhlE-mK4kmA-t500x500.jpg">](https://soundcloud.com/airkazi/real-ones)
 
-**Artist**: ⓸ 
+**Artist**: Kazi 
 
-**Track**: OBSESSED POST-FRAILTY EXTENDED MIX
+**Track**: real ones
 
-Last updated at 01/30/2023 07:15
+Last updated at 01/30/2023 07:32
