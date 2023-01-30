@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lb6D79uZuAN4-0-t500x500.png">](https://soundcloud.com/hartshorn303/wind-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vkYDweIDdE3yMsBA-2hUFpA-t500x500.jpg">](https://soundcloud.com/lowlypalace/william-black-haven-feat-dia-frampton-gammer-remix)
 
-**Artist**: Hartshorn 
+**Artist**: Lowly. 
 
-**Track**: Wind Me Up
+**Track**: William Black - Haven (feat. Dia Frampton) (Gammer Remix)
 
-Last updated at 01/30/2023 01:51
+Last updated at 01/30/2023 01:55
