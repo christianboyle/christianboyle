@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000429283386-9ykd3o-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/agen-wida-m-project-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdvlrBX1P0DVAHte-KcB8WA-t500x500.jpg">](https://soundcloud.com/szgmusic/szggustavsg6)
 
-**Artist**: M-Project 
+**Artist**: SZG 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (M-Project Flip) (Free DL)
+**Track**: SZG & Gustav:s - G6
 
-Last updated at 01/29/2023 19:23
+Last updated at 01/29/2023 19:26
