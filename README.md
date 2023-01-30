@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zynUfTGKbnKoWkvT-TcsXaw-t500x500.jpg">](https://soundcloud.com/baxterprod/lil-peep-witchblades-bxtr-cyber-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0XxLlBsCYjl1zkD-Xx96IA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-fred-again-flowdan-rumble)
 
-**Artist**: BXTR 
+**Artist**: Skrillex 
 
-**Track**: Lil Peep - Witchblades (BXTR Cyber Trance Edit)
+**Track**: Skrillex, Fred again.. & Flowdan - Rumble
 
-Last updated at 01/30/2023 00:13
+Last updated at 01/30/2023 00:18
