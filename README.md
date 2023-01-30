@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdvlrBX1P0DVAHte-KcB8WA-t500x500.jpg">](https://soundcloud.com/szgmusic/szggustavsg6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIrPAKGVPTMOGSLd-mjw30w-t500x500.jpg">](https://soundcloud.com/robinroij/wrecking-ball-robin-roij-remix)
 
-**Artist**: SZG 
+**Artist**: Robin Roij 
 
-**Track**: SZG & Gustav:s - G6
+**Track**: Miley Cyrus - Wrecking Ball (Robin Roij Remix)
 
-Last updated at 01/29/2023 19:26
+Last updated at 01/29/2023 19:31
