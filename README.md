@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vkYDweIDdE3yMsBA-2hUFpA-t500x500.jpg">](https://soundcloud.com/lowlypalace/william-black-haven-feat-dia-frampton-gammer-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eje5TQDQBfrTyDGV-yNPypQ-t500x500.jpg">](https://soundcloud.com/gaszia/coolwthat)
 
-**Artist**: Lowly. 
+**Artist**: Gaszia 
 
-**Track**: William Black - Haven (feat. Dia Frampton) (Gammer Remix)
+**Track**: T-Pain - Cool With That (Gaszia Edit)
 
-Last updated at 01/30/2023 01:55
+Last updated at 01/30/2023 01:59
