@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzFjfg6J1rXBIQAY-vpBU8Q-t500x500.jpg">](https://soundcloud.com/onarymusic/discostick-free-download-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8rIMcHCdNWVHi61-yGO2MA-t500x500.jpg">](https://soundcloud.com/kevalamusic/lane-8-brightest-lights-ft-polica-kevala-remix)
 
-**Artist**: ONARY 
+**Artist**: Kevala 
 
-**Track**: Discostick [ FREE DOWNLOAD ] [ DJ TOOL ]
+**Track**: Lane 8 - Brightest Lights ft. Poliça (Kevala Remix)
 
-Last updated at 01/30/2023 05:03
+Last updated at 01/30/2023 05:07
