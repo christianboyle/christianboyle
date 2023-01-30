@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G68aYKMFHjM0mYWo-cJk4fg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/sopranos-podcast-021-dj-cheeze-hartshorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4yKyN0e322FfemF-zZ2b5w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-95-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-95-on-beat-106-scotland-with-marc-smith-rob-da-rhythm-270123)
 
-**Artist**: Sopranos Bounce 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Sopranos Podcast 021 - DJ Cheeze & Hartshorn
+**Track**: Bonkers Beats #95 on Beat 106 Scotland with Marc Smith 270123 (Hour 1)
 
-Last updated at 01/30/2023 07:36
+Last updated at 01/30/2023 09:13
