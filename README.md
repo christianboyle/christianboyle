@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160750503-bgzhx2-t500x500.jpg">](https://soundcloud.com/darren-styles/da-tweekaz-darren-styles-heroes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LvvPwGIzNeuKj65-BFhmyA-t500x500.jpg">](https://soundcloud.com/user-719841332/alone-slamma-free-downloadd-22)
 
-**Artist**: Darren Styles 
+**Artist**: SLAMMA 
 
-**Track**: Da Tweekaz & Darren Styles - Heroes (170 Mix)
+**Track**: Alone Slamma free downloadd 22
 
-Last updated at 01/30/2023 06:44
+Last updated at 01/30/2023 06:48
