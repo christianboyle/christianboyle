@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3QBjV42mZd7ufzy6-9JnZoA-t500x500.jpg">](https://soundcloud.com/bvrnout/wham-last-christmas-bvrnout-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mD51he1y3IWs5AG-rUpi9A-t500x500.jpg">](https://soundcloud.com/endoflinerecordings/d-sturb-vertile-open-up-your-heart)
 
-**Artist**: BVRNOUT 
+**Artist**: End of Line 
 
-**Track**: Wham! - Last Christmas (BVRNOUT Remix)
+**Track**: D-Sturb & Vertile - Open Up Your Heart
 
-Last updated at 01/30/2023 03:15
+Last updated at 01/30/2023 03:20
