@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9ztXQnoViM2RAyU-64uH0A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/teddy-x-joshua-left-me-bleeding-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WectU4ka3ywbg4D-fIMoNg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/strixter-chainix-bruh)
 
 **Artist**: Dirty Workz 
 
-**Track**: TEDDY X Joshua - Left Me Bleeding (Electric Fox)
+**Track**: Strixter & Chainix - bruh
 
-Last updated at 01/29/2023 23:35
+Last updated at 01/29/2023 23:38
