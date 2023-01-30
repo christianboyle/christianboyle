@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LvvPwGIzNeuKj65-BFhmyA-t500x500.jpg">](https://soundcloud.com/user-719841332/alone-slamma-free-downloadd-22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThAMXlvhr4IQmQEd-RnMWlg-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-nostalgic-kinn-remix-free-download)
 
-**Artist**: SLAMMA 
+**Artist**: KINN 
 
-**Track**: Alone Slamma free downloadd 22
+**Track**: S3RL - Nostalgic (KINN Remix) **Free Download**
 
-Last updated at 01/30/2023 06:48
+Last updated at 01/30/2023 06:52
