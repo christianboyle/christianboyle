@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8G48wVTPx3j-0-t500x500.jpg">](https://soundcloud.com/blookah/deepend-feat-lydell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bfiXESscz3syLUq2-DTSr5A-t500x500.jpg">](https://soundcloud.com/lipoov/93alekk-lipoov-mark-dugalin-galaxy-stars)
 
-**Artist**: Blookah 
+**Artist**: Lipoov 
 
-**Track**: Deepend (feat. Lydell)
+**Track**: 93Alekk, Lipoov, Mark Dugalin - Galaxy Stars
 
-Last updated at 01/31/2023 09:04
+Last updated at 01/31/2023 09:05
