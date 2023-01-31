@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n49BzQsKFl8NOWhh-BXV22g-t500x500.jpg">](https://soundcloud.com/themortuary/volumetwo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UyhTmc1o6ORH7Ny-I7ISWQ-t500x500.jpg">](https://soundcloud.com/electronyze-me/erbes-t3lv-closer?in=electronyzemepodcast/sets/dubstep-compilation-vol-2)
 
-**Artist**: The Mortuary 
+**Artist**: Electronyze Me 
 
-**Track**: COFFIN - The Mortuary Sessions Vol. 2
+**Track**: ERBES, T3$LV - Closer!
 
-Last updated at 01/31/2023 09:06
+Last updated at 01/31/2023 09:07
