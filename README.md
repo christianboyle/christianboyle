@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578712836-pdgxwa-t500x500.jpg">](https://soundcloud.com/aggressiverecords/1-arise?in=aggressiverecords/sets/ar005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SBy3QcIlRzRaSup-sdQHYw-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-bladee-real-spring)
 
-**Artist**: Aggressive Records 
+**Artist**: Skrillex 
 
-**Track**: 1. Arise
+**Track**: Skrillex & Bladee - Real Spring
 
-Last updated at 01/31/2023 12:18
+Last updated at 01/31/2023 12:20
