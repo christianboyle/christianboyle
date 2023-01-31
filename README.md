@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vazu3hUdgyzg0rhi-B2KQ7A-t500x500.jpg">](https://soundcloud.com/the_music_blender/comatz-keedya-linkr-abstraction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPhzaCPOxNePbonb-CSzl1Q-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/rc109clara)
 
-**Artist**: The Music Blender 
+**Artist**: Rhythmic Culture 
 
-**Track**: comatz, keedya & linkr - Abstraction
+**Track**: RC:109 Clara!
 
-Last updated at 01/31/2023 09:00
+Last updated at 01/31/2023 09:01
