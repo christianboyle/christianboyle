@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK1pUfBUBX1JP0Hs-stKlKA-t500x500.jpg">](https://soundcloud.com/groove-control/sub-focus-dimension-ready-to-fly-groove-control-dj-rome-hard-dance-edit-soundcloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ll1zzXaLLkPN7ELq-ceyuVA-t500x500.jpg">](https://soundcloud.com/elementraw/fake-records)
 
-**Artist**: Groove Control 
+**Artist**: ELEMENT 
 
-**Track**: Sub Focus, Dimension - Ready To Fly (Groove Control & DJ Rome 'Hard Dance' Edit)
+**Track**: Fake Records
 
-Last updated at 01/31/2023 12:36
+Last updated at 01/31/2023 12:44
