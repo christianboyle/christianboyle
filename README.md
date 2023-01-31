@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czmXptoL6vVf6083-TWpgmQ-t500x500.jpg">](https://soundcloud.com/imhiraeth/loneliness)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: hiræth 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: loneliness
 
-Last updated at 01/31/2023 12:55
+Last updated at 01/31/2023 13:49
