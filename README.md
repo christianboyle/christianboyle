@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6nKc6vqykdIUyzB-ZRGvOw-t500x500.jpg">](https://soundcloud.com/roolerofficial/kingpinbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000578712836-pdgxwa-t500x500.jpg">](https://soundcloud.com/aggressiverecords/1-arise?in=aggressiverecords/sets/ar005)
 
-**Artist**: Rooler 
+**Artist**: Aggressive Records 
 
-**Track**: DJ BASIK - KINGPIN (ROOLER BOOTLEG) *FREE DOWNLOAD*
+**Track**: 1. Arise
 
-Last updated at 01/31/2023 12:17
+Last updated at 01/31/2023 12:18
