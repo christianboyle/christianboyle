@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UyhTmc1o6ORH7Ny-I7ISWQ-t500x500.jpg">](https://soundcloud.com/electronyze-me/erbes-t3lv-closer?in=electronyzemepodcast/sets/dubstep-compilation-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBUjdbURrWup-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-lost-found)
 
-**Artist**: Electronyze Me 
+**Artist**: Gearbox Digital 
 
-**Track**: ERBES, T3$LV - Closer!
+**Track**: Avi8 - LOST & FOUND
 
-Last updated at 01/31/2023 09:07
+Last updated at 01/31/2023 09:08
