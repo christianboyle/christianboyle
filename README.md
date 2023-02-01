@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAGmMR2pEijzgk7I-eE1qtA-t500x500.jpg">](https://soundcloud.com/spaceducksmusic/praise-the-lord-space-ducks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7EZgr0DKF8vorTi5-SJRtng-t500x500.jpg">](https://soundcloud.com/gunfightmusic/salvo-v5)
 
-**Artist**: Space Ducks 
+**Artist**: 𝗚𝘂𝗻𝗙𝗶𝗴𝗵𝘁 🔫👊 
 
-**Track**: A$AP Rocky, Skepta - Praise The Lord (Space Ducks Remix)
+**Track**: Salvo
 
-Last updated at 02/01/2023 12:15
+Last updated at 02/01/2023 12:16
