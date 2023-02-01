@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8JoXtKLEZtSE8y5-8lTHlg-t500x500.jpg">](https://soundcloud.com/ezkill715/moon-and-back-out-july-15th)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MycKuYz69D8DHBtV-4fQ4fw-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-feat-krystal-waiting)
 
 **Artist**: EzKill 
 
-**Track**: Moon and Back (Original) RKM 016
+**Track**: EzKill Feat. Krystal - Waiting (Original) RKM 015
 
-Last updated at 02/01/2023 09:27
+Last updated at 02/01/2023 09:31
