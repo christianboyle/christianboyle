@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fkIHuJ3R4F2MNVGf-KNkLzg-t500x500.jpg">](https://soundcloud.com/ezkill715/black-jack-believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyqllyUan4XYQ8FU-lbDRVQ-t500x500.jpg">](https://soundcloud.com/ezkill715/hhmr-krbread-sofuu-once-more-ezkill-remix)
 
 **Artist**: EzKill 
 
-**Track**: Black Jack - Believe (Original) RKM 019 ✅FREE DOWNLOAD✅
+**Track**: HHMR, Krbread & Sofuu - Once More (EzKill Remix) RKM 018 ✅FREE DOWNLOAD✅
 
-Last updated at 02/01/2023 09:13
+Last updated at 02/01/2023 09:17
