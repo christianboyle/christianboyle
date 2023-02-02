@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzQ5VV4ZR41E1tFP-yDEFIg-t500x500.jpg">](https://soundcloud.com/the-games-we-play/xprezzzhatred-x-golden-corpse-hearsedrift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LvvPwGIzNeuKj65-BFhmyA-t500x500.jpg">](https://soundcloud.com/user-719841332/alone-slamma-free-downloadd-22)
 
-**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
+**Artist**: SLAMMA 
 
-**Track**: Xprezzzhatred X Golden Corpse - HEARSEDRIFT
+**Track**: Alone Slamma free downloadd 22
 
-Last updated at 02/02/2023 08:29
+Last updated at 02/02/2023 09:21
