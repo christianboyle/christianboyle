@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SAiJqNmsPno54lST-eUMyIA-t500x500.jpg">](https://soundcloud.com/ascentrecordings/derek-ryan-feat-sarah-de-warren-starts-tonight-dennis-sheperd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLcN6kmam0fMbqjT-HKGIqw-t500x500.jpg">](https://soundcloud.com/dirtysnatcha/grizmas)
 
-**Artist**: Ascent Recordings 
+**Artist**: DirtySnatcha 
 
-**Track**: Derek Ryan Feat. Sarah De Warren - Starts Tonight (Dennis Sheperd Remix)
+**Track**: DirtySnatcha & Carbin - GRiZMAS MIX
 
-Last updated at 02/02/2023 08:21
+Last updated at 02/02/2023 08:22
