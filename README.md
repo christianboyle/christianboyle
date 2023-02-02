@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-011-january-tundra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SAiJqNmsPno54lST-eUMyIA-t500x500.jpg">](https://soundcloud.com/ascentrecordings/derek-ryan-feat-sarah-de-warren-starts-tonight-dennis-sheperd-remix)
 
 **Artist**: Ascent Recordings 
 
-**Track**: Ascent Sessions 011 - January Tundra
+**Track**: Derek Ryan Feat. Sarah De Warren - Starts Tonight (Dennis Sheperd Remix)
 
-Last updated at 02/01/2023 13:41
+Last updated at 02/02/2023 08:21
