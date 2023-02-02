@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H56Bj2HEpsY5bLb9-vdd2Bw-t500x500.jpg">](https://soundcloud.com/riodayungog/speak-the-truth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szaOitykzrBl-0-t500x500.jpg">](https://soundcloud.com/officialnohero/show-you)
 
-**Artist**: Rio Da Yung OG 
+**Artist**: No Hero 
 
-**Track**: Speak The Truth
+**Track**: Show You
 
-Last updated at 02/02/2023 12:26
+Last updated at 02/02/2023 12:49
