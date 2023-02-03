@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IatT0ZZi3hAnIxxN-7tU31g-t500x500.jpg">](https://soundcloud.com/astrophonica/philip-d-kick-orbit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVqDC7IJvBICR171-zvVv4w-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-0860-ft-eastman-apha0860)
 
 **Artist**: Astrophonica 
 
-**Track**: Philip D Kick - Orbit
+**Track**: Fracture - 0860 ft. Eastman [APHA0860]
 
-Last updated at 02/03/2023 09:29
+Last updated at 02/03/2023 10:19
