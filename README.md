@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVqDC7IJvBICR171-zvVv4w-t500x500.jpg">](https://soundcloud.com/astrophonica/fracture-0860-ft-eastman-apha0860)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGzjCLYpSfeqiQIY-2DRkrQ-t500x500.jpg">](https://soundcloud.com/astrophonica/nikki-nair-plug)
 
 **Artist**: Astrophonica 
 
-**Track**: Fracture - 0860 ft. Eastman [APHA0860]
+**Track**: Nikki Nair - Plug
 
-Last updated at 02/03/2023 10:19
+Last updated at 02/03/2023 10:25
