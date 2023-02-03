@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8jzjdoFzzxn1UEr-WHaMZw-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-06-chimpo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8BIz6fKFvuL9MGl-BCTRWg-t500x500.jpg">](https://soundcloud.com/glzzzd/glzzzd-dancefestopia-live-set)
 
-**Artist**: Astrophonica 
+**Artist**: GLZZZD 
 
-**Track**: Astrophonica Podcast 06 - Chimpo
+**Track**: GLZZZD - Dancefestopia Live Set
 
-Last updated at 02/03/2023 10:28
+Last updated at 02/03/2023 11:15
