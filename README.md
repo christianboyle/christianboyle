@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBLsDNXsu5dTxlPS-S5UEQQ-t500x500.jpg">](https://soundcloud.com/all-but-6-records/fmz-all-but-6-pouya-mikey-the?in=all-but-6-records/sets/ab6-pouya-fat-nick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-897jiqXahVKiqs9j-kWjo8g-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-earthquake)
 
-**Artist**: ALL BUT 6 
+**Artist**: Tatsunoshin 
 
-**Track**: FMZ - All But 6, Pouya & Mikey the Magician
+**Track**: Tatsunoshin - Earthquake
 
-Last updated at 02/03/2023 12:03
+Last updated at 02/03/2023 12:04
