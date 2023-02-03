@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGzjCLYpSfeqiQIY-2DRkrQ-t500x500.jpg">](https://soundcloud.com/astrophonica/nikki-nair-plug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E8jzjdoFzzxn1UEr-WHaMZw-t500x500.jpg">](https://soundcloud.com/astrophonica/astrophonica-podcast-06-chimpo)
 
 **Artist**: Astrophonica 
 
-**Track**: Nikki Nair - Plug
+**Track**: Astrophonica Podcast 06 - Chimpo
 
-Last updated at 02/03/2023 10:25
+Last updated at 02/03/2023 10:28
