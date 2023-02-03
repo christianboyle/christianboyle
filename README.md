@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8BIz6fKFvuL9MGl-BCTRWg-t500x500.jpg">](https://soundcloud.com/glzzzd/glzzzd-dancefestopia-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9Lq8sVqmXwHYyod-wDvbdA-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-025)
 
-**Artist**: GLZZZD 
+**Artist**: Future Generation Radio 
 
-**Track**: GLZZZD - Dancefestopia Live Set
+**Track**: Future Generation Radio #025 (Arcando Takeover)
 
-Last updated at 02/03/2023 11:15
+Last updated at 02/03/2023 11:16
