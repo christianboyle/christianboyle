@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gZEbGizltrxsxDdG-zzCzCQ-t500x500.jpg">](https://soundcloud.com/dossyx/strobe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cyg6nWaR6OPW9It8-ME5siw-t500x500.jpg">](https://soundcloud.com/deepdarkdangerous/saltus-ddd-guest-mix-live-from-ddd100-pdx)
 
-**Artist**: dossyx 
+**Artist**: Deep Dark & Dangerous 
 
-**Track**: deadmau5 - strobe (edit w/charlie)
+**Track**: Saltus - DDD Guest Mix (Live From DDD100 PDX)
 
-Last updated at 02/04/2023 15:17
+Last updated at 02/04/2023 15:18
