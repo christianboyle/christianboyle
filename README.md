@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fi95lVfkXDf1gqlr-yGHR4A-t500x500.jpg">](https://soundcloud.com/circusrecords/ace-aura-x-beastboi-x-mikeshft-vibrance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gZEbGizltrxsxDdG-zzCzCQ-t500x500.jpg">](https://soundcloud.com/dossyx/strobe)
 
-**Artist**: Circus Records Official 
+**Artist**: dossyx 
 
-**Track**: Ace Aura x beastboi. x MIKESH!FT - Vibrance
+**Track**: deadmau5 - strobe (edit w/charlie)
 
-Last updated at 02/03/2023 18:45
+Last updated at 02/04/2023 15:17
