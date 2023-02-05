@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzoSc8KQ7yeZ-0-t500x500.png">](https://soundcloud.com/coone-music/all-of-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SBy3QcIlRzRaSup-sdQHYw-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-bladee-real-spring)
 
-**Artist**: Coone 
+**Artist**: Skrillex 
 
-**Track**: All Of The Lights
+**Track**: Skrillex & Bladee - Real Spring
 
-Last updated at 02/05/2023 10:15
+Last updated at 02/05/2023 10:19
