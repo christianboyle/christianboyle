@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B13LzCerHStycXu0-McIMjg-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/longstoryshort-2-high-feat-hadar-adora)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdjytzMk9BBpg7R6-BEhcdw-t500x500.jpg">](https://soundcloud.com/circuselectric/stray-light-x-elle-vee-slipping-away)
 
-**Artist**: longstoryshort 
+**Artist**: Circus Electric 
 
-**Track**: longstoryshort - 2 High (feat. hadar adora)
+**Track**: STRAY LIGHT X Elle Vee - Slipping Away
 
-Last updated at 02/05/2023 17:07
+Last updated at 02/05/2023 17:11
