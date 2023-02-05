@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RwQkLdzsRy89pgF-F8538w-t500x500.jpg">](https://soundcloud.com/justicehardcore/savemehirohiro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ll1zzXaLLkPN7ELq-ceyuVA-t500x500.jpg">](https://soundcloud.com/elementraw/fake-records)
 
-**Artist**: Justice Hardcore 
+**Artist**: ELEMENT 
 
-**Track**: Darren Styles - Save Me  (HiroHiro Remix) ✅FREE DOWNLOAD✅
+**Track**: Fake Records
 
-Last updated at 02/05/2023 11:41
+Last updated at 02/05/2023 11:46
