@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6mG7h98LZGpfLRn-LmlBCw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-at-neon-countdown-bangkok-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhuPvjyRA4gQCf6o-MKxmVA-t500x500.png">](https://soundcloud.com/s-bastien-dosi/everytime-we-touch-styles-breeze-hardcore-remix)
 
-**Artist**: Ben Nicky 
+**Artist**: Sébastien DOSI 🌍🌎🌏 
 
-**Track**: Ben Nicky Live At Neon Countdown, Bangkok 2022
+**Track**: Everytime We Touch (Styles & Breeze Hardcore Remix)
 
-Last updated at 02/05/2023 10:35
+Last updated at 02/05/2023 11:33
