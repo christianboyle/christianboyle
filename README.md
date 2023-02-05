@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cyg6nWaR6OPW9It8-ME5siw-t500x500.jpg">](https://soundcloud.com/deepdarkdangerous/saltus-ddd-guest-mix-live-from-ddd100-pdx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2phZHbb0TGu6-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-say-something?in=770rd/sets/lets-start-here-3)
 
-**Artist**: Deep Dark & Dangerous 
+**Artist**: Lil Yachty, RD, Lil Boat 
 
-**Track**: Saltus - DDD Guest Mix (Live From DDD100 PDX)
+**Track**: Lil Yachty - sAy sOMETHINg
 
-Last updated at 02/04/2023 15:18
+Last updated at 02/04/2023 18:26
