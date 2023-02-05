@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SBy3QcIlRzRaSup-sdQHYw-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-bladee-real-spring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cyQPOaXnMHhaAVt-NnWuyQ-t500x500.jpg">](https://soundcloud.com/specialfavorite/specialfavorite001)
 
-**Artist**: Skrillex 
+**Artist**: Special Favorite 
 
-**Track**: Skrillex & Bladee - Real Spring
+**Track**: Special Favorite 001 Minimix
 
-Last updated at 02/05/2023 10:19
+Last updated at 02/05/2023 10:21
