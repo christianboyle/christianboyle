@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-897jiqXahVKiqs9j-kWjo8g-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-earthquake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2qq7jYukWjbCD9i-PGrJaA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/eclipse-be-happy-brett-cooper-remix-1)
 
-**Artist**: Tatsunoshin 
+**Artist**: Brett Cooper 
 
-**Track**: Tatsunoshin - Earthquake
+**Track**: Eclipse - Be Happy (brett Cooper Remix) free download
 
-Last updated at 02/05/2023 10:04
+Last updated at 02/05/2023 10:07
