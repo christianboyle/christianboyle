@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GWD6gEB9tun1qcvM-Be4WXA-t500x500.jpg">](https://soundcloud.com/nikademismusic/nikademis-edits-vol-2-mashups-edits-dubstep-midtempo-dnb-free-download?in=seal-playlists/sets/nikademis-edits-vol-2-mashups)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Nikademis 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: NIKADEMIS EDITS VOL. 2 - MASHUPS & EDITS - DUBSTEP, MIDTEMPO, DNB - FREE DOWNLOAD
 
-Last updated at 02/05/2023 11:57
+Last updated at 02/05/2023 15:53
