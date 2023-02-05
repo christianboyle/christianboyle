@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IatT0ZZi3hAnIxxN-7tU31g-t500x500.jpg">](https://soundcloud.com/astrophonica/philip-d-kick-orbit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-897jiqXahVKiqs9j-kWjo8g-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-earthquake)
 
-**Artist**: Astrophonica 
+**Artist**: Tatsunoshin 
 
-**Track**: Philip D Kick - Orbit
+**Track**: Tatsunoshin - Earthquake
 
-Last updated at 02/05/2023 09:59
+Last updated at 02/05/2023 10:04
