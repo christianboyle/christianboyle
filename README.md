@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbWvSAQsEI6zjTno-9CnaxA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-94-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzoSc8KQ7yeZ-0-t500x500.png">](https://soundcloud.com/coone-music/all-of-the-lights)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Coone 
 
-**Track**: Bonkers Beats #94 on Beat 106 Scotland with Deckheadz 200123 (Hour 1)
+**Track**: All Of The Lights
 
-Last updated at 02/04/2023 20:20
+Last updated at 02/04/2023 20:31
