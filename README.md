@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2phZHbb0TGu6-0-t500x500.jpg">](https://soundcloud.com/770rd/lil-yachty-say-something?in=770rd/sets/lets-start-here-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WBVmZV1fyoUUVk5x-V4ycKQ-t500x500.jpg">](https://soundcloud.com/flukenukes/tiacorine-freaky-t-fluke-nukes-remix)
 
-**Artist**: Lil Yachty, RD, Lil Boat 
+**Artist**: fluke nukes 
 
-**Track**: Lil Yachty - sAy sOMETHINg
+**Track**: TiaCorine - Freaky T (fluke nukes remix)
 
-Last updated at 02/04/2023 18:26
+Last updated at 02/04/2023 18:28
