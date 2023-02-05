@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8g7zKzZBQBqFjFz4-eFCHmw-t500x500.jpg">](https://soundcloud.com/mylkytop/swmmylky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6hXg9p0N4a4Q0IW-QQkdzA-t500x500.jpg">](https://soundcloud.com/scantraxx/kronos-adaro-up-2-no-good)
 
-**Artist**: Mylky 
+**Artist**: Scantraxx 
 
-**Track**: Repair, Ben Shaw, PONZ - Stay With Me (Mylky Remix)
+**Track**: Kronos & Adaro - Up 2 No Good
 
-Last updated at 02/05/2023 11:50
+Last updated at 02/05/2023 11:54
