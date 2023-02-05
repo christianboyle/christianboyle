@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzoSc8KQ7yeZ-0-t500x500.png">](https://soundcloud.com/coone-music/all-of-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IatT0ZZi3hAnIxxN-7tU31g-t500x500.jpg">](https://soundcloud.com/astrophonica/philip-d-kick-orbit)
 
-**Artist**: Coone 
+**Artist**: Astrophonica 
 
-**Track**: All Of The Lights
+**Track**: Philip D Kick - Orbit
 
-Last updated at 02/04/2023 20:31
+Last updated at 02/05/2023 09:59
