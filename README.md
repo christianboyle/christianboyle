@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBUjdbURrWup-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-lost-found)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK1pUfBUBX1JP0Hs-stKlKA-t500x500.jpg">](https://soundcloud.com/groove-control/sub-focus-dimension-ready-to-fly-groove-control-dj-rome-hard-dance-edit-soundcloud)
 
-**Artist**: Gearbox Digital 
+**Artist**: Groove Control 
 
-**Track**: Avi8 - LOST & FOUND
+**Track**: Sub Focus, Dimension - Ready To Fly (Groove Control & DJ Rome 'Hard Dance' Edit)
 
-Last updated at 02/06/2023 15:27
+Last updated at 02/06/2023 15:30
