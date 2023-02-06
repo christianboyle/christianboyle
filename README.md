@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VGqh0MwvZWVJG58i-z1EuMg-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-429)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9W0cb6ilzo4pNnH-Tl7o7Q-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-96-on-beat-106?in=beat106scotland/sets/bonkers-beats-96-on-beat-106-scotland-with-rachel-vega-rikki-arkitech-030223)
 
-**Artist**: Dj EZC 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Hardcore Will Never Die Episode 429
+**Track**: Bonkers Beats #96 on Beat 106 Scotland with Rikki Arkitech 030223 (Hour 2)
 
-Last updated at 02/05/2023 17:22
+Last updated at 02/06/2023 08:02
