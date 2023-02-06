@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nlW4UhvJd3NXuyd-DI4DPw-t500x500.jpg">](https://soundcloud.com/lxshmusic/wonder-w-sauvoulle-surch-mara-jade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-44HYUNzQTR5LKhez-2Xpo6w-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-mvse-moments-feat-rynn)
 
-**Artist**: lxsh 
+**Artist**: Lost In Dreams 
 
-**Track**: Wonder w Sauvoulle, Surch, & Mara Jade
+**Track**: Hoang & MVSE - Moments (feat. Rynn)
 
-Last updated at 02/06/2023 13:24
+Last updated at 02/06/2023 13:27
