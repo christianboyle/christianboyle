@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fC2ZVwyvR8nP2II3-zdpLZA-t500x500.jpg">](https://soundcloud.com/evalutionmusic/buss-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nlW4UhvJd3NXuyd-DI4DPw-t500x500.jpg">](https://soundcloud.com/lxshmusic/wonder-w-sauvoulle-surch-mara-jade)
 
-**Artist**: EVALUTION 
+**Artist**: lxsh 
 
-**Track**: BUSS IT
+**Track**: Wonder w Sauvoulle, Surch, & Mara Jade
 
-Last updated at 02/06/2023 13:23
+Last updated at 02/06/2023 13:24
