@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9Lq8sVqmXwHYyod-wDvbdA-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AXyBXFu8vD2hAbIW-y8QsQg-t500x500.jpg">](https://soundcloud.com/echoescollective/bavi-smoke)
 
-**Artist**: Future Generation Radio 
+**Artist**: Echoes Collective 
 
-**Track**: Future Generation Radio #025 (Arcando Takeover)
+**Track**: Bavi - Smoke
 
-Last updated at 02/07/2023 12:08
+Last updated at 02/07/2023 12:37
