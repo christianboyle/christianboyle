@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBUjdbURrWup-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-lost-found)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-44HYUNzQTR5LKhez-2Xpo6w-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-mvse-moments-feat-rynn)
 
-**Artist**: Gearbox Digital 
+**Artist**: Lost In Dreams 
 
-**Track**: Avi8 - LOST & FOUND
+**Track**: Hoang & MVSE - Moments (feat. Rynn)
 
-Last updated at 02/07/2023 10:07
+Last updated at 02/07/2023 12:07
