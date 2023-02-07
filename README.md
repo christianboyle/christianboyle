@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymi9ZubmK90C0jrN-1Oze0g-t500x500.jpg">](https://soundcloud.com/zetmo/nonexistence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OnPyhraFzC5K5bQ-ypDUmQ-t500x500.jpg">](https://soundcloud.com/pirapus/kanine-the-shadows-pirapus-bootleg)
 
-**Artist**: 𝒁 𝑬 𝑻 𝑴 𝑶 
+**Artist**: Pirapus 
 
-**Track**: Nonexistence
+**Track**: Kanine - The Shadows (Pirapus Bootleg)
 
-Last updated at 02/07/2023 16:06
+Last updated at 02/07/2023 16:08
