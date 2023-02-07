@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-44HYUNzQTR5LKhez-2Xpo6w-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-mvse-moments-feat-rynn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9Lq8sVqmXwHYyod-wDvbdA-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-025)
 
-**Artist**: Lost In Dreams 
+**Artist**: Future Generation Radio 
 
-**Track**: Hoang & MVSE - Moments (feat. Rynn)
+**Track**: Future Generation Radio #025 (Arcando Takeover)
 
-Last updated at 02/07/2023 12:07
+Last updated at 02/07/2023 12:08
