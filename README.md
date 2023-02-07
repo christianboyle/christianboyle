@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cyQPOaXnMHhaAVt-NnWuyQ-t500x500.jpg">](https://soundcloud.com/specialfavorite/specialfavorite001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBUjdbURrWup-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-lost-found)
 
-**Artist**: Special Favorite 
+**Artist**: Gearbox Digital 
 
-**Track**: Special Favorite 001 Minimix
+**Track**: Avi8 - LOST & FOUND
 
-Last updated at 02/07/2023 09:53
+Last updated at 02/07/2023 10:07
