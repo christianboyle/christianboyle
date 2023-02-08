@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwDkJHYepuwIE3Ly-KmknzA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/charly-lownoise-re-style-magro-ft-diede-love-desire-macks-wolf-remix-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZGJUMtzeGhgz7OJ-znEKjA-t500x500.jpg">](https://soundcloud.com/platform/system-mix-087-dubrunner)
 
-**Artist**: Dirty Workz 
+**Artist**: Boiler Room 
 
-**Track**: Charly Lownoise & Re-Style & Magro ft. Diede - Love & Desire (Macks Wolf Remix) (Electric Fox)
+**Track**: SYSTEM Mix 087: Dubrunner
 
-Last updated at 02/08/2023 10:38
+Last updated at 02/08/2023 10:39
