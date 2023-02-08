@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q6Kzqx6yQsPvXDwH-YV4sgg-t500x500.jpg">](https://soundcloud.com/justicehardcore/loveonfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAxzqNkiozGOctyR-k2wSLw-t500x500.jpg">](https://soundcloud.com/davecurtismusic/getting-better-dave-curtisremix)
 
-**Artist**: Justice Hardcore 
+**Artist**: Dave Curtis 
 
-**Track**: O1RA - Love On Fire ✅FREE DOWNLOAD✅
+**Track**: FREE DOWNLOAD - Darren Styles Featuring Lisa Abbott - Getting Better (Dave Curtis Remix)
 
-Last updated at 02/08/2023 10:49
+Last updated at 02/08/2023 10:53
