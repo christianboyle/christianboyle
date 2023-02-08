@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAxzqNkiozGOctyR-k2wSLw-t500x500.jpg">](https://soundcloud.com/davecurtismusic/getting-better-dave-curtisremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-clA2oIdFylAy96r9-DNoU6g-t500x500.jpg">](https://soundcloud.com/arcadian_sound/arcadian-sounds-brain-rattler-mixtape)
 
-**Artist**: Dave Curtis 
+**Artist**: Arcadian Sound 
 
-**Track**: FREE DOWNLOAD - Darren Styles Featuring Lisa Abbott - Getting Better (Dave Curtis Remix)
+**Track**: Arcadian Sound's Brain Rattler Mixtape
 
-Last updated at 02/08/2023 10:53
+Last updated at 02/08/2023 15:57
