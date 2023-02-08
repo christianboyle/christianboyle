@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kL7605q13yWrp5sP-LvudVw-t500x500.jpg">](https://soundcloud.com/akriza/sam-smith-unholy-feat-kim-petras-akriza-bootleg-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrgkD1gtAztOLNMo-7Qkqrw-t500x500.jpg">](https://soundcloud.com/kset-dex/heady6)
 
-**Artist**: Akriza 
+**Artist**: KSETDEX 
 
-**Track**: Sam Smith - Unholy feat. Kim Petras - (Akriza Bootleg / Remix)
+**Track**: Heady Mix 6
 
-Last updated at 02/08/2023 15:58
+Last updated at 02/08/2023 15:59
