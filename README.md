@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIpPm9ImgS4ftwxz-1OHLWA-t500x500.jpg">](https://soundcloud.com/officialnoughts/summoning-of-ra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbO3iBjVdNmy8CZ2-IxxeGg-t500x500.jpg">](https://soundcloud.com/edekit/ground-score-hunter)
 
-**Artist**: NOUGHTS 
+**Artist**: Edekit 
 
-**Track**: NOUGHTS & DISINETY - SUMMONING OF RA
+**Track**: Ground Score Hunter
 
-Last updated at 02/08/2023 10:34
+Last updated at 02/08/2023 10:35
