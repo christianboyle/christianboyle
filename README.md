@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjoMN4rtdFyPoj3Q-6EzFmw-t500x500.jpg">](https://soundcloud.com/jadudala/bloom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLD1OMS3uvnJlILO-7z1ooQ-t500x500.jpg">](https://soundcloud.com/scantraxx/envine-hardstyle-pianist-regenerate)
 
-**Artist**: Jadū Dala 
+**Artist**: Scantraxx 
 
-**Track**: SOXX - Bloom (JADŪ203)
+**Track**: Envine & Hardstyle Pianist - Regenerate
 
-Last updated at 02/08/2023 10:44
+Last updated at 02/08/2023 10:45
