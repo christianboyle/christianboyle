@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrgkD1gtAztOLNMo-7Qkqrw-t500x500.jpg">](https://soundcloud.com/kset-dex/heady6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jiiGwXAFkCIc11Wn-OXx48Q-t500x500.jpg">](https://soundcloud.com/ekalimusic/purity)
 
-**Artist**: KSETDEX 
+**Artist**: EKALI 
 
-**Track**: Heady Mix 6
+**Track**: Purity
 
-Last updated at 02/08/2023 15:59
+Last updated at 02/08/2023 16:00
