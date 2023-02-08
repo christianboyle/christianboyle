@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHXkitycZwJrPswx-PK0vSw-t500x500.jpg">](https://soundcloud.com/simplifyrecs/misael-gauna-drewone-3?in=simplifyrecs/sets/misael-gauna-drewone-trembling-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIg4zVuKGLGJbd7o-SRa1QA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-nai-barghouti-xena)
 
-**Artist**: Simplify. 
+**Artist**: Skrillex 
 
-**Track**: Misael Gauna, DrewOne, Noctilucent - Trembling (Second Road Remix)
+**Track**: Skrillex & Nai Barghouti - Xena
 
-Last updated at 02/07/2023 17:07
+Last updated at 02/08/2023 10:32
