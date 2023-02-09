@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIg4zVuKGLGJbd7o-SRa1QA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-nai-barghouti-xena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cyQPOaXnMHhaAVt-NnWuyQ-t500x500.jpg">](https://soundcloud.com/specialfavorite/specialfavorite001)
 
-**Artist**: Skrillex 
+**Artist**: Special Favorite 
 
-**Track**: Skrillex & Nai Barghouti - Xena
+**Track**: Special Favorite 001 Minimix
 
-Last updated at 02/09/2023 16:10
+Last updated at 02/09/2023 16:12
