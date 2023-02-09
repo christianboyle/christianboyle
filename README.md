@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cyQPOaXnMHhaAVt-NnWuyQ-t500x500.jpg">](https://soundcloud.com/specialfavorite/specialfavorite001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wk5fEkMvAJk6-0-t500x500.jpg">](https://soundcloud.com/touristmusic/avalanche-waleed-remix)
 
-**Artist**: Special Favorite 
+**Artist**: Tourist 
 
-**Track**: Special Favorite 001 Minimix
+**Track**: Avalanche (Waleed Remix)
 
-Last updated at 02/09/2023 16:12
+Last updated at 02/09/2023 16:19
