@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5qvElm17SzWgH2i-lw0fTA-t500x500.jpg">](https://soundcloud.com/7cloudsmusic/matte-all-tied-up-ft-olivia-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IatT0ZZi3hAnIxxN-7tU31g-t500x500.jpg">](https://soundcloud.com/astrophonica/philip-d-kick-orbit)
 
-**Artist**: 7clouds 
+**Artist**: Astrophonica 
 
-**Track**: Matte - All Tied Up (ft. Olivia Ray)
+**Track**: Philip D Kick - Orbit
 
-Last updated at 02/09/2023 16:27
+Last updated at 02/09/2023 16:28
