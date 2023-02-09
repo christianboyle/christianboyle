@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1To89DbPKDtJuCO1-ud2csw-t500x500.jpg">](https://soundcloud.com/westwoodrecordings/radio-063?in=westwoodrecordings/sets/westwood-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MWzjtdsPT1QeSzND-DoEKRw-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-14-cicely)
 
-**Artist**: Westwood Recordings 
+**Artist**: Hardcore Energy 
 
-**Track**: Westwood Radio 063 - Stund
+**Track**: Mix Series 14 - Cicely
 
-Last updated at 02/09/2023 14:49
+Last updated at 02/09/2023 14:50
