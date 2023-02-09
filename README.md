@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/2p3NKkdQsMY/maxresdefault.jpg">](https://www.youtube.com/watch?v=2p3NKkdQsMY)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIVW2pOjdOOJVmzN-TyWvnA-t500x500.jpg">](https://soundcloud.com/future-twist/skrillex-mumbai-powerfuture-twist-perses-flip)
 
-**Artist**: 
-  
-    Besomorph
-  
-  
-  
-    Besomorph
-  
+**Artist**: Future Twist 
 
+**Track**: Skrillex - Mumbai Power (Future Twist & PERSES Flip)
 
-
-
-
- 
-
-**Track**: Besomorph & RIELL - When You Go
-
-Last updated at 02/09/2023 16:52
+Last updated at 02/09/2023 17:21
