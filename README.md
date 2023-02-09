@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAxzqNkiozGOctyR-k2wSLw-t500x500.jpg">](https://soundcloud.com/davecurtismusic/getting-better-dave-curtisremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIg4zVuKGLGJbd7o-SRa1QA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-nai-barghouti-xena)
 
-**Artist**: Dave Curtis 
+**Artist**: Skrillex 
 
-**Track**: FREE DOWNLOAD - Darren Styles Featuring Lisa Abbott - Getting Better (Dave Curtis Remix)
+**Track**: Skrillex & Nai Barghouti - Xena
 
-Last updated at 02/09/2023 14:54
+Last updated at 02/09/2023 16:10
