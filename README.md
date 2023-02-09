@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdXt7XZIQXiyWUsF-d0T9BQ-t500x500.jpg">](https://soundcloud.com/farrahsounds/elysianhardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAxzqNkiozGOctyR-k2wSLw-t500x500.jpg">](https://soundcloud.com/davecurtismusic/getting-better-dave-curtisremix)
 
-**Artist**: Farrah 
+**Artist**: Dave Curtis 
 
-**Track**: G Jones - Elysian Hardcore (Farrah Flip)
+**Track**: FREE DOWNLOAD - Darren Styles Featuring Lisa Abbott - Getting Better (Dave Curtis Remix)
 
-Last updated at 02/09/2023 14:52
+Last updated at 02/09/2023 14:54
