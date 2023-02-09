@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MWzjtdsPT1QeSzND-DoEKRw-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-14-cicely)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CrczuceqUF3Zg7kz-aQiyXA-t500x500.jpg">](https://soundcloud.com/koastle/electric-oyster-vol-2)
 
-**Artist**: Hardcore Energy 
+**Artist**: Koastle 
 
-**Track**: Mix Series 14 - Cicely
+**Track**: Electric Oyster Vol. 2
 
-Last updated at 02/09/2023 14:50
+Last updated at 02/09/2023 14:51
