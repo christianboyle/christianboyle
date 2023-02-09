@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wk5fEkMvAJk6-0-t500x500.jpg">](https://soundcloud.com/touristmusic/avalanche-waleed-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056787738-ksz9yc-t500x500.jpg">](https://soundcloud.com/touristmusic/haim-the-wire-tourist-remix)
 
 **Artist**: Tourist 
 
-**Track**: Avalanche (Waleed Remix)
+**Track**: HAIM - The Wire (Tourist Remix)
 
-Last updated at 02/09/2023 16:19
+Last updated at 02/09/2023 16:21
