@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056787738-ksz9yc-t500x500.jpg">](https://soundcloud.com/touristmusic/haim-the-wire-tourist-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIVW2pOjdOOJVmzN-TyWvnA-t500x500.jpg">](https://soundcloud.com/future-twist/skrillex-mumbai-powerfuture-twist-perses-flip)
 
-**Artist**: Tourist 
+**Artist**: Future Twist 
 
-**Track**: HAIM - The Wire (Tourist Remix)
+**Track**: Skrillex - Mumbai Power (Future Twist & PERSES Flip)
 
-Last updated at 02/09/2023 16:21
+Last updated at 02/09/2023 16:25
