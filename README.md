@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CrczuceqUF3Zg7kz-aQiyXA-t500x500.jpg">](https://soundcloud.com/koastle/electric-oyster-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdXt7XZIQXiyWUsF-d0T9BQ-t500x500.jpg">](https://soundcloud.com/farrahsounds/elysianhardcore)
 
-**Artist**: Koastle 
+**Artist**: Farrah 
 
-**Track**: Electric Oyster Vol. 2
+**Track**: G Jones - Elysian Hardcore (Farrah Flip)
 
-Last updated at 02/09/2023 14:51
+Last updated at 02/09/2023 14:52
