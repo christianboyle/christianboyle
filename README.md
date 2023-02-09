@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzKSwSgLFvjrbigR-wryYOw-t500x500.jpg">](https://soundcloud.com/ekozumusic/academy-la-bassrush-insomniac)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HetSiaffNVjizBVS-t3movA-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/creation?in=arythmaofficial/sets/falling-star-ep-electrostep)
 
-**Artist**: Eko Zu 
+**Artist**: Electrostep Network 
 
-**Track**: Melodic Bass Mix (opening for Nero at Academy LA) [Bassrush/Insomniac]
+**Track**: Arythma - Creation [Electrostep Network EXCLUSIVE]
 
-Last updated at 02/09/2023 08:45
+Last updated at 02/09/2023 14:48
