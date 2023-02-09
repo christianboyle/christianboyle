@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIVW2pOjdOOJVmzN-TyWvnA-t500x500.jpg">](https://soundcloud.com/future-twist/skrillex-mumbai-powerfuture-twist-perses-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5qvElm17SzWgH2i-lw0fTA-t500x500.jpg">](https://soundcloud.com/7cloudsmusic/matte-all-tied-up-ft-olivia-ray)
 
-**Artist**: Future Twist 
+**Artist**: 7clouds 
 
-**Track**: Skrillex - Mumbai Power (Future Twist & PERSES Flip)
+**Track**: Matte - All Tied Up (ft. Olivia Ray)
 
-Last updated at 02/09/2023 16:25
+Last updated at 02/09/2023 16:27
