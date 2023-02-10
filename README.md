@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4jorKuMR5zHH6W24-sOV3Yg-t500x500.jpg">](https://soundcloud.com/wubaholics/rankz-the-reaper-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6WaYa98BhkA9TL7g-3VbZTw-t500x500.jpg">](https://soundcloud.com/jkmadness/jk-friends-mashup-pack-v9)
 
-**Artist**: Wubaholics 
+**Artist**: JK Madness 
 
-**Track**: RANKZ - The Reaper
+**Track**: JK & Friends Mashup Pack V9 #2 ELECTRO HOUSE | #8 Hypeddit Top 100 (SUPPORTED BY STAFFORD BROTHERS)
 
-Last updated at 02/10/2023 09:29
+Last updated at 02/10/2023 09:30
