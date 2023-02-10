@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2qq7jYukWjbCD9i-PGrJaA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/eclipse-be-happy-brett-cooper-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SPJaAELs2hMT4v30-kAFFOw-t500x500.jpg">](https://soundcloud.com/sandsconnection/shes-all-i-wanna-be-tate-mcrae-s-n-s-remix-master-1)
 
-**Artist**: Brett Cooper 
+**Artist**: S And S Connection (uk hardcore dj/producer) 
 
-**Track**: Eclipse - Be Happy (brett Cooper Remix) free download
+**Track**: She's All I Wanna Be Tate Mcrae (S N S Remix) Master (1) FREE DOWNLOAD
 
-Last updated at 02/10/2023 10:07
+Last updated at 02/10/2023 10:11
