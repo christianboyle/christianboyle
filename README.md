@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIVW2pOjdOOJVmzN-TyWvnA-t500x500.jpg">](https://soundcloud.com/future-twist/skrillex-mumbai-powerfuture-twist-perses-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HybNT8Y0bV8aKcQE-U2tVXg-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-rbx-focus)
 
-**Artist**: Future Twist 
+**Artist**: Rave Alert 
 
-**Track**: Skrillex - Mumbai Power (Future Twist & PERSES Flip)
+**Track**: [PREMIERE] RBX - Focus
 
-Last updated at 02/10/2023 10:05
+Last updated at 02/10/2023 10:06
