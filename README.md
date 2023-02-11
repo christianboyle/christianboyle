@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QEsZeUK3RMAzutaB-mN8RvQ-t500x500.jpg">](https://soundcloud.com/jakazid/twitchtv-live-set-08-02-2023-no-voiceover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-feN8oCnLkF5NX79P-pWHCOQ-t500x500.jpg">](https://soundcloud.com/canwewonder/can-we-wonder-glass-edge)
 
-**Artist**: JAKAZiD 
+**Artist**: Can We Wonder 
 
-**Track**: Twitch.tv live set 08-02-2023 (no voiceover)
+**Track**: Can We Wonder - Glass Edge
 
-Last updated at 02/11/2023 12:05
+Last updated at 02/11/2023 17:05
