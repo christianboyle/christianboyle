@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6Zx78eahDqzzzoq-1NYFWQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/annod-bloque-your-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGSSr3ofau3AtFFu-FUK5oA-t500x500.jpg">](https://soundcloud.com/phuturecollective/noer-the-boy-100-tendrils?in=phuturecollective/sets/noer-the-boy-100-tendrils)
 
-**Artist**: Hardcore Energy 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Annod Bloque  - Your Love
+**Track**: Noer the Boy - 100 Tendrils
 
-Last updated at 02/10/2023 15:51
+Last updated at 02/11/2023 12:04
