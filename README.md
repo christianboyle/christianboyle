@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-YAIezpjMNPaNJwXI-xaI9Jg-t500x500.jpg">](https://soundcloud.com/edmlivesets1/slushii-live-ultra-music-festival-miami-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000325495768-vzqhf3-t500x500.jpg">](https://soundcloud.com/wukileaks/quix-wuki-live-at-ultra-music-festival-2018-32418?in=iamwuki/sets/wuki-live-at-ultra-music)
 
-**Artist**: EDM Livesets 
+**Artist**: WUKILEAKS 
 
-**Track**: Slushii - Live @ Ultra Music Festival Miami 2022
+**Track**: QUIX & WUKI - Live At Ultra Music Festival 2018 (3.24.18)
 
-Last updated at 02/13/2023 14:53
+Last updated at 02/13/2023 14:54
