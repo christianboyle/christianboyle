@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LWMopHIQUI2Tpopm-wR3IEg-t500x500.jpg">](https://soundcloud.com/tal1bantessier/dj-smokey-secret-tape-1-hosted-by-shadow-wizard-money-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106-1?in=beat106scotland/sets/bonkers-beats-97-on-beat-106-scotland-with-sharkey-vinylgroover-j-trax-100223)
 
-**Artist**: shadow wizard money gang 
+**Artist**: Beat 106 Scotland 
 
-**Track**: dj smokey - secret tape 1 **HOSTED BY SHADOW WIZARD MONEY GANG**
+**Track**: Bonkers Beats #97 on Beat 106 Scotland with Sharkey & Vinylgroover 100223 (Hour 1)
 
-Last updated at 02/13/2023 08:26
+Last updated at 02/13/2023 08:27
