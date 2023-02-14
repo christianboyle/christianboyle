@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zByWYIm1R5fM1YH-zzEy8w-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-hadar-adora-take-it-home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106-1)
 
-**Artist**: BLVD. 
+**Artist**: Beat 106 Scotland 
 
-**Track**: BLVD. & Hadar Adora - Take It Home
+**Track**: Bonkers Beats #97 on Beat 106 Scotland with Sharkey & Vinylgroover 100223 (Hour 1)
 
-Last updated at 02/14/2023 13:49
+Last updated at 02/14/2023 13:52
