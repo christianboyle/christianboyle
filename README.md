@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zByWYIm1R5fM1YH-zzEy8w-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-hadar-adora-take-it-home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXnAdGNM7wL7-0-t500x500.jpg">](https://soundcloud.com/subfocus/ready-to-fly-hardcore-mix-sub)
 
-**Artist**: BLVD. 
+**Artist**: Sub Focus 
 
-**Track**: BLVD. & Hadar Adora - Take It Home
+**Track**: Ready To Fly (Hardcore Mix / Sub Focus & Dimension)
 
-Last updated at 02/14/2023 13:37
+Last updated at 02/14/2023 13:39
