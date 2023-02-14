@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXnAdGNM7wL7-0-t500x500.jpg">](https://soundcloud.com/subfocus/ready-to-fly-hardcore-mix-sub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziTMbIkBfYAlptNl-uK0aYA-t500x500.jpg">](https://soundcloud.com/remixedbynohero/taio-cruz-hangover-no-hero-remix-ft-flo-rida)
 
-**Artist**: Sub Focus 
+**Artist**: Remixed by No Hero 
 
-**Track**: Ready To Fly (Hardcore Mix / Sub Focus & Dimension)
+**Track**: Taio Cruz - Hangover (No Hero Remix) ft. Flo Rida
 
-Last updated at 02/13/2023 19:28
+Last updated at 02/13/2023 19:30
