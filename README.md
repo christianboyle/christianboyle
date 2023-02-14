@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtLVvCfDHXEG6c07-4IQlnA-t500x500.jpg">](https://soundcloud.com/openocean/fallinlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNLvKof7ySL7layQ-a7ZKDA-t500x500.jpg">](https://soundcloud.com/yungmaple/scared-to-lose-her)
 
-**Artist**: Open Ocean 
+**Artist**: yungmaple 
 
-**Track**: fall in love w me
+**Track**: SCARED TO LOSE HER
 
-Last updated at 02/13/2023 14:59
+Last updated at 02/13/2023 18:57
