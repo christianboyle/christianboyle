@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KdXcGySyDBUxsbN-YIravQ-t500x500.jpg">](https://soundcloud.com/d1vwv/boneandskin?in=danlrk/sets/bone-and-skin-w-d1v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zByWYIm1R5fM1YH-zzEy8w-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-hadar-adora-take-it-home)
 
-**Artist**: d1v 
+**Artist**: BLVD. 
 
-**Track**: bone and skin + buffalobang (dan larkin)
+**Track**: BLVD. & Hadar Adora - Take It Home
 
-Last updated at 02/13/2023 19:20
+Last updated at 02/13/2023 19:24
