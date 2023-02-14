@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SWq60QILq8NFK7dE-guXovA-t500x500.jpg">](https://soundcloud.com/skysia/preparing-the-path-skysia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JGsymeKcetJ39UdX-acohlg-t500x500.jpg">](https://soundcloud.com/heavygore/everything-i-wanted-heavy-gore-remix)
 
-**Artist**: Skysia 
+**Artist**: heavy gore 
 
-**Track**: Poranguí x Liquid Bloom - Preparing The Path (Skysia Remix)
+**Track**: everything i wanted (heavy gore remix)
 
-Last updated at 02/14/2023 08:05
+Last updated at 02/14/2023 08:06
