@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hszsHyrsSy5H2ZW-E4qb6w-t500x500.jpg">](https://soundcloud.com/txmx-glf/molten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106)
 
-**Artist**: Txmx 
+**Artist**: Beat 106 Scotland 
 
-**Track**: molten
+**Track**: Bonkers Beats #97 on Beat 106 Scotland with J-Trax 100223 (Hour 2)
 
-Last updated at 02/14/2023 08:07
+Last updated at 02/14/2023 08:13
