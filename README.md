@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ECVRNfItBhLozh8Q-7wWCYQ-t500x500.jpg">](https://soundcloud.com/simplifyrecs/tenzo-twinlights-take-me-over-feat-livingston-crain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hTISQfkSsVg4kR0y-hNJe2w-t500x500.jpg">](https://soundcloud.com/q-dancemusic/vertile-no-sleep)
 
-**Artist**: Simplify. 
+**Artist**: Q-dance Music 
 
-**Track**: Twin Lights, TENZO - Take Me Over (feat. Livingston Crain)
+**Track**: Vertile - No Sleep | Q-dance Records
 
-Last updated at 02/14/2023 08:03
+Last updated at 02/14/2023 08:04
