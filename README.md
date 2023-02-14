@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000130270138-dqfzv4-t500x500.jpg">](https://soundcloud.com/keysnkrates/save-me-feat-keys-n-krates-wuki-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106)
 
-**Artist**: Keys N Krates 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Save Me (feat. Keys N Krates) [Wuki Remix]
+**Track**: Bonkers Beats #97 on Beat 106 Scotland with J-Trax 100223 (Hour 2)
 
-Last updated at 02/13/2023 19:39
+Last updated at 02/13/2023 19:43
