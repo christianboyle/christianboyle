@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPVMKcxEONnQE07M-KdAsGg-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-jackies-boy-no-hands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KdXcGySyDBUxsbN-YIravQ-t500x500.jpg">](https://soundcloud.com/d1vwv/boneandskin?in=danlrk/sets/bone-and-skin-w-d1v)
 
-**Artist**: BLVD. 
+**Artist**: d1v 
 
-**Track**: BLVD. & Jackie's Boy - No Hands
+**Track**: bone and skin + buffalobang (dan larkin)
 
-Last updated at 02/13/2023 19:04
+Last updated at 02/13/2023 19:20
