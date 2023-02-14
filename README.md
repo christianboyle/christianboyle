@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t5fuQADxefENE6iJ-ycFj8g-t500x500.jpg">](https://soundcloud.com/weaverbeats/mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPVMKcxEONnQE07M-KdAsGg-t500x500.jpg">](https://soundcloud.com/blvdmusic/blvd-jackies-boy-no-hands)
 
-**Artist**: Weaver Beats 
+**Artist**: BLVD. 
 
-**Track**: Mine
+**Track**: BLVD. & Jackie's Boy - No Hands
 
-Last updated at 02/13/2023 19:03
+Last updated at 02/13/2023 19:04
