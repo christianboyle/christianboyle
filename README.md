@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/hb0XLX0b4Y4/maxresdefault.jpg">](https://www.youtube.com/watch?v=hb0XLX0b4Y4)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Ly7uj0JwgKg/maxresdefault.jpg">](https://www.youtube.com/watch?v=Ly7uj0JwgKg)
 
 **Artist**: 
   
-    Skrillex
+    Noisia
   
   
   
-    Skrillex
+    Noisia
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: SKRILLEX - QUEST FOR FIRE Basement Set
+**Track**: Noisia - Could This Be (Official Video)
 
-Last updated at 02/14/2023 20:44
+Last updated at 02/14/2023 20:45
