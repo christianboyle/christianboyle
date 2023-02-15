@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/hb0XLX0b4Y4/maxresdefault.jpg">](https://www.youtube.com/watch?v=hb0XLX0b4Y4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106-1)
 
-**Artist**: 
-  
-    Skrillex
-  
-  
-  
-    Skrillex
-  
+**Artist**: Beat 106 Scotland 
 
+**Track**: Bonkers Beats #97 on Beat 106 Scotland with Sharkey & Vinylgroover 100223 (Hour 1)
 
-
-
-
- 
-
-**Track**: SKRILLEX - QUEST FOR FIRE Basement Set
-
-Last updated at 02/14/2023 20:46
+Last updated at 02/15/2023 09:39
