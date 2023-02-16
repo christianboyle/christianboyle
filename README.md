@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpiyycr0GBqPR0vi-FsaQHg-t500x500.jpg">](https://soundcloud.com/sweetestmelodyofc/animal-picnic-19-26-xx-original-mix-siamese)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NwpktytnyPpPnV62-aVXEiA-t500x500.jpg">](https://soundcloud.com/bridgeyb14/scooter-weekend-bridgey-b-kinn-remixm)
 
-**Artist**: Sweetest Melody 
+**Artist**: BRIDGEY-B 
 
-**Track**: Animal Picnic, 19:26 - XX (Original Mix) [Siamese]
+**Track**: Scooter- Weekend (Bridgey - B & KINN Remix)M
 
-Last updated at 02/16/2023 09:27
+Last updated at 02/16/2023 14:05
