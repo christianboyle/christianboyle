@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zJqwvlMWPQllLiz-PssmsA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-97-on-beat-106-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOAw33bSMw7StV4r-ejw9nA-t500x500.jpg">](https://soundcloud.com/hardfest/softest-hard-my-boo-feat-blush)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: HARD hardfest.com 
 
-**Track**: Bonkers Beats #97 on Beat 106 Scotland with Sharkey & Vinylgroover 100223 (Hour 1)
+**Track**: Softest Hard - My Boo (feat. Blush)
 
-Last updated at 02/15/2023 09:39
+Last updated at 02/16/2023 09:04
