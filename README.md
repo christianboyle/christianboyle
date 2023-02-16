@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rpP7oVnHzUuxmNP-oW5B1g-t500x500.jpg">](https://soundcloud.com/djrikouk/fred-again-x-swedish-house-mafia-turn-on-the-lights-again-riko-rob-iyf-remiix-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpiyycr0GBqPR0vi-FsaQHg-t500x500.jpg">](https://soundcloud.com/sweetestmelodyofc/animal-picnic-19-26-xx-original-mix-siamese)
 
-**Artist**: DJ RIKO (Contagious Records) 
+**Artist**: Sweetest Melody 
 
-**Track**: Fred Again.. x Swedish House Mafia - Turn On The Lights Again.. (Riko & Rob IYF Remix)FREEDOWNLOAD
+**Track**: Animal Picnic, 19:26 - XX (Original Mix) [Siamese]
 
-Last updated at 02/16/2023 09:26
+Last updated at 02/16/2023 09:27
