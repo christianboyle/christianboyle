@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCfzGMa9DUvN28Fy-ezeXDA-t500x500.jpg">](https://soundcloud.com/basscvlt/occizor-edifice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXC5ONCgrrTOlFBn-2YblUw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/kitsune)
 
-**Artist**: BASSCVLT 
+**Artist**: Murder We Wrote 
 
-**Track**: Occizor - Edifice
+**Track**: PROXYS - KITSUNE (FREE DOWNLOAD)
 
-Last updated at 02/16/2023 09:15
+Last updated at 02/16/2023 09:16
