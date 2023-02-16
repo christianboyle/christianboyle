@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VjjGn4kPSRm3WzCM-7HN6xg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-hayes-were-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NwpktytnyPpPnV62-aVXEiA-t500x500.jpg">](https://soundcloud.com/bridgeyb14/scooter-weekend-bridgey-b-kinn-remixm)
 
-**Artist**: Dirty Workz 
+**Artist**: BRIDGEY-B 
 
-**Track**: Crystal Lake ft. Hayes - We're Alive
+**Track**: Scooter- Weekend (Bridgey - B & KINN Remix)M
 
-Last updated at 02/16/2023 09:10
+Last updated at 02/16/2023 09:11
