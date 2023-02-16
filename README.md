@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WXC5ONCgrrTOlFBn-2YblUw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/kitsune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpiyycr0GBqPR0vi-FsaQHg-t500x500.jpg">](https://soundcloud.com/sweetestmelodyofc/animal-picnic-19-26-xx-original-mix-siamese)
 
-**Artist**: Murder We Wrote 
+**Artist**: Sweetest Melody 
 
-**Track**: PROXYS - KITSUNE (FREE DOWNLOAD)
+**Track**: Animal Picnic, 19:26 - XX (Original Mix) [Siamese]
 
-Last updated at 02/16/2023 09:16
+Last updated at 02/16/2023 09:17
