@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IrdGy3gPO8zINuTq-qUKqjA-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDhT1BwM8ouyrTTd-TNGxdA-t500x500.jpg">](https://soundcloud.com/mokumrecords/mok275-rodox-trading-im-a-ruffneck-preview)
 
-**Artist**: TELYKast 
+**Artist**: mokumrecords 
 
-**Track**: BROADKAST - Mix 02
+**Track**: MOK275 - Rodox Trading - I'm A Ruffneck - preview
 
-Last updated at 02/16/2023 18:49
+Last updated at 02/17/2023 08:05
