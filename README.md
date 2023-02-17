@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bM0wFFUNwP7ixhBi-ZeEEeA-t500x500.jpg">](https://soundcloud.com/trekkie-trax/beaudamian-iarumas-the-cybernated-ronin-ep-official-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sUoqOjpthAPhVDIT-BN5Mnw-t500x500.jpg">](https://soundcloud.com/oneseventy/jorg-schmid-technikore-solid-ground)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: OneSeventy 
 
-**Track**: BeauDamian - Iarumas, The Cybernated Rōnin EP [Official Teaser]
+**Track**: Jorg Schmid & Technikore - Solid Ground (Radio Edit)
 
-Last updated at 02/17/2023 08:56
+Last updated at 02/17/2023 10:10
