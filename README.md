@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NwpktytnyPpPnV62-aVXEiA-t500x500.jpg">](https://soundcloud.com/bridgeyb14/scooter-weekend-bridgey-b-kinn-remixm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IrdGy3gPO8zINuTq-qUKqjA-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-02)
 
-**Artist**: BRIDGEY-B 
+**Artist**: TELYKast 
 
-**Track**: Scooter- Weekend (Bridgey - B & KINN Remix)M
+**Track**: BROADKAST - Mix 02
 
-Last updated at 02/16/2023 14:05
+Last updated at 02/16/2023 18:49
