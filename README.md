@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDhT1BwM8ouyrTTd-TNGxdA-t500x500.jpg">](https://soundcloud.com/mokumrecords/mok275-rodox-trading-im-a-ruffneck-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMhuQZmsTh0infSk-VaxhxA-t500x500.jpg">](https://soundcloud.com/mood_ids/dirty-palm-bad-reputation-spellbound-id)
 
-**Artist**: mokumrecords 
+**Artist**: Mood ID's 
 
-**Track**: MOK275 - Rodox Trading - I'm A Ruffneck - preview
+**Track**: Dirty Palm & Bad Reputation - Spellbound [STMPD]
 
-Last updated at 02/17/2023 08:05
+Last updated at 02/17/2023 08:06
