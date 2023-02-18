@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwjOZ07VcyRhgpGM-4CW5jw-t500x500.jpg">](https://soundcloud.com/renegvde/schoolyard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VK1g8UCD2Ng4Roph-kRWcaQ-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-35-feat-deerock)
 
-**Artist**: RENEGVDE 
+**Artist**: syence experiments 
 
-**Track**: Schoolyard
+**Track**: syence lab: volume 35 (feat. deerock) [insomniac radio]
 
-Last updated at 02/18/2023 16:19
+Last updated at 02/18/2023 16:20
