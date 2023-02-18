@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SBy3QcIlRzRaSup-sdQHYw-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-bladee-real-spring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBUjdbURrWup-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-lost-found)
 
-**Artist**: Skrillex 
+**Artist**: Gearbox Digital 
 
-**Track**: Skrillex & Bladee - Real Spring
+**Track**: Avi8 - LOST & FOUND
 
-Last updated at 02/18/2023 16:43
+Last updated at 02/18/2023 16:45
