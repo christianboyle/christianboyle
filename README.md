@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2qq7jYukWjbCD9i-PGrJaA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/eclipse-be-happy-brett-cooper-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5qvElm17SzWgH2i-lw0fTA-t500x500.jpg">](https://soundcloud.com/7cloudsmusic/matte-all-tied-up-ft-olivia-ray)
 
-**Artist**: Brett Cooper 
+**Artist**: 7clouds 
 
-**Track**: Eclipse - Be Happy (brett Cooper Remix) free download
+**Track**: Matte - All Tied Up (ft. Olivia Ray)
 
-Last updated at 02/18/2023 16:34
+Last updated at 02/18/2023 16:40
