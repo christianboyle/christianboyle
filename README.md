@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGFtXAjDSa5F9hfo-R2cZ0w-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-430-feat-mc-3style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAfQYqbNyDLutkNA-zZNbgA-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-back-of-the-maccas-kinn-remix-free-download)
 
-**Artist**: Dj EZC 
+**Artist**: KINN 
 
-**Track**: Hardcore Will Never Die Episode 430 (Featuring MC 3Style)
+**Track**: S3RL - Back Of The Macca's (KINN REMIX) **FREE DOWNLOAD**
 
-Last updated at 02/18/2023 12:04
+Last updated at 02/18/2023 13:49
