@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPA1BVuQeSUnGaN1-wyWpRg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/carm3lldans3n-carm3lla-girls-julian-tonkin-revenge-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyZDFQMF28zq575U-bxqPDQ-t500x500.jpg">](https://soundcloud.com/hoodmafia/hoodmafia-kushface-crack-a-seal)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: HOODMAFIA 
 
-**Track**: JULIAN TONKIN - K3WPI3_TOLD_ME_TO_MAKE_THIS
+**Track**: HOODMAFIA, kushface ☤ - CRACK A SEAL
 
-Last updated at 02/18/2023 17:04
+Last updated at 02/18/2023 17:48
