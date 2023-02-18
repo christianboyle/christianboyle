@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5qvElm17SzWgH2i-lw0fTA-t500x500.jpg">](https://soundcloud.com/7cloudsmusic/matte-all-tied-up-ft-olivia-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SBy3QcIlRzRaSup-sdQHYw-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-bladee-real-spring)
 
-**Artist**: 7clouds 
+**Artist**: Skrillex 
 
-**Track**: Matte - All Tied Up (ft. Olivia Ray)
+**Track**: Skrillex & Bladee - Real Spring
 
-Last updated at 02/18/2023 16:40
+Last updated at 02/18/2023 16:43
