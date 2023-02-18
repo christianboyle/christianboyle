@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylbfQTWEvsleLDep-6oWVdA-t500x500.jpg">](https://soundcloud.com/skrillex/skrillex-hazel-theme?in=skrillex/sets/quest-for-fire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyZDFQMF28zq575U-bxqPDQ-t500x500.jpg">](https://soundcloud.com/hoodmafia/hoodmafia-kushface-crack-a-seal)
 
-**Artist**: Skrillex 
+**Artist**: HOODMAFIA 
 
-**Track**: Skrillex - Hazel Theme
+**Track**: HOODMAFIA, kushface ☤ - CRACK A SEAL
 
-Last updated at 02/17/2023 18:35
+Last updated at 02/17/2023 18:36
