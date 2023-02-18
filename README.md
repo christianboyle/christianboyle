@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPA1BVuQeSUnGaN1-wyWpRg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/carm3lldans3n-carm3lla-girls-julian-tonkin-revenge-edit)
 
-**Artist**: luca rain 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Just for Fun (w/Fatshaudi)
+**Track**: JULIAN TONKIN - K3WPI3_TOLD_ME_TO_MAKE_THIS
 
-Last updated at 02/18/2023 17:01
+Last updated at 02/18/2023 17:04
