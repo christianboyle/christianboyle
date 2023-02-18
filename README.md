@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAfQYqbNyDLutkNA-zZNbgA-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-back-of-the-maccas-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEiYf3Z48RhrMUPd-V3reCg-t500x500.jpg">](https://soundcloud.com/bridgeyb14/resistance-21)
 
-**Artist**: KINN 
+**Artist**: BRIDGEY-B 
 
-**Track**: S3RL - Back Of The Macca's (KINN REMIX) **FREE DOWNLOAD**
+**Track**: RESISTANCE EP21
 
-Last updated at 02/18/2023 13:49
+Last updated at 02/18/2023 13:50
