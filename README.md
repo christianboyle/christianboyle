@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK1pUfBUBX1JP0Hs-stKlKA-t500x500.jpg">](https://soundcloud.com/groove-control/sub-focus-dimension-ready-to-fly-groove-control-dj-rome-hard-dance-edit-soundcloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taWg2TGKdbRY1XMi-JJCvcw-t500x500.jpg">](https://soundcloud.com/user-246925073/just-for-fun-wfatshaudi)
 
-**Artist**: Groove Control 
+**Artist**: luca rain 
 
-**Track**: Sub Focus, Dimension - Ready To Fly (Groove Control & DJ Rome 'Hard Dance' Edit)
+**Track**: Just for Fun (w/Fatshaudi)
 
-Last updated at 02/18/2023 16:53
+Last updated at 02/18/2023 17:01
