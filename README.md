@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyZDFQMF28zq575U-bxqPDQ-t500x500.jpg">](https://soundcloud.com/hoodmafia/hoodmafia-kushface-crack-a-seal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAfQYqbNyDLutkNA-zZNbgA-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-back-of-the-maccas-kinn-remix-free-download)
 
-**Artist**: HOODMAFIA 
+**Artist**: KINN 
 
-**Track**: HOODMAFIA, kushface ☤ - CRACK A SEAL
+**Track**: S3RL - Back Of The Macca's (KINN REMIX) **FREE DOWNLOAD**
 
-Last updated at 02/18/2023 18:02
+Last updated at 02/18/2023 18:05
