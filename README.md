@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTxO31e9lDpIrZf8-s2wlgw-t500x500.jpg">](https://soundcloud.com/morecreativityrecords/adiios-x-felds-the-way-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjfXxY82ifzLLufc-s09VgA-t500x500.jpg">](https://soundcloud.com/famesoundss/rufus-du-sol-innerbloom-fame-sounds-remix)
 
-**Artist**: more creativity 
+**Artist**: Fame Sounds 
 
-**Track**: Adiios x F!elds - The Way
+**Track**: Rufus Du Sol - Innerbloom (Fame Sounds Remix)
 
-Last updated at 02/19/2023 08:26
+Last updated at 02/19/2023 08:27
