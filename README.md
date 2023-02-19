@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRzAQGO6F7ntFST9-cm5SRQ-t500x500.jpg">](https://soundcloud.com/black-domino/black-domino-satisfy-me-feat-amanda-earhart-audio-snippet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYnLAKY0SYVKU9Mh-emlgWQ-t500x500.jpg">](https://soundcloud.com/girl-tool/i-dont-like-u)
 
-**Artist**: Black Domino 
+**Artist**: GIRL TOOL 
 
-**Track**: Satisfy Me! Feat. Amanda Earhart [Audio Snippet] [Full version (Spotify, etc)->Click on "buy"]
+**Track**: I Dont Like U
 
-Last updated at 02/19/2023 08:28
+Last updated at 02/19/2023 08:29
