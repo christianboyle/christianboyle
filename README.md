@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IrdGy3gPO8zINuTq-qUKqjA-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyZDFQMF28zq575U-bxqPDQ-t500x500.jpg">](https://soundcloud.com/hoodmafia/hoodmafia-kushface-crack-a-seal)
 
-**Artist**: TELYKAST 
+**Artist**: HOODMAFIA 
 
-**Track**: BROADKAST - Mix 02
+**Track**: HOODMAFIA, kushface ☤ - CRACK A SEAL
 
-Last updated at 02/18/2023 17:50
+Last updated at 02/18/2023 18:02
