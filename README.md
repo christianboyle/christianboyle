@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shz4mtVWK3fVviRT-NLMDlA-t500x500.jpg">](https://soundcloud.com/mazaretheparacosm/mazare-presents-the-paracosm-012-starring-adam-pearce-insomniac-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rlPQ7ys3XizAOlM0-zd3gYA-t500x500.jpg">](https://soundcloud.com/machelmontano/shake-the-place-ft-nicki-minaj-marfan-roadmix)
 
-**Artist**: The Paracosm with Mazare 
+**Artist**: Machel Montano 
 
-**Track**: Mazare Presents: The Paracosm #012 (starring: Adam Pearce) [Insomniac Radio]
+**Track**: Shake the Place ft. Nicki Minaj - Marfan Roadmix
 
-Last updated at 02/19/2023 11:09
+Last updated at 02/19/2023 11:10
