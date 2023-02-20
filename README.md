@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rlPQ7ys3XizAOlM0-zd3gYA-t500x500.jpg">](https://soundcloud.com/machelmontano/shake-the-place-ft-nicki-minaj-marfan-roadmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qn4f7lNzBSt2yxnD-gnzIeA-t500x500.jpg">](https://soundcloud.com/wearenene/sound-of-da-police)
 
-**Artist**: Machel Montano 
+**Artist**: NENE 
 
-**Track**: Shake the Place ft. Nicki Minaj - Marfan Roadmix
+**Track**: NENE - Sound of da Police (Radio Mix) | FREE DOWNLOAD
 
-Last updated at 02/19/2023 11:10
+Last updated at 02/20/2023 09:13
