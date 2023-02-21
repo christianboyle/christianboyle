@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6xo5UVxHj632sbD-gWxeyQ-t500x500.jpg">](https://soundcloud.com/ascentrecordings/ruslan-device-katsu-first)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzIkH5ujhIKSbTrG-HYOdaw-t500x500.jpg">](https://soundcloud.com/user-5135856/dude-master)
 
-**Artist**: Ascent Recordings 
+**Artist**: Castro Compositions 
 
-**Track**: Ruslan Device, Katsu - First Sight (Apollo Nash Remix)
+**Track**: REZZ x SUBTRONICS - PUZZLE BOX (CASTRO COVER)
 
-Last updated at 02/21/2023 11:43
+Last updated at 02/21/2023 11:44
