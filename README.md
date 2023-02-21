@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BQDTXgw2kdbDwm0h-NoBBhg-t500x500.jpg">](https://soundcloud.com/playmerecords/des-mcmahon-dread-despair-skellytn-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BeUXR1o5V4AYsByP-IpGxsw-t500x500.jpg">](https://soundcloud.com/deckheadzuk/brutalismus-good-girl)
 
-**Artist**: Play Me Records 
+**Artist**: DeckHeadZ 
 
-**Track**: Des McMahon - Dread & Despair (Skellytn Remix)
+**Track**: Brutalismus 3000 - Good Girl (DeckHeadZ Edit).mp3
 
-Last updated at 02/21/2023 11:46
+Last updated at 02/21/2023 11:47
