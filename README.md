@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPNjiw8qDXzRcIF4-5yUWyQ-t500x500.jpg">](https://soundcloud.com/arcando-official/ginseng-strip-2002-arcando-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KT8ZxptiEfyi23Yp-u6oYYg-t500x500.jpg">](https://soundcloud.com/nicolas_julian/themiddle)
 
-**Artist**: Arcando 
+**Artist**: Nicolas Julian / 
 
-**Track**: Yung Lean - Ginseng Strip 2002 (Arcando Remix)
+**Track**: Nicolas Julian - The Middle
 
-Last updated at 02/21/2023 11:40
+Last updated at 02/21/2023 11:41
