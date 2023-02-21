@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bQ7bjWzrWJdQLqsd-GD1j6A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-98-on-beat-106?in=beat106scotland/sets/bonkers-beats-98-on-beat-106-scotland-with-kaylene-scr-m-zone-170223)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyAlELwCX1AJb9i5-0UZA9Q-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/knndy-scarlett-deja-vu)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Teamwrk Records 
 
-**Track**: Bonkers Beats #98 on Beat 106 Scotland with M-Zone 170223 (Hour 2)
+**Track**: KNNDY & Scarlett - Deja Vu
 
-Last updated at 02/21/2023 11:51
+Last updated at 02/21/2023 11:58
