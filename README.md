@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3F5Eq9L4jUNHlgse-VscDMw-t500x500.jpg">](https://soundcloud.com/lacuna/ryllz-bad-habit-alaina-cross)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWy4CmyoCIJwvjUg-qc3yfg-t500x500.jpg">](https://soundcloud.com/rebootevents/blk-luvsu?in=rebootevents/sets/blk-luvs-u-ep)
 
-**Artist**: Lacuna 
+**Artist**: Reboot Events (Reboot Records IRE) 
 
-**Track**: RYLLZ - Bad Habit (ft. Alaina Cross)
+**Track**: blk. - luvs.u
 
-Last updated at 02/21/2023 13:06
+Last updated at 02/21/2023 13:07
