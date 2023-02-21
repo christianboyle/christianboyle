@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41gmXJ0rO9kDyM3E-AfX6vw-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/penrose-gemini)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bQ7bjWzrWJdQLqsd-GD1j6A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-98-on-beat-106)
 
-**Artist**: Teamwrk Records 
+**Artist**: Beat 106 Scotland 
 
-**Track**: PENROSE - Gemini
+**Track**: Bonkers Beats #98 on Beat 106 Scotland with M-Zone 170223 (Hour 2)
 
-Last updated at 02/21/2023 12:26
+Last updated at 02/21/2023 12:34
