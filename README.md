@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyAlELwCX1AJb9i5-0UZA9Q-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/knndy-scarlett-deja-vu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41gmXJ0rO9kDyM3E-AfX6vw-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/penrose-gemini)
 
 **Artist**: Teamwrk Records 
 
-**Track**: KNNDY & Scarlett - Deja Vu
+**Track**: PENROSE - Gemini
 
-Last updated at 02/21/2023 11:58
+Last updated at 02/21/2023 12:26
