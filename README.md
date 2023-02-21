@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BeUXR1o5V4AYsByP-IpGxsw-t500x500.jpg">](https://soundcloud.com/deckheadzuk/brutalismus-good-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyAlELwCX1AJb9i5-0UZA9Q-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/knndy-scarlett-deja-vu)
 
-**Artist**: DeckHeadZ 
+**Artist**: Teamwrk Records 
 
-**Track**: Brutalismus 3000 - Good Girl (DeckHeadZ Edit).mp3
+**Track**: KNNDY & Scarlett - Deja Vu
 
-Last updated at 02/21/2023 11:47
+Last updated at 02/21/2023 11:48
