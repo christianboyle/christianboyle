@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZZFVSy8dSJW74Z6-wSxc3Q-t500x500.jpg">](https://soundcloud.com/bkbeats/sf001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPNjiw8qDXzRcIF4-5yUWyQ-t500x500.jpg">](https://soundcloud.com/arcando-official/ginseng-strip-2002-arcando-remix)
 
-**Artist**: bk beats 
+**Artist**: Arcando 
 
-**Track**: special favorite 001 set
+**Track**: Yung Lean - Ginseng Strip 2002 (Arcando Remix)
 
-Last updated at 02/20/2023 09:14
+Last updated at 02/21/2023 11:40
