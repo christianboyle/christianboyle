@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p2nBhvSeR8fBLaUD-bRflHQ-t500x500.jpg">](https://soundcloud.com/karl-guapo/jackel-dvrko-party-favors-feat-brill-l3nny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yoEpCBy4XPypCUmH-ZCThLA-t500x500.jpg">](https://soundcloud.com/nachhh/rs-07)
 
-**Artist**: L3NNY 
+**Artist**: nachhh 
 
-**Track**: JackEL & DVRKO - Party Favors (feat. BRILL)(L3NNY REMIX)
+**Track**: Rs - 07
 
-Last updated at 02/22/2023 09:03
+Last updated at 02/22/2023 09:04
