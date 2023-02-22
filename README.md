@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41gmXJ0rO9kDyM3E-AfX6vw-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/penrose-gemini)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZZFVSy8dSJW74Z6-wSxc3Q-t500x500.jpg">](https://soundcloud.com/bkbeats/sf001)
 
-**Artist**: Teamwrk Records 
+**Artist**: bk beats 
 
-**Track**: PENROSE - Gemini
+**Track**: special favorite 001 set
 
-Last updated at 02/22/2023 10:38
+Last updated at 02/22/2023 10:42
