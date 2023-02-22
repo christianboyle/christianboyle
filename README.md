@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000164128702-qvdtb9-t500x500.jpg">](https://soundcloud.com/bigedmsounds/jungle-terror-tools)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMBbcFdTJdV8ssdj-9afxNA-t500x500.jpg">](https://soundcloud.com/the-games-we-play/imer6ia-nightshift-premiere)
 
-**Artist**: Big EDM Sounds 
+**Artist**: † ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ † 
 
-**Track**: Jungle Terror Tools [Construction Kits, Melody & Drum Loops, Serum Presets] #3 Beatport Top 10!
+**Track**: Imer6ia - Nightshift [PREMIERE]
 
-Last updated at 02/22/2023 09:00
+Last updated at 02/22/2023 09:01
