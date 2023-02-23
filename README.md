@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKhgZt5Y116P34iC-y6czUw-t500x500.jpg">](https://soundcloud.com/aceonearth/lo-fried-og)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-84RkJD91TPyRHKoP-yy2eZg-t500x500.jpg">](https://soundcloud.com/clovdaudio/skrillex-missy-elliott-mr-oizo-ratata-clovd-flip)
 
-**Artist**: Ace On Earth 
+**Artist**: CLOVD 
 
-**Track**: Lo-Fried (OG mini mix)
+**Track**: Skrillex, Missy Elliott & Mr. Oizo - RATATA (CLOVD FLIP)
 
-Last updated at 02/23/2023 11:15
+Last updated at 02/23/2023 11:16
