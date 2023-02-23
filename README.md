@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GSq3ryjInJP08EL8-xGyAhA-t500x500.jpg">](https://soundcloud.com/darklightrec/guest-mix-kapuzen-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uapfmhhC0S5ZrJ8G-NvPyxQ-t500x500.jpg">](https://soundcloud.com/goretega/live-the-black-box-021023)
 
-**Artist**: Darklight Recordings 
+**Artist**: GORETEGA 
 
-**Track**: Guest Mix: Kapuzen
+**Track**: LIVE @ THE BLACK BOX 02.10.23 (FIRST HOUR)
 
-Last updated at 02/23/2023 11:17
+Last updated at 02/23/2023 17:04
