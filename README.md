@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WMMUuCVvNYcUUWWp-xvzDGg-t500x500.jpg">](https://soundcloud.com/floorforceone/smash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000112023872-jvmrms-t500x500.jpg">](https://soundcloud.com/zutzut/jadea-1)
 
-**Artist**: FLOOR FORCE ONE 
+**Artist**: Zutzut 
 
-**Track**: SMASH
+**Track**: Jadea
 
-Last updated at 02/22/2023 12:56
+Last updated at 02/22/2023 19:23
