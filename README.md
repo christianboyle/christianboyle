@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PupdqlsCSCs/maxresdefault.jpg">](https://www.youtube.com/watch?v=PupdqlsCSCs)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
 
 **Artist**: 
   
-    RL Grime
+    S3RL
   
   
   
-    RL Grime
+    S3RL
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: RL Grime - Halloween IX
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 02/24/2023 17:13
+Last updated at 02/24/2023 17:16
