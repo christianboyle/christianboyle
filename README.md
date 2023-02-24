@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPnZQMy4GkP1NDE6-IEgemQ-t500x500.jpg">](https://soundcloud.com/djslickmusic/edit-pack-vol-9)
 
-**Artist**: Trapical Music 
+**Artist**: SLICK 
 
-**Track**: Charli XCX - Move Me (Meddus Remix)
+**Track**: EDIT PACK VOL. 9 [Supported by RL GRIME, DJ DIESEL, Flosstradamus, Adventure Club & BENZI]
 
-Last updated at 02/24/2023 12:18
+Last updated at 02/24/2023 12:19
