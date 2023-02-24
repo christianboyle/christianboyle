@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160631057-zpq99d-t500x500.jpg">](https://soundcloud.com/craigspree/spree-roller-coaster-1999-original-vinyl-mix-oldschool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVp7C0xEvwQuyZcN-KnKUqw-t500x500.jpg">](https://soundcloud.com/rvdymusic/runaway)
 
-**Artist**: Paul Knox / DJ Spree 
+**Artist**: RVDY 
 
-**Track**: Spree - Roller Coaster - 1999 Original Vinyl Mix - OLDSCHOOL
+**Track**: RVDY - Runaway
 
-Last updated at 02/24/2023 12:14
+Last updated at 02/24/2023 12:15
