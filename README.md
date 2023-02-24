@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdMnrZ3kKByo-0-t500x500.jpg">](https://soundcloud.com/rvdymusic/entropy-and-order)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rVXGGXFwjoW2NSoe-Cgb2kw-t500x500.jpg">](https://soundcloud.com/djslickmusic/slicko-mode-vol-4)
 
-**Artist**: RVDY 
+**Artist**: SLICK 
 
-**Track**: Entropy and Order
+**Track**: SLICKO MODE VOL. 4
 
-Last updated at 02/24/2023 12:16
+Last updated at 02/24/2023 12:17
