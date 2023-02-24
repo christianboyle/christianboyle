@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szaOitykzrBl-0-t500x500.jpg">](https://soundcloud.com/officialnohero/show-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
 
-**Artist**: No Hero 
+**Artist**: SABLE VALLEY 
 
-**Track**: Show You
+**Track**: DJ Ride - TAKETHISWAY
 
-Last updated at 02/24/2023 12:32
+Last updated at 02/24/2023 12:34
