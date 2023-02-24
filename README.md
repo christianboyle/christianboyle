@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1zyNBzopWMp0sgD-WmFCZw-t500x500.jpg">](https://soundcloud.com/q-dancemusic/aftershock-top-of-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cR8zUbB2JdFvUNy1-MwcSKw-t500x500.jpg">](https://soundcloud.com/lalou-hard/full-moon-by-lalou-may-2021-exclusive-tribute-to-avi8)
 
-**Artist**: Q-dance Music 
+**Artist**: Lalou 
 
-**Track**: Aftershock - Top Of The World | Q-dance Records
+**Track**: FULL MOON by LALOU - May 2021 (Exclusive Tribute to Avi8)
 
-Last updated at 02/24/2023 12:11
+Last updated at 02/24/2023 12:12
