@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKWIdPq1exsDSgov-6Y5aXA-t500x500.jpg">](https://soundcloud.com/sablevalley/worlds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Dirty Workz 
 
-**Track**: Heimanu - Worlds
+**Track**: TNT - OMG
 
-Last updated at 02/24/2023 12:36
+Last updated at 02/24/2023 12:38
