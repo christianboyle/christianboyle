@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4RQYtOqtoRMNZ8BT-2u2dBg-t500x500.jpg">](https://soundcloud.com/massiveruehl/zedd-beautiful-nowvaskan-hardstyle-remixmassive-ruhl-editzyzzcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix)
 
-**Artist**: Massive Rühl 
+**Artist**: No Hero 
 
-**Track**: Zedd - Beautiful Now(Vaskan Hardstyle Remix)(Massive Rühl Edit/Zyzzcore)
+**Track**: Katy Perry - Hot N Cold (No Hero Remix)
 
-Last updated at 02/24/2023 12:29
+Last updated at 02/24/2023 12:30
