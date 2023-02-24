@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QD5TGBnzrcgNaTca-ECpHpw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-omg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32myprwsj0iqUB7v-XDoJRg-t500x500.jpg">](https://soundcloud.com/heimanux/skeler-arcadia-heimanu-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: heimanu 
 
-**Track**: TNT - OMG
+**Track**: Skeler - Arcadia (Heimanu Remix)
 
-Last updated at 02/24/2023 12:38
+Last updated at 02/24/2023 12:39
