@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160631057-zpq99d-t500x500.jpg">](https://soundcloud.com/craigspree/spree-roller-coaster-1999-original-vinyl-mix-oldschool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyQySY6LCif5xMyB-SNUmNQ-t500x500.jpg">](https://soundcloud.com/q-dancemusic/demi-kanon-ft-ava-silver-million-miles)
 
-**Artist**: Paul Knox / DJ Spree 
+**Artist**: Q-dance Music 
 
-**Track**: Spree - Roller Coaster - 1999 Original Vinyl Mix - OLDSCHOOL
+**Track**: Demi Kanon ft. Ava Silver - Million Miles | Q-dance presents SPEQTRUM
 
-Last updated at 02/24/2023 12:04
+Last updated at 02/24/2023 12:09
