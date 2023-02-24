@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uapfmhhC0S5ZrJ8G-NvPyxQ-t500x500.jpg">](https://soundcloud.com/goretega/live-the-black-box-021023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tf5LPBIWAqqhE9xX-PFuf0g-t500x500.jpg">](https://soundcloud.com/sopranosbounce/dj-nicki-b-promo-mix-sopranos-vs-frequency)
 
-**Artist**: GORETEGA 
+**Artist**: Sopranos Bounce 
 
-**Track**: LIVE @ THE BLACK BOX 02.10.23 (FIRST HOUR)
+**Track**: DJ Nicki B Promo Mix - Sopranos Vs Frequency
 
-Last updated at 02/24/2023 12:02
+Last updated at 02/24/2023 12:03
