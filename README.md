@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVp7C0xEvwQuyZcN-KnKUqw-t500x500.jpg">](https://soundcloud.com/rvdymusic/runaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdMnrZ3kKByo-0-t500x500.jpg">](https://soundcloud.com/rvdymusic/entropy-and-order)
 
 **Artist**: RVDY 
 
-**Track**: RVDY - Runaway
+**Track**: Entropy and Order
 
-Last updated at 02/24/2023 12:15
+Last updated at 02/24/2023 12:16
