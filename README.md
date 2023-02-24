@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/PRKqvZKbY2k/maxresdefault.jpg">](https://www.youtube.com/watch?v=PRKqvZKbY2k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Naeleck 
 
+**Track**: Naeleck - Creep (BYOR Remix)
 
-
-
-
- 
-
-**Track**: S3RL Penultimately Presents...
-
-Last updated at 02/24/2023 17:16
+Last updated at 02/24/2023 17:19
