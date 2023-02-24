@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPnZQMy4GkP1NDE6-IEgemQ-t500x500.jpg">](https://soundcloud.com/djslickmusic/edit-pack-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3KHbynuRQ6H3Wol-RzenNw-t500x500.jpg">](https://soundcloud.com/skypierr/vinland-saga-opening-mukanjyo-skypierr-remix-1)
 
-**Artist**: SLICK 
+**Artist**: skypierr 
 
-**Track**: EDIT PACK VOL. 9 [Supported by RL GRIME, DJ DIESEL, Flosstradamus, Adventure Club & BENZI]
+**Track**: Vinland Saga Opening | Mukanjyo (skypierr remix)
 
-Last updated at 02/24/2023 12:19
+Last updated at 02/24/2023 12:20
