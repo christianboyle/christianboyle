@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPWtMTSkiL3F6eIc-gzL7ug-t500x500.jpg">](https://soundcloud.com/naeleck/creep-byor-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkC8HNq4ZyT9omDT-EcwK3A-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/cascada-everytime-we-touch-tatsunoshin-festival-mix)
 
-**Artist**: Naeleck 
+**Artist**: Tatsunoshin 
 
-**Track**: Naeleck - Creep (BYOR Remix)
+**Track**: Cascada - Everytime We Touch (Tatsunoshin Festival Mix)
 
-Last updated at 02/24/2023 17:19
+Last updated at 02/24/2023 17:20
