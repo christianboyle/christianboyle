@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFjX1FQ9XZJHpsP6-7llpug-t500x500.jpg">](https://soundcloud.com/niteboisloststars/roadtoheaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkqau8CBVJ84dLFL-Woz7Cw-t500x500.jpg">](https://soundcloud.com/david-rust-dj/david-rust-the-beat-teaser)
 
-**Artist**: niteboi's lost stars 
+**Artist**: David Rust DJ 
 
-**Track**: Loneliness - road to heaven ft. niteboi
+**Track**: David Rust - The Beat (OUT NOW)
 
-Last updated at 02/24/2023 19:54
+Last updated at 02/24/2023 19:55
