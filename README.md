@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkvanUnJhfbv-0-t500x500.jpg">](https://soundcloud.com/christianfrench/thank-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFjX1FQ9XZJHpsP6-7llpug-t500x500.jpg">](https://soundcloud.com/niteboisloststars/roadtoheaven)
 
-**Artist**: christian french 
+**Artist**: niteboi's lost stars 
 
-**Track**: thank god
+**Track**: Loneliness - road to heaven ft. niteboi
 
-Last updated at 02/24/2023 19:53
+Last updated at 02/24/2023 19:54
