@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VkDqHpdEgvle9rH-tvjd8g-t500x500.jpg">](https://soundcloud.com/mountmikemusic/mount-mike-killing-time-mama-said-13-closing-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQaJQARgeaF9kA1O-z1bmBA-t500x500.jpg">](https://soundcloud.com/craighughesdj/alan-fitzpatrick-truant-hard-edit)
 
-**Artist**: Mount Mike 
+**Artist**: CRAAIG 
 
-**Track**: Mount Mike @ Killing Time / MAMA SAID 13 (Closing Set)
+**Track**: truant [CRAAIG hard edit]
 
-Last updated at 02/25/2023 14:18
+Last updated at 02/25/2023 16:19
