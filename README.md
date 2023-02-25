@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1GbZu2F4fZYqA7Jr-trye4w-t500x500.jpg">](https://soundcloud.com/gmafiarecords/sanolsen-ill-be-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uwlUIquIeMbe1c1X-p1omIw-t500x500.jpg">](https://soundcloud.com/djblnmusic/mono-waiting-for-you-bln)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: BLN 
 
-**Track**: Sanolsen - I'll Be There (Original Mix)[G-MAFIA RECORDS]
+**Track**: MONO - Waiting For You (BLN Vina Hard Flip)
 
-Last updated at 02/25/2023 14:09
+Last updated at 02/25/2023 14:10
