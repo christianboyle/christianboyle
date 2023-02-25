@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkqau8CBVJ84dLFL-Woz7Cw-t500x500.jpg">](https://soundcloud.com/david-rust-dj/david-rust-the-beat-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PjSlgS76xbVXBgHM-xzxKHw-t500x500.jpg">](https://soundcloud.com/junkiekidmusic/ray-volpe-laserbeam-junkie-kid-edit)
 
-**Artist**: David Rust DJ 
+**Artist**: JUNKIE KID 
 
-**Track**: David Rust - The Beat (OUT NOW)
+**Track**: Ray Volpe - Laserbeam (Junkie Kid Edit)
 
-Last updated at 02/24/2023 19:55
+Last updated at 02/24/2023 19:57
