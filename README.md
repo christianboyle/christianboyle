@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbO3iBjVdNmy8CZ2-IxxeGg-t500x500.jpg">](https://soundcloud.com/edekit/ground-score-hunter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bQOhk0LqCrB3OmWg-gojxRA-t500x500.jpg">](https://soundcloud.com/djkaku/skrillex-fred-again-flowdan-rumble-kaku-teez-remix)
 
-**Artist**: Edekit 
+**Artist**: KAKU 
 
-**Track**: Ground Score Hunter
+**Track**: Skrillex, Fred again.. & Flowdan - RUMBLE (KAKU & TEEZ Remix)
 
-Last updated at 02/24/2023 18:06
+Last updated at 02/24/2023 18:49
