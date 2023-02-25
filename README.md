@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1RQzi2d02ZTdy7NB-bOyvUA-t500x500.jpg">](https://soundcloud.com/bitbird/helloworld-call-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKSGODj4dgx2Qgdy-rxWONQ-t500x500.jpg">](https://soundcloud.com/umru/triplej)
 
-**Artist**: bitbird 
+**Artist**: umru 
 
-**Track**: helloworld - call me up (ft. Sajan Nauriyal)
+**Track**: umru vs. Petal Supply ― Battle For Australia mix on triple j
 
-Last updated at 02/25/2023 14:07
+Last updated at 02/25/2023 14:08
