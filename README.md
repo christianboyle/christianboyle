@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwmy8pZayBGZwuid-hNmQJQ-t500x500.jpg">](https://soundcloud.com/craighughesdj/special-d-come-with-me-hard-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPHQNYHPQslBk9Nh-SKKkaA-t500x500.jpg">](https://soundcloud.com/uberjakd/9pm-uberjakd-remix-atb)
 
-**Artist**: CRAAIG 
+**Artist**: Uberjak'd 
 
-**Track**: special d - come with me [hard edit] - free download
+**Track**: 9PM [Uberjakd Remix] - ATB
 
-Last updated at 02/26/2023 16:55
+Last updated at 02/26/2023 17:01
