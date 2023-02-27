@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jEInXDjyf0nMOuy-2I5Weg-t500x500.jpg">](https://soundcloud.com/3dmg-beatz/hey-bitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fwzBCyKrFDttggwc-ybCW8w-t500x500.jpg">](https://soundcloud.com/craighughesdj/heartbeatz-hard-edit-1)
 
-**Artist**: 3DMG 
+**Artist**: CRAAIG 
 
-**Track**: HEY BITCH
+**Track**: heartbeatz [hard edit]
 
-Last updated at 02/26/2023 19:17
+Last updated at 02/26/2023 19:18
