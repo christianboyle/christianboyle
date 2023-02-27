@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UehO0PJdJyodVSyd-Qy0z0w-t500x500.jpg">](https://soundcloud.com/wilco_beats/trench-gun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jix7l6gUaM3I7ZeY-WzhTCA-t500x500.jpg">](https://soundcloud.com/990x/paralysis?in=silasroe/sets/ambient-curation)
 
-**Artist**: Wilco Beats 
+**Artist**: 990x 
 
-**Track**: Trench Gun
+**Track**: paralysis
 
-Last updated at 02/27/2023 09:32
+Last updated at 02/27/2023 09:33
