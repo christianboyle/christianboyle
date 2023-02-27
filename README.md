@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MA2KwUGztEq2z8Vk-a3jLWA-t500x500.jpg">](https://soundcloud.com/systemkids/telykast-better-now-with-francis-karel-system-kids-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/stilpane)
 
-**Artist**: SYSTEM KIDS 
+**Artist**: Joeyy 
 
-**Track**: TELYKast - Better Now (with Francis Karel) (SYSTEM KIDS Remix)
+**Track**: ᔕᵗⁱⓁ𝑃ANǝ (𝑃r𝗼∂︎. Iokera & iji)
 
-Last updated at 02/27/2023 12:17
+Last updated at 02/27/2023 12:48
