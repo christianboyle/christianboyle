@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GHrZi6bWA9LrQJKy-gFqdHw-t500x500.jpg">](https://soundcloud.com/okayno/iji-margo-proxy-rdom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nnMVUkYYcJAVJmEo-tK0YbA-t500x500.jpg">](https://soundcloud.com/marlon-dubois/agenda-w-enry-mosto-od-i?in=okayno/sets/produced-by-iji)
 
-**Artist**: iji 
+**Artist**: Marlon DuBois 
 
-**Track**: iji & margo proxy - 𝔣rᵉᵉdom 🧸🃏
+**Track**: Agenda w/ 𝐻enry Mosto [℘ཞoɖ 𝒾ʝi]
 
-Last updated at 02/27/2023 09:42
+Last updated at 02/27/2023 10:12
