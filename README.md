@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQaJQARgeaF9kA1O-z1bmBA-t500x500.jpg">](https://soundcloud.com/craighughesdj/alan-fitzpatrick-truant-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fwzBCyKrFDttggwc-ybCW8w-t500x500.jpg">](https://soundcloud.com/craighughesdj/heartbeatz-hard-edit-1)
 
 **Artist**: CRAAIG 
 
-**Track**: truant [CRAAIG hard edit]
+**Track**: heartbeatz [hard edit]
 
-Last updated at 02/27/2023 13:35
+Last updated at 02/27/2023 13:41
