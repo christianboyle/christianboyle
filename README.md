@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fwzBCyKrFDttggwc-ybCW8w-t500x500.jpg">](https://soundcloud.com/craighughesdj/heartbeatz-hard-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyQySY6LCif5xMyB-SNUmNQ-t500x500.jpg">](https://soundcloud.com/q-dancemusic/demi-kanon-ft-ava-silver-million-miles)
 
-**Artist**: CRAAIG 
+**Artist**: Q-dance Music 
 
-**Track**: heartbeatz [hard edit]
+**Track**: Demi Kanon ft. Ava Silver - Million Miles | Q-dance presents SPEQTRUM
 
-Last updated at 02/26/2023 19:25
+Last updated at 02/26/2023 21:03
