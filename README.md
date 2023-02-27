@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zg9ius8hLn26mA8R-ipHgVw-t500x500.jpg">](https://soundcloud.com/entervale/s03e04-connor-q-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIi2pdpdpEct-0-t500x500.jpg">](https://soundcloud.com/maudelstatus/heaven-1)
 
-**Artist**: ENTER:VALE PROGRAM 
+**Artist**: Maude Latour 
 
-**Track**: S03:E04 ◽ (Connor q Guest Mix)
+**Track**: Heaven
 
-Last updated at 02/27/2023 10:17
+Last updated at 02/27/2023 12:14
