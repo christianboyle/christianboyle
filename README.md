@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwmy8pZayBGZwuid-hNmQJQ-t500x500.jpg">](https://soundcloud.com/craighughesdj/special-d-come-with-me-hard-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/stilpane)
 
-**Artist**: CRAAIG 
+**Artist**: Joeyy 
 
-**Track**: special d - come with me [hard edit] - free download
+**Track**: ᔕᵗⁱⓁ𝑃ANǝ (𝑃r𝗼∂︎. Iokera & iji)
 
-Last updated at 02/27/2023 13:29
+Last updated at 02/27/2023 13:30
