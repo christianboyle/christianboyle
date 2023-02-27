@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxvXutwi5S2R6oNH-dqUAbw-t500x500.jpg">](https://soundcloud.com/bassrush/benda-homicide-feat-puku)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TViFK3WTJ0SyyZZD-6FgmxA-t500x500.jpg">](https://soundcloud.com/djsmth/dtone)
 
-**Artist**: Bassrush 
+**Artist**: dj something 
 
-**Track**: Benda - Homicide (feat. Puku)
+**Track**: dtone
 
-Last updated at 02/26/2023 19:13
+Last updated at 02/26/2023 19:14
