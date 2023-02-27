@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGAvbKaPfyAXZ6IK-oZA8Mw-t500x500.jpg">](https://soundcloud.com/okayno/goodbye-stagnation-new-oxygen-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lv1nzvuKLZOw1YQa-d7jmyQ-t500x500.jpg">](https://soundcloud.com/okayno/iji-lavan-tamoko)
 
 **Artist**: iji 
 
-**Track**: Goodbye stagnation, New oxygen.. Now
+**Track**: iji lavan - Tāmoko
 
-Last updated at 02/27/2023 09:37
+Last updated at 02/27/2023 09:39
