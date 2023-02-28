@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsReD06vAJ1F4HbY-P62q3Q-t500x500.jpg">](https://soundcloud.com/nvadrz/runagate)
 
-**Artist**: Joeyy 
+**Artist**: NVADRZ 
 
-**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
+**Track**: NVADRZ & ALIAS - RUNAGATE
 
-Last updated at 02/28/2023 14:42
+Last updated at 02/28/2023 14:43
