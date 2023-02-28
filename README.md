@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/2Db7J7NG8oU/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AHSBoAC4AOKAgwIABABGGUgVihDMA8=&rs=AOn4CLAdTInqAVsUkN6wejNx_dVtZNkrKw">](https://www.youtube.com/watch?v=2Db7J7NG8oU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6NmygZrmqytywCX-HbjnzA-t500x500.jpg">](https://soundcloud.com/beat106scotland/paul-mendez-beat-106-942516527?in=beat106scotland/sets/paul-mendez-on-beat-106-scotland-1)
 
-**Artist**: 
-  
-    Ben Myers
-  
-  
-  
-    Ben Myers
-  
+**Artist**: Beat 106 Scotland 
 
+**Track**: Paul Mendez Beat 106 Scotland November 5th 2022
 
-
-
-
- 
-
-**Track**: Ben Myers - Set Live @ the Library Salina, KS March 2022
-
-Last updated at 02/27/2023 20:00
+Last updated at 02/28/2023 08:35
