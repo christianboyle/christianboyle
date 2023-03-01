@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eF2ZXli1ooQpbXfz-wR7Srw-t500x500.jpg">](https://soundcloud.com/ariaveil/theres-way-too-much-shit-i-wish-i-didnt-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MqyN4yrnhUOn4nE6-DhUhRA-t500x500.jpg">](https://soundcloud.com/para-50169098/frenchcore-vol-2)
 
-**Artist**: ARIA VEIL 
+**Artist**: PARA 
 
-**Track**: THERES WAY TOO MUCH SHIT I WISH I DIDNT KNOW
+**Track**: Frenchcore VOL 2
 
-Last updated at 03/01/2023 08:04
+Last updated at 03/01/2023 08:06
