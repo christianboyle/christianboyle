@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FNNsJgT2Tr1r6yK9-TqNrEg-t500x500.jpg">](https://soundcloud.com/semantic-productions/house-pack-by-la-ross-preview-premium-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
 
-**Artist**: Semantic Productions 
+**Artist**: Joeyy 
 
-**Track**: House Pack by L.A. ROSS (Preview) Premium Exclusive
+**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
 
-Last updated at 02/28/2023 20:24
+Last updated at 02/28/2023 20:25
