@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YW6sfzPqdqyXiphx-IPtvFw-t500x500.jpg">](https://soundcloud.com/saikyo9/swag-habitzzz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ly96AzVcM9r1peEP-W4SvCA-t500x500.jpg">](https://soundcloud.com/drippinginroses/britto-how-deep-is-your-love)
 
-**Artist**: saikyo9̴̞͎̱̹̇͋͆̅͝ 
+**Artist**: DRIPPING IN ROSES 
 
-**Track**: .｡.:*☆ swag ₛwₐg HabitZzz .. ₕₐbᵢₜZzz ‧͙⁺˚*･Z̵͓̳̗̟̘̆̋̊̆͜z̶͈͗̾͆̾͒͠à̸̛͔̔̉̕
+**Track**: Britto - How Deep Is Your Love
 
-Last updated at 02/28/2023 15:52
+Last updated at 02/28/2023 20:23
