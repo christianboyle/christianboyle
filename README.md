@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EQ1DZULW0KtgqHgh-5lTJzw-t500x500.jpg">](https://soundcloud.com/itsmsft/be-right-there-msft-remix)
 
-**Artist**: Joeyy 
+**Artist**: msft. 
 
-**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
+**Track**: diplo & sleepy tom - be right there (msft remix)
 
-Last updated at 02/28/2023 20:28
+Last updated at 03/01/2023 08:03
