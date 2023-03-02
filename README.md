@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uey40giJEmiUEx8O-Klr4zQ-t500x500.jpg">](https://soundcloud.com/billykinn/kshmr-tungevaag-close-your-eyes-kinn-bridgey-b-remixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eF2ZXli1ooQpbXfz-wR7Srw-t500x500.jpg">](https://soundcloud.com/ariaveil/theres-way-too-much-shit-i-wish-i-didnt-know)
 
-**Artist**: KINN 
+**Artist**: ARIA VEIL 
 
-**Track**: KSHMR & Tungevaag - Close Your Eyes - (KINN & Bridgey - B  Remix)**FREE DOWNLOAD**
+**Track**: THERES WAY TOO MUCH SHIT I WISH I DIDNT KNOW
 
-Last updated at 03/02/2023 13:21
+Last updated at 03/02/2023 13:36
