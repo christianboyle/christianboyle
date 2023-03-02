@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIBpIyDM8mejesp7-Gz1mJg-t500x500.jpg">](https://soundcloud.com/monstercat/wassu-mimi-page-within-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rscRrE09blHaMKDY-URb9xw-t500x500.jpg">](https://soundcloud.com/monstercat/fool-hayve-valhalla)
 
 **Artist**: Monstercat 
 
-**Track**: Wassu & Mimi Page - Within Me
+**Track**: F.O.O.L & hayve - Valhalla
 
-Last updated at 03/02/2023 13:13
+Last updated at 03/02/2023 13:17
