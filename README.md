@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/making-me-forget-ryan-hurd-x?in=trademarkpregame/sets/ranch-water)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/sometimes-youre-out-danielle?in=trademarkpregame/sets/ranch-water)
 
 **Artist**: Trademark 
 
-**Track**: Making Me Forget (Ryan Hurd X Maren Morris X Russell Dickerson X Jake Scott X Vassy)
+**Track**: Sometimes You're Out (Danielle Bradbery X Mitchell Tenpenny X Joel Corry)
 
-Last updated at 03/02/2023 09:08
+Last updated at 03/02/2023 09:11
