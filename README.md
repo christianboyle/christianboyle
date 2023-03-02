@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uey40giJEmiUEx8O-Klr4zQ-t500x500.jpg">](https://soundcloud.com/billykinn/kshmr-tungevaag-close-your-eyes-kinn-bridgey-b-remixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oQKJJtLRXnC3Wiku-tfF4GA-t500x500.jpg">](https://soundcloud.com/future-bassnet/ifall)
 
-**Artist**: KINN 
+**Artist**: Future Bass Records 
 
-**Track**: KSHMR & Tungevaag - Close Your Eyes - (KINN & Bridgey - B  Remix)**FREE DOWNLOAD**
+**Track**: FARHANG & Mr.Magicall & NELLY TGM - I Fall [Future Bass Release]
 
-Last updated at 03/02/2023 08:25
+Last updated at 03/02/2023 08:26
