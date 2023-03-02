@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-raqGeUrkqCKuaJ7m-nlYzrA-t500x500.jpg">](https://soundcloud.com/billykinn/gayle-abcdefu-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sAkFNMWE568hi0ZN-6j1hxg-t500x500.jpg">](https://soundcloud.com/marts-be/delirious-uk-hardcore-ganar-kinn-darren-styles-technikore-slamma-hixxy)
 
-**Artist**: KINN 
+**Artist**: Addiction 
 
-**Track**: GAYLE - Abcdefu (KINN REMIX) ** FREE DOWNLOAD**
+**Track**: DELIRIOUS [UK HARDCORE] Ganar, Kinn, Darren Styles, Technikore, Slamma, Hixxy & more
 
-Last updated at 03/02/2023 15:36
+Last updated at 03/02/2023 15:40
