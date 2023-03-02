@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIi2pdpdpEct-0-t500x500.jpg">](https://soundcloud.com/maudelstatus/heaven-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEsFxBbOMCJw5klZ-36HKCg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/verb-catching-feelings)
 
-**Artist**: Maude Latour 
+**Artist**: NCS 
 
-**Track**: Heaven
+**Track**: VERB - Catching Feelings [Arcade Release]
 
-Last updated at 03/02/2023 13:06
+Last updated at 03/02/2023 13:08
