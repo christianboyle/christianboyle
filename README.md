@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eF2ZXli1ooQpbXfz-wR7Srw-t500x500.jpg">](https://soundcloud.com/ariaveil/theres-way-too-much-shit-i-wish-i-didnt-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iax5mIzKbylJhjwD-rElGZA-t500x500.jpg">](https://soundcloud.com/remyheartmusic/sun-moon-remy-heart-remix)
 
-**Artist**: ARIA VEIL 
+**Artist**: Remy Heart 
 
-**Track**: THERES WAY TOO MUCH SHIT I WISH I DIDNT KNOW
+**Track**: Above & Beyond - Sun & Moon (Remy Heart Remix)
 
-Last updated at 03/02/2023 13:36
+Last updated at 03/02/2023 13:37
