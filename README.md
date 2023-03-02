@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/got-a-little-higher-morgan?in=trademarkpregame/sets/ranch-water)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/making-me-forget-ryan-hurd-x?in=trademarkpregame/sets/ranch-water)
 
 **Artist**: Trademark 
 
-**Track**: Got A Little Higher (Morgan Wade X Elle King X Miranda Lambert X Galantis)
+**Track**: Making Me Forget (Ryan Hurd X Maren Morris X Russell Dickerson X Jake Scott X Vassy)
 
-Last updated at 03/02/2023 09:05
+Last updated at 03/02/2023 09:08
