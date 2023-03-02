@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/sometimes-youre-out-danielle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eF2ZXli1ooQpbXfz-wR7Srw-t500x500.jpg">](https://soundcloud.com/ariaveil/theres-way-too-much-shit-i-wish-i-didnt-know)
 
-**Artist**: Trademark 
+**Artist**: ARIA VEIL 
 
-**Track**: Sometimes You're Out (Danielle Bradbery X Mitchell Tenpenny X Joel Corry)
+**Track**: THERES WAY TOO MUCH SHIT I WISH I DIDNT KNOW
 
-Last updated at 03/02/2023 09:18
+Last updated at 03/02/2023 12:49
