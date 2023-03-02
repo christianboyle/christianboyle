@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTD121nDNw30ohDq-Ok5DCg-t500x500.jpg">](https://soundcloud.com/blubear2001/2-roundz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEsFxBbOMCJw5klZ-36HKCg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/verb-catching-feelings)
 
-**Artist**: blubear 
+**Artist**: NCS 
 
-**Track**: 2 ROUNDZ
+**Track**: VERB - Catching Feelings [Arcade Release]
 
-Last updated at 03/02/2023 08:36
+Last updated at 03/02/2023 08:37
