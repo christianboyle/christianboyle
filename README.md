@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sAkFNMWE568hi0ZN-6j1hxg-t500x500.jpg">](https://soundcloud.com/marts-be/delirious-uk-hardcore-ganar-kinn-darren-styles-technikore-slamma-hixxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XI0aTnEzN4FxIlwg-SNPfiQ-t500x500.jpg">](https://soundcloud.com/djryanganar/naughty-or-nice-mix-series-008-mixed-by-ryan-ganar-free-download)
 
-**Artist**: Addiction 
+**Artist**: Ryan Ganar 
 
-**Track**: DELIRIOUS [UK HARDCORE] Ganar, Kinn, Darren Styles, Technikore, Slamma, Hixxy & more
+**Track**: Naughty Or Nice Mix Series 008 - Mixed By Ryan Ganar [FREE DOWNLOAD]
 
-Last updated at 03/02/2023 15:40
+Last updated at 03/02/2023 15:55
