@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bai9bw4ZYYhwiInv-uFEtxw-t500x500.jpg">](https://soundcloud.com/bridgeyb14/darren-styles-hypersonic-baby-ill-let-you-know-bridgey-b-remix-m-sc-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFxWUJEfkd41umuH-PZE7oQ-t500x500.jpg">](https://soundcloud.com/bridgeyb14/high-level-paulistos-ft-mo-escape-my-mind-bridgey-b-remix)
 
 **Artist**: BRIDGEY-B 
 
-**Track**: Darren Styles & Hypersonic - Baby I'll Let You Know ( BRIDGEY - B Remix) (M) SC Clip
+**Track**: High Level & Paulistos Ft. Mo - Escape My Mind (BRIDGEY - B REMIX)
 
-Last updated at 03/02/2023 15:31
+Last updated at 03/02/2023 15:34
