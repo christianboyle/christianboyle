@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEsFxBbOMCJw5klZ-36HKCg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/verb-catching-feelings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAOmlmEwgS8vJ8ut-zASDjw-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-live-wasteland-23)
 
-**Artist**: NCS 
+**Artist**: Hartshorn 
 
-**Track**: VERB - Catching Feelings [Arcade Release]
+**Track**: Hartshorn Live @ Wasteland '23
 
-Last updated at 03/02/2023 12:57
+Last updated at 03/02/2023 12:59
