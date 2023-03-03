@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJnY65kwkcYwAPSz-f3vEDw-t500x500.jpg">](https://soundcloud.com/sinphonyrecs/timmy-trumpet-tungevaag-la-danse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nRHWrsVlvZt6Iojd-22WTkA-t500x500.jpg">](https://soundcloud.com/oneseventy/no-hero-nino-rivera-falling-in-love)
 
-**Artist**: SINPHONY 
+**Artist**: OneSeventy 
 
-**Track**: Timmy Trumpet & Tungevaag - La Danse
+**Track**: No Hero & Nino Rivera - Falling In Love (Radio Edit)
 
-Last updated at 03/03/2023 11:02
+Last updated at 03/03/2023 17:08
