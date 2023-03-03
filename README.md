@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TL6lvzKB9KFhkKg5-q4sKZw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-enemy-inquisitive-ft-natalia-moon-do-you-lift-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458887-8cca8g-t500x500.jpg">](https://soundcloud.com/jxxyy/retarded?in=jxxyy/sets/facevalue)
 
-**Artist**: Dirty Workz 
+**Artist**: Joeyy 
 
-**Track**: Mike Enemy & Inquisitive ft. Natalia Moon - Do You Lift? (DWX Copyright Free)
+**Track**: Retarded (Prod. By Maxxs & Ericslake)
 
-Last updated at 03/03/2023 09:07
+Last updated at 03/03/2023 09:27
