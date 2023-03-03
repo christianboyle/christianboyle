@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nRHWrsVlvZt6Iojd-22WTkA-t500x500.jpg">](https://soundcloud.com/oneseventy/no-hero-nino-rivera-falling-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TL6lvzKB9KFhkKg5-q4sKZw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-enemy-inquisitive-ft-natalia-moon-do-you-lift-dwx-copyright-free)
 
-**Artist**: OneSeventy 
+**Artist**: Dirty Workz 
 
-**Track**: No Hero & Nino Rivera - Falling In Love (Radio Edit)
+**Track**: Mike Enemy & Inquisitive ft. Natalia Moon - Do You Lift? (DWX Copyright Free)
 
-Last updated at 03/03/2023 17:08
+Last updated at 03/03/2023 17:11
