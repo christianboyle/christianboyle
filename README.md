@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458887-8cca8g-t500x500.jpg">](https://soundcloud.com/jxxyy/retarded?in=jxxyy/sets/facevalue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRcA95ELXtJgpJNo-DQXdkQ-t500x500.jpg">](https://soundcloud.com/1teamthing/way-i-am)
 
-**Artist**: Joeyy 
+**Artist**: #1Team 
 
-**Track**: Retarded (Prod. By Maxxs & Ericslake)
+**Track**: Joeyy - Way I Am 1ꜱᴛʏʟᴇ
 
-Last updated at 03/03/2023 09:27
+Last updated at 03/03/2023 09:28
