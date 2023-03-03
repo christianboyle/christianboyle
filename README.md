@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRcA95ELXtJgpJNo-DQXdkQ-t500x500.jpg">](https://soundcloud.com/1teamthing/way-i-am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zT81Dd3u6VIpAn2r-wfa2Yw-t500x500.jpg">](https://soundcloud.com/rickychix/warthog)
 
-**Artist**: #1Team 
+**Artist**: ricky chix 
 
-**Track**: Joeyy - Way I Am 1ꜱᴛʏʟᴇ
+**Track**: WARTHOG (Hosted by DJ SMOKEY+SHaDOwWiZArdMoNEyGANG)p.bicflame
 
-Last updated at 03/03/2023 09:28
+Last updated at 03/03/2023 09:29
