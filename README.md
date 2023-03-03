@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R5gyhfxOOFBCMv8l-cKYg0Q-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/dougal-mike-reverie-high-up-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJnY65kwkcYwAPSz-f3vEDw-t500x500.jpg">](https://soundcloud.com/sinphonyrecs/timmy-trumpet-tungevaag-la-danse)
 
-**Artist**: Dirty Workz 
+**Artist**: SINPHONY 
 
-**Track**: Dougal & Mike Reverie - High Up (Electric Fox)
+**Track**: Timmy Trumpet & Tungevaag - La Danse
 
-Last updated at 03/03/2023 17:18
+Last updated at 03/03/2023 17:21
