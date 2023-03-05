@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658602439-q2qfjx-t500x500.jpg">](https://soundcloud.com/kimmiedevereux/better-off)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000232919375-44v50m-t500x500.jpg">](https://soundcloud.com/tropixremixes/outoflove)
 
-**Artist**: Kimmie Devereux 
+**Artist**: Tropix Remixes 
 
-**Track**: Better Off
+**Track**: Two Friends ft. Cosmos & Creature - Out of Love (Tropix & OXILO Remix)
 
-Last updated at 03/04/2023 23:52
+Last updated at 03/04/2023 23:54
