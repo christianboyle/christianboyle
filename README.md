@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/stilpane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual)
 
 **Artist**: Joeyy 
 
-**Track**: ᔕᵗⁱⓁ𝑃ANǝ (𝑃r𝗼∂︎. Iokera & iji)
+**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
 
-Last updated at 03/05/2023 00:00
+Last updated at 03/05/2023 00:01
