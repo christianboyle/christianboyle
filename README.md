@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658602439-q2qfjx-t500x500.jpg">](https://soundcloud.com/kimmiedevereux/better-off)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: Kimmie Devereux 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: Better Off
 
-Last updated at 03/04/2023 23:51
+Last updated at 03/04/2023 23:52
