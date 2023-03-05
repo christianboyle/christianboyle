@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S8xah0hvJcJICYU-GPyLFA-t500x500.jpg">](https://soundcloud.com/kyrosickstuff/four-tet-fred-again-skrillex-in-times-square-for-thelotradio-full-set)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Ck0LO6b6OQc/maxresdefault.jpg">](https://www.youtube.com/watch?v=Ck0LO6b6OQc)
 
-**Artist**: kyros sickstuff 
+**Artist**: 
+  
+    Alice Deejay
+  
+  
+  
+    Alice Deejay
+  
 
-**Track**: Skrillex, Fred Again.. & Four Tet In Times Square For @TheLotRadio (Full Set)
 
-Last updated at 03/03/2023 17:34
+
+
+
+ 
+
+**Track**: Better Off Alone
+
+Last updated at 03/04/2023 23:50
