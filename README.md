@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000232919375-44v50m-t500x500.jpg">](https://soundcloud.com/tropixremixes/outoflove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pwDkJHYepuwIE3Ly-KmknzA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/charly-lownoise-re-style-magro-ft-diede-love-desire-macks-wolf-remix-electric-fox)
 
-**Artist**: Tropix Remixes 
+**Artist**: Dirty Workz 
 
-**Track**: Two Friends ft. Cosmos & Creature - Out of Love (Tropix & OXILO Remix)
+**Track**: Charly Lownoise & Re-Style & Magro ft. Diede - Love & Desire (Macks Wolf Remix) (Electric Fox)
 
-Last updated at 03/04/2023 23:54
+Last updated at 03/04/2023 23:55
