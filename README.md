@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/Ck0LO6b6OQc/maxresdefault.jpg">](https://www.youtube.com/watch?v=Ck0LO6b6OQc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
 
-**Artist**: 
-  
-    Alice Deejay
-  
-  
-  
-    Alice Deejay
-  
+**Artist**: Truth x Lies Goodies 
 
+**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
 
-
-
-
- 
-
-**Track**: Better Off Alone
-
-Last updated at 03/04/2023 23:50
+Last updated at 03/04/2023 23:51
