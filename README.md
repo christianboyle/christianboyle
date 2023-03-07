@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9YqgF6bChmCk0bwn-slyfMA-t500x500.jpg">](https://soundcloud.com/bassnectar/bassnectar-yookie-open-your-mind-all-colors?in=bassnectar/sets/all-colors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119208230-1qekw6-t500x500.jpg">](https://soundcloud.com/bassnectar/the-naked-famous-no-way-bassnectar-remix)
 
 **Artist**: Bassnectar 
 
-**Track**: Bassnectar & YOOKiE - Open Your Mind ⊛ [All Colors]
+**Track**: The Naked And Famous - No Way (Bassnectar Remix)
 
-Last updated at 03/07/2023 06:09
+Last updated at 03/07/2023 06:10
