@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDFiYI2Xhiv9hhXR-Oym0yg-t500x500.jpg">](https://soundcloud.com/djkostamusic/felipe-moya-truong-hang-kosta-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4hk9y1rJuwc14gIL-t4ZOzw-t500x500.jpg">](https://soundcloud.com/scantraxx/lalou-into-the-night)
 
-**Artist**: KOSTA 
+**Artist**: Scantraxx 
 
-**Track**: Felipe Moya, Truong Hang & KOSTA - To You (Direct Download)
+**Track**: LALOU - Into The Night
 
-Last updated at 03/07/2023 09:26
+Last updated at 03/07/2023 09:30
