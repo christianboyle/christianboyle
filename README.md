@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnAV1ky0Sng9M1Yu-3jkjeQ-t500x500.jpg">](https://soundcloud.com/depaolimusic/moonshine-depaoli-remix?in=circusrecords/sets/conrank-moonshine-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj2Ip1EGXZ4aWHfD-kWXjPQ-t500x500.jpg">](https://soundcloud.com/neverworryrecords/longstoryshort-like-i-do)
 
-**Artist**: DePaoli 
+**Artist**: Never Worry Records 
 
-**Track**: Conrank - Moonshine (DePaoli Remix)
+**Track**: Longstoryshort - Like I Do
 
-Last updated at 03/07/2023 09:44
+Last updated at 03/07/2023 09:45
