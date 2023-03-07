@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OU9kqmq1qFZk-0-t500x500.jpg">](https://soundcloud.com/khotin/hv-road?in=khotin/sets/release-spirit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cDRgzycEk3pdZ6O-vnZ8Rg-t500x500.jpg">](https://soundcloud.com/timrausch/dj-dings-tim-rausch-digital?in=timrausch/sets/rush-ep)
 
-**Artist**: Khotin 
+**Artist**: Tim Rausch 
 
-**Track**: HV Road
+**Track**: DJ Dings & Tim Rausch - Digital Echo
 
-Last updated at 03/07/2023 09:40
+Last updated at 03/07/2023 09:41
