@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj2Ip1EGXZ4aWHfD-kWXjPQ-t500x500.jpg">](https://soundcloud.com/neverworryrecords/longstoryshort-like-i-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCXnVZr0JaMyDBdN-rDBvLA-t500x500.jpg">](https://soundcloud.com/space-laces/left-to-right-space-laces-official-remix?in=insomniacrecords/sets/odd-mob-left-to-right-space)
 
-**Artist**: Never Worry Records 
+**Artist**: SPACE LACES 
 
-**Track**: Longstoryshort - Like I Do
+**Track**: ODD MOB - LEFT TO RIGHT (SPACE LACES REMIX)
 
-Last updated at 03/07/2023 09:45
+Last updated at 03/07/2023 09:46
