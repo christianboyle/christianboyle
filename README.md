@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119208230-1qekw6-t500x500.jpg">](https://soundcloud.com/bassnectar/the-naked-famous-no-way-bassnectar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-smWPYBvdmGyQbf9n-rVxY4w-t500x500.jpg">](https://soundcloud.com/dvrkcloud/crying-over-you-feat-lizann)
 
-**Artist**: Bassnectar 
+**Artist**: DVRKCLOUD 
 
-**Track**: The Naked And Famous - No Way (Bassnectar Remix)
+**Track**: Crying Over You (feat. LIZANN)
 
-Last updated at 03/07/2023 06:10
+Last updated at 03/07/2023 09:22
