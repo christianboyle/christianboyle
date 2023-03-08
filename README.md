@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpkeKzI1g3PbcpYR-UrzyQw-t500x500.jpg">](https://soundcloud.com/wearefrontier/acss106?in=wearefrontier/sets/acss1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM0BezHQOfRhnhjZ-cIK3lQ-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/the-story-so-far-upside-down-resewn-by-thred)
 
-**Artist**: FRONTIER by AC 
+**Artist**: Thred's  Resewn Tracks 
 
-**Track**: ZytrikX & Zhander — Skybound
+**Track**: The Story So Far - Upside Down (Resewn By Thred)
 
-Last updated at 03/08/2023 08:37
+Last updated at 03/08/2023 08:38
