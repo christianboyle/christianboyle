@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiP7M2Qi9PO2Gz1u-uqv0zw-t500x500.jpg">](https://soundcloud.com/nocv/call-acab-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpkeKzI1g3PbcpYR-UrzyQw-t500x500.jpg">](https://soundcloud.com/wearefrontier/acss106?in=wearefrontier/sets/acss1)
 
-**Artist**: Noc.V 
+**Artist**: FRONTIER by AC 
 
-**Track**: Call ACAB [Free Download]
+**Track**: ZytrikX & Zhander — Skybound
 
-Last updated at 03/07/2023 12:27
+Last updated at 03/08/2023 08:37
