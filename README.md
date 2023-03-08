@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oeh5R523vB504JmD-muG16Q-t500x500.jpg">](https://soundcloud.com/gjonesbass/patterns-emerge?in=gjonesbass/sets/illusory-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zq7j74XGVc7jTFa-wkqpLg-t500x500.jpg">](https://soundcloud.com/illusoryos/virtual-self-b2b-g-jones-second-sky-music-festival)
 
-**Artist**: G JONES 
+**Artist**: Illusory OS 
 
-**Track**: Patterns Emerge
+**Track**: VIRTUAL SELF b2b G JONES @ Second Sky Music Festival
 
-Last updated at 03/08/2023 08:56
+Last updated at 03/08/2023 08:57
