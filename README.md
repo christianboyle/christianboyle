@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9auvme4EmiEMdHKQ-aIuRRA-t500x500.jpg">](https://soundcloud.com/cure97/tesla)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AJQryEFrpztyVBEs-TRVERw-t500x500.jpg">](https://soundcloud.com/thehotellobby/what-is-love-best-master)
 
-**Artist**: CURE97 
+**Artist**: THE HOTEL LOBBY 
 
-**Track**: Lil Pump, Smokepurpp - Tesla (CURED By CURE97)
+**Track**: THE HOTEL LOBBY x 3VERYNIGHT – “What Is Love”
 
-Last updated at 03/08/2023 19:53
+Last updated at 03/08/2023 19:54
