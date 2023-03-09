@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: Joeyy 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
 
-Last updated at 03/08/2023 20:06
+Last updated at 03/08/2023 20:08
