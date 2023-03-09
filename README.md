@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hUbWJZkVJLiflSI0-9Kn7ig-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-35-on-beat-106-scotland-with-alex-kidd-031221-hour-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Oz7aaurhRya31u5-IDW3WA-t500x500.jpg">](https://soundcloud.com/dj-colin-bell/a-new-sensation-vinyl-only-mix)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: DJ Colin Bell 
 
-**Track**: Bonkers Beats #35 on Beat 106 Scotland with Alex Kidd 031221 (Hour 2)
+**Track**: A NEW SENSATION - VINYL ONLY MIX
 
-Last updated at 03/09/2023 15:58
+Last updated at 03/09/2023 16:31
