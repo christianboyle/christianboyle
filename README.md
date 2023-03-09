@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zkT0jz5Tjx0dxziI-u6GBQg-t500x500.jpg">](https://soundcloud.com/gangstahouserec/mkhab-so-good?in=gangstahouserec/sets/mkhab-so-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wiFOVjamMSNIytzK-CKAivg-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/pure-boi-w-4s4ki?in=trekkie-trax/sets/masayoshi-iimori-paralyzd-ep)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: MASAYOSHI IIMORI 
 
-**Track**: MKHAB - So Good
+**Track**: pure boi w/ 4s4ki
 
-Last updated at 03/09/2023 08:01
+Last updated at 03/09/2023 08:02
