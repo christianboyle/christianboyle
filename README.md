@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wiFOVjamMSNIytzK-CKAivg-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/pure-boi-w-4s4ki?in=trekkie-trax/sets/masayoshi-iimori-paralyzd-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E6IsvhU7OLyR2ig5-M59YQw-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/harto-falion-x-dj-smokey)
 
-**Artist**: MASAYOSHI IIMORI 
+**Artist**: shadow wizard money gang 
 
-**Track**: pure boi w/ 4s4ki
+**Track**: harto falion x dj smokey - message in a bottle.wav
 
-Last updated at 03/09/2023 08:02
+Last updated at 03/09/2023 08:07
