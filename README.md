@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM0BezHQOfRhnhjZ-cIK3lQ-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/the-story-so-far-upside-down-resewn-by-thred)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiP7M2Qi9PO2Gz1u-uqv0zw-t500x500.jpg">](https://soundcloud.com/nocv/call-acab-free-download)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: Noc.V 
 
-**Track**: The Story So Far - Upside Down (Resewn By Thred)
+**Track**: Call ACAB [Free Download]
 
-Last updated at 03/09/2023 11:58
+Last updated at 03/09/2023 12:01
