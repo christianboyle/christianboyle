@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgGei0m2pUgwkFYh-14ZlgA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/in-need-of-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4hk9y1rJuwc14gIL-t4ZOzw-t500x500.jpg">](https://soundcloud.com/scantraxx/lalou-into-the-night)
 
-**Artist**: Brett Cooper 
+**Artist**: Scantraxx 
 
-**Track**: In Need Of Love
+**Track**: LALOU - Into The Night
 
-Last updated at 03/09/2023 12:14
+Last updated at 03/09/2023 12:17
