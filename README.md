@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E6IsvhU7OLyR2ig5-M59YQw-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/harto-falion-x-dj-smokey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zq7j74XGVc7jTFa-wkqpLg-t500x500.jpg">](https://soundcloud.com/illusoryos/virtual-self-b2b-g-jones-second-sky-music-festival)
 
-**Artist**: shadow wizard money gang 
+**Artist**: Illusory OS 
 
-**Track**: harto falion x dj smokey - message in a bottle.wav
+**Track**: VIRTUAL SELF b2b G JONES @ Second Sky Music Festival
 
-Last updated at 03/09/2023 08:07
+Last updated at 03/09/2023 08:08
