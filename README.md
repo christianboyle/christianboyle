@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiP7M2Qi9PO2Gz1u-uqv0zw-t500x500.jpg">](https://soundcloud.com/nocv/call-acab-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
 
-**Artist**: Noc.V 
+**Artist**: Joeyy 
 
-**Track**: Call ACAB [Free Download]
+**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
 
-Last updated at 03/09/2023 16:37
+Last updated at 03/09/2023 16:40
