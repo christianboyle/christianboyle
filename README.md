@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8ed6SrRz2kFrjyl-YaHvBQ-t500x500.jpg">](https://soundcloud.com/darkest_knight_official/klubfiller-darkest-knight-all-of-your-love-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgGei0m2pUgwkFYh-14ZlgA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/in-need-of-love)
 
-**Artist**: Darkest Knight 
+**Artist**: Brett Cooper 
 
-**Track**: All Of Your Love (Featuring Klubfiller) (master)
+**Track**: In Need Of Love
 
-Last updated at 03/09/2023 12:09
+Last updated at 03/09/2023 12:14
