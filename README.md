@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5N1OUTrl92vFNavH-oyZtMg-t500x500.jpg">](https://soundcloud.com/rebootevents/reboot-premiere-series-soul-doubt-devour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xSZ7Ez5hOotwuwLn-qw2WiA-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-571-30-years-of-rave-93-22)
 
-**Artist**: Reboot Events (Reboot Records IRE) 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Reboot Premiere Series - Soul Doubt - Devour
+**Track**: KTRA Episode 571: 30 Years of Rave ('93-'22)
 
-Last updated at 03/09/2023 14:06
+Last updated at 03/09/2023 14:07
