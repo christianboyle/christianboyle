@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zq7j74XGVc7jTFa-wkqpLg-t500x500.jpg">](https://soundcloud.com/illusoryos/virtual-self-b2b-g-jones-second-sky-music-festival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hUbWJZkVJLiflSI0-9Kn7ig-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-35-on-beat-106-scotland-with-alex-kidd-031221-hour-2)
 
-**Artist**: Illusory OS 
+**Artist**: Beat 106 Scotland 
 
-**Track**: VIRTUAL SELF b2b G JONES @ Second Sky Music Festival
+**Track**: Bonkers Beats #35 on Beat 106 Scotland with Alex Kidd 031221 (Hour 2)
 
-Last updated at 03/09/2023 08:08
+Last updated at 03/09/2023 10:46
