@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdT2oAE4lVeA9k79-ir5nww-t500x500.jpg">](https://soundcloud.com/trademarkpregame/upside-down-morgan-wallen-x?in=trademarkpregame/sets/ranch-water)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cDRgzycEk3pdZ6O-vnZ8Rg-t500x500.jpg">](https://soundcloud.com/timrausch/dj-dings-tim-rausch-digital?in=timrausch/sets/rush-ep)
 
-**Artist**: Trademark 
+**Artist**: Tim Rausch 
 
-**Track**: Upside Down (Morgan Wallen X Walker Hayes X Mike Williams)
+**Track**: DJ Dings & Tim Rausch - Digital Echo
 
-Last updated at 03/08/2023 20:32
+Last updated at 03/08/2023 20:35
