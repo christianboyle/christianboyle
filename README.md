@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFz2cyT8qJ1s3P0N-m61KPg-t500x500.jpg">](https://soundcloud.com/darkest_knight_official/way-more-time-joey-riot-vs-darkest-knight-final-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8ed6SrRz2kFrjyl-YaHvBQ-t500x500.jpg">](https://soundcloud.com/darkest_knight_official/klubfiller-darkest-knight-all-of-your-love-master)
 
 **Artist**: Darkest Knight 
 
-**Track**: Way More Time - Joey Riot Vs Darkest Knight (Final Master)
+**Track**: All Of Your Love (Featuring Klubfiller) (master)
 
-Last updated at 03/09/2023 12:04
+Last updated at 03/09/2023 12:09
