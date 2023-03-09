@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiP7M2Qi9PO2Gz1u-uqv0zw-t500x500.jpg">](https://soundcloud.com/nocv/call-acab-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFz2cyT8qJ1s3P0N-m61KPg-t500x500.jpg">](https://soundcloud.com/darkest_knight_official/way-more-time-joey-riot-vs-darkest-knight-final-master)
 
-**Artist**: Noc.V 
+**Artist**: Darkest Knight 
 
-**Track**: Call ACAB [Free Download]
+**Track**: Way More Time - Joey Riot Vs Darkest Knight (Final Master)
 
-Last updated at 03/09/2023 14:43
+Last updated at 03/09/2023 14:46
