@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hUbWJZkVJLiflSI0-9Kn7ig-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-35-on-beat-106-scotland-with-alex-kidd-031221-hour-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM0BezHQOfRhnhjZ-cIK3lQ-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/the-story-so-far-upside-down-resewn-by-thred)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Thred's  Resewn Tracks 
 
-**Track**: Bonkers Beats #35 on Beat 106 Scotland with Alex Kidd 031221 (Hour 2)
+**Track**: The Story So Far - Upside Down (Resewn By Thred)
 
-Last updated at 03/09/2023 10:46
+Last updated at 03/09/2023 11:58
