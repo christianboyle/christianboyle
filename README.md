@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-67xGJKbPMNHpjjYX-m5R1HQ-t500x500.jpg">](https://soundcloud.com/mvtatemusic/the-scratch-another-round-mvtate-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RaEY80HCcQ1OqoY6-ZJAlDA-t500x500.jpg">](https://soundcloud.com/maryarcane/unlockit)
 
-**Artist**: MVTATE 
+**Artist**: Mary Arcane 
 
-**Track**: THE SCRATCH - ANOTHER ROUND (MVTATE BOOTLEG)
+**Track**: Charli XCX - Unlock It (Mary Arcane Patch)
 
-Last updated at 03/10/2023 13:02
+Last updated at 03/10/2023 13:08
