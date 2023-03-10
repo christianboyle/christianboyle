@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIi2pdpdpEct-0-t500x500.jpg">](https://soundcloud.com/maudelstatus/heaven-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
 
-**Artist**: Maude Latour 
+**Artist**: Joeyy 
 
-**Track**: Heaven
+**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
 
-Last updated at 03/09/2023 17:35
+Last updated at 03/10/2023 07:45
