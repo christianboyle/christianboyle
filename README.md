@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I8ppQ9737lFy4TDh-WDM6MQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/blindspot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USKz96InG5VM386n-Wdbfcg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/yyvng-kentyclide-bangbang)
 
-**Artist**: Justice Hardcore 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: Nurko - Blindspot  Ft. Devon Baldwin (Fader Remix) ✅FREE DOWNLOAD✅
+**Track**: YYVNG & Kenty Clide - Bang Bang [Gold Digger]
 
-Last updated at 03/10/2023 13:13
+Last updated at 03/10/2023 13:17
