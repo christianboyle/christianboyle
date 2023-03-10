@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a06YoihFmY6IH7z7-wfcRzw-t500x500.jpg">](https://soundcloud.com/hamdiofficialmusic/hamdi-skanka-vip-dec2022?in=bassrush/sets/hamdi-skanka-deluxe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Vr2K8RslqfHTGaa-J7hMeQ-t500x500.jpg">](https://soundcloud.com/kayzo-music/underground?in=kayzo-music/sets/new-breed-album)
 
-**Artist**: Hamdi 
+**Artist**: KAYZO 
 
-**Track**: Hamdi - Skanka VIP
+**Track**: UNDERGROUND
 
-Last updated at 03/10/2023 12:50
+Last updated at 03/10/2023 12:51
