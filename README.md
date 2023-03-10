@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZaurcBihgiW5EeZo-pjzbxA-t500x500.jpg">](https://soundcloud.com/official_phazon/chris-avantgarde-ft-red-rosamond-inside-phazon-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZHX0woDNfC3j26f-N7Doew-t500x500.jpg">](https://soundcloud.com/viktors-music/real-sprin9-euphorizer-remix)
 
-**Artist**: Phazon 
+**Artist**: Viktor S 
 
-**Track**: Chris Avantgarde ft. Red Rosamond - Inside (Phazon Bootleg)
+**Track**: REAL SPRIN9 (EUPHORIZER REMIX)
 
-Last updated at 03/10/2023 12:57
+Last updated at 03/10/2023 12:58
