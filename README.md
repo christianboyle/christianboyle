@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZHX0woDNfC3j26f-N7Doew-t500x500.jpg">](https://soundcloud.com/viktors-music/real-sprin9-euphorizer-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O2ZQbwaiFEarzrma-mbdUaA-t500x500.jpg">](https://soundcloud.com/2spademusic/berserk-deathrow-x-shuz)
 
-**Artist**: Viktor S 
+**Artist**: 2Spade 
 
-**Track**: REAL SPRIN9 (EUPHORIZER REMIX)
+**Track**: 2Spade X SHUZ - Berserk (Supported by GUDVIBRATION radio)
 
-Last updated at 03/10/2023 12:58
+Last updated at 03/10/2023 12:59
