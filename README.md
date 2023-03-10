@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwn1ReUMCMHKpqBW-ZhYhZQ-t500x500.jpg">](https://soundcloud.com/loudkult/colone-lim3-sud-addicted-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TgtELO0WFHpqgZvo-d5bM1Q-t500x500.jpg">](https://soundcloud.com/thefactory93/enamour-emergency-loop)
 
-**Artist**: LoudKult 
+**Artist**: Factory 93 
 
-**Track**: Colone, Lim3, SUD - Addicted to you
+**Track**: Enamour - Emergency Loop
 
-Last updated at 03/10/2023 08:06
+Last updated at 03/10/2023 08:08
