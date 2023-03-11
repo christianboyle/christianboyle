@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USKz96InG5VM386n-Wdbfcg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/yyvng-kentyclide-bangbang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ozUOIjyXYPU3y2P-lpuOug-t500x500.jpg">](https://soundcloud.com/sublabmusic/losemyheart)
 
-**Artist**: GOLD DiGGER [RECORDS] 
+**Artist**: Sublab 
 
-**Track**: YYVNG & Kenty Clide - Bang Bang [Gold Digger]
+**Track**: LOSE MY HEART
 
-Last updated at 03/10/2023 13:17
+Last updated at 03/10/2023 18:22
