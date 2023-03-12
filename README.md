@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HzgDVVlPlZvl89o-BdqfDA-t500x500.jpg">](https://soundcloud.com/liquicityrecords/leniz-echo-motion-neon-blue-1?in=liquicityrecords/sets/neon-blue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKSGODj4dgx2Qgdy-rxWONQ-t500x500.jpg">](https://soundcloud.com/umru/triplej?in=hydeparkhifi/sets/hyde-park-hi-fest-official)
 
-**Artist**: Liquicity Records 
+**Artist**: umru 
 
-**Track**: Leniz & Echo Motion - Neon Blue
+**Track**: umru vs. Petal Supply ― Battle For Australia mix on triple j
 
-Last updated at 03/12/2023 09:02
+Last updated at 03/12/2023 09:03
