@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Az7TMYqCV1yLvpYQ-SArZxw-t500x500.jpg">](https://soundcloud.com/trophieofficial/trophie-angel-wings-ft-edward-master-lower-edward-vcl?in=hydeparkhifi/sets/hyde-park-hi-fest-official)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hq8GJN2ffO6NAsmK-0mm0Tw-t500x500.jpg">](https://soundcloud.com/platform/safety-trance-boiler-room)
 
-**Artist**: Trophie 
+**Artist**: Boiler Room 
 
-**Track**: Trophie - Angel Wings ft EDWARD(我)
+**Track**: Safety Trance | Boiler Room Barcelona: Razzmatazz
 
-Last updated at 03/12/2023 09:04
+Last updated at 03/12/2023 09:08
