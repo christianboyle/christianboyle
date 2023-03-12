@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hq8GJN2ffO6NAsmK-0mm0Tw-t500x500.jpg">](https://soundcloud.com/platform/safety-trance-boiler-room)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKnSfKqdmbMtuCaV-cgC3ig-t500x500.jpg">](https://soundcloud.com/mad-miguel/the-weeknd-nothing-is-lost-mad-miguel-mave-remix-avatar-soundtrack?in=seal-playlists/sets/the-weeknd-nothing-is-lost-1)
 
-**Artist**: Boiler Room 
+**Artist**: Mad Miguel 
 
-**Track**: Safety Trance | Boiler Room Barcelona: Razzmatazz
+**Track**: The Weeknd - Nothing Is Lost (Mad Miguel & Mave Remix) *AVATAR SOUNDTRACK*
 
-Last updated at 03/12/2023 09:08
+Last updated at 03/12/2023 09:09
