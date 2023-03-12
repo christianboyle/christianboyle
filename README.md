@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9eHCrM9BTil6-0-t500x500.jpg">](https://soundcloud.com/d4ine/boythots)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KTHUKtlueyKgVyrR-ReFJHw-t500x500.jpg">](https://soundcloud.com/ayetom/laserbeam)
 
-**Artist**: daine 
+**Artist**: Ayetom 
 
-**Track**: boythots
+**Track**: RAY VOLPE - LASERBEAM (AYETOM DNB EDIT) | FREE DOWNLOAD
 
-Last updated at 03/12/2023 12:47
+Last updated at 03/12/2023 12:50
