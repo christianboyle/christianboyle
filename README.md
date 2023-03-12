@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HzgDVVlPlZvl89o-BdqfDA-t500x500.jpg">](https://soundcloud.com/liquicityrecords/leniz-echo-motion-neon-blue-1?in=liquicityrecords/sets/neon-blue)
 
-**Artist**: Joeyy 
+**Artist**: Liquicity Records 
 
-**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
+**Track**: Leniz & Echo Motion - Neon Blue
 
-Last updated at 03/11/2023 15:45
+Last updated at 03/12/2023 09:02
