@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PNRYv8MQ4iCluCf-Cppbkw-t500x500.jpg">](https://soundcloud.com/nickrosa/sunday-state-with-nick-rosa-ibiza-global-radio-09102022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5f7ZUsycVNlXwb79-fNKPdg-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/deleted)
 
-**Artist**: Nick Rosa 
+**Artist**: INF1N1TE 
 
-**Track**: Sunday State with Nick Rosa @ Ibiza Global Radio 09/10/2022
+**Track**: INF1N1TE X BOYGRIM - DELETED (prod. PRIV X PK)
 
-Last updated at 03/13/2023 09:33
+Last updated at 03/13/2023 09:34
