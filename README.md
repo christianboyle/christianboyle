@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHKB714G3vz5jjhP-Sjeqaw-t500x500.jpg">](https://soundcloud.com/musicmoods-remixes/tiesto-lay-low-rion-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000187723499-wm0qn8-t500x500.jpg">](https://soundcloud.com/erbndub/erb-n-dub-friction-bbc-radio-one-guest-mix-111016?in=erbndub/sets/erb-n-dub-dj-sets)
 
-**Artist**: Music Moods | Remixes. 
+**Artist**: Erb N Dub 
 
-**Track**: Tiësto - Lay Low [Rion Remix]
+**Track**: Erb N Dub - BBC Radio One Guest Mix
 
-Last updated at 03/13/2023 09:30
+Last updated at 03/13/2023 09:31
