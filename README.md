@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5f7ZUsycVNlXwb79-fNKPdg-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/deleted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbvHmT6k2qZZp54y-ElR1Xg-t500x500.jpg">](https://soundcloud.com/thefinesttechno/free-download-kanye-west-cant-tell-me-nothing-rolo-edittft001gt)
 
-**Artist**: INF1N1TE 
+**Artist**: The Finest Techno 
 
-**Track**: INF1N1TE X BOYGRIM - DELETED (prod. PRIV X PK)
+**Track**: FREE DOWNLOAD | Kanye West - Can't Tell Me Nothing (Rolo Edit) [TFT001GT]
 
-Last updated at 03/13/2023 09:34
+Last updated at 03/13/2023 09:35
