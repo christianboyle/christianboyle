@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbvHmT6k2qZZp54y-ElR1Xg-t500x500.jpg">](https://soundcloud.com/thefinesttechno/free-download-kanye-west-cant-tell-me-nothing-rolo-edittft001gt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-19nN4XQERERN9rLf-BybNZw-t500x500.jpg">](https://soundcloud.com/user-719841332/compass)
 
-**Artist**: The Finest Techno 
+**Artist**: SLAMMA 
 
-**Track**: FREE DOWNLOAD | Kanye West - Can't Tell Me Nothing (Rolo Edit) [TFT001GT]
+**Track**: Compass
 
-Last updated at 03/13/2023 09:35
+Last updated at 03/13/2023 09:36
