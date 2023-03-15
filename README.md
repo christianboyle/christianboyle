@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I4O3bkyYhvzDTbpz-dwoexg-t500x500.jpg">](https://soundcloud.com/talixofficial/talix-edit-pack-vol-1-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l2Ao3iuDaxDT73MQ-Bd4jMg-t500x500.jpg">](https://soundcloud.com/wearefreaksrecords/vince-versa-uh-huuh)
 
-**Artist**: TALIX 
+**Artist**: We Are Freaks 
 
-**Track**: TALIX EDIT PACK VOL 1 [Free Download]
+**Track**: Vince Versa - UH HUUH
 
-Last updated at 03/14/2023 20:42
+Last updated at 03/14/2023 20:43
