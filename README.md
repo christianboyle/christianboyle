@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l2Ao3iuDaxDT73MQ-Bd4jMg-t500x500.jpg">](https://soundcloud.com/wearefreaksrecords/vince-versa-uh-huuh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuDm0Iu7pwyzqiz2-Pc9epw-t500x500.jpg">](https://soundcloud.com/teewave-records/noname-vamos-a-la-playa-rave-edit)
 
-**Artist**: We Are Freaks 
+**Artist**: Teewave Records 
 
-**Track**: Vince Versa - UH HUUH
+**Track**: Nøname - Vamos A La Playa ( Rave Edit )
 
-Last updated at 03/14/2023 20:43
+Last updated at 03/14/2023 20:44
