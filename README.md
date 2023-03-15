@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuDm0Iu7pwyzqiz2-Pc9epw-t500x500.jpg">](https://soundcloud.com/teewave-records/noname-vamos-a-la-playa-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BYmuiDnl0Eo2irA-BS4EZQ-t500x500.jpg">](https://soundcloud.com/marlomusic/marlo-altitude-radio-117)
 
-**Artist**: Teewave Records 
+**Artist**: MaRLo 
 
-**Track**: Nøname - Vamos A La Playa ( Rave Edit )
+**Track**: MaRLo - Altitude Radio #117
 
-Last updated at 03/15/2023 08:03
+Last updated at 03/15/2023 18:32
