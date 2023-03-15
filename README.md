@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9qqPvnGKUAbOisi-RiRGFg-t500x500.jpg">](https://soundcloud.com/iamhardstyle/xense-doom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOQyp4HPHV3PuAgW-iwQutg-t500x500.jpg">](https://soundcloud.com/reaperthepulse/the-pulse-025)
 
-**Artist**: I AM HARDSTYLE 
+**Artist**: REAPER Presents: THE PULSE 
 
-**Track**: Xense - Doom
+**Track**: THE PULSE #025 (FEAT. PONI)
 
-Last updated at 03/15/2023 18:45
+Last updated at 03/15/2023 18:46
