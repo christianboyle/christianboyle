@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8RhZhSbwXH2C-0-t500x500.jpg">](https://soundcloud.com/hodgebristol/where-i-wanna-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuDm0Iu7pwyzqiz2-Pc9epw-t500x500.jpg">](https://soundcloud.com/teewave-records/noname-vamos-a-la-playa-rave-edit)
 
-**Artist**: HodgeBristol 
+**Artist**: Teewave Records 
 
-**Track**: Where I Wanna Be
+**Track**: Nøname - Vamos A La Playa ( Rave Edit )
 
-Last updated at 03/15/2023 08:02
+Last updated at 03/15/2023 08:03
