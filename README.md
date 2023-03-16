@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ONL6UuBHrjZUxG39-y7BWvg-t500x500.jpg">](https://soundcloud.com/haus-tier/elevate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VdAMf6vyzQCyzeDe-WkqasQ-t500x500.jpg">](https://soundcloud.com/martialsimon/ice-spice-in-ha-mood-martial-simon-remix)
 
-**Artist**: Haus Tier 
+**Artist**: Martial Simon 
 
-**Track**: (*´▽`*) Elevate
+**Track**: Ice Spice - In Ha Mood (Martial Simon Remix)
 
-Last updated at 03/16/2023 08:38
+Last updated at 03/16/2023 08:39
