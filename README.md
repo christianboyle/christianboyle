@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PnE0MDF8hRuhoZHy-p56g3Q-t500x500.jpg">](https://soundcloud.com/gangstahouserec/seb-louder-flavours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQOInTgibNrvD56P-QJ3PUw-t500x500.jpg">](https://soundcloud.com/djentity/cubehard-entity-the-understanding-teaser)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Entity 
 
-**Track**: Seb Louder - Flavours
+**Track**: Cube::Hard & Entity - The Understanding (Teaser)
 
-Last updated at 03/16/2023 08:30
+Last updated at 03/16/2023 08:31
