@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QOcGtegs0Uz1NBUe-cKbEgw-t500x500.jpg">](https://soundcloud.com/steelcitydancediscs/mutant-joe-terrifier-ft-onoe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvMVrBrYFrD4d4fs-uPDg7w-t500x500.jpg">](https://soundcloud.com/lilfish-1/crossroads?in=lilfish-1/sets/lil-fish-mr-ours-crossroads-ep)
 
-**Artist**: Steel City Dance Discs 
+**Artist**: LIL FISH 
 
-**Track**: Mutant Joe - Terrifier ft. Onoe Caponoe
+**Track**: Lil Fish & Mr Ours - Crossroads
 
-Last updated at 03/16/2023 08:35
+Last updated at 03/16/2023 08:36
