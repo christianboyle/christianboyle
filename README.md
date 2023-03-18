@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7auudtBoHyseIxI-si7kDA-t500x500.jpg">](https://soundcloud.com/lowhighpresents/hunter-reed-like-nothing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DwSPLbt0kWcmH7dx-AS2LLw-t500x500.jpg">](https://soundcloud.com/7cloudsmusic/rachel-lorin-happy)
 
-**Artist**: Low & High 
+**Artist**: 7clouds 
 
-**Track**: HUNTER REED - Like Nothing
+**Track**: Rachel Lorin - Happy
 
-Last updated at 03/17/2023 20:36
+Last updated at 03/17/2023 20:38
