@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ObASQWrOJyfb2ydy-CdHm3Q-t500x500.jpg">](https://soundcloud.com/oogamusic/what-makes-it-work-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KiKhQzrbt7KNEM7-eRrqIA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/munro-butterflies)
 
-**Artist**: ooga 
+**Artist**: Quality Goods Records 
 
-**Track**: What Makes It Work
+**Track**: munro – Butterflies
 
-Last updated at 03/19/2023 12:11
+Last updated at 03/19/2023 12:12
