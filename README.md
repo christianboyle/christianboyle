@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zq7j74XGVc7jTFa-wkqpLg-t500x500.jpg">](https://soundcloud.com/illusoryos/virtual-self-b2b-g-jones-second-sky-music-festival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KABOzLU3RyKQiIJR-gRggAA-t500x500.jpg">](https://soundcloud.com/emil-rottmayer/dream-sync)
 
-**Artist**: Illusory OS 
+**Artist**: Emil Rottmayer 
 
-**Track**: VIRTUAL SELF b2b G JONES @ Second Sky Music Festival
+**Track**: Dream Sync
 
-Last updated at 03/19/2023 17:34
+Last updated at 03/19/2023 17:35
