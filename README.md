@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JcuLSMJX2QyD6VfM-tHDBsw-t500x500.jpg">](https://soundcloud.com/xavi0mg/ken-carson-lets-go-shopping-1?in=39bstrd02/sets/prod-by-perto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnoCk25dFiupLOPN-ekzglQ-t500x500.jpg">](https://soundcloud.com/1glaive/prick?in=39bstrd02/sets/prod-by-perto)
 
-**Artist**: xavi0mg 
+**Artist**: glaive 
 
-**Track**: ken carson - lets go shopping
+**Track**: prick
 
-Last updated at 03/19/2023 12:09
+Last updated at 03/19/2023 12:10
