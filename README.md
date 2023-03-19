@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zq7j74XGVc7jTFa-wkqpLg-t500x500.jpg">](https://soundcloud.com/illusoryos/virtual-self-b2b-g-jones-second-sky-music-festival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2S35ighLmcu26TMc-1pxWWw-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/pink-trustfall-paul-gannon-bootleg-free-download)
 
-**Artist**: Illusory OS 
+**Artist**: Paul Gannon 
 
-**Track**: VIRTUAL SELF b2b G JONES @ Second Sky Music Festival
+**Track**: PINK - Trustfall (Paul Gannon Bootleg) [Free Download]
 
-Last updated at 03/19/2023 17:25
+Last updated at 03/19/2023 17:27
