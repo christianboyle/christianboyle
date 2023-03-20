@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0XJOMIZzknUMwyA-1kyXBg-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-x-jts-reignite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NveaW5AN92vHsJzN-IJ9vKw-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-again-again-radio-edit)
 
 **Artist**: OneSeventy 
 
-**Track**: Technikore x JTS - Reignite (Radio Edit)
+**Track**: Technikore - Again & Again (Radio Edit)
 
-Last updated at 03/20/2023 08:47
+Last updated at 03/20/2023 08:48
