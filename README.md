@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e2ZSpIlJdPXxmo2q-8OSSZg-t500x500.jpg">](https://soundcloud.com/exclusivetunesdubstep/ringleader?in=exclusivetunesdubstep/sets/ringleade-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CaIsoGUbcPzndlW9-gyxKfw-t500x500.jpg">](https://soundcloud.com/squirrely-basstard/hotel-sounds-1)
 
-**Artist**: Exclusive Tunes Dubstep 
+**Artist**: Squirrely Bass 
 
-**Track**: NARCISSIST - RINGLEADER [Exclusive Tunes Network & Electrostep Network EXCLUSIVE]
+**Track**: Hotel Sounds
 
-Last updated at 03/20/2023 08:11
+Last updated at 03/20/2023 08:12
