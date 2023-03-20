@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n8iCRtU9938FSh5Q-l4joIQ-t500x500.jpg">](https://soundcloud.com/alstorm/lmd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1?in=beat106scotland/sets/bonkers-beats-102-on-beat-106-scotland-with-daniel-seven-brady-170323)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Diakronik & Alaguan - Love Me Deeply (24/7 Hardcore) Out Now!
+**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
 
-Last updated at 03/20/2023 09:06
+Last updated at 03/20/2023 09:07
