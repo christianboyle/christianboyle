@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyUmr1XzU2MVKhzM-BhEQLg-t500x500.jpg">](https://soundcloud.com/lirare/s3rl_tellmewhatyouwant_lirare_remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bwckuNOhISOZRbQq-bKPURA-t500x500.jpg">](https://soundcloud.com/user-411841507/a-brisk-darwin-never-give-up)
 
-**Artist**: LIRARE 
+**Artist**: Hecttech Records 
 
-**Track**: S3RL - Tell Me What You Want (LIRARE Remix)
+**Track**: A1, Brisk & Darwin - Never Give Up
 
-Last updated at 03/20/2023 17:32
+Last updated at 03/20/2023 17:33
