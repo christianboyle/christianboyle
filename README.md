@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4tZyfOOs2AEMXoz-SXUuYQ-t500x500.jpg">](https://soundcloud.com/michael-piper-7/mikey-p-gee-give-a-little-love-out-18423-on-stomp-inc-records)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Mikey P 
 
-**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
+**Track**: Mikey P & Gee - Give a Little Love (Out 18.4.23 On Stomp-Inc Records)
 
-Last updated at 03/20/2023 08:09
+Last updated at 03/20/2023 08:10
