@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ziRf0dzs5Re12CQ-hyZxJg-t500x500.jpg">](https://soundcloud.com/sota-fujimori-771965770/1981a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073559234-knrh1p-t500x500.jpg">](https://soundcloud.com/re-con-2/re-con-just-release-me)
 
-**Artist**: Sota  Fujimori 
+**Artist**: RE-CON 
 
-**Track**: 1981
+**Track**: Re-Con Just Release Me
 
-Last updated at 03/20/2023 08:55
+Last updated at 03/20/2023 08:57
