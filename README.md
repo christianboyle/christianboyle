@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000073559234-knrh1p-t500x500.jpg">](https://soundcloud.com/re-con-2/re-con-just-release-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1?in=beat106scotland/sets/bonkers-beats-102-on-beat-106-scotland-with-daniel-seven-brady-170323)
 
-**Artist**: RE-CON 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Re-Con Just Release Me
+**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
 
-Last updated at 03/20/2023 08:57
+Last updated at 03/20/2023 08:59
