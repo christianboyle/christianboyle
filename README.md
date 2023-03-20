@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-107qushbK25QPKRi-QAepOA-t500x500.jpg">](https://soundcloud.com/remixedbynohero/hikaru-nara-no-hero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000576520511-zmxje7-t500x500.jpg">](https://soundcloud.com/psyqui/super-dive)
 
-**Artist**: Remixed by No Hero 
+**Artist**: PSYQUI 
 
-**Track**: Hikaru Nara (No Hero Remix)
+**Track**: Super Dive
 
-Last updated at 03/20/2023 08:52
+Last updated at 03/20/2023 08:53
