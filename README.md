@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h7dHApXqXjHdhCod-QWLNnA-t500x500.jpg">](https://soundcloud.com/ferg94music/s3rl-nostalgic-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0XJOMIZzknUMwyA-1kyXBg-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-x-jts-reignite)
 
-**Artist**: Ferg 94/Spinball 
+**Artist**: OneSeventy 
 
-**Track**: S3RL feat. Harri Rush - Nostalgic (Ferg 94 Remix)
+**Track**: Technikore x JTS - Reignite (Radio Edit)
 
-Last updated at 03/20/2023 08:46
+Last updated at 03/20/2023 08:47
