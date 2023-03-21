@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/rafa-maya-wasteland-cinderella)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/lucas-amen)
 
 **Artist**: 320 RIP 
 
-**Track**: Rafa Maya - Wasteland Cinderella
+**Track**: Lucas - Amen
 
-Last updated at 03/20/2023 22:57
+Last updated at 03/20/2023 23:02
