@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IGOxLJGzx2eGX3Bn-UDGeyA-t500x500.jpg">](https://soundcloud.com/ghost_rook/altar-of-feathers-id-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAzTVHm6PWAyJGfk-GBX7Xg-t500x500.jpg">](https://soundcloud.com/officialsnails/flying-pegboard-nerds-remix)
 
-**Artist**: Ghost Rook 
+**Artist**: SNAILS 
 
-**Track**: Altar of Feathers (ID Showcase)
+**Track**: Flying (Pegboard Nerds Remix)
 
-Last updated at 03/21/2023 02:29
+Last updated at 03/21/2023 02:45
