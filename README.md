@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXxmIDvF3XDhd1sr-ciCDhQ-t500x500.jpg">](https://soundcloud.com/music-moods-mashups/good-4-u-vs-traces-of-you-gin-and-sonic-mashup?in=seal-playlists/sets/olivia-rodrigo-good-4-u-vs-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
 
-**Artist**: Music Moods | Mashups. 
+**Artist**: Dirty Workz 
 
-**Track**: Olivia Rodrigo - Good 4 U Vs. Traces Of You (Gin And Sonic Mashup)
+**Track**: Hartshorn - Lose Control (Electric Fox)
 
-Last updated at 03/21/2023 05:16
+Last updated at 03/21/2023 08:33
