@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pk0qiLqQoAVf1WxY-n5PN7g-t500x500.jpg">](https://soundcloud.com/raeazy/press-garden-act-1-x-2-sonic-mania-philly-club-raeazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZZAyDAkvlfHxNWg5-feq4eQ-t500x500.jpg">](https://soundcloud.com/simplifyrecs/wheysted-day-by-day-feat-kelsey-ray-acoustic-version)
 
-**Artist**: RaEazy(One of The Pioneers of Fast Club Music) 
+**Artist**: Simplify. 
 
-**Track**: Press Garden Act 1 x 2 (Sonic Mania - Philly Club)  - RaEazy
+**Track**: Wheysted - Day By Day (feat. Kelsey Ray) (Acoustic Version)
 
-Last updated at 03/21/2023 12:37
+Last updated at 03/21/2023 12:38
