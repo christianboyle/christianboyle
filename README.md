@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouqTSAdWi1o9AiAx-PLMWYg-t500x500.jpg">](https://soundcloud.com/cutspace/milankovitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBFYFoemypHE4gPb-MuAILA-t500x500.jpg">](https://soundcloud.com/holytrapmusic/roarzy-bloods)
 
-**Artist**: cutspace 
+**Artist**: Holy Trap 
 
-**Track**: biogeochemicᵃ | *model.0f:milankovitch cYcles//press-->Start2begin(s)imulation ..
+**Track**: ROARZY - BLOODS
 
-Last updated at 03/21/2023 02:56
+Last updated at 03/21/2023 02:58
