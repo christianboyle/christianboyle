@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NtQUI6ppsSJ0him-64GL1g-t500x500.png">](https://soundcloud.com/rinsefm/nervoushorizon200323)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pk0qiLqQoAVf1WxY-n5PN7g-t500x500.jpg">](https://soundcloud.com/raeazy/press-garden-act-1-x-2-sonic-mania-philly-club-raeazy)
 
-**Artist**: Rinse FM 
+**Artist**: RaEazy(One of The Pioneers of Fast Club Music) 
 
-**Track**: Nervous Horizon with TSVI & Air Max 97 - 20 March 2023
+**Track**: Press Garden Act 1 x 2 (Sonic Mania - Philly Club)  - RaEazy
 
-Last updated at 03/21/2023 10:22
+Last updated at 03/21/2023 12:37
