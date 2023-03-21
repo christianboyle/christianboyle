@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvSX4xFJ2TsNXh9o-5Mxz9Q-t500x500.jpg">](https://soundcloud.com/lxshmusic/luna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPQ8PdYWuLhzc5Ck-yGRUVQ-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/hobi-untitled-5-1)
 
-**Artist**: lxsh 
+**Artist**: Wormhole Music Group 
 
-**Track**: Luna
+**Track**: Hobi - Untitled 5
 
-Last updated at 03/21/2023 03:16
+Last updated at 03/21/2023 03:18
