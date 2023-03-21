@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1Peg9FY0JgUoXAX-ZKfM0g-t500x500.jpg">](https://soundcloud.com/sglily/xtc-final-sg-big-dog-eera)
 
-**Artist**: Dirty Workz 
+**Artist**: @sglilyy 
 
-**Track**: Hartshorn - Lose Control (Electric Fox)
+**Track**: XTC FINAL (SG BUFFALOBANG EERA)
 
-Last updated at 03/21/2023 08:35
+Last updated at 03/21/2023 08:37
