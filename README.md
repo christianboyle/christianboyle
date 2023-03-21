@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HY2UISsvCDdFQm4C-KvfmZA-t500x500.jpg">](https://soundcloud.com/crudeberlin/crude-premiere-gohda-99-never-idle-records?in=neveridle/sets/gohda-u-dont-kno-me-nir001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HY2UISsvCDdFQm4C-KvfmZA-t500x500.jpg">](https://soundcloud.com/seeksicksound/premiere-gohda-freebase-out-march-9-on-never-idle-records?in=neveridle/sets/gohda-u-dont-kno-me-nir001)
 
-**Artist**: / CRUDE / 
+**Artist**: SeekSickSound 
 
-**Track**: CRUDE Premiere: Gohda - '99 [Never Idle Records]
+**Track**: [Premiere] Gohda - Freebase (out on Never Idle Records)
 
-Last updated at 03/21/2023 03:57
+Last updated at 03/21/2023 04:00
