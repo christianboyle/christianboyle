@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4cWa26yJy0adH7j-rCVVdA-t500x500.jpg">](https://soundcloud.com/thisistido/movement)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3deFuogq74oSPSI5-6xLDeA-t500x500.jpg">](https://soundcloud.com/dylan-heckert/dylan-heckert-space-candy)
 
-**Artist**: TiDo 
+**Artist**: Dylan Heckert 
 
-**Track**: Movement
+**Track**: Dylan Heckert - Space Candy
 
-Last updated at 03/20/2023 19:58
+Last updated at 03/20/2023 20:00
