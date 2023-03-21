@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/cash-bandicoot-big-numbers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jFE13DoqTJOkvJ3l-QWEZqw-t500x500.jpg">](https://soundcloud.com/solacefamily/sterfry-motion)
 
-**Artist**: 320 RIP 
+**Artist**: SOLACE 패밀리 FAMILY 
 
-**Track**: Ca$h Bandicoot - BIG NUMBERS
+**Track**: STERFRY - MOTION
 
-Last updated at 03/20/2023 19:49
+Last updated at 03/20/2023 19:51
