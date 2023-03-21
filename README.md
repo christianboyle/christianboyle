@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/waYEYk4xfbs/maxresdefault.jpg">](https://www.youtube.com/watch?v=waYEYk4xfbs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
 
-**Artist**: 
-  
-    Trippie Redd
-  
-  
-  
-    Trippie Redd
-  
+**Artist**: Dirty Workz 
 
+**Track**: Hartshorn - Lose Control (Electric Fox)
 
-
-
-
- 
-
-**Track**: Trippie Redd – Dreamer (Official Video)
-
-Last updated at 03/21/2023 08:34
+Last updated at 03/21/2023 08:35
