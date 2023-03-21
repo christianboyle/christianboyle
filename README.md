@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7rQvlnYZxJxlRai-SBnBUA-t500x500.jpg">](https://soundcloud.com/veridianrecs/burial-final-domatix-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/wristboi-what-it-do?in=320rip/sets/320-rip-vol-9)
 
-**Artist**: 𝐕𝐞𝐫𝐢𝐝𝐢𝐚𝐧 𝐑𝐞𝐜𝐨𝐫𝐝𝐬 
+**Artist**: 320 RIP 
 
-**Track**: Domatix - Burial
+**Track**: wristboi - what it do
 
-Last updated at 03/20/2023 20:21
+Last updated at 03/20/2023 20:24
