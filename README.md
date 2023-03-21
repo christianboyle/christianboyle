@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360857988-dv3j41-t500x500.jpg">](https://soundcloud.com/msmsmsm/immaterial)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: SOPHIE 
 
-**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
+**Track**: Immaterial
 
-Last updated at 03/21/2023 17:09
+Last updated at 03/21/2023 17:27
