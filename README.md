@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/25-br1ng-w3rk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/dj-crewneck-ride-or-die-feat-dj-smoke)
 
 **Artist**: 320 RIP 
 
-**Track**: wristboi - br1ng w3rk
+**Track**: DJ Crewneck - Ride Or Die (feat. DJ SMOKE)
 
-Last updated at 03/20/2023 23:48
+Last updated at 03/20/2023 23:51
