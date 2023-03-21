@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1Peg9FY0JgUoXAX-ZKfM0g-t500x500.jpg">](https://soundcloud.com/sglily/xtc-final-sg-big-dog-eera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NtQUI6ppsSJ0him-64GL1g-t500x500.png">](https://soundcloud.com/rinsefm/nervoushorizon200323)
 
-**Artist**: @sglilyy 
+**Artist**: Rinse FM 
 
-**Track**: XTC FINAL (SG BUFFALOBANG EERA)
+**Track**: Nervous Horizon with TSVI & Air Max 97 - 20 March 2023
 
-Last updated at 03/21/2023 08:37
+Last updated at 03/21/2023 10:22
