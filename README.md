@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U7D3ss2fytNkQ8B5-z7Cjfw-t500x500.jpg">](https://soundcloud.com/rezimusicas/taz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7rQvlnYZxJxlRai-SBnBUA-t500x500.jpg">](https://soundcloud.com/veridianrecs/burial-final-domatix-music)
 
-**Artist**: REZI 
+**Artist**: 𝐕𝐞𝐫𝐢𝐝𝐢𝐚𝐧 𝐑𝐞𝐜𝐨𝐫𝐝𝐬 
 
-**Track**: Moody Good - Taz (You & Me) [REZI Flip]
+**Track**: Domatix - Burial
 
-Last updated at 03/20/2023 20:17
+Last updated at 03/20/2023 20:21
