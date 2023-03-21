@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/25-br1ng-w3rk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ud0zCWnU3TCyJn6G-Edr5sw-t500x500.jpg">](https://soundcloud.com/user-675298683/calvin-harris-ellie-goulding-miracle-acapellafull-download)
 
-**Artist**: 320 RIP 
+**Artist**: JEREMY LASMAN 
 
-**Track**: wristboi - br1ng w3rk
+**Track**: Calvin Harris & Ellie Goulding - Miracle (Studio Acapella)*HQ Full Download*
 
-Last updated at 03/21/2023 12:39
+Last updated at 03/21/2023 13:12
