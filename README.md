@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/phowen-feedback-loop?in=320rip/sets/320-rip-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4i5hcwlAa39onzNn-bvCMWw-t500x500.jpg">](https://soundcloud.com/terminalunderground/thegetdown)
 
-**Artist**: 320 RIP 
+**Artist**: Terminal Underground 
 
-**Track**: Phowen - Feedback Loop
+**Track**: Truth x Lies - The Get Down
 
-Last updated at 03/20/2023 22:08
+Last updated at 03/20/2023 22:10
