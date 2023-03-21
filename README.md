@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VMtguNuu3njVItam-Y2UkeQ-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-gallium-grills?in=gravitas-recordings/sets/buzz-junior-circulate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VMtguNuu3njVItam-Y2UkeQ-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-circulate?in=gravitas-recordings/sets/buzz-junior-circulate)
 
 **Artist**: Gravitas Music 
 
-**Track**: Buzz Junior & Gallium - Grills
+**Track**: Buzz Junior - Circulate
 
-Last updated at 03/21/2023 03:27
+Last updated at 03/21/2023 03:31
