@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PgagoxxshUut-0-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/rave-night-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NveaW5AN92vHsJzN-IJ9vKw-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-again-again-radio-edit)
 
-**Artist**: Tatsunoshin 
+**Artist**: OneSeventy 
 
-**Track**: Rave Night (Extended)
+**Track**: Technikore - Again & Again (Radio Edit)
 
-Last updated at 03/21/2023 14:03
+Last updated at 03/21/2023 14:06
