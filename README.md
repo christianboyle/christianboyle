@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lst6GmJyjrtpQ2ho-uSpjow-t500x500.jpg">](https://soundcloud.com/neveridle/gohda-coulda-been-teamsesh-nts-16th-february-2023-w-hnrk-rip?in=neveridle/sets/gohda-u-dont-kno-me-nir001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpBSb8Vb15ZpFSb2-UufKqg-t500x500.jpg">](https://soundcloud.com/shinzo666/blood-on-the-walls)
 
-**Artist**: Never Idle Records 
+**Artist**: shinzo 
 
-**Track**: [NTS Premier] Gohda - Coulda Been (TeamSesh NTS 16th February 2023: w/ hnrk Rip)
+**Track**: BLOOD ON THE WALLS
 
-Last updated at 03/21/2023 04:07
+Last updated at 03/21/2023 04:09
