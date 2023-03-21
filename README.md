@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3deFuogq74oSPSI5-6xLDeA-t500x500.jpg">](https://soundcloud.com/dylan-heckert/dylan-heckert-space-candy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mEzVOmyzZ2cm1oyP-nC8q2w-t500x500.jpg">](https://soundcloud.com/particaartistgroup/jangala)
 
-**Artist**: Dylan Heckert 
+**Artist**: Partica Artist Group 
 
-**Track**: Dylan Heckert - Space Candy
+**Track**: Gehena - Jangala
 
-Last updated at 03/20/2023 20:00
+Last updated at 03/20/2023 20:03
