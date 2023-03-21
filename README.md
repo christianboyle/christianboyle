@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPQ8PdYWuLhzc5Ck-yGRUVQ-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/hobi-untitled-5-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VMtguNuu3njVItam-Y2UkeQ-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-contraband?in=gravitas-recordings/sets/buzz-junior-circulate)
 
-**Artist**: Wormhole Music Group 
+**Artist**: Gravitas Music 
 
-**Track**: Hobi - Untitled 5
+**Track**: Buzz Junior - Contraband
 
-Last updated at 03/21/2023 03:18
+Last updated at 03/21/2023 03:21
