@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-IIwn3knnuW0z0N6O-lSlzwg-t500x500.jpg">](https://soundcloud.com/nathansnatch87/stevie-nicks-seventeen-snatch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouqTSAdWi1o9AiAx-PLMWYg-t500x500.jpg">](https://soundcloud.com/cutspace/milankovitch)
 
-**Artist**: SNATCH (OFFICIAL)🔊🎧🏴󠁧󠁢󠁷󠁬󠁳󠁿 
+**Artist**: cutspace 
 
-**Track**: Stevie Nicks - Seventeen  (SNATCH TECH TWIST REMIX)
+**Track**: biogeochemicᵃ | *model.0f:milankovitch cYcles//press-->Start2begin(s)imulation ..
 
-Last updated at 03/21/2023 02:48
+Last updated at 03/21/2023 02:56
