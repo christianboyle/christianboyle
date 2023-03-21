@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/betaboy-uandjustme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYCJObHk7FyIcfcS-ox4f6w-t500x500.jpg">](https://soundcloud.com/320rip/phowen-feedback-loop)
 
 **Artist**: 320 RIP 
 
-**Track**: betaboy - UandJustMe
+**Track**: Phowen - Feedback Loop
 
-Last updated at 03/20/2023 23:54
+Last updated at 03/20/2023 23:58
