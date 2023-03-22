@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000221197999-p1l1qw-t500x500.jpg">](https://soundcloud.com/pcmus/no-sleeep-easyfun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oxvTCC4SHsiOOzya-sadNpA-t500x500.jpg">](https://soundcloud.com/s3rl/through-the-night-s3rl-tatsunoshin)
 
-**Artist**: PC Music ♩ 
+**Artist**: S3RL 
 
-**Track**: Janet Jackson - No Sleeep (EASYFUN Remix)
+**Track**: Through The Night - S3RL & Tatsunoshin
 
-Last updated at 03/22/2023 09:09
+Last updated at 03/22/2023 09:10
