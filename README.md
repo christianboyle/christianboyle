@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oxvTCC4SHsiOOzya-sadNpA-t500x500.jpg">](https://soundcloud.com/s3rl/through-the-night-s3rl-tatsunoshin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XxAZMh9CTZM4aNU-CTWPBQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-light-me-up-featgiin-extended-mix)
 
-**Artist**: S3RL 
+**Artist**: Tatsunoshin 
 
-**Track**: Through The Night - S3RL & Tatsunoshin
+**Track**: Tatsunoshin - Light Me Up (feat.Giin) [Extended Mix]
 
-Last updated at 03/22/2023 09:10
+Last updated at 03/22/2023 09:13
