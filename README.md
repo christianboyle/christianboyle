@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KABOzLU3RyKQiIJR-gRggAA-t500x500.jpg">](https://soundcloud.com/emil-rottmayer/dream-sync)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHk9P1LhDnfDq9Zi-MD0QYg-t500x500.jpg">](https://soundcloud.com/bridgeyb14/substanced-blind-bridgey-b-kinn-remix-m2)
 
-**Artist**: Emil Rottmayer 
+**Artist**: BRIDGEY-B 
 
-**Track**: Dream Sync
+**Track**: Substanced - Blind (BRIDGEY - B & KINN REMIX) (M2)
 
-Last updated at 03/22/2023 10:45
+Last updated at 03/22/2023 10:48
