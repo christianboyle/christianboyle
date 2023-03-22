@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JiQPi0o6ecZWNbcy-3SUFBg-t500x500.jpg">](https://soundcloud.com/madjestickasual/text-chunk-senseless-mk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360857988-dv3j41-t500x500.jpg">](https://soundcloud.com/msmsmsm/immaterial)
 
-**Artist**: Madjestic Kasual 
+**Artist**: SOPHIE 
 
-**Track**: Text Chunk - Senseless [MK PREMIERE]
+**Track**: Immaterial
 
-Last updated at 03/22/2023 08:16
+Last updated at 03/22/2023 08:17
