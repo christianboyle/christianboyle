@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000360857988-dv3j41-t500x500.jpg">](https://soundcloud.com/msmsmsm/immaterial)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
 
-**Artist**: SOPHIE 
+**Artist**: Dirty Workz 
 
-**Track**: Immaterial
+**Track**: Hartshorn - Lose Control (Electric Fox)
 
-Last updated at 03/22/2023 08:17
+Last updated at 03/22/2023 08:20
