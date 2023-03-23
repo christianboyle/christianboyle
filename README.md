@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XxAZMh9CTZM4aNU-CTWPBQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-light-me-up-featgiin-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
 
-**Artist**: Tatsunoshin 
+**Artist**: Dirty Workz 
 
-**Track**: Tatsunoshin - Light Me Up (feat.Giin) [Extended Mix]
+**Track**: Hartshorn - Lose Control (Electric Fox)
 
-Last updated at 03/22/2023 21:52
+Last updated at 03/22/2023 21:57
