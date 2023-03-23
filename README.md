@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000516108150-f9gnt1-t500x500.jpg">](https://soundcloud.com/dj-brady/alice-deejay-better-off-alone-dark-rehab-bootlegbradys-hardcore-mixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XxAZMh9CTZM4aNU-CTWPBQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-light-me-up-featgiin-extended-mix)
 
-**Artist**: DJ Brady 
+**Artist**: Tatsunoshin 
 
-**Track**: Alice Deejay - Better Off Alone (Dark Rehab Bootleg)(Brady's UK Hardcore Mix)(FREE DOWNLOAD!)
+**Track**: Tatsunoshin - Light Me Up (feat.Giin) [Extended Mix]
 
-Last updated at 03/22/2023 19:55
+Last updated at 03/22/2023 21:52
