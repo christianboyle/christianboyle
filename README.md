@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JMyxyKrxIzDnrczX-vePASA-t500x500.jpg">](https://soundcloud.com/blackworksclub/premiere-la-penderie-noire-drop-the-mid-original-mix)
 
-**Artist**: Dirty Workz 
+**Artist**: Blackworks 
 
-**Track**: Hartshorn - Lose Control (Electric Fox)
+**Track**: Premiere: La Penderie Noire - Drop The Mid (Original Mix)
 
-Last updated at 03/22/2023 21:57
+Last updated at 03/23/2023 10:32
