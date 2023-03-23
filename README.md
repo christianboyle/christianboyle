@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0epfoqBnTqDVzo7o-ypKzhQ-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-573-kutski-live-wasteland-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GIGhd7u3haDfAFRv-JzsxiQ-t500x500.jpg">](https://soundcloud.com/teewave-records/teokad-marcau-heavy-brain)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Teewave Records 
 
-**Track**: KTRA Episode 573: Kutski Live @ Wasteland 2023
+**Track**: Teokad & Marcau - Heavy Brain
 
-Last updated at 03/23/2023 12:52
+Last updated at 03/23/2023 16:05
