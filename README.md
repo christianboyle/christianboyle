@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JMyxyKrxIzDnrczX-vePASA-t500x500.jpg">](https://soundcloud.com/blackworksclub/premiere-la-penderie-noire-drop-the-mid-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lf6VQ8DA9B1N8ZxV-5Akazw-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin042-soul-mass-transit-system-the-big-speedy-g-one-ep)
 
-**Artist**: Blackworks 
+**Artist**: Shall Not Fade 
 
-**Track**: Premiere: La Penderie Noire - Drop The Mid (Original Mix)
+**Track**: TIN042 // Soul Mass Transit System - The Big Speedy G One EP
 
-Last updated at 03/23/2023 10:32
+Last updated at 03/23/2023 10:33
