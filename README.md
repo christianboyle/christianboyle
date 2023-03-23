@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lf6VQ8DA9B1N8ZxV-5Akazw-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin042-soul-mass-transit-system-the-big-speedy-g-one-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
 
-**Artist**: Shall Not Fade 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: TIN042 // Soul Mass Transit System - The Big Speedy G One EP
+**Track**: HPHF MS85 : DAN LARKIN
 
-Last updated at 03/23/2023 10:33
+Last updated at 03/23/2023 10:34
