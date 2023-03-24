@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCFOi3CKUQ8ROFXw-Q2eDLQ-t500x500.jpg">](https://soundcloud.com/the_music_blender/rxphy-feeling-like-icarus-robu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XxAZMh9CTZM4aNU-CTWPBQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-light-me-up-featgiin-extended-mix)
 
-**Artist**: The Music Blender 
+**Artist**: Tatsunoshin 
 
-**Track**: RXPHY - Feeling Like Icarus (Robu Remix)
+**Track**: Tatsunoshin - Light Me Up (feat.Giin) [Extended Mix]
 
-Last updated at 03/24/2023 13:52
+Last updated at 03/24/2023 13:53
