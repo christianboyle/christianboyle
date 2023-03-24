@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GZ2mWhVJrHyCEQC-KGIS0Q-t500x500.jpg">](https://soundcloud.com/nillbeats/nill-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-noi7dVjAivQgPUY4-FJOPEQ-t500x500.jpg">](https://soundcloud.com/loudkult/viva-la-panda-x-her-majesty-lovefool)
 
-**Artist**: NILL 
+**Artist**: LoudKult 
 
-**Track**: NILL - ENOUGH
+**Track**: Viva La Panda X Her Majesty - Lovefool
 
-Last updated at 03/24/2023 13:14
+Last updated at 03/24/2023 13:15
