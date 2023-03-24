@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqWcdThXzNCRciDO-3OdGUQ-t500x500.jpg">](https://soundcloud.com/kreios_music/solace-1?in=side_fx/sets/in-the-end)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtnXRAlZbx38mBKy-7RWbzw-t500x500.jpg">](https://soundcloud.com/judgementg/gleezy-murder)
 
-**Artist**: Kreios 
+**Artist**: Judgement G 
 
-**Track**: Solace
+**Track**: GLEEZY MURDER
 
-Last updated at 03/24/2023 13:09
+Last updated at 03/24/2023 13:10
