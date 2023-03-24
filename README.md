@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000448765035-4aaf70-t500x500.jpg">](https://soundcloud.com/dj-iyf/edward-maya-vika-jigulina-stereo-love-rob-iyf-x-dave-psi-remix-fin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3BDpZI8wULLrPdTm-zcz7AQ-t500x500.jpg">](https://soundcloud.com/contagious-records/lets-keep-on-dancing)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: CONTAGIOUS RECORDS 
 
-**Track**: Edward Maya & Vika Jigulina - Stereo Love (Rob IYF X Dave PSI Remix) FREE DOWNLOAD
+**Track**: [CR0211] Riko & RPL - Lets Keep on Dancing (OUT NOW)
 
-Last updated at 03/24/2023 09:33
+Last updated at 03/24/2023 09:37
