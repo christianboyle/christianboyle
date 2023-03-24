@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C4Eb1NeZEDBo4t4a-5KwXKQ-t500x500.jpg">](https://soundcloud.com/leytonmode/aether-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jxthhw4U9mlnini2-uUrzBg-t500x500.jpg">](https://soundcloud.com/prodmusa/leap)
 
-**Artist**: leyton 
+**Artist**: Musa 
 
-**Track**: aether
+**Track**: leap of faith/111 (with soupandreas)
 
-Last updated at 03/24/2023 14:34
+Last updated at 03/24/2023 14:35
