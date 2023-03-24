@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5OVjfcmgWRGiZwSS-G2T0NA-t500x500.jpg">](https://soundcloud.com/ryanleahan/the-fairy-the-wizard-and-the-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIP0L9gI4J76bfr9-KFiE8A-t500x500.jpg">](https://soundcloud.com/corefish/sos)
 
-**Artist**: Ryan Leahan 
+**Artist**: corefish 
 
-**Track**: The Fairy, the Wizard and the Moon
+**Track**: SOS
 
-Last updated at 03/24/2023 14:28
+Last updated at 03/24/2023 14:29
