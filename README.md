@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6XxJ3NIXDsb6SMu-R80M5w-t500x500.jpg">](https://soundcloud.com/xeptionmusic/imgoodxep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyiC0hzDeif1-0-t500x500.jpg">](https://soundcloud.com/dombresky/dombresky-irly-i-really-love)
 
-**Artist**: XEPTION 
+**Artist**: Dombresky 
 
-**Track**: David Guetta & Bebe Rexha - I'm Good (Blue) [XEPTION REMIX]
+**Track**: Dombresky - IRLY (I Really Love You)
 
-Last updated at 03/24/2023 13:11
+Last updated at 03/24/2023 13:12
