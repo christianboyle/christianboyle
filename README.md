@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MrsMMeHN8PpZxW4P-PXQBIw-t500x500.png">](https://soundcloud.com/dgtlsgnlbass/oblique)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fWU6z7q1mfdBbFfz-FCkUww-t500x500.jpg">](https://soundcloud.com/shyghyofficial/rewind?in=hijackdabass/sets/give-it-time)
 
-**Artist**: DGTL•SGNL 
+**Artist**: ShyGhy 
 
-**Track**: Oblique
+**Track**: Rewind
 
-Last updated at 03/24/2023 13:18
+Last updated at 03/24/2023 13:20
