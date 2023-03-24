@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-81V62ySDwwU9QFD0-K2OjuQ-t500x500.jpg">](https://soundcloud.com/bridgeyb14/headhunterz-sian-evans-dragonborn-part-3-oceans-apart-bridgey-b-jay-g-remixwav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enNKMygjlFKQz7Fz-xKdeVQ-t500x500.jpg">](https://soundcloud.com/user-779214024/prty-podcast-012-tucker)
 
-**Artist**: BRIDGEY-B 
+**Artist**: PRTY 
 
-**Track**: Headhunterz - Sian - Evans - Dragonborn - Part - 3-Oceans Apart (Bridgey B & Jay G Remix)wav
+**Track**: PRTY PODCAST // 012 - TUCKER
 
-Last updated at 03/24/2023 09:53
+Last updated at 03/24/2023 10:09
