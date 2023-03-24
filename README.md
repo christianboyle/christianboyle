@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIP0L9gI4J76bfr9-KFiE8A-t500x500.jpg">](https://soundcloud.com/corefish/sos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C4Eb1NeZEDBo4t4a-5KwXKQ-t500x500.jpg">](https://soundcloud.com/leytonmode/aether-1)
 
-**Artist**: corefish 
+**Artist**: leyton 
 
-**Track**: SOS
+**Track**: aether
 
-Last updated at 03/24/2023 14:33
+Last updated at 03/24/2023 14:34
