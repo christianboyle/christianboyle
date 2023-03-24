@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enNKMygjlFKQz7Fz-xKdeVQ-t500x500.jpg">](https://soundcloud.com/user-779214024/prty-podcast-012-tucker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqWcdThXzNCRciDO-3OdGUQ-t500x500.jpg">](https://soundcloud.com/kreios_music/solace-1?in=side_fx/sets/in-the-end)
 
-**Artist**: PRTY 
+**Artist**: Kreios 
 
-**Track**: PRTY PODCAST // 012 - TUCKER
+**Track**: Solace
 
-Last updated at 03/24/2023 10:09
+Last updated at 03/24/2023 13:09
