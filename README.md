@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t2xYqI7VvpQ9SH9y-wyZAtA-t500x500.jpg">](https://soundcloud.com/nitepunk/spider-ft-tida)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPnabN8FPzcXWaky-vfOoEA-t500x500.jpg">](https://soundcloud.com/sanshuiledepalme/mona-san-mama-always-told-me)
 
-**Artist**: Nitepunk 
+**Artist**: Sans Huile de Palme 
 
-**Track**: Spider Ft. Tída
+**Track**: MONA SAN - MAMA ALWAYS TOLD ME
 
-Last updated at 03/25/2023 10:09
+Last updated at 03/25/2023 10:10
