@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/GrJs8aLfA94/maxresdefault.jpg">](https://www.youtube.com/watch?v=GrJs8aLfA94)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZLKV1W94b7O1-0-t500x500.jpg">](https://soundcloud.com/oneseventy/gold-coast-higher)
 
-**Artist**: 
-  
-    Afrojack
-  
-  
-  
-    Afrojack
-  
+**Artist**: OneSeventy 
 
+**Track**: Gold Coast - Higher
 
-
-
-
- 
-
-**Track**: AFROJACK LIVE @ ULTRA MUSIC FESTIVAL MIAMI 2023
-
-Last updated at 03/25/2023 12:14
+Last updated at 03/25/2023 12:18
