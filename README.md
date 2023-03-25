@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cslhiOIXwDFMekI0-KJIZ4g-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast126-flymeon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NxdZw53nxMZdgqhj-Jnc39g-t500x500.jpg">](https://soundcloud.com/aaron-cadzow-2/cadzow-rock-right-now-master?in=aaron-cadzow-2/sets/cadzow-rock-right-now-ep)
 
-**Artist**: Rave Alert 
+**Artist**: CADZOW 
 
-**Track**: RaveCast126 - Flymeon
+**Track**: CADZOW - ROCK RIGHT NOW
 
-Last updated at 03/25/2023 11:17
+Last updated at 03/25/2023 11:18
