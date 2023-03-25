@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZLKV1W94b7O1-0-t500x500.jpg">](https://soundcloud.com/oneseventy/gold-coast-higher)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/Q7uMkHNoS8U/maxresdefault.jpg">](https://www.youtube.com/watch?v=Q7uMkHNoS8U)
 
-**Artist**: OneSeventy 
+**Artist**: 
+  
+    Ferry Corsten
+  
+  
+  
+    Ferry Corsten
+  
 
-**Track**: Gold Coast - Higher
 
-Last updated at 03/25/2023 12:18
+
+
+
+ 
+
+**Track**: System F - Out Of The Blue (Official Video)
+
+Last updated at 03/25/2023 12:24
