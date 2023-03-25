@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NxdZw53nxMZdgqhj-Jnc39g-t500x500.jpg">](https://soundcloud.com/aaron-cadzow-2/cadzow-rock-right-now-master?in=aaron-cadzow-2/sets/cadzow-rock-right-now-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
 
-**Artist**: CADZOW 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: CADZOW - ROCK RIGHT NOW
+**Track**: HPHF MS85 : DAN LARKIN
 
-Last updated at 03/25/2023 11:18
+Last updated at 03/25/2023 11:19
