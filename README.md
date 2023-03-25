@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cslhiOIXwDFMekI0-KJIZ4g-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast126-flymeon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t2xYqI7VvpQ9SH9y-wyZAtA-t500x500.jpg">](https://soundcloud.com/nitepunk/spider-ft-tida)
 
-**Artist**: Rave Alert 
+**Artist**: Nitepunk 
 
-**Track**: RaveCast126 - Flymeon
+**Track**: Spider Ft. Tída
 
-Last updated at 03/25/2023 10:08
+Last updated at 03/25/2023 10:09
