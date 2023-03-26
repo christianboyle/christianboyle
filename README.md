@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2piHrXI4CGW3lVI-TYnDmg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/miracleedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZW8Fyb2WFOxeKz6-q4KHew-t500x500.jpg">](https://soundcloud.com/goldeeper/jordvn-prince-journey)
 
-**Artist**: Klubfiller 
+**Artist**: GOLD DEEPER 
 
-**Track**: Calvin Harris, Ellie Goulding - Miracle (Klubfiller Hardcore Edit)
+**Track**: JORDVN PRINCE - JOURNEY [Gold Deeper]
 
-Last updated at 03/26/2023 09:44
+Last updated at 03/26/2023 09:45
