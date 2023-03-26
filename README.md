@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hGKmJOSQzLKK7lD3-9vqrQQ-t500x500.jpg">](https://soundcloud.com/edm-family-ultra-2018/tiesto-live-ultra-music-festival-2023-miami-day2)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: EDM FAMILY Live Sets 
 
-**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
+**Track**: Tiësto - Live @ Ultra Music Festival 2023 (Miami) #Day2
 
-Last updated at 03/25/2023 13:59
+Last updated at 03/25/2023 21:41
