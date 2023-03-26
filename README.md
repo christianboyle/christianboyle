@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZW8Fyb2WFOxeKz6-q4KHew-t500x500.jpg">](https://soundcloud.com/goldeeper/jordvn-prince-journey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w5nA16GzZj3ievna-rAs78A-t500x500.jpg">](https://soundcloud.com/biophaze/isolit-strawlz-sleg)
 
-**Artist**: GOLD DEEPER 
+**Artist**: Biophaze Records 
 
-**Track**: JORDVN PRINCE - JOURNEY [Gold Deeper]
+**Track**: ISOLIT & STRAWLZ. - SLEG
 
-Last updated at 03/26/2023 09:45
+Last updated at 03/26/2023 09:48
