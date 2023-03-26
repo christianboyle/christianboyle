@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jbKufGNHti4qwXgl-HPfoxg-t500x500.jpg">](https://soundcloud.com/wynde-up/wynde-up-grythm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ByVtTInUyzHmvyH-2DuKdg-t500x500.jpg">](https://soundcloud.com/umf2023/afrojack-live-ultra-music-festival-miami-2023)
 
-**Artist**: Wynde Up 
+**Artist**: UMF ♫ 
 
-**Track**: Wynde Up - Grythm [Monsoon Season Premiere]
+**Track**: Afrojack Live @ Ultra Music Festival Miami 2023
 
-Last updated at 03/26/2023 09:50
+Last updated at 03/26/2023 09:51
