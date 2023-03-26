@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ozluEJrh69IWraA-IcSsww-t500x500.jpg">](https://soundcloud.com/noiseparfumerie/signal-montana)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Noise Parfumerie 
 
-**Track**: HPHF MS85 : DAN LARKIN
+**Track**: Noise Parfumerie - Montana
 
-Last updated at 03/26/2023 14:14
+Last updated at 03/26/2023 18:49
