@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xh5DifO4EzRDwADy-BAgxqA-t500x500.jpg">](https://soundcloud.com/pharaohphonix/thomas-xavier-t-rex-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQKTtrUyZe7kj2Q6-0g1z1w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-103-on-beat-1)
 
-**Artist**: Pharaoh Phonix 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Thomas Xavier - T-Rex (Original Mix)
+**Track**: Bonkers Beats #103 on Beat 106 Scotland with Hartshorn 240323 (Hour 1)
 
-Last updated at 03/27/2023 08:26
+Last updated at 03/27/2023 08:27
