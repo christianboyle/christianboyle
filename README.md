@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NveaW5AN92vHsJzN-IJ9vKw-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-again-again-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgvHiIn0ux0p5g8y-pgV1BQ-t500x500.jpg">](https://soundcloud.com/oneseventy/jts-better-now-tatsunoshin-remix)
 
 **Artist**: OneSeventy 
 
-**Track**: Technikore - Again & Again (Radio Edit)
+**Track**: JTS - Better Now (Tatsunoshin Remix)
 
-Last updated at 03/28/2023 13:15
+Last updated at 03/28/2023 13:19
