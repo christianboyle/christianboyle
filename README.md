@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OAFv3KpPNVKi3tP2-cyf1FA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-102-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXHZWKTBHHNq-0-t500x500.jpg">](https://soundcloud.com/100gecs/mememe?in=100gecs/sets/10-000-gecs-1)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 100 gecs 
 
-**Track**: Bonkers Beats #102 on Beat 106 Scotland with Daniel Seven with Quickdrop Guest Mix 170323 (Hour 1)
+**Track**: mememe
 
-Last updated at 03/28/2023 13:26
+Last updated at 03/28/2023 15:47
