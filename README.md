@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6QoBhJ61zsvRj9Y-xaGaHw-t500x500.jpg">](https://soundcloud.com/neverglowmusic/natural-high-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KIhBQJvOtSnU1GBU-BLA1yQ-t500x500.jpg">](https://soundcloud.com/dimmakrecords/celo-2spade-never-know)
 
-**Artist**: NEVERGLOW 🌿 
+**Artist**: Dim Mak Records 
 
-**Track**: NATURAL HIGH #1
+**Track**: CELO & 2Spade - NEVER KNOW
 
-Last updated at 03/28/2023 08:05
+Last updated at 03/28/2023 08:06
