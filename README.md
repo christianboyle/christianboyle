@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAC0E1bhyaGoJUsM-cWRBMg-t500x500.jpg">](https://soundcloud.com/monstercat/teddy-killerz-riders-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6QoBhJ61zsvRj9Y-xaGaHw-t500x500.jpg">](https://soundcloud.com/neverglowmusic/natural-high-1)
 
-**Artist**: Monstercat 
+**Artist**: NEVERGLOW 🌿 
 
-**Track**: Teddy Killerz - Riders In The Sky
+**Track**: NATURAL HIGH #1
 
-Last updated at 03/28/2023 08:03
+Last updated at 03/28/2023 08:05
