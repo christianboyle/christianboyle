@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nstoRtJEvSD7ctrz-EgS5ow-t500x500.jpg">](https://soundcloud.com/dksincerely/yung-kayo-run-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6WfvWIoxiZEihdvM-XG2MKQ-t500x500.jpg">](https://soundcloud.com/warpstr/lv-1)
 
-**Artist**: soza 
+**Artist**: warpstr 
 
-**Track**: yung kayo - run that
+**Track**: LV 2018
 
-Last updated at 03/28/2023 16:21
+Last updated at 03/28/2023 16:22
