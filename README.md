@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PAFlecE4sGN4ubpi-sWynIA-t500x500.jpg">](https://soundcloud.com/mzgmusic/hound-dawg)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: MZG 
 
-**Track**: HPHF MS85 : DAN LARKIN
+**Track**: Houn Dawg
 
-Last updated at 03/28/2023 10:17
+Last updated at 03/28/2023 12:14
