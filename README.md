@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nR1VzFaq5hklZrUf-t8crIg-t500x500.jpg">](https://soundcloud.com/2siik/how2party-originalmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWqaMe8Mzcrfzbim-BrEtDA-t500x500.jpg">](https://soundcloud.com/creighfish/spring-2k23-mix)
 
-**Artist**: 2SiiK 
+**Artist**: CreighFish 
 
-**Track**: How2Party (Original Mix)
+**Track**: Spring 2k23 Mix
 
-Last updated at 03/29/2023 08:24
+Last updated at 03/29/2023 08:25
