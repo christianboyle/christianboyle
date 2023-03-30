@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Tu1WwJIQwUCfe3U-NEnmbA-t500x500.jpg">](https://soundcloud.com/djride/dj-ride-recorded-live-at-vision-simplon-18022023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iaz4z8w3xHalZFoz-xzpICw-t500x500.jpg">](https://soundcloud.com/formerhero/self-hard-edit-v2)
 
-**Artist**: DJ RIDE 
+**Artist**: former hero 
 
-**Track**: DJ Ride - Recorded live at VISION // Simplon (18.02.2023)
+**Track**: Self (hard edit v2)
 
-Last updated at 03/29/2023 08:26
+Last updated at 03/30/2023 08:44
