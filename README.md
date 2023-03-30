@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tg4lrkqAzIvxxcFX-xYAT2A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/kami-bass-creator-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnSoEwBuFLdT-0-t500x500.jpg">](https://soundcloud.com/quickdropmusic/waste-your-love-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Quickdrop 
 
-**Track**: KAMI - BASS CREATOR (DWX Copyright Free)
+**Track**: Waste Your Love
 
-Last updated at 03/30/2023 08:55
+Last updated at 03/30/2023 08:56
