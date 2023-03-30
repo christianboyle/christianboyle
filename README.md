@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cO4s4kgzhMiW204n-Sdsu9w-t500x500.jpg">](https://soundcloud.com/triplexlarge/crumble-crack-dawn-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ErahGZlCjx8Ziuuf-i0fokg-t500x500.jpg">](https://soundcloud.com/vortexvortexvortex/vortex-mix-mike-midnight-1)
 
-**Artist**: ３ＸＬ 
+**Artist**: Vortex 
 
-**Track**: crumble crack dawn song
+**Track**: Vortex Mix ✻ Mike Midnight
 
-Last updated at 03/30/2023 08:57
+Last updated at 03/30/2023 09:07
