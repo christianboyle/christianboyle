@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thAxxeEsI25xXuxg-8Q1TIw-t500x500.png">](https://soundcloud.com/dsffctd/missy-elliott-get-ur-freak-on-disaffected-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQXeY4RWk2AWtFAA-pvChFA-t500x500.jpg">](https://soundcloud.com/jadudala/tolls)
 
-**Artist**: Disaffected 
+**Artist**: Jadū Dala 
 
-**Track**: Missy Elliott - Get Ur Freak On (Disaffected Bootleg)
+**Track**: capshun - Tolls (JADŪ209)
 
-Last updated at 03/30/2023 08:46
+Last updated at 03/30/2023 08:52
