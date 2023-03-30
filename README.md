@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBlWJEv1BWyOMAl5-0G6gVw-t500x500.jpg">](https://soundcloud.com/yume-network/slyder-garry-ocean-be-your-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tg4lrkqAzIvxxcFX-xYAT2A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/kami-bass-creator-dwx-copyright-free)
 
-**Artist**: Yume 
+**Artist**: Dirty Workz 
 
-**Track**: SlYder & Garry Ocean - Be Your Light
+**Track**: KAMI - BASS CREATOR (DWX Copyright Free)
 
-Last updated at 03/30/2023 08:54
+Last updated at 03/30/2023 08:55
