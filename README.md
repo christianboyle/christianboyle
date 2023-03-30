@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7caoTZ8eCP1AHwc5-a2xYLA-t500x500.jpg">](https://soundcloud.com/wrathul/private-landing-wrathul-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rPJiCn3jxzT2MP72-sjrzRQ-t500x500.jpg">](https://soundcloud.com/jadudala/bymyside)
 
-**Artist**: Wrathul 
+**Artist**: Jadū Dala 
 
-**Track**: Don Toliver - Private Landing Feat. Justin Bieber & Future (Wrathul Remix)
+**Track**: SPACEWALK - By My Side (JADŪ208)
 
-Last updated at 03/30/2023 14:55
+Last updated at 03/30/2023 14:58
