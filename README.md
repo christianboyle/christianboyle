@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ErahGZlCjx8Ziuuf-i0fokg-t500x500.jpg">](https://soundcloud.com/vortexvortexvortex/vortex-mix-mike-midnight-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cO4s4kgzhMiW204n-Sdsu9w-t500x500.jpg">](https://soundcloud.com/triplexlarge/wish-u?in=triplexlarge/sets/windowseeker-tranquil-flutter-engulf-my-heart)
 
-**Artist**: Vortex 
+**Artist**: ３ＸＬ 
 
-**Track**: Vortex Mix ✻ Mike Midnight
+**Track**: wish u
 
-Last updated at 03/30/2023 09:07
+Last updated at 03/30/2023 09:08
