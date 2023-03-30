@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnSoEwBuFLdT-0-t500x500.jpg">](https://soundcloud.com/quickdropmusic/waste-your-love-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cO4s4kgzhMiW204n-Sdsu9w-t500x500.jpg">](https://soundcloud.com/triplexlarge/crumble-crack-dawn-song)
 
-**Artist**: Quickdrop 
+**Artist**: ３ＸＬ 
 
-**Track**: Waste Your Love
+**Track**: crumble crack dawn song
 
-Last updated at 03/30/2023 08:56
+Last updated at 03/30/2023 08:57
