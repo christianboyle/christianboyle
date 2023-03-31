@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs5Si2AJoLFA-0-t500x500.jpg">](https://soundcloud.com/axmomusic/party-everyday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MNrKvtNhsVlz-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/golden-days)
 
-**Artist**: AXMO 
+**Artist**: Ezra Hazard 
 
-**Track**: Party Everyday
+**Track**: Golden Days (feat. Jaime Deraz)
 
-Last updated at 03/31/2023 09:44
+Last updated at 03/31/2023 09:45
