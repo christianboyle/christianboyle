@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gqjG2JzHzAz0qytR-RsDOGg-t500x500.jpg">](https://soundcloud.com/relect-jp/dj-shimamura-tokyo-hardcore-music-all-night-longrelect-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs5Si2AJoLFA-0-t500x500.jpg">](https://soundcloud.com/axmomusic/party-everyday)
 
-**Artist**: Relect 
+**Artist**: AXMO 
 
-**Track**: DJ Shimamura - Tokyo Hardcore Music All Night Long(Relect Remix)
+**Track**: Party Everyday
 
-Last updated at 03/31/2023 09:43
+Last updated at 03/31/2023 09:44
