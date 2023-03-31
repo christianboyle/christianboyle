@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyrzUngIyNlEByYC-DUGFbQ-t500x500.jpg">](https://soundcloud.com/future-flex/future-flex-take-me-higher-out-now-on-hardcore-energy-as-featured-on-radio-1s-dance-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2VDSk95LgzJ3xHN5-yptd2g-t500x500.jpg">](https://soundcloud.com/future-flex/future-flex-swufm-hardcore-energy-guestmix-2022)
 
 **Artist**: Future Flex 
 
-**Track**: Future Flex - Take Me Higher [ OUT NOW ON HARDCORE ENERGY] (As Featured On Radio 1s Dance Party)
+**Track**: SWU.FM HARDCORE ENERGY GUEST MIX 2022
 
-Last updated at 03/31/2023 10:05
+Last updated at 03/31/2023 10:06
