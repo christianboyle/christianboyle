@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2VDSk95LgzJ3xHN5-yptd2g-t500x500.jpg">](https://soundcloud.com/future-flex/future-flex-swufm-hardcore-energy-guestmix-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRkH2nt5Nhw6SSiv-F553sg-t500x500.jpg">](https://soundcloud.com/justicehardcore/imsober?in=justicehardcore/sets/new-justice-hardcore-releases)
 
-**Artist**: Future Flex 
+**Artist**: Justice Hardcore 
 
-**Track**: SWU.FM HARDCORE ENERGY GUEST MIX 2022
+**Track**: MinGtist - I'm Sober ⚠️OUT NOW⚠️
 
-Last updated at 03/31/2023 10:06
+Last updated at 03/31/2023 12:59
