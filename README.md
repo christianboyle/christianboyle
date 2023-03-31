@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRkH2nt5Nhw6SSiv-F553sg-t500x500.jpg">](https://soundcloud.com/justicehardcore/imsober?in=justicehardcore/sets/new-justice-hardcore-releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vv0CE1ZVDO2dPHcv-wRFiwg-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-03)
 
-**Artist**: Justice Hardcore 
+**Artist**: TELYKAST 
 
-**Track**: MinGtist - I'm Sober ⚠️OUT NOW⚠️
+**Track**: BROADKAST - Mix 03
 
-Last updated at 03/31/2023 12:59
+Last updated at 03/31/2023 13:00
