@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gqjG2JzHzAz0qytR-RsDOGg-t500x500.jpg">](https://soundcloud.com/relect-jp/dj-shimamura-tokyo-hardcore-music-all-night-longrelect-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NP0DxyKLwMm9wlkQ-Cl6DPQ-t500x500.jpg">](https://soundcloud.com/lofreqrecords/star-monster-gimme-a-handclap)
 
-**Artist**: Relect 
+**Artist**: LoFreq 
 
-**Track**: DJ Shimamura - Tokyo Hardcore Music All Night Long(Relect Remix)
+**Track**: Star Monster - Gimme a Handclap
 
-Last updated at 03/31/2023 09:39
+Last updated at 03/31/2023 09:42
