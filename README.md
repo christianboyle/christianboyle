@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5mN4AkEwqaTkOzz-2UW1AA-t500x500.jpg">](https://soundcloud.com/sablevalley/nukid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WBR2zFRlDvGhE3lf-5YzJSw-t500x500.jpg">](https://soundcloud.com/1800blkout/raye-070shake-escapism-blkout-bootleg)
 
-**Artist**: SABLE VALLEY 
+**Artist**: blkout. 
 
-**Track**: W IN K - NUKID
+**Track**: raye & 070shake - escapism [blkout. bootleg]
 
-Last updated at 03/31/2023 21:18
+Last updated at 03/31/2023 21:19
