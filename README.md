@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bLpoIsq77gQlahLE-5C4fCQ-t500x500.jpg">](https://soundcloud.com/explorersoftheinternet/rumble-lololol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SpI82alB0wtF2dxA-balbbg-t500x500.jpg">](https://soundcloud.com/reek_wobs/mariah-carey-fucking-dies-in-a-multigenre-death-loop)
 
-**Artist**: Explorers of the Internet 
+**Artist**: ReeK/Asatsumei 
 
-**Track**: Skrillex -  Tumble (ft. Walt Disney)
+**Track**: Mariah Carey Fucking Dies In A Multigenre Death Loop
 
-Last updated at 03/31/2023 21:20
+Last updated at 03/31/2023 21:21
