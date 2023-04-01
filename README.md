@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-KA2jSqv1x8JEhaXz-vIjNYQ-t500x500.jpg">](https://soundcloud.com/mazebelgium/imanu-thinkofu-maze-patreon-remixfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5mN4AkEwqaTkOzz-2UW1AA-t500x500.jpg">](https://soundcloud.com/sablevalley/nukid)
 
-**Artist**: MAZE 
+**Artist**: SABLE VALLEY 
 
-**Track**: Imanu - Think Of U (Maze Remix)Free DL
+**Track**: W IN K - NUKID
 
-Last updated at 03/31/2023 21:17
+Last updated at 03/31/2023 21:18
