@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wgKIKWwGr2v2n700-qkl40Q-t500x500.jpg">](https://soundcloud.com/officialtrapparty/mostwanted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tsL8CWB0lKtoBo87-UOx0yQ-t500x500.jpg">](https://soundcloud.com/rize-14/imanu-drowning-rize-remix)
 
-**Artist**: Trap Party 
+**Artist**: RIzE 
 
-**Track**: Caneschi - MostWanted (feat. Slim Spitta)
+**Track**: IMANU - Drowning (RIzE Remix)
 
-Last updated at 04/01/2023 17:39
+Last updated at 04/01/2023 19:43
