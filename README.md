@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pU4KqZ5q0rPbO9MZ-w3ecBQ-t500x500.jpg">](https://soundcloud.com/jadudala/discovery?in=hamdiofficialmusic/sets/hamdi-discovery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShvX6vWhrcWBpsHI-r0KjfQ-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s03e05)
 
-**Artist**: Jadū Dala 
+**Artist**: VISION 
 
-**Track**: Hamdi - Discovery (JADŪ193)
+**Track**: VISION Radio S03E05 // Co-hosted by Hamdi
 
-Last updated at 04/01/2023 19:45
+Last updated at 04/01/2023 19:46
