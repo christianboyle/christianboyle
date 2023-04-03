@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShvX6vWhrcWBpsHI-r0KjfQ-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s03e05)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xNcuR1LUQ4Vg6Ocj-fjcB4w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-104-on-beat-106?in=beat106scotland/sets/bonkers-beats-104-on-beat-106-scotland-with-marc-smith-dj-scoot-310323)
 
-**Artist**: VISION 
+**Artist**: Beat 106 Scotland 
 
-**Track**: VISION Radio S03E05 // Co-hosted by Hamdi
+**Track**: Bonkers Beats #104 on Beat 106 Scotland with DJ Scoot 310323 (Hour 2)
 
-Last updated at 04/01/2023 19:46
+Last updated at 04/03/2023 11:16
