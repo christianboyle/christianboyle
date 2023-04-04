@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tY9smtSqv06ycGZs-P1uKRg-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-lifestream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thAxxeEsI25xXuxg-8Q1TIw-t500x500.png">](https://soundcloud.com/dsffctd/missy-elliott-get-ur-freak-on-disaffected-bootleg)
 
-**Artist**: M-Project 
+**Artist**: Disaffected 
 
-**Track**: M-Project - Lifestream
+**Track**: Missy Elliott - Get Ur Freak On (Disaffected Bootleg)
 
-Last updated at 04/04/2023 18:10
+Last updated at 04/04/2023 18:14
