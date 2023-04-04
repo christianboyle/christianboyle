@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-erdlLokNVyvNQWN2-aNzHzQ-t500x500.jpg">](https://soundcloud.com/buunshin/gooutsideremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFPVwL7ETZWIhuaW-ZcwaKA-t500x500.jpg">](https://soundcloud.com/tynanofficial/ratata-tynan-flip)
 
-**Artist**: Buunshin 
+**Artist**: TYNAN 
 
-**Track**: IMANU -  Music To Stay In Your House To (Buunshin's Go Outside Remix)
+**Track**: Skrillex, Missy Elliot, Mr. Ozio - Ratata (TYNAN Flip)
 
-Last updated at 04/04/2023 18:01
+Last updated at 04/04/2023 18:05
