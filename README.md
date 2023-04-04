@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3klfG7YZ5eqCasbf-RRYlbA-t500x500.jpg">](https://soundcloud.com/iamthys/vision-melkweg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nstoRtJEvSD7ctrz-EgS5ow-t500x500.jpg">](https://soundcloud.com/dksincerely/yung-kayo-run-that)
 
-**Artist**: Thys 
+**Artist**: soza 
 
-**Track**: Thys - Recorded live at VISION // Melkweg (31.03.2023)
+**Track**: yung kayo - run that
 
-Last updated at 04/04/2023 16:38
+Last updated at 04/04/2023 17:11
