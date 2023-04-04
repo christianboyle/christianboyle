@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwDMnJErrMdzzjOy-H1x8IA-t500x500.jpg">](https://soundcloud.com/sablevalley/minimix-010?in=rohaanofficial/sets/sable-valley)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iaz4z8w3xHalZFoz-xzpICw-t500x500.jpg">](https://soundcloud.com/formerhero/self-hard-edit-v2)
 
-**Artist**: SABLE VALLEY 
+**Artist**: former hero 
 
-**Track**: MiniMix 010: Rohaan
+**Track**: Self (hard edit v2)
 
-Last updated at 04/04/2023 16:04
+Last updated at 04/04/2023 16:19
