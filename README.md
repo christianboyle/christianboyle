@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3klfG7YZ5eqCasbf-RRYlbA-t500x500.jpg">](https://soundcloud.com/iamthys/vision-melkweg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tvNY7Md2nlRcUJ4r-JVnzOA-t500x500.jpg">](https://soundcloud.com/no-sauce888/new-money-w-jackmane)
 
-**Artist**: Thys 
+**Artist**: NO SAUCE 
 
-**Track**: Thys - Recorded live at VISION // Melkweg (31.03.2023)
+**Track**: NEW MONEY w/ JACKMANE
 
-Last updated at 04/04/2023 08:17
+Last updated at 04/04/2023 13:07
