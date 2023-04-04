@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thAxxeEsI25xXuxg-8Q1TIw-t500x500.png">](https://soundcloud.com/dsffctd/missy-elliott-get-ur-freak-on-disaffected-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P0wG7AJOmoQ3A3sr-kXODXg-t500x500.jpg">](https://soundcloud.com/sablevalley/void-theory)
 
-**Artist**: Disaffected 
+**Artist**: SABLE VALLEY 
 
-**Track**: Missy Elliott - Get Ur Freak On (Disaffected Bootleg)
+**Track**: X&G - Void Theory
 
-Last updated at 04/04/2023 18:14
+Last updated at 04/04/2023 18:18
