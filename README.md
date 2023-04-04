@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgubCmIAPFiO-0-t500x500.jpg">](https://soundcloud.com/anotherrhythmrecords/future-flex-rave-generator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tY9smtSqv06ycGZs-P1uKRg-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-lifestream)
 
-**Artist**: Another Rhythm 
+**Artist**: M-Project 
 
-**Track**: Future Flex - Rave Generator
+**Track**: M-Project - Lifestream
 
-Last updated at 04/04/2023 18:07
+Last updated at 04/04/2023 18:10
