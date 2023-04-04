@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3klfG7YZ5eqCasbf-RRYlbA-t500x500.jpg">](https://soundcloud.com/iamthys/vision-melkweg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiwTqGiCEvKLENww-KqyVyg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-darren-styles-down-with-the-e-tatsunoshin-remix-electric-fox)
 
-**Artist**: Thys 
+**Artist**: Dirty Workz 
 
-**Track**: Thys - Recorded live at VISION // Melkweg (31.03.2023)
+**Track**: Tweekacore & Darren Styles - Down With The E (Tatsunoshin Remix) (Electric Fox)
 
-Last updated at 04/03/2023 14:27
+Last updated at 04/04/2023 08:04
