@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bx6lz9aYOuHcl3qD-Kwzgaw-t500x500.jpg">](https://soundcloud.com/kastra-bootlegs/rightaboveitremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cv7NQLzNk9JkgDsW-VWnKcQ-t500x500.jpg">](https://soundcloud.com/badgermusicartist/badger-stormy-sand-da-rudest)
 
-**Artist**: Kastra [Bootlegs] 
+**Artist**: Badger 
 
-**Track**: Lil Wayne & Drake - Right Above It (Kastra Remix)
+**Track**: Badger - Stormy Sand (Da Rudest)
 
-Last updated at 04/04/2023 17:52
+Last updated at 04/04/2023 17:55
