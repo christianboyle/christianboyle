@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mzuiqyVxiZxRe40-GSp8oQ-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-penultimately-presents-fullmix)
 
-**Artist**: Dirty Workz 
+**Artist**: S3RL 
 
-**Track**: Hartshorn - Lose Control (Electric Fox)
+**Track**: S3RL Penultimately Presents...
 
-Last updated at 04/04/2023 19:50
+Last updated at 04/04/2023 19:54
