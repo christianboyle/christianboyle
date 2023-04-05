@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPtaU8c7BGrnBGRy-x2A94A-t500x500.jpg">](https://soundcloud.com/scantraxx/envine-ft-diandra-faye-afterlife)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YytLztwkbUHIxMpt-QpQucA-t500x500.jpg">](https://soundcloud.com/bornemusicc/kaskade-disarm-you-borne-remix-2)
 
-**Artist**: Scantraxx 
+**Artist**: borne 
 
-**Track**: Envine ft. Diandra Faye - Afterlife
+**Track**: Kaskade - Disarm You (borne Remix)
 
-Last updated at 04/05/2023 08:06
+Last updated at 04/05/2023 08:07
