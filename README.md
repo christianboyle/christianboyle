@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OfzH3rmmSSBS-0-t500x500.jpg">](https://soundcloud.com/oneseventy/mingtist-blacksamurai-t-talk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wl4vixzSNrsm8anZ-WBWiIQ-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/ufo-freefall-m-project-remodel)
 
-**Artist**: OneSeventy 
+**Artist**: M-Project 
 
-**Track**: MinGtist & BlackSamurai.T - Talk To Me
+**Track**: UFO - Freefall (M-Project Remodel)
 
-Last updated at 04/04/2023 21:49
+Last updated at 04/04/2023 21:50
