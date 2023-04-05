@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7pwb48LcCw4ZEnU-PmhVdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hartshorn-lose-control-electric-fox)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Dirty Workz 
 
-**Track**: HPHF MS85 : DAN LARKIN
+**Track**: Hartshorn - Lose Control (Electric Fox)
 
-Last updated at 04/04/2023 19:29
+Last updated at 04/04/2023 19:50
