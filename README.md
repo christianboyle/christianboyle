@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDoHzrkE7rjfSS7k-s6IlWA-t500x500.jpg">](https://soundcloud.com/erickdie/countdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEz2jeBQzJZkXOO9-AgSz6w-t500x500.jpg">](https://soundcloud.com/destinuna/low-mileage-all-at-once)
 
-**Artist**: erickD 
+**Artist**: Destinuna 
 
-**Track**: COUNTDOWN w/ Re_V
+**Track**: Low Mileage - All At Once
 
-Last updated at 04/06/2023 13:54
+Last updated at 04/06/2023 13:57
