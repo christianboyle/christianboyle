@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/E1ZCQqQhRTU/maxresdefault.jpg">](https://www.youtube.com/watch?v=E1ZCQqQhRTU)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYygfFSvYne932vc-Lj550w-t500x500.jpg">](https://soundcloud.com/coastrmusic/coastr-we-own-last-night-mashup)
 
-**Artist**: 
-  
-    ILLENIUM
-  
-  
-  
-    ILLENIUM
-  
+**Artist**: COASTR. 
 
+**Track**: COASTR. - We Own Last Night MASHUP (Morgan Wallen X Young Bombs) // Morgan Wallen Last Night Remix
 
-
-
-
- 
-
-**Track**: ILLENIUM LIVE @ ULTRA MUSIC FESTIVAL MIAMI 2022
-
-Last updated at 04/06/2023 08:47
+Last updated at 04/06/2023 13:52
