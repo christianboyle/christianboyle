@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYygfFSvYne932vc-Lj550w-t500x500.jpg">](https://soundcloud.com/coastrmusic/coastr-we-own-last-night-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weGmE02b6b4Yn2Vu-DFoblA-t500x500.jpg">](https://soundcloud.com/teewave-records/cdrc-on-my-own)
 
-**Artist**: COASTR. 
+**Artist**: Teewave Records 
 
-**Track**: COASTR. - We Own Last Night MASHUP (Morgan Wallen X Young Bombs) // Morgan Wallen Last Night Remix
+**Track**: CDRC - On My Own
 
-Last updated at 04/06/2023 13:52
+Last updated at 04/06/2023 13:53
