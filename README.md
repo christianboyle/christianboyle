@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEz2jeBQzJZkXOO9-AgSz6w-t500x500.jpg">](https://soundcloud.com/destinuna/low-mileage-all-at-once)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d0ZJcZzTcq6YU7PK-lu0ZaQ-t500x500.jpg">](https://soundcloud.com/user0092703/training-electronic)
 
-**Artist**: Destinuna 
+**Artist**: user 0092703 
 
-**Track**: Low Mileage - All At Once
+**Track**: Training Electronic Configurations
 
-Last updated at 04/06/2023 13:57
+Last updated at 04/07/2023 07:59
