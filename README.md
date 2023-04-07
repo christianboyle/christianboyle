@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nauMu7JR9mKjxTlq-q1tMEA-t500x500.jpg">](https://soundcloud.com/duckashanofficial/live-academy-la-w-bassjackers-3423)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p5c5xdwFUBFbdkX4-iLGP5Q-t500x500.jpg">](https://soundcloud.com/thelotradio/nick-leon-the-lot-radio-08-14-2022)
 
-**Artist**: Ducka Shan 
+**Artist**: The Lot Radio 
 
-**Track**: Ducka Shan - LIVE @ Academy LA w/ Bassjackers [3/4/23]
+**Track**: Nick León @ The Lot Radio 08 - 14 - 2022
 
-Last updated at 04/07/2023 08:16
+Last updated at 04/07/2023 10:02
