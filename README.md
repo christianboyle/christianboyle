@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dODeVlmrZzy3K27y-osA1Eg-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/smitech-wesson-happiness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OR4cPPdqoxjNz5Th-WynlZQ-t500x500.jpg">](https://soundcloud.com/sablevalley/all-massive?in=longjawns/sets/jawns-menace)
 
-**Artist**: Dancing Dead 
+**Artist**: SABLE VALLEY 
 
-**Track**: Smitech Wesson - Happiness
+**Track**: JAWNS - All Massive
 
-Last updated at 04/07/2023 08:03
+Last updated at 04/07/2023 08:08
