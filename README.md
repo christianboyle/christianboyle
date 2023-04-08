@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbP1jF5rsrqGDxjJ-wRBHpg-t500x500.jpg">](https://soundcloud.com/vibemode/0000a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mmuCqwwOxZ3ezb7j-dhPlHA-t500x500.jpg">](https://soundcloud.com/circusrecords/crizzly-x-big-chocolate-poppin-shit?in=circusrecords/sets/various-artists-beats-pieces)
 
-**Artist**: o0o 
+**Artist**: Circus Records Official 
 
-**Track**: 0000
+**Track**: Crizzly x Big Chocolate - Poppin Shit
 
-Last updated at 04/08/2023 16:50
+Last updated at 04/08/2023 17:53
