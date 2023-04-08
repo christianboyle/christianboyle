@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mmuCqwwOxZ3ezb7j-dhPlHA-t500x500.jpg">](https://soundcloud.com/circusrecords/crizzly-x-big-chocolate-poppin-shit?in=circusrecords/sets/various-artists-beats-pieces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mmuCqwwOxZ3ezb7j-dhPlHA-t500x500.jpg">](https://soundcloud.com/drezzaofficial/something-like-us?in=circusrecords/sets/various-artists-beats-pieces)
 
-**Artist**: Circus Records Official 
+**Artist**: Drezza 
 
-**Track**: Crizzly x Big Chocolate - Poppin Shit
+**Track**: Something Like Us
 
-Last updated at 04/08/2023 17:53
+Last updated at 04/08/2023 17:54
