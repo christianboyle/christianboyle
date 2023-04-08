@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GD52S44GzCG6mykk-sxGL1g-t500x500.jpg">](https://soundcloud.com/davidshawty/frenzy-timing-prod-dj-smokey-shaq-france)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJxFR3reUMWbTY24-ifyWFw-t500x500.jpg">](https://soundcloud.com/shaedistrict/another-day)
 
-**Artist**: david shawty 
+**Artist**: Shae District 
 
-**Track**: Frenzy Timing (prod. DJ SMOKEY & SHAQ FRANCE)
+**Track**: Another Day
 
-Last updated at 04/08/2023 16:40
+Last updated at 04/08/2023 16:41
