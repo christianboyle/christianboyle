@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mmuCqwwOxZ3ezb7j-dhPlHA-t500x500.jpg">](https://soundcloud.com/pointblankdubstep/tornado?in=circusrecords/sets/various-artists-beats-pieces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyccybdnMdP4pUtw-nYFH0A-t500x500.jpg">](https://soundcloud.com/hyribeats/blame-game?in=circusrecords/sets/various-artists-beats-pieces)
 
-**Artist**: 𝙋𝙊𝙄𝙉𝙏.𝘽𝙇𝘼𝙉𝙆 
+**Artist**: Hyri 
 
-**Track**: Tornado
+**Track**: Blame Game
 
-Last updated at 04/08/2023 17:58
+Last updated at 04/08/2023 18:01
