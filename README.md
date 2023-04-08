@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhG3kysPzI5Oo3nL-frXJCw-t500x500.jpg">](https://soundcloud.com/scantraxx/devin-wild-mind-of-a-psycho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PEOQKa7AQYD5VTSZ-NRmO6A-t500x500.jpg">](https://soundcloud.com/bkbeats/bes0)
 
-**Artist**: Scantraxx 
+**Artist**: bk beats 
 
-**Track**: Devin Wild - Mind Of A Psycho
+**Track**: R0SALÍA y R@uw Alejandro - BESO (bk beats remix)
 
-Last updated at 04/07/2023 17:40
+Last updated at 04/08/2023 09:13
