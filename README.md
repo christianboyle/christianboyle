@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-E3MxrXUJPk2XcXIy-yyJTVg-t500x500.jpg">](https://soundcloud.com/realartixmusic/twisted-worth-nothing-artix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3ufdNpLHKe0GNqlx-dDvU6Q-t500x500.jpg">](https://soundcloud.com/groove-control/groove-control-xtc-solardo-bounce-remake)
 
-**Artist**: Artix 
+**Artist**: Groove Control 
 
-**Track**: Twisted - Worth Nothing (Artix Flip) 16bit master.mp3
+**Track**: Groove Control - XTC (Solardo Bounce Remake) FREE DOWNLOAD
 
-Last updated at 04/08/2023 18:21
+Last updated at 04/08/2023 18:23
