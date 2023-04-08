@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PEOQKa7AQYD5VTSZ-NRmO6A-t500x500.jpg">](https://soundcloud.com/bkbeats/bes0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GD52S44GzCG6mykk-sxGL1g-t500x500.jpg">](https://soundcloud.com/davidshawty/frenzy-timing-prod-dj-smokey-shaq-france)
 
-**Artist**: bk beats 
+**Artist**: david shawty 
 
-**Track**: R0SALÍA y R@uw Alejandro - BESO (bk beats remix)
+**Track**: Frenzy Timing (prod. DJ SMOKEY & SHAQ FRANCE)
 
-Last updated at 04/08/2023 09:13
+Last updated at 04/08/2023 16:40
