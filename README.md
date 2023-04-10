@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g2cMIcneuHbbEnIS-2B3Ihw-t500x500.jpg">](https://soundcloud.com/l_a_z_l_o_w/breakin-out-vol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPY62miYeVzutsNM-GeziIA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-105-on-beat-1?in=beat106scotland/sets/bonkers-beats-105-on-beat-106-scotland-with-alvarez-spyro-070423)
 
-**Artist**: LAZLOW 
+**Artist**: Beat 106 Scotland 
 
-**Track**: BREAKIN OUT VOL.2
+**Track**: Bonkers Beats #105 on Beat 106 Scotland with Alvarez 070423 (Hour 1)
 
-Last updated at 04/10/2023 07:55
+Last updated at 04/10/2023 07:56
