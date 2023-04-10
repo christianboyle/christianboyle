@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPY62miYeVzutsNM-GeziIA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-105-on-beat-106?in=beat106scotland/sets/bonkers-beats-105-on-beat-106-scotland-with-alvarez-spyro-070423)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAiRIAW9LL6v2ipE-FFyp3A-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-x-uberjakd-x-trey-pearce-relapse)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Ben Nicky 
 
-**Track**: Bonkers Beats #105 on Beat 106 Scotland with Spyro 070423 (Hour 2)
+**Track**: Ben Nicky X Uberjak'd X Trey Pearce - Relapse
 
-Last updated at 04/10/2023 10:04
+Last updated at 04/10/2023 10:06
