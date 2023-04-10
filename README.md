@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yolyYycAuysVRkoZ-yK535w-t500x500.jpg">](https://soundcloud.com/lookasmusic/john-summit-hayla-where-you-are-lookas-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2pXgPBR4HxoZp9f-jq1C0g-t500x500.jpg">](https://soundcloud.com/tomheist/dj-void-system-6-2023-promo-mix?in=tomheist/sets/mixes)
 
-**Artist**: Lookas 
+**Artist**: Tom Heist Happy Hardcore Ding Dong Wotsit 
 
-**Track**: John Summit, Hayla - Where You Are (Lookas Remix)
+**Track**: :: DJ VOID :: System 6 2023 Promo Mix ::
 
-Last updated at 04/10/2023 07:52
+Last updated at 04/10/2023 07:54
