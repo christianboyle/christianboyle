@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3ufdNpLHKe0GNqlx-dDvU6Q-t500x500.jpg">](https://soundcloud.com/groove-control/groove-control-xtc-solardo-bounce-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ihz2EnnIhqKxT3JW-rx7VzA-t500x500.jpg">](https://soundcloud.com/contagious-records/riko-rewcore-fire)
 
-**Artist**: Groove Control 
+**Artist**: CONTAGIOUS RECORDS 
 
-**Track**: Groove Control - XTC (Solardo Bounce Remake) FREE DOWNLOAD
+**Track**: [CR238] Riko & Rewcore -  Fire (OUT NOW)
 
-Last updated at 04/08/2023 18:23
+Last updated at 04/10/2023 07:49
