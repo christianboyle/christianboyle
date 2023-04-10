@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ihz2EnnIhqKxT3JW-rx7VzA-t500x500.jpg">](https://soundcloud.com/contagious-records/riko-rewcore-fire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4ASXgo65O0Ghgz2-zLzqIw-t500x500.jpg">](https://soundcloud.com/suzuki_swift/29032023kankwiahangoutwkj)
 
-**Artist**: CONTAGIOUS RECORDS 
+**Artist**: kan 
 
-**Track**: [CR238] Riko & Rewcore -  Fire (OUT NOW)
+**Track**: 29032023kan@kwia:hangoutw:k+j
 
-Last updated at 04/10/2023 07:49
+Last updated at 04/10/2023 07:50
