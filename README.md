@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8uHUUTYgsi8-0-t500x500.jpg">](https://soundcloud.com/wandw/w-w-x-axmo-feat-haley-maze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPY62miYeVzutsNM-GeziIA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-105-on-beat-106?in=beat106scotland/sets/bonkers-beats-105-on-beat-106-scotland-with-alvarez-spyro-070423)
 
-**Artist**: W&W 
+**Artist**: Beat 106 Scotland 
 
-**Track**: W&W x AXMO feat. Haley Maze - Rave Superstar
+**Track**: Bonkers Beats #105 on Beat 106 Scotland with Spyro 070423 (Hour 2)
 
-Last updated at 04/10/2023 21:18
+Last updated at 04/10/2023 21:19
