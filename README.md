@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXQoEKDRpQeeIq0b-mK8Fcw-t500x500.jpg">](https://soundcloud.com/codywongg/fred-again-jungle-cody-wong-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92WuocMPdsKtbymz-N1RrVg-t500x500.jpg">](https://soundcloud.com/soda_7/neocolora)
 
-**Artist**: CODY WONG 
+**Artist**: SoDa7 
 
-**Track**: FRED AGAIN - JUNGLE (CODY WONG RAVE EDIT)
+**Track**: Neocolora (with Virgill) (.mod)
 
-Last updated at 04/11/2023 08:05
+Last updated at 04/11/2023 08:07
