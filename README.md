@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPY62miYeVzutsNM-GeziIA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-105-on-beat-106?in=beat106scotland/sets/bonkers-beats-105-on-beat-106-scotland-with-alvarez-spyro-070423)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eblAnVYufz77JkE1-OmiDcQ-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-i-just-shoved-a-nuke-up-my-pussy)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Bonkers Beats #105 on Beat 106 Scotland with Spyro 070423 (Hour 2)
+**Track**: DJ SMOKEY - I JUST SHOVED A NUKE UP MY PUSSY
 
-Last updated at 04/10/2023 21:19
+Last updated at 04/10/2023 21:20
