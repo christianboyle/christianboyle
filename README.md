@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xSfUnmRkorPXggui-gWIZ4A-t500x500.jpg">](https://soundcloud.com/beatburguer/premiere-fernando-lagreca-night-catcher-nein-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXQoEKDRpQeeIq0b-mK8Fcw-t500x500.jpg">](https://soundcloud.com/codywongg/fred-again-jungle-cody-wong-rave-edit)
 
-**Artist**: Beatburguer 
+**Artist**: CODY WONG 
 
-**Track**: PREMIERE: Fernando Lagreca "Night Catcher" (Nein Records)
+**Track**: FRED AGAIN - JUNGLE (CODY WONG RAVE EDIT)
 
-Last updated at 04/11/2023 08:04
+Last updated at 04/11/2023 08:05
