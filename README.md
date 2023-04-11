@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRFT4RPrKITCR2mt-v8JGNA-t500x500.jpg">](https://soundcloud.com/cyberpunkers/motor-rotor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyq4ztmpnyGEFqxx-cjrZuA-t500x500.jpg">](https://soundcloud.com/beatburguer/premiere-decoder-xx-12-a1-molecular-recordings)
 
-**Artist**: CYBERPUNKERS 
+**Artist**: Beatburguer 
 
-**Track**: Motor Rotor
+**Track**: PREMIERE: Decoder "XX 12 A1" (Molecular Recordings)
 
-Last updated at 04/11/2023 08:02
+Last updated at 04/11/2023 08:03
