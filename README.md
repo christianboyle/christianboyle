@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hVvxuPKXjX0hYMB-4rKCoA-t500x500.jpg">](https://soundcloud.com/rohaanofficial/rohaan-recorded-live-at-vision-melkweg-31032023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRFT4RPrKITCR2mt-v8JGNA-t500x500.jpg">](https://soundcloud.com/cyberpunkers/motor-rotor)
 
-**Artist**: Rohaan 
+**Artist**: CYBERPUNKERS 
 
-**Track**: Rohaan - Recorded live at VISION // Melkweg (31.03.2023)
+**Track**: Motor Rotor
 
-Last updated at 04/10/2023 21:23
+Last updated at 04/11/2023 08:02
