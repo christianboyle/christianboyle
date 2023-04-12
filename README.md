@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nI43zERolytzXVdL-cq2y2Q-t500x500.jpg">](https://soundcloud.com/starpalace1/starpalace-skydive-twilight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bt7qVfNqJR6MyzRW-NPvEAw-t500x500.jpg">](https://soundcloud.com/zodivk/neverwantedyoutostay)
 
-**Artist**: starpalace 
+**Artist**: zodivk 
 
-**Track**: skydive (twilight)
+**Track**: neverwantedyoutostay (+)
 
-Last updated at 04/12/2023 12:07
+Last updated at 04/12/2023 12:08
