@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5ZO6BbCEFSyyv1J-1PMoWw-t500x500.jpg">](https://soundcloud.com/doubledrop23/rave-anywhere-monthly-madness-comp-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PLomKKZCLcmfo0kB-hywEDw-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s03e15)
 
-**Artist**: double-drop 
+**Artist**: VISION 
 
-**Track**: Rave Anywhere Monthly Madness Comp Mix
+**Track**: VISION Radio S03E15 // Hosted by Dave Columbo Jenkins & Martijn
 
-Last updated at 04/12/2023 14:23
+Last updated at 04/12/2023 14:25
