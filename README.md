@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ejSxIvNF8mNUXRpD-MaGXbg-t500x500.jpg">](https://soundcloud.com/acounta/around-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-YtgHz4YILAbWDvUz-HLZqPQ-t500x500.jpg">](https://soundcloud.com/rachelvegadj/next-generation-brisk-ham-3k-mix)
 
-**Artist**: acounta 
+**Artist**: Rachel Vega 
 
-**Track**: Around the World
+**Track**: Next Generation - Brisk & Ham - 3K Mix
 
-Last updated at 04/12/2023 16:55
+Last updated at 04/12/2023 16:56
