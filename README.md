@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rK0AR4IMApvORSGx-1UYzZQ-t500x500.jpg">](https://soundcloud.com/dawnrecords/comechelet-cuprotiv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r12tXVkjdFQfeJxg-FPIDkw-t500x500.jpg">](https://soundcloud.com/ngk999/bass-world-1993-full-tape)
 
-**Artist**: DAWN 
+**Artist**: NGK999 
 
-**Track**: Comechelet - Cупротив
+**Track**: BASS WORLD 1993 [FULL TAPE]
 
-Last updated at 04/13/2023 14:58
+Last updated at 04/13/2023 14:59
