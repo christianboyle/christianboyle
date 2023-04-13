@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEsFxBbOMCJw5klZ-36HKCg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/verb-catching-feelings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQaJQARgeaF9kA1O-z1bmBA-t500x500.jpg">](https://soundcloud.com/craighughesdj/alan-fitzpatrick-truant-hard-edit)
 
-**Artist**: NCS 
+**Artist**: CRAAIG 
 
-**Track**: VERB - Catching Feelings [Arcade Release]
+**Track**: truant [CRAAIG hard edit]
 
-Last updated at 04/13/2023 17:19
+Last updated at 04/13/2023 17:20
