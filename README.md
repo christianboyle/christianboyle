@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hn4KmgULoE4osDIy-xHTt5Q-t500x500.jpg">](https://soundcloud.com/txrecords/trypdo-craving-pleasure-freedl048-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEsFxBbOMCJw5klZ-36HKCg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/verb-catching-feelings)
 
-**Artist**: Tx Records 
+**Artist**: NCS 
 
-**Track**: Trypdø - Craving Pleasure [FREEDL048]
+**Track**: VERB - Catching Feelings [Arcade Release]
 
-Last updated at 04/13/2023 17:18
+Last updated at 04/13/2023 17:19
