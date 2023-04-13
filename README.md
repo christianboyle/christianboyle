@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UYxYMsIKOfFsiIfM-glsTUA-t500x500.jpg">](https://soundcloud.com/yokulol/yoki-yoki-literature-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDoHzrkE7rjfSS7k-s6IlWA-t500x500.jpg">](https://soundcloud.com/erickdie/countdown)
 
-**Artist**: yoku 
+**Artist**: erickD 
 
-**Track**: gimme my space w/ corefish
+**Track**: COUNTDOWN w/ Re_V
 
-Last updated at 04/13/2023 16:53
+Last updated at 04/13/2023 16:54
