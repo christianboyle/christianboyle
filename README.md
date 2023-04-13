@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hdyi8K2pEJvyzCBi-DAz2Yw-t500x500.jpg">](https://soundcloud.com/wonderlustsc/kxllswxtch-waste-stzytiktok-remix-thomascameup-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3RqiWT0NtS1dxKC-trUWzA-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/dabow-loj-flashback)
 
-**Artist**: Wonderlust 
+**Artist**: Wormhole Music Group 
 
-**Track**: Kxllswxtch - WASTE (stzy/tiktok remix) [thomascameup edit]
+**Track**: Dabow & L*o*J - Flashback
 
-Last updated at 04/13/2023 14:54
+Last updated at 04/13/2023 14:55
