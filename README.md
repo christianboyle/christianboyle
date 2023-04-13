@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Y0bT77mPwitHWt2-97c4cg-t500x500.jpg">](https://soundcloud.com/bttechno20/nadia-ali-starkillers-alex-kenji-pressure-black-traffic-remix-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ovXVM1ZD51H6GBby-hRWFQQ-t500x500.jpg">](https://soundcloud.com/bttechno20/robotberget-miike-snow-silvia-black-traffics-techno-edit)
 
 **Artist**: Black Traffic 
 
-**Track**: Pressure (Black Traffic Remix 2022)
+**Track**: Robotberget & Miike Snow - SILVIA (Black Traffic's Techno Edit)
 
-Last updated at 04/13/2023 15:00
+Last updated at 04/13/2023 15:01
