@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5pm1hjBf4e0uCfQa-14FGcQ-t500x500.jpg">](https://soundcloud.com/bvrnout/kendrick-lamar-bitch-dont-kill-my-vibe-bvrnout-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yehxeHmYSV6Tgiy-CEOhuw-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-576-dany-bpm)
 
-**Artist**: BVRNOUT 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Kendrick Lamar - Bitch, Don't Kill My Vibe (BVRNOUT Club Edit)
+**Track**: KTRA Episode 576: Dany BPM
 
-Last updated at 04/13/2023 15:32
+Last updated at 04/13/2023 16:14
