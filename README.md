@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6b1qWVCDypH1UIgR-8tOzIw-t500x500.jpg">](https://soundcloud.com/craighughesdj/summer-dreams-of-love-harder-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyQySY6LCif5xMyB-SNUmNQ-t500x500.jpg">](https://soundcloud.com/q-dancemusic/demi-kanon-ft-ava-silver-million-miles)
 
-**Artist**: CRAAIG 
+**Artist**: Q-dance Music 
 
-**Track**: summer dreams of love [harder edit]
+**Track**: Demi Kanon ft. Ava Silver - Million Miles | Q-dance presents SPEQTRUM
 
-Last updated at 04/13/2023 17:36
+Last updated at 04/13/2023 17:48
