@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPHQNYHPQslBk9Nh-SKKkaA-t500x500.jpg">](https://soundcloud.com/uberjakd/9pm-uberjakd-remix-atb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hn4KmgULoE4osDIy-xHTt5Q-t500x500.jpg">](https://soundcloud.com/txrecords/trypdo-craving-pleasure-freedl048-1)
 
-**Artist**: Uberjak'd 
+**Artist**: Tx Records 
 
-**Track**: 9PM [Uberjakd Remix] - ATB
+**Track**: Trypdø - Craving Pleasure [FREEDL048]
 
-Last updated at 04/13/2023 17:15
+Last updated at 04/13/2023 17:18
