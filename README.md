@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-YtgHz4YILAbWDvUz-HLZqPQ-t500x500.jpg">](https://soundcloud.com/rachelvegadj/next-generation-brisk-ham-3k-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQmZZtJTveMa3aqD-QxXuSw-t500x500.jpg">](https://soundcloud.com/dropunited/alesso-ft-tove-lo-heroes-b00st-remixdropunited-exclusive)
 
-**Artist**: Rachel Vega 
+**Artist**: DropUnited 
 
-**Track**: Next Generation - Brisk & Ham - 3K Mix
+**Track**: Alesso feat. Tove Lo - Heroes (B00ST Remix)[DropUnited Exclusive] DROP CUT
 
-Last updated at 04/12/2023 16:56
+Last updated at 04/13/2023 08:09
