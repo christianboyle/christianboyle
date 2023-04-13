@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ovXVM1ZD51H6GBby-hRWFQQ-t500x500.jpg">](https://soundcloud.com/bttechno20/robotberget-miike-snow-silvia-black-traffics-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UYxYMsIKOfFsiIfM-glsTUA-t500x500.jpg">](https://soundcloud.com/yokulol/yoki-yoki-literature-club)
 
-**Artist**: Black Traffic 
+**Artist**: yoku 
 
-**Track**: Robotberget & Miike Snow - SILVIA (Black Traffic's Techno Edit)
+**Track**: gimme my space w/ corefish
 
-Last updated at 04/13/2023 16:48
+Last updated at 04/13/2023 16:53
