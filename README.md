@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ovXVM1ZD51H6GBby-hRWFQQ-t500x500.jpg">](https://soundcloud.com/bttechno20/robotberget-miike-snow-silvia-black-traffics-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5pm1hjBf4e0uCfQa-14FGcQ-t500x500.jpg">](https://soundcloud.com/bvrnout/kendrick-lamar-bitch-dont-kill-my-vibe-bvrnout-club-edit)
 
-**Artist**: Black Traffic 
+**Artist**: BVRNOUT 
 
-**Track**: Robotberget & Miike Snow - SILVIA (Black Traffic's Techno Edit)
+**Track**: Kendrick Lamar - Bitch, Don't Kill My Vibe (BVRNOUT Club Edit)
 
-Last updated at 04/13/2023 15:01
+Last updated at 04/13/2023 15:32
