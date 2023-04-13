@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsJk9H8rjnQOzOdE-FCyypQ-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/calvin-harris-ellie-goulding-miracle-wesh-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hdyi8K2pEJvyzCBi-DAz2Yw-t500x500.jpg">](https://soundcloud.com/wonderlustsc/kxllswxtch-waste-stzytiktok-remix-thomascameup-edit)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Wonderlust 
 
-**Track**: Calvin Harris, Ellie Goulding - Miracle (WESH Remix) [FREE DOWNLOAD]
+**Track**: Kxllswxtch - WASTE (stzy/tiktok remix) [thomascameup edit]
 
-Last updated at 04/13/2023 14:53
+Last updated at 04/13/2023 14:54
