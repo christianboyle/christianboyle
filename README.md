@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgYvVpHTHSEhDY0t-KLwbrA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/wandered-to-la-francis-vi-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rK0AR4IMApvORSGx-1UYzZQ-t500x500.jpg">](https://soundcloud.com/dawnrecords/comechelet-cuprotiv)
 
-**Artist**: Francis VI 
+**Artist**: DAWN 
 
-**Track**: Wandered to LA (Francis VI Flip)
+**Track**: Comechelet - Cупротив
 
-Last updated at 04/13/2023 14:56
+Last updated at 04/13/2023 14:58
