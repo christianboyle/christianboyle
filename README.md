@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOO70f7uvbGAS4t-wRg4MQ-t500x500.jpg">](https://soundcloud.com/technikoredj/technikal-feat-teal-ultrasonik-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dJ73pozJYwHO-0-t500x500.jpg">](https://soundcloud.com/oneseventy/no-hero-need-u)
 
-**Artist**: Technikore / Technikal 
+**Artist**: OneSeventy 
 
-**Track**: Technikal feat. Teal - Ultrasonik (Radio Edit)
+**Track**: No Hero - Need U
 
-Last updated at 04/14/2023 09:15
+Last updated at 04/14/2023 09:16
