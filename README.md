@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dJ73pozJYwHO-0-t500x500.jpg">](https://soundcloud.com/oneseventy/no-hero-need-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-waBw2kpZGxYkZ6aN-aDIKOw-t500x500.jpg">](https://soundcloud.com/thisisluciid/rinse-repeat-luciid-edit)
 
-**Artist**: OneSeventy 
+**Artist**: Luciid 
 
-**Track**: No Hero - Need U
+**Track**: Rinse & Repeat (Luciid Edit) [FREE DL]
 
-Last updated at 04/14/2023 09:16
+Last updated at 04/14/2023 09:17
