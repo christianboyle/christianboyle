@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rR1AJbUa8etL8yhY-yXSxHQ-t500x500.jpg">](https://soundcloud.com/steven-brown-208/westbam-wizard-of-sonic-reunion-remix-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOO70f7uvbGAS4t-wRg4MQ-t500x500.jpg">](https://soundcloud.com/technikoredj/technikal-feat-teal-ultrasonik-radio-edit)
 
-**Artist**: Steven Brown 
+**Artist**: Technikore / Technikal 
 
-**Track**: Westbam - Wizard Of Sonic - Reunion Remix (Preview)
+**Track**: Technikal feat. Teal - Ultrasonik (Radio Edit)
 
-Last updated at 04/14/2023 09:14
+Last updated at 04/14/2023 09:15
