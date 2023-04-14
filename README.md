@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KdXcGySyDBUxsbN-YIravQ-t500x500.jpg">](https://soundcloud.com/d1vwv/boneandskin?in=danlrk/sets/bone-and-skin-w-d1v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VZDhxF7M2m43npVv-yYhwag-t500x500.jpg">](https://soundcloud.com/emoteria/little-devils-in-my-head)
 
-**Artist**: d1v 
+**Artist**: emoteria 
 
-**Track**: bone and skin + buffalobang (dan larkin)
+**Track**: Little Devils In My Head
 
-Last updated at 04/14/2023 12:22
+Last updated at 04/14/2023 12:23
