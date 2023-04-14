@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VZDhxF7M2m43npVv-yYhwag-t500x500.jpg">](https://soundcloud.com/emoteria/little-devils-in-my-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbqyHk2fD72r8mpo-n0BnOw-t500x500.jpg">](https://soundcloud.com/willymuncher2k2/100-gecs-boiler-room-in-la)
 
-**Artist**: emoteria 
+**Artist**: willymuncher2002 
 
-**Track**: Little Devils In My Head
+**Track**: 100 Gecs Boiler Room in LA
 
-Last updated at 04/14/2023 12:23
+Last updated at 04/14/2023 12:24
