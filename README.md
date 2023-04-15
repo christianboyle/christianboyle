@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PUE8FBunsNTLc92-Gu5pNQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youhurtme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8uHUUTYgsi8-0-t500x500.jpg">](https://soundcloud.com/wandw/w-w-x-axmo-feat-haley-maze)
 
-**Artist**: NIGHTMODE 
+**Artist**: W&W 
 
-**Track**: Synymata - You Hurt Me (feat. Delaney Kai)
+**Track**: W&W x AXMO feat. Haley Maze - Rave Superstar
 
-Last updated at 04/14/2023 22:13
+Last updated at 04/14/2023 22:14
