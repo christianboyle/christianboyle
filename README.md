@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMczNqQB4brYRrOS-r735OA-t500x500.jpg">](https://soundcloud.com/acyanmusic/laterun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePEQ1M2CXEzGmK39-o0O0Ng-t500x500.jpg">](https://soundcloud.com/bye-son/bye-son-ejean-purpose)
 
-**Artist**: Acyan 
+**Artist**: bye, son 
 
-**Track**: Acyan - LATERUN
+**Track**: bye, son & EJEAN - purpose
 
-Last updated at 04/14/2023 22:02
+Last updated at 04/14/2023 22:03
