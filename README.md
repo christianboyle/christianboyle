@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePEQ1M2CXEzGmK39-o0O0Ng-t500x500.jpg">](https://soundcloud.com/bye-son/bye-son-ejean-purpose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQAyhieRIZorMTaW-C8aukA-t500x500.jpg">](https://soundcloud.com/hexed-official/hexed-x-labs-diamonds)
 
-**Artist**: bye, son 
+**Artist**: HEXED 
 
-**Track**: bye, son & EJEAN - purpose
+**Track**: HEXED X LABS - DIAMONDS
 
-Last updated at 04/14/2023 22:03
+Last updated at 04/14/2023 22:04
