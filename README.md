@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0azTe8n31LZybQ8C-KPzU5w-t500x500.jpg">](https://soundcloud.com/spagheddy/sorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMczNqQB4brYRrOS-r735OA-t500x500.jpg">](https://soundcloud.com/acyanmusic/laterun)
 
-**Artist**: SPAG HEDDY 
+**Artist**: Acyan 
 
-**Track**: SORRY
+**Track**: Acyan - LATERUN
 
-Last updated at 04/14/2023 22:01
+Last updated at 04/14/2023 22:02
