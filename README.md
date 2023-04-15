@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbqyHk2fD72r8mpo-n0BnOw-t500x500.jpg">](https://soundcloud.com/willymuncher2k2/100-gecs-boiler-room-in-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyhyzwkwe9tK3FfQ-9mLHDg-t500x500.jpg">](https://soundcloud.com/xandg/cftwrmx)
 
-**Artist**: willymuncher2002 
+**Artist**: X&G 
 
-**Track**: 100 Gecs Boiler Room in LA
+**Track**: Imanu & Louis Futon - Can't Find The Words Feat. Cherry Lena (X&G Remix)
 
-Last updated at 04/14/2023 12:24
+Last updated at 04/14/2023 21:59
