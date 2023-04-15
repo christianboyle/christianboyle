@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnbOyN4JDcBhnAWe-dfX9dQ-t500x500.png">](https://soundcloud.com/rinsefm/club-glow-with-l-major-13-april-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWjytspHktX4WJVM-9EPK9Q-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youth)
 
-**Artist**: Rinse FM 
+**Artist**: NIGHTMODE 
 
-**Track**: Club Glow with L Major - 13 April 2023
+**Track**: Ghost In Real Life & Slippy - Youth
 
-Last updated at 04/14/2023 22:07
+Last updated at 04/14/2023 22:08
