@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hdyi8K2pEJvyzCBi-DAz2Yw-t500x500.jpg">](https://soundcloud.com/wonderlustsc/kxllswxtch-waste-stzytiktok-remix-thomascameup-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNzv7YVqJBzv45nR-eIvlkw-t500x500.jpg">](https://soundcloud.com/sm1lo/nighttime)
 
-**Artist**: Wonderlust 
+**Artist**: SM1LO 
 
-**Track**: Kxllswxtch - WASTE (stzy/tiktok remix) [thomascameup edit]
+**Track**: SM1LO & Pat C - Nighttime
 
-Last updated at 04/14/2023 22:05
+Last updated at 04/14/2023 22:06
