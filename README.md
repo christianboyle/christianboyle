@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rR1AJbUa8etL8yhY-yXSxHQ-t500x500.jpg">](https://soundcloud.com/steven-brown-208/westbam-wizard-of-sonic-reunion-remix-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PUE8FBunsNTLc92-Gu5pNQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youhurtme)
 
-**Artist**: Steven Brown 
+**Artist**: NIGHTMODE 
 
-**Track**: Westbam - Wizard Of Sonic - Reunion Remix (Preview)
+**Track**: Synymata - You Hurt Me (feat. Delaney Kai)
 
-Last updated at 04/14/2023 22:12
+Last updated at 04/14/2023 22:13
