@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJrqJyqVEd57NGUO-lPlo8A-t500x500.jpg">](https://soundcloud.com/jamiebrownnnnn/covered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ns3Nz29BjZfGWl9e-kZUc1g-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-mix-003-madjestic-kasual)
 
-**Artist**: Jamie Brown 
+**Artist**: Nina 
 
-**Track**: covered
+**Track**: Nina Mix - 003 - Madjestic Kasual
 
-Last updated at 04/18/2023 14:46
+Last updated at 04/18/2023 14:48
