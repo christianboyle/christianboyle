@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyxcuy0yHyTea2Uz-zJMFzA-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh351)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix)
 
-**Artist**: Justice Hardcore 
+**Artist**: Slang Dogs 
 
-**Track**: MinGtist & Jel7yz - Over U ⚠️OUT NOW⚠️
+**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
 
-Last updated at 04/18/2023 14:42
+Last updated at 04/18/2023 14:44
