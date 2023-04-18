@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hSiKMiWEbLO0LPP-TRUF6w-t500x500.jpg">](https://soundcloud.com/mybadmusic/my-bad-calling-out-feat-sam-mailloux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyxcuy0yHyTea2Uz-zJMFzA-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh351)
 
-**Artist**: MY BAD 🤬 
+**Artist**: Justice Hardcore 
 
-**Track**: MY BAD - Calling Out (feat. Sam Mailloux)
+**Track**: MinGtist & Jel7yz - Over U ⚠️OUT NOW⚠️
 
-Last updated at 04/15/2023 10:29
+Last updated at 04/18/2023 14:42
