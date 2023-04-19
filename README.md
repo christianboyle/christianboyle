@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-waBw2kpZGxYkZ6aN-aDIKOw-t500x500.jpg">](https://soundcloud.com/thisisluciid/rinse-repeat-luciid-edit)
 
-**Artist**: Slang Dogs 
+**Artist**: Luciid 
 
-**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
+**Track**: Rinse & Repeat (Luciid Edit) [FREE DL]
 
-Last updated at 04/19/2023 18:48
+Last updated at 04/19/2023 18:50
