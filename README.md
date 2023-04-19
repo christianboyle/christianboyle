@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-xj7vmLdJD4kHXU48-K3B9fQ-t500x500.jpg">](https://soundcloud.com/reklus-offcial/tnt-fuel-reklus-reverse-revamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDlnjTxWyKkzelXt-k3QGRA-t500x500.jpg">](https://soundcloud.com/djshimamura/dj-shimamura-the-20-years-dynasty-dncd-016-xfade-demo)
 
-**Artist**: Reklus official 
+**Artist**: DJShimamura 
 
-**Track**: TNT - Fuel (Reklus Reverse Revamp) "FREE DOWNLOAD"
+**Track**: DJ Shimamura - THE 20 YEARS DYNASTY (DNCD-016 / XFADE DEMO)
 
-Last updated at 04/19/2023 08:09
+Last updated at 04/19/2023 08:11
