@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJrqJyqVEd57NGUO-lPlo8A-t500x500.jpg">](https://soundcloud.com/jamiebrownnnnn/covered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix)
 
-**Artist**: Jamie Brown 
+**Artist**: Slang Dogs 
 
-**Track**: covered
+**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
 
-Last updated at 04/19/2023 18:46
+Last updated at 04/19/2023 18:48
