@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TWS8rVyBgjThWlI3-x6ta3w-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-21-subject-xero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLsUidmzCXVR6rLE-jpn8nw-t500x500.jpg">](https://soundcloud.com/jadudala/slowboy-rizo-noctris-sentinels-of-light-jadu211)
 
-**Artist**: Hardcore Energy 
+**Artist**: Jadū Dala 
 
-**Track**: Mix Series 21 - Subject Xero
+**Track**: Slowboy & Rizó & NØCTRIS - Sentinels Of Light (JADŪ211)
 
-Last updated at 04/19/2023 10:26
+Last updated at 04/19/2023 11:44
