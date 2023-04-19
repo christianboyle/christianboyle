@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7SRsLKcAAysDRyzJ-DHzlSg-t500x500.jpg">](https://soundcloud.com/dkmntl/dekmantel-podcast-427-ccl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-xj7vmLdJD4kHXU48-K3B9fQ-t500x500.jpg">](https://soundcloud.com/reklus-offcial/tnt-fuel-reklus-reverse-revamp)
 
-**Artist**: dekmantel 
+**Artist**: Reklus official 
 
-**Track**: Dekmantel Podcast 427 - CCL
+**Track**: TNT - Fuel (Reklus Reverse Revamp) "FREE DOWNLOAD"
 
-Last updated at 04/19/2023 11:46
+Last updated at 04/19/2023 18:19
