@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLsUidmzCXVR6rLE-jpn8nw-t500x500.jpg">](https://soundcloud.com/jadudala/slowboy-rizo-noctris-sentinels-of-light-jadu211)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_jungle_dnb_2)
 
-**Artist**: Jadū Dala 
+**Artist**: KULA 
 
-**Track**: Slowboy & Rizó & NØCTRIS - Sentinels Of Light (JADŪ211)
+**Track**: KULA_Jungle_DnB_2_
 
-Last updated at 04/19/2023 11:44
+Last updated at 04/19/2023 11:45
