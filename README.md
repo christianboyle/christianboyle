@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxCe2vIUYjv27ncz-eEt3Qg-t500x500.jpg">](https://soundcloud.com/officialwerdna/usher-yeah-dna-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ZTYiUdgLlzHGVgF-44Di1w-t500x500.jpg">](https://soundcloud.com/itsrestricted-second/creeds-push-up-restricted-overdrive-dimatik-edit)
 
-**Artist**: 𝘿𝙉𝘼 
+**Artist**: Restricted (Bootlegs & Mixes) 
 
-**Track**: USHER -YEAH!! (DNA REMIX)
+**Track**: Push Up (Restricted, Overdrive & Dimatik Edit)
 
-Last updated at 04/19/2023 08:13
+Last updated at 04/19/2023 08:14
