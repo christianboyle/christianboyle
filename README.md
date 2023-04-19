@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PXQMTQ3Zwe1expzz-NdAg6g-t500x500.jpg">](https://soundcloud.com/portrait-dnb/get-your-freak-on-portraitbooty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOTvBUbcJZc7qLL6-yRXlrw-t500x500.jpg">](https://soundcloud.com/oneseventy/quickdrop-oneseventy-warm-up-mix)
 
-**Artist**: Portrait 
+**Artist**: OneSeventy 
 
-**Track**: Get Ur Freak On (Portrait Bootleg) [Free Download]
+**Track**: Quickdrop - OneSeventy Warm Up Mix
 
-Last updated at 04/19/2023 08:19
+Last updated at 04/19/2023 08:20
