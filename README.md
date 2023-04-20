@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JwnpRKJEi1FvCOQ-Ocgo6Q-t500x500.jpg">](https://soundcloud.com/shallnotfade/snfdigi026-cosmonection-sea-lights-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qgcVLxzcdfy2jcXB-AXMUWA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cryex-out-there-acid-reign)
 
-**Artist**: Shall Not Fade 
+**Artist**: Dirty Workz 
 
-**Track**: SNFDIGI026 // Cosmonection - Sea Lights EP
+**Track**: Cryex - Out There (Acid Reign)
 
-Last updated at 04/20/2023 11:25
+Last updated at 04/20/2023 11:26
