@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jisnKnzNmIWlTktU-6yvq8w-t500x500.jpg">](https://soundcloud.com/werhduk/ed-et-electric-shockin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tekcyzoac2TZcRTZ-qPmcLw-t500x500.jpg">](https://soundcloud.com/sungyookr/house-all-night-long-vol-1-tech-house-mix)
 
-**Artist**: HDUK 
+**Artist**: SUNGYOO 
 
-**Track**: Ed E.T - Electric Shockin'
+**Track**: House All Night Long Vol. 1 [Tech House Mix]
 
-Last updated at 04/20/2023 08:08
+Last updated at 04/20/2023 08:11
