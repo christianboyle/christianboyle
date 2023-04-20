@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzDu8EqPwiCyQOzD-gawuvQ-t500x500.jpg">](https://soundcloud.com/scantraxx/kelvin-farheaven-we-got-the-fire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HoLgiytBzDNlxFTm-C7motw-t500x500.jpg">](https://soundcloud.com/nightsofficial/halo-1)
 
-**Artist**: Scantraxx 
+**Artist**: N i G H T S 
 
-**Track**: KELVIN FARHEAVEN - We Got The Fire
+**Track**: Halo
 
-Last updated at 04/20/2023 11:27
+Last updated at 04/20/2023 11:28
