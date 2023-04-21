@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWQtwjDALucIDIKU-ASs6Sg-t500x500.jpg">](https://soundcloud.com/basscon/kreation-lose-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTd2ak37Fl6hAglQ-Tu8lUQ-t500x500.jpg">](https://soundcloud.com/audiobambino/feel-the-friction?in=audiobambino/sets/joel-eb-feel-the-friction)
 
-**Artist**: BASSCON 
+**Artist**: audio bambino 
 
-**Track**: Kreation - Lose Control
+**Track**: Feel The Friction
 
-Last updated at 04/21/2023 09:42
+Last updated at 04/21/2023 09:44
