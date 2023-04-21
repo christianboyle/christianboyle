@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgd9SRGhYhkH-0-t500x500.jpg">](https://soundcloud.com/ftampa/b2-the-old-school?in=hysteriarecords/sets/ftampa-the-otherz-b2-old-school)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZC0L8ca9eOqm3vi9-x9Umlg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/molly-lin-bristol-to-taipei-ft-redders)
 
-**Artist**: FTampa 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: B2 The Old School
+**Track**: Molly Lin - Bristol To Taipei Ft. Redders [Gold Digger]
 
-Last updated at 04/21/2023 09:15
+Last updated at 04/21/2023 09:18
