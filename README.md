@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000338865918-zdh8ic-t500x500.jpg">](https://soundcloud.com/inteus666/life-by-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xA6WwkvdkUhpUujX-x5nkaQ-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/masked-wolf-guidelines)
 
-**Artist**: Inteus 
+**Artist**: Teamwrk Records 
 
-**Track**: Life by Myself
+**Track**: Masked Wolf - Guidelines
 
-Last updated at 04/21/2023 09:31
+Last updated at 04/21/2023 09:34
