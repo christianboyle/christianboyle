@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrSYrZwyy1pvz1Tn-JvR8EQ-t500x500.jpg">](https://soundcloud.com/da-bow/beatology-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwWSmGcyIaW0-0-t500x500.jpg">](https://soundcloud.com/itssodope/personal-feat-mayzin)
 
-**Artist**: Dabow 
+**Artist**: So Dope 
 
-**Track**: BEATOLOGY VOL. 1
+**Track**: Personal
 
-Last updated at 04/21/2023 09:03
+Last updated at 04/21/2023 09:11
