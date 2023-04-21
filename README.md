@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTd2ak37Fl6hAglQ-Tu8lUQ-t500x500.jpg">](https://soundcloud.com/audiobambino/feel-the-friction?in=audiobambino/sets/joel-eb-feel-the-friction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRTUlKwCFpNKyHY5-gOWrGQ-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/noise-parfumerie-mikotonori-1)
 
-**Artist**: audio bambino 
+**Artist**: In The Lab Recordings 
 
-**Track**: Feel The Friction
+**Track**: Noise Parfumerie - Mikotonori
 
-Last updated at 04/21/2023 09:44
+Last updated at 04/21/2023 09:45
