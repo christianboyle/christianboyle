@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8h8sjpctC3iFLT6T-ybFPIg-t500x500.jpg">](https://soundcloud.com/1800blkout/jendi-bel-mercy-blkout-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRTUlKwCFpNKyHY5-gOWrGQ-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/noise-parfumerie-mikotonori-1?in=noiseparfumerie/sets/noise-parfumerie-mikotonori-in)
 
-**Artist**: blkout. 
+**Artist**: In The Lab Recordings 
 
-**Track**: jengi - bel mercy [blkout. bootleg]
+**Track**: Noise Parfumerie - Mikotonori
 
-Last updated at 04/21/2023 09:24
+Last updated at 04/21/2023 09:25
