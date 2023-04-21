@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRTUlKwCFpNKyHY5-gOWrGQ-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/noise-parfumerie-mikotonori-1?in=noiseparfumerie/sets/noise-parfumerie-mikotonori-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6u1O7cMskk8D-0-t500x500.png">](https://soundcloud.com/thaiboy-digital/la-to-bcn)
 
-**Artist**: In The Lab Recordings 
+**Artist**: thaiboy digital 
 
-**Track**: Noise Parfumerie - Mikotonori
+**Track**: LA to BCN
 
-Last updated at 04/21/2023 09:25
+Last updated at 04/21/2023 09:26
