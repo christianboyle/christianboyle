@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEiJ2tjLyfEBYonL-0u8JdA-t500x500.jpg">](https://soundcloud.com/future-bassnet/blinkofaneye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4uqI4v3EeEtlyomM-bDfj9Q-t500x500.jpg">](https://soundcloud.com/komplichated/komplvint-x-komplichated-thirst-trap)
 
-**Artist**: Future Bass Records 
+**Artist**: Komplichated 
 
-**Track**: Night Sky, Jace Winter - Blink Of An Eye [Future Bass Release]
+**Track**: KOMPLVINT X KOMPLICHATED - THIRST TRAP
 
-Last updated at 04/21/2023 09:37
+Last updated at 04/21/2023 09:39
