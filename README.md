@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBJdpDMlfBMgL4Oy-kx5t4A-t500x500.jpg">](https://soundcloud.com/all172things/all172things-podcast-09-hosted-by-in-the-lab-recordings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lq3K9qVuEciIe6Vi-5yA9Tg-t500x500.jpg">](https://soundcloud.com/all172things/cuepric-vrum-singularity-premiere)
 
 **Artist**: All172Things 
 
-**Track**: All172Things Podcast 09 (Hosted by: In The Lab Recordings)
+**Track**: Cuepric & VRUM - Singularity [Premiere]
 
-Last updated at 04/21/2023 21:06
+Last updated at 04/21/2023 21:07
