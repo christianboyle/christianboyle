@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsQRLRsbKTd3f9Vy-m2H7DQ-t500x500.jpg">](https://soundcloud.com/badrops/fleetwood-mac-the-chain-badrops-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix?in=slangdogs/sets/uicideboy-carrollton-slang-1)
 
-**Artist**: Badrops 
+**Artist**: Slang Dogs 
 
-**Track**: Fleetwood Mac - The Chain (Badrops Remix)
+**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
 
-Last updated at 04/21/2023 19:55
+Last updated at 04/21/2023 19:56
