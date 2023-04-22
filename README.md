@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhChwCWR7KgPKBF5-GZFyZg-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/scurrow-excuse-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mrtUtLfkRA5lXsM3-WWCpOw-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/moytra-sign-just-forget-everything)
 
 **Artist**: In The Lab Recordings 
 
-**Track**: Scurrow - Excuse You (FREE DOWNLOAD)
+**Track**: Moytra & Sign - Just Forget Everything (FREE DOWNLOAD)
 
-Last updated at 04/21/2023 21:04
+Last updated at 04/21/2023 21:05
