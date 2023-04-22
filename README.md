@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix?in=slangdogs/sets/uicideboy-carrollton-slang-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDMgfQSndadH-0-t500x500.jpg">](https://soundcloud.com/notdofficial/honest)
 
-**Artist**: Slang Dogs 
+**Artist**: NOTD 
 
-**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
+**Track**: Honest
 
-Last updated at 04/21/2023 19:56
+Last updated at 04/21/2023 19:57
