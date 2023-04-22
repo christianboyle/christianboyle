@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDMgfQSndadH-0-t500x500.jpg">](https://soundcloud.com/notdofficial/honest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmVVAm7Xh1aHCp3A-HQeQlw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-i-just-shoved-a-nuke-up-my-pussy)
 
-**Artist**: NOTD 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Honest
+**Track**: DJ SMOKEY - I JUST SHOVED A NUKE UP MY PUSSY
 
-Last updated at 04/21/2023 19:57
+Last updated at 04/21/2023 20:00
