@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zC1ksb9Wc2boDAZF-BIyfDg-t500x500.jpg">](https://soundcloud.com/v_i_s_l_a/imanu-syrah-yaano-x-visla-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJB5qfcrJITE80yC-dV1Dzw-t500x500.jpg">](https://soundcloud.com/odditiespacks/devotion)
 
-**Artist**: VISLA 
+**Artist**: Oddities 
 
-**Track**: IMANU, The Caracal Project Feat. Maria-Lea - Syrah (YAANO x VISLA Remix)
+**Track**: DEVOTION TOOL
 
-Last updated at 04/23/2023 12:17
+Last updated at 04/23/2023 12:18
