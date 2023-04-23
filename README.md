@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0YSttltD25yc3uwi-ZrYUbA-t500x500.jpg">](https://soundcloud.com/corefish/reawaken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDMgfQSndadH-0-t500x500.jpg">](https://soundcloud.com/notdofficial/honest)
 
-**Artist**: corefish 
+**Artist**: NOTD 
 
-**Track**: REAWAKEN
+**Track**: Honest
 
-Last updated at 04/22/2023 21:47
+Last updated at 04/22/2023 21:48
