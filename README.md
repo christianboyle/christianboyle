@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hVvxuPKXjX0hYMB-4rKCoA-t500x500.jpg">](https://soundcloud.com/rohaanofficial/rohaan-recorded-live-at-vision-melkweg-31032023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCr2UheH290WL26Y-22og1A-t500x500.jpg">](https://soundcloud.com/4uraofficial/no-shade-mix-v2)
 
-**Artist**: Rohaan 
+**Artist**: 4URA 
 
-**Track**: Rohaan - Recorded live at VISION // Melkweg (31.03.2023)
+**Track**: 4URA & JSTN DMND & Dillin Hoox - No Shade
 
-Last updated at 04/22/2023 21:57
+Last updated at 04/23/2023 10:44
