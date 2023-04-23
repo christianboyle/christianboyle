@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQNsEmoefQyrTAer-KibySg-t500x500.jpg">](https://soundcloud.com/thelotradio/ghostly-with-nick-leon-the-lot-radio-04-17-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmVVAm7Xh1aHCp3A-HQeQlw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-i-just-shoved-a-nuke-up-my-pussy)
 
-**Artist**: The Lot Radio 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Ghostly with Nick León @ The Lot Radio 04-17-2023
+**Track**: DJ SMOKEY - I JUST SHOVED A NUKE UP MY PUSSY
 
-Last updated at 04/22/2023 21:52
+Last updated at 04/22/2023 21:53
