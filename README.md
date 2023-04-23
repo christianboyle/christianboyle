@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJB5qfcrJITE80yC-dV1Dzw-t500x500.jpg">](https://soundcloud.com/odditiespacks/devotion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-81mCTvjglxc70UY8-niLM6g-t500x500.jpg">](https://soundcloud.com/shadient/wakeup)
 
-**Artist**: Oddities 
+**Artist**: Shadient 
 
-**Track**: DEVOTION TOOL
+**Track**: Wake Up (I'm Home)
 
-Last updated at 04/23/2023 12:18
+Last updated at 04/23/2023 12:20
