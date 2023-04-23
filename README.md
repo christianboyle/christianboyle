@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JvEfo7AMNZ0erAp-YoY14w-t500x500.jpg">](https://soundcloud.com/jonathan-rosa/spring-mix-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzTqhKG9Po5Lghxr-mp8XyQ-t500x500.jpg">](https://soundcloud.com/hartshorn303/scooter-harris-ford-techno-is-back-hartshorn-edit)
 
-**Artist**: Jonathan Rosa 
+**Artist**: Hartshorn 
 
-**Track**: ◍ Spring Mix 2023
+**Track**: Scooter & Harris & Ford - Techno Is Back (Hartshorn Edit)
 
-Last updated at 04/23/2023 12:07
+Last updated at 04/23/2023 12:08
