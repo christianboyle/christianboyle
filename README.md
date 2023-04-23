@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2svJHOyXyuqT42gh-HbASyw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/shrimp?in=gyrofieldmusic/sets/stimulus-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZTz302OhaCC2JldT-Yn3YvA-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/euphoria-pt-1-remix)
 
 **Artist**: gyrofield 
 
-**Track**: Shrimp
+**Track**: Circuits - Euphoria Pt. 1 (gyrofield Remix)
 
-Last updated at 04/23/2023 12:14
+Last updated at 04/23/2023 12:15
