@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCr2UheH290WL26Y-22og1A-t500x500.jpg">](https://soundcloud.com/4uraofficial/no-shade-mix-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQNsEmoefQyrTAer-KibySg-t500x500.jpg">](https://soundcloud.com/thelotradio/ghostly-with-nick-leon-the-lot-radio-04-17-2023)
 
-**Artist**: 4URA 
+**Artist**: The Lot Radio 
 
-**Track**: 4URA & JSTN DMND & Dillin Hoox - No Shade
+**Track**: Ghostly with Nick León @ The Lot Radio 04-17-2023
 
-Last updated at 04/23/2023 10:44
+Last updated at 04/23/2023 10:51
