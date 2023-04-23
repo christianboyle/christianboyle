@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TR3slj6NyVb4vQEb-3pdweQ-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/insecure?in=gyrofieldmusic/sets/insecure-stockholm-deadbeats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2svJHOyXyuqT42gh-HbASyw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/shrimp?in=gyrofieldmusic/sets/stimulus-ep)
 
 **Artist**: gyrofield 
 
-**Track**: Insecure
+**Track**: Shrimp
 
-Last updated at 04/23/2023 12:13
+Last updated at 04/23/2023 12:14
