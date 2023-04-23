@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZTz302OhaCC2JldT-Yn3YvA-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/euphoria-pt-1-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2svJHOyXyuqT42gh-HbASyw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/b-muth)
 
 **Artist**: gyrofield 
 
-**Track**: Circuits - Euphoria Pt. 1 (gyrofield Remix)
+**Track**: B-Muth
 
-Last updated at 04/23/2023 12:15
+Last updated at 04/23/2023 12:16
