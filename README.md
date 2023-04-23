@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8z2rVJvRa9238NQN-KEOFnA-t500x500.jpg">](https://soundcloud.com/odcodone/who-do-it-betta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000537894174-hbfkzv-t500x500.jpg">](https://soundcloud.com/nickproxofficial/vigiland-be-your-friend-ft-alexander-tidebrink-nick-prox-bootleg)
 
-**Artist**: oxycodone 
+**Artist**: Nick Prox 
 
-**Track**: WHO DO IT BETTA
+**Track**: Vigiland - Be Your Friend ft. Alexander Tidebrink (Nick Prox Bootleg)
 
-Last updated at 04/23/2023 12:43
+Last updated at 04/23/2023 13:28
