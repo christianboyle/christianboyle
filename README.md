@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kOkxn9qkZqR4DMaH-CzEgug-t500x500.jpg">](https://soundcloud.com/juniorlefranc/xcape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPcGebxa4xhE2pLp-6qRtNw-t500x500.jpg">](https://soundcloud.com/wedamnzofficial/wedamnzfriendsmashuppackvol5)
 
-**Artist**: Junior Lefranc 
+**Artist**: WeDamnz 
 
-**Track**: XCAPE
+**Track**: WeDamnz & Friends Mashup Pack Vol. 5
 
-Last updated at 04/23/2023 12:09
+Last updated at 04/23/2023 12:10
