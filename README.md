@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2OzkDwgiQtJjhU4-7ra2Aw-t500x500.jpg">](https://soundcloud.com/flourian/avicii-levels-flourian-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMzdFfcFgN9Fpcbb-OA0Vdw-t500x500.jpg">](https://soundcloud.com/minuteshoursdays/orion-lake-hope-its-better-days-bootleg)
 
-**Artist**: Flourian 
+**Artist**: days 
 
-**Track**: Avicii - Levels (FLOURIAN BOOTLEG) FREE DOWNLOAD
+**Track**: orion lake - hope it's better (days' bootleg)
 
-Last updated at 04/23/2023 12:31
+Last updated at 04/23/2023 12:32
