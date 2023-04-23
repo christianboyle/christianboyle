@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XgUJciENKHmZg1Ua-du5k1w-t500x500.jpg">](https://soundcloud.com/alia-alia-270860875/i-dont-wanna-be-your-friend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9HCJdWb1q9yum3nx-7u12uw-t500x500.jpg">](https://soundcloud.com/jippy_dude/27-nothing-to-be-said)
 
-**Artist**: Lia 
+**Artist**: your best friend jippy 
 
-**Track**: I dont wanna be your friend
+**Track**: 27. Nothing To Be Said
 
-Last updated at 04/23/2023 13:32
+Last updated at 04/23/2023 13:33
