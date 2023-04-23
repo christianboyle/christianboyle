@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMzdFfcFgN9Fpcbb-OA0Vdw-t500x500.jpg">](https://soundcloud.com/minuteshoursdays/orion-lake-hope-its-better-days-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQkeAvfb6u5qgcb5-5fDuiw-t500x500.jpg">](https://soundcloud.com/odcodone/justsurvive)
 
-**Artist**: days 
+**Artist**: oxycodone 
 
-**Track**: orion lake - hope it's better (days' bootleg)
+**Track**: KIDR - Survive (Bootleg)
 
-Last updated at 04/23/2023 12:32
+Last updated at 04/23/2023 12:34
