@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CVEYJeFqXIDZjVd-1zgOCg-t500x500.jpg">](https://soundcloud.com/kforest/yoasobi-k-forests-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0e0gZnVixIgSiVZ-2izy7w-t500x500.jpg">](https://soundcloud.com/y4ndere/club-memories-y2k-bootleg)
 
-**Artist**: K-forest 
+**Artist**: yandere 
 
-**Track**: YOASOBI - 祝福 (K-forest's Bootleg)
+**Track**: ☆CLUB MEMORIES Y2K BOOTLEG☆
 
-Last updated at 04/23/2023 12:26
+Last updated at 04/23/2023 12:27
