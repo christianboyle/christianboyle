@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLBdvXpfTBGm8v2F-4XEOnQ-t500x500.jpg">](https://soundcloud.com/gradient-map/chrome-safe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQNsEmoefQyrTAer-KibySg-t500x500.jpg">](https://soundcloud.com/thelotradio/ghostly-with-nick-leon-the-lot-radio-04-17-2023)
 
-**Artist**: gradient map 
+**Artist**: The Lot Radio 
 
-**Track**: onlytom & bk beats - Chrome Safe
+**Track**: Ghostly with Nick León @ The Lot Radio 04-17-2023
 
-Last updated at 04/24/2023 16:24
+Last updated at 04/24/2023 16:28
