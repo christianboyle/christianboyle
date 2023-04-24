@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDMgfQSndadH-0-t500x500.jpg">](https://soundcloud.com/notdofficial/honest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRTUlKwCFpNKyHY5-gOWrGQ-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/noise-parfumerie-mikotonori-1)
 
-**Artist**: NOTD 
+**Artist**: In The Lab Recordings 
 
-**Track**: Honest
+**Track**: Noise Parfumerie - Mikotonori
 
-Last updated at 04/24/2023 16:13
+Last updated at 04/24/2023 16:16
