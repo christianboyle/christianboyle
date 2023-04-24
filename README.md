@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000173954223-d8chno-t500x500.jpg">](https://soundcloud.com/scott-halvorsen/angel-by-my-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYygfFSvYne932vc-Lj550w-t500x500.jpg">](https://soundcloud.com/coastrmusic/coastr-we-own-last-night-mashup)
 
-**Artist**: Scott Halvorsen  dba Halvorsongs 
+**Artist**: COASTR. 
 
-**Track**: Angel By My Side (feat. Adam Seebring)
+**Track**: COASTR. - We Own Last Night MASHUP (Morgan Wallen X Young Bombs) // Morgan Wallen Last Night Remix
 
-Last updated at 04/24/2023 12:26
+Last updated at 04/24/2023 12:27
