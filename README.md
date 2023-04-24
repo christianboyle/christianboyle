@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fdn4IFEcJdpWH9TR-Ob3W8A-t500x500.jpg">](https://soundcloud.com/rovasrevenge/steve-lacy-bad-habit-rova-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awwEobcC7qcH4ibz-joTzYg-t500x500.jpg">](https://soundcloud.com/virtual-riot/promises-bootleg-but-its-the-emotional-vocals-into-choderuffneck)
 
-**Artist**: Rova 
+**Artist**: Virtual Riot 
 
-**Track**: Steve Lacy - Bad Habit (Rova Bootleg) [FREE DOWNLOAD]
+**Track**: Promises Bootleg But Its The Emotional Vocals Into ChodeRuffneck
 
-Last updated at 04/24/2023 14:35
+Last updated at 04/24/2023 14:39
