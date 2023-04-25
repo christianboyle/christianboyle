@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8AWlHSDfS2Jmyz2N-XFQU0w-t500x500.jpg">](https://soundcloud.com/all172things/slrandom-space-caleo-remix-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GqyQ6E43KRnstctJ-36h6Kg-t500x500.jpg">](https://soundcloud.com/agora-records/agora-podcast-03-dj-physical-b2b-ika-sile)
 
-**Artist**: All172Things 
+**Artist**: Agora Records 
 
-**Track**: SLRandom - Space (Caleo Remix) [Premiere]
+**Track**: Agora Podcast 03 - DJ Physical b2b Ika Sile
 
-Last updated at 04/25/2023 08:44
+Last updated at 04/25/2023 08:46
