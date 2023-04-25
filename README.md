@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6Zms8OgcTxXzFzG-KxOKyw-t500x500.jpg">](https://soundcloud.com/critical-music/two-for-two)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzoIJGqK6avVw9Oz-nkjUvg-t500x500.jpg">](https://soundcloud.com/hard-duck/motorcycle-as-the-rush-comes-hard-duck-edit)
 
-**Artist**: Critical Music 
+**Artist**: Hard Duck 
 
-**Track**: Hyroglifics & Deft - Two For Two
+**Track**: Motorcycle - As The Rush Comes (Hard Duck Edit)
 
-Last updated at 04/25/2023 08:36
+Last updated at 04/25/2023 08:39
