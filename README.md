@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GqyQ6E43KRnstctJ-36h6Kg-t500x500.jpg">](https://soundcloud.com/agora-records/agora-podcast-03-dj-physical-b2b-ika-sile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZaBUJy6RI43-0-t500x500.jpg">](https://soundcloud.com/thetubsofficial/wretched-lie)
 
-**Artist**: Agora Records 
+**Artist**: The Tubs 
 
-**Track**: Agora Podcast 03 - DJ Physical b2b Ika Sile
+**Track**: Wretched Lie
 
-Last updated at 04/25/2023 08:46
+Last updated at 04/25/2023 09:33
