@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000659113186-g24fdk-t500x500.jpg">](https://soundcloud.com/kaviofficial/bounceback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6Zms8OgcTxXzFzG-KxOKyw-t500x500.jpg">](https://soundcloud.com/critical-music/two-for-two)
 
-**Artist**: KAVI 
+**Artist**: Critical Music 
 
-**Track**: BOUNCE BACK
+**Track**: Hyroglifics & Deft - Two For Two
 
-Last updated at 04/25/2023 08:31
+Last updated at 04/25/2023 08:36
