@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M94ilnwO6CJJroy-l6JdcA-t500x500.jpg">](https://soundcloud.com/temcoofficial/bd-noises-bad-traveling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYygfFSvYne932vc-Lj550w-t500x500.jpg">](https://soundcloud.com/coastrmusic/coastr-we-own-last-night-mashup)
 
-**Artist**: The Electric Movement 
+**Artist**: COASTR. 
 
-**Track**: bd noises - bad traveling
+**Track**: COASTR. - We Own Last Night MASHUP (Morgan Wallen X Young Bombs) // Morgan Wallen Last Night Remix
 
-Last updated at 04/26/2023 17:57
+Last updated at 04/26/2023 18:00
