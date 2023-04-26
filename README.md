@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G99mkmdnw0gwzsQG-HnFNjQ-t500x500.jpg">](https://soundcloud.com/all172things/fryware-artifact-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EuM0upS3DPYzUGpV-nC86tg-t500x500.jpg">](https://soundcloud.com/saigga/fromage-riddim)
 
-**Artist**: All172Things 
+**Artist**: SAIGGA 
 
-**Track**: Fryware - Artifact [Premiere]
+**Track**: Drippy + Saigga - Fromage Riddim [FREE DL]
 
-Last updated at 04/26/2023 15:57
+Last updated at 04/26/2023 16:00
