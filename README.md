@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DtIPhDMuGHgiSi2Q-BTVgQA-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/what-team-im-on-feat-matthew-silver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M94ilnwO6CJJroy-l6JdcA-t500x500.jpg">](https://soundcloud.com/temcoofficial/bd-noises-bad-traveling)
 
-**Artist**: Star Monster 
+**Artist**: The Electric Movement 
 
-**Track**: What Team Im On (Feat. Matthew Silver)
+**Track**: bd noises - bad traveling
 
-Last updated at 04/26/2023 17:55
+Last updated at 04/26/2023 17:57
