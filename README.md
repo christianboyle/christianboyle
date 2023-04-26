@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6Zms8OgcTxXzFzG-KxOKyw-t500x500.jpg">](https://soundcloud.com/critical-music/two-for-two)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFV51LuP7Emxc7lx-M7sg9w-t500x500.jpg">](https://soundcloud.com/playmerecords/keith-mackenzie-miggy-got-a?in=playmerecords/sets/keith-mackenzie-miggy-chicago-breaks)
 
-**Artist**: Critical Music 
+**Artist**: Play Me Records 
 
-**Track**: Hyroglifics & Deft - Two For Two
+**Track**: Keith Mackenzie, Miggy - Got A Feelin'
 
-Last updated at 04/26/2023 15:40
+Last updated at 04/26/2023 15:43
