@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFV51LuP7Emxc7lx-M7sg9w-t500x500.jpg">](https://soundcloud.com/playmerecords/keith-mackenzie-miggy-dirty?in=playmerecords/sets/keith-mackenzie-miggy-chicago-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G99mkmdnw0gwzsQG-HnFNjQ-t500x500.jpg">](https://soundcloud.com/all172things/fryware-artifact-premiere)
 
-**Artist**: Play Me Records 
+**Artist**: All172Things 
 
-**Track**: Keith Mackenzie, Miggy - Dirty Bwoy
+**Track**: Fryware - Artifact [Premiere]
 
-Last updated at 04/26/2023 15:54
+Last updated at 04/26/2023 15:57
