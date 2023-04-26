@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M94ilnwO6CJJroy-l6JdcA-t500x500.jpg">](https://soundcloud.com/temcoofficial/bd-noises-bad-traveling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRnO6yrptizHyJbV-c5qIQg-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-now-united-run-till-dark-arcando-remix)
 
-**Artist**: The Electric Movement 
+**Artist**: R3HAB 
 
-**Track**: bd noises - bad traveling
+**Track**: R3HAB, Now United - Run Till Dark (Arcando Remix)
 
-Last updated at 04/26/2023 16:13
+Last updated at 04/26/2023 16:17
