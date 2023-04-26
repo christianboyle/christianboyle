@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2piHrXI4CGW3lVI-TYnDmg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/miracleedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M94ilnwO6CJJroy-l6JdcA-t500x500.jpg">](https://soundcloud.com/temcoofficial/bd-noises-bad-traveling)
 
-**Artist**: Klubfiller 
+**Artist**: The Electric Movement 
 
-**Track**: Calvin Harris, Ellie Goulding - Miracle (Klubfiller Hardcore Edit)
+**Track**: bd noises - bad traveling
 
-Last updated at 04/26/2023 16:11
+Last updated at 04/26/2023 16:13
