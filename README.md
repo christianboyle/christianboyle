@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhUomX1HLDJ6gXXL-zkJ9Vg-t500x500.jpg">](https://soundcloud.com/whatever001/memoria-clips)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqRnvs1wwBj6TUzT-oWEEEA-t500x500.jpg">](https://soundcloud.com/barongfamily/makla-rzrbld)
 
-**Artist**: whatever51 
+**Artist**: Barong Family 
 
-**Track**: memoria clips
+**Track**: Makla - RZRBLD
 
-Last updated at 04/26/2023 18:07
+Last updated at 04/26/2023 18:11
