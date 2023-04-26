@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f32kWPDA2efdPu63-rn3y1A-t500x500.jpg">](https://soundcloud.com/telykast/broadkast4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhUomX1HLDJ6gXXL-zkJ9Vg-t500x500.jpg">](https://soundcloud.com/whatever001/memoria-clips)
 
-**Artist**: TELYKAST 
+**Artist**: whatever51 
 
-**Track**: BROADKAST - Mix 04
+**Track**: memoria clips
 
-Last updated at 04/26/2023 18:03
+Last updated at 04/26/2023 18:07
