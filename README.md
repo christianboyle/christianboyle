@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSxDsOSbJmD0lmGT-FAZuaA-t500x500.jpg">](https://soundcloud.com/user-719841332/my-way-now-slamma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-STb7BZ5G0aTFVrNn-UfZVUQ-t500x500.jpg">](https://soundcloud.com/sablevalley/moondance?in=bbjuelz/sets/juelz-moondance-move-together)
 
-**Artist**: SLAMMA 
+**Artist**: SABLE VALLEY 
 
-**Track**: My Way Now, Slamma
+**Track**: Juelz - Moondance (Move Together) [Feat. XAELO]
 
-Last updated at 04/26/2023 17:51
+Last updated at 04/26/2023 17:53
