@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-29bQBhH3Q8yY3JqL-goqB8Q-t500x500.jpg">](https://soundcloud.com/user-719841332/love-me-slamma-original-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-slvNYHPyS4z06syA-SPlqvw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-refuzion-piece-of-me)
 
-**Artist**: SLAMMA 
+**Artist**: Dirty Workz 
 
-**Track**: Love Me  Slamma Original
+**Track**: Da Tweekaz & Refuzion - Piece Of Me
 
-Last updated at 04/27/2023 08:51
+Last updated at 04/27/2023 09:04
