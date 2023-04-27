@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-slvNYHPyS4z06syA-SPlqvw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-refuzion-piece-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-014-april-espoir)
 
-**Artist**: Dirty Workz 
+**Artist**: Ascent Recordings 
 
-**Track**: Da Tweekaz & Refuzion - Piece Of Me
+**Track**: Ascent Sessions 014 - April Espoir
 
-Last updated at 04/27/2023 09:04
+Last updated at 04/27/2023 09:05
