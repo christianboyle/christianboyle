@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/IyjoujNPRbs/maxresdefault.jpg">](https://www.youtube.com/watch?v=IyjoujNPRbs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nzm6rY0ybZmYPKa-TIGz5w-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/lsn-the-unknown)
 
-**Artist**: 
-  
-    glaive
-  
-  
-  
-    glaive
-  
+**Artist**: Hardcore Energy 
 
+**Track**: LSN - The Unknown
 
-
-
-
- 
-
-**Track**: glaive - as if (official music video)
-
-Last updated at 04/28/2023 08:06
+Last updated at 04/28/2023 10:15
