@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YmWSz77eUjjlkv05-ZhVITQ-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-legalizenukes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual?in=jxxyy/sets/just-tired)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Joeyy 
 
-**Track**: dj smokey - legalizenukes
+**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
 
-Last updated at 04/28/2023 18:37
+Last updated at 04/28/2023 18:38
