@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4mxdZ4EQHvD3PdNv-GpqBLA-t500x500.jpg">](https://soundcloud.com/dj-girlyy/finish-line)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3sOfHEyFOFbfOWxN-bQSWjQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/frame-of-mind-be-myself-dwx-copyright-free)
 
-**Artist**: dj-girly 
+**Artist**: Dirty Workz 
 
-**Track**: @dj-girly x Finish Line
+**Track**: Frame Of Mind - Be Myself (DWX Copyright Free)
 
-Last updated at 04/28/2023 10:30
+Last updated at 04/28/2023 10:32
