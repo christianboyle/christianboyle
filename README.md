@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
 
-**Artist**: Joeyy 
+**Artist**: Nabimenj 
 
-**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
+**Track**: JOEYY MIX
 
-Last updated at 04/28/2023 18:38
+Last updated at 04/28/2023 18:54
