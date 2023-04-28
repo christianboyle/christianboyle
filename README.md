@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZ1BADqAXMl9fGg8-l734vA-t500x500.jpg">](https://soundcloud.com/wearewavedash/fight-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUiNOrdCnNzK79fe-xqp5yg-t500x500.jpg">](https://soundcloud.com/peekaboobeats/when-im-gone-acoustic-version)
 
-**Artist**: Wavedash 
+**Artist**: PEEKABOO 
 
-**Track**: Fight It
+**Track**: When I'm Gone feat. Xaelo(Acoustic Version)
 
-Last updated at 04/28/2023 12:34
+Last updated at 04/28/2023 12:35
