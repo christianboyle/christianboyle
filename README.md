@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xcaDOg9zL5w3A1Y-KOwK8A-t500x500.jpg">](https://soundcloud.com/stateonex/ifidieyoung_bootleg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/7NJqUN9TClM/maxresdefault.jpg">](https://www.youtube.com/watch?v=7NJqUN9TClM)
 
-**Artist**: STATE ONE 
+**Artist**: 
+  
+    The Band Perry
+  
+  
+  
+    The Band Perry
+  
 
-**Track**: The Band Perry - If I Die Young (State One Bootleg) | Hardstyle
 
-Last updated at 04/28/2023 18:34
+
+
+
+ 
+
+**Track**: The Band Perry - If I Die Young
+
+Last updated at 04/28/2023 18:35
