@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PZyENd2snPV3YsH-8WchzQ-t500x500.jpg">](https://soundcloud.com/loj-2/equilibrium)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m5yQrBwm0iB5zKtJ-x75W1w-t500x500.jpg">](https://soundcloud.com/actuation/guy-arthur-dirty-palm-look-at-me-now)
 
-**Artist**: L*o*J 
+**Artist**: Actuation 
 
-**Track**: Equilibrium
+**Track**: Guy Arthur, Dirty Palm - Look At Me Now
 
-Last updated at 04/28/2023 12:36
+Last updated at 04/28/2023 12:37
