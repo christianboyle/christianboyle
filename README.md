@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-014-april-espoir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weGmE02b6b4Yn2Vu-DFoblA-t500x500.jpg">](https://soundcloud.com/teewave-records/cdrc-on-my-own)
 
-**Artist**: Ascent Recordings 
+**Artist**: Teewave Records 
 
-**Track**: Ascent Sessions 014 - April Espoir
+**Track**: CDRC - On My Own
 
-Last updated at 04/27/2023 09:05
+Last updated at 04/28/2023 08:01
