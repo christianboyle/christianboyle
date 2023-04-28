@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oecIz1dnrikd6lXs-HADS2A-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-carlo-kalu-bass-force-waxxaep003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vA3cZksZKs2sTqUD-laPr3Q-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-cel-shaded-reality)
 
-**Artist**: SINDEX 
+**Artist**: Simplify. 
 
-**Track**: SINDEX PREMIERE: Carlo Kalu - Bass Force [WAXXAEP004]
+**Track**: Future Twist - Cel Shaded Reality
 
-Last updated at 04/28/2023 16:14
+Last updated at 04/28/2023 18:05
