@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/3PfsANvaueQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=3PfsANvaueQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oecIz1dnrikd6lXs-HADS2A-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-carlo-kalu-bass-force-waxxaep003)
 
-**Artist**: 
-  
-    DJ Smokey
-  
-  
-  
-    DJ Smokey
-  
+**Artist**: SINDEX 
 
+**Track**: SINDEX PREMIERE: Carlo Kalu - Bass Force [WAXXAEP004]
 
-
-
-
- 
-
-**Track**: DJ Smokey - "Theme For a Shadow Goblin" (Official Music Video)
-
-Last updated at 04/28/2023 13:58
+Last updated at 04/28/2023 16:14
