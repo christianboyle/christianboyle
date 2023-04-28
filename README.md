@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VC2BGNn8KJgrBMi8-QA7qfA-t500x500.jpg">](https://soundcloud.com/sublabmusic/sublab-skxllflower-eclipse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GBgmicd0f3PhTWyx-5uUxQA-t500x500.jpg">](https://soundcloud.com/scantraxx/dj-isaac-feel-so-good)
 
-**Artist**: Sublab 
+**Artist**: Scantraxx 
 
-**Track**: Sublab & Skxllflower - Eclipse
+**Track**: DJ Isaac - Feel So Good
 
-Last updated at 04/28/2023 10:35
+Last updated at 04/28/2023 10:37
