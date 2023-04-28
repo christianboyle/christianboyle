@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Jp1uykAfd1zNry6-uyvKyA-t500x500.jpg">](https://soundcloud.com/komplichated/new-medicine-take-me-away-komplichated-remix)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/3PfsANvaueQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=3PfsANvaueQ)
 
-**Artist**: Komplichated 
+**Artist**: 
+  
+    DJ Smokey
+  
+  
+  
+    DJ Smokey
+  
 
-**Track**: New Medicine - Take Me Away (KOMPLICHATED Remix)
 
-Last updated at 04/28/2023 12:39
+
+
+
+ 
+
+**Track**: DJ Smokey - "Theme For a Shadow Goblin" (Official Music Video)
+
+Last updated at 04/28/2023 13:58
