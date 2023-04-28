@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUiNOrdCnNzK79fe-xqp5yg-t500x500.jpg">](https://soundcloud.com/peekaboobeats/when-im-gone-acoustic-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9PZyENd2snPV3YsH-8WchzQ-t500x500.jpg">](https://soundcloud.com/loj-2/equilibrium)
 
-**Artist**: PEEKABOO 
+**Artist**: L*o*J 
 
-**Track**: When I'm Gone feat. Xaelo(Acoustic Version)
+**Track**: Equilibrium
 
-Last updated at 04/28/2023 12:35
+Last updated at 04/28/2023 12:36
