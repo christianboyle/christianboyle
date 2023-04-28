@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233299595-4praio-t500x500.jpg">](https://soundcloud.com/uiceheidd/moonlight?in=uiceheidd/sets/juicewrld-the-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166871248-dz0ai1-t500x500.jpg">](https://soundcloud.com/lil_peep/absolute-in-doubt-w-wicca-phase-springs-eternal-prod-foxwedding?in=lil_peep/sets/crybaby)
 
-**Artist**: Juice WRLD 
+**Artist**: ☆LiL PEEP☆ 
 
-**Track**: moonlight [prod. sidepce]
+**Track**: absolute in doubt w/ wicca phase springs eternal (prod. foxwedding)
 
-Last updated at 04/28/2023 18:57
+Last updated at 04/28/2023 18:58
