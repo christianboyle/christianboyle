@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6RZry5I2VTEMDXiQ-gy04LQ-t500x500.jpg">](https://soundcloud.com/studio94records/adm-gi-gi-dunder-pit-raw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4mxdZ4EQHvD3PdNv-GpqBLA-t500x500.jpg">](https://soundcloud.com/dj-girlyy/finish-line)
 
-**Artist**: STUDIO94 RECORDS 
+**Artist**: dj-girly 
 
-**Track**: Gi Gi - Dunder Pit
+**Track**: @dj-girly x Finish Line
 
-Last updated at 04/28/2023 10:25
+Last updated at 04/28/2023 10:30
