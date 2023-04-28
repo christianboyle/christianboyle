@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/7NJqUN9TClM/maxresdefault.jpg">](https://www.youtube.com/watch?v=7NJqUN9TClM)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DgGNB3UnHpznD6X-Da1NWQ-t500x500.jpg">](https://soundcloud.com/purpleposse/nightmare-on-posse-street-hosted-by-dj-smokey-nuke-radio-exclusive)
 
-**Artist**: 
-  
-    The Band Perry
-  
-  
-  
-    The Band Perry
-  
+**Artist**: PURPLE POSSE 
 
+**Track**: NIGHTMARE ON POSSE STREET (Hosted by DJ SMOKEY) *NUKE RADIO EXCLUSIVE*
 
-
-
-
- 
-
-**Track**: The Band Perry - If I Die Young
-
-Last updated at 04/28/2023 18:35
+Last updated at 04/28/2023 18:36
