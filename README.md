@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000293917335-v8knzs-t500x500.jpg">](https://soundcloud.com/donatachi/2-pop-mix?in=donatachi/sets/2-pop)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/xDootNGnt6s/maxresdefault.jpg">](https://www.youtube.com/watch?v=xDootNGnt6s)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: 
+  
+    Dylan Brady
+  
+  
+  
+    Dylan Brady
+  
 
-**Track**: 2 Pop Vol 1
 
-Last updated at 04/29/2023 20:07
+
+
+
+ 
+
+**Track**: Dylan Brady - Of Course I Still Love You (Official Music Video)
+
+Last updated at 04/29/2023 20:23
