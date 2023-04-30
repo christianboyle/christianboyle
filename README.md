@@ -1,9 +1,9 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoezXV02SnJWwSVz-YgeccQ-t500x500.jpg">](https://soundcloud.com/rave_alert/ravecast129-ac2)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/fKopy74weus/maxresdefault.jpg">](https://www.youtube.com/watch?v=fKopy74weus)
 
-**Artist**: Rave Alert 
+**Artist**: ImagineDragons 
 
-**Track**: RaveCast129 - AC2
+**Track**: Imagine Dragons - Thunder
 
-Last updated at 04/29/2023 14:37
+Last updated at 04/29/2023 19:52
