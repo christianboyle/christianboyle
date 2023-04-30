@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sMuUaTSj53GO6pgK-cx3BTw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-fwd-ft-lalka?in=donatachi/sets/dotcom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000293917335-v8knzs-t500x500.jpg">](https://soundcloud.com/donatachi/2-pop-mix?in=donatachi/sets/2-pop)
 
 **Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: FWD ft. LÂLKA
+**Track**: 2 Pop Vol 1
 
-Last updated at 04/29/2023 20:06
+Last updated at 04/29/2023 20:07
