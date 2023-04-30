@@ -1,9 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/fKopy74weus/maxresdefault.jpg">](https://www.youtube.com/watch?v=fKopy74weus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IilKoVeKMMEs-0-t500x500.jpg">](https://soundcloud.com/cakepop2/dylan-brady-ravenna-golden)
 
-**Artist**: ImagineDragons 
+**Artist**: CAKE POP 
 
-**Track**: Imagine Dragons - Thunder
+**Track**: Dylan Brady, Ravenna Golden & Lewis Grant - Boom
 
-Last updated at 04/29/2023 19:52
+Last updated at 04/29/2023 20:01
