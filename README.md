@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IilKoVeKMMEs-0-t500x500.jpg">](https://soundcloud.com/cakepop2/dylan-brady-ravenna-golden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NRzZ3F7lasO3KfPS-1aUA0w-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-cry?in=donatachi/sets/dotcom)
 
-**Artist**: CAKE POP 
+**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: Dylan Brady, Ravenna Golden & Lewis Grant - Boom
+**Track**: cry
 
-Last updated at 04/29/2023 20:01
+Last updated at 04/29/2023 20:02
