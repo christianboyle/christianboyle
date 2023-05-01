@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6TyZH41LzzJ4mGc-zrkRng-t500x500.jpg">](https://soundcloud.com/vercetti-lastio/juice-wrld-lil-uzi-vert-never-told-a-lie-ai-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk1flnp1S9SaA5rn-jXRb2w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-108-on-beat-1?in=beat106scotland/sets/bonkers-beats-108-on-beat-106-scotland-with-marc-smith-renstar-280423)
 
-**Artist**: P6CEYYY 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Juice WRLD & Lil Uzi Vert - Never Told A Lie (AI Song)
+**Track**: Bonkers Beats #108 on Beat 106 Scotland with Marc Smith (with a Con Con Guest Mix) 280423 (Hour 1)
 
-Last updated at 05/01/2023 09:26
+Last updated at 05/01/2023 09:57
