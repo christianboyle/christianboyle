@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-STb7BZ5G0aTFVrNn-UfZVUQ-t500x500.jpg">](https://soundcloud.com/sablevalley/moondance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FCzqXKiynsB6tn2O-FrEbZw-t500x500.jpg">](https://soundcloud.com/gldmusic/sam-smith-kim-petras-unholy-gld-remix-1)
 
-**Artist**: SABLE VALLEY 
+**Artist**: GLD 
 
-**Track**: Juelz - Moondance (Move Together) [Feat. XAELO]
+**Track**: Sam Smith & Kim Petras - Unholy (GLD Remix)
 
-Last updated at 05/01/2023 23:29
+Last updated at 05/01/2023 23:33
