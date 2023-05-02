@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-syvz4WAdulj08Jwl-HyNZPQ-t500x500.jpg">](https://soundcloud.com/dvdmtl/dream2me?in=dvdmtl/sets/dream2me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-STb7BZ5G0aTFVrNn-UfZVUQ-t500x500.jpg">](https://soundcloud.com/sablevalley/moondance)
 
-**Artist**: D V D 
+**Artist**: SABLE VALLEY 
 
-**Track**: Peggy Viennetta & D V D - Dream2Me
+**Track**: Juelz - Moondance (Move Together) [Feat. XAELO]
 
-Last updated at 05/02/2023 08:34
+Last updated at 05/02/2023 08:35
