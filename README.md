@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZIy2nQino9PwUNd-ii7yXQ-t500x500.png">](https://soundcloud.com/critical-music/yaano-christian-dubstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-45jbjTqOnKPQlzey-Pm4LSA-t500x500.jpg">](https://soundcloud.com/karl-guapo/deep-down-low)
 
-**Artist**: Critical Music 
+**Artist**: L3NNY 
 
-**Track**: YAANO - Christian Dubstep
+**Track**: Deep Down Low
 
-Last updated at 05/02/2023 10:26
+Last updated at 05/02/2023 13:38
