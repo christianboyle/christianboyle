@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk1flnp1S9SaA5rn-jXRb2w-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-108-on-beat-106?in=beat106scotland/sets/bonkers-beats-108-on-beat-106-scotland-with-marc-smith-renstar-280423)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvzTblyw5z2ndo2W-7IzmKg-t500x500.jpg">](https://soundcloud.com/itsdavidfeldman/post-malone-chemical-david-feldman-remix-2)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: David Feldman 
 
-**Track**: Bonkers Beats #108 on Beat 106 Scotland with Renstar 280423 (Hour 2)
+**Track**: Post Malone - Chemical (David Feldman Remix)
 
-Last updated at 05/01/2023 11:47
+Last updated at 05/01/2023 23:24
