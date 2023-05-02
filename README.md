@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ONLYZ9c4SwLd6UbW-2pIjfg-t500x500.jpg">](https://soundcloud.com/maazelbeats/imanu-wingtip-what-so-not-pillow-talk-maazel-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMXPzd4OgJSXz2gF-qn76KA-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf096-rhode-brown-x-kid-simius-eurostar-ep)
 
-**Artist**: Maazel 
+**Artist**: Shall Not Fade 
 
-**Track**: IMANU, Wingtip & What So Not - Pillow Talk (Maazel Remix)
+**Track**: SNF096 // Rhode & Brown x Kid Simius - Eurostar EP
 
-Last updated at 05/01/2023 23:44
+Last updated at 05/02/2023 08:33
