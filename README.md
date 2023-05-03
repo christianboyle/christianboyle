@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGSDN1JTlfqvOnAb-8H89aQ-t500x500.jpg">](https://soundcloud.com/cure97/cure97-bigman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
 
-**Artist**: CURE97 
+**Artist**: Nabimenj 
 
-**Track**: CURE97 - DARKSIDE [PATREON EXCLUSIVE]
+**Track**: JOEYY MIX
 
-Last updated at 05/02/2023 13:39
+Last updated at 05/03/2023 16:19
