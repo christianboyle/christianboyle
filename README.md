@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZIy2nQino9PwUNd-ii7yXQ-t500x500.png">](https://soundcloud.com/critical-music/yaano-christian-dubstep)
 
-**Artist**: Nabimenj 
+**Artist**: Critical Music 
 
-**Track**: JOEYY MIX
+**Track**: YAANO - Christian Dubstep
 
-Last updated at 05/03/2023 16:19
+Last updated at 05/03/2023 18:57
