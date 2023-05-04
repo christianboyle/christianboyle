@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZIy2nQino9PwUNd-ii7yXQ-t500x500.png">](https://soundcloud.com/critical-music/yaano-christian-dubstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sJpkzGCcSZCraVdv-kVEsHw-t500x500.jpg">](https://soundcloud.com/remyheartmusic/miguel-sure-thing-remy-heart-remix-1)
 
-**Artist**: Critical Music 
+**Artist**: Remy Heart 
 
-**Track**: YAANO - Christian Dubstep
+**Track**: Miguel - Sure Thing (Remy Heart Remix)
 
-Last updated at 05/03/2023 18:57
+Last updated at 05/03/2023 19:01
