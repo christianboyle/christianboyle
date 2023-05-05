@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDXnkcbb5x0SOPUT-6Ts6Kg-t500x500.jpg">](https://soundcloud.com/lookasmusic/lowa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s2zzzGCKZCfNzSA-d6PwWg-t500x500.jpg">](https://soundcloud.com/goodnightcody/ever-in-heaven)
 
-**Artist**: Lookas 
+**Artist**: Goodnight Cody 
 
-**Track**: LOWA
+**Track**: &ever in heaven
 
-Last updated at 05/05/2023 17:37
+Last updated at 05/05/2023 17:38
