@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJ0IJMi71hmGOAzx-ZyOq3A-t500x500.jpg">](https://soundcloud.com/sadbois_official/caslow-sadbois-in-love-with-micah-martin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOV9eA5llp3A-0-t500x500.jpg">](https://soundcloud.com/gryffinofficial/gryffin-you-were-loved-caslow?in=caslowofficial/sets/gryffin-onerepublic-you-were)
 
-**Artist**: SadBois 🦋 
+**Artist**: Gryffin 
 
-**Track**: In Love (with Micah Martin)
+**Track**: Gryffin - You Were Loved (Caslow Remix) [feat. OneRepublic]
 
-Last updated at 05/05/2023 09:53
+Last updated at 05/05/2023 09:54
