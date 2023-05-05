@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIOxXV8nI8O3XbLQ-nDatrA-t500x500.jpg">](https://soundcloud.com/just-a-gent/amine-charmander-solomon-france-just-a-gent-remix?in=solomonfranceofficial/sets/amine-charmander-solomon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yL9rNFRmkZb9krAN-C5NcTA-t500x500.jpg">](https://soundcloud.com/futuregenerationradio/fgradio-027?in=futuregenerationofficial/sets/future-generation-radio-027)
 
-**Artist**: Just A Gent 
+**Artist**: Future Generation Radio 
 
-**Track**: Aminé - Charmander (Solomon France & Just A Gent Remix)
+**Track**: Future Generation Radio #027 (Rocktronic takeover by Caslow)
 
-Last updated at 05/05/2023 09:51
+Last updated at 05/05/2023 09:52
