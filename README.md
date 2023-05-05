@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Ekbcb5eYibytmWy-1mkqXw-t500x500.jpg">](https://soundcloud.com/noiseprn/remy-heart-x-goodknight-runaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oafxv6zAZi3n0JPj-7HbnpQ-t500x500.jpg">](https://soundcloud.com/presentlylifted/tsou-x-velvet-pass-the-l)
 
-**Artist**: Noiseporn 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Remy Heart x Goodknight. - Runaway
+**Track**: tsou x velvet - Pass The L
 
-Last updated at 05/05/2023 09:43
+Last updated at 05/05/2023 09:49
