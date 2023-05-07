@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRtzW2ypmk3GhPpc-IXyIhg-t500x500.jpg">](https://soundcloud.com/itsedisoncole/post-malone-chemical-edison-cole-greenwork-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAnTvfReXiUD7ymP-kHjMGA-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/camnah-ug-tarot-card)
 
-**Artist**: EDISON COLE 
+**Artist**: Wavecraft Collective 
 
-**Track**: Post Malone - Chemical (Edison Cole Greenwork) FREE DOWNLOAD
+**Track**: Camnah & Ug - Tarot Card
 
-Last updated at 05/07/2023 09:23
+Last updated at 05/07/2023 09:25
