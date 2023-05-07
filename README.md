@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAnTvfReXiUD7ymP-kHjMGA-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/camnah-ug-tarot-card)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SBYcQauzT6yLrbTy-kVJUDg-t500x500.jpg">](https://soundcloud.com/fellsofficial/hold-me-down-with-stirling)
 
-**Artist**: Wavecraft Collective 
+**Artist**: Fells 
 
-**Track**: Camnah & Ug - Tarot Card
+**Track**: Hold Me Down (with Stirling)
 
-Last updated at 05/07/2023 09:25
+Last updated at 05/07/2023 09:28
