@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uTLsCGYhrpL07DB-qFugyQ-t500x500.jpg">](https://soundcloud.com/djjayg-1/showtek-fts-jay-g-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmGNM7m5Q93H0rg-ULblYQ-t500x500.jpg">](https://soundcloud.com/nikko/nikko-beastboi-baile)
 
-**Artist**: Jay G 
+**Artist**: nikko 
 
-**Track**: Showtek FTS ( Jay G Edit )Free DL
+**Track**: NIKKO & BEASTBOI - BAILE
 
-Last updated at 05/07/2023 09:20
+Last updated at 05/07/2023 09:21
