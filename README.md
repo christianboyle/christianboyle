@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VUnQ6xjfwzZARm4l-b5e0Ww-t500x500.jpg">](https://soundcloud.com/user-719841332/just-dont-wanna-know-anthem-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tchUEttIgURl64M-OcyrCA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/alan-walker-dreamer-rival-remix-ncs-release)
 
-**Artist**: SLAMMA 
+**Artist**: NCS 
 
-**Track**: Just Dont Wanna Know - Anthem Power
+**Track**: Alan Walker - Dreamer (Rival Remix) [NCS Release]
 
-Last updated at 05/07/2023 09:13
+Last updated at 05/07/2023 09:19
