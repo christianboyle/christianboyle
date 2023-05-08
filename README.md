@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPZoVBCmHZUQi0OV-4v5OlQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-109-on-beat-106?in=beat106scotland/sets/bonkers-beats-109-on-beat-106-scotland-with-rachel-vega-3rd-wav-050523)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AueznAUdcQRhhTFQ-Sx0xzQ-t500x500.jpg">](https://soundcloud.com/djdime/whatugonnado)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: DJ Dime 
 
-**Track**: Bonkers Beats #109 on Beat 106 Scotland with 3rd Wav 050523 (Hour 2)
+**Track**: What U Gonna Do
 
-Last updated at 05/08/2023 15:18
+Last updated at 05/08/2023 15:26
