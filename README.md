@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dv7H3bqATPmUtVFQ-YMzL3w-t500x500.jpg">](https://soundcloud.com/airoaura/skipping-stones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yolyYycAuysVRkoZ-yK535w-t500x500.jpg">](https://soundcloud.com/lookasmusic/john-summit-hayla-where-you-are-lookas-remix)
 
-**Artist**: A!RO 
+**Artist**: Lookas 
 
-**Track**: skipping stones
+**Track**: John Summit, Hayla - Where You Are (Lookas Remix)
 
-Last updated at 05/08/2023 16:02
+Last updated at 05/08/2023 16:06
