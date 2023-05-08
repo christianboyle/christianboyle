@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sqq74rwmmNNSYOUv-IaDCxQ-t500x500.jpg">](https://soundcloud.com/tremorrdubstep/tremorr-system-overload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y55wNd7BySj9f4py-agqmOw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-stars)
 
-**Artist**: Tremorr 
+**Artist**: I AM HARDSTYLE 
 
-**Track**: Tremorr - System Overload
+**Track**: The Pitcher - Stars
 
-Last updated at 05/08/2023 18:48
+Last updated at 05/08/2023 18:49
