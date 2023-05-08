@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bwFzVHKjMHp0Hyzv-hjQHoA-t500x500.jpg">](https://soundcloud.com/trapicalmusic/be-there-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dv7H3bqATPmUtVFQ-YMzL3w-t500x500.jpg">](https://soundcloud.com/airoaura/skipping-stones)
 
-**Artist**: Trapical Music 
+**Artist**: A!RO 
 
-**Track**: SouMix & Solina - Be There For You
+**Track**: skipping stones
 
-Last updated at 05/08/2023 16:01
+Last updated at 05/08/2023 16:02
