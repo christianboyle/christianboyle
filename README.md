@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyhyzwkwe9tK3FfQ-9mLHDg-t500x500.jpg">](https://soundcloud.com/xandg/cftwrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcjRglsPOWO09R2n-Iv7XgA-t500x500.jpg">](https://soundcloud.com/justluke-official/all-in)
 
-**Artist**: X&G 
+**Artist**: JustLuke 
 
-**Track**: Imanu & Louis Futon - Can't Find The Words Feat. Cherry Lena (X&G Remix)
+**Track**: JustLuke - All In
 
-Last updated at 05/08/2023 15:27
+Last updated at 05/08/2023 16:00
