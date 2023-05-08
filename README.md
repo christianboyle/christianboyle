@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cRoFWZb6pmpnrN3z-8kuSWQ-t500x500.jpg">](https://soundcloud.com/brz-15/brz_booleg_remixfromep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qIq5Hy2UbU6EOcXz-0PCyeA-t500x500.jpg">](https://soundcloud.com/thatcherblackwood6514/laurel)
 
-**Artist**: brz1128 
+**Artist**: thatcherblackwood 
 
-**Track**: いちごコンプリート(brz_booleg_remix)/from「アニマゼEP」
+**Track**: laurel
 
-Last updated at 05/08/2023 08:52
+Last updated at 05/08/2023 08:54
