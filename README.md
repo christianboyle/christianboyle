@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcjRglsPOWO09R2n-Iv7XgA-t500x500.jpg">](https://soundcloud.com/justluke-official/all-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bwFzVHKjMHp0Hyzv-hjQHoA-t500x500.jpg">](https://soundcloud.com/trapicalmusic/be-there-for-you)
 
-**Artist**: JustLuke 
+**Artist**: Trapical Music 
 
-**Track**: JustLuke - All In
+**Track**: SouMix & Solina - Be There For You
 
-Last updated at 05/08/2023 16:00
+Last updated at 05/08/2023 16:01
