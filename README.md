@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9FGJeP2b9JjQ0MMQ-KcJlJA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/the-prodigy-voodoo-people-mrmachine-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPZoVBCmHZUQi0OV-4v5OlQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-109-on-beat-1)
 
-**Artist**: NO MERCY RECORDS 
+**Artist**: Beat 106 Scotland 
 
-**Track**: The Prodigy - Voodoo People (Mr.Machine Edit) [Free Download]
+**Track**: Bonkers Beats #109 on Beat 106 Scotland with Rachel Vega 050523 (Hour 1)
 
-Last updated at 05/08/2023 18:55
+Last updated at 05/09/2023 14:58
