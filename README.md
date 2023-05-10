@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uWQT8pY0yEVdUnK-ynNQZQ-t500x500.jpg">](https://soundcloud.com/koastle/happy-pills-with-less-killjoy)
 
-**Artist**: Four Four Magazine 
+**Artist**: Koastle 
 
-**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
+**Track**: Happy Pills (with LESS KILLJOY)
 
-Last updated at 05/10/2023 13:45
+Last updated at 05/10/2023 13:46
