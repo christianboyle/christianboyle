@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-on-ur-mind-ft-rromarin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: underd0g 
 
-**Track**: on ur mind (ft. rromarin)
+**Track**: 888style w/ lustrafemme
 
-Last updated at 05/09/2023 20:14
+Last updated at 05/09/2023 20:15
