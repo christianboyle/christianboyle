@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y55wNd7BySj9f4py-agqmOw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-stars)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrulQy366JFTlqGq-255Grg-t500x500.jpg">](https://soundcloud.com/former/temper)
 
-**Artist**: I AM HARDSTYLE 
+**Artist**: Former 
 
-**Track**: The Pitcher - Stars (feat. Ava Silver)
+**Track**: IMANU x LIA - Temper (Former Remix)
 
-Last updated at 05/10/2023 15:39
+Last updated at 05/10/2023 15:43
