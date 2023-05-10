@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TXYpYjhpauWBF46y-U6LNGg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/girl-tool-trophy-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylRF07fNBE6kdkZZ-L16A0Q-t500x500.jpg">](https://soundcloud.com/balamii/coco-bryce-may-2023)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Balamii 
 
-**Track**: Girl Tool - Trophy Dub
+**Track**: Coco Bryce - May 2023
 
-Last updated at 05/10/2023 11:28
+Last updated at 05/10/2023 11:32
