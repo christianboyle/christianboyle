@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrqwWgoOp9uun3i7-vzYuvQ-t500x500.jpg">](https://soundcloud.com/q-dancemusic/atmozfears-sound-rush-united-as-one?in=q-dancemusic/sets/atmozfears-sound-rush-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhbzdOnIiVeHoyFY-jzInDg-t500x500.jpg">](https://soundcloud.com/all172things/omega-there-is-no-tomorrow-premiere?in=all172things/sets/o-mega-there-is-no-tomorrow)
 
-**Artist**: Q-dance Music 
+**Artist**: All172Things 
 
-**Track**: Atmozfears & Sound Rush - United As One | Q-dance Records
+**Track**: O/MEGA - There Is No Tomorrow [Premiere]
 
-Last updated at 05/10/2023 06:40
+Last updated at 05/10/2023 06:41
