@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDScMjlnsyGBRtel-syv2KQ-t500x500.jpg">](https://soundcloud.com/parallax/shy-of-death-gates-to-hell-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TXYpYjhpauWBF46y-U6LNGg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/girl-tool-trophy-dub)
 
-**Artist**: Shy Of Death 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Shy Of Death - Gates To Hell (Original Mix)
+**Track**: Girl Tool - Trophy Dub
 
-Last updated at 05/10/2023 11:26
+Last updated at 05/10/2023 11:28
