@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cqlhqRQ11JpzmnS7-IBTtkQ-t500x500.jpg">](https://soundcloud.com/1laker/kyoto-prod-srdbeatz-kkaciefree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ns3Nz29BjZfGWl9e-kZUc1g-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-mix-003-madjestic-kasual)
 
-**Artist**: ##Laker 
+**Artist**: Nina 
 
-**Track**: Kyoto Prod. Srdbeatz & KkacieFree
+**Track**: Nina Mix - 003 - Madjestic Kasual
 
-Last updated at 05/10/2023 02:25
+Last updated at 05/10/2023 02:28
