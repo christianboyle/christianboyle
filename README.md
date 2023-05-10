@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_jungle_dnb_2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDlnjTxWyKkzelXt-k3QGRA-t500x500.jpg">](https://soundcloud.com/djshimamura/dj-shimamura-the-20-years-dynasty-dncd-016-xfade-demo)
 
-**Artist**: KULA 
+**Artist**: DJShimamura 
 
-**Track**: KULA_Jungle_DnB_2_
+**Track**: DJ Shimamura - THE 20 YEARS DYNASTY (DNCD-016 / XFADE DEMO)
 
-Last updated at 05/09/2023 23:12
+Last updated at 05/10/2023 01:04
