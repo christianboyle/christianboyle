@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfc8Ys5OCU9OjCKE-1jyTsA-t500x500.jpg">](https://soundcloud.com/noirsurblancrecords/malive-imagination)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
 
-**Artist**: NOIR SUR BLANC 
+**Artist**: Four Four Magazine 
 
-**Track**: Malive - Imagination
+**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
 
-Last updated at 05/10/2023 13:47
+Last updated at 05/10/2023 15:30
