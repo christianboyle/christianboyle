@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-29bQBhH3Q8yY3JqL-goqB8Q-t500x500.jpg">](https://soundcloud.com/user-719841332/love-me-slamma-original-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
 
-**Artist**: SLAMMA 
+**Artist**: underd0g 
 
-**Track**: Love Me  Slamma Original
+**Track**: 888style w/ lustrafemme
 
-Last updated at 05/09/2023 20:24
+Last updated at 05/09/2023 20:33
