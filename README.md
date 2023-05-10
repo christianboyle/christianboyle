@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-xj7vmLdJD4kHXU48-K3B9fQ-t500x500.jpg">](https://soundcloud.com/reklus-offcial/tnt-fuel-reklus-reverse-revamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TWS8rVyBgjThWlI3-x6ta3w-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-21-subject-xero)
 
-**Artist**: Reklus official 
+**Artist**: Hardcore Energy 
 
-**Track**: TNT - Fuel (Reklus Reverse Revamp) "FREE DOWNLOAD"
+**Track**: Mix Series 21 - Subject Xero
 
-Last updated at 05/10/2023 01:19
+Last updated at 05/10/2023 01:23
