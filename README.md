@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDXnkcbb5x0SOPUT-6Ts6Kg-t500x500.jpg">](https://soundcloud.com/lookasmusic/lowa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvyw2s85Q2XNyzI9-q6EJHA-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/caslow-sadbois-in-love-with-micah-martin)
 
-**Artist**: Lookas 
+**Artist**: Future Generation 
 
-**Track**: LOWA
+**Track**: Caslow & Sadbois - In Love (with Micah Martin)
 
-Last updated at 05/10/2023 16:00
+Last updated at 05/10/2023 16:03
