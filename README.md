@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDXnkcbb5x0SOPUT-6Ts6Kg-t500x500.jpg">](https://soundcloud.com/lookasmusic/lowa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-29bQBhH3Q8yY3JqL-goqB8Q-t500x500.jpg">](https://soundcloud.com/user-719841332/love-me-slamma-original-m)
 
-**Artist**: Lookas 
+**Artist**: SLAMMA 
 
-**Track**: LOWA
+**Track**: Love Me  Slamma Original
 
-Last updated at 05/09/2023 20:22
+Last updated at 05/09/2023 20:24
