@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-764s4K1CSAlyUuva-I3A0MA-t500x500.jpg">](https://soundcloud.com/phonebotmusic/how-to-actually-edm-on-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JGXzeC3Hb6AJvHde-U9fabg-t500x500.jpg">](https://soundcloud.com/djbrettcooper/rave-escape-comp-mix-down-load)
 
-**Artist**: PHONEBOT 
+**Artist**: Brett Cooper 
 
-**Track**: How To Actually EDM On A Smartphone [FREE DOWNLOAD]
+**Track**: Rave Escape Comp Mix (down load)
 
-Last updated at 05/10/2023 08:27
+Last updated at 05/10/2023 08:28
