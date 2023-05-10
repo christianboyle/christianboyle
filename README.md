@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000306219405-76tw4o-t500x500.jpg">](https://soundcloud.com/dj-kutski/kutski-joey-riot-mdmamzing-ktra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-otOLqiA3mjrXzzzN-zjysMg-t500x500.jpg">](https://soundcloud.com/machinedrum/imanu-tudor-haunt-my-mind-machinedrum-remix-1)
 
-**Artist**: Kutski 
+**Artist**: Machinedrum 
 
-**Track**: Kutski & Joey Riot - MDMAmazing [KTRA] {2018}
+**Track**: IMANU & Tudor - Haunt My Mind (Machinedrum Remix)
 
-Last updated at 05/10/2023 03:30
+Last updated at 05/10/2023 03:34
