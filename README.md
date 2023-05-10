@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP9PP0DNDAGkneYr-GDYScg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/klubfiller-magic)
 
-**Artist**: Four Four Magazine 
+**Artist**: Klubfiller 
 
-**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
+**Track**: Klubfiller - Magic
 
-Last updated at 05/10/2023 15:30
+Last updated at 05/10/2023 15:36
