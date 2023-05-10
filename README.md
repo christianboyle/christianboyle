@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f32kWPDA2efdPu63-rn3y1A-t500x500.jpg">](https://soundcloud.com/telykast/broadkast4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
 
-**Artist**: TELYKAST 
+**Artist**: Four Four Magazine 
 
-**Track**: BROADKAST - Mix 04
+**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
 
-Last updated at 05/10/2023 16:06
+Last updated at 05/10/2023 16:32
