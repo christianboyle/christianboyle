@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NveaW5AN92vHsJzN-IJ9vKw-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-again-again-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP9PP0DNDAGkneYr-GDYScg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/klubfiller-magic)
 
-**Artist**: OneSeventy 
+**Artist**: Klubfiller 
 
-**Track**: Technikore - Again & Again (Radio Edit)
+**Track**: Klubfiller - Magic
 
-Last updated at 05/09/2023 20:00
+Last updated at 05/09/2023 20:04
