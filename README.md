@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOTvBUbcJZc7qLL6-yRXlrw-t500x500.jpg">](https://soundcloud.com/oneseventy/quickdrop-oneseventy-warm-up-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_jungle_dnb_2)
 
-**Artist**: OneSeventy 
+**Artist**: KULA 
 
-**Track**: Quickdrop - OneSeventy Warm Up Mix
+**Track**: KULA_Jungle_DnB_2_
 
-Last updated at 05/09/2023 22:42
+Last updated at 05/09/2023 23:12
