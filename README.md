@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AP02QwyoWmBIWpyh-GiAFcQ-t500x500.jpg">](https://soundcloud.com/themortuary/volumethree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbtVTBDztMxo1Jrz-2dOEOA-t500x500.jpg">](https://soundcloud.com/slangdogs/slang-dogs-incendiary-rite)
 
-**Artist**: The Mortuary 
+**Artist**: Slang Dogs 
 
-**Track**: COFFIN - The Mortuary Sessions Vol. 3
+**Track**: Incendiary Rite
 
-Last updated at 05/09/2023 19:50
+Last updated at 05/09/2023 19:51
