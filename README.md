@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP9PP0DNDAGkneYr-GDYScg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/klubfiller-magic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y55wNd7BySj9f4py-agqmOw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-stars)
 
-**Artist**: Klubfiller 
+**Artist**: I AM HARDSTYLE 
 
-**Track**: Klubfiller - Magic
+**Track**: The Pitcher - Stars (feat. Ava Silver)
 
-Last updated at 05/10/2023 15:36
+Last updated at 05/10/2023 15:39
