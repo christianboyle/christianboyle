@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBJdpDMlfBMgL4Oy-kx5t4A-t500x500.jpg">](https://soundcloud.com/all172things/all172things-podcast-09-hosted-by-in-the-lab-recordings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDMgfQSndadH-0-t500x500.jpg">](https://soundcloud.com/notdofficial/honest)
 
-**Artist**: All172Things 
+**Artist**: NOTD 
 
-**Track**: All172Things Podcast 09 (Hosted by: In The Lab Recordings)
+**Track**: Honest
 
-Last updated at 05/09/2023 20:52
+Last updated at 05/09/2023 21:23
