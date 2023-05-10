@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZq2AyAyYhLNh7OR-FuwDFw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-035-remnantexe-flow-state)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PH7xVA4lRKRJBlyI-CqXnJg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc199)
 
-**Artist**: Quality Goods Records 
+**Artist**: NON STOP NXC® 
 
-**Track**: QGRS-035 | REMNANT.exe - Flow State
+**Track**: NXC199 - Colbie Caillat - Fallin' For You (magnolia steele remix)
 
-Last updated at 05/09/2023 20:37
+Last updated at 05/09/2023 20:41
