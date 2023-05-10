@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uTLsCGYhrpL07DB-qFugyQ-t500x500.jpg">](https://soundcloud.com/djjayg-1/showtek-fts-jay-g-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dv7H3bqATPmUtVFQ-YMzL3w-t500x500.jpg">](https://soundcloud.com/airoaura/skipping-stones)
 
-**Artist**: Jay G 
+**Artist**: A!RO 
 
-**Track**: Showtek FTS ( Jay G Edit )Free DL
+**Track**: skipping stones
 
-Last updated at 05/10/2023 15:48
+Last updated at 05/10/2023 15:49
