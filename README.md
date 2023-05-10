@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QhbzdOnIiVeHoyFY-jzInDg-t500x500.jpg">](https://soundcloud.com/all172things/omega-there-is-no-tomorrow-premiere?in=all172things/sets/o-mega-there-is-no-tomorrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IikAwUCd5JpXUeC0-1h80yw-t500x500.jpg">](https://soundcloud.com/djbrunofurlan/bruno-furlan-the-rhytm)
 
-**Artist**: All172Things 
+**Artist**: Bruno Furlan 
 
-**Track**: O/MEGA - There Is No Tomorrow [Premiere]
+**Track**: Bruno Furlan - The Rhytm
 
-Last updated at 05/10/2023 06:41
+Last updated at 05/10/2023 06:42
