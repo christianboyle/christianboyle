@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PH7xVA4lRKRJBlyI-CqXnJg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc199)
 
-**Artist**: underd0g 
+**Artist**: NON STOP NXC® 
 
-**Track**: 888style w/ lustrafemme
+**Track**: NXC199 - Colbie Caillat - Fallin' For You (magnolia steele remix)
 
-Last updated at 05/09/2023 20:15
+Last updated at 05/09/2023 20:18
