@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KifE3MtEPhfTZs4S-6zyBzg-t500x500.jpg">](https://soundcloud.com/danlrk/energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PUE8FBunsNTLc92-Gu5pNQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youhurtme)
 
-**Artist**: Dan Larkin 
+**Artist**: NIGHTMODE 
 
-**Track**: Energy
+**Track**: Synymata - You Hurt Me (feat. Delaney Kai)
 
-Last updated at 05/10/2023 05:04
+Last updated at 05/10/2023 05:07
