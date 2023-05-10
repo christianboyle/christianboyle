@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8h8sjpctC3iFLT6T-ybFPIg-t500x500.jpg">](https://soundcloud.com/1800blkout/jendi-bel-mercy-blkout-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLBdvXpfTBGm8v2F-4XEOnQ-t500x500.jpg">](https://soundcloud.com/gradient-map/chrome-safe)
 
-**Artist**: blkout. 
+**Artist**: gradient map 
 
-**Track**: jengi - bel mercy [blkout. bootleg]
+**Track**: onlytom & bk beats - Chrome Safe
 
-Last updated at 05/09/2023 21:30
+Last updated at 05/09/2023 21:34
