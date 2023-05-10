@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-waBw2kpZGxYkZ6aN-aDIKOw-t500x500.jpg">](https://soundcloud.com/thisisluciid/rinse-repeat-luciid-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ovXVM1ZD51H6GBby-hRWFQQ-t500x500.jpg">](https://soundcloud.com/bttechno20/robotberget-miike-snow-silvia-black-traffics-techno-edit)
 
-**Artist**: Luciid 
+**Artist**: Black Traffic 
 
-**Track**: Rinse & Repeat (Luciid Edit) [FREE DL]
+**Track**: Robotberget & Miike Snow - SILVIA (Black Traffic's Techno Edit)
 
-Last updated at 05/10/2023 05:11
+Last updated at 05/10/2023 05:16
