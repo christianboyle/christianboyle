@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uWQT8pY0yEVdUnK-ynNQZQ-t500x500.jpg">](https://soundcloud.com/koastle/happy-pills-with-less-killjoy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfc8Ys5OCU9OjCKE-1jyTsA-t500x500.jpg">](https://soundcloud.com/noirsurblancrecords/malive-imagination)
 
-**Artist**: Koastle 
+**Artist**: NOIR SUR BLANC 
 
-**Track**: Happy Pills (with LESS KILLJOY)
+**Track**: Malive - Imagination
 
-Last updated at 05/10/2023 13:46
+Last updated at 05/10/2023 13:47
