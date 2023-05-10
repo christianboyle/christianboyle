@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TWS8rVyBgjThWlI3-x6ta3w-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-21-subject-xero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix)
 
-**Artist**: Hardcore Energy 
+**Artist**: Slang Dogs 
 
-**Track**: Mix Series 21 - Subject Xero
+**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
 
-Last updated at 05/10/2023 01:23
+Last updated at 05/10/2023 02:23
