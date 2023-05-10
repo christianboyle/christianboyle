@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ep5Lmo09nfGuHJ3f-1UaVrQ-t500x500.jpg">](https://soundcloud.com/kasra-critical/kasra-x-visla-azure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDScMjlnsyGBRtel-syv2KQ-t500x500.jpg">](https://soundcloud.com/parallax/shy-of-death-gates-to-hell-original-mix)
 
-**Artist**: Kasra Critical 
+**Artist**: Shy Of Death 
 
-**Track**: Kasra x VISLA - Azure
+**Track**: Shy Of Death - Gates To Hell (Original Mix)
 
-Last updated at 05/10/2023 11:23
+Last updated at 05/10/2023 11:26
