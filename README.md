@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-on-ur-mind-ft-rromarin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1MMPk1zxSXkVe9BQ-YuIRzw-t500x500.jpg">](https://soundcloud.com/eduardo-arancibia-hernan/katy-perry-california-gurls)
 
-**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
+**Artist**: klk 
 
-**Track**: on ur mind (ft. rromarin)
+**Track**: Katy Perry - California Gurls (Dylan Brady remix)
 
-Last updated at 05/11/2023 12:40
+Last updated at 05/11/2023 12:43
