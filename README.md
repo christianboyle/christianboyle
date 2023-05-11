@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ixkaFyKz008z0HuF-qTWd5A-t500x500.jpg">](https://soundcloud.com/causalchainclub/xen-model-ripstream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfgaGCl11piNAz18-vPxEPw-t500x500.jpg">](https://soundcloud.com/djaxe-sweden/be-your-friend-hardstyle-remix)
 
-**Artist**: Causal Chain 
+**Artist**: DJ Axe 
 
-**Track**: Xen Model - Ripstream
+**Track**: Be Your Friend [Hardstyle Remix]
 
-Last updated at 05/11/2023 15:03
+Last updated at 05/11/2023 15:07
