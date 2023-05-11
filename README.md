@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
 
-**Artist**: Four Four Magazine 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
+**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
 
-Last updated at 05/11/2023 16:31
+Last updated at 05/11/2023 16:38
