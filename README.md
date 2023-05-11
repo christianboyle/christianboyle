@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PH7xVA4lRKRJBlyI-CqXnJg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc199)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: NON STOP NXC® 
 
-**Track**: dj smokey - nukeparty
+**Track**: NXC199 - Colbie Caillat - Fallin' For You (magnolia steele remix)
 
-Last updated at 05/11/2023 16:43
+Last updated at 05/11/2023 17:04
