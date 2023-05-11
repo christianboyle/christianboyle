@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cHjas6FFTkS0bFSs-byEEdg-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/howard-jones-things-can-only-get-better-thred-resewn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEq2BFzCNzyM6YI0-fPHdKA-t500x500.jpg">](https://soundcloud.com/datatransmission/syran-sounds-s01e03)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: Data Transmission Radio 
 
-**Track**: Howard Jones - Things Can Only Get Better (Thred Resewn)
+**Track**: SyRan Sounds S01E03
 
-Last updated at 05/11/2023 08:11
+Last updated at 05/11/2023 08:12
