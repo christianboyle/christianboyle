@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6TyZH41LzzJ4mGc-zrkRng-t500x500.jpg">](https://soundcloud.com/vercetti-lastio/juice-wrld-lil-uzi-vert-never-told-a-lie-ai-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voh3Cfjz44palpSX-aboajQ-t500x500.jpg">](https://soundcloud.com/jadensmindsc/lil-uzi-vert-psycho-prod-by-jadens-mind)
 
-**Artist**: P6CEYYY 
+**Artist**: Jaden's Mind (@jadensmind) 
 
-**Track**: Juice WRLD & Lil Uzi Vert - Never Told A Lie (AI Song)
+**Track**: Lil Uzi Vert - Psycho (Prod. by Jaden's Mind)
 
-Last updated at 05/11/2023 17:16
+Last updated at 05/11/2023 17:19
