@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f32kWPDA2efdPu63-rn3y1A-t500x500.jpg">](https://soundcloud.com/telykast/broadkast4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZIy2nQino9PwUNd-ii7yXQ-t500x500.png">](https://soundcloud.com/critical-music/yaano-christian-dubstep)
 
-**Artist**: TELYKAST 
+**Artist**: Critical Music 
 
-**Track**: BROADKAST - Mix 04
+**Track**: YAANO - Christian Dubstep
 
-Last updated at 05/11/2023 11:35
+Last updated at 05/11/2023 12:26
