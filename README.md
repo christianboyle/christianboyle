@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzP1aCN6fHwV6VAW-vNlVyA-t500x500.jpg">](https://soundcloud.com/glistenvstheworld/what-do-you-bring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGgKt5FNHmCtAzdy-doM6QQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-the-speed)
 
-**Artist**: glisten! 
+**Artist**: Dirty Workz 
 
-**Track**: what do you bring?
+**Track**: TNT - The Speed
 
-Last updated at 05/11/2023 09:16
+Last updated at 05/11/2023 09:17
