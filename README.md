@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oecIz1dnrikd6lXs-HADS2A-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-carlo-kalu-bass-force-waxxaep003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYygfFSvYne932vc-Lj550w-t500x500.jpg">](https://soundcloud.com/coastrmusic/coastr-we-own-last-night-mashup)
 
-**Artist**: SINDEX 
+**Artist**: COASTR. 
 
-**Track**: SINDEX PREMIERE: Carlo Kalu - Bass Force [WAXXAEP004]
+**Track**: COASTR. - We Own Last Night MASHUP (Morgan Wallen X Young Bombs) // Morgan Wallen Last Night Remix
 
-Last updated at 05/11/2023 13:45
+Last updated at 05/11/2023 13:50
