@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9FGJeP2b9JjQ0MMQ-KcJlJA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/the-prodigy-voodoo-people-mrmachine-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDXnkcbb5x0SOPUT-6Ts6Kg-t500x500.jpg">](https://soundcloud.com/lookasmusic/lowa)
 
-**Artist**: NO MERCY RECORDS 
+**Artist**: Lookas 
 
-**Track**: The Prodigy - Voodoo People (Mr.Machine Edit) [Free Download]
+**Track**: LOWA
 
-Last updated at 05/11/2023 11:24
+Last updated at 05/11/2023 11:29
