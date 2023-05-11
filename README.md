@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2gzbUjg0yYNWRBa-cFFtdA-t500x500.jpg">](https://soundcloud.com/emengypodcast/episode-127-axilon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RFeUMjQimiWpCUCB-EZXgbg-t500x500.jpg">](https://soundcloud.com/dropcentral/taraa808)
 
-**Artist**: Emengy Podcast 
+**Artist**: Drop Central 💧 
 
-**Track**: Episode 127 - AXILON
+**Track**: Taraa - 808
 
-Last updated at 05/11/2023 08:13
+Last updated at 05/11/2023 08:14
