@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oEq2BFzCNzyM6YI0-fPHdKA-t500x500.jpg">](https://soundcloud.com/datatransmission/syran-sounds-s01e03)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2gzbUjg0yYNWRBa-cFFtdA-t500x500.jpg">](https://soundcloud.com/emengypodcast/episode-127-axilon)
 
-**Artist**: Data Transmission Radio 
+**Artist**: Emengy Podcast 
 
-**Track**: SyRan Sounds S01E03
+**Track**: Episode 127 - AXILON
 
-Last updated at 05/11/2023 08:12
+Last updated at 05/11/2023 08:13
