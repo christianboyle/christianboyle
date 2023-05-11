@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvyw2s85Q2XNyzI9-q6EJHA-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/caslow-sadbois-in-love-with-micah-martin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f32kWPDA2efdPu63-rn3y1A-t500x500.jpg">](https://soundcloud.com/telykast/broadkast4)
 
-**Artist**: Future Generation 
+**Artist**: TELYKAST 
 
-**Track**: Caslow & Sadbois - In Love (with Micah Martin)
+**Track**: BROADKAST - Mix 04
 
-Last updated at 05/11/2023 11:32
+Last updated at 05/11/2023 11:35
