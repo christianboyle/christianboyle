@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYTYFAhKCPSFGyoq-q3ySFQ-t500x500.jpg">](https://soundcloud.com/specialguest-dj/kiosk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ixkaFyKz008z0HuF-qTWd5A-t500x500.jpg">](https://soundcloud.com/causalchainclub/xen-model-ripstream)
 
-**Artist**: special guest DJ 
+**Artist**: Causal Chain 
 
-**Track**: 25416042023
+**Track**: Xen Model - Ripstream
 
-Last updated at 05/11/2023 14:02
+Last updated at 05/11/2023 15:03
