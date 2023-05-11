@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-awwEobcC7qcH4ibz-joTzYg-t500x500.jpg">](https://soundcloud.com/virtual-riot/promises-bootleg-but-its-the-emotional-vocals-into-choderuffneck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
 
-**Artist**: Virtual Riot 
+**Artist**: underd0g 
 
-**Track**: Promises Bootleg But Its The Emotional Vocals Into ChodeRuffneck
+**Track**: 888style w/ lustrafemme
 
-Last updated at 05/11/2023 15:14
+Last updated at 05/11/2023 15:16
