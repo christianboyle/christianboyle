@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
 
-**Artist**: underd0g 
+**Artist**: Four Four Magazine 
 
-**Track**: 888style w/ lustrafemme
+**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
 
-Last updated at 05/11/2023 17:07
+Last updated at 05/11/2023 17:13
