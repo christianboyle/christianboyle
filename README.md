@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZZXM7uFXOzNwdoN-7BmOiA-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s03e19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzP1aCN6fHwV6VAW-vNlVyA-t500x500.jpg">](https://soundcloud.com/glistenvstheworld/what-do-you-bring)
 
-**Artist**: VISION 
+**Artist**: glisten! 
 
-**Track**: VISION Radio S03E19 // Hosted by Dave Columbo Jenkins, Thys, Nikki Nair and Kelbin
+**Track**: what do you bring?
 
-Last updated at 05/11/2023 08:34
+Last updated at 05/11/2023 09:16
