@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZq2AyAyYhLNh7OR-FuwDFw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-035-remnantexe-flow-state)
 
-**Artist**: underd0g 
+**Artist**: Quality Goods Records 
 
-**Track**: 888style w/ lustrafemme
+**Track**: QGRS-035 | REMNANT.exe - Flow State
 
-Last updated at 05/11/2023 15:16
+Last updated at 05/11/2023 15:20
