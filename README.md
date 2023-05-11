@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1MMPk1zxSXkVe9BQ-YuIRzw-t500x500.jpg">](https://soundcloud.com/eduardo-arancibia-hernan/katy-perry-california-gurls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
 
-**Artist**: klk 
+**Artist**: Nabimenj 
 
-**Track**: Katy Perry - California Gurls (Dylan Brady remix)
+**Track**: JOEYY MIX
 
-Last updated at 05/11/2023 12:43
+Last updated at 05/11/2023 12:45
