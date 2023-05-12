@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkcauYu3mmWWwmm3-U47WvQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/devilboy-outselect-right-now?in=hardcoreenergy/sets/hardcore-energy-introducing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBywSCdxqphy0xA9-d0sl9g-t500x500.jpg">](https://soundcloud.com/kasra-critical/kasra-negative-space)
 
-**Artist**: Hardcore Energy 
+**Artist**: Kasra Critical 
 
-**Track**: Devilboy, Outselect - Right Now
+**Track**: Kasra - Negative Space
 
-Last updated at 05/12/2023 08:53
+Last updated at 05/12/2023 08:54
