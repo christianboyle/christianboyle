@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7BtWgeKR7XMm1gZ-G4qk8A-t500x500.jpg">](https://soundcloud.com/dollarbearmashups/black-betty-enigma-dollar-bear-mashup-ram-jam-x-riot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMNwcyPiSydhxaTY-ub8q0Q-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-sodown-i-gotta-feeling)
 
-**Artist**: Dollar Bear Mashups 
+**Artist**: Wakaan 
 
-**Track**: Black Betty Enigma (Dollar Bear Mashup) - Ram Jam x Riot
+**Track**: TVBOO, SoDown - I Gotta Feeling
 
-Last updated at 05/12/2023 08:55
+Last updated at 05/12/2023 09:02
