@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000215773478-049vxc-t500x500.jpg">](https://soundcloud.com/dream-fiend/september-87-bad-dream-baby-dream-fiend-cut)
 
-**Artist**: FIEND WORLD 
+**Artist**: Dream Fiend 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: September 87 - Bad Dream Baby (Dream Fiend Cut)
 
-Last updated at 05/13/2023 10:29
+Last updated at 05/13/2023 17:13
