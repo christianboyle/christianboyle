@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_jungle_dnb_3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
 
-**Artist**: KULA 
+**Artist**: FIEND WORLD 
 
-**Track**: KULA_Jungle_DnB_3_
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 05/12/2023 09:03
+Last updated at 05/13/2023 10:29
