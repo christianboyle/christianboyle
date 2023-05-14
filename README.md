@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/recline)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Joeyy 
 
-**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
+**Track**: ዪ𐌄𝐶ℒﺃꈤE (𝒻乇Aᴛ. ɘmɒ|Ꮈɔid & o||ɒqɒЯ) (𝑃r𝗼∂︎. iji & Gyo)
 
-Last updated at 05/13/2023 21:54
+Last updated at 05/13/2023 21:58
