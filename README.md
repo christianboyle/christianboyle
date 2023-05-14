@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osxnqnirxcRHp0iX-zhhsMA-t500x500.jpg">](https://soundcloud.com/ell1psis/off-the-roof-w-moonmanflo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lHhpD79gdGyJVbuI-JrDwHw-t500x500.jpg">](https://soundcloud.com/ayyofree/fear-dubz-impact-events?in=ayyofree/sets/fear-dubz-impact-events-1)
 
-**Artist**: ell!psis 
+**Artist**: AY YO TRIP! 
 
-**Track**: off the roof (w/ MoonManFlo)
+**Track**: FEAR DUBZ - IMPACT EVENTS
 
-Last updated at 05/13/2023 21:00
+Last updated at 05/13/2023 21:01
