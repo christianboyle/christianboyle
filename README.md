@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPu09iYmVUsDJGoy-uSc6MA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-traphouse-full-of-nukes-hosted-by-shadow-wizard-money-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000130275383-1gprxb-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-smokey-escobar-xanada-bodeine-fiendz)
 
 **Artist**: DJ SMOKEY 666 
 
-**Track**: dj smokey - traphouse full of nukes **HOSTED BY SHADOW WIZARD MONEY GANG**
+**Track**: DJ Smokey - Smokey Escobar / Xanada Bodeine Fiendz
 
-Last updated at 05/13/2023 21:26
+Last updated at 05/13/2023 21:34
