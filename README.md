@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000130275383-1gprxb-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-smokey-escobar-xanada-bodeine-fiendz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJvEVYNdjJLyhVb2-Prxh7w-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukes-are-now-legal-feat-max2k10)
 
 **Artist**: DJ SMOKEY 666 
 
-**Track**: DJ Smokey - Smokey Escobar / Xanada Bodeine Fiendz
+**Track**: dj smokey - nukes are now legal (feat. max2k10)
 
-Last updated at 05/13/2023 21:34
+Last updated at 05/13/2023 21:35
