@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JJvZWN7QtCMO2Bb-JdItJw-t500x500.jpg">](https://soundcloud.com/kumarionmusic/kumarion-x-smoakland-worth-all-the-wait-ft-jelacee?in=kumarionmusic/sets/kumarion-x-smoakland-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yoQprLc3TDDCXz2-X4bULg-t500x500.jpg">](https://soundcloud.com/motiiv/get-down-radio-edit)
 
-**Artist**: Kumarion 
+**Artist**: MOTIIV 
 
-**Track**: Kumarion X Smoakland - Worth All The Wait (ft. jELACEE)
+**Track**: Get Down (Radio Edit) [FREE DOWNLOAD]
 
-Last updated at 05/13/2023 21:05
+Last updated at 05/13/2023 21:06
