@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000552578055-ae48uh-t500x500.jpg">](https://soundcloud.com/dream-fiend/stayloose-illusions-ft-fatherdude-dream-fiend-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ic2hgB2qw4pnZTza-cKnb6w-t500x500.jpg">](https://soundcloud.com/karl-guapo/uicideboy-scope-set-l3nny-remix)
 
-**Artist**: Dream Fiend 
+**Artist**: L3NNY 
 
-**Track**: StayLoose - Illusions Ft FATHERDUDE (Dream Fiend Remix)
+**Track**: $uicideboy$ - Scope Set (L3NNY REMIX)
 
-Last updated at 05/13/2023 20:56
+Last updated at 05/13/2023 20:57
