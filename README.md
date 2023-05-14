@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000130275383-1gprxb-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-smokey-escobar-xanada-bodeine-fiendz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000390026103-e25y78-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-loud-lord-soudiere-triple-kill)
 
 **Artist**: DJ SMOKEY 666 
 
-**Track**: DJ Smokey - Smokey Escobar / Xanada Bodeine Fiendz
+**Track**: DJ Smokey, Loud Lord & Soudiere - "Triple Kill"
 
-Last updated at 05/13/2023 21:46
+Last updated at 05/13/2023 21:54
