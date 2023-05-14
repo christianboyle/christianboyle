@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55vmDR0hpSSH7MY8-NLIADg-t500x500.jpg">](https://soundcloud.com/lizdek/lizdek-bendel-away-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osxnqnirxcRHp0iX-zhhsMA-t500x500.jpg">](https://soundcloud.com/ell1psis/off-the-roof-w-moonmanflo)
 
-**Artist**: Lizdek 
+**Artist**: ell!psis 
 
-**Track**: Lizdek & Bendel - Away to You
+**Track**: off the roof (w/ MoonManFlo)
 
-Last updated at 05/13/2023 20:59
+Last updated at 05/13/2023 21:00
