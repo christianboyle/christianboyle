@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIi2pdpdpEct-0-t500x500.jpg">](https://soundcloud.com/maudelstatus/heaven-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nynDpZWuFQG5PnRm-hq1IZA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-artificial-origin)
 
-**Artist**: Maude Latour 
+**Artist**: Simplify. 
 
-**Track**: Heaven
+**Track**: Future Twist - Artificial Origin
 
-Last updated at 05/13/2023 22:03
+Last updated at 05/14/2023 08:33
