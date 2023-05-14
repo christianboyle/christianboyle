@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/SCiGGubKvzo/hqdefault.jpg">](https://www.youtube.com/watch?v=SCiGGubKvzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000215773478-049vxc-t500x500.jpg">](https://soundcloud.com/dream-fiend/september-87-bad-dream-baby-dream-fiend-cut)
 
-**Artist**: 
-  
-    Robots With Rayguns
-  
-  
-  
-    Robots With Rayguns
-  
+**Artist**: Dream Fiend 
 
+**Track**: September 87 - Bad Dream Baby (Dream Fiend Cut)
 
-
-
-
- 
-
-**Track**: Robots With Rayguns - Bedhead
-
-Last updated at 05/13/2023 17:15
+Last updated at 05/13/2023 20:53
