@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pd3ky8Dssw7vH1gM-onYmmg-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/metro-boomin-ft-future-superhero-geses-x-tucci-remix-free-download?in=edm-family-remixes/sets/metro-boomin-ft-future)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dn6xLKYmzd7nfVnS-0qDoDA-t500x500.png">](https://soundcloud.com/rinsefm/clubglow110523)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Rinse FM 
 
-**Track**: Metro Boomin ft. Future - Superhero (GESES x TUCCI Remix) [FREE DOWNLOAD] Supported by Juicy M!
+**Track**: Club Glow - 11 May 2023
 
-Last updated at 05/15/2023 14:52
+Last updated at 05/15/2023 14:53
