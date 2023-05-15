@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzVy7IBxD5WtD9Q5-75CRpw-t500x500.jpg">](https://soundcloud.com/user-972614512/1-wavy-crockett?in=user-972614512/sets/neph-crocket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mrakxCLS0DwjGfWA-veaMyA-t500x500.jpg">](https://soundcloud.com/christdillinger/tired-feat-prod-wendigohosted-by-dj-smokey)
 
-**Artist**: RXKNephew 
+**Artist**: CHRIST DILLINGER 
 
-**Track**: 1 Wavy Crockett
+**Track**: Tired feat. 𝘓𝘜𝘊𝘒𝘐 & 𝘑𝘰𝘦𝘺𝘺 (prod. WENDIGO)(Hosted By Dj Smokey)
 
-Last updated at 05/15/2023 16:09
+Last updated at 05/15/2023 16:10
