@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/public-servant?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue?in=nabimenj/sets/jjoeyy)
 
 **Artist**: Joeyy 
 
-**Track**: Public Servant (Prod. By Taylor Morgan)
+**Track**: Blue (Prod. By Juvenile Sam)
 
-Last updated at 05/15/2023 16:16
+Last updated at 05/15/2023 17:16
