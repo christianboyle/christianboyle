@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PufZVUwL5rPxOcsd-zyMtcw-t500x500.jpg">](https://soundcloud.com/alstorm/dropthedjmixnow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUgTQNyJf2vriBeE-XvSIXQ-t500x500.jpg">](https://soundcloud.com/karl-guapo/notd-am-pm-l3nny-remix)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: L3NNY 
 
-**Track**: Al Storm - Drop Everything .. and listen to this shiny new DJ Mix .. NOW
+**Track**: NOTD - AM:PM (L3NNY REMIX)
 
-Last updated at 05/14/2023 08:34
+Last updated at 05/14/2023 21:03
