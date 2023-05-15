@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRTTcqHYesW1hytL-wuVQtw-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-girl_irl-megamix)
 
-**Artist**: Four Four Magazine 
+**Artist**: hulaHOOP 
 
-**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
+**Track**: hulaHOOP.fm: girl_irl megamix
 
-Last updated at 05/14/2023 21:12
+Last updated at 05/15/2023 08:02
