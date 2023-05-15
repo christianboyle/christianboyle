@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mrakxCLS0DwjGfWA-veaMyA-t500x500.jpg">](https://soundcloud.com/christdillinger/tired-feat-prod-wendigohosted-by-dj-smokey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzSNMFzqr171d1K2-R6lLEA-t500x500.jpg">](https://soundcloud.com/jxxyy/bubblebass?in=nabimenj/sets/jjoeyy)
 
-**Artist**: CHRIST DILLINGER 
+**Artist**: Joeyy 
 
-**Track**: Tired feat. 𝘓𝘜𝘊𝘒𝘐 & 𝘑𝘰𝘦𝘺𝘺 (prod. WENDIGO)(Hosted By Dj Smokey)
+**Track**: Bubble Bass (Prod. By Chapter & Sp00)
 
-Last updated at 05/15/2023 16:10
+Last updated at 05/15/2023 16:12
