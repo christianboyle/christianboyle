@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijb3309ZBLSQh8A4-a6RhKQ-t500x500.jpg">](https://soundcloud.com/seal-network/738cantfallasleep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbRK2RzkrwnCC0Ps-ru8hfA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-110-on-beat-106?in=beat106scotland/sets/bonkers-beats-110-on-beat-106-scotland-with-daniel-seven-ziggy-x-guest-mix-rob-da-rhythm-120523)
 
-**Artist**: Seal Network 
+**Artist**: Beat 106 Scotland 
 
-**Track**: GRMZY - Can't Fall Asleep
+**Track**: Bonkers Beats #110 on Beat 106 Scotland with Daniel Seven with a Ziggy X Guest Mix 120523 (Hour 1)
 
-Last updated at 05/14/2023 21:04
+Last updated at 05/14/2023 21:05
