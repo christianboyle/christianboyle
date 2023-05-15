@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000215773478-049vxc-t500x500.jpg">](https://soundcloud.com/dream-fiend/september-87-bad-dream-baby-dream-fiend-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
 
-**Artist**: Dream Fiend 
+**Artist**: Four Four Magazine 
 
-**Track**: September 87 - Bad Dream Baby (Dream Fiend Cut)
+**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
 
-Last updated at 05/14/2023 21:07
+Last updated at 05/14/2023 21:12
