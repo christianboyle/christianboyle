@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUgTQNyJf2vriBeE-XvSIXQ-t500x500.jpg">](https://soundcloud.com/karl-guapo/notd-am-pm-l3nny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijb3309ZBLSQh8A4-a6RhKQ-t500x500.jpg">](https://soundcloud.com/seal-network/738cantfallasleep)
 
-**Artist**: L3NNY 
+**Artist**: Seal Network 
 
-**Track**: NOTD - AM:PM (L3NNY REMIX)
+**Track**: GRMZY - Can't Fall Asleep
 
-Last updated at 05/14/2023 21:03
+Last updated at 05/14/2023 21:04
