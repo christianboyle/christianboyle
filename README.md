@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OwYt4nwc4PxFyXYY-uw4nzw-t500x500.jpg">](https://soundcloud.com/scantraxx/eternate-x-keku-ft-angel-cannon-all-i-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bJy8wbSMXwXdMq0d-4EV2yQ-t500x500.jpg">](https://soundcloud.com/dj-2-b-happy/2b-happy-dedicated2thehardcoreravers2)
 
-**Artist**: Scantraxx 
+**Artist**: 2b Happy (Scarred Digital & SSU Recordings) 
 
-**Track**: Eternate x KEKU ft. Angel Cannon - All I Know
+**Track**: 2b Happy - Dedicated 2 The Hardcore Ravers - Chapter 2
 
-Last updated at 05/16/2023 09:22
+Last updated at 05/16/2023 09:23
