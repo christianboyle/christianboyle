@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ilEqqm6eMN1XBSx-1cOQdg-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-dreamstate-australia-2023)
 
-**Artist**: Joeyy 
+**Artist**: Ben Nicky 
 
-**Track**: Blue (Prod. By Juvenile Sam)
+**Track**: Ben Nicky Live @ Dreamstate, Australia 2023
 
-Last updated at 05/15/2023 17:16
+Last updated at 05/16/2023 06:19
