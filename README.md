@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0FteVo3rzX8L6HA-eXrwSg-t500x500.jpg">](https://soundcloud.com/reidbabbington/facebook-fatshaudi-x-lovefear-x-effective-power-h)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue?in=nabimenj/sets/jjoeyy)
 
-**Artist**: effective.power 
+**Artist**: Joeyy 
 
-**Track**: facebook (fatshaudi x lovefear x effective.  Power)
+**Track**: Blue (Prod. By Juvenile Sam)
 
-Last updated at 05/16/2023 08:20
+Last updated at 05/16/2023 08:21
