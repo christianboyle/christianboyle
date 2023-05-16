@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yap8EiWLYT1KxMtp-cjBycw-t500x500.jpg">](https://soundcloud.com/trashhtown/joeyy-marlon-dubois-karen-prod-chapter-innsmouth?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiyT1dUZDheRpzsX-G1DW4A-t500x500.jpg">](https://soundcloud.com/jxxyy/shirt?in=nabimenj/sets/jjoeyy)
 
-**Artist**: @trashhTown 
+**Artist**: Joeyy 
 
-**Track**: Joeyy & Marlon DuBois - Karen (Prod. chapter & innsmouth)#trashhTheory #TransatlanticNodAnthem
+**Track**: Shirt (Prod. By 4AM)
 
-Last updated at 05/16/2023 09:04
+Last updated at 05/16/2023 09:06
