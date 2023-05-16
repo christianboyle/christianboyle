@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDvvtvwbu2yFuy06-HLbizg-t500x500.jpg">](https://soundcloud.com/hartofalion/harto_x_joeyy_shhhunned-prodby_pentagrvm_3l00cl?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0ggGY3bg0y18pfp-Vtsegw-t500x500.jpg">](https://soundcloud.com/djphat1996/joeyy-dormez-vous-prod-rondo?in=nabimenj/sets/jjoeyy)
 
-**Artist**: ⛧ harto faLión ⛤ 
+**Artist**: DJ PHAT 
 
-**Track**: HARTO,,,JOEYY--" sHunned "--prodby--pentagrVm,,,3L00cl
+**Track**: Joeyy - Dormez-vous [Prod: Rondo]
 
-Last updated at 05/16/2023 08:44
+Last updated at 05/16/2023 08:45
