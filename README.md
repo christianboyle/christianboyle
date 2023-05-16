@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkLdfYP6zdZvlXHh-j5y9zg-t500x500.jpg">](https://soundcloud.com/marlon-dubois/pfizer-w-joeyy?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzSz1OsQmTjeHAs5-yvnS0g-t500x500.jpg">](https://soundcloud.com/realdreamcaster/10k-ft-joeyy-marlon-dubois-ricky-chix-prod-rubbishinnsmouth?in=nabimenj/sets/jjoeyy)
 
-**Artist**: Marlon DuBois 
+**Artist**: Dream Caster (woody) 
 
-**Track**: Pfizer w/ Joeyy [Prod Litothedon]
+**Track**: 10k ..*ft. Joeyy .. Marlon DuBois .. Ricky Chix ..#*(prod. Rubbish+Innsmouth)
 
-Last updated at 05/16/2023 08:52
+Last updated at 05/16/2023 09:01
