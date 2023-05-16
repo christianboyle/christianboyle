@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458887-8cca8g-t500x500.jpg">](https://soundcloud.com/jxxyy/retarded?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LsTYrQ6SpISp4Eyi-29yVMw-t500x500.jpg">](https://soundcloud.com/frerejax/joeyy-receipt?in=nabimenj/sets/jjoeyy)
 
-**Artist**: Joeyy 
+**Artist**: Frere Jax [forged] 
 
-**Track**: Retarded (Prod. By Maxxs & Ericslake)
+**Track**: Joeyy - Receipt
 
-Last updated at 05/16/2023 08:48
+Last updated at 05/16/2023 08:50
