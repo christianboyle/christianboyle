@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHlcXZznhzmXZvmJ-wn5dJA-t500x500.jpg">](https://soundcloud.com/dj_sidebar/dj-sidebar-dxdf-30min)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0FteVo3rzX8L6HA-eXrwSg-t500x500.jpg">](https://soundcloud.com/reidbabbington/facebook-fatshaudi-x-lovefear-x-effective-power-h)
 
-**Artist**: DJ SIDEBAR 
+**Artist**: effective.power 
 
-**Track**: #DXDF2021
+**Track**: facebook (fatshaudi x lovefear x effective.  Power)
 
-Last updated at 05/16/2023 08:19
+Last updated at 05/16/2023 08:20
