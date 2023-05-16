@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0ggGY3bg0y18pfp-Vtsegw-t500x500.jpg">](https://soundcloud.com/djphat1996/joeyy-dormez-vous-prod-rondo?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-51pnDHfocWiSMWzf-zrVUPA-t500x500.jpg">](https://soundcloud.com/jxxyy/from?in=nabimenj/sets/jjoeyy)
 
-**Artist**: DJ PHAT 
+**Artist**: Joeyy 
 
-**Track**: Joeyy - Dormez-vous [Prod: Rondo]
+**Track**: From (Prod. By Gyo)
 
-Last updated at 05/16/2023 08:45
+Last updated at 05/16/2023 08:47
