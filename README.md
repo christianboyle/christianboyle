@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CMvILARTE9nuhMio-qDFCwg-t500x500.jpg">](https://soundcloud.com/nghthyp/flashbang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L5hImpz3zvTrvwj4-MmXyXQ-t500x500.jpg">](https://soundcloud.com/itsmsft/inhale-exhale-msft-remix)
 
-**Artist**: NGHTHYP 
+**Artist**: msft. 
 
-**Track**: Flashbang
+**Track**: Skrillex, Aluna & Kito - Inhale Exhale (msft Remix)
 
-Last updated at 05/16/2023 09:13
+Last updated at 05/16/2023 09:15
