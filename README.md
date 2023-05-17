@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eFN2G9KkRCgrlG0U-VwlgEA-t500x500.jpg">](https://soundcloud.com/galoski/oneyoulove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
 
-**Artist**: Galoski 
+**Artist**: Joeyy 
 
-**Track**: Galoski, Scissors - One You Love
+**Track**: Fiat (Prod. By 4evr)
 
-Last updated at 05/17/2023 09:22
+Last updated at 05/17/2023 17:32
