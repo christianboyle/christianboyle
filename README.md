@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKSGODj4dgx2Qgdy-rxWONQ-t500x500.jpg">](https://soundcloud.com/umru/triplej)
 
-**Artist**: Joeyy 
+**Artist**: umru 
 
-**Track**: Fiat (Prod. By 4evr)
+**Track**: umru vs. Petal Supply ― Battle For Australia mix on triple j
 
-Last updated at 05/17/2023 17:32
+Last updated at 05/17/2023 17:34
