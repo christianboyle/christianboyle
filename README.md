@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vIyycdtsFOnqZFB4-ovfABg-t500x500.jpg">](https://soundcloud.com/akronymcollective/david-strasser-show-me-love-sport-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f3RKslAKiXdcPEfP-eRzuyg-t500x500.jpg">](https://soundcloud.com/dj-chaos-uk/visa-fly-away-chaos-remix-mp3)
 
-**Artist**: AKRONYM 
+**Artist**: DJ Chaos UK 
 
-**Track**: David Strasser - Show Me Love (Sport Mix)
+**Track**: Visa - Fly Away (Chaos Remix).mp3
 
-Last updated at 05/17/2023 09:15
+Last updated at 05/17/2023 09:16
