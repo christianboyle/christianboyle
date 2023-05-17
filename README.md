@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaOox54V5rWk2Uin-d4py3Q-t500x500.jpg">](https://soundcloud.com/raftyrmusic/flowdan-welcome-to-london-raftyr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SyYYSBDG5wdc7Bm-W09CVA-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-bia-x-timbaland-im-that-bitch-haaz-eurotrance-mix)
 
-**Artist**: raftyr 
+**Artist**: SINDEX 
 
-**Track**: Flowdan - Welcome To London (raftyr Remix)
+**Track**: SINDEX PREMIERE: Bia x Timbaland - I'm That Bitch (Haaz EuroTrance Mix)
 
-Last updated at 05/17/2023 09:18
+Last updated at 05/17/2023 09:19
