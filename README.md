@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SyYYSBDG5wdc7Bm-W09CVA-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-bia-x-timbaland-im-that-bitch-haaz-eurotrance-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eFN2G9KkRCgrlG0U-VwlgEA-t500x500.jpg">](https://soundcloud.com/galoski/oneyoulove)
 
-**Artist**: SINDEX 
+**Artist**: Galoski 
 
-**Track**: SINDEX PREMIERE: Bia x Timbaland - I'm That Bitch (Haaz EuroTrance Mix)
+**Track**: Galoski, Scissors - One You Love
 
-Last updated at 05/17/2023 09:19
+Last updated at 05/17/2023 09:22
