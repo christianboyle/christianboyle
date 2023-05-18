@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/CVUhB7_cmgw/maxresdefault.jpg">](https://www.youtube.com/watch?v=CVUhB7_cmgw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzLrGpD2arN8HDB0-XQah5w-t500x500.jpg">](https://soundcloud.com/seshmusicsc/theseshon001)
 
-**Artist**: 
-  
-    Augnos
-  
-  
-  
-    Augnos
-  
+**Artist**: SESH MUSIC ® 
 
+**Track**: THE SESHON 001 [Mixed By Ryan Ganar] - UK/Happy Hardcore
 
-
-
-
- 
-
-**Track**: Jungle & Liquid Drum & Bass Mix - Wipeout: 1997 (March 18, 2023) at The Golden Bear, Sacramento, CA
-
-Last updated at 05/18/2023 08:35
+Last updated at 05/18/2023 14:07
