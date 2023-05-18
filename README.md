@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiyT1dUZDheRpzsX-G1DW4A-t500x500.jpg">](https://soundcloud.com/jxxyy/shirt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkLdfYP6zdZvlXHh-j5y9zg-t500x500.jpg">](https://soundcloud.com/marlon-dubois/pfizer-w-joeyy)
 
-**Artist**: Joeyy 
+**Artist**: Marlon DuBois 
 
-**Track**: Shirt (Prod. By 4AM)
+**Track**: Pfizer w/ Joeyy [Prod Litothedon]
 
-Last updated at 05/18/2023 16:33
+Last updated at 05/18/2023 16:35
