@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzLrGpD2arN8HDB0-XQah5w-t500x500.jpg">](https://soundcloud.com/seshmusicsc/theseshon001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCmetdlmrsSuBmDm-XhiFUQ-t500x500.jpg">](https://soundcloud.com/w-a-production/music-producer-marketing-motivation-mindset-2)
 
-**Artist**: SESH MUSIC ® 
+**Artist**: W. A. Production® 
 
-**Track**: THE SESHON 001 [Mixed By Ryan Ganar] - UK/Happy Hardcore
+**Track**: FREE PDF: Music Producer Marketing Motivation & Mindset 2
 
-Last updated at 05/18/2023 14:07
+Last updated at 05/18/2023 14:08
