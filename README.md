@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIyn8669acEnDrqM-LR8uiw-t500x500.jpg">](https://soundcloud.com/artiikmusic/wheredowego)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat)
 
-**Artist**: ARTIIK 
+**Artist**: Joeyy 
 
-**Track**: ARTIIK - WHERE DO WE GO  [ FREE DOWNLOAD ]
+**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
 
-Last updated at 05/18/2023 14:09
+Last updated at 05/18/2023 15:45
