@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/8tlJ_jrhAdQ/hqdefault.jpg">](https://www.youtube.com/watch?v=8tlJ_jrhAdQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hHxecuyxdYliNhym-CarzHA-t500x500.jpg">](https://soundcloud.com/themothershiprecs/99punk-kresnik-burn-it-down-ft-junsu-of-tiech)
 
-**Artist**: 
-  
-    Caroline Polachek
-  
-  
-  
-    Caroline Polachek
-  
+**Artist**: The Mothership Records 
 
+**Track**: 99%PUNK & KRESNIK - BURN IT DOWN (ft. Junsu Of TieCh) [The Mothership Records & Electrostep Network]
 
-
-
-
- 
-
-**Track**: Caroline Polachek - Ocean of Tears [Umru Remix]
-
-Last updated at 05/17/2023 17:55
+Last updated at 05/18/2023 06:47
