@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEYw76oYFuDONfHH-m79JwQ-t500x500.jpg">](https://soundcloud.com/futureretrolondon/fr013)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGSDN1JTlfqvOnAb-8H89aQ-t500x500.jpg">](https://soundcloud.com/cure97/cure97-bigman)
 
-**Artist**: Future Retro London 
+**Artist**: CURE97 
 
-**Track**: FR013
+**Track**: CURE97 - DARKSIDE [PATREON EXCLUSIVE]
 
-Last updated at 05/18/2023 17:40
+Last updated at 05/18/2023 18:08
