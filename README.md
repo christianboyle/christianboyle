@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WPSXzJHdl1Voruw-twfpuw-t500x500.jpg">](https://soundcloud.com/elyjih/avalon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiyT1dUZDheRpzsX-G1DW4A-t500x500.jpg">](https://soundcloud.com/jxxyy/shirt)
 
-**Artist**: lyjah 
+**Artist**: Joeyy 
 
-**Track**: ian - avalon (whatever + brood)
+**Track**: Shirt (Prod. By 4AM)
 
-Last updated at 05/18/2023 06:48
+Last updated at 05/18/2023 06:49
