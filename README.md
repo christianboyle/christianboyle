@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3mL98KpBSBzS1zf-kziB9A-t500x500.jpg">](https://soundcloud.com/warecollective/klahrk-look-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUSWc8IL9yUTIz5M-Oe8QBw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/nexone-nxtc-dwx-copyright-free)
 
-**Artist**: WARE 
+**Artist**: Dirty Workz 
 
-**Track**: Klahrk – Look Out
+**Track**: Nexone - NXTC (DWX Copyright Free)
 
-Last updated at 05/19/2023 09:51
+Last updated at 05/19/2023 09:55
