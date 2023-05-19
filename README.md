@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cqwbuvpK84GDyuzL-5FPOpg-t500x500.jpg">](https://soundcloud.com/trisedm/damnation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkLdfYP6zdZvlXHh-j5y9zg-t500x500.jpg">](https://soundcloud.com/marlon-dubois/pfizer-w-joeyy)
 
-**Artist**: TriS 
+**Artist**: Marlon DuBois 
 
-**Track**: Damnation
+**Track**: Pfizer w/ Joeyy [Prod Litothedon]
 
-Last updated at 05/19/2023 10:12
+Last updated at 05/19/2023 12:31
