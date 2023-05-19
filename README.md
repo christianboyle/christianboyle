@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Rknpuks8BnjG2fO-FIQsFQ-t500x500.jpg">](https://soundcloud.com/w-a-production/hardstyle-hysteria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HC14XgOAOJTA4KSO-jsSUWg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/boray-get-loose-acid-reign)
 
-**Artist**: W. A. Production® 
+**Artist**: Dirty Workz 
 
-**Track**: Headhunterz / Brennan Heart Style Sounds, Kits & Serum Presets | Hardstyle Hysteria
+**Track**: Boray - Get Loose (Acid Reign)
 
-Last updated at 05/19/2023 09:43
+Last updated at 05/19/2023 09:45
