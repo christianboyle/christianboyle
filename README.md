@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000560949843-yyvemn-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/x-ray-martin-badder-others)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Rknpuks8BnjG2fO-FIQsFQ-t500x500.jpg">](https://soundcloud.com/w-a-production/hardstyle-hysteria)
 
-**Artist**: Hardcore Energy 
+**Artist**: W. A. Production® 
 
-**Track**: X - Ray - Martin Badder & OTHERS (Original Mix)
+**Track**: Headhunterz / Brennan Heart Style Sounds, Kits & Serum Presets | Hardstyle Hysteria
 
-Last updated at 05/19/2023 09:42
+Last updated at 05/19/2023 09:43
