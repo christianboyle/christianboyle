@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMFUsngEtkS0Lm50-cAL8ZQ-t500x500.jpg">](https://soundcloud.com/tsu_nami/yours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cqwbuvpK84GDyuzL-5FPOpg-t500x500.jpg">](https://soundcloud.com/trisedm/damnation)
 
-**Artist**: TSU NAMI 
+**Artist**: TriS 
 
-**Track**: Tsu Nami & gudfella - Yours
+**Track**: Damnation
 
-Last updated at 05/19/2023 10:11
+Last updated at 05/19/2023 10:12
