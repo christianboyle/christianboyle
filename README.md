@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYQIhsg1bHKBe7Za-R9pUEA-t500x500.jpg">](https://soundcloud.com/daniel7official/inthedarkness-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCbQXlMYk3gFCZYP-W4n52A-t500x500.jpg">](https://soundcloud.com/audiobambino/digital-love)
 
-**Artist**: Daniel Seven 
+**Artist**: audio bambino 
 
-**Track**: Alaguan - In The Darkness (Daniel Seven Remix)
+**Track**: Digital Love
 
-Last updated at 05/18/2023 18:09
+Last updated at 05/19/2023 09:41
