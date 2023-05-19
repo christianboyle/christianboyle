@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MMeLny6yJWyKJqX-zwdKHg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/flyingsaucier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fK25vXy5VxXRmSok-lme0ag-t500x500.jpg">](https://soundcloud.com/officialdrumad/des-mcmahon-hard-truth-des-mcmahon-music-premiere)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Drumad 
 
-**Track**: Psyoptic & Rekka Wubz - Flying Saucier
+**Track**: Des McMahon - Hard Truth [Des McMahon Music] PREMIERE
 
-Last updated at 05/19/2023 10:02
+Last updated at 05/19/2023 10:04
