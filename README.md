@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zt2dWU0NmI0zIqyA-HCvjPg-t500x500.jpg">](https://soundcloud.com/lunyiam/danza-kuduro-dj-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HUw46huVUV1CxDoz-TVySbA-t500x500.jpg">](https://soundcloud.com/blvxmusic/dropit?in=blvxmusic/sets/blvx-drop-it)
 
-**Artist**: LUNY 
+**Artist**: BLVX 
 
-**Track**: DANZA KUDURO (dj tool)
+**Track**: DROP IT
 
-Last updated at 05/20/2023 08:27
+Last updated at 05/20/2023 08:28
