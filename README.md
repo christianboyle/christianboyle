@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e97w2yZYq1ve0zJd-njjEvQ-t500x500.jpg">](https://soundcloud.com/twerknation28/we-so-proud-of-himwhat-i-got-on-jersey-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zt2dWU0NmI0zIqyA-HCvjPg-t500x500.jpg">](https://soundcloud.com/lunyiam/danza-kuduro-dj-tool)
 
-**Artist**: TwerkNation28 
+**Artist**: LUNY 
 
-**Track**: LKTheProducer "We So Proud Of Him/What I Got On Jersey Club" @prodlk
+**Track**: DANZA KUDURO (dj tool)
 
-Last updated at 05/20/2023 08:26
+Last updated at 05/20/2023 08:27
