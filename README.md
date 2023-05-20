@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/SSsmKkFSZnA/maxresdefault.jpg">](https://www.youtube.com/watch?v=SSsmKkFSZnA)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/-OO9LloDSJo/hqdefault.jpg">](https://www.youtube.com/watch?v=-OO9LloDSJo)
 
 **Artist**: 
   
-    brakence
+    howardjonesmusic
   
   
   
-    brakence
+    howardjonesmusic
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: brakence - caffeine (official video)
+**Track**: Howard Jones - Things Can Only Get Better
 
-Last updated at 05/20/2023 10:23
+Last updated at 05/20/2023 10:58
