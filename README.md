@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GuQwiznIHy1zCYZu-sIogbA-t500x500.jpg">](https://soundcloud.com/cartinez3/daydreamz-mix-vol-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H9xUkoQ0CJH2pf2w-LIhHng-t500x500.jpg">](https://soundcloud.com/dndrecs/cheery-o-wrong-number-extended-mix-master-3?in=cheery-o/sets/cheery-o-wrong-number)
 
-**Artist**: Cartinez 
+**Artist**: DND RECS 
 
-**Track**: Daydreamz Mix Vol V
+**Track**: Cheery - O - Wrong Number
 
-Last updated at 05/20/2023 10:14
+Last updated at 05/20/2023 10:21
