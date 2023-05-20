@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/-OO9LloDSJo/hqdefault.jpg">](https://www.youtube.com/watch?v=-OO9LloDSJo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qq3fzDjTXndHzuQh-skSoAA-t500x500.jpg">](https://soundcloud.com/cleiorecords/shutdown-never-be-the-same-radio-edit)
 
-**Artist**: 
-  
-    howardjonesmusic
-  
-  
-  
-    howardjonesmusic
-  
+**Artist**: CLEIO RECORDS 
 
+**Track**: SHUTDOWN - Never Be The Same (radio Edit)
 
-
-
-
- 
-
-**Track**: Howard Jones - Things Can Only Get Better
-
-Last updated at 05/20/2023 08:29
+Last updated at 05/20/2023 10:03
