@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/-OO9LloDSJo/hqdefault.jpg">](https://www.youtube.com/watch?v=-OO9LloDSJo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xYh3vECDQzO2l73N-fyNDyQ-t500x500.jpg">](https://soundcloud.com/teamwrkrecords/eduard-luli-not-enough)
 
-**Artist**: 
-  
-    howardjonesmusic
-  
-  
-  
-    howardjonesmusic
-  
+**Artist**: Teamwrk Records 
 
+**Track**: Eduard Luli - Not Enough
 
-
-
-
- 
-
-**Track**: Howard Jones - Things Can Only Get Better
-
-Last updated at 05/20/2023 10:58
+Last updated at 05/20/2023 12:44
