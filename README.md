@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HUw46huVUV1CxDoz-TVySbA-t500x500.jpg">](https://soundcloud.com/blvxmusic/dropit?in=blvxmusic/sets/blvx-drop-it)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/-OO9LloDSJo/hqdefault.jpg">](https://www.youtube.com/watch?v=-OO9LloDSJo)
 
-**Artist**: BLVX 
+**Artist**: 
+  
+    howardjonesmusic
+  
+  
+  
+    howardjonesmusic
+  
 
-**Track**: DROP IT
 
-Last updated at 05/20/2023 08:28
+
+
+
+ 
+
+**Track**: Howard Jones - Things Can Only Get Better
+
+Last updated at 05/20/2023 08:29
