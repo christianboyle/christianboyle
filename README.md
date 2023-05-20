@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYzEPQNoGzBjk6RH-bhrRAw-t500x500.jpg">](https://soundcloud.com/lqn0vul8niy8/safmusic-abyss-pain-featasstoro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAFHWbGVGZelfu15-8Xhwgg-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-fourteen-dj-fart-in-the-club-imaginary-friend)
 
-**Artist**: バビフェス実行委員会 
+**Artist**: Animalia 
 
-**Track**: safmusic - abyss pain (feat.asstoro)
+**Track**: ani/live Fourteen: DJ Fart in the Club @ Imaginary Friend
 
-Last updated at 05/20/2023 10:08
+Last updated at 05/20/2023 10:09
