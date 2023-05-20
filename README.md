@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VlI6ZPQzeEVUBu6A-eeszuw-t500x500.jpg">](https://soundcloud.com/playmerecords/ceptre-rapt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vSFcxSpiSz7BkvVx-HEyQZg-t500x500.jpg">](https://soundcloud.com/simplifyrecs/rimen-steel-arms-feat-nomeli-mykool-remix)
 
-**Artist**: Play Me Records 
+**Artist**: Simplify. 
 
-**Track**: Ceptre - Rapt
+**Track**: Rimen - Steel Arms (feat. Nomeli) (MYKOOL Remix)
 
-Last updated at 05/20/2023 10:12
+Last updated at 05/20/2023 10:13
