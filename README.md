@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vSFcxSpiSz7BkvVx-HEyQZg-t500x500.jpg">](https://soundcloud.com/simplifyrecs/rimen-steel-arms-feat-nomeli-mykool-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GuQwiznIHy1zCYZu-sIogbA-t500x500.jpg">](https://soundcloud.com/cartinez3/daydreamz-mix-vol-v)
 
-**Artist**: Simplify. 
+**Artist**: Cartinez 
 
-**Track**: Rimen - Steel Arms (feat. Nomeli) (MYKOOL Remix)
+**Track**: Daydreamz Mix Vol V
 
-Last updated at 05/20/2023 10:13
+Last updated at 05/20/2023 10:14
