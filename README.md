@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vc13yBFnqcYqTUdU-BRm0yg-t500x500.jpg">](https://soundcloud.com/boltingbits/premiere-endless-mow-romance-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nynDpZWuFQG5PnRm-hq1IZA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-artificial-origin)
 
-**Artist**: Bolting Bits 
+**Artist**: Simplify. 
 
-**Track**: PREMIERE: Endless Mow - Romance me
+**Track**: Future Twist - Artificial Origin
 
-Last updated at 05/21/2023 09:25
+Last updated at 05/21/2023 09:26
