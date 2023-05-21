@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCji3idYZvvXrCxR-Z1wYSw-t500x500.jpg">](https://soundcloud.com/lstcntrlofficial/jhayco-x-quevedo-x-edward-maya-mami-chula-x-stereo-love-lst-cntrl-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzErwK6dP4bP268B-HJdT4w-t500x500.jpg">](https://soundcloud.com/user-170742083-923187331/jay-g-lights-go-down-coming-soon)
 
-**Artist**: LST CNTRL 
+**Artist**: Hard To The Core 
 
-**Track**: Jhayco X Quevedo X Edward Maya - Mami Chula X Stereo Love (LST CNTRL Mashup)
+**Track**: Jay G Lights Go Down (out now)
 
-Last updated at 05/20/2023 19:47
+Last updated at 05/21/2023 09:24
