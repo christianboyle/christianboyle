@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzErwK6dP4bP268B-HJdT4w-t500x500.jpg">](https://soundcloud.com/user-170742083-923187331/jay-g-lights-go-down-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vc13yBFnqcYqTUdU-BRm0yg-t500x500.jpg">](https://soundcloud.com/boltingbits/premiere-endless-mow-romance-me)
 
-**Artist**: Hard To The Core 
+**Artist**: Bolting Bits 
 
-**Track**: Jay G Lights Go Down (out now)
+**Track**: PREMIERE: Endless Mow - Romance me
 
-Last updated at 05/21/2023 09:24
+Last updated at 05/21/2023 09:25
