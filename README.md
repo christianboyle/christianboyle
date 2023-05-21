@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tao9AZmINxiEYXra-N3RTlQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-friz-of-soul-arise-od005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nynDpZWuFQG5PnRm-hq1IZA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-artificial-origin)
 
-**Artist**: HATE 
+**Artist**: Simplify. 
 
-**Track**: Premiere: Friz of Soul - Arise [OD005]
+**Track**: Future Twist - Artificial Origin
 
-Last updated at 05/20/2023 19:45
+Last updated at 05/20/2023 19:46
