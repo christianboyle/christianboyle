@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nynDpZWuFQG5PnRm-hq1IZA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-artificial-origin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-crZ0Ydya1mhhWzTy-qKGjNg-t500x500.jpg">](https://soundcloud.com/nullsect/nowave-stop-playin)
 
-**Artist**: Simplify. 
+**Artist**: NULLSECT 
 
-**Track**: Future Twist - Artificial Origin
+**Track**: NOWAVE - STOP PLAYIN
 
-Last updated at 05/21/2023 09:26
+Last updated at 05/21/2023 09:27
