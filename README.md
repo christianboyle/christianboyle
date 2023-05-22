@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQNsEmoefQyrTAer-KibySg-t500x500.jpg">](https://soundcloud.com/thelotradio/ghostly-with-nick-leon-the-lot-radio-04-17-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AeVCBXozdztIzvq4-9sDAwg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms85-dan-larkin)
 
-**Artist**: The Lot Radio 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Ghostly with Nick León @ The Lot Radio 04-17-2023
+**Track**: HPHF MS85 : DAN LARKIN
 
-Last updated at 05/22/2023 12:54
+Last updated at 05/22/2023 13:30
