@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzJOzA0U9NZNSb9X-OfpWiw-t500x500.jpg">](https://soundcloud.com/jxxyy/rudy-tabootie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQNsEmoefQyrTAer-KibySg-t500x500.jpg">](https://soundcloud.com/thelotradio/ghostly-with-nick-leon-the-lot-radio-04-17-2023)
 
-**Artist**: Joeyy 
+**Artist**: The Lot Radio 
 
-**Track**: Rudy Tabootie (Prod. By Eera & Gyo)
+**Track**: Ghostly with Nick León @ The Lot Radio 04-17-2023
 
-Last updated at 05/22/2023 12:24
+Last updated at 05/22/2023 12:54
