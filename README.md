@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RgV6IALfnX40bIQ4-wOpZ3Q-t500x500.jpg">](https://soundcloud.com/trapicalmusic/living-life-in-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ibaupcfbOyGYX6M-wi0tKg-t500x500.jpg">](https://soundcloud.com/circuselectric/renn-x-avello-x-kindred-never-you)
 
-**Artist**: Trapical Music 
+**Artist**: Circus Electric 
 
-**Track**: Wazad - Living Life, In The Night (ft. Manon & Andrew Mikhail)
+**Track**: RENN X AVELLO x Kindred - Never You
 
-Last updated at 05/22/2023 10:27
+Last updated at 05/22/2023 10:29
