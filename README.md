@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PB0nKSTNXiGN0mQd-bJqrHw-t500x500.jpg">](https://soundcloud.com/project-x-997596536/rrodney-x-mcvertt-imma-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OhEi0NAFXeLswpsU-S7zQyg-t500x500.jpg">](https://soundcloud.com/itslostindreams/twerl-escape?in=itslostindreams/sets/gateway-vol-4)
 
-**Artist**: Project X 
+**Artist**: Lost In Dreams 
 
-**Track**: Imma Be - @rrodney x @mcvertt -  #px #jerseyclub
+**Track**: TWERL - Escape
 
-Last updated at 05/22/2023 17:25
+Last updated at 05/22/2023 18:38
