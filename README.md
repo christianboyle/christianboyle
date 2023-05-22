@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGgKt5FNHmCtAzdy-doM6QQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-the-speed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZHSo2GhbPzGDgJD-gmU32w-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-aeron-xtc-taint-trinity-free-download)
 
-**Artist**: Dirty Workz 
+**Artist**: Four Four Magazine 
 
-**Track**: TNT - The Speed
+**Track**: Four Four Premiere: Aeron XTC & Taint -  Trinity [Free Download]
 
-Last updated at 05/22/2023 11:00
+Last updated at 05/22/2023 11:03
