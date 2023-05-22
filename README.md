@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skgeRk36leLS6pc6-bDSyIg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-111-on-beat-106)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/yU4yrbUQYlU/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGBcgTih_MA8=&rs=AOn4CLAduuCQBJ8e2aHVFLP-b6pWCyNh8A">](https://www.youtube.com/watch?v=yU4yrbUQYlU)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 
+  
+    Tiësto
+  
+  
+  
+    Tiësto
+  
 
-**Track**: Bonkers Beats #111 on Beat 106 Scotland with Kaylene Sc@r [Technikore Guest Mix] 190523 (Hour 2)
 
-Last updated at 05/22/2023 09:26
+
+
+
+ 
+
+**Track**: Tiësto - Live from EDC Las Vegas 2023
+
+Last updated at 05/22/2023 09:51
