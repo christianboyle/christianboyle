@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b9JZjq8BmjY4gli0-Qinhqw-t500x500.jpg">](https://soundcloud.com/concentratesdub/concentrates-serious-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PB0nKSTNXiGN0mQd-bJqrHw-t500x500.jpg">](https://soundcloud.com/project-x-997596536/rrodney-x-mcvertt-imma-be)
 
-**Artist**: CONCENTRATES 
+**Artist**: Project X 
 
-**Track**: CONCENTRATES -  SERIOUS 6
+**Track**: Imma Be - @rrodney x @mcvertt -  #px #jerseyclub
 
-Last updated at 05/22/2023 17:24
+Last updated at 05/22/2023 17:25
