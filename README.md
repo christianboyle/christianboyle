@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ibaupcfbOyGYX6M-wi0tKg-t500x500.jpg">](https://soundcloud.com/circuselectric/renn-x-avello-x-kindred-never-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GjufgJB7Fxgcf1xm-lZpd9A-t500x500.jpg">](https://soundcloud.com/manifestdnb/10xx-lurk)
 
-**Artist**: Circus Electric 
+**Artist**: Manifest 
 
-**Track**: RENN X AVELLO x Kindred - Never You
+**Track**: 10xx - Lurk
 
-Last updated at 05/22/2023 10:29
+Last updated at 05/22/2023 10:33
