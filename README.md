@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6TyZH41LzzJ4mGc-zrkRng-t500x500.jpg">](https://soundcloud.com/vercetti-lastio/juice-wrld-lil-uzi-vert-never-told-a-lie-ai-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYP4h6tuRsvvMgHf-kdpbkw-t500x500.jpg">](https://soundcloud.com/donatachi/donatachi-on-ur-mind-ft-rromarin-1)
 
-**Artist**: P6CEYYY 
+**Artist**: ✧･ﾟ:･*donatachi*:･･ﾟ✧ 
 
-**Track**: Juice WRLD & Lil Uzi Vert - Never Told A Lie (AI Song)
+**Track**: on ur mind (ft. rromarin)
 
-Last updated at 05/22/2023 11:09
+Last updated at 05/22/2023 11:11
