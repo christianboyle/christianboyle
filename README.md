@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skgeRk36leLS6pc6-bDSyIg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-111-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RgV6IALfnX40bIQ4-wOpZ3Q-t500x500.jpg">](https://soundcloud.com/trapicalmusic/living-life-in-the-night)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Trapical Music 
 
-**Track**: Bonkers Beats #111 on Beat 106 Scotland with Kaylene Sc@r [Technikore Guest Mix] 190523 (Hour 2)
+**Track**: Wazad - Living Life, In The Night (ft. Manon & Andrew Mikhail)
 
-Last updated at 05/22/2023 10:22
+Last updated at 05/22/2023 10:27
