@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBmy4YqD5p5uk5hq-FI2K0A-t500x500.jpg">](https://soundcloud.com/kaspergem/jester)
 
-**Artist**: Joeyy 
+**Artist**: kasper gem 
 
-**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
+**Track**: Jester feat. Joeyy (Kacie & Felix)
 
-Last updated at 05/23/2023 16:27
+Last updated at 05/23/2023 16:29
