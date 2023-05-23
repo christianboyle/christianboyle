@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyBo0c5Mds9vlYck-BxH6lg-t500x500.jpg">](https://soundcloud.com/vanillaguerillaz/banana-clip-mixtape-free-edit-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPpKp0GgHHtWWuvF-EPhMyA-t500x500.jpg">](https://soundcloud.com/beyondrepairr/beyond-repair-x-gladiatorz-goated-free-dl)
 
-**Artist**: Vanilla Guerillaz 
+**Artist**: BEYOND REPAIR 
 
-**Track**: Banana Clip Mixtape [FREE EDIT PACK]
+**Track**: Beyond Repair X Gladiatorz - Goated (FREE DL)
 
-Last updated at 05/22/2023 18:40
+Last updated at 05/22/2023 20:03
