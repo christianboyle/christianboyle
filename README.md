@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePNwYdrnPKKeuapM-Es0x6Q-t500x500.jpg">](https://soundcloud.com/bo0tyleak/nsb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w26hMiFK9dp77mRW-MUf79g-t500x500.jpg">](https://soundcloud.com/twerknation28/djgayleinkmoaning-x-wait-for-a-minute)
 
-**Artist**: BOOTY LEAK 
+**Artist**: TwerkNation28 
 
-**Track**: GRHHH + Booty Leak & Margad - Not So Bad [ FREE DOWNLOAD ]
+**Track**: @djgayleinkmoaning x Wait For A Minute
 
-Last updated at 05/23/2023 07:21
+Last updated at 05/23/2023 07:22
