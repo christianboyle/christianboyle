@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vIyycdtsFOnqZFB4-ovfABg-t500x500.jpg">](https://soundcloud.com/akronymcollective/david-strasser-show-me-love-sport-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CMvILARTE9nuhMio-qDFCwg-t500x500.jpg">](https://soundcloud.com/nghthyp/flashbang)
 
-**Artist**: AKRONYM 
+**Artist**: NGHTHYP 
 
-**Track**: David Strasser - Show Me Love (Sport Mix)
+**Track**: Flashbang
 
-Last updated at 05/23/2023 08:33
+Last updated at 05/23/2023 08:39
