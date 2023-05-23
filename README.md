@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZq0yszBzf0wRXY1-53SOsg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/talon-what-we-do-wolf-clan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O8t1xYRjwTmjFfFm-LYdLyg-t500x500.jpg">](https://soundcloud.com/edm-family-ultra-2018/galantis-live-edc-2023-las-vegas-day1)
 
-**Artist**: Dirty Workz 
+**Artist**: EDM FAMILY Live Sets 
 
-**Track**: TALON - What We Do (Wolf Clan)
+**Track**: Galantis - Live @ EDC 2023 (Las Vegas) #Day1
 
-Last updated at 05/23/2023 07:18
+Last updated at 05/23/2023 07:19
