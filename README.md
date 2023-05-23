@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNB9iKLg6pSuyO5j-QQEsLw-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/sweetshop?in=welovetunamelt/sets/sweetshop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nUSG3tyyJBsxvbT1-c48p6Q-t500x500.jpg">](https://soundcloud.com/welovetunamelt/showcasemix2023)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: Tuna Melt 
 
-**Track**: Doctor P - Sweet Shop (Tuna Melt Remix)
+**Track**: Tuna Melt | 2023 Showcase Mix
 
-Last updated at 05/23/2023 17:04
+Last updated at 05/23/2023 17:07
