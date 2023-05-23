@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ilEqqm6eMN1XBSx-1cOQdg-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-dreamstate-australia-2023)
 
-**Artist**: Joeyy 
+**Artist**: Ben Nicky 
 
-**Track**: Fiat (Prod. By 4evr)
+**Track**: Ben Nicky Live @ Dreamstate, Australia 2023
 
-Last updated at 05/23/2023 08:46
+Last updated at 05/23/2023 08:49
