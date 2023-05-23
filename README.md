@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000095119078-jlbz3l-t500x500.jpg">](https://soundcloud.com/ninjaerx/the-prodigy-voodoo-people)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/WY87o9IZXWg/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AH-AoACoAKKAgwIABABGEogLCh_MA8=&rs=AOn4CLBp8xTaK64mwTmgo6o5uzfqMXeB6Q">](https://www.youtube.com/watch?v=WY87o9IZXWg)
 
-**Artist**: Ninja'Erx 
+**Artist**: 
+  
+    The Prodigy
+  
+  
+  
+    The Prodigy
+  
 
-**Track**: The Prodigy Voodoo People Pendulum Remix (HQ)
 
-Last updated at 05/23/2023 17:14
+
+
+
+ 
+
+**Track**: The Prodigy - Everybody In The Place (Official Video)
+
+Last updated at 05/23/2023 17:16
