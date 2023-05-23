@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZq0yszBzf0wRXY1-53SOsg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/talon-what-we-do-wolf-clan)
 
-**Artist**: Nabimenj 
+**Artist**: Dirty Workz 
 
-**Track**: JOEYY MIX
+**Track**: TALON - What We Do (Wolf Clan)
 
-Last updated at 05/22/2023 20:50
+Last updated at 05/23/2023 07:18
