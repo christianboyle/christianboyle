@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNB9iKLg6pSuyO5j-QQEsLw-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/sweetshop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sAjUNXjdvlHQNOi-Ujv2hg-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/lastnight?in=welovetunamelt/sets/lastnight)
 
 **Artist**: Reheated By Tuna Melt 
 
-**Track**: Doctor P - Sweet Shop (Tuna Melt Remix)
+**Track**: Morgan Wallen - Last Night (Tuna Melt Remix) [Radio Mix]
 
-Last updated at 05/23/2023 16:55
+Last updated at 05/23/2023 16:56
