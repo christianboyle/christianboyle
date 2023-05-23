@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiyT1dUZDheRpzsX-G1DW4A-t500x500.jpg">](https://soundcloud.com/jxxyy/shirt)
 
 **Artist**: Joeyy 
 
-**Track**: Fiat (Prod. By 4evr)
+**Track**: Shirt (Prod. By 4AM)
 
-Last updated at 05/22/2023 20:18
+Last updated at 05/22/2023 20:24
