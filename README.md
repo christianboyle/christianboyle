@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEYw76oYFuDONfHH-m79JwQ-t500x500.jpg">](https://soundcloud.com/futureretrolondon/fr013)
 
-**Artist**: Joeyy 
+**Artist**: Future Retro London 
 
-**Track**: Blue (Prod. By Juvenile Sam)
+**Track**: FR013
 
-Last updated at 05/23/2023 08:23
+Last updated at 05/23/2023 08:26
