@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sAjUNXjdvlHQNOi-Ujv2hg-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/lastnight?in=welovetunamelt/sets/lastnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhF89QTxUW4teuAX-LdxaLQ-t500x500.jpg">](https://soundcloud.com/basscvlt/puffpuffpass?in=welovetunamelt/sets/puffpuffpass)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: BASSCVLT 
 
-**Track**: Morgan Wallen - Last Night (Tuna Melt Remix) [Radio Mix]
+**Track**: Tuna Melt - Puff Puff Pass
 
-Last updated at 05/23/2023 16:56
+Last updated at 05/23/2023 17:00
