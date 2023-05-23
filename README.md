@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nynDpZWuFQG5PnRm-hq1IZA-t500x500.jpg">](https://soundcloud.com/simplifyrecs/future-twist-artificial-origin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNB9iKLg6pSuyO5j-QQEsLw-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/sweetshop)
 
-**Artist**: Simplify. 
+**Artist**: Reheated By Tuna Melt 
 
-**Track**: Future Twist - Artificial Origin
+**Track**: Doctor P - Sweet Shop (Tuna Melt Remix)
 
-Last updated at 05/23/2023 16:54
+Last updated at 05/23/2023 16:55
