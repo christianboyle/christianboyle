@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUEBunFnO1dCqfaX-KVmhKw-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/music-kuts-podcast-2-fracus-darwin-may-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeq6MXw3uhO1BGM8-PRdnUA-t500x500.jpg">](https://soundcloud.com/edm-family-ultra-2018/giuseppe-ottaviani-live-edc-2023-las-vegas-day2)
 
-**Artist**: Fracus & Darwin 
+**Artist**: EDM FAMILY Live Sets 
 
-**Track**: Music Kuts Podcast 2 - Fracus & Darwin (May 2023)
+**Track**: Giuseppe Ottaviani - Live @ EDC 2023 (Las Vegas) #Day2
 
-Last updated at 05/23/2023 19:46
+Last updated at 05/24/2023 07:21
