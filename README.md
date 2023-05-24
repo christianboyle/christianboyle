@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkcauYu3mmWWwmm3-U47WvQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/loopcrashing-burning-original?in=hardcoreenergy/sets/hardcore-energy-introducing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkcauYu3mmWWwmm3-U47WvQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/philo-take-me-away?in=hardcoreenergy/sets/hardcore-energy-introducing)
 
 **Artist**: Hardcore Energy 
 
-**Track**: Loopcrashing - Burning (original Mix)
+**Track**: Philo - Take Me Away
 
-Last updated at 05/24/2023 09:58
+Last updated at 05/24/2023 10:02
