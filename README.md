@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PufZVUwL5rPxOcsd-zyMtcw-t500x500.jpg">](https://soundcloud.com/alstorm/dropthedjmixnow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUEBunFnO1dCqfaX-KVmhKw-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/music-kuts-podcast-2-fracus-darwin-may-2023)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: Fracus & Darwin 
 
-**Track**: Al Storm - Drop Everything .. and listen to this shiny new DJ Mix .. NOW
+**Track**: Music Kuts Podcast 2 - Fracus & Darwin (May 2023)
 
-Last updated at 05/23/2023 17:18
+Last updated at 05/23/2023 19:46
