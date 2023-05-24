@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkcauYu3mmWWwmm3-U47WvQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/unified-dub-dee-panch-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mnNvQ5xv0lRHbpj5-gzcWxA-t500x500.jpg">](https://soundcloud.com/planetzuzy/higher-planet-zuzy)
 
-**Artist**: Hardcore Energy 
+**Artist**: PLANET ZUZY 
 
-**Track**: Unified Dub, Dee Panch - Down With Me
+**Track**: Higher
 
-Last updated at 05/24/2023 16:03
+Last updated at 05/24/2023 16:52
