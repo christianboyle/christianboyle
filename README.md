@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-stHNTzYP3ARH7zuv-9zG74Q-t500x500.jpg">](https://soundcloud.com/decky-scott/decky-scott-live-nitf-filthy-mcnastys-belfast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvNK1ETpp7UQHPiv-GiFtIg-t500x500.jpg">](https://soundcloud.com/waves_1/vvavesspring2023mix)
 
-**Artist**: Decky Scott 
+**Artist**: vvaves 
 
-**Track**: Decky Scott LIVE @ NITF, Filthy Mcnastys, Belfast
+**Track**: vvaves.Spring.2023.Mix
 
-Last updated at 05/25/2023 12:44
+Last updated at 05/25/2023 16:12
