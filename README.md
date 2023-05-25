@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/HYRo4A1D8tE/maxresdefault.jpg">](https://www.youtube.com/watch?v=HYRo4A1D8tE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tismuvUzz2c0s7eu-EODFkg-t500x500.jpg">](https://soundcloud.com/subsidia/blaize-daze-pull-up-on-me)
 
-**Artist**: 
-  
-    S3RL
-  
-  
-  
-    S3RL
-  
+**Artist**: Subsidia 
 
+**Track**: Blaize & Daze Off - Pull Up On Me
 
-
-
-
- 
-
-**Track**: Feel That Way - No Hero & S3RL ft Ella
-
-Last updated at 05/25/2023 08:08
+Last updated at 05/25/2023 08:09
