@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000239531767-58n0bv-t500x500.jpg">](https://soundcloud.com/weareallstereotypes/orbital-chime-stereotype-2017-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQV8soUaUsKTMJd2-gAY6wQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/distant006-dj-life-quantum-travel)
 
-**Artist**: Stereotype 
+**Artist**: Lobster Theremin 
 
-**Track**: Orbital - Chime (Stereotype 2018 Remake) NOW FREE DOWNLOAD
+**Track**: DISTANT006 // DJ Life - Quantum Travel
 
-Last updated at 05/25/2023 17:52
+Last updated at 05/25/2023 17:53
