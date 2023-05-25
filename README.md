@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6sxptmGXD9mThkyq-ygrAoQ-t500x500.jpg">](https://soundcloud.com/jackob-rocksonn/dj-isaac-will-atkinson-edge-on-my-face-jackob-rocksonn-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XwoTqdpJugu2-0-t500x500.png">](https://soundcloud.com/trey-pearce/stay-with-me-extended-mix)
 
-**Artist**: Jackob Rocksonn 
+**Artist**: Trey Pearce 
 
-**Track**: Dj Isaac & Will Atkinson - Edge On My Face (Jackob Rocksonn Bootleg)
+**Track**: Stay With Me (Extended Mix)
 
-Last updated at 05/25/2023 08:05
+Last updated at 05/25/2023 08:07
