@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRZQF11f1ugBPEcE-blP50A-t500x500.jpg">](https://soundcloud.com/mr_trancetive/southside-spinners-vs-milk-inc-luvstruck-on-water-mr-trancetive-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Jyt0C9mCwVrZdle-8hxvmg-t500x500.jpg">](https://soundcloud.com/bloomedm/myhero)
 
-**Artist**: Mr. Trancetive 
+**Artist**: Lofi Pet Records 
 
-**Track**: Southside Spinners vs. Milk Inc. - Luvstruck On Water (Mr. Trancetive Mashup)
+**Track**: GLowBrain & EMJayC - My Hero [Lofi Pet Records]
 
-Last updated at 05/25/2023 07:09
+Last updated at 05/25/2023 08:04
