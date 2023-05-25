@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SOzQPmporZqOqsI8-Msveyw-t500x500.jpg">](https://soundcloud.com/kinghong/meduza-everything-and-everyone-king-hong-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qnqxLAeCdgRDUoXk-M60qrQ-t500x500.jpg">](https://soundcloud.com/shortroundd/doja-hard-techno-bootleg-shortround-x-central-cee)
 
-**Artist**: king hong 
+**Artist**: ShortRound 
 
-**Track**: GENESI - Everything You Have Done (Meduza Edit)(King Hong Flip)
+**Track**: DOJA (Hard Techno Bootleg)- ShortRound x Central Cee [FREE DL]
 
-Last updated at 05/25/2023 06:59
+Last updated at 05/25/2023 07:05
