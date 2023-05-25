@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TWS8rVyBgjThWlI3-x6ta3w-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-21-subject-xero)
 
-**Artist**: A. G. Cook 
+**Artist**: Hardcore Energy 
 
-**Track**: Dream Logic
+**Track**: Mix Series 21 - Subject Xero
 
-Last updated at 05/25/2023 17:15
+Last updated at 05/25/2023 17:34
