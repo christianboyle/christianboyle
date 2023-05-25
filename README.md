@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/pret-a-porter?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynHsoImVQUyHROIy-OfOmyQ-t500x500.jpg">](https://soundcloud.com/pngdnb/odd-mob-left-to-right-persona-non-grata-remix)
 
-**Artist**: Joeyy 
+**Artist**: PERSONA NON GRATA 
 
-**Track**: 𝒫ʳᵉ̂ᵗ⁻à-ᴘℴг︎𝒕𝑒ℛ (𝑃r𝗼∂︎. iji & Gyo)
+**Track**: ODD MOB - LEFT TO RIGHT (PERSONA NON GRATA REMIX)
 
-Last updated at 05/24/2023 18:01
+Last updated at 05/25/2023 06:57
