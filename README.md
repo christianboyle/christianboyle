@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tismuvUzz2c0s7eu-EODFkg-t500x500.jpg">](https://soundcloud.com/subsidia/blaize-daze-pull-up-on-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrnXvo1zrV6q0hbV-4nbCqw-t500x500.jpg">](https://soundcloud.com/edm-family-ultra-2018/meduza-live-edc-2023-las-vegas-day1)
 
-**Artist**: Subsidia 
+**Artist**: EDM FAMILY Live Sets 
 
-**Track**: Blaize & Daze Off - Pull Up On Me
+**Track**: Meduza - Live @ EDC 2023 (Las Vegas) #Day1
 
-Last updated at 05/25/2023 08:09
+Last updated at 05/25/2023 08:10
