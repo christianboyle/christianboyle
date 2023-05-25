@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YKA3ChN5RTyiz0t-atlzWw-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-582-future-sound-corp-retrospective)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGqWURU54ysOj6FE-ziD1SA-t500x500.jpg">](https://soundcloud.com/agcook/dream-logic)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: A. G. Cook 
 
-**Track**: KTRA Episode 582: Future Sound Corp Retrospective
+**Track**: Dream Logic
 
-Last updated at 05/25/2023 17:06
+Last updated at 05/25/2023 17:15
