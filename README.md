@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QYjfyYaqWi66-0-t500x500.jpg">](https://soundcloud.com/sxmpra/cowbell-warriors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tt0P0LLQVbjrSTiX-lU976g-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/samuel-vasell-berox-got-my-heart-free-download)
 
-**Artist**: SXMPRA 
+**Artist**: EDM FAMILY 
 
-**Track**: COWBELL WARRIORS!
+**Track**: Samuel Vasell & Berox - Got My Heart [FREE DOWNLOAD]
 
-Last updated at 05/26/2023 10:48
+Last updated at 05/26/2023 10:49
