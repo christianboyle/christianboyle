@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6m1iLfAM2iVCaPLS-MLILcg-t500x500.jpg">](https://soundcloud.com/jxxyy/glitz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrDJsNCVvlLDeCfA-G6Hkyg-t500x500.jpg">](https://soundcloud.com/dj4b/last-night-4b-remix-1)
 
-**Artist**: Joeyy 
+**Artist**: 4B 
 
-**Track**: Glitz (Prod. By Rondo)
+**Track**: Last Night (4B Remix)
 
-Last updated at 05/26/2023 17:21
+Last updated at 05/26/2023 17:22
