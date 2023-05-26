@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/A1uNvJMjhEc/maxresdefault.jpg">](https://www.youtube.com/watch?v=A1uNvJMjhEc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSxDsOSbJmD0lmGT-FAZuaA-t500x500.jpg">](https://soundcloud.com/user-719841332/my-way-now-slamma)
 
-**Artist**: 
-  
-    Morgan Wallen
-  
-  
-  
-    Morgan Wallen
-  
+**Artist**: SLAMMA 
 
+**Track**: PAUL DREAMS MY WAY NOW, SLAMMA remix
 
-
-
-
- 
-
-**Track**: My live with Tito's Made To Order
-
-Last updated at 05/26/2023 17:54
+Last updated at 05/26/2023 17:55
