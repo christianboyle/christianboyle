@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYTYFAhKCPSFGyoq-q3ySFQ-t500x500.jpg">](https://soundcloud.com/specialguest-dj/kiosk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfgaGCl11piNAz18-vPxEPw-t500x500.jpg">](https://soundcloud.com/djaxe-sweden/be-your-friend-hardstyle-remix)
 
-**Artist**: special guest DJ 
+**Artist**: DJ Axe 
 
-**Track**: 25416042023
+**Track**: Be Your Friend [Hardstyle Remix]
 
-Last updated at 05/26/2023 18:01
+Last updated at 05/26/2023 18:02
