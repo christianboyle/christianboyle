@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQV8soUaUsKTMJd2-gAY6wQ-t500x500.jpg">](https://soundcloud.com/lobster-theremin/distant006-dj-life-quantum-travel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzM9oBmnvWj8AYHz-RwYiGw-t500x500.jpg">](https://soundcloud.com/bingoplayers/bingo-players-peyruis-feat-marlene-static-body)
 
-**Artist**: Lobster Theremin 
+**Artist**: Bingo Players 
 
-**Track**: DISTANT006 // DJ Life - Quantum Travel
+**Track**: Bingo Players & Peyruis Feat. Marlene - Static Body
 
-Last updated at 05/25/2023 17:53
+Last updated at 05/26/2023 10:36
