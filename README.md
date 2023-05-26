@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4DSTpIJpyyK8LBNz-KNgRFw-t500x500.jpg">](https://soundcloud.com/nabimenj/joeyy-mix)
 
-**Artist**: Joeyy 
+**Artist**: Nabimenj 
 
-**Track**: Fiat (Prod. By 4evr)
+**Track**: JOEYY MIX
 
-Last updated at 05/26/2023 17:08
+Last updated at 05/26/2023 17:10
