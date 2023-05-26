@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hc8z1rXVTgB9fyyt-pPJDaA-t500x500.jpg">](https://soundcloud.com/kingkobramusic/hell-hounds-explicit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrDJsNCVvlLDeCfA-G6Hkyg-t500x500.jpg">](https://soundcloud.com/dj4b/last-night-4b-remix-1)
 
-**Artist**: King Kobra (Official) 
+**Artist**: 4B 
 
-**Track**: HELL HOUNDS *EXPLICIT* [FREE DL]
+**Track**: Last Night (4B Remix)
 
-Last updated at 05/26/2023 10:37
+Last updated at 05/26/2023 10:38
