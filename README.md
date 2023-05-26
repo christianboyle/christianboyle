@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzM9oBmnvWj8AYHz-RwYiGw-t500x500.jpg">](https://soundcloud.com/bingoplayers/bingo-players-peyruis-feat-marlene-static-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hc8z1rXVTgB9fyyt-pPJDaA-t500x500.jpg">](https://soundcloud.com/kingkobramusic/hell-hounds-explicit-free-dl)
 
-**Artist**: Bingo Players 
+**Artist**: King Kobra (Official) 
 
-**Track**: Bingo Players & Peyruis Feat. Marlene - Static Body
+**Track**: HELL HOUNDS *EXPLICIT* [FREE DL]
 
-Last updated at 05/26/2023 10:36
+Last updated at 05/26/2023 10:37
