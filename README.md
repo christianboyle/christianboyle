@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGgKt5FNHmCtAzdy-doM6QQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-the-speed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP9PP0DNDAGkneYr-GDYScg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/klubfiller-magic)
 
-**Artist**: Dirty Workz 
+**Artist**: Klubfiller 
 
-**Track**: TNT - The Speed
+**Track**: Klubfiller - Magic
 
-Last updated at 05/26/2023 17:43
+Last updated at 05/26/2023 17:46
