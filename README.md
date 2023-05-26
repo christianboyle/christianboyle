@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrDJsNCVvlLDeCfA-G6Hkyg-t500x500.jpg">](https://soundcloud.com/dj4b/last-night-4b-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0dmXmTeVGObJFtr-Vb7eXg-t500x500.jpg">](https://soundcloud.com/k1n_music/let-em)
 
-**Artist**: 4B 
+**Artist**: K1N 
 
-**Track**: Last Night (4B Remix)
+**Track**: K1N - LET 'EM
 
-Last updated at 05/26/2023 10:38
+Last updated at 05/26/2023 10:40
