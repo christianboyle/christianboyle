@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6m1iLfAM2iVCaPLS-MLILcg-t500x500.jpg">](https://soundcloud.com/jxxyy/glitz)
 
 **Artist**: Joeyy 
 
-**Track**: Fiat (Prod. By 4evr)
+**Track**: Glitz (Prod. By Rondo)
 
-Last updated at 05/26/2023 17:19
+Last updated at 05/26/2023 17:21
