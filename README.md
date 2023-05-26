@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
 
 **Artist**: Joeyy 
 
-**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
+**Track**: Fiat (Prod. By 4evr)
 
-Last updated at 05/26/2023 17:00
+Last updated at 05/26/2023 17:08
