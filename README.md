@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkLdfYP6zdZvlXHh-j5y9zg-t500x500.jpg">](https://soundcloud.com/marlon-dubois/pfizer-w-joeyy)
 
-**Artist**: Joeyy 
+**Artist**: Marlon DuBois 
 
-**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
+**Track**: Pfizer w/ Joeyy [Prod Litothedon]
 
-Last updated at 05/26/2023 17:15
+Last updated at 05/26/2023 17:17
