@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SpBbMr5vPTa8KTfy-5FWqcA-t500x500.jpg">](https://soundcloud.com/iamwuki/wuki-lee-foss-to-be-real)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QYjfyYaqWi66-0-t500x500.jpg">](https://soundcloud.com/sxmpra/cowbell-warriors)
 
-**Artist**: wuki 
+**Artist**: SXMPRA 
 
-**Track**: Wuki & Lee Foss - To Be Real (feat. Cheryl Lynn)
+**Track**: COWBELL WARRIORS!
 
-Last updated at 05/26/2023 10:47
+Last updated at 05/26/2023 10:48
