@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/A1uNvJMjhEc/maxresdefault.jpg">](https://www.youtube.com/watch?v=A1uNvJMjhEc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6TyZH41LzzJ4mGc-zrkRng-t500x500.jpg">](https://soundcloud.com/vercetti-lastio/juice-wrld-lil-uzi-vert-never-told-a-lie-ai-song)
 
-**Artist**: 
-  
-    Morgan Wallen
-  
-  
-  
-    Morgan Wallen
-  
+**Artist**: P6CEYYY 
 
+**Track**: Juice WRLD & Lil Uzi Vert - Never Told A Lie (AI Song)
 
-
-
-
- 
-
-**Track**: My live with Tito's Made To Order
-
-Last updated at 05/26/2023 17:50
+Last updated at 05/26/2023 17:53
