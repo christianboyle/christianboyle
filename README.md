@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSxDsOSbJmD0lmGT-FAZuaA-t500x500.jpg">](https://soundcloud.com/user-719841332/my-way-now-slamma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6Zms8OgcTxXzFzG-KxOKyw-t500x500.jpg">](https://soundcloud.com/critical-music/two-for-two)
 
-**Artist**: SLAMMA 
+**Artist**: Critical Music 
 
-**Track**: PAUL DREAMS MY WAY NOW, SLAMMA remix
+**Track**: Hyroglifics & Deft - Two For Two
 
-Last updated at 05/26/2023 17:55
+Last updated at 05/26/2023 17:59
