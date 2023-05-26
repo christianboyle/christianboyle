@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfgaGCl11piNAz18-vPxEPw-t500x500.jpg">](https://soundcloud.com/djaxe-sweden/be-your-friend-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000306219405-76tw4o-t500x500.jpg">](https://soundcloud.com/dj-kutski/kutski-joey-riot-mdmamzing-ktra)
 
-**Artist**: DJ Axe 
+**Artist**: Kutski 
 
-**Track**: Be Your Friend [Hardstyle Remix]
+**Track**: Kutski & Joey Riot - MDMAmazing [KTRA] {2018}
 
-Last updated at 05/26/2023 18:02
+Last updated at 05/26/2023 18:03
