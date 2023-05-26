@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WroaZjmAbyQlk52U-ZEdaQg-t500x500.jpg">](https://soundcloud.com/s3rl/feel-that-way-no-hero-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sAjUNXjdvlHQNOi-Ujv2hg-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/lastnight)
 
-**Artist**: S3RL 
+**Artist**: Reheated By Tuna Melt 
 
-**Track**: Feel That Way - No Hero & S3RL ft Ella
+**Track**: Morgan Wallen - Last Night (Tuna Melt Remix) [Radio Mix]
 
-Last updated at 05/26/2023 16:37
+Last updated at 05/26/2023 16:38
