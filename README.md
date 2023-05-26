@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xrJ8XPKPD90X-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-colin-hennerz-going)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGgKt5FNHmCtAzdy-doM6QQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tnt-the-speed)
 
-**Artist**: OneSeventy 
+**Artist**: Dirty Workz 
 
-**Track**: Technikore & Colin Hennerz - Going Under
+**Track**: TNT - The Speed
 
-Last updated at 05/26/2023 17:39
+Last updated at 05/26/2023 17:43
