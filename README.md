@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lxWi9bhyx3zWT1l-tq7Kzg-t500x500.jpg">](https://soundcloud.com/gunfightmusic/ill-mentality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqktaw5m5EHIyxQq-TUejPA-t500x500.jpg">](https://soundcloud.com/vault_music_official/sodown-running-out-vault-remix)
 
-**Artist**: 𝗚𝘂𝗻𝗙𝗶𝗴𝗵𝘁 🔫👊 
+**Artist**: VAULT 
 
-**Track**: Ill Mentality
+**Track**: SoDown - Running Out Ft. Bailey Flores (VAULT Remix)
 
-Last updated at 05/27/2023 09:08
+Last updated at 05/27/2023 09:09
