@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000306219405-76tw4o-t500x500.jpg">](https://soundcloud.com/dj-kutski/kutski-joey-riot-mdmamzing-ktra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y82Pacw5uzSVypNg-QB6BEQ-t500x500.png">](https://soundcloud.com/sebastianbronk/gimme-that-bounce-sebastian-bronk-edit)
 
-**Artist**: Kutski 
+**Artist**: Sebastian Bronk 
 
-**Track**: Kutski & Joey Riot - MDMAmazing [KTRA] {2018}
+**Track**: Mau P - Gimme That Bounce [Sebastian Bronk Edit]
 
-Last updated at 05/26/2023 18:03
+Last updated at 05/27/2023 09:03
