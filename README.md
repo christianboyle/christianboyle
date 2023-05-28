@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6xkVzcyD7z0GeyG-3XnXng-t500x500.jpg">](https://soundcloud.com/gumgumworld/summertime-sadness-gumgum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M7jKRgVJdQlw-0-t500x500.jpg">](https://soundcloud.com/gawmmusic/king-kong)
 
-**Artist**: Gum Gum 
+**Artist**: GAWM 
 
-**Track**: Lana Del Rey - Summertime Sadness (Gum Gum Remix)
+**Track**: King Kong
 
-Last updated at 05/28/2023 08:50
+Last updated at 05/28/2023 09:21
