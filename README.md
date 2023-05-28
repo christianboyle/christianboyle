@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfRShv2eavOfN0ZL-PjZt7w-t500x500.jpg">](https://soundcloud.com/xxltechno/vizionn-parfait-high-line-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6xkVzcyD7z0GeyG-3XnXng-t500x500.jpg">](https://soundcloud.com/gumgumworld/summertime-sadness-gumgum)
 
-**Artist**: TELETECH / XXL 
+**Artist**: Gum Gum 
 
-**Track**: Vizionn & Parfait - High Line
+**Track**: Lana Del Rey - Summertime Sadness (Gum Gum Remix)
 
-Last updated at 05/27/2023 18:37
+Last updated at 05/28/2023 08:50
