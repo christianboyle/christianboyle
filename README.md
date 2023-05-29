@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqpfJSnYMynRxUj3-kiuRmw-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/takeitback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KQyoTpks3LylzQ6U-HAcdkA-t500x500.jpg">](https://soundcloud.com/tabularasarecords/04-barbie-girl-gaszia-edit)
 
-**Artist**: INF1N1TE 
+**Artist**: Tabula Rasa Records 
 
-**Track**: INF1N1TE - TAKE IT BACK (prod. PRIV X SABRR)
+**Track**: Aqua - Barbie Girl (Gaszia Edit)
 
-Last updated at 05/29/2023 17:05
+Last updated at 05/29/2023 17:20
