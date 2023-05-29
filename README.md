@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dJwOdfzBjiXkMNx8-ikbnRQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-112-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Fe26RixVNpNWGja-Nt6AAw-t500x500.jpg">](https://soundcloud.com/dvskrecords/might-be-twins-why-did-you-1)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Dusk Records 
 
-**Track**: Bonkers Beats #112 on Beat 106 Scotland with Fracus & Darwin 260525 (Hour 2)
+**Track**: Might Be Twins - Why Did You
 
-Last updated at 05/29/2023 17:50
+Last updated at 05/29/2023 18:12
