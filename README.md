@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S0QThnsFqyHjcbmW-FM0vVQ-t500x500.jpg">](https://soundcloud.com/rinsefm/scuffed-recordings-with-iandpm-wager-dannygoliger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkD1yWOWCciT1TBI-1teVYA-t500x500.jpg">](https://soundcloud.com/nickrosa/sunday-state-with-nick-rosa-ibiza-global-radio-14052023)
 
-**Artist**: Rinse FM 
+**Artist**: Nick Rosa 
 
-**Track**: Scuffed Recordings with Ian DPM, Wager & Danny Goliger - 23 May 2023
+**Track**: Sunday State with Nick Rosa @ Ibiza Global Radio 14/05/2023
 
-Last updated at 05/28/2023 09:22
+Last updated at 05/29/2023 09:32
