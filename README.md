@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgrHTqy2uipf9yjM-91WRBw-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-446)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9Z9GLmlQ9Iip2oe-zsVNEw-t500x500.jpg">](https://soundcloud.com/djbrettcooper/core-laberation-mix)
 
-**Artist**: Dj EZC 
+**Artist**: Brett Cooper 
 
-**Track**: Hardcore Will Never Die Epiosde 446
+**Track**: Core Laberation Mix download
 
-Last updated at 05/29/2023 15:00
+Last updated at 05/29/2023 15:19
