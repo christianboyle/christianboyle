@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Fe26RixVNpNWGja-Nt6AAw-t500x500.jpg">](https://soundcloud.com/dvskrecords/might-be-twins-why-did-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgrHTqy2uipf9yjM-91WRBw-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-446)
 
-**Artist**: Dusk Records 
+**Artist**: Dj EZC 
 
-**Track**: Might Be Twins - Why Did You
+**Track**: Hardcore Will Never Die Epiosde 446
 
-Last updated at 05/29/2023 18:12
+Last updated at 05/29/2023 18:24
