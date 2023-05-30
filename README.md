@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WroaZjmAbyQlk52U-ZEdaQg-t500x500.jpg">](https://soundcloud.com/s3rl/feel-that-way-no-hero-s3rl)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/46qjDJ0lLdE/maxresdefault.jpg">](https://www.youtube.com/watch?v=46qjDJ0lLdE)
 
-**Artist**: S3RL 
+**Artist**: 
+  
+    SteveVaiHimself
+  
+  
+  
+    SteveVaiHimself
+  
 
-**Track**: Feel That Way - No Hero & S3RL ft Ella
 
-Last updated at 05/30/2023 13:48
+
+
+
+ 
+
+**Track**: Steve Vai - Teeth of the Hydra (Official Music Video)
+
+Last updated at 05/30/2023 13:57
