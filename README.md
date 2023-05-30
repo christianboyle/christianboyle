@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZSoyZ2IbcaWu09I-wzUntw-t500x500.jpg">](https://soundcloud.com/thelotradio/kia-the-lot-radio-05-25-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qY5LTNY75yH5hFHM-H8gbtg-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/happyplace?in=electrostepnetwork/sets/wrlcvol2)
 
-**Artist**: The Lot Radio 
+**Artist**: Electrostep Network 
 
-**Track**: Kia @ The Lot Radio 05-25-2023
+**Track**: Ennaut - Happy Place [When Record Labels Collide Vol. 2]
 
-Last updated at 05/30/2023 08:27
+Last updated at 05/30/2023 08:28
