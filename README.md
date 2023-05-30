@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgrHTqy2uipf9yjM-91WRBw-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-epiosde-446)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F549C0FNzahyBrOp-rxhzMg-t500x500.jpg">](https://soundcloud.com/sitri-dnb/sitri-gydra-space-invaders)
 
-**Artist**: Dj EZC 
+**Artist**: Sitri 
 
-**Track**: Hardcore Will Never Die Epiosde 446
+**Track**: Sitri & Gydra - Space Invaders
 
-Last updated at 05/29/2023 18:24
+Last updated at 05/30/2023 08:21
