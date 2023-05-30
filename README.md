@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/46qjDJ0lLdE/maxresdefault.jpg">](https://www.youtube.com/watch?v=46qjDJ0lLdE)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/_owWTmmsFBI/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGF8gXyhfMA8=&rs=AOn4CLB4gbZpSwMbQ7fE7mV9qCsmJ-jigA">](https://www.youtube.com/watch?v=_owWTmmsFBI)
 
 **Artist**: 
   
-    SteveVaiHimself
+    DJ Smokey
   
   
   
-    SteveVaiHimself
+    DJ Smokey
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: Steve Vai - Teeth of the Hydra (Official Music Video)
+**Track**: DJ Smokey - Nuked Out Dance Party (Full Album Stream) *Visualizer*
 
-Last updated at 05/30/2023 13:57
+Last updated at 05/30/2023 14:05
