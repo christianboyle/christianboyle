@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfLDbXEgJxI2ouTz-1yOHjw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nuked-out-dance-party-full-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9Z9GLmlQ9Iip2oe-zsVNEw-t500x500.jpg">](https://soundcloud.com/djbrettcooper/core-laberation-mix)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Brett Cooper 
 
-**Track**: DJ Smokey - Nuked Out Dance Party (Full Album)
+**Track**: Core Laberation Mix download
 
-Last updated at 05/30/2023 14:09
+Last updated at 05/30/2023 18:57
