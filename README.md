@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F549C0FNzahyBrOp-rxhzMg-t500x500.jpg">](https://soundcloud.com/sitri-dnb/sitri-gydra-space-invaders)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jsz2vFbe1I8zSqzT-Hy1I4Q-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/accidental-spill-3)
 
-**Artist**: Sitri 
+**Artist**: kushface ☤ 
 
-**Track**: Sitri & Gydra - Space Invaders
+**Track**: ACCIDENTAL SPILL 3
 
-Last updated at 05/30/2023 13:23
+Last updated at 05/30/2023 13:27
