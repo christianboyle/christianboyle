@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/_owWTmmsFBI/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGF8gXyhfMA8=&rs=AOn4CLB4gbZpSwMbQ7fE7mV9qCsmJ-jigA">](https://www.youtube.com/watch?v=_owWTmmsFBI)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfLDbXEgJxI2ouTz-1yOHjw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nuked-out-dance-party-full-album)
 
-**Artist**: 
-  
-    DJ Smokey
-  
-  
-  
-    DJ Smokey
-  
+**Artist**: DJ SMOKEY 666 
 
+**Track**: DJ Smokey - Nuked Out Dance Party (Full Album)
 
-
-
-
- 
-
-**Track**: DJ Smokey - Nuked Out Dance Party (Full Album Stream) *Visualizer*
-
-Last updated at 05/30/2023 14:05
+Last updated at 05/30/2023 14:09
