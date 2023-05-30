@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F549C0FNzahyBrOp-rxhzMg-t500x500.jpg">](https://soundcloud.com/sitri-dnb/sitri-gydra-space-invaders)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q4bHkvymkfhKuPcg-OVPFmA-t500x500.jpg">](https://soundcloud.com/gangstahouserec/madcvzbad-reality-distortion-radio-edit)
 
-**Artist**: Sitri 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Sitri & Gydra - Space Invaders
+**Track**: MaDcvzBaD - Reality Distortion (Radio Edit)
 
-Last updated at 05/30/2023 08:21
+Last updated at 05/30/2023 08:22
