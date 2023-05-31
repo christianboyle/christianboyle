@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiyT1dUZDheRpzsX-G1DW4A-t500x500.jpg">](https://soundcloud.com/jxxyy/shirt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjxqvKFdSAsoR3Np-Fe4RCA-t500x500.jpg">](https://soundcloud.com/monstercat/hayve-typhon-scream)
 
-**Artist**: Joeyy 
+**Artist**: Monstercat 
 
-**Track**: Shirt (Prod. By 4AM)
+**Track**: hayve & Typhon - SCREAM
 
-Last updated at 05/30/2023 20:50
+Last updated at 05/30/2023 20:52
