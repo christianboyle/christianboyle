@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9Z9GLmlQ9Iip2oe-zsVNEw-t500x500.jpg">](https://soundcloud.com/djbrettcooper/core-laberation-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F549C0FNzahyBrOp-rxhzMg-t500x500.jpg">](https://soundcloud.com/sitri-dnb/sitri-gydra-space-invaders)
 
-**Artist**: Brett Cooper 
+**Artist**: Sitri 
 
-**Track**: Core Laberation Mix download
+**Track**: Sitri & Gydra - Space Invaders
 
-Last updated at 05/30/2023 18:57
+Last updated at 05/30/2023 20:42
