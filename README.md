@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lxWi9bhyx3zWT1l-tq7Kzg-t500x500.jpg">](https://soundcloud.com/gunfightmusic/ill-mentality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MXwmoy5tfivxx7D6-Nqm9VA-t500x500.jpg">](https://soundcloud.com/thefinesttechno/premiere-lvgo-some-static-shit-dir023)
 
-**Artist**: 𝗚𝘂𝗻𝗙𝗶𝗴𝗵𝘁 🔫👊 
+**Artist**: The Finest Techno 
 
-**Track**: Ill Mentality
+**Track**: Premiere: LVGŌ - Some Static Shit [DIR023]
 
-Last updated at 05/30/2023 20:53
+Last updated at 05/30/2023 20:54
