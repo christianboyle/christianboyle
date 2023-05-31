@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkLdfYP6zdZvlXHh-j5y9zg-t500x500.jpg">](https://soundcloud.com/marlon-dubois/pfizer-w-joeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue)
 
-**Artist**: Marlon DuBois 
+**Artist**: Joeyy 
 
-**Track**: Pfizer w/ Joeyy [Prod Litothedon]
+**Track**: Blue (Prod. By Juvenile Sam)
 
-Last updated at 05/30/2023 20:47
+Last updated at 05/30/2023 20:48
