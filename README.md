@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuOjyuDV4P3x0YEg-p78u6w-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-axel-f-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nbX4QefewZiQXnx-hyZmGw-t500x500.jpg">](https://soundcloud.com/actual-fields/thank-god-for-houseplants)
 
-**Artist**: Lucha 
+**Artist**: F!elds 
 
-**Track**: Lucha - Axel F
+**Track**: Thank God For Houseplants
 
-Last updated at 06/01/2023 13:24
+Last updated at 06/01/2023 13:25
