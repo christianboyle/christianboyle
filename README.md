@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfLDbXEgJxI2ouTz-1yOHjw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nuked-out-dance-party-full-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Joeyy 
 
-**Track**: DJ Smokey - Nuked Out Dance Party (Full Album)
+**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
 
-Last updated at 05/31/2023 14:14
+Last updated at 06/01/2023 08:53
