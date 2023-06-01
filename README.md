@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xkIZBI6yyK6TOK4Q-T5A6mA-t500x500.jpg">](https://soundcloud.com/hitch22/skrillex-fred-again-flowdan-rumble-hitch-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/this-is-the-best-day-of-my-life-im-killing-myself-tomorrow)
 
-**Artist**: Hitch 
+**Artist**: beverly hills mom 
 
-**Track**: Skrillex, Fred Again.. & Flowdan - Rumble (Hitch Remix)
+**Track**: this is the best day of my life. i'm killing myself tomorrow
 
-Last updated at 06/01/2023 08:57
+Last updated at 06/01/2023 08:58
