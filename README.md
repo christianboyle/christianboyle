@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7viXygFsPrpGSz-JDZyUg-t500x500.jpg">](https://soundcloud.com/kadela/cant-be-alone-right-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUbuXKaDakJBN8x6-UWWvcg-t500x500.jpg">](https://soundcloud.com/chemistreemusic/clockinout)
 
-**Artist**: Kadela 
+**Artist**: CHEMISTREE 
 
-**Track**: Can't Be Alone Right Now
+**Track**: Clockin' Out (YourEDM Premiere)
 
-Last updated at 06/01/2023 13:28
+Last updated at 06/01/2023 13:30
