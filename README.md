@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nbX4QefewZiQXnx-hyZmGw-t500x500.jpg">](https://soundcloud.com/actual-fields/thank-god-for-houseplants)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rz7viXygFsPrpGSz-JDZyUg-t500x500.jpg">](https://soundcloud.com/kadela/cant-be-alone-right-now)
 
-**Artist**: F!elds 
+**Artist**: Kadela 
 
-**Track**: Thank God For Houseplants
+**Track**: Can't Be Alone Right Now
 
-Last updated at 06/01/2023 13:25
+Last updated at 06/01/2023 13:28
