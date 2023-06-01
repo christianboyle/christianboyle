@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gii7R8fy1iYgeH9o-84NB5g-t500x500.jpg">](https://soundcloud.com/basswell-2/basswell-massive-attack-81mastering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5A67h7A7eUxk4TAB-F0yvuw-t500x500.jpg">](https://soundcloud.com/electronyze-me/earl-the-kid-glazedgasm-1)
 
-**Artist**: Basswell 
+**Artist**: Electronyze Me 
 
-**Track**: Basswell - Massive Attack
+**Track**: Earl The Kid - GlazedGasm
 
-Last updated at 06/01/2023 12:39
+Last updated at 06/01/2023 12:41
