@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MMeLny6yJWyKJqX-zwdKHg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/flyingsaucier?in=hippieflippromotions/sets/latest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kdoi09dLTXQAlLaL-V0Flzw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/musicbox?in=hippieflippromotions/sets/latest)
 
 **Artist**: Psychocybin Recordings 
 
-**Track**: Psyoptic & Rekka Wubz - Flying Saucier
+**Track**: Boutta & Psyoptic - Music Box (Riddim Network Premiere)
 
-Last updated at 06/01/2023 12:45
+Last updated at 06/01/2023 12:47
