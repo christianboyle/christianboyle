@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vO126x7B4v6hDoGE-lv4Wdw-t500x500.jpg">](https://soundcloud.com/sleepnet/could-this-be-sleepnet-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9NJ5y6ui5I4uJjbM-RwgbZQ-t500x500.jpg">](https://soundcloud.com/nemesymusic/flux-pavilion-i-believe-feat-asha-nemesy-official-remix)
 
-**Artist**: sleepnet 
+**Artist**: Nemesy 
 
-**Track**: Noisia - Could This Be (Sleepnet Remix)
+**Track**: Flux Pavilion - I Believe Feat. ASHA (Nemesy Official Remix)
 
-Last updated at 06/01/2023 08:55
+Last updated at 06/01/2023 08:56
