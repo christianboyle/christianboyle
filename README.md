@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/this-is-the-best-day-of-my-life-im-killing-myself-tomorrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjIjrRUFmNfHBQrN-wEjMJg-t500x500.jpg">](https://soundcloud.com/djtmane/dj-t-mane-dj-smokey-cream-soda-2)
 
-**Artist**: beverly hills mom 
+**Artist**: DJ T-MANE 
 
-**Track**: this is the best day of my life. i'm killing myself tomorrow
+**Track**: DJ T-MANE & DJ SMOKEY - CREAM SODA
 
-Last updated at 06/01/2023 08:58
+Last updated at 06/01/2023 11:03
