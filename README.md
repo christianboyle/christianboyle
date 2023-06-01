@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrDJsNCVvlLDeCfA-G6Hkyg-t500x500.jpg">](https://soundcloud.com/dj4b/last-night-4b-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP9PP0DNDAGkneYr-GDYScg-t500x500.jpg">](https://soundcloud.com/klubfillermusic/klubfiller-magic)
 
-**Artist**: 4B 
+**Artist**: Klubfiller 
 
-**Track**: Last Night (4B Remix)
+**Track**: Klubfiller - Magic
 
-Last updated at 06/01/2023 17:58
+Last updated at 06/01/2023 18:01
