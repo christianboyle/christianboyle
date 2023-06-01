@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jsz2vFbe1I8zSqzT-Hy1I4Q-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/accidental-spill-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrDJsNCVvlLDeCfA-G6Hkyg-t500x500.jpg">](https://soundcloud.com/dj4b/last-night-4b-remix-1)
 
-**Artist**: kushface ☤ 
+**Artist**: 4B 
 
-**Track**: ACCIDENTAL SPILL 3
+**Track**: Last Night (4B Remix)
 
-Last updated at 06/01/2023 17:56
+Last updated at 06/01/2023 17:58
