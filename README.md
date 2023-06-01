@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-671yygvTLHRKqdim-US1GPQ-t500x500.jpg">](https://soundcloud.com/timomusicofficial/in-the-air-tonight-timo-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuOjyuDV4P3x0YEg-p78u6w-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-axel-f-cover)
 
-**Artist**: Timo 
+**Artist**: Lucha 
 
-**Track**: In The Air Tonight (Timo Edit) [FREE DOWNLOAD]
+**Track**: Lucha - Axel F
 
-Last updated at 06/01/2023 13:23
+Last updated at 06/01/2023 13:24
