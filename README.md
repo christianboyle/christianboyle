@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/tempt?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/vz-r-craves-other-gyo?in=jxxyy/sets/just-tired)
 
 **Artist**: Joeyy 
 
-**Track**: ༆𝑒𝔪尸t (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. Kohl)
+**Track**: ᘜ𝒶ɹв︎𐌀ℵz𐌏 (𝑃r𝗼∂︎. Craves, Other & Gyo)
 
-Last updated at 06/02/2023 10:56
+Last updated at 06/02/2023 10:59
