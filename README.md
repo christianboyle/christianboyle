@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6m1iLfAM2iVCaPLS-MLILcg-t500x500.jpg">](https://soundcloud.com/jxxyy/glitz?in_system_playlist=personalized-tracks%3A%3Asaxurn%3A1219530703)
 
 **Artist**: Joeyy 
 
-**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
+**Track**: Glitz (Prod. By Rondo)
 
-Last updated at 06/04/2023 16:24
+Last updated at 06/04/2023 16:26
