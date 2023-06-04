@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/QTeNFupnbho/maxresdefault.jpg">](https://www.youtube.com/watch?v=QTeNFupnbho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual?in=jxxyy/sets/just-tired)
 
-**Artist**: 
-  
-    Two Friends
-  
-  
-  
-    Two Friends
-  
+**Artist**: Joeyy 
 
+**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
 
-
-
-
- 
-
-**Track**: BIG BOOTIE LAND CHICAGO: The Live Extended Premiere of Big Bootie Mix, Vol. 23
-
-Last updated at 06/04/2023 15:29
+Last updated at 06/04/2023 16:12
