@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u0IwFZR0uEjAoJk3-qwyBXw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/harry-styles-daydreaming-silvertone-x-ryn-remix-free-download?in=edm-family-remixes/sets/harry-styles-daydreaming)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJI2ST2YzwXkui1A-NgzmoA-t500x500.jpg">](https://soundcloud.com/edekit/with-you)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Edekit 
 
-**Track**: Harry Styles - Daydreaming (Silvertone x RYN Remix) [FREE DOWNLOAD]
+**Track**: With You
 
-Last updated at 06/04/2023 21:17
+Last updated at 06/04/2023 21:21
