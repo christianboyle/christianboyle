@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyEsZAJ4y6jaEzgF-gUox9w-t500x500.jpg">](https://soundcloud.com/skankandbass/goldie-jubei-submotive-game-of-the-gods)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-axxsffbrzYVhfDIX-tyypIg-t500x500.jpg">](https://soundcloud.com/eatbrain/eatbrain-podcast-164-by-liveon)
 
-**Artist**: Skankandbass 
+**Artist**: EATBRAIN 
 
-**Track**: Goldie, Jubei & Submotive - Game Of The Gods
+**Track**: EATBRAIN Podcast 164 by Liveon
 
-Last updated at 06/04/2023 18:49
+Last updated at 06/04/2023 19:18
