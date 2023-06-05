@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQrrvr5ymNYjDCWr-pis71A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-113-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0NtFrDYoA1zCQ8t-J3bfgw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/n0ms-final-girl)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Bonkers Beats #113 on Beat 106 Scotland with Defective 020623 (Hour 2)
+**Track**: N0ms - Final Girl (Original Mix)
 
-Last updated at 06/04/2023 20:16
+Last updated at 06/04/2023 21:16
