@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vSFcxSpiSz7BkvVx-HEyQZg-t500x500.jpg">](https://soundcloud.com/simplifyrecs/rimen-steel-arms-feat-nomeli-mykool-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbzVYWV5f1Be3GOH-zZ3c1w-t500x500.jpg">](https://soundcloud.com/mikaylisound/mikayli-bounce-2?in=mikaylisound/sets/dream-chasing-ep)
 
-**Artist**: Simplify. 
+**Artist**: Mikayli 
 
-**Track**: Rimen - Steel Arms (feat. Nomeli) (MYKOOL Remix)
+**Track**: Mikayli - Bounce
 
-Last updated at 06/05/2023 01:39
+Last updated at 06/05/2023 01:42
