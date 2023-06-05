@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcptVweh6f1JwMwG-4jdnEA-t500x500.jpg">](https://soundcloud.com/galoski/imagination)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdwwxWv2ORlT3YXN-RDIcRA-t500x500.jpg">](https://soundcloud.com/spicyboismusic/star-monster-self-hypnosis?in=starmonsterofficial/sets/spicy-bois-new-release)
 
-**Artist**: Galoski 
+**Artist**: spicy bois 
 
-**Track**: Galoski - Imagination
+**Track**: Star Monster - Self Hypnosis
 
-Last updated at 06/05/2023 03:43
+Last updated at 06/05/2023 03:45
