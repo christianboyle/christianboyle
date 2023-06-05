@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PESLCzVphvMLWIVK-HyEsWw-t500x500.jpg">](https://soundcloud.com/woddofficial/alive-wodd-remix-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQrrvr5ymNYjDCWr-pis71A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-113-on-beat-1)
 
-**Artist**: WODD 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Rüfüs Du Sol - ALIVE (WODD REMIX)
+**Track**: Bonkers Beats #113 on Beat 106 Scotland with Mark Breeze 020623 (Hour 1)
 
-Last updated at 06/04/2023 19:20
+Last updated at 06/04/2023 19:21
