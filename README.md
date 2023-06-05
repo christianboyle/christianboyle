@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzZGL0zf8ezsEzlY-9Stt0Q-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/rage-bot-blinded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0X3fGIyqP5wONlO-y9GDpQ-t500x500.jpg">](https://soundcloud.com/eufeion/rb5)
 
-**Artist**: High Caliber Records 
+**Artist**: Eufeion 
 
-**Track**: Rage-Bot - BLINDED
+**Track**: [Download] Raver Bites - Vol 5 (Classic Freeform)
 
-Last updated at 06/05/2023 02:02
+Last updated at 06/05/2023 02:05
