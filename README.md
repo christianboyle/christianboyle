@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DI8bUuSfSeAz9EZx-X4Exzg-t500x500.jpg">](https://soundcloud.com/overeasyofficial/scrambled-sessions-ep-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tRJIaeeLiUTZnNEy-6zktcw-t500x500.jpg">](https://soundcloud.com/vermyllionbass/eprom-x-zeke-beats-humanoid-vermyllion-remix-2)
 
-**Artist**: OVER EASY 
+**Artist**: Vermyllion 
 
-**Track**: Scrambled Sessions - Ep 7
+**Track**: Eprom X Zeke Beats - Humanoid (Vermyllion Remix)
 
-Last updated at 06/05/2023 01:00
+Last updated at 06/05/2023 01:36
