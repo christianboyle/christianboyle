@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0X3fGIyqP5wONlO-y9GDpQ-t500x500.jpg">](https://soundcloud.com/eufeion/rb5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxNISAWxyPL1ZQgE-KyVR4w-t500x500.jpg">](https://soundcloud.com/gangstahouserec/crissyp-movin)
 
-**Artist**: Eufeion 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: [Download] Raver Bites - Vol 5 (Classic Freeform)
+**Track**: CRISSY.P - Movin (Original Mix)
 
-Last updated at 06/05/2023 02:05
+Last updated at 06/05/2023 02:30
