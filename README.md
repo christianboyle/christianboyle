@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJjkZhXK0yPdKP5j-WTThhg-t500x500.jpg">](https://soundcloud.com/benbasta/travis-scott-fred-again-guidance-x-turn-on-the-lights-again-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000238257865-ono3kp-t500x500.jpg">](https://soundcloud.com/blendasound/blenda-sound-movement-cars-1)
 
-**Artist**: Ben Basta 
+**Artist**: Blenda Sound 
 
-**Track**: Travis Scott, Fred Again.. - Guidance X Turn On The Lights Again..
+**Track**: Blenda Sound - Movement Cars
 
-Last updated at 06/05/2023 04:10
+Last updated at 06/05/2023 04:13
