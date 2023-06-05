@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jSSkA9kY6KSk-0-t500x500.jpg">](https://soundcloud.com/maxvangeli/drop-the-chill-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-arohWKxpKmo8JAsU-Ajs5AQ-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/uz-beast)
 
-**Artist**: Max Vangeli 
+**Artist**: Quality Goods Records 
 
-**Track**: Drop The Chill
+**Track**: QGRST-001 | UZ - Beast
 
-Last updated at 06/04/2023 23:46
+Last updated at 06/04/2023 23:49
