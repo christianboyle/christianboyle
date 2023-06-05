@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzs6DPykVyzpsyqD-DHolVw-t500x500.jpg">](https://soundcloud.com/scafettamusic/scafetta-tell-me-that-you-love-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvXfQQ86ItuxyTyJ-1PqqSQ-t500x500.jpg">](https://soundcloud.com/hate_music/samuel-kerridge-hate-podcast-338)
 
-**Artist**: ScAℲeTtA_Music 
+**Artist**: HATE 
 
-**Track**: Scafetta - Tell Me That You Love Me
+**Track**: Samuel Kerridge - HATE Podcast 338
 
-Last updated at 06/05/2023 02:33
+Last updated at 06/05/2023 02:36
