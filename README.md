@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEiJ2tjLyfEBYonL-0u8JdA-t500x500.jpg">](https://soundcloud.com/future-bassnet/blinkofaneye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcptVweh6f1JwMwG-4jdnEA-t500x500.jpg">](https://soundcloud.com/galoski/imagination)
 
-**Artist**: Future Bass Records 
+**Artist**: Galoski 
 
-**Track**: Night Sky, Jace Winter - Blink Of An Eye [Future Bass Release]
+**Track**: Galoski - Imagination
 
-Last updated at 06/05/2023 03:41
+Last updated at 06/05/2023 03:43
