@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usSaHzQTukZGIRzh-Hb64Xg-t500x500.jpg">](https://soundcloud.com/musicbynimbvs/swedish-house-mafia-john-martin-dont-you-worry-child-nimbvs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Bqp7cJjRdyuja0B-IFFC4w-t500x500.jpg">](https://soundcloud.com/ayyofree/young-saints-dante-levo-malfunction)
 
-**Artist**: NIMBVS 
+**Artist**: AY YO TRIP! 
 
-**Track**: Swedish House Mafia, John Martin- Don't You Worry Child (NIMBVS Remix)
+**Track**: Young Saints & Dante Levo - Malfunction
 
-Last updated at 06/04/2023 21:24
+Last updated at 06/04/2023 21:27
