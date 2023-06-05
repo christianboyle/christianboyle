@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGrRhQCuz1942kJH-4yhBmg-t500x500.jpg">](https://soundcloud.com/gangstahouserec/b-phreak-press-rewind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0PMxoVxda6Nf6mXy-zooqTA-t500x500.jpg">](https://soundcloud.com/iedmradio/iedm-radio-mix-olly-james)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: iEDM Radio 
 
-**Track**: B-PHREAK - Press Rewind (Original Mix)
+**Track**: iEDM Radio Guest Mix - Olly James
 
-Last updated at 06/04/2023 21:32
+Last updated at 06/04/2023 21:34
