@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXbXb9n9vEKZEB0q-8w9EVA-t500x500.jpg">](https://soundcloud.com/lovestylerecords/sterbinszky-mynea-feat-divo-bad-romance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYbxTMTGOVi1VXyG-r9RxMg-t500x500.jpg">](https://soundcloud.com/chefhealos/bumps-turns-side-b)
 
-**Artist**: LoveStyle Records 
+**Artist**: Chef Healos 
 
-**Track**: STERBINSZKY & MYNEA feat. DIVO - BAD ROMANCE (cover of Lady Gaga)
+**Track**: BUMPS & TURNS [SIDE B]
 
-Last updated at 06/05/2023 06:58
+Last updated at 06/05/2023 07:01
