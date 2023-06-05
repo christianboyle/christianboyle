@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJI2ST2YzwXkui1A-NgzmoA-t500x500.jpg">](https://soundcloud.com/edekit/with-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usSaHzQTukZGIRzh-Hb64Xg-t500x500.jpg">](https://soundcloud.com/musicbynimbvs/swedish-house-mafia-john-martin-dont-you-worry-child-nimbvs-remix)
 
-**Artist**: Edekit 
+**Artist**: NIMBVS 
 
-**Track**: With You
+**Track**: Swedish House Mafia, John Martin- Don't You Worry Child (NIMBVS Remix)
 
-Last updated at 06/04/2023 21:21
+Last updated at 06/04/2023 21:24
