@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wAyKEdZ9pqzoA8M-oQOigQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/mimb?in=rusuitor/sets/dux-booty-leak-monster-in-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyWAYeahm977583W-oXtW6Q-t500x500.jpg">](https://soundcloud.com/cryogenrecs/devoured)
 
-**Artist**: BOOTY LEAK 
+**Artist**: Cryogen 
 
-**Track**: DUX & Booty Leak - Monster In My Bed [ FREE DOWNLOAD ]
+**Track**: Tclyde - DEVOURED [When Record Labels Collide Vol. 2]
 
-Last updated at 06/05/2023 03:50
+Last updated at 06/05/2023 03:53
