@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Tg8q81blvCndRrH-ZoswyA-t500x500.jpg">](https://soundcloud.com/atdmusic/eptic-x-marauda-wall-of-death-atd-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZyjyVgWZb7i8BW2-EJqOYw-t500x500.jpg">](https://soundcloud.com/listen2thisrecords/takeme)
 
-**Artist**: A.T.D. 
+**Artist**: Listen2This 
 
-**Track**: Eptic X Marauda - Wall Of Death (A.T.D. Flip)
+**Track**: Dan Tanner - Take Me [When Record Labels Collide Vol. 2]
 
-Last updated at 06/05/2023 05:49
+Last updated at 06/05/2023 05:51
