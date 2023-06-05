@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br37vOvw2xQ0xLxq-mPfOfA-t500x500.jpg">](https://soundcloud.com/gangstahouserec/christian-cross-shake-that-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-leYaEBtEhNyWt8RU-J5nuHQ-t500x500.jpg">](https://soundcloud.com/subcietypresents/lil-hurtz-x-headtash-potions)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Subciety Presents 
 
-**Track**: Christian Cross - Shake That
+**Track**: Head$tash X Lil Hurtz - Potions
 
-Last updated at 06/05/2023 00:41
+Last updated at 06/05/2023 00:45
