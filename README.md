@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wAyKEdZ9pqzoA8M-oQOigQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/mimb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YDHniN24Rl6nJK13-z3zhLA-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/division-disorder)
 
-**Artist**: BOOTY LEAK 
+**Artist**: Forbidden Frequencies 
 
-**Track**: DUX & Booty Leak - Monster In My Bed [ FREE DOWNLOAD ]
+**Track**: Division - Disorder
 
-Last updated at 06/05/2023 04:01
+Last updated at 06/05/2023 04:05
