@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cHjas6FFTkS0bFSs-byEEdg-t500x500.jpg">](https://soundcloud.com/threddedbassremixs/howard-jones-things-can-only-get-better-thred-resewn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jSSkA9kY6KSk-0-t500x500.jpg">](https://soundcloud.com/maxvangeli/drop-the-chill-1)
 
-**Artist**: Thred's  Resewn Tracks 
+**Artist**: Max Vangeli 
 
-**Track**: Howard Jones - Things Can Only Get Better (Thred Resewn)
+**Track**: Drop The Chill
 
-Last updated at 06/04/2023 23:43
+Last updated at 06/04/2023 23:46
