@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qTSBk8VRgAM8aUw8-kr1PDA-t500x500.jpg">](https://soundcloud.com/cultiv8records/omas-perses-misdom-falling-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsIQvdNuBmoa8zdx-X7lSaA-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-556)
 
-**Artist**: CULTIV8 RECORDS 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: OMAS, PERSES & Misdom - Falling For You
+**Track**: CYB3RPVNK Radio #556
 
-Last updated at 06/06/2023 09:16
+Last updated at 06/06/2023 09:17
