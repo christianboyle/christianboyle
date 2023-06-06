@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rp61EuXuIFM2soOv-sF9elA-t500x500.jpg">](https://soundcloud.com/djgammer/thisishappyhardcore)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/B3sn30XQhL4/maxresdefault.jpg">](https://www.youtube.com/watch?v=B3sn30XQhL4)
 
-**Artist**: Gammer 
+**Artist**: 
+  
+    pendulumlive
+  
+  
+  
+    pendulumlive
+  
 
-**Track**: Gammer b2b Tweekacore - This Is Happy Hardcore (Live @ EDC Vegas 2023)
 
-Last updated at 06/06/2023 16:49
+
+
+
+ 
+
+**Track**: Halo – Pendulum & Bullet For My Valentine (Official Video)
+
+Last updated at 06/06/2023 16:54
