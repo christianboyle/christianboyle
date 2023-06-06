@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsIQvdNuBmoa8zdx-X7lSaA-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-556)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jeQ2xhwWxVJuxGiP-Bi0UAg-t500x500.jpg">](https://soundcloud.com/maikel_sound/infernium-1)
 
-**Artist**: CYB3RPVNK Radio 
+**Artist**: Maikel 
 
-**Track**: CYB3RPVNK Radio #556
+**Track**: Infernium
 
-Last updated at 06/06/2023 09:17
+Last updated at 06/06/2023 12:49
