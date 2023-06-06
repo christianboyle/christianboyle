@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEDgkndU4a9RWvMp-h5kgvw-t500x500.jpg">](https://soundcloud.com/incurzionaudio/oli-lewis-slow-and-steady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rp61EuXuIFM2soOv-sF9elA-t500x500.jpg">](https://soundcloud.com/djgammer/thisishappyhardcore)
 
-**Artist**: Incurzion Audio 
+**Artist**: Gammer 
 
-**Track**: Oli Lewis - Slow And Steady
+**Track**: Gammer b2b Tweekacore - This Is Happy Hardcore (Live @ EDC Vegas 2023)
 
-Last updated at 06/06/2023 13:02
+Last updated at 06/06/2023 13:08
