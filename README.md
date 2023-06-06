@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyRXuUett3lUQeEw-qZfwUw-t500x500.jpg">](https://soundcloud.com/officialtrapparty/5under-mover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yz2w5CMZiGP4blIJ-DfG45w-t500x500.jpg">](https://soundcloud.com/xviimusicproducer/xvii-worth-it-for-you?in=zerodayproductions/sets/supremepr-us-612190700)
 
-**Artist**: Trap Party 
+**Artist**: Xvii 
 
-**Track**: 5UNDER - MOVER
+**Track**: Xvii - Worth It For You
 
-Last updated at 06/06/2023 09:13
+Last updated at 06/06/2023 09:14
