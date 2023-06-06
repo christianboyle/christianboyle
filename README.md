@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rp61EuXuIFM2soOv-sF9elA-t500x500.jpg">](https://soundcloud.com/djgammer/thisishappyhardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RYLnl274EeTB6M6m-bKgYwQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/gammer-x-tweekacore-lose-you-electric-fox)
 
-**Artist**: Gammer 
+**Artist**: Dirty Workz 
 
-**Track**: Gammer b2b Tweekacore - This Is Happy Hardcore (Live @ EDC Vegas 2023)
+**Track**: Gammer X Tweekacore - Lose You (Electric Fox)
 
-Last updated at 06/06/2023 13:08
+Last updated at 06/06/2023 16:47
