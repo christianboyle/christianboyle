@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQrrvr5ymNYjDCWr-pis71A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-113-on-beat-106?in=beat106scotland/sets/bonkers-beats-113-on-beat-106-scotland-with-mark-breeze-defective-020623)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/B3sn30XQhL4/maxresdefault.jpg">](https://www.youtube.com/watch?v=B3sn30XQhL4)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: 
+  
+    pendulumlive
+  
+  
+  
+    pendulumlive
+  
 
-**Track**: Bonkers Beats #113 on Beat 106 Scotland with Defective 020623 (Hour 2)
 
-Last updated at 06/05/2023 09:57
+
+
+
+ 
+
+**Track**: Halo – Pendulum & Bullet For My Valentine (Official Video)
+
+Last updated at 06/06/2023 07:18
