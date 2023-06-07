@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQrrvr5ymNYjDCWr-pis71A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-113-on-beat-106)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U57JTD8MLPdyPLee-VaTJ7g-t500x500.jpg">](https://soundcloud.com/wrrybeats/intheclub)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: WRRY (@WRRYXO) 
 
-**Track**: Bonkers Beats #113 on Beat 106 Scotland with Defective 020623 (Hour 2)
+**Track**: MET HER IN THE CLUB
 
-Last updated at 06/07/2023 13:29
+Last updated at 06/07/2023 13:30
