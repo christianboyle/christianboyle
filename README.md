@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rV3Hxt6nYXyOLM5t-Q8XvIA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/alan-walker-torine-hello-world-taste-kajacks-remix-sun-shi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzZGL0zf8ezsEzlY-9Stt0Q-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/rage-bot-blinded?in=ragebot/sets/rage-bot-blinded-original-mix)
 
-**Artist**: Best House Remixes 
+**Artist**: High Caliber Records 
 
-**Track**: Alan Walker & Torine - Hello World (Taste & Kajacks Remix) [SUN SHI Edit]
+**Track**: Rage-Bot - BLINDED
 
-Last updated at 06/07/2023 08:47
+Last updated at 06/07/2023 08:51
