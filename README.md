@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2Rt7wYE1JUjy9J5-nAmBgw-t500x500.jpg">](https://soundcloud.com/goodtroublemusic/xena-good-trouble-flip-kp5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6q5zDpkAXm0x2p5i-0gXajQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-neika-creeds-run-away?in=rave_alert/sets/rave41-neika-creeds-ecstasy-ep)
 
-**Artist**: Good Trouble 
+**Artist**: Rave Alert 
 
-**Track**: Xena (Good Trouble Flip) KP5
+**Track**: [PREMIERE] Neika & Creeds - Run Away
 
-Last updated at 06/07/2023 08:21
+Last updated at 06/07/2023 08:22
