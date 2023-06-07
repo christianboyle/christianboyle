@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6q5zDpkAXm0x2p5i-0gXajQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-neika-creeds-run-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RYLnl274EeTB6M6m-bKgYwQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/gammer-x-tweekacore-lose-you-electric-fox)
 
-**Artist**: Rave Alert 
+**Artist**: Dirty Workz 
 
-**Track**: [PREMIERE] Neika & Creeds - Run Away
+**Track**: Gammer X Tweekacore - Lose You (Electric Fox)
 
-Last updated at 06/07/2023 10:36
+Last updated at 06/07/2023 10:41
