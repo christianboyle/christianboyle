@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RYLnl274EeTB6M6m-bKgYwQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/gammer-x-tweekacore-lose-you-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B73jf0HZpSXv0MtN-AEcJeQ-t500x500.jpg">](https://soundcloud.com/animalia-label/the-mind-flayer-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Animalia 
 
-**Track**: Gammer X Tweekacore - Lose You (Electric Fox)
+**Track**: Sam Brickel - The Mind Flayer
 
-Last updated at 06/07/2023 10:41
+Last updated at 06/07/2023 10:44
