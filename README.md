@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptJ6Y1JzhyPchufW-G7ilaA-t500x500.jpg">](https://soundcloud.com/theonlyifonly/premiere-james-k-destroying-angel-tt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpEscuePfDXUh7v2-oIzTHw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/rxk-nephew-feel-good-prod-dj-smokey-nuke-radio-exclusive)
 
-**Artist**: If-Only 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Premiere: James K - Destroying Angel [TT]
+**Track**: RXK Nephew - Feel Good (Prod DJ Smokey) *NUKE RADIO EXCLUSIVE*
 
-Last updated at 06/07/2023 08:28
+Last updated at 06/07/2023 08:29
