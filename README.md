@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LaOQYtxkn5nyt7bT-ipForw-t500x500.jpg">](https://soundcloud.com/sum_rhythm_reggae/yates-holographic-card-premiered-by-sum-rr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptJ6Y1JzhyPchufW-G7ilaA-t500x500.jpg">](https://soundcloud.com/theonlyifonly/premiere-james-k-destroying-angel-tt)
 
-**Artist**: SUM R&R 
+**Artist**: If-Only 
 
-**Track**: YATES! - Holographic Card [Premiered by SUM R&R]
+**Track**: Premiere: James K - Destroying Angel [TT]
 
-Last updated at 06/07/2023 08:26
+Last updated at 06/07/2023 08:28
