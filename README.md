@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VcFWqyiozpW13A3p-GwutNw-t500x500.jpg">](https://soundcloud.com/offkilterseries/ok015-piezo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IIx9DDypWS6Y3ETt-JxTJ7g-t500x500.jpg">](https://soundcloud.com/zoniiworld/uicideboy-aliens-are-ghosts-zonii-remix)
 
-**Artist**: Off-Kilter 
+**Artist**: Zonii 
 
-**Track**: OK015 - Piezo
+**Track**: $UICIDEBOY$ - Aliens Are Ghosts (Zonii Remix)Free Download
 
-Last updated at 06/07/2023 09:11
+Last updated at 06/07/2023 09:38
