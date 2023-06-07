@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpEscuePfDXUh7v2-oIzTHw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/rxk-nephew-feel-good-prod-dj-smokey-nuke-radio-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1HzOudrkwW6rOEmm-vxc8cw-t500x500.jpg">](https://soundcloud.com/siximpala/wax-tape-5?in=siximpala/sets/earwax-1)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: six impala 
 
-**Track**: RXK Nephew - Feel Good (Prod DJ Smokey) *NUKE RADIO EXCLUSIVE*
+**Track**: WAX/TAPE 5
 
-Last updated at 06/07/2023 08:29
+Last updated at 06/07/2023 08:30
