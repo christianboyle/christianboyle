@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B73jf0HZpSXv0MtN-AEcJeQ-t500x500.jpg">](https://soundcloud.com/animalia-label/the-mind-flayer-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQrrvr5ymNYjDCWr-pis71A-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-113-on-beat-106)
 
-**Artist**: Animalia 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Sam Brickel - The Mind Flayer
+**Track**: Bonkers Beats #113 on Beat 106 Scotland with Defective 020623 (Hour 2)
 
-Last updated at 06/07/2023 10:44
+Last updated at 06/07/2023 13:29
