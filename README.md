@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U57JTD8MLPdyPLee-VaTJ7g-t500x500.jpg">](https://soundcloud.com/wrrybeats/intheclub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bb8LuF6LTYm41P59-qvpqzQ-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/balthazar-jackrock-take-me-higher-filth-on-acid)
 
-**Artist**: WRRY (@WRRYXO) 
+**Artist**: Balthazar & JackRock 
 
-**Track**: MET HER IN THE CLUB
+**Track**: Balthazar & JackRock - Take Me Higher [Filth On Acid]
 
-Last updated at 06/07/2023 08:42
+Last updated at 06/07/2023 08:44
