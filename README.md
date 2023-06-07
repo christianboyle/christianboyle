@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzZGL0zf8ezsEzlY-9Stt0Q-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/rage-bot-blinded?in=ragebot/sets/rage-bot-blinded-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyJLef1CKvV9y8zj-Ext5KA-t500x500.jpg">](https://soundcloud.com/charlie-zacks/thank-god-for-girls-1)
 
-**Artist**: High Caliber Records 
+**Artist**: charlie zacks 
 
-**Track**: Rage-Bot - BLINDED
+**Track**: thank god for girls
 
-Last updated at 06/07/2023 08:51
+Last updated at 06/07/2023 08:54
