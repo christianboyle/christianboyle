@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U57JTD8MLPdyPLee-VaTJ7g-t500x500.jpg">](https://soundcloud.com/wrrybeats/intheclub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpEscuePfDXUh7v2-oIzTHw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/rxk-nephew-feel-good-prod-dj-smokey-nuke-radio-exclusive)
 
-**Artist**: WRRY (@WRRYXO) 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: MET HER IN THE CLUB
+**Track**: RXK Nephew - Feel Good (Prod DJ Smokey) *NUKE RADIO EXCLUSIVE*
 
-Last updated at 06/07/2023 10:31
+Last updated at 06/07/2023 10:33
