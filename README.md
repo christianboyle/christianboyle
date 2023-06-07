@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bb8LuF6LTYm41P59-qvpqzQ-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/balthazar-jackrock-take-me-higher-filth-on-acid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5VyZaa8nV3hY1sw-uDwUxA-t500x500.jpg">](https://soundcloud.com/revenant-edm/at-what-cost)
 
-**Artist**: Balthazar & JackRock 
+**Artist**: Revenant 
 
-**Track**: Balthazar & JackRock - Take Me Higher [Filth On Acid]
+**Track**: at what cost?
 
-Last updated at 06/07/2023 08:44
+Last updated at 06/07/2023 08:46
