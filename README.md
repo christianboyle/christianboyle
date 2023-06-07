@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1HzOudrkwW6rOEmm-vxc8cw-t500x500.jpg">](https://soundcloud.com/siximpala/wax-tape-5?in=siximpala/sets/earwax-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tvew9lhULNl8PgkP-smFYZw-t500x500.jpg">](https://soundcloud.com/dracusound/swaycred-my-swag-dracu-remix)
 
-**Artist**: six impala 
+**Artist**: Dracu 
 
-**Track**: WAX/TAPE 5
+**Track**: Swaycred - My Swag (Dracu Remix)
 
-Last updated at 06/07/2023 08:30
+Last updated at 06/07/2023 08:31
