@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l2nnuZYYT1wRGPsi-I7d7Jw-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/nemy-stockholm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2KdsKsKJnLxQXgPh-zYtObw-t500x500.jpg">](https://soundcloud.com/covexmusic/step-forward)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: COVEX 
 
-**Track**: Nemy - Stockholm
+**Track**: Step Forward
 
-Last updated at 06/07/2023 09:00
+Last updated at 06/07/2023 09:01
