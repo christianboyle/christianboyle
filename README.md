@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/B3sn30XQhL4/maxresdefault.jpg">](https://www.youtube.com/watch?v=B3sn30XQhL4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2Rt7wYE1JUjy9J5-nAmBgw-t500x500.jpg">](https://soundcloud.com/goodtroublemusic/xena-good-trouble-flip-kp5)
 
-**Artist**: 
-  
-    pendulumlive
-  
-  
-  
-    pendulumlive
-  
+**Artist**: Good Trouble 
 
+**Track**: Xena (Good Trouble Flip) KP5
 
-
-
-
- 
-
-**Track**: Halo – Pendulum & Bullet For My Valentine (Official Video)
-
-Last updated at 06/06/2023 16:54
+Last updated at 06/07/2023 08:21
