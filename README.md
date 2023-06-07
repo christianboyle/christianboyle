@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZyjyVgWZb7i8BW2-EJqOYw-t500x500.jpg">](https://soundcloud.com/electrostepnation/fwycw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rlqHErgvmwSMdZzh-11ALrw-t500x500.jpg">](https://soundcloud.com/ethanplus/like-this)
 
-**Artist**: Electrostep Nation 
+**Artist**: ethanplus 
 
-**Track**: Festivillainz & Ridley Slim - F.W.Y.C.W [When Record Labels Collide Vol. 2]
+**Track**: Like This
 
-Last updated at 06/07/2023 09:08
+Last updated at 06/07/2023 09:09
