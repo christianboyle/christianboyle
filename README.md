@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpEscuePfDXUh7v2-oIzTHw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/rxk-nephew-feel-good-prod-dj-smokey-nuke-radio-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6q5zDpkAXm0x2p5i-0gXajQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-neika-creeds-run-away)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Rave Alert 
 
-**Track**: RXK Nephew - Feel Good (Prod DJ Smokey) *NUKE RADIO EXCLUSIVE*
+**Track**: [PREMIERE] Neika & Creeds - Run Away
 
-Last updated at 06/07/2023 10:33
+Last updated at 06/07/2023 10:36
