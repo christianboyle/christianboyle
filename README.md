@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass_7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQsFIgAJhzwdNX4X-QD39oA-t500x500.jpg">](https://soundcloud.com/electronyze-me/dawave-no-va-house-of-cards-feat-bvlvnce-1)
 
-**Artist**: KULA 
+**Artist**: Electronyze Me 
 
-**Track**: KULA_Breakbeat_UK_Bass_7_
+**Track**: DaWave, NO-VA - House Of Cards Feat. BΛLΛNCE
 
-Last updated at 06/08/2023 17:03
+Last updated at 06/08/2023 17:41
