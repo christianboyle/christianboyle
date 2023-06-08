@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3uzmzeCtP9h7xKz-RZHkdg-t500x500.jpg">](https://soundcloud.com/besthouseremixes/bob-airplanes-mave-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UKEVlZNbuMlCuFkh-lZmB3g-t500x500.jpg">](https://soundcloud.com/maakg/an-embrace)
 
-**Artist**: Best House Remixes 
+**Artist**: Maāk.G 
 
-**Track**: B.o.B - Airplanes (Mave Remix)
+**Track**: An Embrace
 
-Last updated at 06/08/2023 17:55
+Last updated at 06/08/2023 17:56
