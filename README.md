@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQsFIgAJhzwdNX4X-QD39oA-t500x500.jpg">](https://soundcloud.com/electronyze-me/dawave-no-va-house-of-cards-feat-bvlvnce-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ovK6rhxzaocXL76D-5lft7A-t500x500.jpg">](https://soundcloud.com/nightowlcollective/mybear-gecko)
 
-**Artist**: Electronyze Me 
+**Artist**: Night Owl Collective 
 
-**Track**: DaWave, NO-VA - House Of Cards Feat. BΛLΛNCE
+**Track**: mybear - Gecko
 
-Last updated at 06/08/2023 17:41
+Last updated at 06/08/2023 17:42
