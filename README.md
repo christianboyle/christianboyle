@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Oq8Y2Culizw52Tz-XbyB7A-t500x500.jpg">](https://soundcloud.com/frasathylab/dubvision-otto-knows-alex-aris-electricity-frasathy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnZJ9WCmlVV2XYBp-Di0jJg-t500x500.jpg">](https://soundcloud.com/bvrnout/taylor-swift-lavender-haze-bvrnout-remix-1)
 
-**Artist**: FRASATHY LAB 
+**Artist**: BVRNOUT 
 
-**Track**: DubVision, Otto Knows & Alex Aris - Electricity (FRASATHY Remix)
+**Track**: Taylor Swift - Lavender Haze (BVRNOUT Remix)
 
-Last updated at 06/08/2023 17:43
+Last updated at 06/08/2023 17:47
