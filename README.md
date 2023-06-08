@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LAdzEbidWYGs0vFj-tAGhyA-t500x500.jpg">](https://soundcloud.com/theglitchmob/noisia-collider-the-glitch-mob-remix?in=visionrecordings/sets/vsn113)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ATJkIgCuT1ychHwA-h3pweQ-t500x500.jpg">](https://soundcloud.com/rawppl/rawcast175-riot-code)
 
-**Artist**: The Glitch Mob 
+**Artist**: RAW 
 
-**Track**: Noisia - Collider (The Glitch Mob Remix)
+**Track**: RAWCAST175 • RIOT CODE
 
-Last updated at 06/08/2023 08:11
+Last updated at 06/08/2023 08:12
