@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3EpHKPfsdDkoGA5-jRyeag-t500x500.jpg">](https://soundcloud.com/bitbird/oddkidout-x-young-viridii-thief)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CoNbdRtN6bFBKqXa-uw2LZg-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin049-dj-crisps-you-stay-on-my-mind-ep)
 
-**Artist**: bitbird 
+**Artist**: Shall Not Fade 
 
-**Track**: OddKidOut x Young Viridii - THIEF
+**Track**: TIN049 // DJ Crisps - You Stay On My Mind EP
 
-Last updated at 06/08/2023 18:05
+Last updated at 06/08/2023 18:06
