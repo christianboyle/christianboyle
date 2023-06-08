@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kDzd6d3UB48kI97Y-jOMS9Q-t500x500.jpg">](https://soundcloud.com/dj-girlyy/dj-girly-x-rock-that-shit-like-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tRuFNosF1vysSuED-TZ2nYw-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/loreen-tattoo-paul-gannon-remixfree-download)
 
-**Artist**: dj-girly 
+**Artist**: Paul Gannon 
 
-**Track**: @dj-girly x ROCK THAT SHIT (WIP)
+**Track**: Loreen - Tattoo (Paul Gannon Remix)[Free Download]
 
-Last updated at 06/08/2023 08:13
+Last updated at 06/08/2023 08:14
