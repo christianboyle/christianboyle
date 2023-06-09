@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtyMbkIlRG77xmqr-bh5Pag-t500x500.jpg">](https://soundcloud.com/montarecs/sublab-sick-of-saying-sorry-with-jilli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
 
-**Artist**: MONTA 
+**Artist**: MC4D 
 
-**Track**: Sublab - Sick Of Saying Sorry (with JiLLi)
+**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
 
-Last updated at 06/09/2023 18:54
+Last updated at 06/09/2023 18:55
