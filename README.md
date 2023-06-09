@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-btKfU4ABPuhQFWfZ-fZObsQ-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/iroh-siwa-brozone-layer-1)
 
-**Artist**: MC4D 
+**Artist**: Wormhole Music Group 
 
-**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
+**Track**: Iroh & Siwa - BROZONE LAYER
 
-Last updated at 06/09/2023 18:55
+Last updated at 06/09/2023 18:56
