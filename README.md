@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBkyNXXfcHfnDWE0-lh7dWA-t500x500.jpg">](https://soundcloud.com/freshtheprophet/shadows-ft-tybass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDZUzFrhgI7mZgft-Xo4MCA-t500x500.jpg">](https://soundcloud.com/hirohiro_hrhr/hirohiro-live-on-2023521)
 
-**Artist**: Fresh The Prophet 
+**Artist**: HiroHiro 
 
-**Track**: SHADOWS ft TyBass prod katebi
+**Track**: HiroHiro Live on 𝐇𝐀𝐑𝐃𝐑𝐎𝐈𝐃 [2023.5.21] #HARDROID
 
-Last updated at 06/09/2023 09:01
+Last updated at 06/09/2023 09:02
