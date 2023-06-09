@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDZUzFrhgI7mZgft-Xo4MCA-t500x500.jpg">](https://soundcloud.com/hirohiro_hrhr/hirohiro-live-on-2023521)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkzFFtNXnJI4oWFu-WueVQQ-t500x500.jpg">](https://soundcloud.com/balgur/ice-spice-in-ha-mood-balgur-remix)
 
-**Artist**: HiroHiro 
+**Artist**: BALGUR 
 
-**Track**: HiroHiro Live on 𝐇𝐀𝐑𝐃𝐑𝐎𝐈𝐃 [2023.5.21] #HARDROID
+**Track**: ICE SPICE - IN HA MOOD (BALGUR REMIX)
 
-Last updated at 06/09/2023 09:02
+Last updated at 06/09/2023 09:03
