@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkzFFtNXnJI4oWFu-WueVQQ-t500x500.jpg">](https://soundcloud.com/balgur/ice-spice-in-ha-mood-balgur-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9fBTQqlMTXm6MFX-YTJyFg-t500x500.jpg">](https://soundcloud.com/djbrettcooper/bounce-2-u-drop-comp-mix)
 
-**Artist**: BALGUR 
+**Artist**: Brett Cooper 
 
-**Track**: ICE SPICE - IN HA MOOD (BALGUR REMIX)
+**Track**: Bounce 2 U Drop Comp Mix
 
-Last updated at 06/09/2023 09:03
+Last updated at 06/09/2023 09:04
