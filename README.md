@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yxGyhqJToa9CoBqL-xTVoQw-t500x500.jpg">](https://soundcloud.com/clubgangplus/lil-jon-what-you-gon-do-gualtiero-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V8UkdZjLz6omhyHs-ynEctQ-t500x500.jpg">](https://soundcloud.com/jamesk_1/james-k-trip-lick-nts-may-2023)
 
-**Artist**: CLUBGANG + 
+**Artist**: James K 
 
-**Track**: Lil Jon - What You Gon Do (GUALTIERO Bootleg)
+**Track**: James K - Trip Lick - NTS May 2023
 
-Last updated at 06/10/2023 17:25
+Last updated at 06/10/2023 17:26
