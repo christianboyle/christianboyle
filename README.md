@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-17VOQxgtCfDoKGgX-PtHFJw-t500x500.jpg">](https://soundcloud.com/fluxbeat/subliminal_orbital_kaos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yxGyhqJToa9CoBqL-xTVoQw-t500x500.jpg">](https://soundcloud.com/clubgangplus/lil-jon-what-you-gon-do-gualtiero-bootleg)
 
-**Artist**: FLUX 
+**Artist**: CLUBGANG + 
 
-**Track**: Subliminal - Orbital Kaos
+**Track**: Lil Jon - What You Gon Do (GUALTIERO Bootleg)
 
-Last updated at 06/10/2023 17:18
+Last updated at 06/10/2023 17:25
