@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckyyTKCif1Ub9YUC-TTn52Q-t500x500.jpg">](https://soundcloud.com/slangdogs/uicideboy-all-dogs-go-to-heaven-slang-dogs-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e8SlcFpU7dyhmif-RQsTRA-t500x500.jpg">](https://soundcloud.com/br0kemusic/lautre-calli-boom-arrival)
 
-**Artist**: Slang Dogs 
+**Artist**: broke. 
 
-**Track**: $UICIDEBOY$ - ALL DOGS GO TO HEAVEN (Slang Dogs Remix)
+**Track**: LAUTRE. & Calli Boom - Arrival
 
-Last updated at 06/10/2023 13:03
+Last updated at 06/10/2023 13:04
