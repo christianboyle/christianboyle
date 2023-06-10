@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6e8SlcFpU7dyhmif-RQsTRA-t500x500.jpg">](https://soundcloud.com/br0kemusic/lautre-calli-boom-arrival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UCIoPrztWIUzRHg-df2wLQ-t500x500.jpg">](https://soundcloud.com/all172things/ccritz-details-premiere)
 
-**Artist**: broke. 
+**Artist**: All172Things 
 
-**Track**: LAUTRE. & Calli Boom - Arrival
+**Track**: C:Critz - Details [Premiere]
 
-Last updated at 06/10/2023 13:04
+Last updated at 06/10/2023 13:05
