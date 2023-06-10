@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UCIoPrztWIUzRHg-df2wLQ-t500x500.jpg">](https://soundcloud.com/all172things/ccritz-details-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXkPvcsOCyPoMhGp-qpuQaw-t500x500.jpg">](https://soundcloud.com/madjestickasual/mikey-quit-life-die-on-the-dancefloor-rival-consoles-l-devine-mashup)
 
-**Artist**: All172Things 
+**Artist**: Madjestic Kasual 
 
-**Track**: C:Critz - Details [Premiere]
+**Track**: Mikey Enwright - Die On The Dancefloor (Rival Consoles L Devine Mashup by Quit Life) [MK PREMIERE]
 
-Last updated at 06/10/2023 13:05
+Last updated at 06/10/2023 17:15
