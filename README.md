@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WQMbBsVbtqXHKDV9-IRQzjg-t500x500.jpg">](https://soundcloud.com/ernestosbeats/ernesto-old-school-broken-english-traxx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IGpyPbFfWC9pmQEb-qMzvNA-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-114-on-beat-1?in=beat106scotland/sets/bonkers-beats-114-on-beat-106-scotland-with-dj-c-joe-craig-090623)
 
-**Artist**: E.R.N.E.S.T.O 
+**Artist**: Beat 106 Scotland 
 
-**Track**: E.R.N.E.S.T.O - Old School [Broken English Traxx]
+**Track**: Bonkers Beats #114 on Beat 106 Scotland with Rave Anywhere's DJ C 090623 (Hour 1)
 
-Last updated at 06/12/2023 07:26
+Last updated at 06/12/2023 07:27
