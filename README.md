@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRx6Cb2QfycvpxLy-PB4lQA-t500x500.jpg">](https://soundcloud.com/kalibvr/welcome-to-kali)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
 
-**Artist**: kalibvr 
+**Artist**: NAEMS 
 
-**Track**: WELCOME TO KALI
+**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
 
-Last updated at 06/13/2023 14:53
+Last updated at 06/13/2023 14:54
