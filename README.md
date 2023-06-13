@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymqn87bMpz7menzf-yy7sgg-t500x500.jpg">](https://soundcloud.com/maxdoutrecords/ab-the-thief-x-daze-off-glock-walk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GkObLgyLcILBV5Jg-Qtm8Ng-t500x500.jpg">](https://soundcloud.com/memphiszb/cant-help-myself)
 
-**Artist**: MAXD OUT RECORDS 
+**Artist**: 909Memphis (@1memphy) 
 
-**Track**: AB The Thief X Daze OFF - Glock Walk
+**Track**: cant help myself (𝐵𝐿𝐴𝑀𝐸 𝑂𝑁 𝑀𝐸)
 
-Last updated at 06/13/2023 16:56
+Last updated at 06/13/2023 16:57
