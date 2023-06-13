@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7pjlwZxtmiz67i3-dZMFmA-t500x500.jpg">](https://soundcloud.com/bordersaudio/borders-liquicity-festival-2023-dj-contest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000372942936-c5wrf3-t500x500.jpg">](https://soundcloud.com/countrynxc/texas-baby-nxc-bb-yr-a-s0ng)
 
-**Artist**: [BORDERS] 
+**Artist**: texas baby 
 
-**Track**: [BORDERS] - Liquicity Festival 2023 - DJ Contest
+**Track**: texas baby nxc - bb yr a s0ng
 
-Last updated at 06/12/2023 21:26
+Last updated at 06/12/2023 21:27
