@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skcN1cJTzi67Pqeg-1xXalQ-t500x500.jpg">](https://soundcloud.com/ssssombra/romeo-love-story)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpRYYAePzg2pahqz-3U9DFA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/ridewitme)
 
-**Artist**: Sombra 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Romeo (Love Story)
+**Track**: rvnti & WLLWS - Ride Wit Me
 
-Last updated at 06/13/2023 08:36
+Last updated at 06/13/2023 08:40
