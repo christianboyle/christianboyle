@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzpMJzPwP3p45Yyu-WL3qVw-t500x500.jpg">](https://soundcloud.com/k1n_music/tears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c8BSVPEqdtuzqMLW-fn8gtQ-t500x500.jpg">](https://soundcloud.com/imyetep/yetep-edc-las-vegas-2023cosmic-meadow)
 
-**Artist**: K1N 
+**Artist**: yetep 
 
-**Track**: Skrillex - Tears [K1N x tenshi Remix]
+**Track**: yetep @ EDC LAS VEGAS 2023(Cosmic Meadow)
 
-Last updated at 06/13/2023 16:58
+Last updated at 06/13/2023 16:59
