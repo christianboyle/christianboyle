@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pKwgy841UzXiS37R-jYTuNg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/tufty-future-focus-promo-mix-23rd-june-2023-downloadable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bm1VatbvPvCh-0-t500x500.png">](https://soundcloud.com/syence/be-so-sad)
 
-**Artist**: scarreddigital 
+**Artist**: syence 
 
-**Track**: Tufty - Future Focus Promo Mix. 23rd June 2023. *Downloadable*
+**Track**: be so sad
 
-Last updated at 06/12/2023 21:24
+Last updated at 06/12/2023 21:25
