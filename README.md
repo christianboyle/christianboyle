@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNb9HFKyqFBuQiip-Hl8J9A-t500x500.jpg">](https://soundcloud.com/wearestudio/visages-dj-set-studio-invites)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skcN1cJTzi67Pqeg-1xXalQ-t500x500.jpg">](https://soundcloud.com/ssssombra/romeo-love-story)
 
-**Artist**: STUDIO 
+**Artist**: Sombra 
 
-**Track**: Visages DJ Set | STUDIO Invites
+**Track**: Romeo (Love Story)
 
-Last updated at 06/13/2023 08:33
+Last updated at 06/13/2023 08:36
