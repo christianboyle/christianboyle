@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvnXXSVLxP0x43RM-J5NBaw-t500x500.jpg">](https://soundcloud.com/insomniacrecords/majestic-jem-cooke-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6q5zDpkAXm0x2p5i-0gXajQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-neika-creeds-run-away)
 
-**Artist**: Insomniac Records 
+**Artist**: Rave Alert 
 
-**Track**: Majestic & Jem Cooke - Free
+**Track**: [PREMIERE] Neika & Creeds - Run Away
 
-Last updated at 06/13/2023 14:57
+Last updated at 06/13/2023 14:58
