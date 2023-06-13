@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRx6Cb2QfycvpxLy-PB4lQA-t500x500.jpg">](https://soundcloud.com/kalibvr/welcome-to-kali)
 
-**Artist**: david shawty 
+**Artist**: kalibvr 
 
-**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
+**Track**: WELCOME TO KALI
 
-Last updated at 06/13/2023 14:49
+Last updated at 06/13/2023 14:53
