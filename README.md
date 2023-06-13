@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/1ZjkfZ6v6v4/maxresdefault.jpg">](https://www.youtube.com/watch?v=1ZjkfZ6v6v4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nm2h5YniBQX1rsob-9s79hg-t500x500.jpg">](https://soundcloud.com/bainbridgeofficial/forsaken-bainbridge-flip)
 
-**Artist**: 
-  
-    Miss Monique
-  
-  
-  
-    Miss Monique
-  
+**Artist**: BAINBRIDGE 
 
+**Track**: As I Lay Dying - Forsaken (BAINBRIDGE Flip)
 
-
-
-
- 
-
-**Track**: Miss Monique -  Siona Records: 3rd Anniversary @ Ibiza [Melodic Techno/Progressive House DJ Mix] 4K
-
-Last updated at 06/13/2023 07:10
+Last updated at 06/13/2023 08:32
