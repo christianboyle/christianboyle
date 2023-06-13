@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvnXXSVLxP0x43RM-J5NBaw-t500x500.jpg">](https://soundcloud.com/insomniacrecords/majestic-jem-cooke-free)
 
-**Artist**: NAEMS 
+**Artist**: Insomniac Records 
 
-**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
+**Track**: Majestic & Jem Cooke - Free
 
-Last updated at 06/13/2023 14:54
+Last updated at 06/13/2023 14:57
