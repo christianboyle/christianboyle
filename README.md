@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpRYYAePzg2pahqz-3U9DFA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/ridewitme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: NAEMS 
 
-**Track**: rvnti & WLLWS - Ride Wit Me
+**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
 
-Last updated at 06/13/2023 08:40
+Last updated at 06/13/2023 14:46
