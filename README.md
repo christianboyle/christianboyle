@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B73jf0HZpSXv0MtN-AEcJeQ-t500x500.jpg">](https://soundcloud.com/animalia-label/the-mind-flayer-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHGzppCazcv1ZGXv-kIESFw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf104-emma-b-meltinglove-ep)
 
-**Artist**: Animalia 
+**Artist**: Shall Not Fade 
 
-**Track**: Sam Brickel - The Mind Flayer
+**Track**: SNF104 // EMMA B - Meltinglove EP
 
-Last updated at 06/13/2023 15:22
+Last updated at 06/13/2023 15:23
