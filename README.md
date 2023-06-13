@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHGzppCazcv1ZGXv-kIESFw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf104-emma-b-meltinglove-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
 
-**Artist**: Shall Not Fade 
+**Artist**: david shawty 
 
-**Track**: SNF104 // EMMA B - Meltinglove EP
+**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
 
-Last updated at 06/13/2023 15:23
+Last updated at 06/13/2023 15:35
