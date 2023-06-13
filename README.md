@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/QLWkl5YpiD0/maxresdefault.jpg">](https://www.youtube.com/watch?v=QLWkl5YpiD0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B73jf0HZpSXv0MtN-AEcJeQ-t500x500.jpg">](https://soundcloud.com/animalia-label/the-mind-flayer-1)
 
-**Artist**: 
-  
-    RL Grime
-  
-  
-  
-    RL Grime
-  
+**Artist**: Animalia 
 
+**Track**: Sam Brickel - The Mind Flayer
 
-
-
-
- 
-
-**Track**: RL Grime - Pour Your Heart Out (feat. 070 Shake) [Official Music Video]
-
-Last updated at 06/13/2023 15:07
+Last updated at 06/13/2023 15:22
