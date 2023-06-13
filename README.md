@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GkObLgyLcILBV5Jg-Qtm8Ng-t500x500.jpg">](https://soundcloud.com/memphiszb/cant-help-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzpMJzPwP3p45Yyu-WL3qVw-t500x500.jpg">](https://soundcloud.com/k1n_music/tears)
 
-**Artist**: 909Memphis (@1memphy) 
+**Artist**: K1N 
 
-**Track**: cant help myself (𝐵𝐿𝐴𝑀𝐸 𝑂𝑁 𝑀𝐸)
+**Track**: Skrillex - Tears [K1N x tenshi Remix]
 
-Last updated at 06/13/2023 16:57
+Last updated at 06/13/2023 16:58
