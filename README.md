@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bb8LuF6LTYm41P59-qvpqzQ-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/balthazar-jackrock-take-me-higher-filth-on-acid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Bie3VjfLONvIUBc-UMrj7A-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-23-under-r8d)
 
-**Artist**: Balthazar & JackRock 
+**Artist**: Hardcore Energy 
 
-**Track**: Balthazar & JackRock - Take Me Higher [Filth On Acid]
+**Track**: Mix Series 23 - Under R8D
 
-Last updated at 06/13/2023 14:59
+Last updated at 06/13/2023 15:00
