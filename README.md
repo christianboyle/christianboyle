@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvyqcp52cHvym3sZ-dclJCQ-t500x500.jpg">](https://soundcloud.com/erickdie/gold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZ1BADqAXMl9fGg8-l734vA-t500x500.jpg">](https://soundcloud.com/wearewavedash/fight-it)
 
-**Artist**: erickD 
+**Artist**: Wavedash 
 
-**Track**: Glitter & Gold w/ CODEWINE
+**Track**: Fight It
 
-Last updated at 06/12/2023 21:30
+Last updated at 06/12/2023 21:31
