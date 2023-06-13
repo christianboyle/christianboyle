@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
 
-**Artist**: NAEMS 
+**Artist**: david shawty 
 
-**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
+**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
 
-Last updated at 06/13/2023 14:46
+Last updated at 06/13/2023 14:49
