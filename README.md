@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000372942936-c5wrf3-t500x500.jpg">](https://soundcloud.com/countrynxc/texas-baby-nxc-bb-yr-a-s0ng)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3rYFBxiyz4gdLYN-Mj8UqQ-t500x500.jpg">](https://soundcloud.com/koastle/bloom)
 
-**Artist**: texas baby 
+**Artist**: Koastle 
 
-**Track**: texas baby nxc - bb yr a s0ng
+**Track**: Bloom
 
-Last updated at 06/12/2023 21:27
+Last updated at 06/12/2023 21:28
