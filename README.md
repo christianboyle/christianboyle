@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooyOYh8rxvtkFBYP-3PHvoA-t500x500.jpg">](https://soundcloud.com/sikdope/more-is-more-with-tima-dee)
 
-**Artist**: david shawty 
+**Artist**: Sikdope 
 
-**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
+**Track**: More Is More (with Tima Dee)
 
-Last updated at 06/13/2023 20:47
+Last updated at 06/13/2023 20:49
