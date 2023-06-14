@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooyOYh8rxvtkFBYP-3PHvoA-t500x500.jpg">](https://soundcloud.com/sikdope/more-is-more-with-tima-dee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c6JLvpLlJq8tmlKG-kitAFQ-t500x500.jpg">](https://soundcloud.com/sikdope/resolutions-mix-4)
 
 **Artist**: Sikdope 
 
-**Track**: More Is More (with Tima Dee)
+**Track**: Resolutions Mix 4 (100% Unreleased Music)
 
-Last updated at 06/13/2023 20:49
+Last updated at 06/13/2023 20:50
