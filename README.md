@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWyE2bcWykQKTckt-YmqZlQ-t500x500.png">](https://soundcloud.com/rinsefm/1985music130623)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
 
-**Artist**: Rinse FM 
+**Artist**: david shawty 
 
-**Track**: 1985 Music - Trail Takeover - 13 June 2023
+**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
 
-Last updated at 06/14/2023 08:41
+Last updated at 06/14/2023 13:10
