@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozbsexyvdrCvWzhd-Etw6hw-t500x500.jpg">](https://soundcloud.com/ponsuda/hostile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Bie3VjfLONvIUBc-UMrj7A-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-23-under-r8d)
 
-**Artist**: ponsuda. 
+**Artist**: Hardcore Energy 
 
-**Track**: Hostile
+**Track**: Mix Series 23 - Under R8D
 
-Last updated at 06/13/2023 22:01
+Last updated at 06/13/2023 22:03
