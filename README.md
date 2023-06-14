@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHGzppCazcv1ZGXv-kIESFw-t500x500.jpg">](https://soundcloud.com/shallnotfade/snf104-emma-b-meltinglove-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvyqcp52cHvym3sZ-dclJCQ-t500x500.jpg">](https://soundcloud.com/erickdie/gold)
 
-**Artist**: Shall Not Fade 
+**Artist**: erickD 
 
-**Track**: SNF104 // EMMA B - Meltinglove EP
+**Track**: Glitter & Gold w/ CODEWINE
 
-Last updated at 06/13/2023 21:54
+Last updated at 06/13/2023 21:55
