@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c6JLvpLlJq8tmlKG-kitAFQ-t500x500.jpg">](https://soundcloud.com/sikdope/resolutions-mix-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Bie3VjfLONvIUBc-UMrj7A-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-23-under-r8d)
 
-**Artist**: Sikdope 
+**Artist**: Hardcore Energy 
 
-**Track**: Resolutions Mix 4 (100% Unreleased Music)
+**Track**: Mix Series 23 - Under R8D
 
-Last updated at 06/13/2023 20:50
+Last updated at 06/13/2023 20:51
