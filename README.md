@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Bie3VjfLONvIUBc-UMrj7A-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-23-under-r8d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvyqcp52cHvym3sZ-dclJCQ-t500x500.jpg">](https://soundcloud.com/erickdie/gold)
 
-**Artist**: Hardcore Energy 
+**Artist**: erickD 
 
-**Track**: Mix Series 23 - Under R8D
+**Track**: Glitter & Gold w/ CODEWINE
 
-Last updated at 06/13/2023 20:51
+Last updated at 06/13/2023 21:47
