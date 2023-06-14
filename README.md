@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Bie3VjfLONvIUBc-UMrj7A-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-23-under-r8d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWyE2bcWykQKTckt-YmqZlQ-t500x500.png">](https://soundcloud.com/rinsefm/1985music130623)
 
-**Artist**: Hardcore Energy 
+**Artist**: Rinse FM 
 
-**Track**: Mix Series 23 - Under R8D
+**Track**: 1985 Music - Trail Takeover - 13 June 2023
 
-Last updated at 06/13/2023 22:03
+Last updated at 06/14/2023 08:41
