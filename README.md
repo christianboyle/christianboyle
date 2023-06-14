@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozbsexyvdrCvWzhd-Etw6hw-t500x500.jpg">](https://soundcloud.com/ponsuda/hostile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvyqcp52cHvym3sZ-dclJCQ-t500x500.jpg">](https://soundcloud.com/erickdie/gold)
 
-**Artist**: ponsuda. 
+**Artist**: erickD 
 
-**Track**: Hostile
+**Track**: Glitter & Gold w/ CODEWINE
 
-Last updated at 06/13/2023 21:58
+Last updated at 06/13/2023 21:59
