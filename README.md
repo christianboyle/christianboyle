@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CLDVFXNM0y00PTW-Kp2H5Q-t500x500.jpg">](https://soundcloud.com/iamtheelephante/elephante-sabai-love-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cff7twIuiTHhgyLb-sseCsA-t500x500.jpg">](https://soundcloud.com/dustinhertz/cherrymoon-trax-house-destruction-dustin-hertz-mashup)
 
-**Artist**: Elephante 
+**Artist**: Dustin Hertz 
 
-**Track**: Elephante & SABAI - Love Again
+**Track**: Cherrymoon Trax - House Destruction (Dustin Hertz Mashup)
 
-Last updated at 06/15/2023 13:47
+Last updated at 06/15/2023 13:48
