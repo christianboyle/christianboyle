@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5CLDVFXNM0y00PTW-Kp2H5Q-t500x500.jpg">](https://soundcloud.com/iamtheelephante/elephante-sabai-love-again)
 
-**Artist**: NAEMS 
+**Artist**: Elephante 
 
-**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
+**Track**: Elephante & SABAI - Love Again
 
-Last updated at 06/14/2023 13:15
+Last updated at 06/15/2023 13:47
