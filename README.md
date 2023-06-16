@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ACdgcU4mMYuUzyZg-eTtEgA-t500x500.jpg">](https://soundcloud.com/audiobambino/somneniya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EjBISNPBCPRBkz6n-V7vVng-t500x500.jpg">](https://soundcloud.com/bassrush/tech-noir-chimes-bassrush-premiere)
 
-**Artist**: audio bambino 
+**Artist**: Bassrush 
 
-**Track**: СОМНЕНИЯ
+**Track**: Tech Noir - Chimes [Bassrush Premiere]
 
-Last updated at 06/16/2023 18:42
+Last updated at 06/16/2023 18:52
