@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VoKlPeDaTjrD6Wnb-cghkRg-t500x500.jpg">](https://soundcloud.com/iamkultivate/justin-bieber-ghostkultivate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vdk9HMySozHfUBaY-t4f0zQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/lmfao-sexy-and-i-know-it-naems-remix)
 
-**Artist**: KULTIVATE 
+**Artist**: NAEMS 
 
-**Track**: Justin Bieber - Ghost (Kultivate Remix)
+**Track**: LMFAO - Sexy And I Know It (NAEMS REMIX)
 
-Last updated at 06/16/2023 18:53
+Last updated at 06/16/2023 18:54
