@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ihNjuTkc2OmJUsT-zCyEKA-t500x500.jpg">](https://soundcloud.com/cortrmusic/og-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cff7twIuiTHhgyLb-sseCsA-t500x500.jpg">](https://soundcloud.com/dustinhertz/cherrymoon-trax-house-destruction-dustin-hertz-mashup)
 
-**Artist**: CORTR 
+**Artist**: Dustin Hertz 
 
-**Track**: Troyboi - O.G (CORTR Remix)
+**Track**: Cherrymoon Trax - House Destruction (Dustin Hertz Mashup)
 
-Last updated at 06/16/2023 09:54
+Last updated at 06/16/2023 09:55
