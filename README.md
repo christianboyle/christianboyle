@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EjBISNPBCPRBkz6n-V7vVng-t500x500.jpg">](https://soundcloud.com/bassrush/tech-noir-chimes-bassrush-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VoKlPeDaTjrD6Wnb-cghkRg-t500x500.jpg">](https://soundcloud.com/iamkultivate/justin-bieber-ghostkultivate-remix)
 
-**Artist**: Bassrush 
+**Artist**: KULTIVATE 
 
-**Track**: Tech Noir - Chimes [Bassrush Premiere]
+**Track**: Justin Bieber - Ghost (Kultivate Remix)
 
-Last updated at 06/16/2023 18:52
+Last updated at 06/16/2023 18:53
