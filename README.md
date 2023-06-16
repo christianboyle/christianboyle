@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLixS6l4rZ9zRbKV-02h29g-t500x500.jpg">](https://soundcloud.com/wtfsthatsound/20twenty-stacks-when-record)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spjQTygykrpSz6VD-Wfoo7A-t500x500.jpg">](https://soundcloud.com/dj-colin-bell/blowout-10623-dj-colin-bell-vinyl-only-classics-set)
 
-**Artist**: Wtf’s That Sound 🛸 
+**Artist**: DJ Colin Bell 
 
-**Track**: 20Twenty - STACKS (When Record Labels Collide Vol. 2)
+**Track**: Blowout 10/6/23 DJ Colin Bell - Vinyl Only Classics Set
 
-Last updated at 06/16/2023 09:56
+Last updated at 06/16/2023 09:57
