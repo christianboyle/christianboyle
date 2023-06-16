@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVSUHi4Dt1yZR6Be-du7wBg-t500x500.jpg">](https://soundcloud.com/115666777/gossip-gurl-yhapojj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDFXFheKjdLuKzCX-yjsaBw-t500x500.jpg">](https://soundcloud.com/loudkult/mr-fog-yiqi-this-town)
 
-**Artist**: YhapoJJ 
+**Artist**: LoudKult 
 
-**Track**: Gossip Girl
+**Track**: Mr. Fog, Yiqi - This Town
 
-Last updated at 06/16/2023 09:03
+Last updated at 06/16/2023 09:05
