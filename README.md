@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pDFXFheKjdLuKzCX-yjsaBw-t500x500.jpg">](https://soundcloud.com/loudkult/mr-fog-yiqi-this-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LyvSzhP7U9p23pMe-y4MXZg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sdh-balance-av084)
 
-**Artist**: LoudKult 
+**Artist**: HATE 
 
-**Track**: Mr. Fog, Yiqi - This Town
+**Track**: Premiere: SDH - Balance [AV!084]
 
-Last updated at 06/16/2023 09:05
+Last updated at 06/16/2023 09:08
