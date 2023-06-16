@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1EXcgMimx8i9nbYy-TThOMQ-t500x500.jpg">](https://soundcloud.com/thefactory93/jay-lumen-the-fact)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbiJzazN2n08SnSg-B8AvVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/exjaynine-that-way?in=nightcore4totalsluts/sets/exjaynine-chart-heartless)
 
-**Artist**: Factory 93 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Jay Lumen - The Fact
+**Track**: exjaynine - That Way
 
-Last updated at 06/16/2023 09:48
+Last updated at 06/16/2023 09:49
