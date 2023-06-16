@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkBEEYjSfDfYbhmq-rnyQ5A-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-castle-in-the-sky-schranz-tool-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbiJzazN2n08SnSg-B8AvVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/exjaynine-that-way)
 
-**Artist**: CRAAIG 
+**Artist**: nightcore4totalsluts 
 
-**Track**: CRAAIG - Castle In The Sky [Hard Edit]
+**Track**: exjaynine - That Way
 
-Last updated at 06/16/2023 18:56
+Last updated at 06/16/2023 18:57
