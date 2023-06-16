@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6rROO9oXzfqWerw-Co8Zig-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-585-scantraxx-retrospective)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-981cwETyiwmu1Lln-Ybvi2w-t500x500.jpg">](https://soundcloud.com/d1vwv/its-cool?in=d1vwv/sets/againstthegrain)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: d1v 
 
-**Track**: KTRA Episode 585: Scantraxx Retrospective
+**Track**: its cool :( [michaelwarren]
 
-Last updated at 06/16/2023 11:14
+Last updated at 06/16/2023 16:08
