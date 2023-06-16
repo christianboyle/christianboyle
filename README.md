@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PWjhBHbMzLcEGBYH-py4yaA-t500x500.jpg">](https://soundcloud.com/datatransmissiondnb/pyxis-inevitable-incurzion-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ACdgcU4mMYuUzyZg-eTtEgA-t500x500.jpg">](https://soundcloud.com/audiobambino/somneniya)
 
-**Artist**: DT DNB 
+**Artist**: audio bambino 
 
-**Track**: pyxis 'Inevitable' [Incurzion Audio]
+**Track**: СОМНЕНИЯ
 
-Last updated at 06/16/2023 16:15
+Last updated at 06/16/2023 16:19
