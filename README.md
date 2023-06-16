@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cff7twIuiTHhgyLb-sseCsA-t500x500.jpg">](https://soundcloud.com/dustinhertz/cherrymoon-trax-house-destruction-dustin-hertz-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLixS6l4rZ9zRbKV-02h29g-t500x500.jpg">](https://soundcloud.com/wtfsthatsound/20twenty-stacks-when-record)
 
-**Artist**: Dustin Hertz 
+**Artist**: Wtf’s That Sound 🛸 
 
-**Track**: Cherrymoon Trax - House Destruction (Dustin Hertz Mashup)
+**Track**: 20Twenty - STACKS (When Record Labels Collide Vol. 2)
 
-Last updated at 06/16/2023 09:55
+Last updated at 06/16/2023 09:56
