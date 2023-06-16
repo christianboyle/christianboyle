@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyVazow2z8eY0E6U-D5M32Q-t500x500.jpg">](https://soundcloud.com/mikesrevenge/mikes-revenge-boss-crowsnest-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DC1DcUH7L6AD-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/exproz-death-code-ft-cryblood)
 
-**Artist**: Mikes Revenge 
+**Artist**: Gearbox Digital 
 
-**Track**: Mikes Revenge - Boss (Crowsnest Audio)
+**Track**: Exproz & DEATH CODE ft. CRYBLOOD - Too Far Gone
 
-Last updated at 06/16/2023 09:51
+Last updated at 06/16/2023 09:52
