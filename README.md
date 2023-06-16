@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-78Gj7wGm576jTiCR-Xp0B4A-t500x500.jpg">](https://soundcloud.com/user-jakesilva/world-hold-on-bob-sinclair-jake-silva-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYMFaEzWy38zicQR-hSqrBQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-club-trancer)
 
-**Artist**: Jake Silva 
+**Artist**: Rave Alert 
 
-**Track**: World Hold On - Bob Sinclair (Jake Silva Remix)
+**Track**: [PREMIERE] Geck-o  - Club Trancer (Neotrance)
 
-Last updated at 06/16/2023 16:29
+Last updated at 06/16/2023 18:36
