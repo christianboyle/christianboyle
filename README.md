@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Au7DDc4RnuDW-0-t500x500.jpg">](https://soundcloud.com/wandw/w-w-x-vinai-gangster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wna37wXaVRn7-0-t500x500.jpg">](https://soundcloud.com/firebeatz/the-party)
 
-**Artist**: W&W 
+**Artist**: Firebeatz 
 
-**Track**: W&W x VINAI - Gangster
+**Track**: The Party
 
-Last updated at 06/16/2023 09:15
+Last updated at 06/16/2023 09:17
