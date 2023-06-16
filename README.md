@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LyvSzhP7U9p23pMe-y4MXZg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sdh-balance-av084)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LjfpV0PQeigXegJG-SkOhSw-t500x500.jpg">](https://soundcloud.com/dopaminewifi/carl-chaste-misfits)
 
-**Artist**: HATE 
+**Artist**: DopamineWIFI 
 
-**Track**: Premiere: SDH - Balance [AV!084]
+**Track**: Carl Chaste - Misfits
 
-Last updated at 06/16/2023 09:08
+Last updated at 06/16/2023 09:11
