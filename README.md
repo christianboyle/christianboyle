@@ -1,6 +1,6 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/WY87o9IZXWg/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AH-AoACoAKKAgwIABABGEogLCh_MA8=&rs=AOn4CLBp8xTaK64mwTmgo6o5uzfqMXeB6Q">](https://www.youtube.com/watch?v=WY87o9IZXWg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/41kXJLheSrc/hqdefault.jpg">](https://www.youtube.com/watch?v=41kXJLheSrc)
 
 **Artist**: 
   
@@ -17,6 +17,6 @@
 
  
 
-**Track**: The Prodigy - Everybody In The Place (Official Video)
+**Track**: The Prodigy - Out Of Space (Official Video)
 
-Last updated at 06/16/2023 20:24
+Last updated at 06/16/2023 20:30
