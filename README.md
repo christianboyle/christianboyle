@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1A8LMUPMseXLBLec-7AQuQA-t500x500.jpg">](https://soundcloud.com/deviousmusik/daizy-dmc-devious-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaoXy7U4AFVlHaH4-asoCkQ-t500x500.jpg">](https://soundcloud.com/savagef80/better-off-alone-savage-remix)
 
-**Artist**: Devious 
+**Artist**: SAVAGE 
 
-**Track**: DAIZY - DMC (Devious Remix)
+**Track**: BETTER OFF ALONE (SAVAGE REMIX)
 
-Last updated at 06/16/2023 19:39
+Last updated at 06/16/2023 19:40
