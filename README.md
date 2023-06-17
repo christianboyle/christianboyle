@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0exAaWJnPcGTr8F0-bP8z2g-t500x500.jpg">](https://soundcloud.com/basscon/geo-haaradak-bring-it?in=iamgeoofficial/sets/geo-haaradak-bring-it-basscon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UipMjHHsnATJzRmB-TFZxFg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/party-hard-vol1)
 
-**Artist**: BASSCON 
+**Artist**: GEO 
 
-**Track**: GEO & Haaradak - BRING IT
+**Track**: PARTY HARD: VOL 1
 
-Last updated at 06/17/2023 13:40
+Last updated at 06/17/2023 13:41
