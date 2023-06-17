@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbiJzazN2n08SnSg-B8AvVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/exjaynine-that-way)
 
-**Artist**: Jkz 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Jkz - Addicted To You
+**Track**: exjaynine - That Way
 
-Last updated at 06/17/2023 11:09
+Last updated at 06/17/2023 13:32
