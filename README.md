@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zg674Tm1T4uthw0-fQ6Vzg-t500x500.jpg">](https://soundcloud.com/manifestdnb/manifest-mix-series-001-donny-brook?in=manifestdnb/sets/manifest-mix-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
 
-**Artist**: Manifest 
+**Artist**: Jkz 
 
-**Track**: Manifest Mix Series 001 - Donny Brook
+**Track**: Jkz - Addicted To You
 
-Last updated at 06/17/2023 08:44
+Last updated at 06/17/2023 08:45
