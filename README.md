@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYMFaEzWy38zicQR-hSqrBQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-club-trancer)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/CVUhB7_cmgw/maxresdefault.jpg">](https://www.youtube.com/watch?v=CVUhB7_cmgw)
 
-**Artist**: Rave Alert 
+**Artist**: 
+  
+    Augnos
+  
+  
+  
+    Augnos
+  
 
-**Track**: [PREMIERE] Geck-o  - Club Trancer (Neotrance)
 
-Last updated at 06/16/2023 20:33
+
+
+
+ 
+
+**Track**: Modern Jungle + Liquid Drum and Bass Mix - Wipeout: 1997 [Augnos live DJ set, recorded March 2023]
+
+Last updated at 06/16/2023 20:34
