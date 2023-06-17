@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1hJc34w4DvbdyZ37-sBTArQ-t500x500.jpg">](https://soundcloud.com/savagef80/ill-be-there-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
 
-**Artist**: SAVAGE 
+**Artist**: MC4D 
 
-**Track**: I'll Be There
+**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
 
-Last updated at 06/17/2023 18:40
+Last updated at 06/17/2023 18:41
