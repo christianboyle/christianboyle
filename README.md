@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhzYoZvFg1T0JMPu-lrIxMg-t500x500.jpg">](https://soundcloud.com/pzycco/0303a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Zg674Tm1T4uthw0-fQ6Vzg-t500x500.jpg">](https://soundcloud.com/manifestdnb/manifest-mix-series-001-donny-brook?in=manifestdnb/sets/manifest-mix-series)
 
-**Artist**: PZYCCO 
+**Artist**: Manifest 
 
-**Track**: 98.20.11 - 03:03
+**Track**: Manifest Mix Series 001 - Donny Brook
 
-Last updated at 06/17/2023 08:43
+Last updated at 06/17/2023 08:44
