@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ss7ZbdIad0KaBzF-ndMXJA-t500x500.jpg">](https://soundcloud.com/mcsleepwalker/disjointed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cYPoKKQjrMwKORH-HuNN0A-t500x500.jpg">](https://soundcloud.com/shweezofficial/daydream-final)
 
-**Artist**: ˜”*°•.˜”*°• mcsleepwalker •°*”˜.•°*”˜ 
+**Artist**: SHWEEZ 
 
-**Track**: Disjointed
+**Track**: SHWEEZ - DAYDREAM
 
-Last updated at 06/17/2023 08:46
+Last updated at 06/17/2023 08:47
