@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAtXL4RWyy3ruuze-eL2nAQ-t500x500.jpg">](https://soundcloud.com/rohaanofficial/icicle-nostalgia-rohaan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYMFaEzWy38zicQR-hSqrBQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-sikoti-we-never-choose-neotrance-va-for-the-dreamers)
 
-**Artist**: Rohaan 
+**Artist**: Rave Alert 
 
-**Track**: Icicle - Nostalgia (Rohaan Remix)
+**Track**: [PREMIERE] Sikoti - We Never Choose (Neotrance)
 
-Last updated at 06/16/2023 19:10
+Last updated at 06/16/2023 19:13
