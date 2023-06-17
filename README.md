@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/CVUhB7_cmgw/maxresdefault.jpg">](https://www.youtube.com/watch?v=CVUhB7_cmgw)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/WY87o9IZXWg/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AH-AoACoAKKAgwIABABGEogLCh_MA8=&rs=AOn4CLBp8xTaK64mwTmgo6o5uzfqMXeB6Q">](https://www.youtube.com/watch?v=WY87o9IZXWg)
 
 **Artist**: 
   
-    Augnos
+    The Prodigy
   
   
   
-    Augnos
+    The Prodigy
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: Modern Jungle + Liquid Drum and Bass Mix - Wipeout: 1997 [Augnos live DJ set, recorded March 2023]
+**Track**: The Prodigy - Everybody In The Place (Official Video)
 
-Last updated at 06/16/2023 20:10
+Last updated at 06/16/2023 20:24
