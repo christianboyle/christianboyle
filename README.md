@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ss7ZbdIad0KaBzF-ndMXJA-t500x500.jpg">](https://soundcloud.com/mcsleepwalker/disjointed)
 
-**Artist**: Jkz 
+**Artist**: ˜”*°•.˜”*°• mcsleepwalker •°*”˜.•°*”˜ 
 
-**Track**: Jkz - Addicted To You
+**Track**: Disjointed
 
-Last updated at 06/17/2023 08:45
+Last updated at 06/17/2023 08:46
