@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5xsvmaBl03g8fgq-OLxDEQ-t500x500.jpg">](https://soundcloud.com/blankemusicau/where-you-are-aeon-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGeFD2BJgoHlhFF5-9HljUA-t500x500.jpg">](https://soundcloud.com/dropcentral/therapy?in=hybridhouse/sets/therapy)
 
-**Artist**: Blanke 
+**Artist**: Drop Central 💧 
 
-**Track**: John Summit & Hayla - Where You Are (Blanke's ÆON:EDIT)
+**Track**: David Hazard - Therapy
 
-Last updated at 06/19/2023 15:23
+Last updated at 06/19/2023 15:25
