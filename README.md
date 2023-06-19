@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-208aN0zRLX0uzkhi-hlOHvg-t500x500.jpg">](https://soundcloud.com/aamourocean/peterparker69-loloi-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhqKyh8yIiVSaaD0-koQcFQ-t500x500.jpg">](https://soundcloud.com/no-sauce888/yeahhoe-trapbonzai-robbgikma-last-2)
 
-**Artist**: aamourocean 
+**Artist**: NO SAUCE 
 
-**Track**: Peterparker69 - loloi - aamourocean remix
+**Track**: YEAHOE w/ TRAPBONZAI & ROBBGIKMA
 
-Last updated at 06/19/2023 10:09
+Last updated at 06/19/2023 10:37
