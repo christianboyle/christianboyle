@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Tuy8O9TBqEVlonz-zm9AWQ-t500x500.jpg">](https://soundcloud.com/daniel-slessor/sless-falling-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KvllrDnffiExr2YH-Cccmcg-t500x500.jpg">](https://soundcloud.com/officialyussi/dimension-devotion-yussi-vip)
 
-**Artist**: SLESS 
+**Artist**: YUSSI 
 
-**Track**: SLESS - Falling Down
+**Track**: DIMENSION - DEVOTION (YUSSI VIP)
 
-Last updated at 06/19/2023 14:23
+Last updated at 06/19/2023 14:24
