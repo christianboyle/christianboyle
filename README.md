@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hUnFj9JVG26Exqy-GaYheA-t500x500.jpg">](https://soundcloud.com/inthelabrecordings/shots)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5xsvmaBl03g8fgq-OLxDEQ-t500x500.jpg">](https://soundcloud.com/blankemusicau/where-you-are-aeon-edit)
 
-**Artist**: In The Lab Recordings 
+**Artist**: Blanke 
 
-**Track**: Default Noise - Shots ft. Madrush MC (FREE DOWNLOAD)
+**Track**: John Summit & Hayla - Where You Are (Blanke's ÆON:EDIT)
 
-Last updated at 06/19/2023 15:18
+Last updated at 06/19/2023 15:23
