@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uo4hW4ISNiAvYE7i-9WE8yA-t500x500.jpg">](https://soundcloud.com/daniel-slessor/galantis-runaway-u-isless-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97iREfVggw9jOk8L-NKkiDQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-115-on-beat-1)
 
-**Artist**: SLESS 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Galantis - Runaway (U & I)(Sless Bootleg) FREE DOWNLOAD
+**Track**: Bonkers Beats #115 on Beat 106 Scotland with Al Storm & Rob IYF 160623 (Hour 1)
 
-Last updated at 06/19/2023 16:43
+Last updated at 06/19/2023 16:46
