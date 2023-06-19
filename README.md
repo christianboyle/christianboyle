@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhqKyh8yIiVSaaD0-koQcFQ-t500x500.jpg">](https://soundcloud.com/no-sauce888/yeahhoe-trapbonzai-robbgikma-last-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
 
-**Artist**: NO SAUCE 
+**Artist**: Jkz 
 
-**Track**: YEAHOE w/ TRAPBONZAI & ROBBGIKMA
+**Track**: Jkz - Addicted To You
 
-Last updated at 06/19/2023 10:37
+Last updated at 06/19/2023 11:00
