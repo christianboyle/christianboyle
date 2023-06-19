@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSbNUg3XOyuc9Ivl-ax90tw-t500x500.jpg">](https://soundcloud.com/theoutsidersdnb/baby-again-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvxHQqOhMHvTa8dG-AfGpjQ-t500x500.jpg">](https://soundcloud.com/pirapus/rufus-du-sol-innerbloom-pirapus-bootleg)
 
-**Artist**: The Outsiders 
+**Artist**: Pirapus 
 
-**Track**: Fred again..., Skrillex, Four Tet - Baby Again.. (The Outsiders Bootleg) [FREE DOWNLOAD]
+**Track**: Rüfüs Du Sol - Innerbloom (Pirapus Bootleg)
 
-Last updated at 06/19/2023 14:26
+Last updated at 06/19/2023 14:41
