@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-764y9js01C56pCHx-phrWKQ-t500x500.jpg">](https://soundcloud.com/justinhawkes/better-than-gold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJmwBggBgs4aHSIp-jKfe9Q-t500x500.jpg">](https://soundcloud.com/pirapus/pirapus-have-it-all-feat-jono-stewart)
 
-**Artist**: Justin Hawkes 
+**Artist**: Pirapus 
 
-**Track**: Better Than Gold (feat. Andrew Hellier)
+**Track**: Pirapus - Have It All (feat. Jono Stewart)
 
-Last updated at 06/19/2023 14:42
+Last updated at 06/19/2023 14:43
