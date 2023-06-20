@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5xsvmaBl03g8fgq-OLxDEQ-t500x500.jpg">](https://soundcloud.com/blankemusicau/where-you-are-aeon-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
 
-**Artist**: Blanke 
+**Artist**: Disco Lines 
 
-**Track**: John Summit & Hayla - Where You Are (Blanke's ÆON:EDIT)
+**Track**: MDMA
 
-Last updated at 06/20/2023 09:38
+Last updated at 06/20/2023 09:39
