@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJmwBggBgs4aHSIp-jKfe9Q-t500x500.jpg">](https://soundcloud.com/pirapus/pirapus-have-it-all-feat-jono-stewart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvxHQqOhMHvTa8dG-AfGpjQ-t500x500.jpg">](https://soundcloud.com/pirapus/rufus-du-sol-innerbloom-pirapus-bootleg)
 
 **Artist**: Pirapus 
 
-**Track**: Pirapus - Have It All (feat. Jono Stewart)
+**Track**: Rüfüs Du Sol - Innerbloom (Pirapus Bootleg)
 
-Last updated at 06/20/2023 09:44
+Last updated at 06/20/2023 09:47
