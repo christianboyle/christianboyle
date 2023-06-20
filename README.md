@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97iREfVggw9jOk8L-NKkiDQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-115-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlQkZI6xCMGCjyyy-ERwY2w-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-twenty-atrice-ilian-tape-rso)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Animalia 
 
-**Track**: Bonkers Beats #115 on Beat 106 Scotland with Al Storm & Rob IYF 160623 (Hour 1)
+**Track**: ani/live Twenty: Atrice @ Ilian Tape, RSO.
 
-Last updated at 06/19/2023 16:46
+Last updated at 06/20/2023 08:00
