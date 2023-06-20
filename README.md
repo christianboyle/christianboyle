@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ecQ7wHiVqJYyd07-D6jIhw-t500x500.jpg">](https://soundcloud.com/chylofficial/chyl-barbie-feat-melissa-brooks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyH8ThEWlogA7EJ3-ifFrVQ-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/uz-perroquet)
 
-**Artist**: CHYL 
+**Artist**: Quality Goods Records 
 
-**Track**: CHYL - Barbie (feat. Melissa Brooks)
+**Track**: QGRST-002 | UZ - Perroquet
 
-Last updated at 06/20/2023 09:00
+Last updated at 06/20/2023 09:01
