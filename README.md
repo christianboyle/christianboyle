@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJI2ST2YzwXkui1A-NgzmoA-t500x500.jpg">](https://soundcloud.com/edekit/go-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzyl6GUwrYyZUrJy-kKzoLg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/aryaxz-friday)
 
-**Artist**: Edekit 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Go Out
+**Track**: ✮  ☆  ° aryaxz - friday   ° ☆  ✮
 
-Last updated at 06/20/2023 17:51
+Last updated at 06/20/2023 18:59
