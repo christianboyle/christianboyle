@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KoagOXa19nCCceR7-tM5CGw-t500x500.jpg">](https://soundcloud.com/camouflybeats/chanel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ecQ7wHiVqJYyd07-D6jIhw-t500x500.jpg">](https://soundcloud.com/chylofficial/chyl-barbie-feat-melissa-brooks)
 
-**Artist**: camoufly 
+**Artist**: CHYL 
 
-**Track**: Frank Ocean - Chanel (camoufly "Steps Foot In A UK Rave Once" Remix)
+**Track**: CHYL - Barbie (feat. Melissa Brooks)
 
-Last updated at 06/20/2023 08:59
+Last updated at 06/20/2023 09:00
