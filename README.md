@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyH8ThEWlogA7EJ3-ifFrVQ-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/uz-perroquet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
 
-**Artist**: Quality Goods Records 
+**Artist**: Disco Lines 
 
-**Track**: QGRST-002 | UZ - Perroquet
+**Track**: MDMA
 
-Last updated at 06/20/2023 09:01
+Last updated at 06/20/2023 09:16
