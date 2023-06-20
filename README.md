@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooyOYh8rxvtkFBYP-3PHvoA-t500x500.jpg">](https://soundcloud.com/sikdope/more-is-more-with-tima-dee)
 
-**Artist**: Disco Lines 
+**Artist**: Sikdope 
 
-**Track**: MDMA
+**Track**: More Is More (with Tima Dee)
 
-Last updated at 06/20/2023 09:16
+Last updated at 06/20/2023 09:17
