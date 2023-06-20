@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owRWk9uxdPGhdVyN-jycJVw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-destrata-xl-of-paradise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PLmM4HtbFTxDy3FI-Q9jsgQ-t500x500.jpg">](https://soundcloud.com/slinkiuk/dancin-shooz-4x4-bassline)
 
-**Artist**: Four Four Magazine 
+**Artist**: Slinki 
 
-**Track**: Four Four Premiere: Destrata - XL [Of Paradise]
+**Track**: dancin shooz [4x4 bassline]
 
-Last updated at 06/20/2023 08:57
+Last updated at 06/20/2023 08:58
