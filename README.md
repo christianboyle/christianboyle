@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUERzs4z0gmIZ9UV-001uyw-t500x500.jpg">](https://soundcloud.com/xxkarl69xx/there-it-is)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5xsvmaBl03g8fgq-OLxDEQ-t500x500.jpg">](https://soundcloud.com/blankemusicau/where-you-are-aeon-edit)
 
-**Artist**: Karl 
+**Artist**: Blanke 
 
-**Track**: There It Is
+**Track**: John Summit & Hayla - Where You Are (Blanke's ÆON:EDIT)
 
-Last updated at 06/20/2023 09:32
+Last updated at 06/20/2023 09:38
