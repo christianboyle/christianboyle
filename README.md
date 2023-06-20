@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlQkZI6xCMGCjyyy-ERwY2w-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-twenty-atrice-ilian-tape-rso)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owRWk9uxdPGhdVyN-jycJVw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-destrata-xl-of-paradise)
 
-**Artist**: Animalia 
+**Artist**: Four Four Magazine 
 
-**Track**: ani/live Twenty: Atrice @ Ilian Tape, RSO.
+**Track**: Four Four Premiere: Destrata - XL [Of Paradise]
 
-Last updated at 06/20/2023 08:00
+Last updated at 06/20/2023 08:57
