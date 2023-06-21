@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsUkTBlI4xiCzB0C-n2AtWw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-avant-obelisk-ocsdgtl010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
 
-**Artist**: HATE 
+**Artist**: Disco Lines 
 
-**Track**: Premiere: Avant - Obelisk [OCSDGTL010]
+**Track**: MDMA
 
-Last updated at 06/21/2023 10:41
+Last updated at 06/21/2023 10:42
