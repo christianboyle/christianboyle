@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaoXy7U4AFVlHaH4-asoCkQ-t500x500.jpg">](https://soundcloud.com/savagef80/better-off-alone-savage-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgISR5cxvz5Ymcwq-ecyVEw-t500x500.jpg">](https://soundcloud.com/onetruegod/nuit-noir-dark-night-1)
 
-**Artist**: SAVAGE 
+**Artist**: One True God 
 
-**Track**: BETTER OFF ALONE (SAVAGE REMIX)
+**Track**: Nuit Noir (Dark Night)
 
-Last updated at 06/20/2023 20:12
+Last updated at 06/21/2023 07:54
