@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VoKlPeDaTjrD6Wnb-cghkRg-t500x500.jpg">](https://soundcloud.com/iamkultivate/justin-bieber-ghostkultivate-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bhBzUr2cIabhPEYi-Tw0LIQ-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-shanghai-doom-bustin)
 
-**Artist**: KULTIVATE 
+**Artist**: Wakaan 
 
-**Track**: Justin Bieber - Ghost (Kultivate Remix)
+**Track**: TVBOO, Shanghai Doom - Bustin'
 
-Last updated at 06/20/2023 19:00
+Last updated at 06/20/2023 19:57
