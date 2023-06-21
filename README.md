@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-208aN0zRLX0uzkhi-hlOHvg-t500x500.jpg">](https://soundcloud.com/aamourocean/peterparker69-loloi-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UipMjHHsnATJzRmB-TFZxFg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/party-hard-vol1)
 
-**Artist**: aamourocean 
+**Artist**: GEO 
 
-**Track**: Peterparker69 - loloi - aamourocean remix
+**Track**: PARTY HARD: VOL 1
 
-Last updated at 06/21/2023 14:34
+Last updated at 06/21/2023 14:37
