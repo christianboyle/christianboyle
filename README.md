@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VA0nPwzyNm7n-0-t500x500.jpg">](https://soundcloud.com/blondish/call-my-name-blondish-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXSdrk1lkj3rlks7-ugzdNA-t500x500.jpg">](https://soundcloud.com/variant-abdn/craaig-variant-live-mix)
 
-**Artist**: BLOND:ISH 
+**Artist**: Variant 
 
-**Track**: Call My Name
+**Track**: Variant Ep (06) - CRAAIG
 
-Last updated at 06/21/2023 17:56
+Last updated at 06/21/2023 17:57
