@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3p3tTGk4j7vuzzyZ-yoXq1w-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/introverted?in=hybridtrapradio/sets/introverted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REK6xkfK71ANCoTT-JdETyw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/aria-half-human)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Dirty Workz 
 
-**Track**: Polar Windz - Introverted
+**Track**: Aria - Half Human
 
-Last updated at 06/21/2023 07:55
+Last updated at 06/21/2023 07:56
