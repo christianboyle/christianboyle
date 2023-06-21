@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpxlh25TNfa3kcfE-4EFw6A-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-cri-du-coeur-flathead-steve-redhead-remix-arkxxx03)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yni6eUbh3C4rPBZE-n2nh7w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-bias-rest-energy-drea007)
 
 **Artist**: HATE 
 
-**Track**: Premiere: Cri Du Coeur - Flathead (Steve Redhead Remix) [Arkxxx03]
+**Track**: Premiere: Bias - Rest Energy [DREA007]
 
-Last updated at 06/21/2023 10:13
+Last updated at 06/21/2023 10:22
