@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tYfb9hjlzTI4brS-eEHOQg-t500x500.jpg">](https://soundcloud.com/buzzjunior/daizy-dmc-buzz-junior-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XkOPZqcW3c4Idpuo-b7qnEQ-t500x500.jpg">](https://soundcloud.com/goodsociety/loj-redshift)
 
-**Artist**: Buzz Junior 
+**Artist**: Good Society 
 
-**Track**: DAIZY - DMC (Buzz Junior Remix)
+**Track**: L*o*J - Redshift
 
-Last updated at 06/21/2023 17:54
+Last updated at 06/21/2023 17:55
