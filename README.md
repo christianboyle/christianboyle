@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzyl6GUwrYyZUrJy-kKzoLg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/aryaxz-friday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VoKlPeDaTjrD6Wnb-cghkRg-t500x500.jpg">](https://soundcloud.com/iamkultivate/justin-bieber-ghostkultivate-remix)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: KULTIVATE 
 
-**Track**: ✮  ☆  ° aryaxz - friday   ° ☆  ✮
+**Track**: Justin Bieber - Ghost (Kultivate Remix)
 
-Last updated at 06/20/2023 18:59
+Last updated at 06/20/2023 19:00
