@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UipMjHHsnATJzRmB-TFZxFg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/party-hard-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tYfb9hjlzTI4brS-eEHOQg-t500x500.jpg">](https://soundcloud.com/buzzjunior/daizy-dmc-buzz-junior-remix)
 
-**Artist**: GEO 
+**Artist**: Buzz Junior 
 
-**Track**: PARTY HARD: VOL 1
+**Track**: DAIZY - DMC (Buzz Junior Remix)
 
-Last updated at 06/21/2023 14:37
+Last updated at 06/21/2023 17:54
