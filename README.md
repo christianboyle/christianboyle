@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mgDyPJjOh2a7Fgx5-BQYsYQ-t500x500.jpg">](https://soundcloud.com/catchfrazeandzapdos/catchfraze-zapdos-mashup-pack-vol11-edmtech-bass-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hl8OZuTm5sbzpURy-zDkmUg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-cyb-oblak-gabbro-ia022-1)
 
-**Artist**: CATCHFRAZE AND ZAPDOS 
+**Artist**: HATE 
 
-**Track**: CATCHFRAZE & ZAPDOS | MASHUP PACK VOL.11 (EDM,TECH & BASS HOUSE)
+**Track**: Premiere: Cyb & Øblak - Gabbro [IA022]
 
-Last updated at 06/22/2023 09:39
+Last updated at 06/22/2023 09:40
