@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1gzQofyb2SA6iyA-9eMPlA-t500x500.jpg">](https://soundcloud.com/cashewmusic/busted-vol6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IDFf0WLYQIJcyqOA-BaY0Fw-t500x500.jpg">](https://soundcloud.com/dimmakrecords/p3pper-saint-miller-eternity)
 
-**Artist**: CASHEW 
+**Artist**: Dim Mak Records 
 
-**Track**: BUSTED VOL.6
+**Track**: P3PPER & Saint Miller - Eternity
 
-Last updated at 06/22/2023 09:41
+Last updated at 06/22/2023 09:42
