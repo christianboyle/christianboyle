@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXSdrk1lkj3rlks7-ugzdNA-t500x500.jpg">](https://soundcloud.com/variant-abdn/craaig-variant-live-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WP3Z8kr9Bn05RTK8-rIoE8Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-pako-marckx-the-dominator)
 
-**Artist**: Variant 
+**Artist**: Rave Alert 
 
-**Track**: Variant Ep (06) - CRAAIG
+**Track**: [PREMIERE] Pako Marckx - The Dominator
 
-Last updated at 06/21/2023 17:57
+Last updated at 06/22/2023 09:38
