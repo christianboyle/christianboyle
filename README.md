@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXSdrk1lkj3rlks7-ugzdNA-t500x500.jpg">](https://soundcloud.com/variant-abdn/craaig-variant-live-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJTqd0N4h4wm4rmI-G1Yn3A-t500x500.jpg">](https://soundcloud.com/discolines/disco-lines-live-edc-lv-2023)
 
-**Artist**: Variant 
+**Artist**: Disco Lines 
 
-**Track**: Variant Ep (06) - CRAAIG
+**Track**: DISCO LINES LIVE @ EDC LAS VEGAS 2023
 
-Last updated at 06/22/2023 11:14
+Last updated at 06/22/2023 12:38
