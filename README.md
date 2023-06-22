@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WP3Z8kr9Bn05RTK8-rIoE8Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-pako-marckx-the-dominator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mgDyPJjOh2a7Fgx5-BQYsYQ-t500x500.jpg">](https://soundcloud.com/catchfrazeandzapdos/catchfraze-zapdos-mashup-pack-vol11-edmtech-bass-house)
 
-**Artist**: Rave Alert 
+**Artist**: CATCHFRAZE AND ZAPDOS 
 
-**Track**: [PREMIERE] Pako Marckx - The Dominator
+**Track**: CATCHFRAZE & ZAPDOS | MASHUP PACK VOL.11 (EDM,TECH & BASS HOUSE)
 
-Last updated at 06/22/2023 09:38
+Last updated at 06/22/2023 09:39
