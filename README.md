@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJTqd0N4h4wm4rmI-G1Yn3A-t500x500.jpg">](https://soundcloud.com/discolines/disco-lines-live-edc-lv-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxQL4UN9iyzZQAqg-OTQELA-t500x500.jpg">](https://soundcloud.com/33below/justin-bieber-2-much-33-below-ukg-flip)
 
-**Artist**: Disco Lines 
+**Artist**: 33 BELOW 
 
-**Track**: DISCO LINES LIVE @ EDC LAS VEGAS 2023
+**Track**: Justin Bieber - 2 Much (33 Below UKG Flip)
 
-Last updated at 06/22/2023 12:38
+Last updated at 06/22/2023 12:39
