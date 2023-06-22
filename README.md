@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uj2K8l4WTsZHSc8D-tDm2AA-t500x500.jpg">](https://soundcloud.com/itsdemotapes/sedatives-w33-below)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8VYy8HgbKWWlNxX-SBGUqw-t500x500.jpg">](https://soundcloud.com/glazzglow/prison-riot-glazzglow-flip)
 
-**Artist**: demotapes 
+**Artist**: GlazzGlow 
 
-**Track**: sedatives (w/33 Below)
+**Track**: Prison Riot (GlazzGlow Flip)
 
-Last updated at 06/22/2023 13:54
+Last updated at 06/22/2023 13:55
