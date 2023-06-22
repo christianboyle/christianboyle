@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ubUcyYGhq4wst2WN-tuQMpw-t500x500.jpg">](https://soundcloud.com/circusrecords/drezza-x-mad-lab-let-it-go-1?in=circusrecords/sets/drezza-lost-art-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000380825310-7mge5j-t500x500.jpg">](https://soundcloud.com/justicehardcore/cherry)
 
-**Artist**: Circus Records Official 
+**Artist**: Justice Hardcore 
 
-**Track**: Drezza x MAD-LAB - Let It Go
+**Track**: S3RL - Cherry Pop (EzKill Remix) ■FREE DOWNLOAD■
 
-Last updated at 06/22/2023 13:58
+Last updated at 06/22/2023 13:59
