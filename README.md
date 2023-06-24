@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000167079313-kk2g64-t500x500.jpg">](https://soundcloud.com/djchoochoo/release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161124592-jy71tc-t500x500.jpg">](https://soundcloud.com/djchoochoo/rest-of-ur-life)
 
 **Artist**: choo choo 
 
-**Track**: release
+**Track**: rest of ur life
 
-Last updated at 06/24/2023 18:32
+Last updated at 06/24/2023 18:34
