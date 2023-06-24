@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-xzSScyjjXHKQY0Vk-pkoctQ-t500x500.jpg">](https://soundcloud.com/djesports/deep-sea-discovery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000476296047-5f22qn-t500x500.jpg">](https://soundcloud.com/ducky/day-zero?in=ducky/sets/i-still-believe-in-love)
 
-**Artist**: DJ eSPORTS 
+**Artist**: DUCKY 
 
-**Track**: Deep Sea Discovery [VGM OST]
+**Track**: Day Zero
 
-Last updated at 06/24/2023 17:46
+Last updated at 06/24/2023 17:47
