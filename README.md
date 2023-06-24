@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000187580196-wix7ne-t500x500.jpg">](https://soundcloud.com/nightcore-zine/coy-peach-k33p-c4lm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000169447115-01h2sc-t500x500.jpg">](https://soundcloud.com/mall-music-inc/dj-mastercard-lethal-feat-dj-paypal)
 
-**Artist**: The Nightcore Zine 
+**Artist**: MALL MUSIC INC. 
 
-**Track**: Coy Peach - k33p c4lm
+**Track**: DJ Mastercard - Lethal Feat. DJ Paypal
 
-Last updated at 06/24/2023 17:37
+Last updated at 06/24/2023 17:38
