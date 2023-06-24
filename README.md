@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000109508369-cyeig8-t500x500.jpg">](https://soundcloud.com/kerokerobonito/picture-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
 
-**Artist**: Kero Kero Bonito 
+**Artist**: STRIDER 
 
-**Track**: Picture This
+**Track**: THE WIRED
 
-Last updated at 06/24/2023 17:53
+Last updated at 06/24/2023 17:54
