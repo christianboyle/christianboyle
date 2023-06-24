@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueMHXjiz9Puzgs4q-cOsSnw-t500x500.jpg">](https://soundcloud.com/carpainter/banvox-utrechtcarpainter-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tmya15uBgyqxCAXp-mfexLw-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-vs-guchon-home-workout-trax)
 
-**Artist**: Carpainter 
+**Artist**: TREKKIE TRAX 
 
-**Track**: banvox - 「Utrecht（Carpainter Remix）」
+**Track**: Carpainter VS Guchon - Home Workout Trax [Official Teaser]
 
-Last updated at 06/24/2023 18:23
+Last updated at 06/24/2023 18:24
