@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000249674716-h3bk9l-t500x500.jpg">](https://soundcloud.com/notstrider/strider-ft-space-candy-feel-the-vibe-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000155016588-lonvlu-t500x500.jpg">](https://soundcloud.com/djesports/love-is-not-a-game-1)
 
-**Artist**: STRIDER 
+**Artist**: DJ eSPORTS 
 
-**Track**: STRIDER Ft. Space Candy - Feel The Vibe
+**Track**: Love Is Not A Game
 
-Last updated at 06/24/2023 17:51
+Last updated at 06/24/2023 17:52
