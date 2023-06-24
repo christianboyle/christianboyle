@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QJHfl3o9lIwXewr7-wHNfSQ-t500x500.jpg">](https://soundcloud.com/skankandbass/leks-vices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztN1wz3rJdOlqhUW-PnmG6A-t500x500.jpg">](https://soundcloud.com/bbyeco/sky-bound-feat-aj-simons)
 
-**Artist**: Skankandbass 
+**Artist**: Bby Eco 
 
-**Track**: Leks - Vices
+**Track**: Sky Bound (feat. Aj Simons)
 
-Last updated at 06/24/2023 17:28
+Last updated at 06/24/2023 17:29
