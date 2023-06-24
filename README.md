@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000134976706-rj8rqg-t500x500.jpg">](https://soundcloud.com/lasting-2/share)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t500x500.jpg">](https://soundcloud.com/wopak/private-edit)
 
-**Artist**: Lasting 
+**Artist**: Wopak 
 
-**Track**: Share
+**Track**: Private Edit
 
-Last updated at 06/24/2023 17:33
+Last updated at 06/24/2023 17:34
