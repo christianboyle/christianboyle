@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000454298730-tjqwx9-t500x500.jpg">](https://soundcloud.com/iamonlytom/comeclean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
 
-**Artist**: onlytom 
+**Artist**: STRIDER 
 
-**Track**: come clean (onlytom bootleg)
+**Track**: THE WIRED
 
-Last updated at 06/24/2023 17:48
+Last updated at 06/24/2023 17:49
