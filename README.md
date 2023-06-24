@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000161124592-jy71tc-t500x500.jpg">](https://soundcloud.com/djchoochoo/rest-of-ur-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000158106589-q9o7hk-t500x500.jpg">](https://soundcloud.com/djchoochoo/in-your-eyes)
 
 **Artist**: choo choo 
 
-**Track**: rest of ur life
+**Track**: in your eyes
 
-Last updated at 06/24/2023 18:34
+Last updated at 06/24/2023 18:37
