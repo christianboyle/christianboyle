@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hh3mV7WtOWtlLOpR-kFp74w-t500x500.jpg">](https://soundcloud.com/symmetrikmusic/0800-heaven-symmetrik-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XQywMDzlQtJ0i84d-nYkh0Q-t500x500.jpg">](https://soundcloud.com/dunkmellowd/mellowd-nothing-you-can-do)
 
-**Artist**: Symmetrik 
+**Artist**: MellowD 
 
-**Track**: Nathan Dawe x Joel Corry x Ella Henderson - 0800 HEAVEN (Symmetrik Remix)
+**Track**: MellowD - Nothing You Can Do
 
-Last updated at 06/24/2023 17:18
+Last updated at 06/24/2023 17:23
