@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000476296047-5f22qn-t500x500.jpg">](https://soundcloud.com/ducky/day-zero?in=ducky/sets/i-still-believe-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000454298730-tjqwx9-t500x500.jpg">](https://soundcloud.com/iamonlytom/comeclean)
 
-**Artist**: DUCKY 
+**Artist**: onlytom 
 
-**Track**: Day Zero
+**Track**: come clean (onlytom bootleg)
 
-Last updated at 06/24/2023 17:47
+Last updated at 06/24/2023 17:48
