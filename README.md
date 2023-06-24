@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuKTk3Kk3XIBRg89-tKPBFQ-t500x500.jpg">](https://soundcloud.com/johnsummit/john-summit-guz-what-a-life-feat-stevie-appleton)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lW1psJlNWsfdDTBn-ywZoOA-t500x500.jpg">](https://soundcloud.com/g59/my-swisher-sweet-but-my-sig-sauer)
 
-**Artist**: John Summit 
+**Artist**: $UICIDEBOY$ 
 
-**Track**: John Summit & Guz - What A Life (Feat. Stevie Appleton)
+**Track**: $UICIDEBOY$ x GERM - MY SWISHER SWEET, BUT MY SIG SAUER
 
-Last updated at 06/24/2023 08:47
+Last updated at 06/24/2023 08:50
