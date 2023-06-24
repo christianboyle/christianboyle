@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673600465-nqsx8x-t500x500.jpg">](https://soundcloud.com/madzoomusic/carpainter-wut-u-tryin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658845394-ru8m2q-t500x500.jpg">](https://soundcloud.com/carpainter/fellsius-black-carpainter-remix)
 
-**Artist**: MAD ZOO 
+**Artist**: Carpainter 
 
-**Track**: Carpainter - Wut U Tryin
+**Track**: Fellsius - Black (Carpainter Remix)
 
-Last updated at 06/24/2023 18:26
+Last updated at 06/24/2023 18:27
