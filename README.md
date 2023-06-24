@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5zFv2ZUVcYV6kwf-1SZCiw-t500x500.jpg">](https://soundcloud.com/0055rave/alice-deejay-better-off-alone-0055rave-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2bSJjemBfY3xH2P-LcvBNg-t500x500.jpg">](https://soundcloud.com/hexed-official/soulja-boy-turn-my-swag-on-hexed-remix)
 
-**Artist**: 0055RAVE 
+**Artist**: HEXED 
 
-**Track**: Alice Deejay - Better Off Alone (0055RAVE Remix)[Free Download]
+**Track**: SOULJA BOY - TURN MY SWAG ON (HEXED REMIX)
 
-Last updated at 06/24/2023 11:23
+Last updated at 06/24/2023 16:31
