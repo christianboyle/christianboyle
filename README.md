@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000640560058-if0nkg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-mission-accepted-1?in=trekkie-trax/sets/carpainter-future-legacy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000167079313-kk2g64-t500x500.jpg">](https://soundcloud.com/djchoochoo/release)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: choo choo 
 
-**Track**: Carpainter - Mission Accepted
+**Track**: release
 
-Last updated at 06/24/2023 18:30
+Last updated at 06/24/2023 18:32
