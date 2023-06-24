@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000158106589-q9o7hk-t500x500.jpg">](https://soundcloud.com/djchoochoo/in-your-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157958418-ko3dye-t500x500.jpg">](https://soundcloud.com/djchoochoo/u-i)
 
 **Artist**: choo choo 
 
-**Track**: in your eyes
+**Track**: u & i
 
-Last updated at 06/24/2023 18:37
+Last updated at 06/24/2023 18:40
