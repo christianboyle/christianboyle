@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueMHXjiz9Puzgs4q-cOsSnw-t500x500.jpg">](https://soundcloud.com/carpainter/banvox-utrechtcarpainter-remix)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Carpainter 
 
-**Track**: Dj CHRISTIAN NXC - S1X FLAGS
+**Track**: banvox - 「Utrecht（Carpainter Remix）」
 
-Last updated at 06/24/2023 18:07
+Last updated at 06/24/2023 18:23
