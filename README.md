@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000391192791-fcdssj-t500x500.jpg">](https://soundcloud.com/tsumutsumu/2019a)
 
-**Artist**: STRIDER 
+**Artist**: T5UMUT5UMU 
 
-**Track**: THE WIRED
+**Track**: 2019 [Remaster]
 
-Last updated at 06/24/2023 17:49
+Last updated at 06/24/2023 17:50
