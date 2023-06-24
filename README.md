@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000155016588-lonvlu-t500x500.jpg">](https://soundcloud.com/djesports/love-is-not-a-game-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000109508369-cyeig8-t500x500.jpg">](https://soundcloud.com/kerokerobonito/picture-this)
 
-**Artist**: DJ eSPORTS 
+**Artist**: Kero Kero Bonito 
 
-**Track**: Love Is Not A Game
+**Track**: Picture This
 
-Last updated at 06/24/2023 17:52
+Last updated at 06/24/2023 17:53
