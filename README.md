@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PkzGatGdnwh6nmyc-j7YAew-t500x500.jpg">](https://soundcloud.com/0055rave/atb-9pm-aest-0055rave-hard-edit?in=0055rave/sets/remixes-edits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hh3mV7WtOWtlLOpR-kFp74w-t500x500.jpg">](https://soundcloud.com/symmetrikmusic/0800-heaven-symmetrik-remix)
 
-**Artist**: 0055RAVE 
+**Artist**: Symmetrik 
 
-**Track**: ATB - 9PM AEST (0055RAVE HARD EDIT)
+**Track**: Nathan Dawe x Joel Corry x Ella Henderson - 0800 HEAVEN (Symmetrik Remix)
 
-Last updated at 06/24/2023 17:17
+Last updated at 06/24/2023 17:18
