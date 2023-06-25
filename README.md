@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000366728274-v11e8t-t500x500.jpg">](https://soundcloud.com/ducky/headfirst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000005327773-82cl54-t500x500.jpg">](https://soundcloud.com/silveraxe/10-confusion-dub-m-1)
 
-**Artist**: DUCKY 
+**Artist**: The Pump Panel 
 
-**Track**: Headfirst
+**Track**: Confusion Dub AKA Theme From BLADE - Extended Re-Edit - Remastered
 
-Last updated at 06/25/2023 17:31
+Last updated at 06/25/2023 17:41
