@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190028776-w6bnu6-t500x500.jpg">](https://soundcloud.com/deskpopmusic/strider-the-evil-kidnapper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
 
-**Artist**: DESKPOP 🌵🖥💛 
+**Artist**: STRIDER 
 
-**Track**: STRIDER & the EVIL KIDNAPPER
+**Track**: THE WIRED
 
-Last updated at 06/24/2023 19:22
+Last updated at 06/24/2023 19:25
