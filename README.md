@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uLIusNMHQHxhZBpy-cOLL7w-t500x500.jpg">](https://soundcloud.com/moong-rl/requiem-for-afterlife-ecco2k-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zyJzTv1Y99KCfMe-TOVyKw-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-vs-isagen-hawks)
 
-**Artist**: moong!rl 
+**Artist**: TREKKIE TRAX 
 
-**Track**: ∞ₒ˚ 𐐒  requiem for afterlife (ecco2k bootleg)  𐐚 ˚ₒ∞
+**Track**: Carpainter VS isagen - Hawks
 
-Last updated at 06/25/2023 17:29
+Last updated at 06/25/2023 17:30
