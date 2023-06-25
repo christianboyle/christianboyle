@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000366728274-v11e8t-t500x500.jpg">](https://soundcloud.com/ducky/headfirst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000391192791-fcdssj-t500x500.jpg">](https://soundcloud.com/tsumutsumu/2019a)
 
-**Artist**: DUCKY 
+**Artist**: T5UMUT5UMU 
 
-**Track**: Headfirst
+**Track**: 2019 [Remaster]
 
-Last updated at 06/24/2023 19:13
+Last updated at 06/24/2023 19:17
