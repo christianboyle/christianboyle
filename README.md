@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UqE8kiBX6AjfyPFa-3zOBxg-t500x500.jpg">](https://soundcloud.com/noizon/noizon-resonate-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pygWW98CUpLvrOJX-ngPXwA-t500x500.jpg">](https://soundcloud.com/pcmus/ten)
 
-**Artist**: Noizon 
+**Artist**: PC Music ♩ 
 
-**Track**: Noizon - Resonate
+**Track**: 10
 
-Last updated at 06/25/2023 15:26
+Last updated at 06/25/2023 15:27
