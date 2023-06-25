@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157958418-ko3dye-t500x500.jpg">](https://soundcloud.com/djchoochoo/u-i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
 
-**Artist**: choo choo 
+**Artist**: NITE CORP. 
 
-**Track**: u & i
+**Track**: aamourocean - u're not alone
 
-Last updated at 06/24/2023 19:31
+Last updated at 06/24/2023 19:45
