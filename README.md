@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVqaAtYpYZDpPUaH-vzO4XQ-t500x500.jpg">](https://soundcloud.com/limitbreaksmusic/limit-breaks-psychout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
 
-**Artist**: LIMIT BREAKS 
+**Artist**: STRIDER 
 
-**Track**: PSYCHOUT
+**Track**: THE WIRED
 
-Last updated at 06/24/2023 19:48
+Last updated at 06/25/2023 07:42
