@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAIMARpwLKKvfsdl-pFue1g-t500x500.jpg">](https://soundcloud.com/djsterfry/target)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VCXkoAxpcXk95Cyz-8tlopw-t500x500.jpg">](https://soundcloud.com/pls-ty/upside)
 
-**Artist**: Sterfry 
+**Artist**: PLS&TY 
 
-**Track**: TARGET
+**Track**: PLS&TY - Upside (ft. Ben Samama)
 
-Last updated at 06/25/2023 17:27
+Last updated at 06/25/2023 17:28
