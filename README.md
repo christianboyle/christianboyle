@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxlpWGwh7t0zc5ik-84uQIQ-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/dj-smokey-secret-tape-3-hosted-by-swmg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAIMARpwLKKvfsdl-pFue1g-t500x500.jpg">](https://soundcloud.com/djsterfry/target)
 
-**Artist**: shadow wizard money gang 
+**Artist**: Sterfry 
 
-**Track**: DJ Smokey - Secret Tape 3 [HOSTED BY SWMG]
+**Track**: TARGET
 
-Last updated at 06/25/2023 17:03
+Last updated at 06/25/2023 17:27
