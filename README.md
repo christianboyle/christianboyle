@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zyJzTv1Y99KCfMe-TOVyKw-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-vs-isagen-hawks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000366728274-v11e8t-t500x500.jpg">](https://soundcloud.com/ducky/headfirst)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: DUCKY 
 
-**Track**: Carpainter VS isagen - Hawks
+**Track**: Headfirst
 
-Last updated at 06/25/2023 17:30
+Last updated at 06/25/2023 17:31
