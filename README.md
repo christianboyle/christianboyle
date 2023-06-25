@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UqE8kiBX6AjfyPFa-3zOBxg-t500x500.jpg">](https://soundcloud.com/noizon/noizon-resonate-1)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Noizon 
 
-**Track**: Dj CHRISTIAN NXC - S1X FLAGS
+**Track**: Noizon - Resonate
 
-Last updated at 06/25/2023 07:55
+Last updated at 06/25/2023 15:26
