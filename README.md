@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000005327773-82cl54-t500x500.jpg">](https://soundcloud.com/silveraxe/10-confusion-dub-m-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157958418-ko3dye-t500x500.jpg">](https://soundcloud.com/djchoochoo/u-i)
 
-**Artist**: The Pump Panel 
+**Artist**: choo choo 
 
-**Track**: Confusion Dub AKA Theme From BLADE - Extended Re-Edit - Remastered
+**Track**: u & i
 
-Last updated at 06/24/2023 19:30
+Last updated at 06/24/2023 19:31
