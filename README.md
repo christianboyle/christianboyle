@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166395049-yj5cth-t500x500.jpg">](https://soundcloud.com/grazcore/k80-p3rry-walkin-on-air-graz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000366728274-v11e8t-t500x500.jpg">](https://soundcloud.com/ducky/headfirst)
 
-**Artist**: Graz 
+**Artist**: DUCKY 
 
-**Track**: K80 Perry - Walkin On Air (Graz Remix)
+**Track**: Headfirst
 
-Last updated at 06/24/2023 19:09
+Last updated at 06/24/2023 19:13
