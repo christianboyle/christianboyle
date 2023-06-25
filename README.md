@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000391192791-fcdssj-t500x500.jpg">](https://soundcloud.com/tsumutsumu/2019a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000190028776-w6bnu6-t500x500.jpg">](https://soundcloud.com/deskpopmusic/strider-the-evil-kidnapper)
 
-**Artist**: T5UMUT5UMU 
+**Artist**: DESKPOP 🌵🖥💛 
 
-**Track**: 2019 [Remaster]
+**Track**: STRIDER & the EVIL KIDNAPPER
 
-Last updated at 06/24/2023 19:17
+Last updated at 06/24/2023 19:22
