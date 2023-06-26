@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvJZRIFqzRdE4xFZ-3ck1RQ-t500x500.png">](https://soundcloud.com/rinsefm/hessleaudio200921)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zB0nSXayYhxjtcod-yQrUDw-t500x500.jpg">](https://soundcloud.com/kosenprod/noise-parfumerie-nightmare-kosen69)
 
-**Artist**: Rinse FM 
+**Artist**: Kosenprod 
 
-**Track**: Hessle Audio - Trekkie Trax Takeover - 20 September 2021
+**Track**: Noise Parfumerie - Nightmare [KOSEN69]
 
-Last updated at 06/26/2023 12:38
+Last updated at 06/26/2023 12:39
