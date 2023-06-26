@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yVvlmMtQKly1EMbH-cFTz9w-t500x500.jpg">](https://soundcloud.com/districtbassmusic/bacon-600)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPesIYSxzQT6JSXe-JzDwJw-t500x500.jpg">](https://soundcloud.com/all172things/jaise-slow-mover-premiere)
 
-**Artist**: DistrictBass 
+**Artist**: All172Things 
 
-**Track**: Bacon - 600
+**Track**: Jaise - Slow Mover [Premiere]
 
-Last updated at 06/26/2023 12:48
+Last updated at 06/26/2023 12:52
