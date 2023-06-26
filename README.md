@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izkG5n14N1yRWHkN-KxXZ3Q-t500x500.jpg">](https://soundcloud.com/thisneverhappenedlabel/nimino-lucas-geddes-cant-get-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fiSBz2ntpQq6LNCp-MMNSqA-t500x500.jpg">](https://soundcloud.com/officialposeidondubstep/ixion)
 
-**Artist**: This Never Happened 
+**Artist**: Poseidon 
 
-**Track**: nimino & Lucas Geddes - Can't Get Over
+**Track**: Ixion
 
-Last updated at 06/26/2023 13:08
+Last updated at 06/26/2023 13:12
