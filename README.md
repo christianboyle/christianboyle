@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgX4qtwlbebtsonj-vIPE1A-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-blimp-x-mild-how-i-feel-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izkG5n14N1yRWHkN-KxXZ3Q-t500x500.jpg">](https://soundcloud.com/thisneverhappenedlabel/nimino-lucas-geddes-cant-get-over)
 
-**Artist**: Four Four Magazine 
+**Artist**: This Never Happened 
 
-**Track**: Four Four Premiere: Blimp X mild - how i feel
+**Track**: nimino & Lucas Geddes - Can't Get Over
 
-Last updated at 06/26/2023 13:05
+Last updated at 06/26/2023 13:08
