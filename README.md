@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a28HIYVaYYeRZz4F-DIpKGA-t500x500.jpg">](https://soundcloud.com/barongfamily/rayray-full-speed-ft-ozi-death-code-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pygWW98CUpLvrOJX-ngPXwA-t500x500.jpg">](https://soundcloud.com/pcmus/ten)
 
-**Artist**: Barong Family 
+**Artist**: PC Music ♩ 
 
-**Track**: RayRay - Full Speed Ft. ØZI (DEATH CODE Remix)
+**Track**: 10
 
-Last updated at 06/26/2023 14:53
+Last updated at 06/26/2023 14:54
