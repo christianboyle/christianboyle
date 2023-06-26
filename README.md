@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVqaAtYpYZDpPUaH-vzO4XQ-t500x500.jpg">](https://soundcloud.com/limitbreaksmusic/limit-breaks-psychout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lW1psJlNWsfdDTBn-ywZoOA-t500x500.jpg">](https://soundcloud.com/g59/my-swisher-sweet-but-my-sig-sauer)
 
-**Artist**: LIMIT BREAKS 
+**Artist**: $UICIDEBOY$ 
 
-**Track**: PSYCHOUT
+**Track**: $UICIDEBOY$ x GERM - MY SWISHER SWEET, BUT MY SIG SAUER
 
-Last updated at 06/25/2023 17:57
+Last updated at 06/25/2023 19:59
