@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lW1psJlNWsfdDTBn-ywZoOA-t500x500.jpg">](https://soundcloud.com/g59/my-swisher-sweet-but-my-sig-sauer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
 
-**Artist**: $UICIDEBOY$ 
+**Artist**: STRIDER 
 
-**Track**: $UICIDEBOY$ x GERM - MY SWISHER SWEET, BUT MY SIG SAUER
+**Track**: THE WIRED
 
-Last updated at 06/25/2023 19:59
+Last updated at 06/26/2023 09:31
