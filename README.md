@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssgmui5vsQmzNfaA-QtoSIQ-t500x500.jpg">](https://soundcloud.com/planetzuzy/help-me-lose-my-mind-planet-zuzy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zyJzTv1Y99KCfMe-TOVyKw-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-vs-isagen-hawks)
 
-**Artist**: Planet Zuzy 
+**Artist**: TREKKIE TRAX 
 
-**Track**: Help Me Lose My Mind (Remix)
+**Track**: Carpainter VS isagen - Hawks
 
-Last updated at 06/26/2023 17:19
+Last updated at 06/26/2023 17:20
