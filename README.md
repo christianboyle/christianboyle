@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4MJKp077eDSqlqZ-D9JjUQ-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/leks-deefa-no-return)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a28HIYVaYYeRZz4F-DIpKGA-t500x500.jpg">](https://soundcloud.com/barongfamily/rayray-full-speed-ft-ozi-death-code-remix)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Barong Family 
 
-**Track**: Leks & Deefa - No Return
+**Track**: RayRay - Full Speed Ft. ØZI (DEATH CODE Remix)
 
-Last updated at 06/26/2023 14:52
+Last updated at 06/26/2023 14:53
