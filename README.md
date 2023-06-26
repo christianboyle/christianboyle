@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157958418-ko3dye-t500x500.jpg">](https://soundcloud.com/djchoochoo/u-i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
 
-**Artist**: choo choo 
+**Artist**: nightcore4totalsluts 
 
-**Track**: u & i
+**Track**: Dj CHRISTIAN NXC - S1X FLAGS
 
-Last updated at 06/26/2023 09:41
+Last updated at 06/26/2023 09:43
