@@ -1,14 +1,14 @@
 ## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/JW5UEW2kYvc/maxresdefault.jpg">](https://www.youtube.com/watch?v=JW5UEW2kYvc)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/psuRGfAaju4/maxresdefault.jpg">](https://www.youtube.com/watch?v=psuRGfAaju4)
 
 **Artist**: 
   
-    Alan Jackson
+    Owl City
   
   
   
-    Alan Jackson
+    Owl City
   
 
 
@@ -17,6 +17,6 @@
 
  
 
-**Track**: Alan Jackson - Chattahoochee (Official HD Video)
+**Track**: Owl City - Fireflies (Official Music Video)
 
-Last updated at 06/26/2023 18:27
+Last updated at 06/26/2023 18:36
