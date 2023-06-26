@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5vQ53y9C3yma13Y2-ZsIisw-t500x500.jpg">](https://soundcloud.com/nightserviceonly/cid-truth-x-lies-caroline-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgX4qtwlbebtsonj-vIPE1A-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-blimp-x-mild-how-i-feel-1)
 
-**Artist**: Night Service Only 
+**Artist**: Four Four Magazine 
 
-**Track**: CID & Truth X Lies - Caroline (Extended Mix)
+**Track**: Four Four Premiere: Blimp X mild - how i feel
 
-Last updated at 06/26/2023 13:00
+Last updated at 06/26/2023 13:05
