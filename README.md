@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sfSysfDtst5KPA7U-BEm09A-t500x500.jpg">](https://soundcloud.com/grrrreatdane/what-meow-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VjftVYQ4UzprR9Z7-J9c8UQ-t500x500.jpg">](https://soundcloud.com/spajramusic/the-setting-sun-1)
 
-**Artist**: Great Dane 
+**Artist**: Spajra 
 
-**Track**: What Meow?
+**Track**: The Setting Sun
 
-Last updated at 06/26/2023 12:58
+Last updated at 06/26/2023 12:59
