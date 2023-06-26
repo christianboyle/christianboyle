@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/psuRGfAaju4/maxresdefault.jpg">](https://www.youtube.com/watch?v=psuRGfAaju4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqUsbFnnsDBo8jyM-vNPACQ-t500x500.jpg">](https://soundcloud.com/olswel/sos)
 
-**Artist**: 
-  
-    Owl City
-  
-  
-  
-    Owl City
-  
+**Artist**: olswel 
 
+**Track**: sos
 
-
-
-
- 
-
-**Track**: Owl City - Fireflies (Official Music Video)
-
-Last updated at 06/26/2023 18:36
+Last updated at 06/26/2023 18:38
