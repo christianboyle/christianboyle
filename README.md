@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000458661372-iaqyc9-t500x500.jpg">](https://soundcloud.com/iamonlytom/talkingbody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000157958418-ko3dye-t500x500.jpg">](https://soundcloud.com/djchoochoo/u-i)
 
-**Artist**: onlytom 
+**Artist**: choo choo 
 
-**Track**: talking body (onlytom bootleg)
+**Track**: u & i
 
-Last updated at 06/26/2023 09:36
+Last updated at 06/26/2023 09:41
