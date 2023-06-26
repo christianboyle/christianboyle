@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WcyCKcCXYV0CTxVF-8LBJow-t500x500.jpg">](https://soundcloud.com/systemrecordsuk/guchon-carpainter-tokyo-funk?in=systemrecordsuk/sets/sr028-guchon-carpainter-tokyo-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uf6wsbOBZenDQyiz-7DC6vg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-over-feat-utae-ken-ishii-remixofficial-teaser)
 
-**Artist**: System Records 
+**Artist**: TREKKIE TRAX 
 
-**Track**: Guchon & Carpainter - Tokyo Funk
+**Track**: Carpainter - O.V.E.R feat. Utae (KEN ISHII Remix)[Official Teaser]
 
-Last updated at 06/26/2023 09:48
+Last updated at 06/26/2023 09:49
