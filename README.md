@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uLIusNMHQHxhZBpy-cOLL7w-t500x500.jpg">](https://soundcloud.com/moong-rl/requiem-for-afterlife-ecco2k-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WcyCKcCXYV0CTxVF-8LBJow-t500x500.jpg">](https://soundcloud.com/systemrecordsuk/guchon-carpainter-tokyo-funk?in=systemrecordsuk/sets/sr028-guchon-carpainter-tokyo-funk)
 
-**Artist**: moong!rl 
+**Artist**: System Records 
 
-**Track**: ∞ₒ˚ 𐐒  requiem for afterlife (ecco2k bootleg)  𐐚 ˚ₒ∞
+**Track**: Guchon & Carpainter - Tokyo Funk
 
-Last updated at 06/26/2023 09:44
+Last updated at 06/26/2023 09:48
