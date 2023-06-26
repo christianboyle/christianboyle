@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WdCyoT3V4X6g47HT-7Sg4Qw-t500x500.jpg">](https://soundcloud.com/ola_radio/invite-special-t5umut5umu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qT1EFuAWeOpSayrb-Z7ZVyA-t500x500.jpg">](https://soundcloud.com/theonlyifonly/premiere-sari-milky-way-prod-t5umut5umu)
 
-**Artist**: Ola Radio 
+**Artist**: If-Only 
 
-**Track**: Invité Spécial ⏤ T5UMUT5UMU
+**Track**: Premiere: SARI - Milky Way (prod. T5UMUT5UMU)
 
-Last updated at 06/26/2023 17:23
+Last updated at 06/26/2023 17:27
