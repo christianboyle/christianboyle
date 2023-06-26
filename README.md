@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvJZRIFqzRdE4xFZ-3ck1RQ-t500x500.png">](https://soundcloud.com/rinsefm/hessleaudio200921)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65zobC8kFhJMQi7z-7SPYAg-t500x500.jpg">](https://soundcloud.com/contagious-records/contagious-records-podcast-episode-12-with-jakka-b)
 
-**Artist**: Rinse FM 
+**Artist**: CONTAGIOUS RECORDS 
 
-**Track**: Hessle Audio - Trekkie Trax Takeover - 20 September 2021
+**Track**: Contagious Records Podcast Episode 12 With Jakka-B
 
-Last updated at 06/26/2023 09:56
+Last updated at 06/26/2023 10:58
