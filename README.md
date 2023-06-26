@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5RC2A37WeqmxVgzv-lWwBOQ-t500x500.jpg">](https://soundcloud.com/trekkie-trax/carpainter-answers-official-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvJZRIFqzRdE4xFZ-3ck1RQ-t500x500.png">](https://soundcloud.com/rinsefm/hessleaudio200921)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: Rinse FM 
 
-**Track**: Carpainter - Answers [Official Teaser]
+**Track**: Hessle Audio - Trekkie Trax Takeover - 20 September 2021
 
-Last updated at 06/26/2023 09:54
+Last updated at 06/26/2023 09:56
