@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOvVl0zyrbUsPyrU-sww7Jg-t500x500.jpg">](https://soundcloud.com/therobyguy/dont-leave-me-like-this?in=tabularasarecords/sets/tabula-rasa-records-redacted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KQyoTpks3LylzQ6U-HAcdkA-t500x500.jpg">](https://soundcloud.com/tabularasarecords/14-flaunt-it-cheap-scamp-edit?in=tabularasarecords/sets/tabula-rasa-records-redacted)
 
-**Artist**: ROBY 
+**Artist**: Tabula Rasa Records 
 
-**Track**: Skrillex, Bobby Raps - Don't Leave Me Like This (ROBY Cover)
+**Track**: Rae Sremmurd - Flaunt It / Cheap (Scamp Edit)
 
-Last updated at 06/27/2023 15:11
+Last updated at 06/27/2023 15:12
