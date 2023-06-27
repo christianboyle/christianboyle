@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dY5K05v628E5R8uT-AjOg9A-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-christmas-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYBAvILAVUTTzv66-ozNhOA-t500x500.jpg">](https://soundcloud.com/coastrmusic/shes-all-i-wanna-love-coastrs-spring-break-22-mash)
 
-**Artist**: MC4D 
+**Artist**: COASTR. 
 
-**Track**: Down Under Christmas Mix
+**Track**: Tate McRae X Lost Kings - she's all i wanna Love(COASTR.'s Spring Break 22 Mashup)
 
-Last updated at 06/27/2023 13:02
+Last updated at 06/27/2023 13:03
