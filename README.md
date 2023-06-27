@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000103850946-0epbc9-t500x500.jpg">](https://soundcloud.com/klubbheads/hiphopping-gangsta-radio-mix?in=klubbheads/sets/klubbheads-singles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeEbRt9Xlvov2OzA-AXRnJg-t500x500.jpg">](https://soundcloud.com/klubbheads/the-ultimate-seduction-dj-set-2023)
 
 **Artist**: Klubbheads 
 
-**Track**: Hiphopping (2001)
+**Track**: The Ultimate Seduction DJ Mix 2023
 
-Last updated at 06/27/2023 07:22
+Last updated at 06/27/2023 07:23
