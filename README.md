@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000486589872-tbbkeg-t500x500.jpg">](https://soundcloud.com/coastrsbackupstash/psychomashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-09oPUHN0wks0zD9g-tqZvoA-t500x500.jpg">](https://soundcloud.com/bitbird/astro-i-cant-stop?in=bitbird/sets/astro-los-angeles)
 
-**Artist**: COASTR.'s BACKUP STASH 
+**Artist**: bitbird 
 
-**Track**: Post X Chet Porter - Psycho (COASTR. MASHUP)[Re- Upload]
+**Track**: ASTRO - I CAN'T STOP
 
-Last updated at 06/27/2023 13:04
+Last updated at 06/27/2023 13:05
