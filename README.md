@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lvNzRyVVjI6X72H-lviVyg-t500x500.jpg">](https://soundcloud.com/djphat1996/joeyy-xaviersobased-crashout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat?in=jxxyy/sets/attention2retail)
 
-**Artist**: DJ PHAT 
+**Artist**: Joeyy 
 
-**Track**: Joeyy & xaviersobased - #Crashout [Prod: Zuro]
+**Track**: Fiat (Prod. By 4evr)
 
-Last updated at 06/27/2023 13:18
+Last updated at 06/27/2023 13:19
