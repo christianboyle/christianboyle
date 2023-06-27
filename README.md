@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GGi5ONE26QVlZ8I0-fRagvQ-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-label-mix-001-kia-animalia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-exkYy6hpOczGS1eb-yPKZyQ-t500x500.jpg">](https://soundcloud.com/cafedisko/found-me-feat-meggie-york?in=circuselectric/sets/cafe-disko-found-me-feat-megan)
 
-**Artist**: Nina 
+**Artist**: Cafe Disko 
 
-**Track**: Nina Label Mix 001: Animalia
+**Track**: Found Me (feat. Meggie York)
 
-Last updated at 06/27/2023 09:12
+Last updated at 06/27/2023 12:45
