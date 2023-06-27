@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pPpYHf3KpFF41qh6-ICCTDw-t500x500.jpg">](https://soundcloud.com/kinoteki/u-just-r-footwork-jungle?in=tabularasarecords/sets/tabula-rasa-records-redacted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6eUJMHuUy5EkLIV9-M3EYng-t500x500.jpg">](https://soundcloud.com/monseigner/das-kope-lax?in=tabularasarecords/sets/tabula-rasa-records-redacted)
 
-**Artist**: Kinoteki 
+**Artist**: Monseigner 
 
-**Track**: Machinedrum - U Just R (Kinoteki Footwork Jungle Edit)
+**Track**: Das Kope - L.A.X. (Monseigner Flip)
 
-Last updated at 06/27/2023 14:56
+Last updated at 06/27/2023 14:59
