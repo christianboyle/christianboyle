@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8Qbnc3rt5MA7f3w-M1zDtA-t500x500.jpg">](https://soundcloud.com/nickstevanson14/hard-summer-l-mashup-pack-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5XUXlanTAaq-0-t500x500.jpg">](https://soundcloud.com/tsumutsumu/fireball-fireball)
 
-**Artist**: Nick Stevanson 
+**Artist**: T5UMUT5UMU 
 
-**Track**: Hard Summer l Mashup Pack 2023
+**Track**: Fireball
 
-Last updated at 06/27/2023 07:20
+Last updated at 06/27/2023 07:21
