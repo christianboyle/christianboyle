@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-09oPUHN0wks0zD9g-tqZvoA-t500x500.jpg">](https://soundcloud.com/bitbird/astro-i-cant-stop?in=bitbird/sets/astro-los-angeles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGCz9jI7fe5V4zgv-hhFe4g-t500x500.jpg">](https://soundcloud.com/swazyhq/uh-oh-bipolar)
 
-**Artist**: bitbird 
+**Artist**: swazy* 
 
-**Track**: ASTRO - I CAN'T STOP
+**Track**: uh oh (bipxlar)
 
-Last updated at 06/27/2023 13:05
+Last updated at 06/27/2023 13:06
