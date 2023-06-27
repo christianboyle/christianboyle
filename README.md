@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WpOyez8xyAwFvYnD-zvzGkw-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/secret-recipe-one-more-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbUeXK2A3yhFBGUn-6YWFzw-t500x500.jpg">](https://soundcloud.com/inrotationrecs/rodrigo-serna-bexxie-got-me)
 
-**Artist**: Wormhole Music Group 
+**Artist**: IN / ROTATION 
 
-**Track**: Secret Recipe - One More Time
+**Track**: Rodrigo Serna & Bexxie - Got Me
 
-Last updated at 06/27/2023 12:46
+Last updated at 06/27/2023 12:47
