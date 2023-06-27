@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n8iCRtU9938FSh5Q-l4joIQ-t500x500.jpg">](https://soundcloud.com/alstorm/lmd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-URWGNP8Bq4AVwBrT-HDLPsQ-t500x500.jpg">](https://soundcloud.com/jadudala/uhuh)
 
-**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
+**Artist**: Jadū Dala 
 
-**Track**: Diakronik & Alaguan - Love Me Deeply (24/7 Hardcore) Out Now!
+**Track**: WHAT SO NOT x SLUMBERJACK - Uh Uh (JADŪ215)
 
-Last updated at 06/27/2023 09:10
+Last updated at 06/27/2023 09:11
