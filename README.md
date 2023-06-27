@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGCz9jI7fe5V4zgv-hhFe4g-t500x500.jpg">](https://soundcloud.com/swazyhq/uh-oh-bipolar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3FYEnXJoGOoOP1y-HZMbaw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-promethazine-anthrax)
 
-**Artist**: swazy* 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: uh oh (bipxlar)
+**Track**: dj smokey - promethazine & anthrax
 
-Last updated at 06/27/2023 13:06
+Last updated at 06/27/2023 13:13
