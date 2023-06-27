@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U1JUF8LV8K64DT5Y-sUP4ow-t500x500.jpg">](https://soundcloud.com/amiby/pyb-amiby-remix?in=tabularasarecords/sets/tabula-rasa-records-redacted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KQyoTpks3LylzQ6U-HAcdkA-t500x500.jpg">](https://soundcloud.com/tabularasarecords/02-sexyback-boy-in-nature?in=tabularasarecords/sets/tabula-rasa-records-redacted)
 
-**Artist**: Amiby 
+**Artist**: Tabula Rasa Records 
 
-**Track**: Petit Biscuit - Pick Your Battles with Diplo (Amiby Remix)
+**Track**: Justin Timberlake - SexyBack (Boy In Nature Remix)
 
-Last updated at 06/27/2023 13:34
+Last updated at 06/27/2023 13:37
