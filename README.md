@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uo4hW4ISNiAvYE7i-9WE8yA-t500x500.jpg">](https://soundcloud.com/daniel-slessor/galantis-runaway-u-isless-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
 
-**Artist**: SLESS 
+**Artist**: Jkz 
 
-**Track**: Galantis - Runaway (U & I)(Sless Bootleg) FREE DOWNLOAD
+**Track**: Jkz - Addicted To You
 
-Last updated at 06/28/2023 16:48
+Last updated at 06/28/2023 16:49
