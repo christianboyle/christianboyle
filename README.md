@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkBEEYjSfDfYbhmq-rnyQ5A-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-castle-in-the-sky-schranz-tool-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
 
-**Artist**: CRAAIG 
+**Artist**: MC4D 
 
-**Track**: CRAAIG - Castle In The Sky [Hard Edit]
+**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
 
-Last updated at 06/28/2023 18:24
+Last updated at 06/28/2023 18:25
