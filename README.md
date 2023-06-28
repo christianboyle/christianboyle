@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaoXy7U4AFVlHaH4-asoCkQ-t500x500.jpg">](https://soundcloud.com/savagef80/better-off-alone-savage-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkBEEYjSfDfYbhmq-rnyQ5A-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-castle-in-the-sky-schranz-tool-v3)
 
-**Artist**: SAVAGE 
+**Artist**: CRAAIG 
 
-**Track**: BETTER OFF ALONE (SAVAGE REMIX)
+**Track**: CRAAIG - Castle In The Sky [Hard Edit]
 
-Last updated at 06/28/2023 16:51
+Last updated at 06/28/2023 18:24
