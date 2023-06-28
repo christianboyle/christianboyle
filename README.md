@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvnXXSVLxP0x43RM-J5NBaw-t500x500.jpg">](https://soundcloud.com/insomniacrecords/majestic-jem-cooke-free)
 
-**Artist**: MC4D 
+**Artist**: Insomniac Records 
 
-**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
+**Track**: Majestic & Jem Cooke - Free
 
-Last updated at 06/28/2023 18:25
+Last updated at 06/28/2023 18:29
