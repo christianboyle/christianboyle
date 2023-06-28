@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3Tal9LhZUHLaZ9y-Uj6RJw-t500x500.jpg">](https://soundcloud.com/joeyyarchive/coat-i-would-buy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VrGf2fC6WfYnGeQZ-afMYlw-t500x500.jpg">](https://soundcloud.com/chromebodies/regenesis-1)
 
-**Artist**: Joeyy Archive 
+**Artist**: CHROMEBODIES 
 
-**Track**: Coat I Would Buy
+**Track**: REGENESIS
 
-Last updated at 06/27/2023 16:08
+Last updated at 06/28/2023 16:42
