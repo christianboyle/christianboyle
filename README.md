@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvnXXSVLxP0x43RM-J5NBaw-t500x500.jpg">](https://soundcloud.com/insomniacrecords/majestic-jem-cooke-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6m1iLfAM2iVCaPLS-MLILcg-t500x500.jpg">](https://soundcloud.com/jxxyy/glitz)
 
-**Artist**: Insomniac Records 
+**Artist**: Joeyy 
 
-**Track**: Majestic & Jem Cooke - Free
+**Track**: Glitz (Prod. By Rondo)
 
-Last updated at 06/28/2023 18:29
+Last updated at 06/28/2023 18:43
