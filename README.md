@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A3A3dRzAxXqz27ET-nUPPBQ-t500x500.jpg">](https://soundcloud.com/joona-karvinen/jkz-addicted-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaoXy7U4AFVlHaH4-asoCkQ-t500x500.jpg">](https://soundcloud.com/savagef80/better-off-alone-savage-remix)
 
-**Artist**: Jkz 
+**Artist**: SAVAGE 
 
-**Track**: Jkz - Addicted To You
+**Track**: BETTER OFF ALONE (SAVAGE REMIX)
 
-Last updated at 06/28/2023 16:49
+Last updated at 06/28/2023 16:51
