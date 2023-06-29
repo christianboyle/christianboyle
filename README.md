@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uGO64bpAHFYwQIp-YzU4Rg-t500x500.jpg">](https://soundcloud.com/sablevalley/stacks?in=bbjuelz/sets/floorspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8gxz3xR701TXOpL-svvh4Q-t500x500.jpg">](https://soundcloud.com/iamtalons/talons-x-wave-mmlz-alpha-1)
 
-**Artist**: SABLE VALLEY 
+**Artist**: TALONS 
 
-**Track**: Juelz - Stacks (feat. 24hrs)
+**Track**: TALONS x Wave MMLZ - Alpha
 
-Last updated at 06/29/2023 11:34
+Last updated at 06/29/2023 11:35
