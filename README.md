@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCyaRWAr2qEaj2jJ-sUsyKg-t500x500.jpg">](https://soundcloud.com/dj4b/ray-volpe-laserbeam-4b-remix)
 
-**Artist**: Disco Lines 
+**Artist**: 4B 
 
-**Track**: MDMA
+**Track**: Ray Volpe - Laserbeam (4B Remix)
 
-Last updated at 06/29/2023 12:04
+Last updated at 06/29/2023 12:07
