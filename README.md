@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yMbRT8VnnYW19R6-pnmtcQ-t500x500.jpg">](https://soundcloud.com/subhive/kasger-backroom-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CMzLAWTNr8YYdts-J0vWtg-t500x500.png">](https://soundcloud.com/ascentrecordings/ascent-sessions-016-june-pride)
 
-**Artist**: SUBHIVE 
+**Artist**: Ascent Recordings 
 
-**Track**: Kasger - Backroom
+**Track**: Ascent Sessions 016 - June PRIDE
 
-Last updated at 06/28/2023 18:45
+Last updated at 06/29/2023 08:49
