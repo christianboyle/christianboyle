@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8VTYdIWFlpswU19-WtzzWQ-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-x-louie-ray-movie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyZ3cibRrvydIBYp-bzFcVw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/fiend-clips-i?in=fiendworldwide/sets/clips)
 
-**Artist**: Michiganshottesttracks 
+**Artist**: FIEND WORLD 
 
-**Track**: Rio Da Yung Og X Louie Ray - Movie
+**Track**: FIEND CLIPS (i)
 
-Last updated at 06/29/2023 15:21
+Last updated at 06/29/2023 16:30
