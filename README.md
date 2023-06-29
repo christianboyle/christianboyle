@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70yJGyATB7zgJ2oM-cpa3Mw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-christian-nxc-s1x-flags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8VTYdIWFlpswU19-WtzzWQ-t500x500.jpg">](https://soundcloud.com/fraybandsx/rio-da-yung-og-x-louie-ray-movie)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Michiganshottesttracks 
 
-**Track**: Dj CHRISTIAN NXC - S1X FLAGS
+**Track**: Rio Da Yung Og X Louie Ray - Movie
 
-Last updated at 06/29/2023 13:13
+Last updated at 06/29/2023 15:21
