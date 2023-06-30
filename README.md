@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DTvCoHfTEAleVW8I-YxR80Q-t500x500.jpg">](https://soundcloud.com/crnzo/everything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbFkKnNMmaj5t3hS-h0aGPw-t500x500.jpg">](https://soundcloud.com/castionmusic/ricky-martin-maria-castion-twolate-remix)
 
-**Artist**: CRNZO 
+**Artist**: Castion 
 
-**Track**: everything
+**Track**: Ricky Martin - Maria (Castion & Twolate Remix)
 
-Last updated at 06/30/2023 09:10
+Last updated at 06/30/2023 09:11
