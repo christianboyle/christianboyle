@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCyaRWAr2qEaj2jJ-sUsyKg-t500x500.jpg">](https://soundcloud.com/dj4b/ray-volpe-laserbeam-4b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3Tal9LhZUHLaZ9y-Uj6RJw-t500x500.jpg">](https://soundcloud.com/joeyyarchive/coat-i-would-buy)
 
-**Artist**: 4B 
+**Artist**: Joeyy Archive 
 
-**Track**: Ray Volpe - Laserbeam (4B Remix)
+**Track**: Coat I Would Buy
 
-Last updated at 06/30/2023 16:02
+Last updated at 06/30/2023 16:05
