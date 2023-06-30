@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GGi5ONE26QVlZ8I0-fRagvQ-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-label-mix-001-kia-animalia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5OJgCXJyNyc6WyyS-cKSClw-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-450-vinylgroover-guest-mix)
 
-**Artist**: Nina 
+**Artist**: Dj EZC 
 
-**Track**: Nina Label Mix 001: Animalia
+**Track**: Hardcore Will Never Die Episode 450 (Vinylgroover Guest Mix)
 
-Last updated at 06/30/2023 17:51
+Last updated at 06/30/2023 18:52
