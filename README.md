@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R4gGgx5e7G6xMT14-i1nlZg-t500x500.jpg">](https://soundcloud.com/ripeveryst/internal-connection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Haw349us17Rvu9Ih-cHpTrg-t500x500.jpg">](https://soundcloud.com/astrix-official/burn-in-noise-weirder)
 
-**Artist**: EVERYST 
+**Artist**: ASTRIX (official) 
 
-**Track**: EVERYST & BACKWHEN - INTERNAL CONNECTION (full stream)
+**Track**: Burn In Noise - Weirder
 
-Last updated at 06/30/2023 08:56
+Last updated at 06/30/2023 09:07
