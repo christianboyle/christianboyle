@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvK82u1E1Q7NgDyV-JcBGbw-t500x500.jpg">](https://soundcloud.com/katebi/heaven-2-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCyaRWAr2qEaj2jJ-sUsyKg-t500x500.jpg">](https://soundcloud.com/dj4b/ray-volpe-laserbeam-4b-remix)
 
-**Artist**: katebi 
+**Artist**: 4B 
 
-**Track**: HEAVEN 2 (2021)
+**Track**: Ray Volpe - Laserbeam (4B Remix)
 
-Last updated at 06/30/2023 13:45
+Last updated at 06/30/2023 16:02
