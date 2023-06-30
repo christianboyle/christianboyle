@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEpaqtY7UPftLGX9-ou9Fbw-t500x500.jpg">](https://soundcloud.com/fiendworldwide/fiend-clips-ii?in=fiendworldwide/sets/clips)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/TLGF5rPSccs/maxresdefault.jpg">](https://www.youtube.com/watch?v=TLGF5rPSccs)
 
-**Artist**: FIEND WORLD 
+**Artist**: 
+  
+    glaive
+  
+  
+  
+    glaive
+  
 
-**Track**: FIEND CLIPS (ii)
 
-Last updated at 06/29/2023 16:45
+
+
+
+ 
+
+**Track**: glaive - the car (official music video)
+
+Last updated at 06/30/2023 07:55
