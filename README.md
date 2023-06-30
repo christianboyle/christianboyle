@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3Tal9LhZUHLaZ9y-Uj6RJw-t500x500.jpg">](https://soundcloud.com/joeyyarchive/coat-i-would-buy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3FYEnXJoGOoOP1y-HZMbaw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-promethazine-anthrax)
 
-**Artist**: Joeyy Archive 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Coat I Would Buy
+**Track**: dj smokey - promethazine & anthrax
 
-Last updated at 06/30/2023 16:05
+Last updated at 06/30/2023 16:06
