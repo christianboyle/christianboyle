@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O95SVZr170CRM3Nd-msRh4g-t500x500.jpg">](https://soundcloud.com/drumandbassarena/double-o-love-is)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DTvCoHfTEAleVW8I-YxR80Q-t500x500.jpg">](https://soundcloud.com/crnzo/everything)
 
-**Artist**: Drum&BassArena 
+**Artist**: CRNZO 
 
-**Track**: Double O - Love Is
+**Track**: everything
 
-Last updated at 06/30/2023 09:09
+Last updated at 06/30/2023 09:10
