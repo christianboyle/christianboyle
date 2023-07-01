@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4TCCBcOVIV2Mme9-ers7Bw-t500x500.jpg">](https://soundcloud.com/viperrecordings/captain-bass-airglo-feat-emilie-rachel-waiting-for-you-vpr308)
 
-**Artist**: Semantic Sounds 
+**Artist**: Viper Recordings 
 
-**Track**: Foodydrop - Missing
+**Track**: Captain Bass & Airglo Feat. Émilie Rachel - Waiting For You [VPR308]
 
-Last updated at 07/01/2023 12:28
+Last updated at 07/01/2023 12:30
