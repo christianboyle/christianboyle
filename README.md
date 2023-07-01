@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQ78cT6j0oeBVkSy-NwyfrQ-t500x500.jpg">](https://soundcloud.com/djluckyrabbitla/nsfw-a-harder-faster-mix-by-lucky-rabbit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0AooLzV7EByQvgPm-Vw1pzg-t500x500.jpg">](https://soundcloud.com/wtfsthatsound/ramm-e-megalophobia)
 
-**Artist**: DJ Lucky Rabbit 
+**Artist**: Wtf’s That Sound 🛸 
 
-**Track**: (NSFW) A Harder, Faster Mix by Lucky Rabbit
+**Track**: RAMM-E - Megalophobia
 
-Last updated at 07/01/2023 08:49
+Last updated at 07/01/2023 11:56
