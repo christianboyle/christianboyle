@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGXly1sFzmeoLH5b-l2q9hA-t500x500.jpg">](https://soundcloud.com/electronyze-me/uberloud-richie-loop-bun-dem-em?in=thepodcast2022/sets/electronyze-me-best-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwSSbQY1YazDUlEu-ajRDFw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/friendly-fire-king-cobra)
 
-**Artist**: Electronyze Me 
+**Artist**: Murder We Wrote 
 
-**Track**: ÜBERLOUD & Richie Loop - Bun Dem
+**Track**: Friendly Fire - King Cobra
 
-Last updated at 07/01/2023 13:18
+Last updated at 07/01/2023 13:19
