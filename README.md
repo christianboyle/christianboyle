@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3Tal9LhZUHLaZ9y-Uj6RJw-t500x500.jpg">](https://soundcloud.com/joeyyarchive/coat-i-would-buy)
 
-**Artist**: Semantic Sounds 
+**Artist**: Joeyy Archive 
 
-**Track**: Foodydrop - Missing
+**Track**: Coat I Would Buy
 
-Last updated at 07/01/2023 16:38
+Last updated at 07/01/2023 16:40
