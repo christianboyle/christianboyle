@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ByYv1tlFbQvOZDCn-6I7t0A-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/smol-zurglin-i-like-yu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v6ysof95sVSZcKeD-V8wy9Q-t500x500.jpg">](https://soundcloud.com/tsoumusic/c895-the-bassment-select-mix)
 
-**Artist**: Gravitas Music 
+**Artist**: tsou 
 
-**Track**: smol & ZURGLIN - I Like Yu
+**Track**: C89.5 Seattle - The Bassment Select Mix
 
-Last updated at 07/01/2023 08:45
+Last updated at 07/01/2023 08:46
