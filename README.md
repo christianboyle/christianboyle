@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwSSbQY1YazDUlEu-ajRDFw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/friendly-fire-king-cobra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHrfMZpWzkeYUNPG-QRUXWA-t500x500.jpg">](https://soundcloud.com/colony-productions/crawdad-sniper-got-gusto-col066-mini-mix)
 
-**Artist**: Murder We Wrote 
+**Artist**: Colony Productions 
 
-**Track**: Friendly Fire - King Cobra
+**Track**: crawdad sniper - Got Gusto - COL066 (mini mix)
 
-Last updated at 07/01/2023 13:19
+Last updated at 07/01/2023 13:20
