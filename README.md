@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCyaRWAr2qEaj2jJ-sUsyKg-t500x500.jpg">](https://soundcloud.com/dj4b/ray-volpe-laserbeam-4b-remix)
 
-**Artist**: Semantic Sounds 
+**Artist**: 4B 
 
-**Track**: Foodydrop - Missing
+**Track**: Ray Volpe - Laserbeam (4B Remix)
 
-Last updated at 07/01/2023 18:42
+Last updated at 07/01/2023 18:43
