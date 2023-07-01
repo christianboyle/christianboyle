@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dgwh3lGvl9abKBwq-sgtBXg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-117-on-beat-1?in=beat106scotland/sets/bonkers-beats-117-on-beat-106-scotland-with-marc-smith-savage-attack-300623)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000369145653-9xx6s5-t500x500.jpg">](https://soundcloud.com/hixxy/mini-mix-usa-beyond)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Hixxy 
 
-**Track**: Bonkers Beats #117 on Beat 106 Scotland with Marc Smith 300623 (Hour 1)
+**Track**: Mini Mix - USA & beyond
 
-Last updated at 07/01/2023 08:41
+Last updated at 07/01/2023 08:42
