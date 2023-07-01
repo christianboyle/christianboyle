@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQx8NyPpGsCpRpVf-eGzIzg-t500x500.jpg">](https://soundcloud.com/funkleace/and-the-nurse-passed-by-krt-production)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc9F0DdNN5vATSvV-gAlxFQ-t500x500.jpg">](https://soundcloud.com/ekalimusic/python-w-blvde-runner)
 
-**Artist**: Funkle Ace 
+**Artist**: EKALI 
 
-**Track**: And the Nurse passed by - KRT Production
+**Track**: Python (w/ BLVDE RUNNER)
 
-Last updated at 07/01/2023 08:47
+Last updated at 07/01/2023 08:48
