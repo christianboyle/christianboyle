@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHrfMZpWzkeYUNPG-QRUXWA-t500x500.jpg">](https://soundcloud.com/colony-productions/crawdad-sniper-got-gusto-col066-mini-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyekMWg2FDH2KIxs-KVxdpw-t500x500.jpg">](https://soundcloud.com/alexandernormanofficial/alexander-norman-all-your-lies-free-download)
 
-**Artist**: Colony Productions 
+**Artist**: Alexander Norman 
 
-**Track**: crawdad sniper - Got Gusto - COL066 (mini mix)
+**Track**: Alexander Norman - All Your Lies (Free Download)
 
-Last updated at 07/01/2023 13:20
+Last updated at 07/01/2023 13:21
