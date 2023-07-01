@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4TCCBcOVIV2Mme9-ers7Bw-t500x500.jpg">](https://soundcloud.com/viperrecordings/captain-bass-airglo-feat-emilie-rachel-waiting-for-you-vpr308)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sp7Xz4RBaFs60TtU-R0zSLg-t500x500.jpg">](https://soundcloud.com/yub-official/lmfao-party-rock-anthem-yub-remix)
 
-**Artist**: Viper Recordings 
+**Artist**: YuB 
 
-**Track**: Captain Bass & Airglo Feat. Émilie Rachel - Waiting For You [VPR308]
+**Track**: LMFAO - Party Rock Anthem (YuB Techno RMX) [SUPPORTED BY VANDAL ON DA TRACK]
 
-Last updated at 07/01/2023 12:30
+Last updated at 07/01/2023 13:17
