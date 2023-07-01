@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000326109008-ns68k4-t500x500.jpg">](https://soundcloud.com/djgammer/underneath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ByYv1tlFbQvOZDCn-6I7t0A-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/smol-zurglin-i-like-yu)
 
-**Artist**: Gammer 
+**Artist**: Gravitas Music 
 
-**Track**: GAMMER & LINNEY - UNDERNEATH
+**Track**: smol & ZURGLIN - I Like Yu
 
-Last updated at 07/01/2023 08:44
+Last updated at 07/01/2023 08:45
