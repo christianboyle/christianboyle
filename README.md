@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sp7Xz4RBaFs60TtU-R0zSLg-t500x500.jpg">](https://soundcloud.com/yub-official/lmfao-party-rock-anthem-yub-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGXly1sFzmeoLH5b-l2q9hA-t500x500.jpg">](https://soundcloud.com/electronyze-me/uberloud-richie-loop-bun-dem-em?in=thepodcast2022/sets/electronyze-me-best-tracks)
 
-**Artist**: YuB 
+**Artist**: Electronyze Me 
 
-**Track**: LMFAO - Party Rock Anthem (YuB Techno RMX) [SUPPORTED BY VANDAL ON DA TRACK]
+**Track**: ÜBERLOUD & Richie Loop - Bun Dem
 
-Last updated at 07/01/2023 13:17
+Last updated at 07/01/2023 13:18
