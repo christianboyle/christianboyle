@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4TCCBcOVIV2Mme9-ers7Bw-t500x500.jpg">](https://soundcloud.com/viperrecordings/captain-bass-airglo-feat-emilie-rachel-waiting-for-you-vpr308)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xlJyaGZGSbzFqA87-fIyd2g-t500x500.jpg">](https://soundcloud.com/colorize-enhanced/estiva-seven-six-four?in=colorize-enhanced/sets/estiva-infinita)
 
-**Artist**: Viper Recordings 
+**Artist**: Colorize 
 
-**Track**: Captain Bass & Airglo Feat. Émilie Rachel - Waiting For You [VPR308]
+**Track**: Estiva - Seven Six Four
 
-Last updated at 07/01/2023 18:40
+Last updated at 07/01/2023 18:41
