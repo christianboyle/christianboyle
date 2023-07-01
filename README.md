@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v6ysof95sVSZcKeD-V8wy9Q-t500x500.jpg">](https://soundcloud.com/tsoumusic/c895-the-bassment-select-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQx8NyPpGsCpRpVf-eGzIzg-t500x500.jpg">](https://soundcloud.com/funkleace/and-the-nurse-passed-by-krt-production)
 
-**Artist**: tsou 
+**Artist**: Funkle Ace 
 
-**Track**: C89.5 Seattle - The Bassment Select Mix
+**Track**: And the Nurse passed by - KRT Production
 
-Last updated at 07/01/2023 08:46
+Last updated at 07/01/2023 08:47
