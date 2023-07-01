@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000369145653-9xx6s5-t500x500.jpg">](https://soundcloud.com/hixxy/mini-mix-usa-beyond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000326109008-ns68k4-t500x500.jpg">](https://soundcloud.com/djgammer/underneath)
 
-**Artist**: Hixxy 
+**Artist**: Gammer 
 
-**Track**: Mini Mix - USA & beyond
+**Track**: GAMMER & LINNEY - UNDERNEATH
 
-Last updated at 07/01/2023 08:42
+Last updated at 07/01/2023 08:44
