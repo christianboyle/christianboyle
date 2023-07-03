@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yFwgHZ0KPYqrX7w-YdjDsw-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/cupid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UifM84gAfiD383wY-tTsE5Q-t500x500.jpg">](https://soundcloud.com/ezrahazard/ituremix)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Ezra Hazard 
 
-**Track**: FIFTY FIFTY - Cupid (Ezra Hazard Hard Mix)
+**Track**: Quando & Ezra Hazard Ft. Alex Jones - Into The Unknown (Ezra Hazard Remix)
 
-Last updated at 07/02/2023 21:31
+Last updated at 07/02/2023 21:32
