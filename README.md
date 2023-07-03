@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1jdNlWMi92LcHZV-RHbrlw-t500x500.jpg">](https://soundcloud.com/theraverepublic/crazy-frog-axel-f-rave-republic-festival-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yFwgHZ0KPYqrX7w-YdjDsw-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/cupid)
 
-**Artist**: Rave Republic 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Crazy Frog - Axel F (Rave Republic Festival Remix)
+**Track**: FIFTY FIFTY - Cupid (Ezra Hazard Hard Mix)
 
-Last updated at 07/02/2023 21:30
+Last updated at 07/02/2023 21:31
