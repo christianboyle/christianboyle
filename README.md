@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyekMWg2FDH2KIxs-KVxdpw-t500x500.jpg">](https://soundcloud.com/alexandernormanofficial/alexander-norman-all-your-lies-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4TCCBcOVIV2Mme9-ers7Bw-t500x500.jpg">](https://soundcloud.com/viperrecordings/captain-bass-airglo-feat-emilie-rachel-waiting-for-you-vpr308)
 
-**Artist**: Alexander Norman 
+**Artist**: Viper Recordings 
 
-**Track**: Alexander Norman - All Your Lies (Free Download)
+**Track**: Captain Bass & Airglo Feat. Émilie Rachel - Waiting For You [VPR308]
 
-Last updated at 07/03/2023 08:56
+Last updated at 07/03/2023 09:02
