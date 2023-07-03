@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znL5YzynmgOu7nuJ-S9A7rg-t500x500.jpg">](https://soundcloud.com/gawmmusic/john-newman-love-me-again-gawm-remixfinal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1jdNlWMi92LcHZV-RHbrlw-t500x500.jpg">](https://soundcloud.com/theraverepublic/crazy-frog-axel-f-rave-republic-festival-remix)
 
-**Artist**: GAWM 
+**Artist**: Rave Republic 
 
-**Track**: John Newman - Love Me Again (GAWM VIP)
+**Track**: Crazy Frog - Axel F (Rave Republic Festival Remix)
 
-Last updated at 07/02/2023 21:29
+Last updated at 07/02/2023 21:30
