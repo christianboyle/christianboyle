@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5NzL8v3DDu4k5ht-M2rA5g-t500x500.jpg">](https://soundcloud.com/tomoyu/02-dark-indigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
 
-**Artist**: TOMOYU 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: 02 Dark Indigo
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 07/03/2023 13:30
+Last updated at 07/03/2023 13:31
