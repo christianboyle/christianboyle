@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4TCCBcOVIV2Mme9-ers7Bw-t500x500.jpg">](https://soundcloud.com/viperrecordings/captain-bass-airglo-feat-emilie-rachel-waiting-for-you-vpr308)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1jdNlWMi92LcHZV-RHbrlw-t500x500.jpg">](https://soundcloud.com/theraverepublic/crazy-frog-axel-f-rave-republic-festival-remix)
 
-**Artist**: Viper Recordings 
+**Artist**: Rave Republic 
 
-**Track**: Captain Bass & Airglo Feat. Émilie Rachel - Waiting For You [VPR308]
+**Track**: Crazy Frog - Axel F (Rave Republic Festival Remix)
 
-Last updated at 07/03/2023 09:02
+Last updated at 07/03/2023 09:05
