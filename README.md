@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1jdNlWMi92LcHZV-RHbrlw-t500x500.jpg">](https://soundcloud.com/theraverepublic/crazy-frog-axel-f-rave-republic-festival-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
 
-**Artist**: Rave Republic 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Crazy Frog - Axel F (Rave Republic Festival Remix)
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 07/03/2023 09:05
+Last updated at 07/03/2023 09:06
