@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jbkJsJaQSf5evfPw-GXasHA-t500x500.jpg">](https://soundcloud.com/nemansound/r4ve8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5NzL8v3DDu4k5ht-M2rA5g-t500x500.jpg">](https://soundcloud.com/tomoyu/02-dark-indigo)
 
-**Artist**: Neman 
+**Artist**: TOMOYU 
 
-**Track**: R4VE
+**Track**: 02 Dark Indigo
 
-Last updated at 07/03/2023 09:12
+Last updated at 07/03/2023 13:30
