@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvDwuu4dupIQ-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/miracle-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZ6jW9QzztPMOcjZ-5JOJEA-t500x500.jpg">](https://soundcloud.com/intensityrecordings/winning-team-ezra-hazard-evacuate-the-dancefloor-no-hero-remix)
 
-**Artist**: Ezra Hazard 
+**Artist**: Intensity Recordings 
 
-**Track**: Miracle
+**Track**: Winning Team & Ezra Hazard - Evacuate The Dancefloor (No Hero Remix)
 
-Last updated at 07/03/2023 08:37
+Last updated at 07/03/2023 08:39
