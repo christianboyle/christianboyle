@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvDwuu4dupIQ-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/miracle-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing)
 
-**Artist**: Ezra Hazard 
+**Artist**: Semantic Sounds 
 
-**Track**: Miracle
+**Track**: Foodydrop - Missing
 
-Last updated at 07/03/2023 08:51
+Last updated at 07/03/2023 08:52
