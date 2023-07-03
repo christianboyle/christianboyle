@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jbkJsJaQSf5evfPw-GXasHA-t500x500.jpg">](https://soundcloud.com/nemansound/r4ve8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyekMWg2FDH2KIxs-KVxdpw-t500x500.jpg">](https://soundcloud.com/alexandernormanofficial/alexander-norman-all-your-lies-free-download)
 
-**Artist**: Neman 
+**Artist**: Alexander Norman 
 
-**Track**: R4VE
+**Track**: Alexander Norman - All Your Lies (Free Download)
 
-Last updated at 07/03/2023 08:55
+Last updated at 07/03/2023 08:56
