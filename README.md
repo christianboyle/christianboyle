@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMTVreieEZrUKsZM-48dHrw-t500x500.jpg">](https://soundcloud.com/ohlosha/playit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYQ3yKMBx9NYiOPG-YNtwbw-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/cyberpunkers-12h-afterhour?in=thepodcast2022/sets/dancing-dead-best-tracks)
 
-**Artist**: 𝕆𝕙 𝕃𝕠𝕤𝕙𝕒 (☝︎ ՞ਊ ՞)☝︎ 
+**Artist**: Dancing Dead 
 
-**Track**: Oh Losha - Play It!
+**Track**: Cyberpunkers - 12h Afterhour
 
-Last updated at 07/02/2023 19:42
+Last updated at 07/02/2023 19:43
