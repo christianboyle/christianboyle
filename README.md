@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LCqq25YNfRD99zaZ-75SNRg-t500x500.jpg">](https://soundcloud.com/odneme/halogen?in=odneme/sets/3333333333333333333333333333a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znL5YzynmgOu7nuJ-S9A7rg-t500x500.jpg">](https://soundcloud.com/gawmmusic/john-newman-love-me-again-gawm-remixfinal)
 
-**Artist**: odneme 
+**Artist**: GAWM 
 
-**Track**: odneme & willix - Halogen.
+**Track**: John Newman - Love Me Again (GAWM VIP)
 
-Last updated at 07/02/2023 21:28
+Last updated at 07/02/2023 21:29
