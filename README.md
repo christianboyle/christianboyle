@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZfqQDKJ94mSXjSDv-vOEttw-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/nao-do-you-wanna-try-ft-lxvrich-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQEC2teT2Iwcs2r5-lBMJ3w-t500x500.jpg">](https://soundcloud.com/all172things/sashadai-lucia-smltd-remix-premiere?in=all172things/sets/sashadai-lucia-smltd-remix)
 
-**Artist**: Chill Planet 
+**Artist**: All172Things 
 
-**Track**: Nao - Do You Wanna Try (ft. Lxvrich)
+**Track**: Sashadai - Lucía (SMLTD Remix) [Premiere]
 
-Last updated at 07/04/2023 07:39
+Last updated at 07/04/2023 07:40
