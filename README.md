@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMpDtrXnjiNa8RMK-pVjZww-t500x500.jpg">](https://soundcloud.com/besthouseremixes/dua-lipa-love-again-amice-remix-sun-shi-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTCA9zJsDLxLJyzP-Qyh8qQ-t500x500.jpg">](https://soundcloud.com/morr-ser/shes-so-fine?in=semantic-sounds/sets/shes-so-fine)
 
-**Artist**: Best House Remixes 
+**Artist**: The Creatures 
 
-**Track**: Dua Lipa - Love Again (Amice Remix) [SUN SHI Radio Mix]
+**Track**: She's So Fine
 
-Last updated at 07/04/2023 08:27
+Last updated at 07/04/2023 08:30
