@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOyIXGdG86uDV0cG-pen0rw-t500x500.jpg">](https://soundcloud.com/wubaholics/viiiralbeats-could-be-trappin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5Ze8SIx4e8mRQrz-58skqA-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/be-alright)
 
-**Artist**: Wubaholics 
+**Artist**: Smokestax 
 
-**Track**: viiiralbeats - could be trappin
+**Track**: Be Alright
 
-Last updated at 07/04/2023 08:48
+Last updated at 07/04/2023 09:46
