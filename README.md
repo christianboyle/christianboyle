@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KIV4I9LHQXicytwi-QYphKQ-t500x500.jpg">](https://soundcloud.com/ravers-only-records/candykiddontgiveup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWP9UCmyTiXjvOAI-XnPv2Q-t500x500.jpg">](https://soundcloud.com/djmaromi/maromi-hydrotechnics-set)
 
-**Artist**: Ravers Only Records 
+**Artist**: djmaromi 
 
-**Track**: Candy Kid - Don't Give Up
+**Track**: Maromi: Hydrotechnics Festival 2022 Set
 
-Last updated at 07/05/2023 10:08
+Last updated at 07/05/2023 10:09
