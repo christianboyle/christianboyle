@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VLdtWuloZNe5S0z1-zd3nPQ-t500x500.jpg">](https://soundcloud.com/jamesrize/s3rl-ft-tamika-i-will-pick-you-up-rize-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whczpK1LlAtUVwtL-HVAxLA-t500x500.jpg">](https://soundcloud.com/crumblingcloud/slander-love-is-gone-crumbling-cloud-remix)
 
-**Artist**: James Rize 
+**Artist**: Crumbling Cloud 
 
-**Track**: S3rl ft. Tamika - I Will Pick You Up (Rize Rmx)
+**Track**: SLANDER - Love Is Gone (Crumbling Cloud Remix)
 
-Last updated at 07/05/2023 10:06
+Last updated at 07/05/2023 10:07
