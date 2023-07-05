@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1Ryo5o9XqgUf9z3-v9zn7w-t500x500.jpg">](https://soundcloud.com/klubfillermusic/kfsummer23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
 
-**Artist**: Klubfiller 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Klubfiller Summer Mixtape 2023
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 07/05/2023 17:28
+Last updated at 07/05/2023 17:58
