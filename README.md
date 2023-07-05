@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000080792678-dl919s-t500x500.jpg">](https://soundcloud.com/karthy/forever-karthy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000525476166-chmiau-t500x500.jpg">](https://soundcloud.com/alaguan/mitomoro-s3rl-feat-lexi-dream-girl-alaguan-remix-free-download)
 
-**Artist**: Karthy 
+**Artist**: Alaguan 
 
-**Track**: S3rl ft. Sara - Forever (Karthy Remix) [Radio Edit]
+**Track**: Mitomoro & S3RL Feat. Lexi - Dream Girl (Alaguan Remix) [Free Download]
 
-Last updated at 07/05/2023 10:12
+Last updated at 07/05/2023 10:13
