@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5NzL8v3DDu4k5ht-M2rA5g-t500x500.jpg">](https://soundcloud.com/tomoyu/02-dark-indigo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5Ze8SIx4e8mRQrz-58skqA-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/be-alright)
 
-**Artist**: TOMOYU 
+**Artist**: Smokestax 
 
-**Track**: 02 Dark Indigo
+**Track**: Be Alright
 
-Last updated at 07/05/2023 18:04
+Last updated at 07/05/2023 18:06
