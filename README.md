@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000478722237-tzh127-t500x500.jpg">](https://soundcloud.com/djmaromi/mangled-full-moon-blood-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vxgvvrkrj1rF-0-t500x500.jpg">](https://soundcloud.com/vauboy/hard-feelings)
 
-**Artist**: djmaromi 
+**Artist**: Vau Boy 
 
-**Track**: MANGLED @FULL MOON (Blood Moon)
+**Track**: HARD FEELINGS
 
-Last updated at 07/05/2023 10:16
+Last updated at 07/05/2023 10:17
