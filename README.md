@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1hJc34w4DvbdyZ37-sBTArQ-t500x500.jpg">](https://soundcloud.com/savagef80/ill-be-there-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkzf3vqlBejAAbyf-m31eKA-t500x500.jpg">](https://soundcloud.com/dj_rish/radio-killa-rishys-edit)
 
-**Artist**: SAVAGE 
+**Artist**: DJ RISH 
 
-**Track**: I'll Be There
+**Track**: RADIO KILLA (RISHY'S 派对 EDIT)
 
-Last updated at 07/05/2023 18:39
+Last updated at 07/05/2023 18:40
