@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000525476166-chmiau-t500x500.jpg">](https://soundcloud.com/alaguan/mitomoro-s3rl-feat-lexi-dream-girl-alaguan-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000050706171-cwt8x3-t500x500.jpg">](https://soundcloud.com/flapjackthekandikid/ruff-cuts-volume-1)
 
-**Artist**: Alaguan 
+**Artist**: DJ Flapjack 
 
-**Track**: Mitomoro & S3RL Feat. Lexi - Dream Girl (Alaguan Remix) [Free Download]
+**Track**: Ruff Cuts volume 1
 
-Last updated at 07/05/2023 10:13
+Last updated at 07/05/2023 10:14
