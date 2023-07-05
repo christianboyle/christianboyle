@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/timothy-610?in=jxxyy/sets/attention2retail)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat?in=jxxyy/sets/attention2retail)
 
 **Artist**: Joeyy 
 
-**Track**: Timothy 6:10 (Feat. Rx Papi) (Prod. By 4am & Litothedon)
+**Track**: Fiat (Prod. By 4evr)
 
-Last updated at 07/05/2023 18:21
+Last updated at 07/05/2023 18:22
