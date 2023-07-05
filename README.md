@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000327975822-ey23pk-t500x500.jpg">](https://soundcloud.com/blanksiwel/professional-soundbank-hardstyle-leads-sylenth1-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VLdtWuloZNe5S0z1-zd3nPQ-t500x500.jpg">](https://soundcloud.com/jamesrize/s3rl-ft-tamika-i-will-pick-you-up-rize-rmx)
 
-**Artist**: BlankSiwel 
+**Artist**: James Rize 
 
-**Track**: Professional SoundBank - Hardstyle Leads (Sylenth1 ) [Free Download]
+**Track**: S3rl ft. Tamika - I Will Pick You Up (Rize Rmx)
 
-Last updated at 07/05/2023 10:05
+Last updated at 07/05/2023 10:06
