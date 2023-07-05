@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DkfnBrUM2gEv6BE9-xmf29g-t500x500.jpg">](https://soundcloud.com/all172things/kumarachi-blinkered-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000255520331-s1tf8k-t500x500.jpg">](https://soundcloud.com/organtapes/xing-guang-dj-corpmane?in=madjestickasual/sets/sfvs)
 
-**Artist**: All172Things 
+**Artist**: Organ Tapes 
 
-**Track**: Kumarachi - Blinkered [Premiere]
+**Track**: XING GUANG - DJ CORPMANE
 
-Last updated at 07/05/2023 09:50
+Last updated at 07/05/2023 09:51
