@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whczpK1LlAtUVwtL-HVAxLA-t500x500.jpg">](https://soundcloud.com/crumblingcloud/slander-love-is-gone-crumbling-cloud-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KIV4I9LHQXicytwi-QYphKQ-t500x500.jpg">](https://soundcloud.com/ravers-only-records/candykiddontgiveup)
 
-**Artist**: Crumbling Cloud 
+**Artist**: Ravers Only Records 
 
-**Track**: SLANDER - Love Is Gone (Crumbling Cloud Remix)
+**Track**: Candy Kid - Don't Give Up
 
-Last updated at 07/05/2023 10:07
+Last updated at 07/05/2023 10:08
