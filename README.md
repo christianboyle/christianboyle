@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkzf3vqlBejAAbyf-m31eKA-t500x500.jpg">](https://soundcloud.com/dj_rish/radio-killa-rishys-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056588398-ge3bns-t500x500.jpg">](https://soundcloud.com/nocturnalcommissions/rize-forever-hardcore-nc002a)
 
-**Artist**: DJ RISH 
+**Artist**: NocturnalCommissions 
 
-**Track**: RADIO KILLA (RISHY'S 派对 EDIT)
+**Track**: Stompy - Forever Hardcore (Rize Remix) - NC002A
 
-Last updated at 07/06/2023 09:54
+Last updated at 07/06/2023 09:57
