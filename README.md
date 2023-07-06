@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GGi5ONE26QVlZ8I0-fRagvQ-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-label-mix-001-kia-animalia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/sublingual?in=jxxyy/sets/just-tired)
 
-**Artist**: Nina 
+**Artist**: Joeyy 
 
-**Track**: Nina Label Mix 001: Animalia
+**Track**: 𝒮ᵘᑲlinᧁu҉𐌀꒒ (𝑃r𝗼∂︎. Iokera & iji)
 
-Last updated at 07/06/2023 13:55
+Last updated at 07/06/2023 17:03
