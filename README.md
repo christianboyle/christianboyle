@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DkfnBrUM2gEv6BE9-xmf29g-t500x500.jpg">](https://soundcloud.com/all172things/kumarachi-blinkered-premiere?in=all172things/sets/kumarachi-blinkered-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B8sWMyamiJGubk20-DtnNNw-t500x500.jpg">](https://soundcloud.com/jayceeoh/eazy-rider)
 
-**Artist**: All172Things 
+**Artist**: Jayceeoh 
 
-**Track**: Kumarachi - Blinkered [Premiere]
+**Track**: Jayceeoh - easy rider
 
-Last updated at 07/06/2023 07:58
+Last updated at 07/06/2023 08:31
