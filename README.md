@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056588398-ge3bns-t500x500.jpg">](https://soundcloud.com/nocturnalcommissions/rize-forever-hardcore-nc002a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3Tal9LhZUHLaZ9y-Uj6RJw-t500x500.jpg">](https://soundcloud.com/joeyyarchive/coat-i-would-buy)
 
-**Artist**: NocturnalCommissions 
+**Artist**: Joeyy Archive 
 
-**Track**: Stompy - Forever Hardcore (Rize Remix) - NC002A
+**Track**: Coat I Would Buy
 
-Last updated at 07/06/2023 09:57
+Last updated at 07/06/2023 09:58
