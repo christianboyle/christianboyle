@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tq8q2tzbN4PhubMS-0IoJEQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/pil?in=rusuitor/sets/hawk-mister-ruiz-booty-leak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5Ze8SIx4e8mRQrz-58skqA-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/be-alright)
 
-**Artist**: BOOTY LEAK 
+**Artist**: Smokestax 
 
-**Track**: HAWK. + Mister Ruiz & Booty Leak feat. Xblaze - Pump It Louder [ FREE DOWNLOAD ]
+**Track**: Be Alright
 
-Last updated at 07/06/2023 09:13
+Last updated at 07/06/2023 09:14
