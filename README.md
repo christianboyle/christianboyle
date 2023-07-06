@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ck3Jng95qVCKSi9R-x0CnJQ-t500x500.jpg">](https://soundcloud.com/moorekismet/run-away-13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
 
-**Artist**: Moore Kismet 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Run Away!
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 07/06/2023 09:52
+Last updated at 07/06/2023 09:53
