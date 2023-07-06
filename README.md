@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JUFrTycgb0RF8Oye-1hjeng-t500x500.jpg">](https://soundcloud.com/daniel7official/hardcore-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ck3Jng95qVCKSi9R-x0CnJQ-t500x500.jpg">](https://soundcloud.com/moorekismet/run-away-13)
 
-**Artist**: Daniel Seven 
+**Artist**: Moore Kismet 
 
-**Track**: Hardcore Power (w/ Alaguan)
+**Track**: Run Away!
 
-Last updated at 07/06/2023 09:49
+Last updated at 07/06/2023 09:52
