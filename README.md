@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1Ryo5o9XqgUf9z3-v9zn7w-t500x500.jpg">](https://soundcloud.com/klubfillermusic/kfsummer23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JUFrTycgb0RF8Oye-1hjeng-t500x500.jpg">](https://soundcloud.com/daniel7official/hardcore-power)
 
-**Artist**: Klubfiller 
+**Artist**: Daniel Seven 
 
-**Track**: Klubfiller Summer Mixtape 2023
+**Track**: Hardcore Power (w/ Alaguan)
 
-Last updated at 07/06/2023 09:15
+Last updated at 07/06/2023 09:49
