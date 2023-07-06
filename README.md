@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkzf3vqlBejAAbyf-m31eKA-t500x500.jpg">](https://soundcloud.com/dj_rish/radio-killa-rishys-edit)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: DJ RISH 
 
-**Track**: Avicii - The Nights (Ezra Hazard Remix)
+**Track**: RADIO KILLA (RISHY'S 派对 EDIT)
 
-Last updated at 07/06/2023 09:53
+Last updated at 07/06/2023 09:54
