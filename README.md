@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IP3ftUvkpV4T8Cc3-kxTVuw-t500x500.jpg">](https://soundcloud.com/bassrush/ian-snow-mind-splitter-feat-ashel-seasunz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Kq4A5lYzvERn2vk-LErUGw-t500x500.jpg">](https://soundcloud.com/pyro_records/no-hero-call-u-mine)
 
-**Artist**: Bassrush 
+**Artist**: PYRO Records 
 
-**Track**: Ian Snow - Mind Splitter (feat. Ashel Seasunz)
+**Track**: No Hero - Call U Mine
 
-Last updated at 07/07/2023 16:06
+Last updated at 07/07/2023 17:56
