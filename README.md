@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/pret-a-porter?in=jxxyy/sets/just-tired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohgSsgMtwRROJcR6-KFvNLw-t500x500.jpg">](https://soundcloud.com/xotixmusic/xotix-eager-to-burn?in=xotixmusic/sets/losing-control-ep)
 
-**Artist**: Joeyy 
+**Artist**: XOTIX 
 
-**Track**: 𝒫ʳᵉ̂ᵗ⁻à-ᴘℴг︎𝒕𝑒ℛ (𝑃r𝗼∂︎. iji & Gyo)
+**Track**: XOTIX - EAGER TO BURN
 
-Last updated at 07/07/2023 14:25
+Last updated at 07/07/2023 14:51
