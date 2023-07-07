@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p2FzMiejC0uNzJDG-cc07iw-t500x500.jpg">](https://soundcloud.com/diceshades252/rap-entity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQm1GucMAzbZCO7u-3jzbCw-t500x500.jpg">](https://soundcloud.com/imanumusic/imanu-x-rhode-of-two-minds)
 
-**Artist**: Dice $hades 
+**Artist**: IMANU 
 
-**Track**: Rap Entity (Prod. DBK)
+**Track**: IMANU x Rhode - Of Two Minds
 
-Last updated at 07/07/2023 17:59
+Last updated at 07/07/2023 18:01
