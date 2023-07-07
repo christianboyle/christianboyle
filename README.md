@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ck3Jng95qVCKSi9R-x0CnJQ-t500x500.jpg">](https://soundcloud.com/moorekismet/run-away-13)
 
-**Artist**: Semantic Sounds 
+**Artist**: Moore Kismet 
 
-**Track**: Foodydrop - Missing
+**Track**: Run Away!
 
-Last updated at 07/07/2023 18:06
+Last updated at 07/07/2023 18:09
