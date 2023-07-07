@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ck3Jng95qVCKSi9R-x0CnJQ-t500x500.jpg">](https://soundcloud.com/moorekismet/run-away-13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33t74tTzfu2x5Uil-gvMzWA-t500x500.jpg">](https://soundcloud.com/mc4d_official/stand-by-me-mc4d-remix)
 
-**Artist**: Moore Kismet 
+**Artist**: MC4D 
 
-**Track**: Run Away!
+**Track**: Morgan Wallen & Lil Durk - Stand By Me (MC4D Remix)
 
-Last updated at 07/07/2023 18:09
+Last updated at 07/07/2023 18:13
