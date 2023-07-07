@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WJT8zGeyYlsDOUgr-vpCXRg-t500x500.jpg">](https://soundcloud.com/reapernoises/edclv2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IP3ftUvkpV4T8Cc3-kxTVuw-t500x500.jpg">](https://soundcloud.com/bassrush/ian-snow-mind-splitter-feat-ashel-seasunz)
 
-**Artist**: REAPER 
+**Artist**: Bassrush 
 
-**Track**: REAPER LIVE @ EDC LAS VEGAS 2023
+**Track**: Ian Snow - Mind Splitter (feat. Ashel Seasunz)
 
-Last updated at 07/07/2023 16:05
+Last updated at 07/07/2023 16:06
