@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQm1GucMAzbZCO7u-3jzbCw-t500x500.jpg">](https://soundcloud.com/imanumusic/imanu-x-rhode-of-two-minds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLPjseCzaa86vlWX-NZi4Xg-t500x500.jpg">](https://soundcloud.com/jxxyy/fiat)
 
-**Artist**: IMANU 
+**Artist**: Joeyy 
 
-**Track**: IMANU x Rhode - Of Two Minds
+**Track**: Fiat (Prod. By 4evr)
 
-Last updated at 07/07/2023 18:01
+Last updated at 07/07/2023 18:05
