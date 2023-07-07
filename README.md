@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/5XIyin68vEE/maxresdefault.jpg">](https://www.youtube.com/watch?v=5XIyin68vEE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/stilpane?in=jxxyy/sets/just-tired)
 
-**Artist**: 
-  
-    RL Grime
-  
-  
-  
-    RL Grime
-  
+**Artist**: Joeyy 
 
+**Track**: ᔕᵗⁱⓁ𝑃ANǝ (𝑃r𝗼∂︎. Iokera & iji)
 
-
-
-
- 
-
-**Track**: RL Grime & Juelz - Breach [Official Music Video]
-
-Last updated at 07/07/2023 08:58
+Last updated at 07/07/2023 14:17
