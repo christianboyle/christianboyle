@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000061014477-svzljn-t500x500.jpg">](https://soundcloud.com/futureclassic/panama-always-wave-racer-2?in=saxurn/sets/old/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qXyhqMvqSoxs5WUD-B9yi4g-t500x500.jpg">](https://soundcloud.com/keep-hush/nikki-nair)
 
-**Artist**: future classic 
+**Artist**: Keep Hush 
 
-**Track**: Panama - Always (Wave Racer Remix)
+**Track**: Nikki Nair DJ Set | Keep Hush Live: Los Angeles: Warp Mode Takeover
 
-Last updated at 07/07/2023 18:42
+Last updated at 07/07/2023 18:46
