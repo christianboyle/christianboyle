@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbiJzazN2n08SnSg-B8AvVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/exjaynine-that-way)
 
-**Artist**: david shawty 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
+**Track**: exjaynine - That Way
 
-Last updated at 07/08/2023 17:00
+Last updated at 07/08/2023 17:05
