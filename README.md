@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjNGSdbd7yWCSEDP-yCrTFw-t500x500.jpg">](https://soundcloud.com/dopaminewifi/panteros666-feat-zorza-ultra-ray)
 
-**Artist**: Azumai 
+**Artist**: DopamineWIFI 
 
-**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
+**Track**: Panteros666 (feat. Zorza) - Ultra Ray
 
-Last updated at 07/08/2023 16:32
+Last updated at 07/08/2023 16:36
