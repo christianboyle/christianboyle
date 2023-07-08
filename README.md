@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OjSEc33ZXYNJAR7-3T7vGw-t500x500.jpg">](https://soundcloud.com/aceii4/m2n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
 
-**Artist**: Aceii 
+**Artist**: david shawty 
 
-**Track**: M2N Ft. Yungster Jack [prod. shxrkz + sorrovw + talk2nobody]
+**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
 
-Last updated at 07/08/2023 16:56
+Last updated at 07/08/2023 17:00
