@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOrDonNE6GlKcohT-aHDUhg-t500x500.jpg">](https://soundcloud.com/hardfest/rohaan-something-in-the-green)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBMibWn6vYvN-0-t500x500.jpg">](https://soundcloud.com/nia-archives/baiana-dubplate)
 
-**Artist**: HARD hardfest.com 
+**Artist**: Nia Archives 
 
-**Track**: Rohaan - Something In The Green
+**Track**: Baianá
 
-Last updated at 07/08/2023 17:18
+Last updated at 07/08/2023 17:20
