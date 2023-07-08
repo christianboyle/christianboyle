@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmTiBDfPvHk7PWFa-x9gmzg-t500x500.jpg">](https://soundcloud.com/jxxyy/timmythick?in=jxxyy/sets/styrofoam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PTbGXIziEtGLWaV-WrTdPQ-t500x500.jpg">](https://soundcloud.com/davidshawty/canada-wrist-feat-rickychixaceiilakermarlongoyardjoeyyyungsterjack-proddjsmokeymaycrybrak3)
 
-**Artist**: Joeyy 
+**Artist**: david shawty 
 
-**Track**: Timmy Thick (Feat. KirbLaGoop) (Prod. By Ericslake & Xtendoshorty)
+**Track**: Canada Wrist feat. RickyChix,Aceii,Laker,Marlon,Goyard,Joeyy,YungsterJack prod.DjSmokey,Maycry,Brak3
 
-Last updated at 07/08/2023 16:49
+Last updated at 07/08/2023 16:50
