@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSb2ZmDwVSFQuHJo-zDQSww-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/david-shawty-x-bbygoyard-x-joeyy-this-song-made-me-puke-pt2-prod-dj-smokey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OjSEc33ZXYNJAR7-3T7vGw-t500x500.jpg">](https://soundcloud.com/aceii4/m2n)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: Aceii 
 
-**Track**: david shawty x bbygoyard x joeyy - this song made me puke pt.2 (prod. dj smokey)
+**Track**: M2N Ft. Yungster Jack [prod. shxrkz + sorrovw + talk2nobody]
 
-Last updated at 07/08/2023 16:53
+Last updated at 07/08/2023 16:56
