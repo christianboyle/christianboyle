@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000568850420-00t9pg-t500x500.jpg">](https://soundcloud.com/notstrider/the-wired)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wCEQjlztzXR0tkX-YifLZw-t500x500.jpg">](https://soundcloud.com/eliminatemusic/benny-benassi-satisfaction-eliminate-remix)
 
-**Artist**: STRIDER 
+**Artist**: Eliminate* 
 
-**Track**: THE WIRED
+**Track**: BENNY BENASSI - SATISFACTION (ELIMINATE EDIT)
 
-Last updated at 07/08/2023 18:30
+Last updated at 07/09/2023 08:02
