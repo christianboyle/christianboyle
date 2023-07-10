@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i268Tjc5K3j1smbv-xrZYUA-t500x500.jpg">](https://soundcloud.com/dvskrecords/modjo-on-fire-proxyma-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr1wwTzMYOvF3aVG-wx04yA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-corsen-point-nemo-purple-records)
 
-**Artist**: Dusk Records 
+**Artist**: Four Four Magazine 
 
-**Track**: Modjo - On Fire (PROXYMA EDIT)
+**Track**: Four Four Premiere: Corsen - Point Nemo [Purple Records]
 
-Last updated at 07/10/2023 10:36
+Last updated at 07/10/2023 10:37
