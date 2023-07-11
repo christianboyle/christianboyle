@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1CrWyKzCc1Dp6p0W-vymB0A-t500x500.jpg">](https://soundcloud.com/slagwerk/bdstf-what-is-he-sla15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yhb0S5OBCpAiURZW-J0coWg-t500x500.jpg">](https://soundcloud.com/nutrii-ent/nutrii-mixtape-w-bk-beats)
 
-**Artist**: Slagwerk 
+**Artist**: NUTRii 
 
-**Track**: bdstf — 'What Is He?' (SLA15)
+**Track**: NUTRii Mixtape w/ bk beats
 
-Last updated at 07/10/2023 17:30
+Last updated at 07/11/2023 08:05
