@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-652ToPNhFfxhykY7-HGSqZA-t500x500.jpg">](https://soundcloud.com/wearemoji/david-guetta-baby-dont-hurt-me-mojii-x-fahjah-x-t-a-n-e-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjNGSdbd7yWCSEDP-yCrTFw-t500x500.jpg">](https://soundcloud.com/dopaminewifi/panteros666-feat-zorza-ultra-ray)
 
-**Artist**: MOJI 
+**Artist**: DopamineWIFI 
 
-**Track**: David Guetta - Baby Don't Hurt Me (MOJI X Fahjah X T A N E Remix)
+**Track**: Panteros666 (feat. Zorza) - Ultra Ray
 
-Last updated at 07/11/2023 17:36
+Last updated at 07/11/2023 17:38
