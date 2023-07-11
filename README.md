@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjNGSdbd7yWCSEDP-yCrTFw-t500x500.jpg">](https://soundcloud.com/dopaminewifi/panteros666-feat-zorza-ultra-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix)
 
-**Artist**: DopamineWIFI 
+**Artist**: RogueEffect 
 
-**Track**: Panteros666 (feat. Zorza) - Ultra Ray
+**Track**: RL Grime - Core (RogueEffect Remix)
 
-Last updated at 07/11/2023 17:38
+Last updated at 07/11/2023 17:47
