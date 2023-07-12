@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4meU40nOhzzGOqEz-VUOVzA-t500x500.jpg">](https://soundcloud.com/ripeveryst/timeless?in=ripeveryst/sets/newski)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAcC6Tga6ygsf5C0-2WJS4w-t500x500.jpg">](https://soundcloud.com/faceless_apex/tropicana)
 
-**Artist**: EVERYST 
+**Artist**: Faceless Apex 
 
-**Track**: TIMELESS
+**Track**: TROPICANA
 
-Last updated at 07/12/2023 08:54
+Last updated at 07/12/2023 08:55
