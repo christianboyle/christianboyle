@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJ7hxcoxfPBHIblw-nz6yrA-t500x500.jpg">](https://soundcloud.com/flightfacilities/flight-facilities-for-triple-j-mix-up-exclusives-2012-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWGbHN3NlbzCXXPn-JboP6g-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra-live-060523-nikki-nair-horst-arts-music-2023)
 
-**Artist**: Flight Facilities 
+**Artist**: Resident Advisor 
 
-**Track**: Flight Facilities for 'triple j Mix Up Exclusives': 2012-2022
+**Track**: RA Live - 06.05.23 - Nikki Nair - Horst Arts & Music 2023
 
-Last updated at 07/12/2023 15:53
+Last updated at 07/12/2023 16:37
