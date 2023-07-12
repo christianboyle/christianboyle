@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ee8Q5ibZ3qRUNTVH-i8drhA-t500x500.jpg">](https://soundcloud.com/alexkautzmusic/were-all-gonna-die-summer-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpyx6Xds9gy7Wmfc-kdoOtg-t500x500.jpg">](https://soundcloud.com/stepdadvic-sos/lost-f-ivanluvsyou-cls-remix)
 
-**Artist**: ALEX KAUTZ 🌐 MUSIC 
+**Artist**: StepDadVic 
 
-**Track**: We're All Gonna Die (Summer Remix)
+**Track**: Lost (F. IvanLuvsYou) +C.L.S. Remix+
 
-Last updated at 07/12/2023 09:01
+Last updated at 07/12/2023 09:02
