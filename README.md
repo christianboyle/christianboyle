@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DN51YXfmzPMfD59U-QepAYQ-t500x500.jpg">](https://soundcloud.com/heklermusic/hekler-ultimate-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DwvnZmLAkzGmzAq9-DrvDAQ-t500x500.jpg">](https://soundcloud.com/officialcelo/murdah-celo-moshca-remix)
 
-**Artist**: HEKLER 
+**Artist**: CELO 
 
-**Track**: HEKLER - ULTIMATE 2023
+**Track**: KNOCK2 - MURDAH (CELO & MO$HCA REMIX)
 
-Last updated at 07/12/2023 15:51
+Last updated at 07/12/2023 15:52
