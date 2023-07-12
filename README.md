@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpyx6Xds9gy7Wmfc-kdoOtg-t500x500.jpg">](https://soundcloud.com/stepdadvic-sos/lost-f-ivanluvsyou-cls-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wUGaOtSltw8B-0-t500x500.jpg">](https://soundcloud.com/mbootyspoon/ye-track?in=mbootyspoon/sets/jester-638522727)
 
-**Artist**: StepDadVic 
+**Artist**: M. Bootyspoon 
 
-**Track**: Lost (F. IvanLuvsYou) +C.L.S. Remix+
+**Track**: Ye Track
 
-Last updated at 07/12/2023 09:02
+Last updated at 07/12/2023 09:07
