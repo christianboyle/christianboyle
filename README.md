@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/mDw-Mg0TvxE/maxresdefault.jpg">](https://www.youtube.com/watch?v=mDw-Mg0TvxE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000025221044-c7fvqf-t500x500.jpg">](https://soundcloud.com/pablo-allende-1/daft-punk-harder-better-faster)
 
-**Artist**: 
-  
-    Ben Nicky
-  
-  
-  
-    Ben Nicky
-  
+**Artist**: Pablo Allende 
 
+**Track**: Daft Punk-Harder, Better, Faster, Stronger (Acapella)
 
-
-
-
- 
-
-**Track**: Ben Nicky LIVE @ Belsonic 2023, Belfast [FULL HD SET]
-
-Last updated at 07/12/2023 15:31
+Last updated at 07/12/2023 15:45
