@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWGbHN3NlbzCXXPn-JboP6g-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra-live-060523-nikki-nair-horst-arts-music-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBxwsqgvn4KsYrAA-KvcK9g-t500x500.jpg">](https://soundcloud.com/montarecs/control-freak-flanger-id?in=controlfreakus/sets/flanger-id)
 
-**Artist**: Resident Advisor 
+**Artist**: MONTA 
 
-**Track**: RA Live - 06.05.23 - Nikki Nair - Horst Arts & Music 2023
+**Track**: Control Freak - FLANGER ID
 
-Last updated at 07/12/2023 16:37
+Last updated at 07/13/2023 15:42
