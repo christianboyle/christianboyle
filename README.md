@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOyIXGdG86uDV0cG-pen0rw-t500x500.jpg">](https://soundcloud.com/wubaholics/viiiralbeats-could-be-trappin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyy5altIV6jmy9IH-xYMVVg-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-la-2023-official-mixtape-series-it-hz-chee-x-jon-casey-edm-identity)
 
-**Artist**: Wubaholics 
+**Artist**: HARD hardfest.com 
 
-**Track**: viiiralbeats - could be trappin
+**Track**: HARD Summer LA 2023 Official Mixtape Series: IT HZ (Chee x Jon Casey) [EDM Identity]
 
-Last updated at 07/13/2023 16:07
+Last updated at 07/13/2023 16:10
