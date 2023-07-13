@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tng6p4zPmWDa17HW-Y8FapA-t500x500.jpg">](https://soundcloud.com/merger-official/outkast-roses-merger-remix-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iCXRNch3lalWgRDG-bYGwCg-t500x500.jpg">](https://soundcloud.com/chromebodies/heavensgates)
 
-**Artist**: Merger 
+**Artist**: CHROMEBODIES 
 
-**Track**: Outkast - Roses (Merger Remix) [Free Extended DL]
+**Track**: DEVAULT, IZZY CAMINA, MANILA KILLA - HEAVEN'S GATES (CHROMEBODIED)
 
-Last updated at 07/13/2023 15:52
+Last updated at 07/13/2023 15:53
