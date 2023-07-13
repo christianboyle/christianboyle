@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HfO1uX5HUJxH3yPO-sXStjA-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/kuhlosul-hawt-damn?in=threddedbass/sets/locked-and-loaded-vol-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tng6p4zPmWDa17HW-Y8FapA-t500x500.jpg">](https://soundcloud.com/merger-official/outkast-roses-merger-remix-radio-mix)
 
-**Artist**: High Caliber Records 
+**Artist**: Merger 
 
-**Track**: Kuhlosul - Hawt Damn
+**Track**: Outkast - Roses (Merger Remix) [Free Extended DL]
 
-Last updated at 07/13/2023 15:51
+Last updated at 07/13/2023 15:52
