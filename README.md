@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hvfcc1xMd3TmJbE-lYdCPg-t500x500.jpg">](https://soundcloud.com/semantic-sounds/kelem-off-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F2C4sLdHkVPFIWLg-TOpOHQ-t500x500.jpg">](https://soundcloud.com/temcoofficial/lostronaut-what)
 
-**Artist**: Semantic Sounds 
+**Artist**: The Electric Movement 
 
-**Track**: Kelem - Off The Lights
+**Track**: LØSTRONAUT - What
 
-Last updated at 07/13/2023 17:17
+Last updated at 07/13/2023 17:19
