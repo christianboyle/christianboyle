@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyy5altIV6jmy9IH-xYMVVg-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-la-2023-official-mixtape-series-it-hz-chee-x-jon-casey-edm-identity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hvfcc1xMd3TmJbE-lYdCPg-t500x500.jpg">](https://soundcloud.com/semantic-sounds/kelem-off-the-lights)
 
-**Artist**: HARD hardfest.com 
+**Artist**: Semantic Sounds 
 
-**Track**: HARD Summer LA 2023 Official Mixtape Series: IT HZ (Chee x Jon Casey) [EDM Identity]
+**Track**: Kelem - Off The Lights
 
-Last updated at 07/13/2023 16:10
+Last updated at 07/13/2023 17:17
