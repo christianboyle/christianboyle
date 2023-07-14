@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozbU6BkFojRAhmQ7-o2CsQg-t500x500.jpg">](https://soundcloud.com/ovinehall/dogs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYeHVF8DVnhkHmw4-6DDwAQ-t500x500.jpg">](https://soundcloud.com/tetrixbassofficial/tetrix-bass-bombs)
 
-**Artist**: ovine hall 
+**Artist**: Tetrix Bass 
 
-**Track**: skinny white boy in that big black benz again
+**Track**: Tetrix Bass - Bombs
 
-Last updated at 07/13/2023 19:31
+Last updated at 07/13/2023 19:33
