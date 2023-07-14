@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjiyLIa1ZqhMtFyL-TTmofQ-t500x500.jpg">](https://soundcloud.com/officialcelo/lemonade-celo-808gong-remix)
 
-**Artist**: Trip Trop 
+**Artist**: CELO 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
+**Track**: Lemonade (CELO & 808gong Remix)
 
-Last updated at 07/13/2023 19:40
+Last updated at 07/13/2023 19:42
