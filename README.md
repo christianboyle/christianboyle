@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xfpVNAHCJvGzn0Py-BEGyjQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/shake-your-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VADMNrzXLov6mM5m-wICnsw-t500x500.jpg">](https://soundcloud.com/aurede-official/pinkvenom)
 
-**Artist**: Quickdrop 
+**Artist**: Aurede 
 
-**Track**: Shake Your Body
+**Track**: BLACKPINK - Pink Venom (Aurede & XHALE Remix)[FREE DL]
 
-Last updated at 07/14/2023 07:20
+Last updated at 07/14/2023 07:21
