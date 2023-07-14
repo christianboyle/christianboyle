@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozbU6BkFojRAhmQ7-o2CsQg-t500x500.jpg">](https://soundcloud.com/ovinehall/dogs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oXYXtNb8Qaesjccg-4ynThQ-t500x500.jpg">](https://soundcloud.com/officialcelo/clockworkremix)
 
-**Artist**: ovine hall 
+**Artist**: CELO 
 
-**Track**: skinny white boy in that big black benz again
+**Track**: BLVD. - CLOCKWORK (CELO & Risk-E Remix)
 
-Last updated at 07/13/2023 19:34
+Last updated at 07/13/2023 19:36
