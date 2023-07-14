@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VADMNrzXLov6mM5m-wICnsw-t500x500.jpg">](https://soundcloud.com/aurede-official/pinkvenom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJ7hxcoxfPBHIblw-nz6yrA-t500x500.jpg">](https://soundcloud.com/flightfacilities/flight-facilities-for-triple-j-mix-up-exclusives-2012-2022)
 
-**Artist**: Aurede 
+**Artist**: Flight Facilities 
 
-**Track**: BLACKPINK - Pink Venom (Aurede & XHALE Remix)[FREE DL]
+**Track**: Flight Facilities for 'triple j Mix Up Exclusives': 2012-2022
 
-Last updated at 07/14/2023 07:21
+Last updated at 07/14/2023 07:22
