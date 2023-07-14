@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/j_s4nvLRwFA/maxresdefault.jpg">](https://www.youtube.com/watch?v=j_s4nvLRwFA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weyWFNjHUIQAErAq-CZ9g2A-t500x500.jpg">](https://soundcloud.com/trey-pearce/skrillex-fred-again-and-1)
 
-**Artist**: 
-  
-    Ben Nicky
-  
-  
-  
-    Ben Nicky
-  
+**Artist**: Trey Pearce 
 
+**Track**: Skrillex, Fred again... and Flowdan - Rumble (Trey Pearce Remix)
 
-
-
-
- 
-
-**Track**: Ben Nicky LIVE @ Belsonic 2023, Belfast [FULL HD SET]
-
-Last updated at 07/13/2023 17:38
+Last updated at 07/13/2023 19:26
