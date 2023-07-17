@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyHoHtxXbbkPVamc-eJXDqQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/blinding-lights)
 
-**Artist**: dot.MAX 
+**Artist**: Quickdrop 
 
-**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
+**Track**: Blinding Lights
 
-Last updated at 07/17/2023 17:32
+Last updated at 07/17/2023 17:36
