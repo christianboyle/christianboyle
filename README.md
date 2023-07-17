@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Slkjh8DGCGee-0-t500x500.jpg">](https://soundcloud.com/isseycross/issey-cross-bittersweet-goodbye-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JjZHzumax4D7rWXn-ohDd1g-t500x500.jpg">](https://soundcloud.com/harmonyhaven/opal-night-velious)
 
-**Artist**: Issey Cross 
+**Artist**: Harmony Haven 
 
-**Track**: Bittersweet Goodbye
+**Track**: Opal Night - Velious
 
-Last updated at 07/17/2023 12:34
+Last updated at 07/17/2023 12:35
