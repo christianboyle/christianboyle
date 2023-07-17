@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jf4wxUxslOXPVSA5-IxxmSA-t500x500.jpg">](https://soundcloud.com/cosmicbeats/go-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxlWsUUMxcIgNRhg-9Pga9A-t500x500.jpg">](https://soundcloud.com/officialflozone/trauma)
 
-**Artist**: COSMIC 
+**Artist**: flozone 
 
-**Track**: GO!
+**Track**: trauma
 
-Last updated at 07/17/2023 12:23
+Last updated at 07/17/2023 12:24
