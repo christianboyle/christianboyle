@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRTnFC1DeGpmnkP2-40X1yA-t500x500.jpg">](https://soundcloud.com/murchy3/dog-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSwIGrzFbGP8DMQy-E1ZYWw-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nukeparty)
 
-**Artist**: murchy3 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Alive (Dog Dance Mix)
+**Track**: dj smokey - nukeparty
 
-Last updated at 07/17/2023 12:27
+Last updated at 07/17/2023 12:28
