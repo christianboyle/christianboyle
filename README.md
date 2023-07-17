@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FS96vDlgCCQ5ohfN-AKe0lg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/lightswitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssgmui5vsQmzNfaA-QtoSIQ-t500x500.jpg">](https://soundcloud.com/planetzuzy/help-me-lose-my-mind-planet-zuzy-remix?in=planetzuzy/sets/disclosure-help-me-lose-my)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Planet Zuzy 
 
-**Track**: Charlie Puth - Light Switch (Ezra Hazard Remix)
+**Track**: Help Me Lose My Mind (Remix)
 
-Last updated at 07/17/2023 17:40
+Last updated at 07/17/2023 17:41
