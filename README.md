@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyHoHtxXbbkPVamc-eJXDqQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/blinding-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oXYXtNb8Qaesjccg-4ynThQ-t500x500.jpg">](https://soundcloud.com/officialcelo/clockworkremix)
 
-**Artist**: Quickdrop 
+**Artist**: CELO 
 
-**Track**: Blinding Lights
+**Track**: BLVD. - CLOCKWORK (CELO & Risk-E Remix)
 
-Last updated at 07/17/2023 17:03
+Last updated at 07/17/2023 17:06
