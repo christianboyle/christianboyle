@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yd03jXJpHd6j-0-t500x500.png">](https://soundcloud.com/ookaymusic/breakshit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzJHReuYwxVjnTzz-kDQigA-t500x500.jpg">](https://soundcloud.com/iammanada/shellz)
 
-**Artist**: Ookay 
+**Artist**: MANADA 
 
-**Track**: BREAKSHIT
+**Track**: MANADA - SHELLZ
 
-Last updated at 07/17/2023 12:32
+Last updated at 07/17/2023 12:33
