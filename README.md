@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jf4wxUxslOXPVSA5-IxxmSA-t500x500.jpg">](https://soundcloud.com/cosmicbeats/go-1)
 
-**Artist**: Arcando 
+**Artist**: COSMIC 
 
-**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
+**Track**: GO!
 
-Last updated at 07/17/2023 16:57
+Last updated at 07/17/2023 16:59
