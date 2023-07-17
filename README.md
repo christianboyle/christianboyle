@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8dG0qmdgiKDylAf-Rz8WwQ-t500x500.jpg">](https://soundcloud.com/ozzgold/style-taylor-swift-ozz-gold-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix)
 
-**Artist**: Ozz Gold 
+**Artist**: dot.MAX 
 
-**Track**: Style - Taylor Swift (Ozz Gold Remix)
+**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
 
-Last updated at 07/17/2023 17:29
+Last updated at 07/17/2023 17:32
