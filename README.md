@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HT8zLhYfyLzB8E5S-Zvaiiw-t500x500.jpg">](https://soundcloud.com/baeldorf/starfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0f4lIXpPUHPV3ykj-JyY6Jg-t500x500.jpg">](https://soundcloud.com/baeldorf/aero)
 
 **Artist**: Baeldorf 
 
-**Track**: Starfall
+**Track**: Aero
 
-Last updated at 07/17/2023 14:03
+Last updated at 07/17/2023 14:19
