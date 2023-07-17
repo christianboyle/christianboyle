@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qyRyUIqLst9YZfba-ys4KQg-t500x500.jpg">](https://soundcloud.com/pholouk/t2-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53dBzoiZglIkYYv1-pnlybQ-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-the-city)
 
-**Artist**: Pholo 
+**Artist**: Lucha 
 
-**Track**: T2 Flip
+**Track**: THE CITY
 
-Last updated at 07/17/2023 08:34
+Last updated at 07/17/2023 09:31
