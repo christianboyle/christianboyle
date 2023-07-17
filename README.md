@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53dBzoiZglIkYYv1-pnlybQ-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-the-city)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVsJICK6KmfnJywu-iz5uGA-t500x500.jpg">](https://soundcloud.com/drz_uk/100-drz-vol-7)
 
-**Artist**: Lucha 
+**Artist**: DRZ 
 
-**Track**: THE CITY
+**Track**: 100% DRZ Vol. 7
 
-Last updated at 07/17/2023 09:31
+Last updated at 07/17/2023 09:32
