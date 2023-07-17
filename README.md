@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyHoHtxXbbkPVamc-eJXDqQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/blinding-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
 
-**Artist**: Quickdrop 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Blinding Lights
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 07/17/2023 17:36
+Last updated at 07/17/2023 17:37
