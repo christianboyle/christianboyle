@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssgmui5vsQmzNfaA-QtoSIQ-t500x500.jpg">](https://soundcloud.com/planetzuzy/help-me-lose-my-mind-planet-zuzy-remix?in=planetzuzy/sets/disclosure-help-me-lose-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr1wwTzMYOvF3aVG-wx04yA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-corsen-point-nemo-purple-records)
 
-**Artist**: Planet Zuzy 
+**Artist**: Four Four Magazine 
 
-**Track**: Help Me Lose My Mind (Remix)
+**Track**: Four Four Premiere: Corsen - Point Nemo [Purple Records]
 
-Last updated at 07/17/2023 17:41
+Last updated at 07/17/2023 17:43
