@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xy6p19MvRnpIUzGH-9VB11w-t500x500.jpg">](https://soundcloud.com/baeldorf-alt/baeldorf-trance-ideas-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xx3HVbabQUmu4gTB-36q6dw-t500x500.jpg">](https://soundcloud.com/snether90/solar)
 
-**Artist**: Baeldorf 2 
+**Artist**: dj snether90 
 
-**Track**: Baeldorf Trance Ideas 2023
+**Track**: solar
 
-Last updated at 07/17/2023 12:37
+Last updated at 07/17/2023 13:16
