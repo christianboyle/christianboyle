@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr1wwTzMYOvF3aVG-wx04yA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-corsen-point-nemo-purple-records)
 
-**Artist**: RogueEffect 
+**Artist**: Four Four Magazine 
 
-**Track**: RL Grime - Core (RogueEffect Remix)
+**Track**: Four Four Premiere: Corsen - Point Nemo [Purple Records]
 
-Last updated at 07/17/2023 17:14
+Last updated at 07/17/2023 17:17
