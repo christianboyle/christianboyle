@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxlWsUUMxcIgNRhg-9Pga9A-t500x500.jpg">](https://soundcloud.com/officialflozone/trauma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix)
 
-**Artist**: flozone 
+**Artist**: Arcando 
 
-**Track**: trauma
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 07/17/2023 12:24
+Last updated at 07/17/2023 12:26
