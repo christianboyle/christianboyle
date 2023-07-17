@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr1wwTzMYOvF3aVG-wx04yA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-corsen-point-nemo-purple-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8dG0qmdgiKDylAf-Rz8WwQ-t500x500.jpg">](https://soundcloud.com/ozzgold/style-taylor-swift-ozz-gold-1)
 
-**Artist**: Four Four Magazine 
+**Artist**: Ozz Gold 
 
-**Track**: Four Four Premiere: Corsen - Point Nemo [Purple Records]
+**Track**: Style - Taylor Swift (Ozz Gold Remix)
 
-Last updated at 07/17/2023 17:17
+Last updated at 07/17/2023 17:29
