@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BEsgT1ScNBa324f-86GVHQ-t500x500.jpg">](https://soundcloud.com/cassacristanode/safri-duo-played-a-life-cassa-cristano-reverse-bass-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix)
 
-**Artist**: Cassa Cristano 
+**Artist**: Arcando 
 
-**Track**: Safri Duo - Played A Live (Cassa Cristano Reverse Bass Remix)
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 07/17/2023 16:56
+Last updated at 07/17/2023 16:57
