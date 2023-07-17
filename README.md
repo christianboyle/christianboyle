@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVsJICK6KmfnJywu-iz5uGA-t500x500.jpg">](https://soundcloud.com/drz_uk/100-drz-vol-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jf4wxUxslOXPVSA5-IxxmSA-t500x500.jpg">](https://soundcloud.com/cosmicbeats/go-1)
 
-**Artist**: DRZ 
+**Artist**: COSMIC 
 
-**Track**: 100% DRZ Vol. 7
+**Track**: GO!
 
-Last updated at 07/17/2023 09:32
+Last updated at 07/17/2023 12:23
