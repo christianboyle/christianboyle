@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMYDge3WlGTeeUaR-Czz6Wg-t500x500.jpg">](https://soundcloud.com/asamoy2/the-ones-malachi-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix)
 
-**Artist**: Malachi 
+**Artist**: RogueEffect 
 
-**Track**: The Ones (Malachi DnB Remix)
+**Track**: RL Grime - Core (RogueEffect Remix)
 
-Last updated at 07/17/2023 17:11
+Last updated at 07/17/2023 17:14
