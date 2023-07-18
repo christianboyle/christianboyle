@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wY0xFaj925i4yny0-0j3H9Q-t500x500.jpg">](https://soundcloud.com/itstwilla/mixed-signals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YV0B0OyGhz6JoBeZ-wkcaJQ-t500x500.jpg">](https://soundcloud.com/supmilesaway/happy-tears-with-runn-aymen?in=supmilesaway/sets/the-space-between-two-halves)
 
-**Artist**: Twilla 
+**Artist**: Miles Away 
 
-**Track**: Mixed Signals
+**Track**: Happy Tears (with RUNN & AYMEN)
 
-Last updated at 07/18/2023 09:30
+Last updated at 07/18/2023 09:31
