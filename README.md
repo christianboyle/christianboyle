@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nJv3xYHLSzVdjO7q-O9EFmQ-t500x500.jpg">](https://soundcloud.com/deepdarkdangerous/truth-shire-dub-yoko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6K2e04nmzrOj39m-M6wdbw-t500x500.jpg">](https://soundcloud.com/kniteforcerevolution/koor14aa2-dj-infinity-eternal)
 
-**Artist**: Deep Dark & Dangerous 
+**Artist**: Kniteforce Revolution 
 
-**Track**: Truth - Shire Dub (Yoko Remix)
+**Track**: KOOR14AA2 - DJ Infinity - Eternal
 
-Last updated at 07/18/2023 08:24
+Last updated at 07/18/2023 09:27
