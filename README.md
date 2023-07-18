@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix)
 
-**Artist**: Trip Trop 
+**Artist**: Arcando 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 07/18/2023 17:19
+Last updated at 07/18/2023 17:20
