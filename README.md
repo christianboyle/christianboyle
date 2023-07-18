@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6jJOFJtv5YWRLpCq-qOYj6A-t500x500.jpg">](https://soundcloud.com/kniteforcerevolution/koor13b1soundclip?in=kniteforcerevolution/sets/koor13-new-decade-another-world-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GX5y8Y4eKgD7kMdH-UZaUNg-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-bluem-angel-anunaku-remix)
 
-**Artist**: Kniteforce Revolution 
+**Artist**: Mixmag 
 
-**Track**: KOOR13B1 - New Decade - Utopia
+**Track**: Premiere: BLUEM 'angel' (Anunaku Remix)
 
-Last updated at 07/18/2023 09:28
+Last updated at 07/18/2023 09:29
