@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohSMoYr5syBgzwio-kj9hhA-t500x500.jpg">](https://soundcloud.com/bel0ng/joeyy-from-bel0ng-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H0HL9W1VxrNtdjYv-HWJ4vg-t500x500.jpg">](https://soundcloud.com/syence/vibes)
 
-**Artist**: Bel0ng 
+**Artist**: syence 
 
-**Track**: Joeyy - From // bel0ng dnb remix
+**Track**: vibes
 
-Last updated at 07/18/2023 17:11
+Last updated at 07/18/2023 17:12
