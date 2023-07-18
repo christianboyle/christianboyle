@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GX5y8Y4eKgD7kMdH-UZaUNg-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-bluem-angel-anunaku-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wY0xFaj925i4yny0-0j3H9Q-t500x500.jpg">](https://soundcloud.com/itstwilla/mixed-signals)
 
-**Artist**: Mixmag 
+**Artist**: Twilla 
 
-**Track**: Premiere: BLUEM 'angel' (Anunaku Remix)
+**Track**: Mixed Signals
 
-Last updated at 07/18/2023 09:29
+Last updated at 07/18/2023 09:30
