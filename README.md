@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCP4YjLTBBliAB0a-AGfhcw-t500x500.jpg">](https://soundcloud.com/exclusivetunesnetwork/dontwannagohome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix)
 
-**Artist**: Exclusive Tunes Network 
+**Artist**: Arcando 
 
-**Track**: InSulin - Don't Wanna Go Home [Electrostep Network & Exclusive Tunes Network EXCLUSIVE]
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 07/18/2023 18:56
+Last updated at 07/18/2023 18:57
