@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass_8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kwv60X602AfZzwyT-K7lqxw-t500x500.jpg">](https://soundcloud.com/dosecore/nothing-more-to-say-sophie-summer-remix)
 
-**Artist**: KULA 
+**Artist**: DOSECORE 
 
-**Track**: KULA_Breakbeat_UK_Bass_8_
+**Track**: Nothing More to Say - SOPHIE (SUMMER REMIX)
 
-Last updated at 07/18/2023 09:32
+Last updated at 07/18/2023 17:07
