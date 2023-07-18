@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJ7hxcoxfPBHIblw-nz6yrA-t500x500.jpg">](https://soundcloud.com/flightfacilities/flight-facilities-for-triple-j-mix-up-exclusives-2012-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjiyLIa1ZqhMtFyL-TTmofQ-t500x500.jpg">](https://soundcloud.com/officialcelo/lemonade-celo-808gong-remix)
 
-**Artist**: Flight Facilities 
+**Artist**: CELO 
 
-**Track**: Flight Facilities Decade Mix: 2012-2022
+**Track**: Lemonade (CELO & 808gong Remix)
 
-Last updated at 07/17/2023 17:47
+Last updated at 07/18/2023 08:21
