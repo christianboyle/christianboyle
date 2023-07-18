@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohSMoYr5syBgzwio-kj9hhA-t500x500.jpg">](https://soundcloud.com/bel0ng/joeyy-from-bel0ng-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mOsuMaEDRNNXJl3z-bdfZwA-t500x500.jpg">](https://soundcloud.com/eery/overdose)
 
-**Artist**: Bel0ng 
+**Artist**: eery 
 
-**Track**: Joeyy - From // bel0ng dnb remix
+**Track**: Overdose (Feat. Layawayy)
 
-Last updated at 07/18/2023 17:14
+Last updated at 07/18/2023 17:15
