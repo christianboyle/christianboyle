@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8rVY8FWVcbLYFLp-thD16A-t500x500.jpg">](https://soundcloud.com/raycoknoxx/bad-bunny-feat-bomba-estereo-ojitos-lindos-rayco-knoxx-remix?in=raycoknoxxvip/sets/bad-bunny-feat-bomba-estereo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/now-i-become-death-w-dj-smokey)
 
-**Artist**: RAYCO KNOXX 
+**Artist**: BBY GOYARD 
 
-**Track**: BAD BUNNY Feat. BOMBA ESTEREO - OJITOS LINDOS (RAYCO KNOXX REMIX) [FREE DL]
+**Track**: Now I Become Death (W/ Dj Smokey)
 
-Last updated at 07/18/2023 19:03
+Last updated at 07/18/2023 19:04
