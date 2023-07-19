@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/now-i-become-death-w-dj-smokey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LDgyUiwdiRZjkpYg-PsshyA-t500x500.jpg">](https://soundcloud.com/explorersoftheinternet/let-the-bodies-hit-the-floor)
 
-**Artist**: BBY GOYARD 
+**Artist**: Explorers of the Internet 
 
-**Track**: Now I Become Death (W/ Dj Smokey)
+**Track**: ✨😊💖 let the bodies hit the floor 💖😊✨
 
-Last updated at 07/18/2023 19:04
+Last updated at 07/18/2023 19:05
