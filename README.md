@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X21sjFxrSPyk8ez9-M6iF5w-t500x500.jpg">](https://soundcloud.com/rezimusicas/rezi-termino)
 
-**Artist**: Trip Trop 
+**Artist**: REZI 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
+**Track**: Reaching (Limit)
 
-Last updated at 07/18/2023 19:01
+Last updated at 07/18/2023 19:02
