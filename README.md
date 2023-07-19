@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRoMaG1enqeOb0A7-0Tu89w-t500x500.jpg">](https://soundcloud.com/burnarecords/sav-soundboy-killa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLyJi0bvEcEMwFkR-yLzyuA-t500x500.jpg">](https://soundcloud.com/rovadnb/boom-boom-pow-rova-bootleg-free-download)
 
-**Artist**: Burna Records 
+**Artist**: Rova 
 
-**Track**: SAV - SOUNDBOY KILLA  [FREE DOWNLOAD]
+**Track**: BOOM BOOM POW (ROVA BOOTLEG) [FREE DOWNLOAD]
 
-Last updated at 07/19/2023 08:43
+Last updated at 07/19/2023 09:24
