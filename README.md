@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyP7ziUwTjIMipNH-nCqrzw-t500x500.jpg">](https://soundcloud.com/bvsis/pull-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UxgBJxezqSZzxbKW-d3zTsQ-t500x500.jpg">](https://soundcloud.com/mackabre1/penguin-prod-goodngt)
 
-**Artist**: BΛSIS 
+**Artist**: Mackabre 
 
-**Track**: Pull Up
+**Track**: Penguin (prod. GOODNGT)
 
-Last updated at 07/19/2023 10:17
+Last updated at 07/19/2023 10:19
