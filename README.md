@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wq5OiXQsKzp8PPa-0WcCFQ-t500x500.jpg">](https://soundcloud.com/colorize-enhanced/datskie-europa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRkH2nt5Nhw6SSiv-F553sg-t500x500.jpg">](https://soundcloud.com/justicehardcore/imsober)
 
-**Artist**: Colorize 
+**Artist**: Justice Hardcore 
 
-**Track**: Datskie - Europa
+**Track**: MinGtist - I'm Sober ⚠️OUT NOW⚠️
 
-Last updated at 07/19/2023 17:24
+Last updated at 07/19/2023 17:27
