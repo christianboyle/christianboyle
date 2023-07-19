@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKkwaTmvos9k4FNY-UGLFYQ-t500x500.jpg">](https://soundcloud.com/yungdeepthroat/molly-prod-by-umru-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
 
-**Artist**: river moon 
+**Artist**: FIEND WORLD 
 
-**Track**: MOLLY (PROD. BY UMRU)
+**Track**: COLD SWEATS VOL. 3
 
-Last updated at 07/18/2023 19:07
+Last updated at 07/18/2023 19:09
