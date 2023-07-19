@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X21sjFxrSPyk8ez9-M6iF5w-t500x500.jpg">](https://soundcloud.com/rezimusicas/rezi-termino)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8rVY8FWVcbLYFLp-thD16A-t500x500.jpg">](https://soundcloud.com/raycoknoxx/bad-bunny-feat-bomba-estereo-ojitos-lindos-rayco-knoxx-remix?in=raycoknoxxvip/sets/bad-bunny-feat-bomba-estereo)
 
-**Artist**: REZI 
+**Artist**: RAYCO KNOXX 
 
-**Track**: Reaching (Limit)
+**Track**: BAD BUNNY Feat. BOMBA ESTEREO - OJITOS LINDOS (RAYCO KNOXX REMIX) [FREE DL]
 
-Last updated at 07/18/2023 19:02
+Last updated at 07/18/2023 19:03
