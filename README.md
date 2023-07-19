@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dBK2yUajVFJI0Qp0-B5fgog-t500x500.jpg">](https://soundcloud.com/tkyo_music/j-cole-a-tale-of-2-citiez-tkyo-flip-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyP7ziUwTjIMipNH-nCqrzw-t500x500.jpg">](https://soundcloud.com/bvsis/pull-up)
 
-**Artist**: TKYO 
+**Artist**: BΛSIS 
 
-**Track**: J. Cole - A Tale Of 2 Citiez [TKYO FLIP] FREE DL
+**Track**: Pull Up
 
-Last updated at 07/19/2023 10:16
+Last updated at 07/19/2023 10:17
