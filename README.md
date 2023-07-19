@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wI6u7PMNwUx3LONg-8aXHBg-t500x500.jpg">](https://soundcloud.com/colorize-enhanced/colorcast-radio-179-with-datskie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2wq5OiXQsKzp8PPa-0WcCFQ-t500x500.jpg">](https://soundcloud.com/colorize-enhanced/datskie-connection)
 
 **Artist**: Colorize 
 
-**Track**: Colorcast Radio 179 with Datskie
+**Track**: Datskie - Connection
 
-Last updated at 07/19/2023 11:55
+Last updated at 07/19/2023 17:19
