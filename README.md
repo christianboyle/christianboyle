@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fa3WOviGDYXjgoIk-6lcYeA-t500x500.jpg">](https://soundcloud.com/subfocus/dod-so-much-in-love-sub-focus-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1)
 
-**Artist**: Sub Focus 
+**Artist**: Trip Trop 
 
-**Track**: D.O.D - So Much In Love (Sub Focus Remix)
+**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
 
-Last updated at 07/18/2023 19:00
+Last updated at 07/18/2023 19:01
