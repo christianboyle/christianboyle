@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RsNTZV8ynbz644R-yo5s3A-t500x500.jpg">](https://soundcloud.com/fiendworldwide/cold-sweats-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ID9BmFYS1Sw5bU7R-FiocnA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/accidental-spill)
 
-**Artist**: FIEND WORLD 
+**Artist**: kushface ☤ 
 
-**Track**: COLD SWEATS VOL. 3
+**Track**: ACCIDENTAL SPILL
 
-Last updated at 07/18/2023 19:09
+Last updated at 07/18/2023 19:15
