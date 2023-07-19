@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IYGzQFtpwXFlrN6-KPdzxg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jon10-dont-step-to-this-asw003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRoMaG1enqeOb0A7-0Tu89w-t500x500.jpg">](https://soundcloud.com/burnarecords/sav-soundboy-killa)
 
-**Artist**: HATE 
+**Artist**: Burna Records 
 
-**Track**: Premiere: Jon10 - Dont Step To This [ASW003]
+**Track**: SAV - SOUNDBOY KILLA  [FREE DOWNLOAD]
 
-Last updated at 07/19/2023 08:42
+Last updated at 07/19/2023 08:43
