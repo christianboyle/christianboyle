@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ID9BmFYS1Sw5bU7R-FiocnA-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/accidental-spill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yZ1vqfnXEJ1D9BV-AxWhyg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-v)
 
 **Artist**: kushface ☤ 
 
-**Track**: ACCIDENTAL SPILL
+**Track**: DIRT TAPE V
 
-Last updated at 07/18/2023 19:15
+Last updated at 07/18/2023 19:17
