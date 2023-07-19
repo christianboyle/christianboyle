@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yZ1vqfnXEJ1D9BV-AxWhyg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/dirt-tape-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C7J2kvT3MwQWphvb-VyEQcw-t500x500.jpg">](https://soundcloud.com/hyperforms/turn-on-the-lights)
 
-**Artist**: kushface ☤ 
+**Artist**: hyperforms 
 
-**Track**: DIRT TAPE V
+**Track**: Fred again.. - Turn On The Lights again.. (hyperforms Remix)
 
-Last updated at 07/18/2023 19:17
+Last updated at 07/19/2023 08:38
