@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAs6xSUyLdwd8QTv-ym5NoA-t500x500.jpg">](https://soundcloud.com/iamtalons/talons-papa-groove-xoxofaso-last-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YatgR4CRLZ97Dq6c-O7bfyw-t500x500.jpg">](https://soundcloud.com/hallucinate/easytolove)
 
-**Artist**: TALONS 
+**Artist**: Hallucinate 
 
-**Track**: TALONS, Papa Groove, xoxofaso - Last Night
+**Track**: Hallucinate - Easy To Love
 
-Last updated at 07/20/2023 08:12
+Last updated at 07/20/2023 08:15
