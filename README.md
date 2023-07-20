@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9AcKJsIUWs5cFne-1O2yTQ-t500x500.jpg">](https://soundcloud.com/user-jakesilva/rock-this-party-bob-sinclair-jake-silva-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0RfS0ckubMqBFkd-qrUXYw-t500x500.jpg">](https://soundcloud.com/ekonovah/morning-light)
 
-**Artist**: Jake Silva 
+**Artist**: Ekonovah 
 
-**Track**: Rock This Party - Bob Sinclair & Cutee B (Jake Silva & Frankie Sims Remix)
+**Track**: Ekonovah - Morning Light
 
-Last updated at 07/20/2023 16:38
+Last updated at 07/20/2023 16:39
