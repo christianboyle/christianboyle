@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/now-i-become-death-w-dj-smokey)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: BBY GOYARD 
 
-**Track**: Avicii - The Nights (Ezra Hazard Remix)
+**Track**: Now I Become Death (W/ Dj Smokey)
 
-Last updated at 07/20/2023 17:50
+Last updated at 07/20/2023 17:53
