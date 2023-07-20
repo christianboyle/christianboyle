@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C7J2kvT3MwQWphvb-VyEQcw-t500x500.jpg">](https://soundcloud.com/hyperforms/turn-on-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRkH2nt5Nhw6SSiv-F553sg-t500x500.jpg">](https://soundcloud.com/justicehardcore/imsober)
 
-**Artist**: hyperforms 
+**Artist**: Justice Hardcore 
 
-**Track**: Fred again.. - Turn On The Lights again.. (hyperforms Remix)
+**Track**: MinGtist - I'm Sober ⚠️OUT NOW⚠️
 
-Last updated at 07/20/2023 17:40
+Last updated at 07/20/2023 17:43
