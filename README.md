@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xGtUGoKR63y6NSk1-5RCExw-t500x500.jpg">](https://soundcloud.com/besthouseremixes/los-del-rio-macarena-proppa-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRkH2nt5Nhw6SSiv-F553sg-t500x500.jpg">](https://soundcloud.com/justicehardcore/imsober)
 
-**Artist**: Best House Remixes 
+**Artist**: Justice Hardcore 
 
-**Track**: Los Del Río - Macarena (Proppa Bootleg)
+**Track**: MinGtist - I'm Sober ⚠️OUT NOW⚠️
 
-Last updated at 07/20/2023 17:37
+Last updated at 07/20/2023 17:38
