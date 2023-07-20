@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egWdjCk6lBTeOvxF-TcHCwg-t500x500.jpg">](https://soundcloud.com/user-637448757/im-feeling-lucky-w-umru-190723)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-man6UxgdaknnbZmi-dHSELw-t500x500.jpg">](https://soundcloud.com/mybadmusic/my-bad-gangsta)
 
-**Artist**: NTS Wednesday 
+**Artist**: MY BAD 🤬 
 
-**Track**: I'm Feeling Lucky w/ umru 190723
+**Track**: MY BAD - Gangsta
 
-Last updated at 07/20/2023 16:43
+Last updated at 07/20/2023 17:31
