@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pygWW98CUpLvrOJX-ngPXwA-t500x500.jpg">](https://soundcloud.com/pcmus/ten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAs6xSUyLdwd8QTv-ym5NoA-t500x500.jpg">](https://soundcloud.com/iamtalons/talons-papa-groove-xoxofaso-last-night)
 
-**Artist**: PC Music ♩ 
+**Artist**: TALONS 
 
-**Track**: 10
+**Track**: TALONS, Papa Groove, xoxofaso - Last Night
 
-Last updated at 07/19/2023 19:39
+Last updated at 07/20/2023 08:12
