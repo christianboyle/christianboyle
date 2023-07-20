@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0RfS0ckubMqBFkd-qrUXYw-t500x500.jpg">](https://soundcloud.com/ekonovah/morning-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egWdjCk6lBTeOvxF-TcHCwg-t500x500.jpg">](https://soundcloud.com/user-637448757/im-feeling-lucky-w-umru-190723)
 
-**Artist**: Ekonovah 
+**Artist**: NTS Wednesday 
 
-**Track**: Ekonovah - Morning Light
+**Track**: I'm Feeling Lucky w/ umru 190723
 
-Last updated at 07/20/2023 16:39
+Last updated at 07/20/2023 16:43
