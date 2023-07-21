@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AT6i82EUILCo1cRW-Z2q89A-t500x500.jpg">](https://soundcloud.com/squirrely-basstard/live-laugh-nut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
 
-**Artist**: Squirrely Bass 
+**Artist**: RYAN Playground 
 
-**Track**: Live, Laugh, Nut
+**Track**: Better Off Alone (No_4mat Beach Rave Remix)
 
-Last updated at 07/20/2023 20:29
+Last updated at 07/21/2023 09:20
