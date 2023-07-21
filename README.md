@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
 
-**Artist**: RYAN Playground 
+**Artist**: Truth x Lies Goodies 
 
-**Track**: Better Off Alone (No_4mat Beach Rave Remix)
+**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
 
-Last updated at 07/21/2023 09:20
+Last updated at 07/21/2023 09:21
