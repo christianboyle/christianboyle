@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvL0RUg0ZX07Izb2-IqdVFA-t500x500.jpg">](https://soundcloud.com/onesevenfourco/fitch-jack-blom-mention)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AT6i82EUILCo1cRW-Z2q89A-t500x500.jpg">](https://soundcloud.com/squirrely-basstard/live-laugh-nut)
 
-**Artist**: onesevenfour 
+**Artist**: Squirrely Bass 
 
-**Track**: Fitch & Jack Blom - Mention (ft. Logan M)
+**Track**: Live, Laugh, Nut
 
-Last updated at 07/20/2023 20:28
+Last updated at 07/20/2023 20:29
