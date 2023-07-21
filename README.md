@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJ7hxcoxfPBHIblw-nz6yrA-t500x500.jpg">](https://soundcloud.com/flightfacilities/flight-facilities-for-triple-j-mix-up-exclusives-2012-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvL0RUg0ZX07Izb2-IqdVFA-t500x500.jpg">](https://soundcloud.com/onesevenfourco/fitch-jack-blom-mention)
 
-**Artist**: Flight Facilities 
+**Artist**: onesevenfour 
 
-**Track**: Flight Facilities Decade Mix: 2012-2022
+**Track**: Fitch & Jack Blom - Mention (ft. Logan M)
 
-Last updated at 07/20/2023 18:11
+Last updated at 07/20/2023 20:28
