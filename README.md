@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GIu7r463TjtD0aoQ-t9UZ5A-t500x500.jpg">](https://soundcloud.com/araelsounds/solar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQj42IOqTBPvLT2P-Teg4Hw-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stone-cold-1)
 
-**Artist**: arael 
+**Artist**: YUSSI 
 
-**Track**: ＳＯＬＡＲ(w/ hélix, théos, METAHESH,  Øneheart, bonjr, Open Ocean, Antent)
+**Track**: YUSSI - STONE COLD
 
-Last updated at 07/22/2023 18:58
+Last updated at 07/22/2023 18:59
