@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cI8Sq8UPIZXUhOSo-3Ojo4Q-t500x500.jpg">](https://soundcloud.com/ayorrecs/we-found-love-better-off-alone-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyIcLftutmyQbcMb-ctKDOQ-t500x500.jpg">](https://soundcloud.com/rsun_music/rufus-du-sol-you-were-right-rsun-remix)
 
-**Artist**: AT YOUR OWN RISK 
+**Artist**: rSUN 
 
-**Track**: We Found Love x Better Off Alone (Risk-E Remix) [FREE DL]
+**Track**: RÜFÜS DU SOL - You Were Right (rSUN Remix)
 
-Last updated at 07/22/2023 14:08
+Last updated at 07/22/2023 14:09
