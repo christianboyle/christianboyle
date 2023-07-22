@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yctCGr8vvIjbtF14-Gd4nuw-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-hard-parts-over-stripped-feat-page)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jsjK6K52r2SqjN3-7Nv6zw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/kmd-drop-that-shit)
 
-**Artist**: Lost In Dreams 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Hoang - Hard Part's Over (Stripped) (feat. Page)
+**Track**: k.m.d. - Drop That Shit (Original Mix)
 
-Last updated at 07/22/2023 14:01
+Last updated at 07/22/2023 14:02
