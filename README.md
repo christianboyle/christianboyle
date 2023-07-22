@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-odsn108aoFTGh7mK-uzkgeg-t500x500.jpg">](https://soundcloud.com/diamantidrecords/dmntd013)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vmSb2pUSialQ5jeu-N6oGzQ-t500x500.jpg">](https://soundcloud.com/fredagain/i-adore-u)
 
-**Artist**: Diamantid Records 
+**Artist**: Fred again.. 
 
-**Track**: PETRO - Come Back Tonight
+**Track**: i adore u_edit9clip
 
-Last updated at 07/22/2023 14:11
+Last updated at 07/22/2023 14:12
