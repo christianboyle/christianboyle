@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TVA2Ym5V9nHck1Fu-bqth3A-t500x500.jpg">](https://soundcloud.com/karl-guapo/noll-squired-runn-out-of-love-l3nny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GIu7r463TjtD0aoQ-t9UZ5A-t500x500.jpg">](https://soundcloud.com/araelsounds/solar)
 
-**Artist**: L3NNY 
+**Artist**: arael 
 
-**Track**: Nøll, Squired, RUNN - Out Of Love (L3NNY REMIX)
+**Track**: ＳＯＬＡＲ(w/ hélix, théos, METAHESH,  Øneheart, bonjr, Open Ocean, Antent)
 
-Last updated at 07/22/2023 17:34
+Last updated at 07/22/2023 18:58
