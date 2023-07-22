@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFwU0shND67XkfgS-V2OxWQ-t500x500.jpg">](https://soundcloud.com/klubbheads/klubbheads-mixmarathon-juli-21-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TVA2Ym5V9nHck1Fu-bqth3A-t500x500.jpg">](https://soundcloud.com/karl-guapo/noll-squired-runn-out-of-love-l3nny-remix)
 
-**Artist**: Klubbheads 
+**Artist**: L3NNY 
 
-**Track**: Klubbheads @ SLAM! Mixmarathon - July 21, 2023
+**Track**: Nøll, Squired, RUNN - Out Of Love (L3NNY REMIX)
 
-Last updated at 07/22/2023 17:33
+Last updated at 07/22/2023 17:34
