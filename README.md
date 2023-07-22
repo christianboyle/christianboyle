@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jsjK6K52r2SqjN3-7Nv6zw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/kmd-drop-that-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8VRLXumRNjJf9a9R-KMp9nw-t500x500.jpg">](https://soundcloud.com/holytrapmusic/impvled-torture-machine)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Holy Trap 
 
-**Track**: k.m.d. - Drop That Shit (Original Mix)
+**Track**: IMPVLED - TORTURE MACHINE
 
-Last updated at 07/22/2023 14:02
+Last updated at 07/22/2023 14:03
