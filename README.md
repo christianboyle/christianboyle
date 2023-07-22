@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LyctB92oNat9R8Eo-MhgMCQ-t500x500.jpg">](https://soundcloud.com/bernzikial/killing-in-the-name-bernzikial-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yctCGr8vvIjbtF14-Gd4nuw-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-hard-parts-over-stripped-feat-page)
 
-**Artist**: BERNZIKIAL 🧬 
+**Artist**: Lost In Dreams 
 
-**Track**: Killing In The Name (BERNZIKIAL Remix)
+**Track**: Hoang - Hard Part's Over (Stripped) (feat. Page)
 
-Last updated at 07/22/2023 14:00
+Last updated at 07/22/2023 14:01
