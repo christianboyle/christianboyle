@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyIcLftutmyQbcMb-ctKDOQ-t500x500.jpg">](https://soundcloud.com/rsun_music/rufus-du-sol-you-were-right-rsun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbCLScIm6oQi4QUE-hIzzUg-t500x500.jpg">](https://soundcloud.com/elex_page/highschool)
 
-**Artist**: rSUN 
+**Artist**: ELEX 
 
-**Track**: RÜFÜS DU SOL - You Were Right (rSUN Remix)
+**Track**: ELEX - High School
 
-Last updated at 07/22/2023 14:09
+Last updated at 07/22/2023 14:10
