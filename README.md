@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FNG4Ka04A4EN-0-t500x500.jpg">](https://soundcloud.com/liquidfive/both-sides-of-my-heart-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3HHrodyu6cz4Llc-xl77OQ-t500x500.jpg">](https://soundcloud.com/newzsmusic/kalamaextended)
 
-**Artist**: liquidfive 
+**Artist**: Newzs 📺 
 
-**Track**: Both Sides Of My Heart (Club Mix)
+**Track**: Dormidontov, Newzs, My Format - Kalama (Extended Mix)
 
-Last updated at 07/22/2023 14:06
+Last updated at 07/22/2023 14:07
