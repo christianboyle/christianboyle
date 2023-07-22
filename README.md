@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xNEsZBiAchySVXk-2jd2tA-t500x500.jpg">](https://soundcloud.com/txlgoodies/alice-deejay-better-off-alone-truth-x-lies-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHyk18ZwCbJRykfZ-Qn1toA-t500x500.jpg">](https://soundcloud.com/adiiosbeats/ivy-lab-cake-adiios-flip)
 
-**Artist**: Truth x Lies Goodies 
+**Artist**: Adiios 
 
-**Track**: Alice Deejay - Better Off Alone (Truth X Lies Bootleg)
+**Track**: Ivy Lab Cake Adiios Flip
 
-Last updated at 07/21/2023 09:21
+Last updated at 07/22/2023 13:57
