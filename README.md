@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuo9XhmPyLIpntis-krDebg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/igloo-bad-idea)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQj42IOqTBPvLT2P-Teg4Hw-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stone-cold-1)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: YUSSI 
 
-**Track**: Igloo - Bad Idea
+**Track**: YUSSI - STONE COLD
 
-Last updated at 07/22/2023 19:07
+Last updated at 07/22/2023 19:08
