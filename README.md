@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eAyjwyDoMzPe3Kua-ywnQYQ-t500x500.jpg">](https://soundcloud.com/medunmusic/onemoretimeremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuo9XhmPyLIpntis-krDebg-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/igloo-bad-idea)
 
-**Artist**: MEDUN 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Daft Punk - One More Time (Medun Remix)
+**Track**: Igloo - Bad Idea
 
-Last updated at 07/22/2023 19:00
+Last updated at 07/22/2023 19:07
