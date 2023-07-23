@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-50Z0HHfZIbdiRR7J-hdMGAA-t500x500.jpg">](https://soundcloud.com/triplexlarge/daydream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000618339064-gq1q6l-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/scooter-the-logical-song-paul-gannon-psy-donk-bootlegfree-download)
 
-**Artist**: ３ＸＬ 
+**Artist**: Paul Gannon 
 
-**Track**: daydream
+**Track**: Scooter - The Logical Song (Paul Gannon Bootleg)[Free Download]
 
-Last updated at 07/23/2023 16:05
+Last updated at 07/23/2023 16:41
