@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmuQsc2kIGj2IUfJ-PLOJDg-t500x500.jpg">](https://soundcloud.com/michaelraywen/calvin-harris-summer-michael-raywen-remix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxlWsUUMxcIgNRhg-9Pga9A-t500x500.jpg">](https://soundcloud.com/officialflozone/trauma)
 
-**Artist**: ⚡ MICHAEL RAYWEN ⚡ 
+**Artist**: flozone 
 
-**Track**: Calvin Harris - Summer [MICHAEL RAYWEN REMIX] (Filtered)
+**Track**: trauma
 
-Last updated at 07/23/2023 15:58
+Last updated at 07/23/2023 15:59
