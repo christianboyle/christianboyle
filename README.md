@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MgQ4Jyw58XNyUxQ5-CNIWZA-t500x500.jpg">](https://soundcloud.com/hate_music/dj-physical-hate-podcast-345)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyIcLftutmyQbcMb-ctKDOQ-t500x500.jpg">](https://soundcloud.com/rsun_music/rufus-du-sol-you-were-right-rsun-remix)
 
-**Artist**: HATE 
+**Artist**: rSUN 
 
-**Track**: DJ Physical - HATE Podcast 345
+**Track**: RÜFÜS DU SOL - You Were Right (rSUN Remix)
 
-Last updated at 07/23/2023 07:47
+Last updated at 07/23/2023 07:48
