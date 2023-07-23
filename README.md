@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQm1GucMAzbZCO7u-3jzbCw-t500x500.jpg">](https://soundcloud.com/imanumusic/imanu-x-rhode-of-two-minds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JUFrTycgb0RF8Oye-1hjeng-t500x500.jpg">](https://soundcloud.com/daniel7official/hardcore-power)
 
-**Artist**: IMANU 
+**Artist**: Daniel Seven 
 
-**Track**: IMANU x Rhode - Of Two Minds
+**Track**: Hardcore Power (w/ Alaguan)
 
-Last updated at 07/22/2023 19:12
+Last updated at 07/22/2023 19:13
