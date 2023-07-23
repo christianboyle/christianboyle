@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQj42IOqTBPvLT2P-Teg4Hw-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stone-cold-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eAyjwyDoMzPe3Kua-ywnQYQ-t500x500.jpg">](https://soundcloud.com/medunmusic/onemoretimeremix)
 
-**Artist**: YUSSI 
+**Artist**: MEDUN 
 
-**Track**: YUSSI - STONE COLD
+**Track**: Daft Punk - One More Time (Medun Remix)
 
-Last updated at 07/22/2023 18:59
+Last updated at 07/22/2023 19:00
