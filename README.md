@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Kq4A5lYzvERn2vk-LErUGw-t500x500.jpg">](https://soundcloud.com/pyro_records/no-hero-call-u-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7pZYlULgSqNacTVE-oMC6oA-t500x500.jpg">](https://soundcloud.com/lovesickbray/dream-roughdraft-prod-xmichaelwarren)
 
-**Artist**: PYRO Records 
+**Artist**: lovesickbray 
 
-**Track**: No Hero - Call U Mine
+**Track**: dream *roughdraftv3* (prod. xmichaelwarren)
 
-Last updated at 07/22/2023 19:24
+Last updated at 07/22/2023 19:25
