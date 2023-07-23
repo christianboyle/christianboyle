@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMYDge3WlGTeeUaR-Czz6Wg-t500x500.jpg">](https://soundcloud.com/asamoy2/the-ones-malachi-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jf4wxUxslOXPVSA5-IxxmSA-t500x500.jpg">](https://soundcloud.com/cosmicbeats/go-1)
 
-**Artist**: Malachi 
+**Artist**: COSMIC 
 
-**Track**: The Ones (Malachi DnB Remix)
+**Track**: GO!
 
-Last updated at 07/22/2023 19:10
+Last updated at 07/22/2023 19:11
