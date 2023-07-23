@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyIcLftutmyQbcMb-ctKDOQ-t500x500.jpg">](https://soundcloud.com/rsun_music/rufus-du-sol-you-were-right-rsun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHmPkXz65X2eAmAj-MX78gg-t500x500.jpg">](https://soundcloud.com/djbrettcooper/neonbeats-20-min-mix)
 
-**Artist**: rSUN 
+**Artist**: Brett Cooper (Scarred DIgital) 
 
-**Track**: RÜFÜS DU SOL - You Were Right (rSUN Remix)
+**Track**: NeonBeats 20 Min Mix
 
-Last updated at 07/23/2023 07:48
+Last updated at 07/23/2023 07:49
