@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCg1lmEAIzJ4uTLY-uVc1Cw-t500x500.jpg">](https://soundcloud.com/actuation/dirty-audio-night-shift-ft-not-the-father)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEKotaCCTz1568Tq-y0ehog-t500x500.jpg">](https://soundcloud.com/disgo_music/spookie-disgo)
 
-**Artist**: Actuation 
+**Artist**: DISGO 
 
-**Track**: Dirty Audio - Night Shift (ft. Not The Father)
+**Track**: SPOOKIE
 
-Last updated at 07/23/2023 16:00
+Last updated at 07/23/2023 16:01
