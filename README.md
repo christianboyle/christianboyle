@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMGHnBLNJaHOdnUF-EymNJw-t500x500.jpg">](https://soundcloud.com/mahsiv/borrowed-time99)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZ8RCdvAEWPydyaD-guwcxg-t500x500.jpg">](https://soundcloud.com/kaimcleanmusic2/mau-p-drugs-from-amsterdam-kai-mclean-remix-samp)
 
-**Artist**: Mahsiv 
+**Artist**: Kai McLean (Bootlegs & Edits) 
 
-**Track**: Borrowed Time
+**Track**: Mau P - Drugs From Amsterdam (Kai McLean Remix) *FREE DL*
 
-Last updated at 07/23/2023 16:42
+Last updated at 07/23/2023 16:44
