@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLsyz4eI9y2TV3LL-yQvDEg-t500x500.jpg">](https://soundcloud.com/itslostindreams/friendzone-casey-cook-deep-end)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGxD3cZBQ7BeuwoD-3bAewQ-t500x500.jpg">](https://soundcloud.com/codeko/violet-sky-feat-sarah-de-warren?in=itslostindreams/sets/codeko-violet-sky-feat-sarah)
 
-**Artist**: Lost In Dreams 
+**Artist**: CODEKO 
 
-**Track**: Friendzone & Casey Cook - Deep End
+**Track**: Violet Sky (feat. Sarah de Warren)
 
-Last updated at 07/24/2023 10:40
+Last updated at 07/24/2023 10:41
