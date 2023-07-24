@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGI1XtvQfNyPU0uN-FI15ZA-t500x500.jpg">](https://soundcloud.com/mazaremusic/mazare-opposite-the-other-another-day?in=itslostindreams/sets/mazare-dreams-only-last-for-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pPm9gFYvWImJigZ0-dtVEuA-t500x500.jpg">](https://soundcloud.com/fallenshrine/discoketa)
 
-**Artist**: Mazare 
+**Artist**: Fallen Shrine 
 
-**Track**: Mazare & Opposite The Other - Another Day [Lost In Dreams Release]
+**Track**: DiscoKeta
 
-Last updated at 07/24/2023 12:48
+Last updated at 07/24/2023 12:51
