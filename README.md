@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYfslMxWAf2Ue5fz-cfhy1g-t500x500.jpg">](https://soundcloud.com/hundaes/justin-bieber-one-time-hundaes-edit)
 
-**Artist**: LENS 
+**Artist**: hundaes 
 
-**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
+**Track**: Justin Bieber - One Time (Hundaes Edit)
 
-Last updated at 07/24/2023 17:23
+Last updated at 07/24/2023 17:28
