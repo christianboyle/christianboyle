@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKXBsJiRneZs43Bb-zaD8aA-t500x500.jpg">](https://soundcloud.com/amidymusic/love-you-enough?in=itslostindreams/sets/amidy-love-you-enough-lost-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000353989884-p4g3cx-t500x500.jpg">](https://soundcloud.com/hoangmusic/dont-say-ft-nevve)
 
-**Artist**: AMIDY 
+**Artist**: Hoang 
 
-**Track**: Love You Enough
+**Track**: Hoang - Don't Say (feat. Nevve)
 
-Last updated at 07/24/2023 10:51
+Last updated at 07/24/2023 10:52
