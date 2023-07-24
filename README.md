@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQj42IOqTBPvLT2P-Teg4Hw-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stone-cold-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix)
 
-**Artist**: YUSSI 
+**Artist**: LENS 
 
-**Track**: YUSSI - STONE COLD
+**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
 
-Last updated at 07/24/2023 11:00
+Last updated at 07/24/2023 11:02
