@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5McNQ6TivF0n3yNb-TLefIQ-t500x500.jpg">](https://soundcloud.com/dannyolsonmusic/meltingorchvip?in=itslostindreams/sets/danny-olson-yetep-melting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKXBsJiRneZs43Bb-zaD8aA-t500x500.jpg">](https://soundcloud.com/amidymusic/love-you-enough?in=itslostindreams/sets/amidy-love-you-enough-lost-in)
 
-**Artist**: Danny Olson 
+**Artist**: AMIDY 
 
-**Track**: Melting ft. EASAE (Orchestral VIP)
+**Track**: Love You Enough
 
-Last updated at 07/24/2023 10:50
+Last updated at 07/24/2023 10:51
