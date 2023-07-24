@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMGHnBLNJaHOdnUF-EymNJw-t500x500.jpg">](https://soundcloud.com/mahsiv/borrowed-time99)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQj42IOqTBPvLT2P-Teg4Hw-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stone-cold-1)
 
-**Artist**: Mahsiv 
+**Artist**: YUSSI 
 
-**Track**: Borrowed Time
+**Track**: YUSSI - STONE COLD
 
-Last updated at 07/24/2023 10:56
+Last updated at 07/24/2023 11:00
