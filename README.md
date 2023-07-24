@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yctCGr8vvIjbtF14-Gd4nuw-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-hard-parts-over-stripped-feat-page)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-egWdjCk6lBTeOvxF-TcHCwg-t500x500.jpg">](https://soundcloud.com/user-637448757/im-feeling-lucky-w-umru-190723)
 
-**Artist**: Lost In Dreams 
+**Artist**: NTS Wednesday 
 
-**Track**: Hoang - Hard Part's Over (Stripped) (feat. Page)
+**Track**: I'm Feeling Lucky w/ umru 190723
 
-Last updated at 07/24/2023 17:06
+Last updated at 07/24/2023 17:09
