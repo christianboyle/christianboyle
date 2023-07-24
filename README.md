@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NboxOp1dilweNNP3-AAVyjA-t500x500.jpg">](https://soundcloud.com/weston-freitag-538075824/nurture-instrumental-w3t-frday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjTaMgw8zjjMiQgo-2Msq8w-t500x500.jpg">](https://soundcloud.com/dannyolsonmusic/drops-of-jupiter?in=itslostindreams/sets/danny-olson-radio-cinema-part)
 
-**Artist**: (W3$T FR!DAY) 
+**Artist**: Danny Olson 
 
-**Track**: Nurture Instrumental - W3$T FR!DAY
+**Track**: Drops of Jupiter (ft. David Frank)
 
-Last updated at 07/24/2023 10:44
+Last updated at 07/24/2023 10:48
