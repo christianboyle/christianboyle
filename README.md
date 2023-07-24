@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kkS0hznKvr8qYIRA-4el1yQ-t500x500.jpg">](https://soundcloud.com/180fact/fact-mix-918-venetta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LoMq6PGpyyzpAUz1-VuqQRw-t500x500.jpg">](https://soundcloud.com/headbangsociety/headspace-sessions-vol-063-ft-sterfry)
 
-**Artist**: 180.Fact 
+**Artist**: Headbang Society 
 
-**Track**: Fact Mix 918: Venetta (Jul '23)
+**Track**: HeadSpace Sessions Vol #063 Ft. Sterfry
 
-Last updated at 07/24/2023 16:49
+Last updated at 07/24/2023 17:05
