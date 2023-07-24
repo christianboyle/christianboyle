@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yctCGr8vvIjbtF14-Gd4nuw-t500x500.jpg">](https://soundcloud.com/itslostindreams/hoang-hard-parts-over-stripped-feat-page)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ro121FZmZhzSWyzC-tUIAwg-t500x500.jpg">](https://soundcloud.com/mazaremusic/mazare-josh-rubin-stay-lost-in-dream-release?in=itslostindreams/sets/mazare-dreams-only-last-for-a)
 
-**Artist**: Lost In Dreams 
+**Artist**: Mazare 
 
-**Track**: Hoang - Hard Part's Over (Stripped) (feat. Page)
+**Track**: Mazare & Josh Rubin - Stay [Lost In Dreams Release]
 
-Last updated at 07/24/2023 12:41
+Last updated at 07/24/2023 12:44
