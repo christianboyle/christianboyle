@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SR5bi0ovOHFLHFzL-KTY4IQ-t500x500.jpg">](https://soundcloud.com/songsbypocket/sprinter-pocket-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iztICzSa8dHIBBzY-j9ZuBw-t500x500.jpg">](https://soundcloud.com/scytheshawty/dirty-scope-w-arturo)
 
-**Artist**: Pocket 
+**Artist**: $CYTHE SHAWTY⚕ 
 
-**Track**: SPRINTER (POCKET EDIT)
+**Track**: DIRTY SCOPE w/ ARTURO ☤
 
-Last updated at 07/24/2023 10:34
+Last updated at 07/24/2023 10:35
