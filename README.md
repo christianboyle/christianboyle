@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjTaMgw8zjjMiQgo-2Msq8w-t500x500.jpg">](https://soundcloud.com/dannyolsonmusic/drops-of-jupiter?in=itslostindreams/sets/danny-olson-radio-cinema-part)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGI1XtvQfNyPU0uN-FI15ZA-t500x500.jpg">](https://soundcloud.com/mazaremusic/mazare-sofuu-wayfarer?in=itslostindreams/sets/mazare-dreams-only-last-for-a)
 
-**Artist**: Danny Olson 
+**Artist**: Mazare 
 
-**Track**: Drops of Jupiter (ft. David Frank)
+**Track**: Mazare & Sofuu - Wayfarer [Lost In Dreams Release]
 
-Last updated at 07/24/2023 10:48
+Last updated at 07/24/2023 10:49
