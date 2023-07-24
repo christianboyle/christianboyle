@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pPm9gFYvWImJigZ0-dtVEuA-t500x500.jpg">](https://soundcloud.com/fallenshrine/discoketa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gV4P3HTZtaJB-0-t500x500.jpg">](https://soundcloud.com/dylanharry/stand-up)
 
-**Artist**: Fallen Shrine 
+**Artist**: Dylan & Harry 
 
-**Track**: DiscoKeta
+**Track**: Stand Up
 
-Last updated at 07/24/2023 12:51
+Last updated at 07/24/2023 16:35
