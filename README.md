@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sQSN3vsfVNlzoHoP-NJ2fCg-t500x500.png">](https://soundcloud.com/rinsefm/steel-city-dance-discs-with-flansie-b2b-sunnysoposted-19-july-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zrpYpeIWqIU2TpAs-cyNORQ-t500x500.jpg">](https://soundcloud.com/dollarbearremixes/see-you-again-dollar-bear-remix-tyler-the-creator)
 
-**Artist**: Rinse FM 
+**Artist**: Dollar Bear Remixes 
 
-**Track**: Steel City Dance Discs with Flansie B2B Sunnysoposted - 19 July 2023
+**Track**: See You Again (Dollar Bear Remix) - Tyler, The Creator ft Kali Uchis
 
-Last updated at 07/25/2023 09:52
+Last updated at 07/25/2023 09:54
