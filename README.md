@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596152449-st8s1u-t500x500.jpg">](https://soundcloud.com/itsrestricted/put-em-high-restricted-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yh9GsIysRZdHfuGc-i1P0jw-t500x500.jpg">](https://soundcloud.com/itsrestricted/make-me-feel-good-restricted-edit)
 
 **Artist**: Restricted 
 
-**Track**: Put Em High (Restricted Bootleg)
+**Track**: Make Me Feel Good (Restricted Remix)
 
-Last updated at 07/25/2023 08:28
+Last updated at 07/25/2023 08:31
