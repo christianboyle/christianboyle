@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BR0XsZOlOds3oRgj-uT8ehg-t500x500.jpg">](https://soundcloud.com/brutalism_x_basseht/craaig-dken-rap-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000596152449-st8s1u-t500x500.jpg">](https://soundcloud.com/itsrestricted/put-em-high-restricted-bootleg)
 
-**Artist**: BRUTALISM X BASSEHT 
+**Artist**: Restricted 
 
-**Track**: [BASSEHT] CRAAIG X DKEN - Rap Game
+**Track**: Put Em High (Restricted Bootleg)
 
-Last updated at 07/25/2023 08:26
+Last updated at 07/25/2023 08:28
