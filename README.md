@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWeTBQ6YxfeTKo9R-VoOm1w-t500x500.jpg">](https://soundcloud.com/hundaes/the-killers-when-you-were-young-calvin-harris-remix-hundaes-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYfslMxWAf2Ue5fz-cfhy1g-t500x500.jpg">](https://soundcloud.com/hundaes/justin-bieber-one-time-hundaes-edit)
 
 **Artist**: hundaes 
 
-**Track**: The Killers - When You Were Young (Calvin Harris Remix) [Hundaes Edit]
+**Track**: Justin Bieber - One Time (Hundaes Edit)
 
-Last updated at 07/25/2023 16:08
+Last updated at 07/25/2023 16:11
