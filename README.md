@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cI8Sq8UPIZXUhOSo-3Ojo4Q-t500x500.jpg">](https://soundcloud.com/ayorrecs/we-found-love-better-off-alone-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYQ3yKMBx9NYiOPG-YNtwbw-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/cyberpunkers-12h-afterhour?in=thepodcast2022/sets/cyberpunkers-rave-culture-1)
 
-**Artist**: AT YOUR OWN RISK 
+**Artist**: Dancing Dead 
 
-**Track**: We Found Love x Better Off Alone (Risk-E Remix) [FREE DL]
+**Track**: Cyberpunkers - 12h Afterhour
 
-Last updated at 07/25/2023 09:58
+Last updated at 07/25/2023 12:50
