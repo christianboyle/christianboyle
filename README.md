@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIRm5wKwsAHG9DgW-4RGeqw-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/lavier-ugly?in=wormhole-music-group/sets/lavier-artifacts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nQBtwj9M4ChynDa7-B3o8cA-t500x500.jpg">](https://soundcloud.com/onhellmusic/onhell-brothel-colorblind)
 
-**Artist**: Wormhole Music Group 
+**Artist**: ONHELL 
 
-**Track**: Lavier - Ugly
+**Track**: ONHELL & brothel.  - colorblind.
 
-Last updated at 08/01/2023 15:13
+Last updated at 08/01/2023 15:16
