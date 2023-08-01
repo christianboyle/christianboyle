@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rXFbkxhyWETgiue0-fH2whA-t500x500.jpg">](https://soundcloud.com/future-bassnet/bad-tune-say-future-bass-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNZPaXxwztDLaUyL-zwaGtA-t500x500.jpg">](https://soundcloud.com/phace/phace-x-maysev-multislack-linked-12-neosignal)
 
-**Artist**: Future Bass Records 
+**Artist**: phace 
 
-**Track**: BadTune - Say [Future Bass Release]
+**Track**: PHACE X MAYSEV - MULTISLACK - LINKED 12 [NEOSIGNAL]
 
-Last updated at 08/01/2023 09:26
+Last updated at 08/01/2023 09:27
