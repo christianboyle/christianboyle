@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ef2LGuEA4MlI0npn-0vF8fg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-frontliner-never-far)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWWdSxtrjD1dCVmz-VAydUg-t500x500.jpg">](https://soundcloud.com/autonas/dont-let-me-go)
 
-**Artist**: Dirty Workz 
+**Artist**: AuTonas 
 
-**Track**: Da Tweekaz & Frontliner - Never Far
+**Track**: Don't Let Me Go
 
-Last updated at 08/01/2023 09:28
+Last updated at 08/01/2023 09:29
