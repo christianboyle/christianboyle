@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfWA3De2PJu3zn9z-0pHemQ-t500x500.jpg">](https://soundcloud.com/allhardnation/shattertodust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bovoyBAtBP1Enthw-js2eIg-t500x500.jpg">](https://soundcloud.com/syence/turmoil-1)
 
-**Artist**: Hard Nation 
+**Artist**: syence 
 
-**Track**: District Punx - Shatter To Dust [Hard Nation EXCLUSIVE]
+**Track**: turmoil
 
-Last updated at 08/01/2023 13:16
+Last updated at 08/01/2023 13:18
