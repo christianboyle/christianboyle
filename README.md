@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A0ADJ3a7dqhgFPGs-dBoMbQ-t500x500.jpg">](https://soundcloud.com/slumberpartyorg/if-you-tried-corefish-alkyl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-08kXD95QvcCdGTzd-DLpqfw-t500x500.jpg">](https://soundcloud.com/indoorradio/indoor-radio-guest-mix-062)
 
-**Artist**: SLUMBERPARTY 
+**Artist**: INDOOR RADIO 
 
-**Track**: If You Tried - corefish & alkyl
+**Track**: INDOOR RADIO Guest Mix: #062 Seimei [TREKKIE TRAX]
 
-Last updated at 08/01/2023 15:17
+Last updated at 08/01/2023 15:19
