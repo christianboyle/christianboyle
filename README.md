@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv7qNDECNsZ3ADhH-eN2nKQ-t500x500.jpg">](https://soundcloud.com/align_music/align-endless-summer-album-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vy9jO8PPgMbsB06P-ZCAPMA-t500x500.jpg">](https://soundcloud.com/killthenoise/broken-panes-w-vulgatron)
 
-**Artist**: ALIGN 
+**Artist**: Kill The Noise 
 
-**Track**: ALIGN - Endless Summer Album Mix
+**Track**: BROKEN PANES W/ VULGATRON
 
-Last updated at 08/01/2023 13:43
+Last updated at 08/01/2023 15:00
