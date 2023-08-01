@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vy9jO8PPgMbsB06P-ZCAPMA-t500x500.jpg">](https://soundcloud.com/killthenoise/broken-panes-w-vulgatron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQQzHTkDzAP0ZgOT-ksIhRg-t500x500.jpg">](https://soundcloud.com/yourcoffin/dead)
 
-**Artist**: Kill The Noise 
+**Artist**: COFFIN 
 
-**Track**: BROKEN PANES W/ VULGATRON
+**Track**: COFFIN - Dead
 
-Last updated at 08/01/2023 15:00
+Last updated at 08/01/2023 15:02
