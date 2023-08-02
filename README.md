@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-08kXD95QvcCdGTzd-DLpqfw-t500x500.jpg">](https://soundcloud.com/indoorradio/indoor-radio-guest-mix-062)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/1-7-days?in=bbygoyard/sets/loreseeker)
 
-**Artist**: INDOOR RADIO 
+**Artist**: BBY GOYARD 
 
-**Track**: INDOOR RADIO Guest Mix: #062 Seimei [TREKKIE TRAX]
+**Track**: 7 Days
 
-Last updated at 08/01/2023 18:12
+Last updated at 08/01/2023 23:38
