@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WEHYP1vUac4MhzB4-aJ8sEg-t500x500.jpg">](https://soundcloud.com/geckonl/come-with-me-ecstacy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfakpD2kiszJIjGJ-UqELow-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/dutch-master-works-radio-episode-001-by-ephoric)
 
-**Artist**: Geck-o 
+**Artist**: Dutch Master Works 
 
-**Track**: Come With Me, Ecstacy MIXTAPE 💆💖 house, 90s rave, trance
+**Track**: Dutch Master Works Radio Episode #001 by Ephoric
 
-Last updated at 08/02/2023 10:55
+Last updated at 08/02/2023 13:11
