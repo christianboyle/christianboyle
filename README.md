@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/9-5th-wall-music?in=bbygoyard/sets/loreseeker)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/PasLhCLgwfw/maxresdefault.jpg">](https://www.youtube.com/watch?v=PasLhCLgwfw)
 
-**Artist**: BBY GOYARD 
+**Artist**: 
+  
+    Hardwell
+  
+  
+  
+    Hardwell
+  
 
-**Track**: 5th Wall Music
 
-Last updated at 08/01/2023 23:49
+
+
+
+ 
+
+**Track**: HARDWELL LIVE AT TOMORROWLAND 2023
+
+Last updated at 08/02/2023 07:33
