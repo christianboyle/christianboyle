@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lLiOLcj2qiki-0-t500x500.png">](https://soundcloud.com/devinwildmusic/devin-wild-hold-that-sucker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jP0VVxvlkhGTwF7-UIIC6A-t500x500.jpg">](https://soundcloud.com/aurede-official/with-me-w-riran)
 
-**Artist**: Devin Wild 
+**Artist**: Aurede 
 
-**Track**: Devin Wild - Hold That Sucker Down
+**Track**: With Me w/ RiraN
 
-Last updated at 08/02/2023 09:46
+Last updated at 08/02/2023 09:49
