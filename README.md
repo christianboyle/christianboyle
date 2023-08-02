@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w0yqvzwckV6nADaP-yFfvMA-t500x500.jpg">](https://soundcloud.com/otterzofficial/blaize-x-otterz-maad-city-edit-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w8uaV6gJMlRXcGLy-SUxT6Q-t500x500.jpg">](https://soundcloud.com/jessejonezmusic/jonezing-around-21-rich-furniss)
 
-**Artist**: OTTERZ [HIGH SOCK SOCIETY] 
+**Artist**: Jesse Jonez 
 
-**Track**: Blaize X Otterz - MAAD City Edit Clip
+**Track**: Jonezing Around #21: Rich Furniss
 
-Last updated at 08/02/2023 08:37
+Last updated at 08/02/2023 08:38
