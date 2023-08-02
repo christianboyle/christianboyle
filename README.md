@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dIjBzY0fHFNi20Q-fcAP4Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-ill-behaviour?in=geckonl/sets/rave23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WEHYP1vUac4MhzB4-aJ8sEg-t500x500.jpg">](https://soundcloud.com/geckonl/come-with-me-ecstacy)
 
-**Artist**: Rave Alert 
+**Artist**: Geck-o 
 
-**Track**: Geck-o - Ill Behaviour
+**Track**: Come With Me, Ecstacy MIXTAPE 💆💖 house, 90s rave, trance
 
-Last updated at 08/02/2023 10:54
+Last updated at 08/02/2023 10:55
