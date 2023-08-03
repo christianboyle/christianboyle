@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPSdjIfb2UUYX5H5-6f2p1g-t500x500.jpg">](https://soundcloud.com/officialauracle/star-atlas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P4WEJNUz9oVEkdor-Rk3IUA-t500x500.jpg">](https://soundcloud.com/stunnapossecult/shizz-lo-stunna-posse-cult-mix)
 
-**Artist**: Auracle 
+**Artist**: STUNNA POSSE 
 
-**Track**: Star Atlas
+**Track**: SHIZZ LO STUNNA POSSE CULT MIX
 
-Last updated at 08/03/2023 08:21
+Last updated at 08/03/2023 08:22
