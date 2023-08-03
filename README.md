@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPaonftKOoNKh3E2-Gzbb4g-t500x500.jpg">](https://soundcloud.com/sandsconnection/prinz-highs-and-lows-gaz-summerz-hardcore-edit-first-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGz8IfnimIYv5UFp-jtDA3w-t500x500.jpg">](https://soundcloud.com/scanrecs/duji-summer-style)
 
-**Artist**: S And S Connection (uk hardcore dj/producer) 
+**Artist**: Scan Records 
 
-**Track**: Prinz - Highs And Lows (Gaz Summerz Hardcore Edit) First Master FREE DOWNLOAD
+**Track**: duji - summer style
 
-Last updated at 08/03/2023 17:24
+Last updated at 08/03/2023 17:25
