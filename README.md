@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqyYCk48y9pwIw08-yDUIFw-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/calvin-harris-sam-smith-desire-olly-james-euro-techno-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozbD3LYEldvhx3A4-sRZCjg-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/virtualsoundz-need-you-now)
 
-**Artist**: Olly James 
+**Artist**: Dutch Master Works 
 
-**Track**: Calvin Harris & Sam Smith - Desire (Olly James Euro-Techno Mix)
+**Track**: VirtualSoundz - Need You Now
 
-Last updated at 08/03/2023 09:13
+Last updated at 08/03/2023 09:14
