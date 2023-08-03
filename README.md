@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfrgddmC3g1v-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/emoticon-rave-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMA44ug7bIiegvI-xyjHKA-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-27-weighty-jungle)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Hardcore Energy 
 
-**Track**: Emoticon - Rave God
+**Track**: Mix Series 27 - Weighty Jungle
 
-Last updated at 08/03/2023 18:54
+Last updated at 08/03/2023 18:57
