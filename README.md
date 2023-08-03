@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W5rqj4IJwaygN7X0-JHklGQ-t500x500.jpg">](https://soundcloud.com/heyzmsc/hotlikesauceheyzremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PMIoQtMheOHjB1ZE-zEqVZg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-lorenzo-turco-love-music-original-mix-sunexplosion)
 
-**Artist**: HEYZ 
+**Artist**: Raven Musik 
 
-**Track**: Pretty Lights - Hot Like Sauce (HEYZ Remix)
+**Track**: PREMIERE: LORENZO TURCO  - Love Music (Original Mix) [Sunexplosion]
 
-Last updated at 08/03/2023 09:19
+Last updated at 08/03/2023 09:20
