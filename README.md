@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqBUrIkEzbRZV1TL-GVxEgg-t500x500.jpg">](https://soundcloud.com/spaceyacht/don-jamal-disintegrate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gv7qNDECNsZ3ADhH-eN2nKQ-t500x500.jpg">](https://soundcloud.com/align_music/align-endless-summer-album-mix)
 
-**Artist**: SPACE YACHT 
+**Artist**: ALIGN 
 
-**Track**: Don Jamal - Disintegrate
+**Track**: ALIGN - Endless Summer Album Mix
 
-Last updated at 08/03/2023 17:54
+Last updated at 08/03/2023 17:57
