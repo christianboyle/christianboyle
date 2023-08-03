@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000107131214-zy82ua-t500x500.jpg">](https://soundcloud.com/aamourocean/data-money-ao-hardstyle-rmx)
 
-**Artist**: NITE CORP. 
+**Artist**: aamourocean 
 
-**Track**: aamourocean - u're not alone
+**Track**: DATA - Money (AO Hardstyle RMX)
 
-Last updated at 08/03/2023 18:36
+Last updated at 08/03/2023 18:41
