@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyL40mzIgUmzNj3x-bw9P2A-t500x500.jpg">](https://soundcloud.com/rendahmag/falco-wake-up-fryware-remix-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvE9WtHTiiyrmVgk-Wo98Kg-t500x500.jpg">](https://soundcloud.com/theboyy/enchanting-echoes-the-rhythmic-fusion)
 
-**Artist**: Rendah Mag 
+**Artist**: TheBoy 
 
-**Track**: Falco - Wake Up (Fryware Remix) [Rendah Mag Premiere]
+**Track**: Enchanting Echoes: The Rhythmic Fusion
 
-Last updated at 08/03/2023 08:12
+Last updated at 08/03/2023 08:13
