@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLsyz4eI9y2TV3LL-yQvDEg-t500x500.jpg">](https://soundcloud.com/itslostindreams/friendzone-casey-cook-deep-end)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A0ADJ3a7dqhgFPGs-dBoMbQ-t500x500.jpg">](https://soundcloud.com/slumberpartyorg/if-you-tried-corefish-alkyl)
 
-**Artist**: Lost In Dreams 
+**Artist**: SLUMBERPARTY 
 
-**Track**: Friendzone & Casey Cook - Deep End
+**Track**: If You Tried - corefish & alkyl
 
-Last updated at 08/03/2023 17:47
+Last updated at 08/03/2023 17:51
