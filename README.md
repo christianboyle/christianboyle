@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfrgddmC3g1v-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/emoticon-rave-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ces67fKc4mqnY0JE-PS91hg-t500x500.jpg">](https://soundcloud.com/bcbeatlab/madd)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: Business Casual 
 
-**Track**: Emoticon - Rave God
+**Track**: MADD
 
-Last updated at 08/03/2023 17:20
+Last updated at 08/03/2023 17:22
