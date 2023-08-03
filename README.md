@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-diahlyUqYOLNwt3J-RzyFPA-t500x500.jpg">](https://soundcloud.com/quickdropmusic/forever-young)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfrgddmC3g1v-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/emoticon-rave-god)
 
-**Artist**: Quickdrop 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Forever Young
+**Track**: Emoticon - Rave God
 
-Last updated at 08/03/2023 09:28
+Last updated at 08/03/2023 11:46
