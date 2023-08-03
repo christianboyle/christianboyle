@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000133467470-bo01b9-t500x500.jpg">](https://soundcloud.com/nitecorp/aamourocean-ure-not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzgdPd1AW6aFGeJb-7Z0VTQ-t500x500.jpg">](https://soundcloud.com/bvrnout/mac-miller-nikes-on-my-feet-bvrnout-edit)
 
-**Artist**: NITE CORP. 
+**Artist**: BVRNOUT 
 
-**Track**: aamourocean - u're not alone
+**Track**: Mac Miller - Nikes On My Feet (BVRNOUT Edit)
 
-Last updated at 08/03/2023 18:42
+Last updated at 08/03/2023 18:49
