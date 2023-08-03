@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4uI0yeslOMvIkNZx-5woz2A-t500x500.jpg">](https://soundcloud.com/jayb1rdmusic/the-ohio-players-love-rollercoaster-jay-bird-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rPhHZpemUm2WKoWI-HFBKcw-t500x500.jpg">](https://soundcloud.com/venture5/focus-headbang-society-premiere)
 
-**Artist**: Jay Bird 
+**Artist**: Venture 5 
 
-**Track**: The Ohio Players- Love Rollercoaster (Jay Bird Remix)
+**Track**: Focus [Headbang Society Premiere]
 
-Last updated at 08/03/2023 09:16
+Last updated at 08/03/2023 09:17
