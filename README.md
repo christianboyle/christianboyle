@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8oDjjn1vq6SqetWJ-wU2OXA-t500x500.jpg">](https://soundcloud.com/bvrnout/kevin-rudolf-let-it-rock-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0zHE0KlyqtQ491d8-2mm7CA-t500x500.jpg">](https://soundcloud.com/hrly11/fifty-fifty-barbie-dreams-hrly-live-for-tonight-editradio-edit)
 
-**Artist**: BVRNOUT 
+**Artist**: HRLY 
 
-**Track**: Kevin Rudolf - Let It Rock (BVRNOUT Remix)
+**Track**: FIFTY FIFTY - Barbie Dreams (HRLY 'Live For Tonight' Edit)[FREE DOWNLOAD]
 
-Last updated at 08/03/2023 21:22
+Last updated at 08/03/2023 21:23
