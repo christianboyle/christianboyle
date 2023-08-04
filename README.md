@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGYGZesZoW1fEaQW-pjfyNw-t500x500.jpg">](https://soundcloud.com/insomniacrecords/chaney-strong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPrTqN1vyWbXLzxN-MWzwlg-t500x500.jpg">](https://soundcloud.com/boris-metraux/dirty-bassline-126bpm)
 
-**Artist**: Insomniac Records 
+**Artist**: Boris Metraux 
 
-**Track**: CHANEY - Strong
+**Track**: Dirty Bassline 126BPM
 
-Last updated at 08/04/2023 16:16
+Last updated at 08/04/2023 16:17
