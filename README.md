@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKfTO7YmkRn2w0ON-EdrnWA-t500x500.jpg">](https://soundcloud.com/juanitasnyc/juanitas-mix-089-doctor-jeep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights/s-fXJS2ewvnnj?in=saxurn/sets/old)
 
-**Artist**: JUANITA'S NYC 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Juanita's Mix 089: Doctor Jeep
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 08/04/2023 16:44
+Last updated at 08/04/2023 18:59
