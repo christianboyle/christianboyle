@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNzanmvDS1VK-0-t500x500.png">](https://soundcloud.com/choices-music/unite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-the-joker-and-the-queen?in=nightcore4totalsluts/sets/popwerkz)
 
-**Artist**: Choices 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Unite
+**Track**: adorablesteak96 - the joker and the queen
 
-Last updated at 08/04/2023 11:03
+Last updated at 08/04/2023 12:55
