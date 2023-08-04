@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H99Vmvy0Ow7P-0-t500x500.jpg">](https://soundcloud.com/charlixcx/speed-drive-from-barbie-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNzanmvDS1VK-0-t500x500.png">](https://soundcloud.com/choices-music/unite)
 
-**Artist**: charlixcx 
+**Artist**: Choices 
 
-**Track**: Speed Drive (From Barbie The Album)
+**Track**: Unite
 
-Last updated at 08/03/2023 21:28
+Last updated at 08/04/2023 11:03
