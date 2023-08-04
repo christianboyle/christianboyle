@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0zHE0KlyqtQ491d8-2mm7CA-t500x500.jpg">](https://soundcloud.com/hrly11/fifty-fifty-barbie-dreams-hrly-live-for-tonight-editradio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cibIup1Fi2Hk-0-t500x500.jpg">](https://soundcloud.com/charlixcx/used-to-know-me-dopamine-vip)
 
-**Artist**: HRLY 
+**Artist**: charlixcx 
 
-**Track**: FIFTY FIFTY - Barbie Dreams (HRLY 'Live For Tonight' Edit)[FREE DOWNLOAD]
+**Track**: Used to Know Me (Dopamine VIP Remix)
 
-Last updated at 08/03/2023 21:23
+Last updated at 08/03/2023 21:24
