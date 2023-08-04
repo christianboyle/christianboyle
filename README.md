@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5A2tRDjhYM6w-0-t500x500.jpg">](https://soundcloud.com/billented-music/satisfied)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KdFXoyyNL1bAjBpM-CfdxdA-t500x500.jpg">](https://soundcloud.com/user-177606669/ericdoa-2008-cover)
 
-**Artist**: Billen Ted 
+**Artist**: user-177606669 
 
-**Track**: Satisfied
+**Track**: ericdoa - 2008 (cover)
 
-Last updated at 08/03/2023 19:08
+Last updated at 08/03/2023 21:21
