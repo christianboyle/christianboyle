@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mx3koVE6oF1ZgFZu-ny9vjA-t500x500.jpg">](https://soundcloud.com/sablevalley/foamer?in=sablevalley/sets/sable-valley-summer-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9m8tLaElukjU5pLx-Z0swmw-t500x500.jpg">](https://soundcloud.com/senazo/remedial)
 
-**Artist**: SABLE VALLEY 
+**Artist**: senazo 
 
-**Track**: JAWNS - Foamer
+**Track**: remedial
 
-Last updated at 08/04/2023 14:06
+Last updated at 08/04/2023 16:14
