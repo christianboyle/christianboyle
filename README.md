@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faHqYmWhxiPh-0-t500x500.jpg">](https://soundcloud.com/charlixcx/good-ones-joel-corry-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H99Vmvy0Ow7P-0-t500x500.jpg">](https://soundcloud.com/charlixcx/speed-drive-from-barbie-the)
 
 **Artist**: charlixcx 
 
-**Track**: Good Ones (Joel Corry Remix)
+**Track**: Speed Drive (From Barbie The Album)
 
-Last updated at 08/03/2023 21:27
+Last updated at 08/03/2023 21:28
