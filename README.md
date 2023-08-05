@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54pjrzRIErl9BLsS-v4vXhg-t500x500.jpg">](https://soundcloud.com/geckonl/genie-in-a-bottle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKfTO7YmkRn2w0ON-EdrnWA-t500x500.jpg">](https://soundcloud.com/juanitasnyc/juanitas-mix-089-doctor-jeep)
 
-**Artist**: Geck-o 
+**Artist**: JUANITA'S NYC 
 
-**Track**: Christina Aguilera - Genie In A Bottle (Geck-o Remix) 🤗🌼🤍 FREE DOWNLOAD
+**Track**: Juanita's Mix 089: Doctor Jeep
 
-Last updated at 08/05/2023 13:09
+Last updated at 08/05/2023 13:12
