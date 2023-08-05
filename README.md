@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DB8vMqHAvaQz4JlJ-s2fC2A-t500x500.jpg">](https://soundcloud.com/gangstahouserec/b-phreak-be-somebody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUoTdq2m3gn9CZbh-Byxozw-t500x500.jpg">](https://soundcloud.com/dunkmellowd/coke-montilla-should-of-known-better-mellowd-170-remix)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: MellowD 
 
-**Track**: B-PHREAK - Be Somebody
+**Track**: Coke  Montilla - Should've Known Better (MellowD 170 Remix)
 
-Last updated at 08/05/2023 12:47
+Last updated at 08/05/2023 12:49
