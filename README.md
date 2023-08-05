@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKfTO7YmkRn2w0ON-EdrnWA-t500x500.jpg">](https://soundcloud.com/juanitasnyc/juanitas-mix-089-doctor-jeep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjwxvW9kglf7im7L-wrCqyA-t500x500.jpg">](https://soundcloud.com/officialtrapparty/ilusion-bflag-watch-me-fall)
 
-**Artist**: JUANITA'S NYC 
+**Artist**: Trap Party Records 
 
-**Track**: Juanita's Mix 089: Doctor Jeep
+**Track**: Ilusion Bflag - Watch Me Fall
 
-Last updated at 08/04/2023 21:05
+Last updated at 08/04/2023 21:56
