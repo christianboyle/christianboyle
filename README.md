@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5A2tRDjhYM6w-0-t500x500.jpg">](https://soundcloud.com/billented-music/satisfied)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3L3eaDaAMtXuDAj6-vROlXQ-t500x500.jpg">](https://soundcloud.com/canwewonder/blink)
 
-**Artist**: Billen Ted 
+**Artist**: Can We Wonder 
 
-**Track**: Satisfied
+**Track**: Blink
 
-Last updated at 08/04/2023 19:04
+Last updated at 08/04/2023 19:51
