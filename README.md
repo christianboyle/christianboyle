@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daGYkhA1H7X0fs6Q-md7WLg-t500x500.jpg">](https://soundcloud.com/officialcheeks/less-alone-cheeks)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: CHEEKS 
 
-**Track**: adorablesteak96 - its just smoke
+**Track**: Less Alone
 
-Last updated at 08/04/2023 21:00
+Last updated at 08/04/2023 21:03
