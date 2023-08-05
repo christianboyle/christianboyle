@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WyYFp3XKKimpEFJ-9MWzSg-t500x500.jpg">](https://soundcloud.com/realmaup/armand-van-helden-i-want-your-soul-mau-p-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BlpxWICV5PPxzyoc-1xmeag-t500x500.jpg">](https://soundcloud.com/shallnotfade/palms062-dos-clouds-ep)
 
-**Artist**: Mau P 
+**Artist**: Shall Not Fade 
 
-**Track**: Armand Van Helden - I Want Your Soul (Mau P Remix)
+**Track**: PALMS062 // DOS - Clouds EP
 
-Last updated at 08/04/2023 21:57
+Last updated at 08/04/2023 21:58
