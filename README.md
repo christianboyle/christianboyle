@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMGHnBLNJaHOdnUF-EymNJw-t500x500.jpg">](https://soundcloud.com/mahsiv/borrowed-time99)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix)
 
-**Artist**: Mahsiv 
+**Artist**: LENS 
 
-**Track**: Borrowed Time
+**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
 
-Last updated at 08/04/2023 21:59
+Last updated at 08/04/2023 22:02
