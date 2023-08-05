@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SoeZ9HHtT58gQatg-7sXjug-t500x500.jpg">](https://soundcloud.com/dnadjs1/bellissima-dna-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUoTdq2m3gn9CZbh-Byxozw-t500x500.jpg">](https://soundcloud.com/dunkmellowd/coke-montilla-should-of-known-better-mellowd-170-remix)
 
-**Artist**: DNA 
+**Artist**: MellowD 
 
-**Track**: Free Download: Bellissima (DNA Rework)
+**Track**: Coke  Montilla - Should've Known Better (MellowD 170 Remix)
 
-Last updated at 08/05/2023 14:35
+Last updated at 08/05/2023 14:36
