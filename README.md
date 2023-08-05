@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BlpxWICV5PPxzyoc-1xmeag-t500x500.jpg">](https://soundcloud.com/shallnotfade/palms062-dos-clouds-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMGHnBLNJaHOdnUF-EymNJw-t500x500.jpg">](https://soundcloud.com/mahsiv/borrowed-time99)
 
-**Artist**: Shall Not Fade 
+**Artist**: Mahsiv 
 
-**Track**: PALMS062 // DOS - Clouds EP
+**Track**: Borrowed Time
 
-Last updated at 08/04/2023 21:58
+Last updated at 08/04/2023 21:59
