@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights/s-fXJS2ewvnnj?in=saxurn/sets/old)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54pjrzRIErl9BLsS-v4vXhg-t500x500.jpg">](https://soundcloud.com/geckonl/genie-in-a-bottle/s-xMrraCFFnHt?in=saxurn/sets/old)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Geck-o 
 
-**Track**: Avicii - The Nights (Ezra Hazard Remix)
+**Track**: Christina Aguilera - Genie In A Bottle (Geck-o Remix) 🤗🌼🤍 FREE DOWNLOAD
 
-Last updated at 08/04/2023 18:59
+Last updated at 08/04/2023 19:02
