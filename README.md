@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjwxvW9kglf7im7L-wrCqyA-t500x500.jpg">](https://soundcloud.com/officialtrapparty/ilusion-bflag-watch-me-fall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WyYFp3XKKimpEFJ-9MWzSg-t500x500.jpg">](https://soundcloud.com/realmaup/armand-van-helden-i-want-your-soul-mau-p-remix)
 
-**Artist**: Trap Party Records 
+**Artist**: Mau P 
 
-**Track**: Ilusion Bflag - Watch Me Fall
+**Track**: Armand Van Helden - I Want Your Soul (Mau P Remix)
 
-Last updated at 08/04/2023 21:56
+Last updated at 08/04/2023 21:57
