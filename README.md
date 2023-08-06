@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl4AJkUzNf8zV7U4-kBshCg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/move)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cWXCc6RJ9vA9gV7l-2R5Lqw-t500x500.jpg">](https://soundcloud.com/quickdropmusic/hold-me-close-tonight)
 
-**Artist**: Trapical Music 
+**Artist**: Quickdrop 
 
-**Track**: Charli XCX - Move Me (Meddus Remix)
+**Track**: Hold Me Close Tonight (with Verox & Emelie)
 
-Last updated at 08/06/2023 16:45
+Last updated at 08/06/2023 16:46
