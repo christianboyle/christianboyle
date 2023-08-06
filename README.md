@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix)
 
-**Artist**: RogueEffect 
+**Artist**: dot.MAX 
 
-**Track**: RL Grime - Core (RogueEffect Remix)
+**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
 
-Last updated at 08/06/2023 15:54
+Last updated at 08/06/2023 15:55
