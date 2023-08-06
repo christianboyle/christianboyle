@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t500x500.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000139886449-5zps1t-t500x500.jpg">](https://soundcloud.com/msmrsounds/ms-mr-hurricane-chvrches-remix)
 
-**Artist**: Gen1910 
+**Artist**: MS MR 
 
-**Track**: Current Value - Dark Rain
+**Track**: MS MR - Hurricane (CHVRCHES remix)
 
-Last updated at 08/06/2023 17:05
+Last updated at 08/06/2023 17:11
