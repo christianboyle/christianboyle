@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DB8vMqHAvaQz4JlJ-s2fC2A-t500x500.jpg">](https://soundcloud.com/gangstahouserec/b-phreak-be-somebody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: nightcore4totalsluts 
 
-**Track**: B-PHREAK - Be Somebody
+**Track**: adorablesteak96 - its just smoke
 
-Last updated at 08/06/2023 14:14
+Last updated at 08/06/2023 14:53
