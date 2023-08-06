@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmOAzoTIjAlYR7ik-yIyTWg-t500x500.jpg">](https://soundcloud.com/tsumutsumu/horror-gqom)
 
-**Artist**: Disco Lines 
+**Artist**: T5UMUT5UMU 
 
-**Track**: MDMA
+**Track**: Horror Gqom
 
-Last updated at 08/06/2023 16:05
+Last updated at 08/06/2023 16:07
