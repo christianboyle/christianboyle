@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/N26N4ynOlQA/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-DoACuAiKAgwIABABGH8gJCgTMA8=&rs=AOn4CLBpLbI9kRRZZpe-Vac0vHER-Yzt1w">](https://www.youtube.com/watch?v=N26N4ynOlQA)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hlqqIPOTpGX2Gle-jbzc3A-t500x500.jpg">](https://soundcloud.com/calesaurage/hard-in-the-paint-sidequest-edit)
 
-**Artist**: 
-  
-    BOYS NOIZE
-  
-  
-  
-    BOYS NOIZE
-  
+**Artist**: SIDEQUEST 
 
+**Track**: HARD IN THE PAINT (SIDEQUEST EDIT)
 
-
-
-
- 
-
-**Track**: Boys Noize - "Biate" [Official Audio]
-
-Last updated at 08/06/2023 09:21
+Last updated at 08/06/2023 09:34
