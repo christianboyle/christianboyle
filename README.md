@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBp924Q4GaVle8Gx-PynD5g-t500x500.jpg">](https://soundcloud.com/bbygoyard/now-i-become-death-w-dj-smokey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix)
 
-**Artist**: BBY GOYARD 
+**Artist**: RogueEffect 
 
-**Track**: Now I Become Death (W/ Dj Smokey)
+**Track**: RL Grime - Core (RogueEffect Remix)
 
-Last updated at 08/06/2023 15:53
+Last updated at 08/06/2023 15:54
