@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfnBDa8bIWpl1yo6-rPdnfQ-t500x500.jpg">](https://soundcloud.com/syence/we-live-we-love-we-fall-1)
 
-**Artist**: dot.MAX 
+**Artist**: syence 
 
-**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
+**Track**: we live, we love, we fall
 
-Last updated at 08/06/2023 15:55
+Last updated at 08/06/2023 15:56
