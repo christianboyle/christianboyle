@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSskyFeyDLDKbvwE-y8z69Q-t500x500.jpg">](https://soundcloud.com/gawmmusic/gawm-let-me-tell-you-sum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NEgqMTqZ7HeQuHBy-3GHyEg-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-07)
 
-**Artist**: GAWM 
+**Artist**: TELYKAST 
 
-**Track**: GAWM - Let Me Tell You Sum
+**Track**: BROADKAST - Mix 07
 
-Last updated at 08/06/2023 09:36
+Last updated at 08/06/2023 09:37
