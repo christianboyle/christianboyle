@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMVdMsPOOGUlyRGF-ecFh7g-t500x500.jpg">](https://soundcloud.com/earwaxx/premear-robbie-doherty-x-foley-let-the-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yni6eUbh3C4rPBZE-n2nh7w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-bias-rest-energy-drea007)
 
-**Artist**: EARWAXX 
+**Artist**: HATE 
 
-**Track**: PremEar: Robbie Doherty X Foley - Let The Bass [BANDCAMP]
+**Track**: Premiere: Bias - Rest Energy [DREA007]
 
-Last updated at 08/06/2023 16:01
+Last updated at 08/06/2023 16:02
