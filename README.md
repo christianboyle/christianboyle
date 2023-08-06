@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SoeZ9HHtT58gQatg-7sXjug-t500x500.jpg">](https://soundcloud.com/dnadjs1/bellissima-dna-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfrgddmC3g1v-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/emoticon-rave-god)
 
-**Artist**: DNA 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Free Download: Bellissima (DNA Rework)
+**Track**: Emoticon - Rave God
 
-Last updated at 08/06/2023 15:39
+Last updated at 08/06/2023 15:42
