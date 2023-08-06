@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yni6eUbh3C4rPBZE-n2nh7w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-bias-rest-energy-drea007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmrVg18PSnD0-0-t500x500.png">](https://soundcloud.com/discolines/mdma)
 
-**Artist**: HATE 
+**Artist**: Disco Lines 
 
-**Track**: Premiere: Bias - Rest Energy [DREA007]
+**Track**: MDMA
 
-Last updated at 08/06/2023 16:02
+Last updated at 08/06/2023 16:05
