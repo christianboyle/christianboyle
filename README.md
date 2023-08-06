@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233474855-xzllmg-t500x500.jpg">](https://soundcloud.com/darren-styles/gold-skies-darren-styles-dougal-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEJeg0lfw8BuNWvZ-r6FNrA-t500x500.jpg">](https://soundcloud.com/alstorm/alaguan-good-for-you-vaskan-hardstyle-remix)
 
-**Artist**: Darren Styles 
+**Artist**: Al Storm (24/7 Hardcore / Voodoo Panda) 
 
-**Track**: Gold Skies (Darren Styles & Dougal Remix) *FREE DOWNLOAD*
+**Track**: Alaguan - Good For You (Vaskan Hardstyle Remix)
 
-Last updated at 08/06/2023 16:30
+Last updated at 08/06/2023 16:31
