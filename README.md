@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKfTO7YmkRn2w0ON-EdrnWA-t500x500.jpg">](https://soundcloud.com/juanitasnyc/juanitas-mix-089-doctor-jeep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DB8vMqHAvaQz4JlJ-s2fC2A-t500x500.jpg">](https://soundcloud.com/gangstahouserec/b-phreak-be-somebody)
 
-**Artist**: JUANITA'S NYC 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Juanita's Mix 089: Doctor Jeep
+**Track**: B-PHREAK - Be Somebody
 
-Last updated at 08/06/2023 13:00
+Last updated at 08/06/2023 14:14
