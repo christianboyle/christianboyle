@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4pbFLHawhjB2zCw-c7OHyw-t500x500.jpg">](https://soundcloud.com/sablevalley/takethisway)
 
-**Artist**: RYAN Playground 
+**Artist**: SABLE VALLEY 
 
-**Track**: Better Off Alone (No_4mat Beach Rave Remix)
+**Track**: DJ Ride - TAKETHISWAY
 
-Last updated at 08/06/2023 16:50
+Last updated at 08/06/2023 16:51
