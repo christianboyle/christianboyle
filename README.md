@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qeuAu8JZY2hEJn7-Pyyb9A-t500x500.jpg">](https://soundcloud.com/alltrapnation/post-malone-cooped-up-bkaye-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckp0UEIYGd8t-0-t500x500.jpg">](https://soundcloud.com/ryanplayground/better-off-alone-no_4mat-beach)
 
-**Artist**: Trap Nation 
+**Artist**: RYAN Playground 
 
-**Track**: Post Malone - Cooped Up (BKAYE Remix)
+**Track**: Better Off Alone (No_4mat Beach Rave Remix)
 
-Last updated at 08/06/2023 16:48
+Last updated at 08/06/2023 16:50
