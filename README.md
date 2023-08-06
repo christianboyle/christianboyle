@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000271033397-kntz6g-t500x500.jpg">](https://soundcloud.com/lethal-theory-music/dont-know-how-to-make-you-happy-prime-time-players-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t500x500.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
 
-**Artist**: Lethal Theory Music 
+**Artist**: Gen1910 
 
-**Track**: Don't Know How To Make You Happy - Prime Time Players (Radio Edit)
+**Track**: Current Value - Dark Rain
 
-Last updated at 08/06/2023 17:15
+Last updated at 08/06/2023 17:17
