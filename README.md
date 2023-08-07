@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUoTdq2m3gn9CZbh-Byxozw-t500x500.jpg">](https://soundcloud.com/dunkmellowd/coke-montilla-should-of-known-better-mellowd-170-remix)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: MellowD 
 
-**Track**: adorablesteak96 - its just smoke
+**Track**: Coke  Montilla - Should've Known Better (MellowD 170 Remix)
 
-Last updated at 08/07/2023 16:22
+Last updated at 08/07/2023 16:32
