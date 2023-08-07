@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVy39nzy0tteTkil-PPz2Hw-t500x500.jpg">](https://soundcloud.com/molekulpage/dj-physical-pickin-a-victim-outro?in=molekulpage/sets/dj-physical-picking-a-victim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CBwzsHOfNGwRKz71-MQmGRw-t500x500.jpg">](https://soundcloud.com/all172things/artillery-blood-overdose-premiere)
 
-**Artist**: Molekül 
+**Artist**: All172Things 
 
-**Track**: DJ Physical - Pickin A Victim (Outro)
+**Track**: Artillery - Blood Overdose [Premiere]
 
-Last updated at 08/07/2023 07:44
+Last updated at 08/07/2023 07:47
