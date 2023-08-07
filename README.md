@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/hb0XLX0b4Y4/maxresdefault.jpg">](https://www.youtube.com/watch?v=hb0XLX0b4Y4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-08kXD95QvcCdGTzd-DLpqfw-t500x500.jpg">](https://soundcloud.com/indoorradio/indoor-radio-guest-mix-062)
 
-**Artist**: 
-  
-    Skrillex
-  
-  
-  
-    Skrillex
-  
+**Artist**: INDOOR RADIO 
 
+**Track**: INDOOR RADIO Guest Mix: #062 Seimei [TREKKIE TRAX]
 
-
-
-
- 
-
-**Track**: SKRILLEX - QUEST FOR FIRE Basement Set
-
-Last updated at 08/07/2023 15:28
+Last updated at 08/07/2023 16:14
