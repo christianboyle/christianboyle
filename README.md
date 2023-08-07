@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKfTO7YmkRn2w0ON-EdrnWA-t500x500.jpg">](https://soundcloud.com/juanitasnyc/juanitas-mix-089-doctor-jeep)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/hb0XLX0b4Y4/maxresdefault.jpg">](https://www.youtube.com/watch?v=hb0XLX0b4Y4)
 
-**Artist**: JUANITA'S NYC 
+**Artist**: 
+  
+    Skrillex
+  
+  
+  
+    Skrillex
+  
 
-**Track**: Juanita's Mix 089: Doctor Jeep
 
-Last updated at 08/07/2023 12:56
+
+
+
+ 
+
+**Track**: SKRILLEX - QUEST FOR FIRE Basement Set
+
+Last updated at 08/07/2023 15:28
