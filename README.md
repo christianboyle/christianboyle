@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63ELpahz4EqxzA7R-ZMzxPQ-t500x500.jpg">](https://soundcloud.com/thecaracalproject/under-the-northern-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DQUjynrBaTNDHRYt-Ev6ZdQ-t500x500.jpg">](https://soundcloud.com/levity_music/levity-ef?in=levity_music/sets/levity-live-at-electric-forest)
 
-**Artist**: The Caracal Project 
+**Artist**: Levity 
 
-**Track**: Under The Northern Lights.
+**Track**: Levity Live At Electric Forest 2023 Set (HQ RECREATION) [Honeycomb Stage]
 
-Last updated at 08/07/2023 10:09
+Last updated at 08/07/2023 10:10
