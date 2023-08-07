@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPbZ5wE8JMte7RJB-hqFIFA-t500x500.jpg">](https://soundcloud.com/huskibass/huski-take-me-tonight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpTFJw3swRsHkPQt-pW8S0w-t500x500.jpg">](https://soundcloud.com/dj-iyf/lewis-capaldi-wish-you-the-best-rob-iyf-fatz-bootleg)
 
-**Artist**: HUSKI 🐺 
+**Artist**: Rob IYF (24/7 Hardcore) 
 
-**Track**: HUSKI - TAKE ME TONIGHT (FREE DOWNLOAD/STEMS)
+**Track**: Lewis Capaldi - Wish You The Best (Rob IYF & Fatz Bootleg)
 
-Last updated at 08/07/2023 10:12
+Last updated at 08/07/2023 10:15
