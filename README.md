@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpTFJw3swRsHkPQt-pW8S0w-t500x500.jpg">](https://soundcloud.com/dj-iyf/lewis-capaldi-wish-you-the-best-rob-iyf-fatz-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5wEMEWeDtSHaimah-of7nfg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh336)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: Justice Hardcore 
 
-**Track**: Lewis Capaldi - Wish You The Best (Rob IYF & Fatz Bootleg)
+**Track**: O1RA - Let Me Know ⚠️OUT NOW⚠️
 
-Last updated at 08/07/2023 10:15
+Last updated at 08/07/2023 10:20
