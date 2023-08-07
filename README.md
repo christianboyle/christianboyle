@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CE1sB5FSwBw080bP-ImN31Q-t500x500.jpg">](https://soundcloud.com/officialnohero/fireflies-with-steelnix/s-xMrraCFFnHt?in=saxurn/sets/old)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix?in=saxurn/sets/old)
 
-**Artist**: No Hero 
+**Artist**: Arcando 
 
-**Track**: Fireflies (with SteelniX)
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 08/07/2023 18:48
+Last updated at 08/07/2023 18:49
