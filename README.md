@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000003134494-4rm2jq-t500x500.jpg">](https://soundcloud.com/gen1910/current-value-dark-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVy39nzy0tteTkil-PPz2Hw-t500x500.jpg">](https://soundcloud.com/molekulpage/dj-physical-my-body-1?in=molekulpage/sets/dj-physical-picking-a-victim)
 
-**Artist**: Gen1910 
+**Artist**: Molekül 
 
-**Track**: Current Value - Dark Rain
+**Track**: DJ Physical - My Body
 
-Last updated at 08/06/2023 17:17
+Last updated at 08/07/2023 07:40
