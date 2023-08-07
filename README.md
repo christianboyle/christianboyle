@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-08kXD95QvcCdGTzd-DLpqfw-t500x500.jpg">](https://soundcloud.com/indoorradio/indoor-radio-guest-mix-062)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5wEMEWeDtSHaimah-of7nfg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh336)
 
-**Artist**: INDOOR RADIO 
+**Artist**: Justice Hardcore 
 
-**Track**: INDOOR RADIO Guest Mix: #062 Seimei [TREKKIE TRAX]
+**Track**: O1RA - Let Me Know ⚠️OUT NOW⚠️
 
-Last updated at 08/07/2023 16:14
+Last updated at 08/07/2023 16:15
