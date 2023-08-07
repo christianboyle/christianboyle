@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DQUjynrBaTNDHRYt-Ev6ZdQ-t500x500.jpg">](https://soundcloud.com/levity_music/levity-ef?in=levity_music/sets/levity-live-at-electric-forest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mdelEkgmFMZJZ9Uz-ZclEqw-t500x500.jpg">](https://soundcloud.com/inf1n1temusic/nowheretogo)
 
-**Artist**: Levity 
+**Artist**: INF1N1TE 
 
-**Track**: Levity Live At Electric Forest 2023 Set (HQ RECREATION) [Honeycomb Stage]
+**Track**: INF1N1TE X VYYL - NOWHERE TO GO
 
-Last updated at 08/07/2023 10:10
+Last updated at 08/07/2023 10:11
