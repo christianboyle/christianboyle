@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix?in=saxurn/sets/old)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t500x500.jpg">](https://soundcloud.com/wopak/private-edit?in=saxurn/sets/old/)
 
-**Artist**: LENS 
+**Artist**: Wopak 
 
-**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
+**Track**: Private Edit
 
-Last updated at 08/07/2023 19:44
+Last updated at 08/07/2023 20:01
