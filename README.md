@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CPx2cMTFzjIro5S-DKLOWg-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/silvia?in=saxurn/sets/oldies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix?in=saxurn/sets/oldies)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: LENS 
 
-**Track**: Miike Snow - Silvia (Robotberget Remix)[Reheated By Tuna Melt] [SHORTER VERSION IN DOWNLOAD]
+**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
 
-Last updated at 08/07/2023 21:30
+Last updated at 08/07/2023 21:42
