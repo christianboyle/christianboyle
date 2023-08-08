@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTPYyE4cRdxR4POr-iCgjzg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/saygoodbye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xLSPnpV4uziL-0-t500x500.jpg">](https://soundcloud.com/chetporter/nowhere)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Chet Porter 
 
-**Track**: Collar Pocket & Rux Ton - Say Goodbye
+**Track**: Nowhere
 
-Last updated at 08/08/2023 07:43
+Last updated at 08/08/2023 12:32
