@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-gmYeV5rKApqm3VAi-y2D4GA-t500x500.jpg">](https://soundcloud.com/yamac-2nd/haiiro-no-party-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYfslMxWAf2Ue5fz-cfhy1g-t500x500.jpg">](https://soundcloud.com/hundaes/justin-bieber-one-time-hundaes-edit?in=saxurn/sets/old/)
 
-**Artist**: YamaC - 2nd 
+**Artist**: hundaes 
 
-**Track**: Haiiro no Party Girl (Haiiro no Kokoro × M-project - Pirty Girl) (YamaC Mashup)
+**Track**: Justin Bieber - One Time (Hundaes Edit)
 
-Last updated at 08/07/2023 20:50
+Last updated at 08/07/2023 20:52
