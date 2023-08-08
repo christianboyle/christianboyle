@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CJVQm07xJdDKCt9z-dzGqDw-t500x500.jpg">](https://soundcloud.com/particaartistgroup/codanza?in=particaartistgroup/sets/risk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYfslMxWAf2Ue5fz-cfhy1g-t500x500.jpg">](https://soundcloud.com/hundaes/justin-bieber-one-time-hundaes-edit?in=saxurn/sets/oldies)
 
-**Artist**: Partica Artist Group 
+**Artist**: hundaes 
 
-**Track**: Tenuous & Avagoh - CODANZA
+**Track**: Justin Bieber - One Time (Hundaes Edit)
 
-Last updated at 08/07/2023 21:47
+Last updated at 08/07/2023 21:48
