@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000153617924-7xyzvl-t500x500.jpg">](https://soundcloud.com/the-percussionz/block-rockin-beats-the-percussionz-mix?in=saxurn/sets/oldies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYfslMxWAf2Ue5fz-cfhy1g-t500x500.jpg">](https://soundcloud.com/hundaes/justin-bieber-one-time-hundaes-edit?in=saxurn/sets/oldies)
 
-**Artist**: the percussionz 
+**Artist**: hundaes 
 
-**Track**: Block Rockin' Beats  (the Percussionz Mix)
+**Track**: Justin Bieber - One Time (Hundaes Edit)
 
-Last updated at 08/07/2023 21:14
+Last updated at 08/07/2023 21:17
