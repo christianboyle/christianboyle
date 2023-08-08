@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000093180742-7xyhxh-t500x500.jpg">](https://soundcloud.com/wopak/private-edit?in=saxurn/sets/old/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkpOKwL8fXe62pNr-0bsgOQ-t500x500.jpg">](https://soundcloud.com/arcando-official/use-somebody-arcando-remix?in=saxurn/sets/old/)
 
-**Artist**: Wopak 
+**Artist**: Arcando 
 
-**Track**: Private Edit
+**Track**: Kings Of Leon - Use Somebody (Arcando Remix)
 
-Last updated at 08/07/2023 20:01
+Last updated at 08/07/2023 20:04
