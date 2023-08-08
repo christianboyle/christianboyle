@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIVNcUDyC6YVhDqM-KZ23qw-t500x500.png">](https://soundcloud.com/user-251214250-535432230/gekko-bootleg-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-gmYeV5rKApqm3VAi-y2D4GA-t500x500.jpg">](https://soundcloud.com/yamac-2nd/haiiro-no-party-girl)
 
-**Artist**: Rentonboy 
+**Artist**: YamaC - 2nd 
 
-**Track**: 【FREE DL】さぁ(gekko Bootleg)【まもって守護月天！】
+**Track**: Haiiro no Party Girl (Haiiro no Kokoro × M-project - Pirty Girl) (YamaC Mashup)
 
-Last updated at 08/07/2023 20:47
+Last updated at 08/07/2023 20:50
