@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJYFDSXE4Lr3VIac-hYUxTQ-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs014-overlook-a-tarot-aa-detour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Umz4SPb35Y78ZFB-0Ho6Pg-t500x500.jpg">](https://soundcloud.com/burnarecords/blueboss-time-bass)
 
-**Artist**: UVB-76 Music 
+**Artist**: Burna Records 
 
-**Track**: DROOGS014 : Overlook - A. Tarot / AA. Detour
+**Track**: BLUEBOSS - TIME & BASS [FREE DOWNLOAD]
 
-Last updated at 08/09/2023 08:54
+Last updated at 08/09/2023 08:55
