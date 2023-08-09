@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBPvHe9lQRpEcAoB-PsoevQ-t500x500.jpg">](https://soundcloud.com/narcyzdj/trash-ft-axmoxnarcyz-remix)
 
-**Artist**: Danceproject 
+**Artist**: Narcyz 
 
-**Track**: Facutum, Beori - Serotonin
+**Track**: TRASH ft. 李浩瑋 - 終究是因為愛(AXMOxNARCYZ REMIX)[BUY=FREE DOWLOAD]
 
-Last updated at 08/09/2023 08:52
+Last updated at 08/09/2023 08:53
