@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKiYD3fBV3aUogv0-LrPDLA-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-volume-005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bTQN1mswAzbNAC9o-9Wshng-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs012-friske-violator)
 
-**Artist**: Dj Thera 
+**Artist**: UVB-76 Music 
 
-**Track**: Tranceparency Mixtape 005
+**Track**: DROOGS012 Friske - Violator
 
-Last updated at 08/09/2023 16:36
+Last updated at 08/09/2023 17:03
