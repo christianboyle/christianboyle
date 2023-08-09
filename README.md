@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBPvHe9lQRpEcAoB-PsoevQ-t500x500.jpg">](https://soundcloud.com/narcyzdj/trash-ft-axmoxnarcyz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJYFDSXE4Lr3VIac-hYUxTQ-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs014-overlook-a-tarot-aa-detour)
 
-**Artist**: Narcyz 
+**Artist**: UVB-76 Music 
 
-**Track**: TRASH ft. 李浩瑋 - 終究是因為愛(AXMOxNARCYZ REMIX)[BUY=FREE DOWLOAD]
+**Track**: DROOGS014 : Overlook - A. Tarot / AA. Detour
 
-Last updated at 08/09/2023 08:53
+Last updated at 08/09/2023 08:54
