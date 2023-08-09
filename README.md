@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KdX6SoO9UXXyHaaS-EMzn0w-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/speaker-louis-explosion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbiEYzGoI95iuU7m-1TyUzQ-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/squeeze?in=htnetwork/sets/demons)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Speaker Louis - Explosion
+**Track**: kyogre - Squeeze
 
-Last updated at 08/09/2023 09:00
+Last updated at 08/09/2023 16:35
