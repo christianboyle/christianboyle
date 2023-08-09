@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUQcXwEsXzHYWd0l-9LRI3A-t500x500.jpg">](https://soundcloud.com/luminosityevents-1/symmetrik-lbf23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvdZJwD1sByNFDey-1n9ySg-t500x500.jpg">](https://soundcloud.com/sol-fiesta/glow-in-the-dark-prty-anmlz)
 
-**Artist**: Luminosity Events 
+**Artist**: SOL FIESTA 
 
-**Track**: Symmetrik LIVE @ Luminosity Beach Festival 2023
+**Track**: GLOW IN THE DARK
 
-Last updated at 08/09/2023 17:06
+Last updated at 08/09/2023 17:07
