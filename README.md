@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbiEYzGoI95iuU7m-1TyUzQ-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/squeeze?in=htnetwork/sets/demons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKiYD3fBV3aUogv0-LrPDLA-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-volume-005)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Dj Thera 
 
-**Track**: kyogre - Squeeze
+**Track**: Tranceparency Mixtape 005
 
-Last updated at 08/09/2023 16:35
+Last updated at 08/09/2023 16:36
