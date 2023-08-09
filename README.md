@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bTQN1mswAzbNAC9o-9Wshng-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs012-friske-violator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUQcXwEsXzHYWd0l-9LRI3A-t500x500.jpg">](https://soundcloud.com/luminosityevents-1/symmetrik-lbf23)
 
-**Artist**: UVB-76 Music 
+**Artist**: Luminosity Events 
 
-**Track**: DROOGS012 Friske - Violator
+**Track**: Symmetrik LIVE @ Luminosity Beach Festival 2023
 
-Last updated at 08/09/2023 17:03
+Last updated at 08/09/2023 17:06
