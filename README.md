@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Umz4SPb35Y78ZFB-0Ho6Pg-t500x500.jpg">](https://soundcloud.com/burnarecords/blueboss-time-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVuTtscMBCNT5MFP-xzKrlQ-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/beast?in=htnetwork/sets/wildspirit)
 
-**Artist**: Burna Records 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: BLUEBOSS - TIME & BASS [FREE DOWNLOAD]
+**Track**: Kamas - Beast
 
-Last updated at 08/09/2023 08:55
+Last updated at 08/09/2023 08:56
