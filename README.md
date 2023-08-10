@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKAieaexJ3SBW0of-37OkdQ-t500x500.jpg">](https://soundcloud.com/lens_dnb/bittersweet-goodbye-lens-remix?in=saxurn/sets/oldies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzNO14CuSOBWavW3-fF02Qg-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/olly-james-live-coloursfest-2023-glasgow)
 
-**Artist**: LENS 
+**Artist**: Olly James 
 
-**Track**: Issey Cross - Bittersweet Goodbye (Lens Remix)
+**Track**: Olly James Live @ Coloursfest 2023 [Glasgow]
 
-Last updated at 08/09/2023 20:39
+Last updated at 08/10/2023 08:21
