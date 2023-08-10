@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzNO14CuSOBWavW3-fF02Qg-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/olly-james-live-coloursfest-2023-glasgow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L07CyWVkIRhsdX9O-2h87mg-t500x500.jpg">](https://soundcloud.com/animalia-label/katiusha-animalia-mix)
 
-**Artist**: Olly James 
+**Artist**: Animalia 
 
-**Track**: Olly James Live @ Coloursfest 2023 [Glasgow]
+**Track**: Animix One Hundred & Thirty Seven: Katiusha
 
-Last updated at 08/10/2023 08:21
+Last updated at 08/10/2023 08:22
