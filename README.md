@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2So8oNzazKKZJsm-LvOF7g-t500x500.jpg">](https://soundcloud.com/user-605100039-893565404/no-summer-is-bonkers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix)
 
-**Artist**: SeanyMacDj 
+**Artist**: Dan Larkin 
 
-**Track**: The Prodigy & Dizzie Rascal - Bonkers X Voodoo X Up To No Good Mashup (Supported By Kutski)
+**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
 
-Last updated at 08/10/2023 16:54
+Last updated at 08/10/2023 16:55
