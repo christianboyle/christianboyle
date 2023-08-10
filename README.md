@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svberByTmE0d-0-t500x500.jpg">](https://soundcloud.com/theldru/spring-feat-riverine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin)
 
-**Artist**: L D R U 
+**Artist**: Danceproject 
 
-**Track**: Spring (feat. Riverine)
+**Track**: Facutum, Beori - Serotonin
 
-Last updated at 08/10/2023 17:13
+Last updated at 08/10/2023 17:22
