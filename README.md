@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvdZJwD1sByNFDey-1n9ySg-t500x500.jpg">](https://soundcloud.com/sol-fiesta/glow-in-the-dark-prty-anmlz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKiYD3fBV3aUogv0-LrPDLA-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-volume-005)
 
-**Artist**: SOL FIESTA 
+**Artist**: Dj Thera 
 
-**Track**: GLOW IN THE DARK
+**Track**: Tranceparency Mixtape 005
 
-Last updated at 08/09/2023 17:07
+Last updated at 08/09/2023 19:52
