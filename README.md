@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvdZJwD1sByNFDey-1n9ySg-t500x500.jpg">](https://soundcloud.com/sol-fiesta/glow-in-the-dark-prty-anmlz)
 
-**Artist**: Danceproject 
+**Artist**: SOL FIESTA 
 
-**Track**: Facutum, Beori - Serotonin
+**Track**: GLOW IN THE DARK
 
-Last updated at 08/10/2023 17:22
+Last updated at 08/10/2023 17:27
