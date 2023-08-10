@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L07CyWVkIRhsdX9O-2h87mg-t500x500.jpg">](https://soundcloud.com/animalia-label/katiusha-animalia-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKiYD3fBV3aUogv0-LrPDLA-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-volume-005)
 
-**Artist**: Animalia 
+**Artist**: Dj Thera 
 
-**Track**: Animix One Hundred & Thirty Seven: Katiusha
+**Track**: Tranceparency Mixtape 005
 
-Last updated at 08/10/2023 08:22
+Last updated at 08/10/2023 15:29
