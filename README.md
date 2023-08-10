@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzuWGSyIp1IJNHZ4-kABlIQ-t500x500.jpg">](https://soundcloud.com/bkbeats/1000mi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLmMp5OyeGejp0k6-A1FC5Q-t500x500.jpg">](https://soundcloud.com/summitmix/summit-mix-vol1)
 
-**Artist**: bk beats 
+**Artist**: SUMMIT MIX 
 
-**Track**: ᵥаₙеѕѕа саᵣₗₜоₙ - 1000mi (bk beats edit)
+**Track**: SUMMIT MIX VOL.1
 
-Last updated at 08/10/2023 16:46
+Last updated at 08/10/2023 16:50
