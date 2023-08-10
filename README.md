@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dib2BB6kNNNDoS4H-3hyVyQ-t500x500.jpg">](https://soundcloud.com/woofax/woofax-return-to-the-deadly-spire)
 
-**Artist**: Dan Larkin 
+**Artist**: Woofax 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Woofax - Return To The Deadly Spire (Original Mix)
 
-Last updated at 08/10/2023 16:55
+Last updated at 08/10/2023 16:58
