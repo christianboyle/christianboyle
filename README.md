@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hciQyY5Bi2gpYM95-FzmpZA-t500x500.jpg">](https://soundcloud.com/mandelbot-1/centaurus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnXQ5WNs5KUObSuO-bgwtNQ-t500x500.jpg">](https://soundcloud.com/agadah/baron-von-trax-it-happened-to)
 
-**Artist**: MANDELbot 
+**Artist**: Agadah 
 
-**Track**: Centaurus
+**Track**: BARON VON TRAX - IT HAPPENED TO ME
 
-Last updated at 08/11/2023 17:52
+Last updated at 08/11/2023 17:53
