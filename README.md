@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJYFDSXE4Lr3VIac-hYUxTQ-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs014-overlook-a-tarot-aa-detour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin)
 
-**Artist**: UVB-76 Music 
+**Artist**: Danceproject 
 
-**Track**: DROOGS014 : Overlook - A. Tarot / AA. Detour
+**Track**: Facutum, Beori - Serotonin
 
-Last updated at 08/11/2023 18:31
+Last updated at 08/11/2023 18:37
