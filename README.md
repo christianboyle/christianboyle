@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v8uswN08JlRHJfAJ-gLv8cw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/blxckhoodie-x-vertekz-we-go-hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hciQyY5Bi2gpYM95-FzmpZA-t500x500.jpg">](https://soundcloud.com/mandelbot-1/centaurus)
 
-**Artist**: Murder We Wrote 
+**Artist**: MANDELbot 
 
-**Track**: BLXCKHOODIE X VERTEKZ - WE GO HARD (Free Download)
+**Track**: Centaurus
 
-Last updated at 08/11/2023 17:51
+Last updated at 08/11/2023 17:52
