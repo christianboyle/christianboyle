@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svberByTmE0d-0-t500x500.jpg">](https://soundcloud.com/theldru/spring-feat-riverine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJYFDSXE4Lr3VIac-hYUxTQ-t500x500.jpg">](https://soundcloud.com/uvb76music/droogs014-overlook-a-tarot-aa-detour)
 
-**Artist**: L D R U 
+**Artist**: UVB-76 Music 
 
-**Track**: Spring (feat. Riverine)
+**Track**: DROOGS014 : Overlook - A. Tarot / AA. Detour
 
-Last updated at 08/11/2023 18:28
+Last updated at 08/11/2023 18:31
