@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PuDLMNusQzZQhRH5-6YcIXA-t500x500.jpg">](https://soundcloud.com/dirtysnatcha/crazy?in=circusrecords/sets/dirtysnatcha-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUOiTSFMn4Zq4PKu-RpzQWg-t500x500.jpg">](https://soundcloud.com/kiddstockevents/tatanka-official-kiddstock-2023-promo-mix)
 
-**Artist**: DirtySnatcha 
+**Artist**: Kiddstock Events 
 
-**Track**: DirtySnatcha - Crazy [UKF Premiere]
+**Track**: Tatanka Official Kiddstock 2023 Promo Mix
 
-Last updated at 08/12/2023 13:03
+Last updated at 08/12/2023 13:04
