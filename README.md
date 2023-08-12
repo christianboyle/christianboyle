@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUQcXwEsXzHYWd0l-9LRI3A-t500x500.jpg">](https://soundcloud.com/luminosityevents-1/symmetrik-lbf23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GBetw9PCmNHWKnrM-UDQzWw-t500x500.jpg">](https://soundcloud.com/r3hab/michael-schulte-r3hab-waterfall-r3hab-vip-remix)
 
-**Artist**: Luminosity Events 
+**Artist**: R3HAB 
 
-**Track**: Symmetrik LIVE @ Luminosity Beach Festival 2023
+**Track**: Michael Schulte, R3HAB - Waterfall (R3HAB VIP Remix)
 
-Last updated at 08/11/2023 19:24
+Last updated at 08/12/2023 09:32
