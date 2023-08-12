@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pcgJXZ73rLJdve5o-r9IFZg-t500x500.jpg">](https://soundcloud.com/undergroundbassunited/avidant-hydrate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2rcvB0Ij1uviLWEu-9zGS8g-t500x500.jpg">](https://soundcloud.com/bitbird/wavedash-walk-up-1)
 
-**Artist**: Underground Bass United 
+**Artist**: bitbird 
 
-**Track**: Avidant - Hydrate
+**Track**: Wavedash - WALK UP
 
-Last updated at 08/12/2023 10:12
+Last updated at 08/12/2023 10:13
