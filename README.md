@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rp20hiJxCQHRqWHG-mIFHJA-t500x500.jpg">](https://soundcloud.com/silveroredm/darude-sandstorm-sterbinszky-2k21-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iT5pybCvnS5z3g7S-JosjiA-t500x500.jpg">](https://soundcloud.com/oldcollin/idwflt1?in=oldcollin/sets/synesthesia)
 
-**Artist**: Silver or EDM™ 
+**Artist**: oldcollin 
 
-**Track**: Darude - Sandstorm (Sterbinszky 2k21 Remix) [FREE DOWNLOAD]
+**Track**: idwflt (feat. corefish) (p yungspoiler)
 
-Last updated at 08/12/2023 10:10
+Last updated at 08/12/2023 10:11
