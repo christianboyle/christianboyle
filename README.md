@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2rcvB0Ij1uviLWEu-9zGS8g-t500x500.jpg">](https://soundcloud.com/bitbird/wavedash-walk-up-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcpoATDj7Rss1bFf-OzX4hQ-t500x500.jpg">](https://soundcloud.com/waxthieves/xg-tgif-waxthieves-remix)
 
-**Artist**: bitbird 
+**Artist**: Waxthieves 
 
-**Track**: Wavedash - WALK UP
+**Track**: XG - TGIF (Waxthieves Remix)
 
-Last updated at 08/12/2023 10:13
+Last updated at 08/12/2023 12:55
