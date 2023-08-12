@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKYGkN6ecefY-0-t500x500.jpg">](https://soundcloud.com/astraking/astra-king-make-me-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVvM7zNODUCV-0-t500x500.jpg">](https://soundcloud.com/fredagain/i-adore-u)
 
-**Artist**: Astra King 
+**Artist**: Fred again.. 
 
-**Track**: Astra King - Make Me Cry
+**Track**: Fred again.. & Obongjayar - adore u
 
-Last updated at 08/12/2023 13:44
+Last updated at 08/12/2023 13:48
