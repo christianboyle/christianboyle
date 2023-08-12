@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzuWGSyIp1IJNHZ4-kABlIQ-t500x500.jpg">](https://soundcloud.com/bkbeats/1000mi)
 
-**Artist**: Dan Larkin 
+**Artist**: bk beats 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: ᵥаₙеѕѕа саᵣₗₜоₙ - 1000mi (bk beats edit)
 
-Last updated at 08/12/2023 13:57
+Last updated at 08/12/2023 14:00
