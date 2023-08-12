@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iT5pybCvnS5z3g7S-JosjiA-t500x500.jpg">](https://soundcloud.com/oldcollin/idwflt1?in=oldcollin/sets/synesthesia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pcgJXZ73rLJdve5o-r9IFZg-t500x500.jpg">](https://soundcloud.com/undergroundbassunited/avidant-hydrate)
 
-**Artist**: oldcollin 
+**Artist**: Underground Bass United 
 
-**Track**: idwflt (feat. corefish) (p yungspoiler)
+**Track**: Avidant - Hydrate
 
-Last updated at 08/12/2023 10:11
+Last updated at 08/12/2023 10:12
