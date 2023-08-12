@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcpoATDj7Rss1bFf-OzX4hQ-t500x500.jpg">](https://soundcloud.com/waxthieves/xg-tgif-waxthieves-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit)
 
-**Artist**: Waxthieves 
+**Artist**: Jukaa 
 
-**Track**: XG - TGIF (Waxthieves Remix)
+**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
 
-Last updated at 08/12/2023 12:55
+Last updated at 08/12/2023 12:56
