@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUQcXwEsXzHYWd0l-9LRI3A-t500x500.jpg">](https://soundcloud.com/luminosityevents-1/symmetrik-lbf23)
 
-**Artist**: Danceproject 
+**Artist**: Luminosity Events 
 
-**Track**: Facutum, Beori - Serotonin
+**Track**: Symmetrik LIVE @ Luminosity Beach Festival 2023
 
-Last updated at 08/11/2023 18:37
+Last updated at 08/11/2023 19:24
