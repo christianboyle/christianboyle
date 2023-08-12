@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GBetw9PCmNHWKnrM-UDQzWw-t500x500.jpg">](https://soundcloud.com/r3hab/michael-schulte-r3hab-waterfall-r3hab-vip-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit)
 
-**Artist**: R3HAB 
+**Artist**: Jukaa 
 
-**Track**: Michael Schulte, R3HAB - Waterfall (R3HAB VIP Remix)
+**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
 
-Last updated at 08/12/2023 09:32
+Last updated at 08/12/2023 09:33
