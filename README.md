@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WA0CJBl6nRghrN2C-lspgDg-t500x500.jpg">](https://soundcloud.com/ake-official/travis-scott-goosebumps-ake-rmx)
 
-**Artist**: Jukaa 
+**Artist**: AKE 
 
-**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
+**Track**: Travis Scott - Goosebumps (AKE RMX)
 
-Last updated at 08/12/2023 09:33
+Last updated at 08/12/2023 10:05
