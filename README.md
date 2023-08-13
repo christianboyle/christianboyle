@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit?in=saxurn/sets/fartificial-intelligence/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKYGkN6ecefY-0-t500x500.jpg">](https://soundcloud.com/astraking/astra-king-make-me-cry?in=saxurn/sets/fartificial-intelligence/)
 
-**Artist**: Jukaa 
+**Artist**: Astra King 
 
-**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
+**Track**: Astra King - Make Me Cry
 
-Last updated at 08/13/2023 11:41
+Last updated at 08/13/2023 11:44
