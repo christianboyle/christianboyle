@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n0ftQn1BWdiI8uXg-NEyAFQ-t500x500.jpg">](https://soundcloud.com/thirtyonetwentyfive/twenty-two)
 
-**Artist**: Dan Larkin 
+**Artist**: thirtyonetwentyfive (3125) 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Twenty Two!!!
 
-Last updated at 08/13/2023 12:13
+Last updated at 08/13/2023 12:16
