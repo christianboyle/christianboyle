@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVvM7zNODUCV-0-t500x500.jpg">](https://soundcloud.com/fredagain/i-adore-u?in=saxurn/sets/fartificial-intelligence/)
 
-**Artist**: Dan Larkin 
+**Artist**: Fred again.. 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Fred again.. & Obongjayar - adore u
 
-Last updated at 08/13/2023 11:45
+Last updated at 08/13/2023 11:47
