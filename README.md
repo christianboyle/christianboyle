@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke?in=saxurn/sets/fartificial-intelligence/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daGYkhA1H7X0fs6Q-md7WLg-t500x500.jpg">](https://soundcloud.com/officialcheeks/less-alone-cheeks?in=saxurn/sets/fartificial-intelligence/)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: CHEEKS 
 
-**Track**: adorablesteak96 - its just smoke
+**Track**: Less Alone
 
-Last updated at 08/13/2023 08:37
+Last updated at 08/13/2023 08:41
