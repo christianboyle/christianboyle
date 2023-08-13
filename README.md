@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKYGkN6ecefY-0-t500x500.jpg">](https://soundcloud.com/astraking/astra-king-make-me-cry?in=saxurn/sets/fartificial-intelligence/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence/)
 
-**Artist**: Astra King 
+**Artist**: Dan Larkin 
 
-**Track**: Astra King - Make Me Cry
+**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
 
-Last updated at 08/13/2023 11:44
+Last updated at 08/13/2023 11:45
