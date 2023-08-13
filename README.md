@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkuOsjM0yFOPmymt-KSgmzA-t500x500.jpg">](https://soundcloud.com/h742/requiem-dun-immortelle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWFFzGvMt69HLRvj-MpFolQ-t500x500.jpg">](https://soundcloud.com/hyperrealistmusic/eternal-ascent)
 
-**Artist**: ‍ 
+**Artist**: hyperrealist ✧ 
 
-**Track**: BLUE NOISE - Requiem d'un Immortel
+**Track**: ETERNAL ASCENT
 
-Last updated at 08/13/2023 08:58
+Last updated at 08/13/2023 09:15
