@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVvM7zNODUCV-0-t500x500.jpg">](https://soundcloud.com/fredagain/i-adore-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: Fred again.. 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Fred again.. & Obongjayar - adore u
+**Track**: adorablesteak96 - its just smoke
 
-Last updated at 08/13/2023 20:59
+Last updated at 08/13/2023 21:00
