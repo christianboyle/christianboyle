@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0kmuMbBSzhvN73g0-L6J1Aw-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-transcendence-twenty-six-occa-transcendence-japan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTLl1yX31P1b9Joe-2mAnAw-t500x500.jpg">](https://soundcloud.com/buunshin/i-think-i-feel)
 
-**Artist**: Animalia 
+**Artist**: Buunshin 
 
-**Track**: ani/live Twenty Six: Occa @ Transcendence, Japan
+**Track**: i think i feel...
 
-Last updated at 08/14/2023 07:46
+Last updated at 08/14/2023 12:33
