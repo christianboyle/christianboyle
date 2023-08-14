@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HA98xJNxRHfqd2Up-sVjj8Q-t500x500.jpg">](https://soundcloud.com/dooley_sound/lost-in-the-wind-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lOGtnxj9Kal-0-t500x500.jpg">](https://soundcloud.com/astraking/astra-king-a-little-bit-closer)
 
-**Artist**: Dooley 
+**Artist**: Astra King 
 
-**Track**: Lost in the Wind
+**Track**: Astra King - A Little Bit Closer
 
-Last updated at 08/14/2023 12:34
+Last updated at 08/14/2023 12:35
