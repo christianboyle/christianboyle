@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5GKGBmdDrxMzDjc-46yyNg-t500x500.jpg">](https://soundcloud.com/rezimusicas/knowubetter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c84fEAZ641NGDcY0-hqQ7Pw-t500x500.jpg">](https://soundcloud.com/critical-music/calyx-riddim)
 
-**Artist**: REZI 
+**Artist**: Critical Music 
 
-**Track**: Know U Better
+**Track**: Calyx - Riddim
 
-Last updated at 08/14/2023 16:01
+Last updated at 08/14/2023 16:02
