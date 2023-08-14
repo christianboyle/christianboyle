@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aknxnYzGasRKGWnz-UcKoxw-t500x500.jpg">](https://soundcloud.com/lilkevo303/bubble_koi)
 
-**Artist**: Dan Larkin 
+**Artist**: Lil Kevo 303 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Bubble Koi 194iv
 
-Last updated at 08/13/2023 21:22
+Last updated at 08/13/2023 21:25
