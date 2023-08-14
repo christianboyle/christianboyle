@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5GKGBmdDrxMzDjc-46yyNg-t500x500.jpg">](https://soundcloud.com/rezimusicas/knowubetter)
 
-**Artist**: Dan Larkin 
+**Artist**: REZI 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Know U Better
 
-Last updated at 08/14/2023 14:12
+Last updated at 08/14/2023 16:01
