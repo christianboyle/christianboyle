@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c84fEAZ641NGDcY0-hqQ7Pw-t500x500.jpg">](https://soundcloud.com/critical-music/calyx-riddim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: Critical Music 
+**Artist**: Dan Larkin 
 
-**Track**: Calyx - Riddim
+**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
 
-Last updated at 08/14/2023 16:02
+Last updated at 08/14/2023 18:48
