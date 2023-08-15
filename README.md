@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Hj1paFC17fB5KDr-pwkiUw-t500x500.jpg">](https://soundcloud.com/sebseb122/chesscheckerr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISg9PJn5nFo8Vpqn-duUbQA-t500x500.jpg">](https://soundcloud.com/sebseb122/mission-iimpossible)
 
 **Artist**: SEBii💫 
 
-**Track**: CHESS>CHECKErr [p. vvspipes + kimj]
+**Track**: MISSION iiMPOSSIBLE [p. sebseb122 + vvspipes + kimj]
 
-Last updated at 08/15/2023 13:01
+Last updated at 08/15/2023 13:02
