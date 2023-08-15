@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rU1tDfXgTlgMRpxO-ODLVzw-t500x500.jpg">](https://soundcloud.com/levity_music/levity-rising-tides-ft-lhasa-petik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7lx8aJmZAWlKRMw-A8KKPg-t500x500.jpg">](https://soundcloud.com/djlxl/deep-vibes-69)
 
-**Artist**: Levity 
+**Artist**: LxL 
 
-**Track**: Levity - Rising Tides (Ft. Lhasa Petik)
+**Track**: Deep Vibes #69 Melodic Techno [Kölsch, Kevin de Vries, Lipless, Danny Tenaglia, Avis Vox & more]
 
-Last updated at 08/15/2023 11:48
+Last updated at 08/15/2023 11:51
