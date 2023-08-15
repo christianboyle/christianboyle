@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUERzs4z0gmIZ9UV-001uyw-t500x500.jpg">](https://soundcloud.com/xxkarl69xx/there-it-is)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rU1tDfXgTlgMRpxO-ODLVzw-t500x500.jpg">](https://soundcloud.com/levity_music/levity-rising-tides-ft-lhasa-petik)
 
-**Artist**: Karl 
+**Artist**: Levity 
 
-**Track**: There It Is
+**Track**: Levity - Rising Tides (Ft. Lhasa Petik)
 
-Last updated at 08/15/2023 11:47
+Last updated at 08/15/2023 11:48
