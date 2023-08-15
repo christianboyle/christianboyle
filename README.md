@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: Dan Larkin 
+**Artist**: Jukaa 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
 
-Last updated at 08/14/2023 19:40
+Last updated at 08/14/2023 19:43
