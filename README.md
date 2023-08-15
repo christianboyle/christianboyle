@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Dan Larkin 
 
-**Track**: adorablesteak96 - its just smoke
+**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
 
-Last updated at 08/14/2023 19:33
+Last updated at 08/14/2023 19:40
