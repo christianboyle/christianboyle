@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7lx8aJmZAWlKRMw-A8KKPg-t500x500.jpg">](https://soundcloud.com/djlxl/deep-vibes-69)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Hj1paFC17fB5KDr-pwkiUw-t500x500.jpg">](https://soundcloud.com/sebseb122/chesscheckerr)
 
-**Artist**: LxL 
+**Artist**: SEBii💫 
 
-**Track**: Deep Vibes #69 Melodic Techno [Kölsch, Kevin de Vries, Lipless, Danny Tenaglia, Avis Vox & more]
+**Track**: CHESS>CHECKErr [p. vvspipes + kimj]
 
-Last updated at 08/15/2023 11:51
+Last updated at 08/15/2023 13:01
