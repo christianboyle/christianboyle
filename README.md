@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvdZJwD1sByNFDey-1n9ySg-t500x500.jpg">](https://soundcloud.com/sol-fiesta/glow-in-the-dark-prty-anmlz?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPU8sgZOb2tsWe7i-ro3j2w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/adorablesteak96-its-just-smoke?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: SOL FIESTA 
+**Artist**: nightcore4totalsluts 
 
-**Track**: GLOW IN THE DARK
+**Track**: adorablesteak96 - its just smoke
 
-Last updated at 08/14/2023 19:29
+Last updated at 08/14/2023 19:33
