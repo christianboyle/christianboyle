@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcpoATDj7Rss1bFf-OzX4hQ-t500x500.jpg">](https://soundcloud.com/waxthieves/xg-tgif-waxthieves-remix?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvdZJwD1sByNFDey-1n9ySg-t500x500.jpg">](https://soundcloud.com/sol-fiesta/glow-in-the-dark-prty-anmlz?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: Waxthieves 
+**Artist**: SOL FIESTA 
 
-**Track**: XG - TGIF (Waxthieves Remix)
+**Track**: GLOW IN THE DARK
 
-Last updated at 08/14/2023 20:00
+Last updated at 08/14/2023 20:03
