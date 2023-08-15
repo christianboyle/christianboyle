@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000230030329-iar9we-t500x500.jpg">](https://soundcloud.com/wildvibesofficial/mornin-sun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Myp03GCK7icO4WYU-QyW6Qw-t500x500.jpg">](https://soundcloud.com/ruxton/insulin-ruxton-breathing-underwater)
 
-**Artist**: WildVibes 
+**Artist**: Rux • Ton 
 
-**Track**: Wholm & WildVibes - Mornin' Sun
+**Track**: InSulin & Rux Ton - Breathing Underwater
 
-Last updated at 08/15/2023 11:45
+Last updated at 08/15/2023 11:46
