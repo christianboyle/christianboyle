@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUezRWIJML3QPo6Z-F20amA-t500x500.jpg">](https://soundcloud.com/sebseb122/omiicron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jky7xHy9UYaYxQx7-BfsSgg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg-bass-edit?in=saxurn/sets/fartificial-intelligence)
 
-**Artist**: SEBii💫 
+**Artist**: Jukaa 
 
-**Track**: OMiiCRON [p. darkoivx]
+**Track**: Taylor Swift - 22 (Jukaa Bootleg) [Bass Edit]
 
-Last updated at 08/15/2023 17:25
+Last updated at 08/15/2023 17:28
