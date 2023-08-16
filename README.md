@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sO7LBCWmWj75fwS6-bI1f9A-t500x500.jpg">](https://soundcloud.com/djqbacki/qbacki-luzztrowe-konkursiwowav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2rcvB0Ij1uviLWEu-9zGS8g-t500x500.jpg">](https://soundcloud.com/bitbird/wavedash-walk-up-1?in=bitbird/sets/bitbird-gouldian-finch-5)
 
-**Artist**: Qbacki 
+**Artist**: bitbird 
 
-**Track**: QBACKI - Luzztrowe Konkursiwo
+**Track**: Wavedash - WALK UP
 
-Last updated at 08/16/2023 08:08
+Last updated at 08/16/2023 08:09
