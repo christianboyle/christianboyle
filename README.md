@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JN825T92Z2y878xI-C8p87g-t500x500.jpg">](https://soundcloud.com/danlrk/my-direction-remix?in=saxurn/sets/fartificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ga6xmbUlq17EAm9-JZZEFg-t500x500.jpg">](https://soundcloud.com/ivyhollivana/burrowing)
 
-**Artist**: Dan Larkin 
+**Artist**: Ivy Hollivana 
 
-**Track**: D-Code ft. Emma - My Direction (Dan Larkin Remix)
+**Track**: BURROWING // WITH KAVARI
 
-Last updated at 08/15/2023 19:16
+Last updated at 08/15/2023 19:20
