@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOlnJod2dbTFSaLV-BLyL0Q-t500x500.jpg">](https://soundcloud.com/bitbird/darby-x-tails-hearurvoice?in=bitbird/sets/bitbird-gouldian-finch-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sO7LBCWmWj75fwS6-bI1f9A-t500x500.jpg">](https://soundcloud.com/djqbacki/qbacki-luzztrowe-konkursiwowav)
 
-**Artist**: bitbird 
+**Artist**: Qbacki 
 
-**Track**: Darby x Tails - Hearurvoice
+**Track**: QBACKI - Luzztrowe Konkursiwo
 
-Last updated at 08/15/2023 19:33
+Last updated at 08/16/2023 08:08
