@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQeawD5EUyk7X18k-9Oo9Kw-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/nooch-dunk-get-on-with-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AFg8rdH78BVcewD6-mNrkUA-t500x500.jpg">](https://soundcloud.com/satellite_era/gonima-monostable)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: SATELLITE ERA 
 
-**Track**: Nooch & Dunk - Get On With It
+**Track**: gonima - Monostable (Escapism - out September 15th)
 
-Last updated at 08/17/2023 13:19
+Last updated at 08/17/2023 13:24
