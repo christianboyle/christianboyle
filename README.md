@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AFg8rdH78BVcewD6-mNrkUA-t500x500.jpg">](https://soundcloud.com/satellite_era/gonima-monostable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtdyLaejpcN6Btvy-jcZQaw-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/beyond)
 
-**Artist**: SATELLITE ERA 
+**Artist**: Electrostep Network 
 
-**Track**: gonima - Monostable (Escapism - out September 15th)
+**Track**: MESHIKAN & KILLAKA - Beyond [Electrostep Network & Hard Nation EXCLUSIVE]
 
-Last updated at 08/17/2023 13:24
+Last updated at 08/17/2023 13:29
