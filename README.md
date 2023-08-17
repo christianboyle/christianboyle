@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISg9PJn5nFo8Vpqn-duUbQA-t500x500.jpg">](https://soundcloud.com/sebseb122/mission-iimpossible)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aElQPtPIO3kq4WSz-Wn7u9A-t500x500.jpg">](https://soundcloud.com/xxfuneral/obsessed)
 
-**Artist**: SEBii💫 
+**Artist**: funeral2 
 
-**Track**: MISSION iiMPOSSIBLE [p. sebseb122 + vvspipes + kimj]
+**Track**: obsessed
 
-Last updated at 08/17/2023 14:43
+Last updated at 08/17/2023 14:44
