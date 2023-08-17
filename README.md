@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Myp03GCK7icO4WYU-QyW6Qw-t500x500.jpg">](https://soundcloud.com/ruxton/insulin-ruxton-breathing-underwater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BE8g9TYyyN1ZYzWu-0G8B7w-t500x500.jpg">](https://soundcloud.com/whoslimboslice/aphotic)
 
-**Artist**: Rux • Ton 
+**Artist**: Limbo Slice 
 
-**Track**: InSulin & Rux Ton - Breathing Underwater
+**Track**: Aphotic
 
-Last updated at 08/17/2023 15:53
+Last updated at 08/17/2023 15:58
