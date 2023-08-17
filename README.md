@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aElQPtPIO3kq4WSz-Wn7u9A-t500x500.jpg">](https://soundcloud.com/xxfuneral/obsessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydlX3LgyEogzihyK-78ifHA-t500x500.jpg">](https://soundcloud.com/cld/lastminute)
 
-**Artist**: funeral2 
+**Artist**: cld 
 
-**Track**: obsessed
+**Track**: lastminute w/ akkiro + deepinparis + crusey + c4pri (mycorpsebride)
 
-Last updated at 08/17/2023 14:44
+Last updated at 08/17/2023 14:47
