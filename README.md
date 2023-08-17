@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RA6VRlYCzu1j3Q84-5KGKfA-t500x500.jpg">](https://soundcloud.com/chanelfather/never)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ab8Y1xm4PQU84uOE-yyHbCA-t500x500.jpg">](https://soundcloud.com/shaggnb/joystick-w-ericdoa-endie-4am-1)
 
-**Artist**: chanelfather 
+**Artist**: shag 
 
-**Track**: Never (blessque, whatever51 & lj)
+**Track**: joystick ft ericdoa & endie prod 4am
 
-Last updated at 08/17/2023 14:52
+Last updated at 08/17/2023 14:55
