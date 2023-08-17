@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtdyLaejpcN6Btvy-jcZQaw-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/beyond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74JFtQgDGwypjAsj-w97BRw-t500x500.jpg">](https://soundcloud.com/edmidentity/edmid-guest-mix-381-monika-santucci?in=club_for_losers/sets/reheated-by-tuna-melt-porter)
 
-**Artist**: Electrostep Network 
+**Artist**: EDM Identity 
 
-**Track**: MESHIKAN & KILLAKA - Beyond [Electrostep Network & Hard Nation EXCLUSIVE]
+**Track**: EDMID Guest Mix 381 || Monika Santucci
 
-Last updated at 08/17/2023 13:29
+Last updated at 08/17/2023 13:40
