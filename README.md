@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BE8g9TYyyN1ZYzWu-0G8B7w-t500x500.jpg">](https://soundcloud.com/whoslimboslice/aphotic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L07CyWVkIRhsdX9O-2h87mg-t500x500.jpg">](https://soundcloud.com/animalia-label/katiusha-animalia-mix)
 
-**Artist**: Limbo Slice 
+**Artist**: Animalia 
 
-**Track**: Aphotic
+**Track**: Animix One Hundred & Thirty Seven: Katiusha
 
-Last updated at 08/17/2023 15:58
+Last updated at 08/17/2023 16:01
