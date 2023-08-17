@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D5HRqeDLxJG2tNW0-oeo8eg-t500x500.jpg">](https://soundcloud.com/e13venthirteen/2much2spend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RA6VRlYCzu1j3Q84-5KGKfA-t500x500.jpg">](https://soundcloud.com/chanelfather/never)
 
-**Artist**: eleven thirteen 
+**Artist**: chanelfather 
 
-**Track**: 2much2spend
+**Track**: Never (blessque, whatever51 & lj)
 
-Last updated at 08/17/2023 14:49
+Last updated at 08/17/2023 14:52
