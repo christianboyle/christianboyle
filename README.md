@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7uvX61yzBHXLlPV-cLd2sg-t500x500.jpg">](https://soundcloud.com/nvtetrap/death-cycle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tZp0ZJ0yYJeacA5l-o5sKoQ-t500x500.jpg">](https://soundcloud.com/playmerecords/mish-greeen-feel-your-pulse)
 
-**Artist**: NVTE 
+**Artist**: Play Me Records 
 
-**Track**: DEATH CYCLE
+**Track**: Mish & Greeen - Feel Your Pulse
 
-Last updated at 08/18/2023 10:03
+Last updated at 08/18/2023 10:04
