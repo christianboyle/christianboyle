@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwtTs8tbs4caFts3-yzYp3Q-t500x500.jpg">](https://soundcloud.com/dj_doci/makeba-docivipedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WWw8lvsA8Bfpjk1Y-ZXqMPw-t500x500.jpg">](https://soundcloud.com/meirlin_music/super-mario-bros-theme-meirlin-flip)
 
-**Artist**: DØCI 
+**Artist**: MEIRLIN 
 
-**Track**: Makeba (DØCI VIP EDIT)
+**Track**: Super Mario Bros Theme (MEIRLIN Flip) [Free Download]
 
-Last updated at 08/18/2023 12:56
+Last updated at 08/18/2023 13:00
