@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ab8Y1xm4PQU84uOE-yyHbCA-t500x500.jpg">](https://soundcloud.com/shaggnb/joystick-w-ericdoa-endie-4am-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydlX3LgyEogzihyK-78ifHA-t500x500.jpg">](https://soundcloud.com/cld/lastminute)
 
-**Artist**: shag 
+**Artist**: cld 
 
-**Track**: joystick ft ericdoa & endie prod 4am
+**Track**: lastminute w/ akkiro + deepinparis + crusey + c4pri (mycorpsebride)
 
-Last updated at 08/18/2023 14:33
+Last updated at 08/18/2023 14:35
