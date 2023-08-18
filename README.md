@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EO2mp4pX4yCTBhBH-Rst49Q-t500x500.jpg">](https://soundcloud.com/7onyofficial/dlmlt-7onyremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSjuLYaKAfAtbHqf-Co1Lww-t500x500.jpg">](https://soundcloud.com/karezza_beatz/im-n-luv-wit-a-stripper-karezza-remix)
 
-**Artist**: 7ONY 
+**Artist**: Karezza 
 
-**Track**: SKRILLEX x BOBBY RAPS - DON'T LEAVE ME LIKE THIS (7ONY REMIX)
+**Track**: T-pain - I'm N Luv Wit A Stripper (Karezza Remix) (FREE DL)
 
-Last updated at 08/18/2023 10:00
+Last updated at 08/18/2023 10:02
