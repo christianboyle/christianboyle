@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjgEJHixQllJjGi3-zoZ81Q-t500x500.jpg">](https://soundcloud.com/morganbitters/wayo-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdU5RflIAzD0zv8Q-X6F8Yw-t500x500.jpg">](https://soundcloud.com/rbkmade/mouthwash-and-insecurity)
 
-**Artist**: morgan bitters 
+**Artist**: rbk made 
 
-**Track**: WAYO TOOL
+**Track**: mouthwash and insecurity
 
-Last updated at 08/18/2023 12:36
+Last updated at 08/18/2023 12:41
