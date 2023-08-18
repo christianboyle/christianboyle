@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rF2QCBZI3CfpZ1sg-HfL6lw-t500x500.jpg">](https://soundcloud.com/rausch_musica/rausch-double-down-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hpz78u245uNEWGzy-POnJUQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-sikoti-too-faded?in=rave_alert/sets/rave48-sikoti-make-that-body)
 
-**Artist**: Rausch 
+**Artist**: Rave Alert 
 
-**Track**: Rausch - Double Down (FREE DL + VISUALIZER)
+**Track**: [PREMIERE] SIKOTI - Too Faded
 
-Last updated at 08/18/2023 09:54
+Last updated at 08/18/2023 09:56
