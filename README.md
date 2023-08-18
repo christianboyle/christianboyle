@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3l91KuIJfjCt8wZO-42u0vw-t500x500.jpg">](https://soundcloud.com/m-bangkokelectro/jain-makeba-emm-hard-dance-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9ji2QtUmF6v-0-t500x500.png">](https://soundcloud.com/leeroseuk/pump-up-the-jam)
 
-**Artist**: EMM 
+**Artist**: Lee Rose 
 
-**Track**: JAIN - MAKEBA (EMM HARD DANCE FLIP) 150 BPM
+**Track**: Pump Up the Jam
 
-Last updated at 08/18/2023 09:40
+Last updated at 08/18/2023 09:41
