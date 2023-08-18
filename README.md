@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8fS0mesI1CmAtPUk-6DFTig-t500x500.jpg">](https://soundcloud.com/dirtysnatcharecords/fti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3l91KuIJfjCt8wZO-42u0vw-t500x500.jpg">](https://soundcloud.com/m-bangkokelectro/jain-makeba-emm-hard-dance-flip)
 
-**Artist**: DirtySnatcha Records 
+**Artist**: EMM 
 
-**Track**: BBX, MEECHIE MURDA & GEEKU - FTI
+**Track**: JAIN - MAKEBA (EMM HARD DANCE FLIP) 150 BPM
 
-Last updated at 08/18/2023 07:25
+Last updated at 08/18/2023 09:40
