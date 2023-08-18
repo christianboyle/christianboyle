@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5igINhii0sM1Z3P-qzCztA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/groundcontrol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tcvxG4XGcKUSTwbQ-RkVEmQ-t500x500.jpg">](https://soundcloud.com/destinuna/riskrunner-solenya-hold-me-close)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Destinuna 
 
-**Track**: Psyoptic & Rekka Wubz - Ground Control
+**Track**: RISKRUNNER & Solenya - Hold Me Close
 
-Last updated at 08/18/2023 09:48
+Last updated at 08/18/2023 09:49
