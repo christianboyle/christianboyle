@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w4e4TEFzigZ1-0-t500x500.png">](https://soundcloud.com/b1rdieaus/how-will-i-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cSn8PaZA6VTB-0-t500x500.jpg">](https://soundcloud.com/blrofficial/turn-it-around-baby)
 
-**Artist**: b1rdie 
+**Artist**: BLR 
 
-**Track**: How Will I Know
+**Track**: Turn It Around Baby
 
-Last updated at 08/18/2023 07:21
+Last updated at 08/18/2023 07:22
