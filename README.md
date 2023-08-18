@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9hEtU8c49TkEp5T-ONM2CA-t500x500.jpg">](https://soundcloud.com/ophelia_records/au5-cyazon-tyler-graves-before-you-leave-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjgEJHixQllJjGi3-zoZ81Q-t500x500.jpg">](https://soundcloud.com/morganbitters/wayo-tool)
 
-**Artist**: Ophelia Records 
+**Artist**: morgan bitters 
 
-**Track**: Au5, Cyazon & Tyler Graves - Before You Leave
+**Track**: WAYO TOOL
 
-Last updated at 08/18/2023 12:32
+Last updated at 08/18/2023 12:36
