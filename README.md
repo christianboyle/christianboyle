@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWjytspHktX4WJVM-9EPK9Q-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0azTe8n31LZybQ8C-KPzU5w-t500x500.jpg">](https://soundcloud.com/spagheddy/sorry)
 
-**Artist**: NIGHTMODE 
+**Artist**: SPAG HEDDY 
 
-**Track**: Ghost In Real Life & Slippy - Youth
+**Track**: SORRY
 
-Last updated at 08/19/2023 09:52
+Last updated at 08/19/2023 09:59
