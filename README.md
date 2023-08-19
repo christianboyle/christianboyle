@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6AHYVuwwVw6raFN-iip8Hg-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/honu-gobbs-regularassrandy-no-peace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IdqORSFlA6WYEZB9-gQ9JGw-t500x500.jpg">](https://soundcloud.com/frank-zozky/perfecto)
 
-**Artist**: DramaClubRecs 
+**Artist**: Frank Zozky 
 
-**Track**: HONÜ, GOBBS, RegularAssRandy - No Peace
+**Track**: Perfecto feat Strategy Dowie
 
-Last updated at 08/19/2023 10:01
+Last updated at 08/19/2023 10:02
