@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjgEJHixQllJjGi3-zoZ81Q-t500x500.jpg">](https://soundcloud.com/morganbitters/wayo-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ve6nRz92a6uNpbcY-rtU7ww-t500x500.jpg">](https://soundcloud.com/dutypaid/lemme-see-whatchu-got)
 
-**Artist**: morgan bitters 
+**Artist**: DUTY PAID 
 
-**Track**: WAYO TOOL
+**Track**: Lemme See Whatchu Got
 
-Last updated at 08/18/2023 14:53
+Last updated at 08/19/2023 08:21
