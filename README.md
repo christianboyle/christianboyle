@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iJbXD9U0O8bbGrPP-U4qL7A-t500x500.jpg">](https://soundcloud.com/bo0tyleak/berx-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6AHYVuwwVw6raFN-iip8Hg-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/honu-gobbs-regularassrandy-no-peace)
 
-**Artist**: BOOTY LEAK 
+**Artist**: DramaClubRecs 
 
-**Track**: BETASTIC + Friedensbote & Booty Leak - Feel About You (Berx Remix)
+**Track**: HONÜ, GOBBS, RegularAssRandy - No Peace
 
-Last updated at 08/19/2023 10:00
+Last updated at 08/19/2023 10:01
