@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoiUZaVQJW7sz6GW-t4dyIg-t500x500.jpg">](https://soundcloud.com/47negus/mello-prod-kbl-anem0s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXUrh4EM0GpFL0VG-7YX52w-t500x500.jpg">](https://soundcloud.com/y4ndere/y2k-forever-ep)
 
-**Artist**: 47negus 
+**Artist**: yandere 
 
-**Track**: MELLO prod. KBL & anem0s
+**Track**: y2k forever ep
 
-Last updated at 08/19/2023 18:18
+Last updated at 08/19/2023 18:19
