@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix?in=lilburtdogg/sets/wave-dogg-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoiUZaVQJW7sz6GW-t4dyIg-t500x500.jpg">](https://soundcloud.com/47negus/mello-prod-kbl-anem0s)
 
-**Artist**: Burt Dogg 
+**Artist**: 47negus 
 
-**Track**: IMGOD (DnB REMIX)
+**Track**: MELLO prod. KBL & anem0s
 
-Last updated at 08/19/2023 18:17
+Last updated at 08/19/2023 18:18
