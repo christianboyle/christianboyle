@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6ydPXQnptc3wjLM-Nc9g1A-t500x500.jpg">](https://soundcloud.com/jadudala/newjuice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix?in=lilburtdogg/sets/wave-dogg-mix)
 
-**Artist**: Jadū Dala 
+**Artist**: Burt Dogg 
 
-**Track**: Hamshyre - new juice (JADŪ218)
+**Track**: IMGOD (DnB REMIX)
 
-Last updated at 08/19/2023 18:16
+Last updated at 08/19/2023 18:17
