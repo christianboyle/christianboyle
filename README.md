@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ve6nRz92a6uNpbcY-rtU7ww-t500x500.jpg">](https://soundcloud.com/dutypaid/lemme-see-whatchu-got)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWjytspHktX4WJVM-9EPK9Q-t500x500.jpg">](https://soundcloud.com/nightmoderecs/youth)
 
-**Artist**: DUTY PAID 
+**Artist**: NIGHTMODE 
 
-**Track**: Lemme See Whatchu Got
+**Track**: Ghost In Real Life & Slippy - Youth
 
-Last updated at 08/19/2023 08:21
+Last updated at 08/19/2023 09:52
