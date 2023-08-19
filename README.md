@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kwbi1qx4t9Rq1eZg-N7NbRA-t500x500.jpg">](https://soundcloud.com/djbertoorlando/berto-axel-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLdkPDDonm6CtTwC-Hs7USg-t500x500.jpg">](https://soundcloud.com/nmondry/miserybusinessdnb)
 
-**Artist**: Berto 
+**Artist**: Mondry 
 
-**Track**: Berto - Axel V
+**Track**: Misery Business (Mondry x Jon Clifton dnb remix) - Paramore
 
-Last updated at 08/19/2023 10:08
+Last updated at 08/19/2023 12:04
