@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXUrh4EM0GpFL0VG-7YX52w-t500x500.jpg">](https://soundcloud.com/y4ndere/y2k-forever-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0q4XIczJsnXGWhT-kEFIkg-t500x500.jpg">](https://soundcloud.com/besthouseremixes/ne-yo-miss-independent-dylan-fox-remix)
 
-**Artist**: yandere 
+**Artist**: Best House Remixes 
 
-**Track**: y2k forever ep
+**Track**: Ne-Yo - Miss Independent (Dylan Fox Remix)
 
-Last updated at 08/19/2023 18:19
+Last updated at 08/20/2023 11:44
