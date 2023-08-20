@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIwjynlFluzKAzzX-eEiMEg-t500x500.jpg">](https://soundcloud.com/frank-zozky/closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uezilWAWFWqqMY1h-N7gzFQ-t500x500.jpg">](https://soundcloud.com/knox-the-beatmaker-1/max-out-prod-by-knox)
 
-**Artist**: Frank Zozky 
+**Artist**: KNO❌: The Beatmaker 
 
-**Track**: Closer
+**Track**: Max Out' (Prod By. KNO❌)
 
-Last updated at 08/20/2023 12:58
+Last updated at 08/20/2023 12:59
