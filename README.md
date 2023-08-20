@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VA1fq8YQ2tLPfn24-tPC0hw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-hypertechno-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytRGcoiGaJS9jJQf-10XwWw-t500x500.jpg">](https://soundcloud.com/bad-taste-recordings/minor-rain-spot)
 
-**Artist**: BRAVO 
+**Artist**: Bad Taste Recordings 
 
-**Track**: BRAVO HYPERTECHNO MIX
+**Track**: Minor Rain - Spot
 
-Last updated at 08/20/2023 17:50
+Last updated at 08/20/2023 18:02
