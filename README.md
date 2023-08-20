@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBzWSuxEeRrDhT11-grc3nQ-t500x500.jpg">](https://soundcloud.com/koisum/wot)
 
-**Artist**: Burt Dogg 
+**Artist**: koi sum 
 
-**Track**: IMGOD (DnB REMIX)
+**Track**: wot
 
-Last updated at 08/20/2023 17:47
+Last updated at 08/20/2023 17:48
