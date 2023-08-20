@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X0q4XIczJsnXGWhT-kEFIkg-t500x500.jpg">](https://soundcloud.com/besthouseremixes/ne-yo-miss-independent-dylan-fox-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYonzuiwDv1WmqFv-OB19Kw-t500x500.jpg">](https://soundcloud.com/pharaohphonix/thomas-xavier-play-hard-original-mix)
 
-**Artist**: Best House Remixes 
+**Artist**: Pharaoh Phonix 
 
-**Track**: Ne-Yo - Miss Independent (Dylan Fox Remix)
+**Track**: Thomas Xavier - Play Hard (Original Mix)
 
-Last updated at 08/20/2023 11:44
+Last updated at 08/20/2023 11:45
