@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytRGcoiGaJS9jJQf-10XwWw-t500x500.jpg">](https://soundcloud.com/bad-taste-recordings/minor-rain-spot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ak0lvFdekK1WOMi7-UsAAaQ-t500x500.jpg">](https://soundcloud.com/skantia/spearnet)
 
-**Artist**: Bad Taste Recordings 
+**Artist**: skantia 
 
-**Track**: Minor Rain - Spot
+**Track**: Spear.net
 
-Last updated at 08/20/2023 18:02
+Last updated at 08/20/2023 18:03
