@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VA1fq8YQ2tLPfn24-tPC0hw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-hypertechno-mix-1)
 
 **Artist**: BRAVO 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: BRAVO HYPERTECHNO MIX
 
-Last updated at 08/20/2023 17:49
+Last updated at 08/20/2023 17:50
