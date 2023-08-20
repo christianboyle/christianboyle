@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ak0lvFdekK1WOMi7-UsAAaQ-t500x500.jpg">](https://soundcloud.com/skantia/spearnet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ym0Ix14F5XqyRAqL-H1Y6hQ-t500x500.jpg">](https://soundcloud.com/datatransmissiondnb/yatuza-ft-nc-17-rollers-rights-hyperactivity-music)
 
-**Artist**: skantia 
+**Artist**: DT DNB 
 
-**Track**: Spear.net
+**Track**: Yatuza ft. NC-17 'Rollers Rights' [Hyperactivity Music]
 
-Last updated at 08/20/2023 18:03
+Last updated at 08/20/2023 18:04
