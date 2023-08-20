@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-850hggwxNgKy3lUw-VhdSXw-t500x500.jpg">](https://soundcloud.com/trujeger/vortex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIwjynlFluzKAzzX-eEiMEg-t500x500.jpg">](https://soundcloud.com/frank-zozky/closer)
 
-**Artist**: jéger 
+**Artist**: Frank Zozky 
 
-**Track**: Vortex
+**Track**: Closer
 
-Last updated at 08/20/2023 11:47
+Last updated at 08/20/2023 12:58
