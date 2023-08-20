@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZq2AyAyYhLNh7OR-FuwDFw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-035-remnantexe-flow-state)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-850hggwxNgKy3lUw-VhdSXw-t500x500.jpg">](https://soundcloud.com/trujeger/vortex)
 
-**Artist**: Quality Goods Records 
+**Artist**: jéger 
 
-**Track**: QGRS-035 | REMNANT.exe - Flow State
+**Track**: Vortex
 
-Last updated at 08/20/2023 11:46
+Last updated at 08/20/2023 11:47
