@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBzWSuxEeRrDhT11-grc3nQ-t500x500.jpg">](https://soundcloud.com/koisum/wot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix)
 
-**Artist**: koi sum 
+**Artist**: BRAVO 
 
-**Track**: wot
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 08/20/2023 17:48
+Last updated at 08/20/2023 17:49
