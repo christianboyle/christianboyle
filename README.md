@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HA98xJNxRHfqd2Up-sVjj8Q-t500x500.jpg">](https://soundcloud.com/dooley_sound/lost-in-the-wind-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6ydPXQnptc3wjLM-Nc9g1A-t500x500.jpg">](https://soundcloud.com/jadudala/newjuice)
 
-**Artist**: Dooley 
+**Artist**: Jadū Dala 
 
-**Track**: Lost in the Wind
+**Track**: Hamshyre - new juice (JADŪ218)
 
-Last updated at 08/21/2023 12:21
+Last updated at 08/21/2023 12:23
