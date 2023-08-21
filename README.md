@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6nqH9EjQpfLUFzg-0kNMZQ-t500x500.jpg">](https://soundcloud.com/acyanmusic/cherry-blossom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvlWqOuUcOZgjoFu-mqyAzA-t500x500.jpg">](https://soundcloud.com/slowpalace/something-to-believe)
 
-**Artist**: Acyan 
+**Artist**: Slowpalace 
 
-**Track**: Acyan - CHERRY BLOSSOM
+**Track**: SOMETHING TO BELIEVE
 
-Last updated at 08/21/2023 12:12
+Last updated at 08/21/2023 12:13
