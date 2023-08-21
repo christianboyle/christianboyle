@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGHoooS8ALcGdrdl-rFwOzQ-t500x500.jpg">](https://soundcloud.com/itsryancase/allnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mtPtVuABXWMCzwiq-gUlNgg-t500x500.jpg">](https://soundcloud.com/futurehousemusic/smack-bla-bla-bla)
 
-**Artist**: Ryan Case 
+**Artist**: Future House Music 
 
-**Track**: ALL NIGHT
+**Track**: SMACK - Bla Bla Bla
 
-Last updated at 08/21/2023 13:44
+Last updated at 08/21/2023 13:45
