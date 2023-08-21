@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKfFf9m8HhqA8Vz3-n3NtjQ-t500x500.jpg">](https://soundcloud.com/kastra-bootlegs/supershykastra-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wkIplyP5CzWYYKcg-PuCSBQ-t500x500.jpg">](https://soundcloud.com/houseofhustle/fantom-freq-riffa-she-so-3)
 
-**Artist**: Kastra [Bootlegs] 
+**Artist**: House Of Hustle 
 
-**Track**: NewJeans (뉴진스) - Super Shy (Kastra Remix)
+**Track**: Fantom Freq, Riffa - She So Thicc (Original Mix)
 
-Last updated at 08/21/2023 12:15
+Last updated at 08/21/2023 12:16
