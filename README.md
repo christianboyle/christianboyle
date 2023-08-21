@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ModyyN5qyzDTLSWX-t7rYuw-t500x500.jpg">](https://soundcloud.com/polyx-official/im-a-freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PU0twwJszbQc85bD-EZym9g-t500x500.jpg">](https://soundcloud.com/jadudala/riot-sold-my-soul-jadu218)
 
-**Artist**: POLYX 
+**Artist**: Jadū Dala 
 
-**Track**: I'm a freak
+**Track**: RIOT - Sold My Soul (JADŪ219)
 
-Last updated at 08/21/2023 13:48
+Last updated at 08/21/2023 13:49
