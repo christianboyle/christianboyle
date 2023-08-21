@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J6nqH9EjQpfLUFzg-0kNMZQ-t500x500.jpg">](https://soundcloud.com/acyanmusic/inside?in=acyanmusic/sets/masculture-otherwrld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGHoooS8ALcGdrdl-rFwOzQ-t500x500.jpg">](https://soundcloud.com/itsryancase/allnight)
 
-**Artist**: Acyan 
+**Artist**: Ryan Case 
 
-**Track**: Acyan - INSIDE
+**Track**: ALL NIGHT
 
-Last updated at 08/21/2023 13:43
+Last updated at 08/21/2023 13:44
