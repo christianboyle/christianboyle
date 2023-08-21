@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvFM2yzQDnbY5xs4-XRRzSw-t500x500.jpg">](https://soundcloud.com/circuselectric/aether-one-x-glnna-world-was-ours-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HA98xJNxRHfqd2Up-sVjj8Q-t500x500.jpg">](https://soundcloud.com/dooley_sound/lost-in-the-wind-1)
 
-**Artist**: Circus Electric 
+**Artist**: Dooley 
 
-**Track**: Aether One x GLNNA - World Was Ours
+**Track**: Lost in the Wind
 
-Last updated at 08/21/2023 12:18
+Last updated at 08/21/2023 12:21
