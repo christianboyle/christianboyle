@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaudM7zsHz2ELSYq-lLZXmQ-t500x500.jpg">](https://soundcloud.com/sportmodemusic/thresh-n-sport-gold-dust-rmx?in=threshdubs/sets/dj-fresh-gold-dust-sportmode)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCnTiTlPJURaHGtL-0Cpotg-t500x500.jpg">](https://soundcloud.com/craigspree/live-at-figment-at-rok-in-st-paul-mn-aug-11-2023-paul-knox)
 
-**Artist**: SPORTMODE 
+**Artist**: Paul Knox / DJ Spree 
 
-**Track**: DJ Fresh - Gold Dust (THRESH & SPORTMODE Remix) [FREE DL]
+**Track**: LIVE at Figment at ROK in St Paul, MN - Aug 11, 2023 - Paul Knox
 
-Last updated at 08/21/2023 13:50
+Last updated at 08/21/2023 13:51
