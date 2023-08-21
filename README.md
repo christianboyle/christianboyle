@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pcZfnR8tsGRVXtRc-renypg-t500x500.jpg">](https://soundcloud.com/mau5trap/jawns-club-perdition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bKfFf9m8HhqA8Vz3-n3NtjQ-t500x500.jpg">](https://soundcloud.com/kastra-bootlegs/supershykastra-remix)
 
-**Artist**: mau5trap 
+**Artist**: Kastra [Bootlegs] 
 
-**Track**: JAWNS - Club Perdition
+**Track**: NewJeans (뉴진스) - Super Shy (Kastra Remix)
 
-Last updated at 08/21/2023 12:14
+Last updated at 08/21/2023 12:15
