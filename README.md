@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBzWSuxEeRrDhT11-grc3nQ-t500x500.jpg">](https://soundcloud.com/koisum/wot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJwiDhMvhOvBCbvN-6PMMuA-t500x500.jpg">](https://soundcloud.com/ian-suryadi/bon-jovi-its-my-life-l3xology-remix)
 
-**Artist**: koi sum 
+**Artist**: Dj L3xology 
 
-**Track**: wot
+**Track**: Bon Jovi - Its My Life ( L3xology Hard Mix 2023 )
 
-Last updated at 08/22/2023 13:58
+Last updated at 08/22/2023 14:01
