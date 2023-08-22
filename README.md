@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-npxSonGro6czL5p7-T1TFXA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/the-weeknd-daft-punk-starboy-amice-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXUrh4EM0GpFL0VG-7YX52w-t500x500.jpg">](https://soundcloud.com/y4ndere/y2k-forever-ep)
 
-**Artist**: Best House Remixes 
+**Artist**: yandere 
 
-**Track**: The Weeknd & Daft Punk - Starboy (Amice Remix)
+**Track**: y2k forever ep
 
-Last updated at 08/22/2023 14:52
+Last updated at 08/22/2023 14:56
