@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdU5RflIAzD0zv8Q-X6F8Yw-t500x500.jpg">](https://soundcloud.com/rbkmade/mouthwash-and-insecurity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBzWSuxEeRrDhT11-grc3nQ-t500x500.jpg">](https://soundcloud.com/koisum/wot)
 
-**Artist**: rbk made 
+**Artist**: koi sum 
 
-**Track**: mouthwash and insecurity (ft. Jassey)
+**Track**: wot
 
-Last updated at 08/22/2023 13:56
+Last updated at 08/22/2023 13:58
