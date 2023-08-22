@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NCnTiTlPJURaHGtL-0Cpotg-t500x500.jpg">](https://soundcloud.com/craigspree/live-at-figment-at-rok-in-st-paul-mn-aug-11-2023-paul-knox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qnFYGRsUN4CiYbRy-MsTMLw-t500x500.jpg">](https://soundcloud.com/all172things/neibex-discharge-premiere)
 
-**Artist**: Paul Knox / DJ Spree 
+**Artist**: All172Things 
 
-**Track**: LIVE at Figment at ROK in St Paul, MN - Aug 11, 2023 - Paul Knox
+**Track**: Neibex - Discharge [Premiere]
 
-Last updated at 08/21/2023 13:51
+Last updated at 08/22/2023 09:36
