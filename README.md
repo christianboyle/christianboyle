@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydlX3LgyEogzihyK-78ifHA-t500x500.jpg">](https://soundcloud.com/cld/lastminute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISg9PJn5nFo8Vpqn-duUbQA-t500x500.jpg">](https://soundcloud.com/sebseb122/mission-iimpossible)
 
-**Artist**: cld 
+**Artist**: SEBii💫 
 
-**Track**: lastminute w/ akkiro + deepinparis + crusey + c4pri (mycorpsebride)
+**Track**: MISSION iiMPOSSIBLE [p. sebseb122 + vvspipes + kimj]
 
-Last updated at 08/22/2023 14:24
+Last updated at 08/22/2023 14:26
