@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9ji2QtUmF6v-0-t500x500.png">](https://soundcloud.com/leeroseuk/pump-up-the-jam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwtTs8tbs4caFts3-yzYp3Q-t500x500.jpg">](https://soundcloud.com/dj_doci/makeba-docivipedit)
 
-**Artist**: Lee Rose 
+**Artist**: DØCI 
 
-**Track**: Pump Up the Jam
+**Track**: Makeba (DØCI VIP EDIT)
 
-Last updated at 08/22/2023 14:09
+Last updated at 08/22/2023 14:11
