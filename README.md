@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUezRWIJML3QPo6Z-F20amA-t500x500.jpg">](https://soundcloud.com/sebseb122/omiicron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Myp03GCK7icO4WYU-QyW6Qw-t500x500.jpg">](https://soundcloud.com/ruxton/insulin-ruxton-breathing-underwater)
 
-**Artist**: SEBii💫 
+**Artist**: Rux • Ton 
 
-**Track**: OMiiCRON [p. darkoivx]
+**Track**: InSulin & Rux Ton - Breathing Underwater
 
-Last updated at 08/22/2023 14:30
+Last updated at 08/22/2023 14:32
