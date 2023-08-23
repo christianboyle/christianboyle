@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PMM5O3OlXOP0W8He-8WzF8w-t500x500.jpg">](https://soundcloud.com/rxflxct/atb-ecstasy-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix)
 
-**Artist**: rxflxct 
+**Artist**: Burt Dogg 
 
-**Track**: ATB - Ecstasy (rxflxct Rework)
+**Track**: IMGOD (DnB REMIX)
 
-Last updated at 08/23/2023 14:23
+Last updated at 08/23/2023 14:26
