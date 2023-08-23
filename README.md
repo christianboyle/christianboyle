@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzcvB8vDne9las6x-tFNEEQ-t500x500.jpg">](https://soundcloud.com/itsmelvv/ill-be-there-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPRhnXoNashUdqIY-6S3flw-t500x500.jpg">](https://soundcloud.com/officialyula/loveagain)
 
-**Artist**: MELVV 
+**Artist**: YULA 
 
-**Track**: I'll Be There for You
+**Track**: Love Again (ft. em.)
 
-Last updated at 08/23/2023 14:06
+Last updated at 08/23/2023 14:10
