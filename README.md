@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Y0PiptFuaYKV9H2-YZ0WDQ-t500x500.jpg">](https://soundcloud.com/thebucknessofficial/wicked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GVSivZjQtAp94zA9-SAPavg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh353)
 
-**Artist**: The Buckness 
+**Artist**: Justice Hardcore 
 
-**Track**: Wicked
+**Track**: XIKINIE & ACTING - So In Love ⚠️OUT NOW⚠️
 
-Last updated at 08/24/2023 13:50
+Last updated at 08/24/2023 13:53
