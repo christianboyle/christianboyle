@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GVSivZjQtAp94zA9-SAPavg-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh353)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQ8M5jeb9kycogt7-ZXnuwA-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh354)
 
 **Artist**: Justice Hardcore 
 
-**Track**: XIKINIE & ACTING - So In Love ⚠️OUT NOW⚠️
+**Track**: LasaG - Away From U ⚠️OUT NOW⚠️
 
-Last updated at 08/24/2023 13:53
+Last updated at 08/24/2023 13:57
