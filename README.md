@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SZWnuAHPQgxNwVGw-zVNDeA-t500x500.jpg">](https://soundcloud.com/wearestudio/solace-second-encounter-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZoDdHUEPhO31-0-t500x500.jpg">](https://soundcloud.com/iamawakend/awakend-living-in-a-dream)
 
-**Artist**: STUDIO 
+**Artist**: AWAKEND 
 
-**Track**: Solace - Second Encounter [Premiere]
+**Track**: AWAKEND - Living In A Dream
 
-Last updated at 08/23/2023 19:41
+Last updated at 08/24/2023 11:57
