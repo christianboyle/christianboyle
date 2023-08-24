@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SZWnuAHPQgxNwVGw-zVNDeA-t500x500.jpg">](https://soundcloud.com/wearestudio/solace-second-encounter-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAnnedGV0r6akyJT-sCqruQ-t500x500.jpg">](https://soundcloud.com/neoravenation/the-buckness-warehouse-sound)
 
-**Artist**: STUDIO 
+**Artist**: Neorave Nation 
 
-**Track**: Solace - Second Encounter [Premiere]
+**Track**: The Buckness - Warehouse Sound
 
-Last updated at 08/24/2023 13:40
+Last updated at 08/24/2023 13:47
