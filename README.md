@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tvd0X284IwngszMm-YsPAlA-t500x500.jpg">](https://soundcloud.com/katebi/count-me-out)
 
-**Artist**: BRAVO 
+**Artist**: katebi 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: count me out
 
-Last updated at 08/24/2023 12:03
+Last updated at 08/24/2023 12:07
