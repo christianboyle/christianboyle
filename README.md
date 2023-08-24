@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-npxSonGro6czL5p7-T1TFXA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/the-weeknd-daft-punk-starboy-amice-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTowmCoIwUAVB9i-22sQoQ-t500x500.jpg">](https://soundcloud.com/gradient-map/brush?in=saxurn/sets/walks/)
 
-**Artist**: Best House Remixes 
+**Artist**: gradient map 
 
-**Track**: The Weeknd & Daft Punk - Starboy (Amice Remix)
+**Track**: onlytom - Brush
 
-Last updated at 08/24/2023 12:09
+Last updated at 08/24/2023 12:37
