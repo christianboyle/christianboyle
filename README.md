@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwTg8PdOsRvf7PJJ-kcZ8Ug-t500x500.jpg">](https://soundcloud.com/koastle/electric-oyster-vol-8)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/D09lv0QCtR4/hqdefault.jpg">](https://www.youtube.com/watch?v=D09lv0QCtR4)
 
-**Artist**: Koastle 
+**Artist**: 
+  
+    glaive
+  
+  
+  
+    glaive
+  
 
-**Track**: Electric Oyster Vol. 8
 
-Last updated at 08/25/2023 13:57
+
+
+
+ 
+
+**Track**: have a glaive summer.
+
+Last updated at 08/25/2023 16:30
