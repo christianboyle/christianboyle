@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KKb9lsWvMva1WII7-W3VJZw-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/siclf?in=electrostepnetwork/sets/somethingicanliveforep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
 
-**Artist**: Electrostep Network 
+**Artist**: Jukaa 
 
-**Track**: Ennaut - Something I Can Live For [Electrostep Network EXCLUSIVE]
+**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
 
-Last updated at 08/25/2023 12:43
+Last updated at 08/25/2023 12:44
