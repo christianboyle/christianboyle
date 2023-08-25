@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RISI7wYUQxMCesiS-yylvsg-t500x500.jpg">](https://soundcloud.com/phace/skrillex-fred-again-flowdan-rumble-phace-dnb-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZoDdHUEPhO31-0-t500x500.jpg">](https://soundcloud.com/iamawakend/awakend-living-in-a-dream)
 
-**Artist**: phace 
+**Artist**: AWAKEND 
 
-**Track**: SKRILLEX, FRED AGAIN.. & FLOWDAN - RUMBLE (PHACE'S DNB FLIP) [FREE DOWNLOAD]
+**Track**: AWAKEND - Living In A Dream
 
-Last updated at 08/24/2023 20:10
+Last updated at 08/24/2023 20:11
