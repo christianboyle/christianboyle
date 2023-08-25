@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ctrebLyXsm0-0-t500x500.jpg">](https://soundcloud.com/betaschen/draw-the-line)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ej1VEHcCi9ScG93O-yWbMlw-t500x500.jpg">](https://soundcloud.com/arcarine/alpine?in=wearenova/sets/orbit-24-uplifting-trance)
 
-**Artist**: Betaschen 
+**Artist**: Arcarine 
 
-**Track**: Draw The Line
+**Track**: Alpine
 
-Last updated at 08/25/2023 13:01
+Last updated at 08/25/2023 13:02
