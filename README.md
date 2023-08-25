@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9m0Pp9YiaTeEz07-AJQn4g-t500x500.jpg">](https://soundcloud.com/drippinginroses/wayn-brando-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KKb9lsWvMva1WII7-W3VJZw-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/siclf?in=electrostepnetwork/sets/somethingicanliveforep)
 
-**Artist**: DRIPPING IN ROSES 
+**Artist**: Electrostep Network 
 
-**Track**: WAYN BRANDO - Down
+**Track**: Ennaut - Something I Can Live For [Electrostep Network EXCLUSIVE]
 
-Last updated at 08/25/2023 12:41
+Last updated at 08/25/2023 12:43
