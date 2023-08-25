@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I3Bdeipgr8166Y8Q-EjQPMA-t500x500.jpg">](https://soundcloud.com/melodicforest/californiadunisco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WfTwqfiP4JhB-0-t500x500.jpg">](https://soundcloud.com/subjoi/rotary)
 
-**Artist**: Melodic Forest 
+**Artist**: Subjoi 
 
-**Track**: 2Pac, Dr.Dre - California Love (Dunisco Remix)
+**Track**: Rotary
 
-Last updated at 08/25/2023 12:47
+Last updated at 08/25/2023 12:49
