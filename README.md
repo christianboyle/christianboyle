@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LdeGcFGMohlgQ1Dq-Qb4S6g-t500x500.jpg">](https://soundcloud.com/dmusicpool/digital-music-pool-radio-schxzo-mix-episode-011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QnJO1VFlE04dXzXi-FJjnOw-t500x500.jpg">](https://soundcloud.com/crucast/ac13-do-i-wanna-know)
 
-**Artist**: Digital Music Pool Radio 
+**Artist**: CRUCAST 
 
-**Track**: Digital Music Pool Radio (Schxzo Mix) [Episode 011]
+**Track**: AC13 - Do I Wanna Know
 
-Last updated at 08/24/2023 20:40
+Last updated at 08/24/2023 20:41
