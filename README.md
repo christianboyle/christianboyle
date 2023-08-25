@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qc3x95XHozDZNhF4-L0H2Ig-t500x500.jpg">](https://soundcloud.com/songsbypocket/nasty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-elBdLvKHM4jcrfzi-iIxkng-t500x500.jpg">](https://soundcloud.com/uncutgem/shroom-jazz-1)
 
-**Artist**: Pocket 
+**Artist**: Uncut Gem 
 
-**Track**: NASTY (POCKET EDIT)
+**Track**: Mushroom Jazz
 
-Last updated at 08/24/2023 20:15
+Last updated at 08/24/2023 20:38
