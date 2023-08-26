@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/D09lv0QCtR4/hqdefault.jpg">](https://www.youtube.com/watch?v=D09lv0QCtR4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HziJjBmXcUhuMpSq-xRfBDg-t500x500.jpg">](https://soundcloud.com/wearenova/dyspro-ultramarine?in=wearenova/sets/orbit-24-uplifting-trance)
 
-**Artist**: 
-  
-    glaive
-  
-  
-  
-    glaive
-  
+**Artist**: Novatone 
 
+**Track**: Dyspro - Ultramarine
 
-
-
-
- 
-
-**Track**: have a glaive summer.
-
-Last updated at 08/25/2023 16:30
+Last updated at 08/26/2023 10:19
