@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I3EbWmGKObHSa13D-ieSNHw-t500x500.jpg">](https://soundcloud.com/wearenova/shady-monk-transcend-yourself?in=wearenova/sets/orbit-24-uplifting-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-crtHLlkpCuckTV3F-uLyPbw-t500x500.jpg">](https://soundcloud.com/taylor/the-creatures-come-together-for-a-meeting-3-interlude-w-cutspace)
 
-**Artist**: Novatone 
+**Artist**: taylor morgan 
 
-**Track**: Shady Monk - Transcend Yourself
+**Track**: insect meeting <3 (interlude) w/ cutspace
 
-Last updated at 08/26/2023 21:01
+Last updated at 08/26/2023 21:06
