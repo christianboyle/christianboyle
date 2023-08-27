@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txWGyWR7IwpA8jG6-VVYhRA-t500x500.jpg">](https://soundcloud.com/newari/biohazard?in=wearenova/sets/nmf-8-25-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-16lkkN6Jvy5LrQQ2-MyBByg-t500x500.jpg">](https://soundcloud.com/newari/endtimes8?in=wearenova/sets/nmf-8-25-23)
 
 **Artist**: Elvnlied 
 
-**Track**: [I.nfection] Biohazard [7]
+**Track**: [I.nfection] End Times [8]
 
-Last updated at 08/26/2023 23:52
+Last updated at 08/26/2023 23:57
