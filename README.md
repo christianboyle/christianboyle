@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I3EbWmGKObHSa13D-ieSNHw-t500x500.jpg">](https://soundcloud.com/wearenova/shady-monk-transcend-yourself?in=wearenova/sets/orbit-24-uplifting-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BwyDj8Sz2XhUNLgZ-ZRjODA-t500x500.jpg">](https://soundcloud.com/trip_drop/ftbm-trip-drop-ft-tree-gaud)
 
-**Artist**: Novatone 
+**Artist**: TRIP DROP 
 
-**Track**: Shady Monk - Transcend Yourself
+**Track**: F.T.B.M - TRIP DROP Ft. TREE GAUD
 
-Last updated at 08/27/2023 07:14
+Last updated at 08/27/2023 16:03
