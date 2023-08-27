@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w91JhMCufElBayG2-muDifg-t500x500.jpg">](https://soundcloud.com/gangstahouserec/christian-cross-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oscUuwBFdH0PyfYL-AB5T0g-t500x500.jpg">](https://soundcloud.com/lofreqrecords/slaythoven-elbow-grease)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: LoFreq 
 
-**Track**: Christian Cross - Night
+**Track**: Slaythoven - Elbow Grease
 
-Last updated at 08/26/2023 22:35
+Last updated at 08/26/2023 22:39
