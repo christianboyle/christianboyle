@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oscUuwBFdH0PyfYL-AB5T0g-t500x500.jpg">](https://soundcloud.com/lofreqrecords/slaythoven-elbow-grease)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gxmBFF65ZzOrnR9q-EykZXQ-t500x500.jpg">](https://soundcloud.com/yatixofficial/moving-silent)
 
-**Artist**: LoFreq 
+**Artist**: YATIX 
 
-**Track**: Slaythoven - Elbow Grease
+**Track**: MOVING SILENT [SOUNDCLOUD SPECIAL]
 
-Last updated at 08/26/2023 22:39
+Last updated at 08/26/2023 22:42
