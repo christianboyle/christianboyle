@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNiwzJ0iCKz2Izhd-gniaGA-t500x500.jpg">](https://soundcloud.com/disbandedbrkn/back2back?in=wearenova/sets/nmf-8-25-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txWGyWR7IwpA8jG6-VVYhRA-t500x500.jpg">](https://soundcloud.com/newari/biohazard?in=wearenova/sets/nmf-8-25-23)
 
-**Artist**: dxsbond 
+**Artist**: Elvnlied 
 
-**Track**: back2back
+**Track**: [I.nfection] Biohazard [7]
 
-Last updated at 08/26/2023 23:48
+Last updated at 08/26/2023 23:52
