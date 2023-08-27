@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohM4P8vG9pUzRI20-wqqkpg-t500x500.jpg">](https://soundcloud.com/galassoxperrotti/acid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w91JhMCufElBayG2-muDifg-t500x500.jpg">](https://soundcloud.com/gangstahouserec/christian-cross-night)
 
-**Artist**: Galasso X Perrotti 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Acid
+**Track**: Christian Cross - Night
 
-Last updated at 08/26/2023 22:30
+Last updated at 08/26/2023 22:35
