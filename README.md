@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zx3fG5XZT3osHRQz-dGqtoQ-t500x500.jpg">](https://soundcloud.com/xhalemusicofficial/bastille-pompeii-xhale-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k4cmdDmXnecyE2Mk-RmMTTQ-t500x500.jpg">](https://soundcloud.com/djblnmusic/jungkook-seven-bln-flip)
 
-**Artist**: XHALE 
+**Artist**: BLN 
 
-**Track**: Bastille - Pompeii ( XHALE HARDSTYLE Remix )[BUY = FREE DOWNLOAD]
+**Track**: Jungkook - Seven (BLN Flip)
 
-Last updated at 08/26/2023 22:49
+Last updated at 08/26/2023 22:52
