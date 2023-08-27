@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HjALO542P8RXn3G3-xfaGuw-t500x500.jpg">](https://soundcloud.com/jare_music/finer-things?in=electrostepnetworkpremiere/sets/jare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOztCz9Nf1WlfFFd-svGxcw-t500x500.jpg">](https://soundcloud.com/jare_music/jare-goodbye-mvniv-free-download?in=electrostepnetworkpremiere/sets/jare)
 
 **Artist**: JARE 
 
-**Track**: Jare x Danny Morrison - Finer Things
+**Track**: JARE - Goodbye MVNIV (Free Download)
 
-Last updated at 08/26/2023 21:20
+Last updated at 08/26/2023 21:24
