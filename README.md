@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmANyt1J5ERyLgK6-xtLpUQ-t500x500.jpg">](https://soundcloud.com/jare_music/nyc-hardcore-free-download?in=electrostepnetworkpremiere/sets/jare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NisDvz3ex2CBvyWg-E5YNHA-t500x500.jpg">](https://soundcloud.com/jare_music/mvnic-episode-2?in=electrostepnetworkpremiere/sets/jare)
 
 **Artist**: JARE 
 
-**Track**: NYC Hardcore (FREE DOWNLOAD)
+**Track**: Big ick Energy 2
 
-Last updated at 08/26/2023 21:29
+Last updated at 08/26/2023 21:32
