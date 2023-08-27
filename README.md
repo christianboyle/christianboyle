@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-16lkkN6Jvy5LrQQ2-MyBByg-t500x500.jpg">](https://soundcloud.com/newari/endtimes8?in=wearenova/sets/nmf-8-25-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmHzvW1jX0Nvk4JA-rFJAMA-t500x500.jpg">](https://soundcloud.com/ashieramusic/starships?in=wearenova/sets/nmf-8-25-23)
 
-**Artist**: Elvnlied 
+**Artist**: Ashiera 
 
-**Track**: [I.nfection] End Times [8]
+**Track**: LIL TEXAS - STARSHIPS (ASHIERA LOW EFFORT HIGH QUALITY USTEMPO EDIT)
 
-Last updated at 08/26/2023 23:57
+Last updated at 08/27/2023 00:01
