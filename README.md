@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9wYMGoDqgzGi02wD-ZJ9uxg-t500x500.jpg">](https://soundcloud.com/dj4b/timeless-feat-billy-crabtree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HjALO542P8RXn3G3-xfaGuw-t500x500.jpg">](https://soundcloud.com/jare_music/love?in=electrostepnetworkpremiere/sets/jare)
 
-**Artist**: 4B 
+**Artist**: JARE 
 
-**Track**: Timeless
+**Track**: Jare x Danny Morrison - Love
 
-Last updated at 08/26/2023 21:14
+Last updated at 08/26/2023 21:16
