@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9z2wmhn1y3zGoW6i-88ohrw-t500x500.jpg">](https://soundcloud.com/rolledupdnb/k1do-motherboard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space)
 
-**Artist**: Rolled Up Records 
+**Artist**: JAWNS 
 
-**Track**: K1do - Motherboard
+**Track**: Habstrakt - Outer Space (JAWNS Remix)
 
-Last updated at 08/26/2023 23:05
+Last updated at 08/26/2023 23:08
