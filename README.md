@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PLfZwZzg57POj9WA-R1Xzww-t500x500.jpg">](https://soundcloud.com/sablevalley/dancewithme?in=sablevalley/sets/nofortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ohM4P8vG9pUzRI20-wqqkpg-t500x500.jpg">](https://soundcloud.com/galassoxperrotti/acid)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Galasso X Perrotti 
 
-**Track**: Control Freak - DANCEWITHME
+**Track**: Acid
 
-Last updated at 08/26/2023 22:27
+Last updated at 08/26/2023 22:30
