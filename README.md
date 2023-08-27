@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvZEmq9yZ39MB7JR-beMsOg-t500x500.jpg">](https://soundcloud.com/crowsnest-3/bloodcrest-x-bvrnt-monophobia?in=shenouda-morgan-216147450/sets/new-hot-dubstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I3EbWmGKObHSa13D-ieSNHw-t500x500.jpg">](https://soundcloud.com/wearenova/shady-monk-transcend-yourself?in=wearenova/sets/orbit-24-uplifting-trance)
 
-**Artist**: Crowsnest Audio 
+**Artist**: Novatone 
 
-**Track**: BLOODCREST X BVRNT - MONOPHOBIA
+**Track**: Shady Monk - Transcend Yourself
 
-Last updated at 08/27/2023 07:12
+Last updated at 08/27/2023 07:14
