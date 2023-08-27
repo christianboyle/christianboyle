@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CraIM4TVior4kv1b-tVD7Lg-t500x500.jpg">](https://soundcloud.com/artbyform/axis-twelve-sxth-sns-astro?in=wearenova/sets/nmf-8-25-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNiwzJ0iCKz2Izhd-gniaGA-t500x500.jpg">](https://soundcloud.com/disbandedbrkn/back2back?in=wearenova/sets/nmf-8-25-23)
 
-**Artist**: FORM 
+**Artist**: dxsbond 
 
-**Track**: axis twelve & sxth sns - astro
+**Track**: back2back
 
-Last updated at 08/26/2023 23:46
+Last updated at 08/26/2023 23:48
