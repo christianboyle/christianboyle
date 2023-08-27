@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-crtHLlkpCuckTV3F-uLyPbw-t500x500.jpg">](https://soundcloud.com/taylor/the-creatures-come-together-for-a-meeting-3-interlude-w-cutspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sElErnrMfFqvE4Rw-lJ3xEA-t500x500.jpg">](https://soundcloud.com/wearenova/fluxe-prime-ordnance-dayglow?in=primeordnance/sets/fluxe-prime-ordnance-dayglow)
 
-**Artist**: taylor morgan 
+**Artist**: Novatone 
 
-**Track**: insect meeting <3 (interlude) w/ cutspace
+**Track**: fluxe & prime ordnance - dayglow (feat. heymyangels)
 
-Last updated at 08/26/2023 21:06
+Last updated at 08/26/2023 21:08
