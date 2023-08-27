@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JwKneiRHGuXY7weV-vBNuzg-t500x500.jpg">](https://soundcloud.com/yirsi/horizon?in=wearenova/sets/orbit-24-uplifting-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KUfkGUjQ6D9ekMqs-BLlu5g-t500x500.jpg">](https://soundcloud.com/dwineth/headwind?in=wearenova/sets/orbit-24-uplifting-trance)
 
-**Artist**: Yirsi 
+**Artist**: dwineth 
 
-**Track**: Horizon
+**Track**: headwind
 
-Last updated at 08/26/2023 19:50
+Last updated at 08/26/2023 19:53
