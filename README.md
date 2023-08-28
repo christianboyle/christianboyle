@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JUFrTycgb0RF8Oye-1hjeng-t500x500.jpg">](https://soundcloud.com/daniel7official/hardcore-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg)
 
-**Artist**: Daniel Seven 
+**Artist**: Azumai 
 
-**Track**: Hardcore Power (w/ Alaguan)
+**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
 
-Last updated at 08/28/2023 13:09
+Last updated at 08/28/2023 13:10
