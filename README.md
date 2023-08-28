@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e71sggxqJKg5R2dQ-MiHhhw-t500x500.jpg">](https://soundcloud.com/pls-ty/yourlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALcj1wmz7GsgVDU6-YpGq1Q-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/upupup-2)
 
-**Artist**: PLS&TY 
+**Artist**: longstoryshort 
 
-**Track**: PLS&TY - Your Love (ft. Sofiya Nzau)
+**Track**: UPUPUP
 
-Last updated at 08/28/2023 09:39
+Last updated at 08/28/2023 09:40
