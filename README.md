@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCP4YjLTBBliAB0a-AGfhcw-t500x500.jpg">](https://soundcloud.com/exclusivetunesnetwork/dontwannagohome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix)
 
-**Artist**: Exclusive Tunes Network 
+**Artist**: dot.MAX 
 
-**Track**: InSulin - Don't Wanna Go Home [Electrostep Network & Exclusive Tunes Network EXCLUSIVE]
+**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
 
-Last updated at 08/28/2023 13:06
+Last updated at 08/28/2023 13:08
