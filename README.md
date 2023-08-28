@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9hEtU8c49TkEp5T-ONM2CA-t500x500.jpg">](https://soundcloud.com/ophelia_records/au5-cyazon-tyler-graves-before-you-leave-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix)
 
-**Artist**: Ophelia Records 
+**Artist**: Burt Dogg 
 
-**Track**: Au5, Cyazon & Tyler Graves - Before You Leave
+**Track**: IMGOD (DnB REMIX)
 
-Last updated at 08/28/2023 12:02
+Last updated at 08/28/2023 12:03
