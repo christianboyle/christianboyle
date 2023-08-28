@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMYDge3WlGTeeUaR-Czz6Wg-t500x500.jpg">](https://soundcloud.com/asamoy2/the-ones-malachi-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCP4YjLTBBliAB0a-AGfhcw-t500x500.jpg">](https://soundcloud.com/exclusivetunesnetwork/dontwannagohome)
 
-**Artist**: Malachi 
+**Artist**: Exclusive Tunes Network 
 
-**Track**: The Ones (Malachi DnB Remix)
+**Track**: InSulin - Don't Wanna Go Home [Electrostep Network & Exclusive Tunes Network EXCLUSIVE]
 
-Last updated at 08/28/2023 13:05
+Last updated at 08/28/2023 13:06
