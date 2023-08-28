@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvbexmlJqZaOWhsE-GFg0TA-t500x500.jpg">](https://soundcloud.com/savagef80/everything-you-say-1)
 
-**Artist**: Azumai 
+**Artist**: SAVAGE 
 
-**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
+**Track**: Everything You Say
 
-Last updated at 08/28/2023 13:10
+Last updated at 08/28/2023 13:12
