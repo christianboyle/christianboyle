@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6c7jwDvmjAcZLkdQ-kjqTJA-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/cartoon-flashback-ft-elina-born)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bCyaRWAr2qEaj2jJ-sUsyKg-t500x500.jpg">](https://soundcloud.com/dj4b/ray-volpe-laserbeam-4b-remix)
 
-**Artist**: Dancing Dead 
+**Artist**: 4B 
 
-**Track**: Cartoon - Flashback (ft. Elina Born)
+**Track**: Ray Volpe - Laserbeam (4B Remix)
 
-Last updated at 08/28/2023 13:13
+Last updated at 08/28/2023 13:14
