@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALcj1wmz7GsgVDU6-YpGq1Q-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/upupup-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zS1lJbsTSrq96MI5-dITkvA-t500x500.jpg">](https://soundcloud.com/specialfavorite/sf004)
 
-**Artist**: longstoryshort 
+**Artist**: Special Favorite 
 
-**Track**: UPUPUP
+**Track**: Special Favorite 004 Minimix
 
-Last updated at 08/28/2023 12:06
+Last updated at 08/28/2023 12:07
