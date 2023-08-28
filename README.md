@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BwyDj8Sz2XhUNLgZ-ZRjODA-t500x500.jpg">](https://soundcloud.com/trip_drop/ftbm-trip-drop-ft-tree-gaud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e71sggxqJKg5R2dQ-MiHhhw-t500x500.jpg">](https://soundcloud.com/pls-ty/yourlove)
 
-**Artist**: TRIP DROP 
+**Artist**: PLS&TY 
 
-**Track**: F.T.B.M - TRIP DROP Ft. TREE GAUD
+**Track**: PLS&TY - Your Love (ft. Sofiya Nzau)
 
-Last updated at 08/27/2023 16:03
+Last updated at 08/28/2023 09:39
