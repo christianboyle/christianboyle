@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALcj1wmz7GsgVDU6-YpGq1Q-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/upupup-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtbhmtlOLZR3-0-t500x500.jpg">](https://soundcloud.com/superxfuture/bassline)
 
-**Artist**: longstoryshort 
+**Artist**: Super Future 
 
-**Track**: UPUPUP
+**Track**: Bassline
 
-Last updated at 08/28/2023 12:34
+Last updated at 08/28/2023 12:35
