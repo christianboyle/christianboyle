@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9hEtU8c49TkEp5T-ONM2CA-t500x500.jpg">](https://soundcloud.com/ophelia_records/au5-cyazon-tyler-graves-before-you-leave-1)
 
-**Artist**: Jukaa 
+**Artist**: Ophelia Records 
 
-**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
+**Track**: Au5, Cyazon & Tyler Graves - Before You Leave
 
-Last updated at 08/28/2023 12:01
+Last updated at 08/28/2023 12:02
