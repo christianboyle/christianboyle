@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvbexmlJqZaOWhsE-GFg0TA-t500x500.jpg">](https://soundcloud.com/savagef80/everything-you-say-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6c7jwDvmjAcZLkdQ-kjqTJA-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/cartoon-flashback-ft-elina-born)
 
-**Artist**: SAVAGE 
+**Artist**: Dancing Dead 
 
-**Track**: Everything You Say
+**Track**: Cartoon - Flashback (ft. Elina Born)
 
-Last updated at 08/28/2023 13:12
+Last updated at 08/28/2023 13:13
