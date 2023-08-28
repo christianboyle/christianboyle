@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv7eCIOEuAhcGD2-wbzJWw-t500x500.jpg">](https://soundcloud.com/xtrm_techno/xxt002-acid-brain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TbhFZWxIrRdsULqn-Wn9TvA-t500x500.jpg">](https://soundcloud.com/rubendemadame/destroyer-original-mix)
 
-**Artist**: XTRM. 
+**Artist**: Rubén de Madame 
 
-**Track**: Acid Brain [XXT002]
+**Track**: Destroyer (Original Mix)
 
-Last updated at 08/28/2023 12:30
+Last updated at 08/28/2023 12:33
