@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCd862AYOGg2vx0o-JcjoyQ-t500x500.jpg">](https://soundcloud.com/vano_nl/alice-deejay-better-off-alone-vano-x-royal-bootleg?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3o4qKsK23n6CXW8-wsEFyw-t500x500.jpg">](https://soundcloud.com/lilburtdogg/imgod-dnb-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: VANO_NL 
+**Artist**: Burt Dogg 
 
-**Track**: ALICE DEEJAY - BETTER OFF ALONE (VANO X ROYAL BOOTLEG)
+**Track**: IMGOD (DnB REMIX)
 
-Last updated at 08/28/2023 12:47
+Last updated at 08/28/2023 12:50
