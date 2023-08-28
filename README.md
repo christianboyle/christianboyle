@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RuWAFHmXsoU2PDgS-LHmfDA-t500x500.jpg">](https://soundcloud.com/scantraxx/hardstyle-summer-2023)
 
-**Artist**: BRAVO 
+**Artist**: Scantraxx 
 
-**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
+**Track**: Hardstyle Summer 2023
 
-Last updated at 08/28/2023 13:00
+Last updated at 08/28/2023 13:01
