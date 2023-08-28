@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zS1lJbsTSrq96MI5-dITkvA-t500x500.jpg">](https://soundcloud.com/specialfavorite/sf004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ctrebLyXsm0-0-t500x500.jpg">](https://soundcloud.com/betaschen/draw-the-line)
 
-**Artist**: Special Favorite 
+**Artist**: Betaschen 
 
-**Track**: Special Favorite 004 Minimix
+**Track**: Draw The Line
 
-Last updated at 08/28/2023 12:07
+Last updated at 08/28/2023 12:21
