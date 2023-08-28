@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QASPnyFc6PB6iYSJ-KdWgxw-t500x500.jpg">](https://soundcloud.com/superxfuture/princess-diana-sf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Super Future 
+**Artist**: BRAVO 
 
-**Track**: Princess Diana [Super Future Flip] - Ice Spice & Nicki Minaj
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 08/28/2023 12:40
+Last updated at 08/28/2023 12:42
