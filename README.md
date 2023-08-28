@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QASPnyFc6PB6iYSJ-KdWgxw-t500x500.jpg">](https://soundcloud.com/superxfuture/princess-diana-sf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcNNKcn8tjzCvoYz-nivB0Q-t500x500.jpg">](https://soundcloud.com/slangdogs/suicideboys-carrollton-slang-dogs-remix)
 
-**Artist**: Super Future 
+**Artist**: Slang Dogs 
 
-**Track**: Princess Diana [Super Future Flip] - Ice Spice & Nicki Minaj
+**Track**: $UICIDEBOY$ - CARROLLTON (Slang Dogs Remix)
 
-Last updated at 08/28/2023 12:36
+Last updated at 08/28/2023 12:37
