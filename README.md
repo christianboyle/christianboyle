@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-72K79hFATtgZF65o-Yb6MaQ-t500x500.jpg">](https://soundcloud.com/pandhora/sail-away-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AxHEXq7KyBwKzydn-LsaNVA-t500x500.jpg">](https://soundcloud.com/melodicdeep/in-depth-mooh-melodic-deep-mix-series)
 
-**Artist**: Pandhora 
+**Artist**: Melodic Deep 
 
-**Track**: Pandhora - Sail Away
+**Track**: IN DEPTH // Mooh [Melodic Deep Mix Series]
 
-Last updated at 08/28/2023 09:41
+Last updated at 08/28/2023 09:42
