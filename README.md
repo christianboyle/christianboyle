@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZ8RCdvAEWPydyaD-guwcxg-t500x500.jpg">](https://soundcloud.com/kaimcleanmusic2/mau-p-drugs-from-amsterdam-kai-mclean-remix-samp?in=saxurn/sets/acid-override/)
 
-**Artist**: BRAVO 
+**Artist**: Kai McLean 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: Mau P - Drugs From Amsterdam (Kai McLean Remix) *FREE DL*
 
-Last updated at 08/28/2023 13:29
+Last updated at 08/28/2023 13:30
