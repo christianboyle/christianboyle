@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3aqhM4c6uoYrufA-bWHljw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-geck-o-drive-you-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALcj1wmz7GsgVDU6-YpGq1Q-t500x500.jpg">](https://soundcloud.com/itsalongstoryshort/upupup-2)
 
-**Artist**: Dirty Workz 
+**Artist**: longstoryshort 
 
-**Track**: Jay Reeve & Geck-O - Drive You Crazy
+**Track**: UPUPUP
 
-Last updated at 08/28/2023 12:05
+Last updated at 08/28/2023 12:06
