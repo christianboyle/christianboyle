@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv7eCIOEuAhcGD2-wbzJWw-t500x500.jpg">](https://soundcloud.com/xtrm_techno/xxt002-acid-brain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uKsgTm4DoCsziCjF-4zFfdg-t500x500.jpg">](https://soundcloud.com/itsdemotapes/trap-queen-demotapes-y2k-flip)
 
-**Artist**: XTRM. 
+**Artist**: demotapes 
 
-**Track**: Acid Brain [XXT002]
+**Track**: trap queen (demotapes Y2K flip)
 
-Last updated at 08/28/2023 11:47
+Last updated at 08/28/2023 11:48
