@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eumdOad9li8yzl9Q-hNgytw-t500x500.jpg">](https://soundcloud.com/gearbox-digital/kurxco-heart-of-glass?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv7eCIOEuAhcGD2-wbzJWw-t500x500.jpg">](https://soundcloud.com/xtrm_techno/xxt002-acid-brain?in=saxurn/sets/acid-override/)
 
-**Artist**: Gearbox Digital 
+**Artist**: XTRM. 
 
-**Track**: KURXCO - Heart Of Glass
+**Track**: Acid Brain [XXT002]
 
-Last updated at 08/28/2023 13:32
+Last updated at 08/28/2023 13:36
