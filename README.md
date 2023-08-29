@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BE8g9TYyyN1ZYzWu-0G8B7w-t500x500.jpg">](https://soundcloud.com/whoslimboslice/aphotic?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin?in=saxurn/sets/acid-override/)
 
-**Artist**: Limbo Slice 
+**Artist**: Danceproject 
 
-**Track**: Aphotic
+**Track**: Facutum, Beori - Serotonin
 
-Last updated at 08/29/2023 09:42
+Last updated at 08/29/2023 09:46
