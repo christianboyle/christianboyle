@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg?in=saxurn/sets/acid-override/)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Azumai 
 
-**Track**: Avicii - The Nights (Ezra Hazard Remix)
+**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
 
-Last updated at 08/29/2023 12:38
+Last updated at 08/29/2023 12:39
