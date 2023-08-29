@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pnjTvprF3IdArU5-eVrxbA-t500x500.jpg">](https://soundcloud.com/rogue-effect/core-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fa3WOviGDYXjgoIk-6lcYeA-t500x500.jpg">](https://soundcloud.com/subfocus/dod-so-much-in-love-sub-focus-remix-1?in=saxurn/sets/acid-override/)
 
-**Artist**: RogueEffect 
+**Artist**: Sub Focus 
 
-**Track**: RL Grime - Core (RogueEffect Remix)
+**Track**: D.O.D - So Much In Love (Sub Focus Remix)
 
-Last updated at 08/29/2023 09:57
+Last updated at 08/29/2023 12:25
