@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Trip Trop 
+**Artist**: dot.MAX 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
+**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
 
-Last updated at 08/29/2023 12:29
+Last updated at 08/29/2023 12:32
