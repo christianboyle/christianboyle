@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9o7RGaspyAQzXrC-K1ybyg-t500x500.jpg">](https://soundcloud.com/sc5nd/burning-bluntz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBJt6rUAuoep-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-be-there)
 
-**Artist**: SC5ND 
+**Artist**: Gearbox Digital 
 
-**Track**: BURNING BLUNTZ
+**Track**: Avi8 - BE THERE
 
-Last updated at 08/31/2023 11:27
+Last updated at 08/31/2023 11:29
