@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfakpD2kiszJIjGJ-UqELow-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/dutch-master-works-radio-episode-003-by-lockdown)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/cO401nm560c/maxresdefault.jpg">](https://www.youtube.com/watch?v=cO401nm560c)
 
-**Artist**: Dutch Master Works 
+**Artist**: 
+  
+    DJ Smokey
+  
+  
+  
+    DJ Smokey
+  
 
-**Track**: Dutch Master Works Radio Episode #003 by Lockdown
 
-Last updated at 08/31/2023 11:52
+
+
+
+ 
+
+**Track**: DJ SMOKEY + CHRIST DILLINGER - "10,000 NUKES" (OFFICIAL MUSIC VIDEO)
+
+Last updated at 08/31/2023 15:41
