@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ic3JMr2KBxlzjzxH-pz1caw-t500x500.jpg">](https://soundcloud.com/triplexlarge/cicada-break?in=triplexlarge/sets/mu-tate-theyre-with-you-always)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzaloBlRRkrujBNp-rt5yzA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-hermeth-do-ma-ting-dionysian-mysteries)
 
-**Artist**: ３ＸＬ 
+**Artist**: Four Four Magazine 
 
-**Track**: cicada break
+**Track**: Four Four Premiere: Hermeth - Do Ma Ting [Dionysian Mysteries]
 
-Last updated at 08/31/2023 11:24
+Last updated at 08/31/2023 11:25
