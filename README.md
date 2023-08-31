@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mZVjoelPoaFm5mDZ-aQNpFg-t500x500.jpg">](https://soundcloud.com/3000deep/aaron-jackson-save-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tLXbhE3aQkcTfUH-qIco6g-t500x500.jpg">](https://soundcloud.com/edmmaro/edm-ma-ro-mashup-pack-2023)
 
-**Artist**: 3000 DEEP 
+**Artist**: EDMMARO 
 
-**Track**: Aaron Jackson - Save Me
+**Track**: EDM-MA-RO! MASHUP PACK 2023
 
-Last updated at 08/31/2023 11:22
+Last updated at 08/31/2023 11:23
