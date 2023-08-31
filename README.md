@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBJt6rUAuoep-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-be-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wra1FnryhzK1ngtC-CZoyGQ-t500x500.jpg">](https://soundcloud.com/djmkn93/mkn-hartshorn-ygm)
 
-**Artist**: Gearbox Digital 
+**Artist**: MKN 
 
-**Track**: Avi8 - BE THERE
+**Track**: MKN & Hartshorn - YGM
 
-Last updated at 08/31/2023 11:29
+Last updated at 08/31/2023 11:39
