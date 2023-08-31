@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzaloBlRRkrujBNp-rt5yzA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-hermeth-do-ma-ting-dionysian-mysteries)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yS3sbvKLtEZDGxxv-tEiprg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd222-brett-cooper-feel-alive-release-13-0-2023)
 
-**Artist**: Four Four Magazine 
+**Artist**: scarreddigital 
 
-**Track**: Four Four Premiere: Hermeth - Do Ma Ting [Dionysian Mysteries]
+**Track**: SD222 - Brett Cooper - I Feel Alive Release 13-0-2023
 
-Last updated at 08/31/2023 11:25
+Last updated at 08/31/2023 11:26
