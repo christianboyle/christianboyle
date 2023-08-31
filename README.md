@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sR0chGuPrcypyvdU-zZm49w-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/jay-chou-qi-li-xiang-inquisitive-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HaiCO1HY5DghVyMm-DwztNA-t500x500.jpg">](https://soundcloud.com/marikproduction/only-you)
 
-**Artist**: Inquisitive [Remixes] 2 
+**Artist**: Marian Klose 
 
-**Track**: Jay Chou - Qi Li Xiang 七里香 (Inquisitive Remix)
+**Track**: Only You (Original Mix)
 
-Last updated at 08/31/2023 11:41
+Last updated at 08/31/2023 11:42
