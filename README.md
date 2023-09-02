@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/paNLfndY4js/maxresdefault.jpg">](https://www.youtube.com/watch?v=paNLfndY4js)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnPkx0Hb75z2osS6-oblhKA-t500x500.jpg">](https://soundcloud.com/dj_jaywet/valentino-khan-division-jaywet-flip)
 
-**Artist**: 
-  
-    KLOUD
-  
-  
-  
-    KLOUD
-  
+**Artist**: JAYWET 
 
+**Track**: Valentino Khan - Division [JAYWET FLIP]
 
-
-
-
- 
-
-**Track**: KLOUD | LOS ANGELES, LIVE SET (2023)
-
-Last updated at 09/02/2023 13:07
+Last updated at 09/02/2023 13:08
