@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnPkx0Hb75z2osS6-oblhKA-t500x500.jpg">](https://soundcloud.com/dj_jaywet/valentino-khan-division-jaywet-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eSWDvIauzdbVaKyv-0dSyWQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/ashnikko-you-make-me-sick-veil-flipx)
 
-**Artist**: JAYWET 
+**Artist**: VEIL 
 
-**Track**: Valentino Khan - Division [JAYWET FLIP]
+**Track**: Ashnikko - You Make Me Sick [VEIL FLIP]
 
-Last updated at 09/02/2023 13:08
+Last updated at 09/02/2023 13:09
