@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6tdNyXqe3guOYU8M-Fi0VIQ-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/music-kuts-podcast-4-fracus-darwin-september-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space)
 
-**Artist**: Fracus & Darwin 
+**Artist**: JAWNS 
 
-**Track**: Music Kuts Podcast 4 - Fracus & Darwin (September 2023)
+**Track**: Habstrakt - Outer Space (JAWNS Remix)
 
-Last updated at 09/01/2023 12:26
+Last updated at 09/02/2023 13:03
