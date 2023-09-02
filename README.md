@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pUVzyS0f3WEDlfOr-hoyRlQ-t500x500.jpg">](https://soundcloud.com/thelotradio/dj-seinfeld-the-lot-radio-03-16-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P2KuNBMRTloXpi35-njsIug-t500x500.jpg">](https://soundcloud.com/xankara/lulu)
 
-**Artist**: The Lot Radio 
+**Artist**: xankara 
 
-**Track**: DJ Seinfeld @ The Lot Radio 03-16-2023
+**Track**: No Time
 
-Last updated at 09/02/2023 13:04
+Last updated at 09/02/2023 13:05
