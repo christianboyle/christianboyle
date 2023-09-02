@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x1ZyRczRhXZ1SLat-QIMrPA-t500x500.jpg">](https://soundcloud.com/320rip/shake-it-dj-puff-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-46T2yUumzYhSRaFN-Hy4eww-t500x500.jpg">](https://soundcloud.com/wherearethepercs/xg-left-right-pluggnb-flip-rxi-wintfye-yunme)
 
-**Artist**: 320 RIP 
+**Artist**: rxi 
 
-**Track**: shake it (dj puff edit)
+**Track**: xg - left right pluggnb flip (rxi + wintfye + yunme)
 
-Last updated at 09/02/2023 13:14
+Last updated at 09/02/2023 16:57
