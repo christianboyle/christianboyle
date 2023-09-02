@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pUVzyS0f3WEDlfOr-hoyRlQ-t500x500.jpg">](https://soundcloud.com/thelotradio/dj-seinfeld-the-lot-radio-03-16-2023)
 
-**Artist**: JAWNS 
+**Artist**: The Lot Radio 
 
-**Track**: Habstrakt - Outer Space (JAWNS Remix)
+**Track**: DJ Seinfeld @ The Lot Radio 03-16-2023
 
-Last updated at 09/02/2023 13:03
+Last updated at 09/02/2023 13:04
