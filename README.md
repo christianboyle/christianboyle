@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1orOnNhT2yakxJlS-2JWodg-t500x500.jpg">](https://soundcloud.com/dethkitty/nevr-enough-ilybeam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x1ZyRczRhXZ1SLat-QIMrPA-t500x500.jpg">](https://soundcloud.com/320rip/shake-it-dj-puff-edit-1)
 
-**Artist**: dethkitty (@dthkat) 
+**Artist**: 320 RIP 
 
-**Track**: nevr enough :( (ilybeam)
+**Track**: shake it (dj puff edit)
 
-Last updated at 09/02/2023 13:13
+Last updated at 09/02/2023 13:14
