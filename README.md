@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBJt6rUAuoep-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-be-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K1TMKKUCEuPZqXs-RKqQng-t500x500.jpg">](https://soundcloud.com/officialcheeks/what-the-hell-cheeks-flip)
 
-**Artist**: Gearbox Digital 
+**Artist**: CHEEKS 
 
-**Track**: Avi8 - BE THERE
+**Track**: What The Hell (cheeks flip)
 
-Last updated at 09/02/2023 17:10
+Last updated at 09/02/2023 17:11
