@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QASPnyFc6PB6iYSJ-KdWgxw-t500x500.jpg">](https://soundcloud.com/superxfuture/princess-diana-sf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
 
-**Artist**: Super Future 
+**Artist**: Jukaa 
 
-**Track**: Princess Diana [Super Future Flip] - Ice Spice & Nicki Minaj
+**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
 
-Last updated at 09/02/2023 17:02
+Last updated at 09/02/2023 17:03
