@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTowmCoIwUAVB9i-22sQoQ-t500x500.jpg">](https://soundcloud.com/gradient-map/brush)
 
-**Artist**: Jukaa 
+**Artist**: gradient map 
 
-**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
+**Track**: onlytom - Brush
 
-Last updated at 09/02/2023 17:03
+Last updated at 09/02/2023 17:07
