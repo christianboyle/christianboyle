@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ixDyZ3mspf8wYBzi-xllAyw-t500x500.jpg">](https://soundcloud.com/hide-the-junk/block-rockin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QASPnyFc6PB6iYSJ-KdWgxw-t500x500.jpg">](https://soundcloud.com/superxfuture/princess-diana-sf)
 
-**Artist**: HIDE THE JUNK 
+**Artist**: Super Future 
 
-**Track**: X CLUB. - Block Rockin [HTJ001]
+**Track**: Princess Diana [Super Future Flip] - Ice Spice & Nicki Minaj
 
-Last updated at 09/02/2023 17:01
+Last updated at 09/02/2023 17:02
