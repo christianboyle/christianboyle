@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uKsgTm4DoCsziCjF-4zFfdg-t500x500.jpg">](https://soundcloud.com/itsdemotapes/trap-queen-demotapes-y2k-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcpoATDj7Rss1bFf-OzX4hQ-t500x500.jpg">](https://soundcloud.com/waxthieves/xg-tgif-waxthieves-remix)
 
-**Artist**: demotapes 
+**Artist**: Waxthieves 
 
-**Track**: trap queen (demotapes Y2K flip)
+**Track**: XG - TGIF (Waxthieves Remix)
 
-Last updated at 09/02/2023 17:41
+Last updated at 09/02/2023 17:42
