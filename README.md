@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P2KuNBMRTloXpi35-njsIug-t500x500.jpg">](https://soundcloud.com/xankara/lulu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzrJpgOxVrznKIlA-JShVug-t500x500.jpg">](https://soundcloud.com/eeks_beats/fk-a-hoe)
 
-**Artist**: xankara 
+**Artist**: EEKS 
 
-**Track**: No Time
+**Track**: FK-A-HOE
 
-Last updated at 09/02/2023 13:05
+Last updated at 09/02/2023 13:06
