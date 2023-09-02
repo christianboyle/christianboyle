@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzrJpgOxVrznKIlA-JShVug-t500x500.jpg">](https://soundcloud.com/eeks_beats/fk-a-hoe)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/paNLfndY4js/maxresdefault.jpg">](https://www.youtube.com/watch?v=paNLfndY4js)
 
-**Artist**: EEKS 
+**Artist**: 
+  
+    KLOUD
+  
+  
+  
+    KLOUD
+  
 
-**Track**: FK-A-HOE
 
-Last updated at 09/02/2023 13:06
+
+
+
+ 
+
+**Track**: KLOUD | LOS ANGELES, LIVE SET (2023)
+
+Last updated at 09/02/2023 13:07
