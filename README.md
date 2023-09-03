@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0RiPNGATukTQfb4-fiKUNA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/carb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/his-favourite-band-is-creedence-clearwater-revival)
 
-**Artist**: BOOTY LEAK 
+**Artist**: beverly hills mom 
 
-**Track**: Booty Leak - Carbonize [ FREE DOWNLOAD ]
+**Track**: his favourite band is creedence clearwater revival
 
-Last updated at 09/03/2023 08:21
+Last updated at 09/03/2023 08:22
