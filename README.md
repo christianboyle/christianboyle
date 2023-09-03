@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcpoATDj7Rss1bFf-OzX4hQ-t500x500.jpg">](https://soundcloud.com/waxthieves/xg-tgif-waxthieves-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0RiPNGATukTQfb4-fiKUNA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/carb)
 
-**Artist**: Waxthieves 
+**Artist**: BOOTY LEAK 
 
-**Track**: XG - TGIF (Waxthieves Remix)
+**Track**: Booty Leak - Carbonize [ FREE DOWNLOAD ]
 
-Last updated at 09/02/2023 17:42
+Last updated at 09/03/2023 08:21
