@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/his-favourite-band-is-creedence-clearwater-revival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgdvTNFVPQ7cQnlL-zQRgEg-t500x500.jpg">](https://soundcloud.com/djlxl/techno-vibes-40)
 
-**Artist**: beverly hills mom 
+**Artist**: LxL 
 
-**Track**: his favourite band is creedence clearwater revival
+**Track**: Techno Vibes #40 Peaktime Techno [E-Dancer, Kaspar, Weska, Heerhorst, Mario Ochoa, Belocca  & more]
 
-Last updated at 09/03/2023 08:22
+Last updated at 09/03/2023 08:23
