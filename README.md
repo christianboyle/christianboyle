@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biBVurQ0NRpXp5Ag-GdTWYA-t500x500.jpg">](https://soundcloud.com/wakaan/sully-feat-misdom-seasons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZoDdHUEPhO31-0-t500x500.jpg">](https://soundcloud.com/iamawakend/awakend-living-in-a-dream)
 
-**Artist**: Wakaan 
+**Artist**: AWAKEND 
 
-**Track**: Sully feat. Misdom - Seasons
+**Track**: AWAKEND - Living In A Dream
 
-Last updated at 09/04/2023 17:56
+Last updated at 09/04/2023 17:57
