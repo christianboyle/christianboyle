@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv7eCIOEuAhcGD2-wbzJWw-t500x500.jpg">](https://soundcloud.com/xtrm_techno/xxt002-acid-brain?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3aqhM4c6uoYrufA-bWHljw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-geck-o-drive-you-crazy?in=saxurn/sets/acid-override/)
 
-**Artist**: XTRM. 
+**Artist**: Dirty Workz 
 
-**Track**: Acid Brain [XXT002]
+**Track**: Jay Reeve & Geck-O - Drive You Crazy
 
-Last updated at 09/04/2023 13:37
+Last updated at 09/04/2023 13:38
