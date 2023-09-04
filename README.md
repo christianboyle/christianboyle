@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aCsNVK3UiSlhE9Y-ypKcKg-t500x500.jpg">](https://soundcloud.com/anthony-davis-410/emastered_pockets-ruff-got)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpbieGcjzlprlRC7-lnJJtQ-t500x500.jpg">](https://soundcloud.com/arya51/travis-scott-meltdown-ft-drake-arya-bootleg)
 
-**Artist**: Pretty Tony "GetBuck" 
+**Artist**: Arya 
 
-**Track**: Pocket  Got Money
+**Track**: Travis Scott - Meltdown Ft. Drake (Arya Bootleg)
 
-Last updated at 09/04/2023 11:52
+Last updated at 09/04/2023 11:53
