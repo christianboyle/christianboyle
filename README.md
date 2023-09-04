@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-46T2yUumzYhSRaFN-Hy4eww-t500x500.jpg">](https://soundcloud.com/wherearethepercs/xg-left-right-pluggnb-flip-rxi-wintfye-yunme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3r8yF5OhzJjwTYh8-YdhIog-t500x500.jpg">](https://soundcloud.com/pinkperc/god-help-me-fridvy-methboyswag)
 
-**Artist**: rxi 
+**Artist**: pinkperc 
 
-**Track**: xg - left right pluggnb flip (rxi + wintfye + yunme)
+**Track**: god help me +fridvy [methboyswag & silver]
 
-Last updated at 09/04/2023 12:10
+Last updated at 09/04/2023 13:11
