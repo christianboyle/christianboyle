@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCd862AYOGg2vx0o-JcjoyQ-t500x500.jpg">](https://soundcloud.com/vano_nl/alice-deejay-better-off-alone-vano-x-royal-bootleg?in=saxurn/sets/acid-override)
 
-**Artist**: BRAVO 
+**Artist**: VANO_NL 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: ALICE DEEJAY - BETTER OFF ALONE (VANO X ROYAL BOOTLEG)
 
-Last updated at 09/04/2023 13:21
+Last updated at 09/04/2023 13:25
