@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JCTrTzmBGyYvRFi-B7Osrw-t500x500.jpg">](https://soundcloud.com/imtheobsidian/in-your-eyes-w-iwilldiehere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLg23yrRzw7owiGN-nzzl6w-t500x500.jpg">](https://soundcloud.com/tsu_nami/harder-better-faster-younger)
 
-**Artist**: The Øbsidian 
+**Artist**: TSU NAMI 
 
-**Track**: in your eyes (w/ iwilldiehere)
+**Track**: HARDER BETTER FASTER YOUNGER
 
-Last updated at 09/04/2023 11:55
+Last updated at 09/04/2023 11:56
