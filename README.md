@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yrF7I2DelahF7Kn-UxH6MQ-t500x500.jpg">](https://soundcloud.com/cephasth/discovery-mix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aCsNVK3UiSlhE9Y-ypKcKg-t500x500.jpg">](https://soundcloud.com/anthony-davis-410/emastered_pockets-ruff-got)
 
-**Artist**: Cephas 
+**Artist**: Pretty Tony "GetBuck" 
 
-**Track**: Cephas "Discovery Project: Apocalypse Zombieland 2023"
+**Track**: Pocket  Got Money
 
-Last updated at 09/04/2023 11:51
+Last updated at 09/04/2023 11:52
