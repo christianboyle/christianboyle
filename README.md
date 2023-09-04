@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfPy6ecWdTZxscH6-Gu20Xg-t500x500.jpg">](https://soundcloud.com/dj_doci/family-ties-adnan-veron-x-doci-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wPDtqUBjul1zjBtU-O2Jqag-t500x500.jpg">](https://soundcloud.com/nightbassrecords/nubass-legacy-like-this)
 
-**Artist**: DØCI 
+**Artist**: Night Bass 
 
-**Track**: FAMILY TIES (ADNAN VERON X DØCI EDIT)
+**Track**: NuBass & Legacy - Like This
 
-Last updated at 09/04/2023 11:49
+Last updated at 09/04/2023 11:50
