@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyEYHWCAw5hL1i7x-LlHVIQ-t500x500.jpg">](https://soundcloud.com/shugo_srd/joel-corry-x-mk-x-rita-ora-drinkin-shugz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3aqhM4c6uoYrufA-bWHljw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-geck-o-drive-you-crazy?in=saxurn/sets/acid-override/)
 
-**Artist**: Shugz Music 
+**Artist**: Dirty Workz 
 
-**Track**: Joel Corry x MK x Rita Ora - Drinkin' (Shugz Edit)
+**Track**: Jay Reeve & Geck-O - Drive You Crazy
 
-Last updated at 09/04/2023 18:03
+Last updated at 09/04/2023 18:04
