@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJwiDhMvhOvBCbvN-6PMMuA-t500x500.jpg">](https://soundcloud.com/ian-suryadi/bon-jovi-its-my-life-l3xology-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w4e4TEFzigZ1-0-t500x500.png">](https://soundcloud.com/b1rdieaus/how-will-i-know?in=saxurn/sets/acid-override/)
 
-**Artist**: Dj L3xology 
+**Artist**: b1rdie 
 
-**Track**: Bon Jovi - Its My Life ( L3xology Hard Mix 2023 )
+**Track**: How Will I Know
 
-Last updated at 09/04/2023 18:18
+Last updated at 09/04/2023 18:22
