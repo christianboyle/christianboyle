@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMOcHAyGW0GasLcM-3PsYkw-t500x500.jpg">](https://soundcloud.com/ziggyx_official/ziggy-x-daniel-seven-overdrive?in=saxurn/sets/acid-override/)
 
-**Artist**: Azumai 
+**Artist**: ZIGGY X_official 
 
-**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
+**Track**: ZIGGY X & Daniel Seven - Overdrive
 
-Last updated at 09/04/2023 13:47
+Last updated at 09/04/2023 13:48
