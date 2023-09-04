@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1mOMEO8mwC0TeT6v-CVh4Zw-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/blocc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSLjwOz66HHmdGhz-crl9AQ-t500x500.jpg">](https://soundcloud.com/mikaylisound/steady-slurkin-mikayli-bootleg)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Mikayli 
 
-**Track**: Tenzuh - BLOCC
+**Track**: Chef Boyarbeatz - Steady Slurkin (Mikayli Bootleg)
 
-Last updated at 09/04/2023 11:45
+Last updated at 09/04/2023 11:46
