@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xu9QwFB8fVOak5Xf-k0B8tA-t500x500.jpg">](https://soundcloud.com/maryarcane/ayesha2007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone)
 
-**Artist**: maryarcane 
+**Artist**: NGD Project 
 
-**Track**: Ayesha Erotica - 2007 (Mary Arcane Patch)
+**Track**: Not Alone
 
-Last updated at 09/04/2023 12:03
+Last updated at 09/04/2023 12:07
