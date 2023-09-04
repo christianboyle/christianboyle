@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w4e4TEFzigZ1-0-t500x500.png">](https://soundcloud.com/b1rdieaus/how-will-i-know?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin?in=saxurn/sets/acid-override/)
 
-**Artist**: b1rdie 
+**Artist**: Danceproject 
 
-**Track**: How Will I Know
+**Track**: Facutum, Beori - Serotonin
 
-Last updated at 09/04/2023 13:42
+Last updated at 09/04/2023 13:43
