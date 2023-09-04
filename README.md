@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxmoDuC1I9lZhpSG-qAJF3A-t500x500.jpg">](https://soundcloud.com/hundaes/charli-puth-boy-hundaes-edit)
 
-**Artist**: Jukaa 
+**Artist**: hundaes 
 
-**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
+**Track**: Charli Puth - BOY (Hundaes Edit)
 
-Last updated at 09/04/2023 17:58
+Last updated at 09/04/2023 17:59
