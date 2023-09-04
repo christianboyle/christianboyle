@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMOcHAyGW0GasLcM-3PsYkw-t500x500.jpg">](https://soundcloud.com/ziggyx_official/ziggy-x-daniel-seven-overdrive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBJt6rUAuoep-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-be-there)
 
-**Artist**: ZIGGY X_official 
+**Artist**: Gearbox Digital 
 
-**Track**: ZIGGY X & Daniel Seven - Overdrive
+**Track**: Avi8 - BE THERE
 
-Last updated at 09/04/2023 13:17
+Last updated at 09/04/2023 13:18
