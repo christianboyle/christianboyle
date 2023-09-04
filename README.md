@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxmoDuC1I9lZhpSG-qAJF3A-t500x500.jpg">](https://soundcloud.com/hundaes/charli-puth-boy-hundaes-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6jEQCozfyGDv-0-t500x500.png">](https://soundcloud.com/33below/cycles-darby-remix-feat-isaiah)
 
-**Artist**: hundaes 
+**Artist**: 33 BELOW 
 
-**Track**: Charli Puth - BOY (Hundaes Edit)
+**Track**: Cycles (Darby Remix) [feat. Isaiah]
 
-Last updated at 09/04/2023 17:59
+Last updated at 09/04/2023 18:00
