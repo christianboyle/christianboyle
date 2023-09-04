@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZoDdHUEPhO31-0-t500x500.jpg">](https://soundcloud.com/iamawakend/awakend-living-in-a-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsLpasdqpcJaoy7T-2mDuwg-t500x500.jpg">](https://soundcloud.com/jukaamusic/princess-diana-bootleg)
 
-**Artist**: AWAKEND 
+**Artist**: Jukaa 
 
-**Track**: AWAKEND - Living In A Dream
+**Track**: Ice Spice - Princess Diana (Jukaa Bootleg) [Free Download]
 
-Last updated at 09/04/2023 17:57
+Last updated at 09/04/2023 17:58
