@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fa3WOviGDYXjgoIk-6lcYeA-t500x500.jpg">](https://soundcloud.com/subfocus/dod-so-much-in-love-sub-focus-remix-1?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights?in=saxurn/sets/acid-override/)
 
-**Artist**: Sub Focus 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: D.O.D - So Much In Love (Sub Focus Remix)
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 09/04/2023 13:45
+Last updated at 09/04/2023 13:46
