@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMOcHAyGW0GasLcM-3PsYkw-t500x500.jpg">](https://soundcloud.com/ziggyx_official/ziggy-x-daniel-seven-overdrive?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byeEtBmCRmaT37qQ-S1zWuQ-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-ghetto-blaster-ezkill-2023-remix)
 
-**Artist**: ZIGGY X_official 
+**Artist**: EzKill 
 
-**Track**: ZIGGY X & Daniel Seven - Overdrive
+**Track**: EzKill - Ghetto Blaster (EzKill 2023 Remix) ✅FREE DOWNLOAD✅
 
-Last updated at 09/04/2023 13:48
+Last updated at 09/04/2023 13:50
