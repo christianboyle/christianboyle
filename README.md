@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-46T2yUumzYhSRaFN-Hy4eww-t500x500.jpg">](https://soundcloud.com/wherearethepercs/xg-left-right-pluggnb-flip-rxi-wintfye-yunme)
 
-**Artist**: NGD Project 
+**Artist**: rxi 
 
-**Track**: Not Alone
+**Track**: xg - left right pluggnb flip (rxi + wintfye + yunme)
 
-Last updated at 09/04/2023 12:07
+Last updated at 09/04/2023 12:10
