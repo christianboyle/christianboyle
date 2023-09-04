@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JUFrTycgb0RF8Oye-1hjeng-t500x500.jpg">](https://soundcloud.com/daniel7official/hardcore-power?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights?in=saxurn/sets/acid-override/)
 
-**Artist**: Daniel Seven 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Hardcore Power (w/ Alaguan)
+**Track**: Avicii - The Nights (Ezra Hazard Remix)
 
-Last updated at 09/04/2023 18:50
+Last updated at 09/04/2023 18:53
