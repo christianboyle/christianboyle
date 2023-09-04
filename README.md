@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGJpKEjH9jzMmtYy-MDLRPA-t500x500.jpg">](https://soundcloud.com/triptropmusic/joyryde-skrillex-agen-wida-trip-trop-twist-1?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override)
 
-**Artist**: Trip Trop 
+**Artist**: BRAVO 
 
-**Track**: JOYRYDE & Skrillex - AGEN WIDA (Trip Trop Twist)
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/04/2023 13:20
+Last updated at 09/04/2023 13:21
