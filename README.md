@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpbieGcjzlprlRC7-lnJJtQ-t500x500.jpg">](https://soundcloud.com/arya51/travis-scott-meltdown-ft-drake-arya-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lbfakVMqVteOcwJ-rynZfg-t500x500.jpg">](https://soundcloud.com/slumberpartyorg/the-leftovers-cypher-features-in-desc)
 
-**Artist**: Arya 
+**Artist**: SLUMBERPARTY 
 
-**Track**: Travis Scott - Meltdown Ft. Drake (Arya Bootleg)
+**Track**: THE LEFTOVERS CYPHER (features in desc)
 
-Last updated at 09/04/2023 11:53
+Last updated at 09/04/2023 11:54
