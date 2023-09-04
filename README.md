@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfk4Cwcq6zMCU7xD-eGkJDA-t500x500.jpg">](https://soundcloud.com/sadbois_official/love-letter-x-bringing-me-back-sadbois-rocktronic-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone)
 
-**Artist**: SadBois 🦋 
+**Artist**: NGD Project 
 
-**Track**: Love Letter x Bringing Me Back (SadBois 'Rocktronic' Edit)
+**Track**: Not Alone
 
-Last updated at 09/04/2023 17:53
+Last updated at 09/04/2023 17:54
