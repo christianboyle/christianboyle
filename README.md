@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HygREPeLwzoZpft-Wj1xRg-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/thenights?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Kq4A5lYzvERn2vk-LErUGw-t500x500.jpg">](https://soundcloud.com/pyro_records/no-hero-call-u-mine?in=saxurn/sets/acid-override/)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: PYRO Records 
 
-**Track**: Avicii - The Nights (Ezra Hazard Remix)
+**Track**: No Hero - Call U Mine
 
-Last updated at 09/04/2023 18:53
+Last updated at 09/04/2023 18:56
