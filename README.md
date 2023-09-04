@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fa3WOviGDYXjgoIk-6lcYeA-t500x500.jpg">](https://soundcloud.com/subfocus/dod-so-much-in-love-sub-focus-remix-1?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFtTSxVkfhmz76Za-oqPYxQ-t500x500.jpg">](https://soundcloud.com/officialnohero/hot-n-cold-no-hero-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Sub Focus 
+**Artist**: No Hero 
 
-**Track**: D.O.D - So Much In Love (Sub Focus Remix)
+**Track**: Katy Perry - Hot N Cold (No Hero Remix)
 
-Last updated at 09/04/2023 18:40
+Last updated at 09/04/2023 18:44
