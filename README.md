@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-viO8QSUH0bI47eMF-eeFavQ-t500x500.jpg">](https://soundcloud.com/danoffside/dan-offside-someone-you-loved-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyEYHWCAw5hL1i7x-LlHVIQ-t500x500.jpg">](https://soundcloud.com/shugo_srd/joel-corry-x-mk-x-rita-ora-drinkin-shugz-edit)
 
-**Artist**: Dan Offside 
+**Artist**: Shugz Music 
 
-**Track**: Dan Offside- Someone You Loved- FREE DOWNLOAD
+**Track**: Joel Corry x MK x Rita Ora - Drinkin' (Shugz Edit)
 
-Last updated at 09/04/2023 18:02
+Last updated at 09/04/2023 18:03
