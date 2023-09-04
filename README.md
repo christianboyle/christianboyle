@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgdvTNFVPQ7cQnlL-zQRgEg-t500x500.jpg">](https://soundcloud.com/djlxl/techno-vibes-40)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xu9QwFB8fVOak5Xf-k0B8tA-t500x500.jpg">](https://soundcloud.com/maryarcane/ayesha2007)
 
-**Artist**: LxL 
+**Artist**: maryarcane 
 
-**Track**: Techno Vibes #40 Peaktime Techno [E-Dancer, Kaspar, Weska, Heerhorst, Mario Ochoa, Belocca  & more]
+**Track**: Ayesha Erotica - 2007 (Mary Arcane Patch)
 
-Last updated at 09/03/2023 08:23
+Last updated at 09/04/2023 11:42
