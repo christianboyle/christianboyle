@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/jIMNOhY88bI/maxresdefault.jpg">](https://www.youtube.com/watch?v=jIMNOhY88bI)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: 
-  
-    RL Grime
-  
-  
-  
-    RL Grime
-  
+**Artist**: BRAVO 
 
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-
-
-
- 
-
-**Track**: RL Grime - RUSH MIX 001
-
-Last updated at 09/04/2023 16:01
+Last updated at 09/04/2023 17:43
