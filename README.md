@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3aqhM4c6uoYrufA-bWHljw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-geck-o-drive-you-crazy?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65hnJ6Hb2jUsyhAe-7frRFg-t500x500.jpg">](https://soundcloud.com/destyrush/miranda-cosgrove-about-you-now-mxnvx-x-desty-rush-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Dirty Workz 
+**Artist**: Desty Rush 
 
-**Track**: Jay Reeve & Geck-O - Drive You Crazy
+**Track**: Miranda Cosgrove - About You Now [mxnvs x Desty Rush REMIX]
 
-Last updated at 09/04/2023 18:04
+Last updated at 09/04/2023 18:05
