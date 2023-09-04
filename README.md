@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eumdOad9li8yzl9Q-hNgytw-t500x500.jpg">](https://soundcloud.com/gearbox-digital/kurxco-heart-of-glass?in=saxurn/sets/acid-override/)
 
-**Artist**: BRAVO 
+**Artist**: Gearbox Digital 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: KURXCO - Heart Of Glass
 
-Last updated at 09/04/2023 13:34
+Last updated at 09/04/2023 13:35
