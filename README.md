@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byeEtBmCRmaT37qQ-S1zWuQ-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-ghetto-blaster-ezkill-2023-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYzOxUGPvEnWjCOW-GvlERQ-t500x500.jpg">](https://soundcloud.com/usecaution/whereyouare)
 
-**Artist**: EzKill 
+**Artist**: Use Caution 
 
-**Track**: EzKill - Ghetto Blaster (EzKill 2023 Remix) ✅FREE DOWNLOAD✅
+**Track**: John Summit x Hayla - Where You Are (Use Caution Edit) BUY = FREE DOWNLOAD
 
-Last updated at 09/04/2023 19:16
+Last updated at 09/04/2023 19:19
