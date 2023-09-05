@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xud0niyyJTGnXSn-9BlbHg-t500x500.jpg">](https://soundcloud.com/officialnohero/kim-petras-nicki-minaj-alone-no-hero-hard-mix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCd862AYOGg2vx0o-JcjoyQ-t500x500.jpg">](https://soundcloud.com/vano_nl/alice-deejay-better-off-alone-vano-x-royal-bootleg?in=saxurn/sets/acid-override/)
 
-**Artist**: No Hero 
+**Artist**: VANO_NL 
 
-**Track**: Kim Petras & Nicki Minaj - Alone (No Hero Hard Mix)
+**Track**: ALICE DEEJAY - BETTER OFF ALONE (VANO X ROYAL BOOTLEG)
 
-Last updated at 09/05/2023 12:44
+Last updated at 09/05/2023 12:47
