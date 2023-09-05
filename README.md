@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing?in=saxurn/sets/acid-override/)
 
-**Artist**: Azumai 
+**Artist**: Semantic Sounds 
 
-**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
+**Track**: Foodydrop - Missing
 
-Last updated at 09/04/2023 18:59
+Last updated at 09/04/2023 19:03
