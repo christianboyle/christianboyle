@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyDB56WzJRSv-0-t500x500.jpg">](https://soundcloud.com/telykast/telykast-georgia-ku-you-got-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oWbVF7hotmYnp0n4-Oo9BOA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-hotline-exs-homage)
 
-**Artist**: TELYKAST 
+**Artist**: Four Four Magazine 
 
-**Track**: TELYKAST, Georgia Ku, The NGHBRS - You Got Me (The NGHBRS Remix)
+**Track**: Four Four Premiere: Hotline - Ex's [Homage]
 
-Last updated at 09/05/2023 11:28
+Last updated at 09/05/2023 11:29
