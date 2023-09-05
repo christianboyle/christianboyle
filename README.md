@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTsEJk06tmA8Vd66-BTgI2A-t500x500.jpg">](https://soundcloud.com/trustamusic/trusta-out-of-the-dark-private)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xud0niyyJTGnXSn-9BlbHg-t500x500.jpg">](https://soundcloud.com/officialnohero/kim-petras-nicki-minaj-alone-no-hero-hard-mix)
 
-**Artist**: TRUSTA 
+**Artist**: No Hero 
 
-**Track**: Trusta - Out Of The Dark
+**Track**: Kim Petras & Nicki Minaj - Alone (No Hero Hard Mix)
 
-Last updated at 09/05/2023 11:38
+Last updated at 09/05/2023 11:39
