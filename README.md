@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyDB56WzJRSv-0-t500x500.jpg">](https://soundcloud.com/telykast/telykast-georgia-ku-you-got-4)
 
-**Artist**: BRAVO 
+**Artist**: TELYKAST 
 
-**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
+**Track**: TELYKAST, Georgia Ku, The NGHBRS - You Got Me (The NGHBRS Remix)
 
-Last updated at 09/05/2023 11:27
+Last updated at 09/05/2023 11:28
