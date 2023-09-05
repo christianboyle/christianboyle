@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iCiOJtnJpM4kenU5-FEvlcQ-t500x500.jpg">](https://soundcloud.com/pepsdj/feel-so-good-x-age-of-love-peps-mashup-extended-free-download-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: MTÉ 
+**Artist**: BRAVO 
 
-**Track**: Feel So Good X Age Of Love - MTÉ Mashup (Extended) / Free Download <3
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/04/2023 19:43
+Last updated at 09/05/2023 11:27
