@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bi1EghS35xpH-0-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-inna-rock-my-body-with)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpPtlab9fBWyiVas-OStolw-t500x500.jpg">](https://soundcloud.com/michaelparkermusic/love-parade-michael-parker-remix)
 
-**Artist**: R3HAB 
+**Artist**: Michael Parker 
 
-**Track**: R3HAB, INNA - Rock My Body (with SASH!) [W&W x R3HAB VIP Remix]
+**Track**: LOVE PARADE (Michael Parker Remix) [FREE DOWNLOAD]
 
-Last updated at 09/06/2023 14:43
+Last updated at 09/06/2023 14:44
