@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i1rE7k4ETjzbBKoc-zy6DwQ-t500x500.jpg">](https://soundcloud.com/b_o_n_k_aa/bonka-2023-mashup-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EV1ZJKgtYATydQR9-XMLpXg-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-1morning-signal-flow-fixed-rhythms)
 
-**Artist**: BONKA Mashups II 
+**Artist**: Four Four Magazine 
 
-**Track**: BONKA 2023 Mashup Pack
+**Track**: Four Four Premiere: 1morning - Signal Flow [Fixed Rhythms]
 
-Last updated at 09/06/2023 12:25
+Last updated at 09/06/2023 12:26
