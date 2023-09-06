@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYE5gf6WmzohOVzi-quVCQA-t500x500.jpg">](https://soundcloud.com/ohlosha/yiotta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i1rE7k4ETjzbBKoc-zy6DwQ-t500x500.jpg">](https://soundcloud.com/b_o_n_k_aa/bonka-2023-mashup-pack)
 
-**Artist**: 𝕆𝕙 𝕃𝕠𝕤𝕙𝕒 (☝︎ ՞ਊ ՞)☝︎ 
+**Artist**: BONKA Mashups II 
 
-**Track**: Oh Losha - YiOTTA
+**Track**: BONKA 2023 Mashup Pack
 
-Last updated at 09/06/2023 12:24
+Last updated at 09/06/2023 12:25
