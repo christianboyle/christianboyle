@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EV1ZJKgtYATydQR9-XMLpXg-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-1morning-signal-flow-fixed-rhythms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XytX73ls4XdWssGl-lFz42w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-elad-magdasi-bluebox-b2-flrbox01)
 
-**Artist**: Four Four Magazine 
+**Artist**: HATE 
 
-**Track**: Four Four Premiere: 1morning - Signal Flow [Fixed Rhythms]
+**Track**: Premiere: Elad Magdasi - BlueBox B2 [FLRBOX01]
 
-Last updated at 09/06/2023 12:26
+Last updated at 09/06/2023 12:27
