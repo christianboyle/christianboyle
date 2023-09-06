@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XytX73ls4XdWssGl-lFz42w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-elad-magdasi-bluebox-b2-flrbox01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFBoQuThSaCJonrd-bcFxwA-t500x500.jpg">](https://soundcloud.com/musicblocksmedia/fracus-darwin-til-i-die-remix-mbm41)
 
-**Artist**: HATE 
+**Artist**: Music Blocks Media 
 
-**Track**: Premiere: Elad Magdasi - BlueBox B2 [FLRBOX01]
+**Track**: Fracus & Darwin - Til I Die (Remix) [MBM41]
 
-Last updated at 09/06/2023 12:27
+Last updated at 09/06/2023 12:28
