@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6frAYyG1YzIPAIo-Ioq0uA-t500x500.jpg">](https://soundcloud.com/dukeandjones/money-trees)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zoEKskErJQ5Ry3i-KlfAkw-t500x500.jpg">](https://soundcloud.com/crescentxx/115-rounds)
 
-**Artist**: Duke & Jones 
+**Artist**: crescent 
 
-**Track**: Money Trees
+**Track**: 115 Rounds
 
-Last updated at 09/06/2023 12:31
+Last updated at 09/06/2023 12:32
