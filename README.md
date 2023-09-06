@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdQAXOnq8OySHoAJ-THTphw-t500x500.jpg">](https://soundcloud.com/bitbird/darby-crush)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6frAYyG1YzIPAIo-Ioq0uA-t500x500.jpg">](https://soundcloud.com/dukeandjones/money-trees)
 
-**Artist**: bitbird 
+**Artist**: Duke & Jones 
 
-**Track**: Darby - Crush
+**Track**: Money Trees
 
-Last updated at 09/06/2023 12:30
+Last updated at 09/06/2023 12:31
