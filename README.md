@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VB042KHIj2MyNpb-b4uUKg-t500x500.jpg">](https://soundcloud.com/dance-project-official/facutum-beori-serotonin?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6ExdylTYDEpvuSk-IzBzog-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/local-selection-216-olympias)
 
-**Artist**: Danceproject 
+**Artist**: Four Four Magazine 
 
-**Track**: Facutum, Beori - Serotonin
+**Track**: Local Selection 216: Olympias
 
-Last updated at 09/05/2023 14:47
+Last updated at 09/06/2023 09:41
