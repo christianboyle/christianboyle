@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zoEKskErJQ5Ry3i-KlfAkw-t500x500.jpg">](https://soundcloud.com/crescentxx/115-rounds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUyaAzu3VW7dbswh-MFF01g-t500x500.jpg">](https://soundcloud.com/wubaholics/gunpoint-wywd-ft-highrollr-1)
 
-**Artist**: crescent 
+**Artist**: Wubaholics 
 
-**Track**: 115 Rounds
+**Track**: Gunpoint - W.Y.W.D. (ft. highrollr)
 
-Last updated at 09/06/2023 12:32
+Last updated at 09/06/2023 12:34
