@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUyaAzu3VW7dbswh-MFF01g-t500x500.jpg">](https://soundcloud.com/wubaholics/gunpoint-wywd-ft-highrollr-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yhbUUeC11B7jWBg5-JhQgQw-t500x500.jpg">](https://soundcloud.com/slowpalace/phantasmszz)
 
-**Artist**: Wubaholics 
+**Artist**: Slowpalace 
 
-**Track**: Gunpoint - W.Y.W.D. (ft. highrollr)
+**Track**: Phantasms
 
-Last updated at 09/06/2023 12:34
+Last updated at 09/06/2023 12:35
