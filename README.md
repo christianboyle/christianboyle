@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WthzfriZ747hV3No-5PiZew-t500x500.jpg">](https://soundcloud.com/chill-hitsdistrict/cooltown-get-your-love-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdQAXOnq8OySHoAJ-THTphw-t500x500.jpg">](https://soundcloud.com/bitbird/darby-crush)
 
-**Artist**: Chill 
+**Artist**: bitbird 
 
-**Track**: [Chill] [Deep House] Cooltown - Get Your Love Away
+**Track**: Darby - Crush
 
-Last updated at 09/06/2023 12:29
+Last updated at 09/06/2023 12:30
