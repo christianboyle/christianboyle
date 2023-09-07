@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpPtlab9fBWyiVas-OStolw-t500x500.jpg">](https://soundcloud.com/michaelparkermusic/love-parade-michael-parker-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aypnRjSnIR9jIM8g-ZWzvEw-t500x500.jpg">](https://soundcloud.com/officialnohero/billy-idol-dancing-with-myself-no-hero-remix)
 
-**Artist**: Michael Parker 
+**Artist**: No Hero 
 
-**Track**: LOVE PARADE (Michael Parker Remix) [FREE DOWNLOAD]
+**Track**: Billy Idol - Dancing With Myself (No Hero Hard Mix)
 
-Last updated at 09/07/2023 08:49
+Last updated at 09/07/2023 11:56
