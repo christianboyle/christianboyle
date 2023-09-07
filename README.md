@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XytX73ls4XdWssGl-lFz42w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-elad-magdasi-bluebox-b2-flrbox01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UJGDfvPOeFIt-0-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-w-w-million-places)
 
-**Artist**: HATE 
+**Artist**: R3HAB 
 
-**Track**: Premiere: Elad Magdasi - BlueBox B2 [FLRBOX01]
+**Track**: R3HAB x W&W - Million Places
 
-Last updated at 09/07/2023 08:41
+Last updated at 09/07/2023 08:46
