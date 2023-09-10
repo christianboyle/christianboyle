@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1nI3pzmDtWmKzjP-G0zEDg-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/ariana-grande-x-zedd-break-free-tatsunoshin-festival-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGfWNeUkTnEH36wT-IkCsBQ-t500x500.jpg">](https://soundcloud.com/alldayfreeself/when-the-summer-ends)
 
-**Artist**: Tatsunoshin 
+**Artist**: Глубина Неба 
 
-**Track**: Ariana Grande x Zedd - Break Free (Tatsunoshin Festival Mix)
+**Track**: Blessed and blushing - When The Summer Ends
 
-Last updated at 09/10/2023 10:32
+Last updated at 09/10/2023 10:33
