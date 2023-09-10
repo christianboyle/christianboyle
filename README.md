@@ -1,24 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://yt3.googleusercontent.com/awO_5EG3xjFJ1HKXwDvpRT8CGvxzp7xf78ABiWrxn36L4z4ZFUQ7yuNuFPRCVeALn-Qc6gPKZA=s900-c-k-c0x00ffffff-no-rj">](https://www.youtube.com/channel/UC4cvpsB_dAX8i5vdaBB-96w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1nI3pzmDtWmKzjP-G0zEDg-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/ariana-grande-x-zedd-break-free-tatsunoshin-festival-mix)
 
-**Artist**: 
-  
-    That Mexican OT
-  
-  
-  
-    That Mexican OT
-  
+**Artist**: Tatsunoshin 
 
+**Track**: Ariana Grande x Zedd - Break Free (Tatsunoshin Festival Mix)
 
-
-
-  Official Artist Channel
-
-
- 
-
-**Track**: That Mexican OT - 15 Missed Calls (feat. Sploosh God) (Official Music Video)
-
-Last updated at 09/09/2023 16:00
+Last updated at 09/10/2023 10:32
