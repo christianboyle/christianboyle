@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WuFNhHJYBuKJ-0-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-rock-my-body-with-inna?in=ollyjamesmusic/sets/rock-my-body-olly-james-macks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73SDQMSTbSpICeJx-dOe8bw-t500x500.jpg">](https://soundcloud.com/goodvsevilofficial/risen)
 
-**Artist**: R3HAB 
+**Artist**: Good Vs Evil 
 
-**Track**: R3hab - Rock My Body (with INNA & Sash!) (Olly James & Macks Wolf Remix)
+**Track**: Risen
 
-Last updated at 09/11/2023 10:24
+Last updated at 09/11/2023 10:26
