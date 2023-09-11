@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IRMFxpKXKJ9RljhD-Q5FJxQ-t500x500.jpg">](https://soundcloud.com/drumcode/charles-d-usa-dont-stop-drumcode-dc287)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ELE6ob7lbs5dJefg-trDMgw-t500x500.jpg">](https://soundcloud.com/barongfamily/confrm-tomatow-lzr)
 
-**Artist**: Drumcode 
+**Artist**: Barong Family 
 
-**Track**: Charles D (USA) - Don't Stop - Drumcode - DC287
+**Track**: CONF!RM & Tomatow - LZR
 
-Last updated at 09/11/2023 09:28
+Last updated at 09/11/2023 09:30
