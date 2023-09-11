@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y888YwRmqLUwhyWP-bzoRNA-t500x500.jpg">](https://soundcloud.com/djyungvampire13/shes-a-maneater-forthcoming-vampire-vice-seazon-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZxH06f8pEdB-0-t500x500.png">](https://soundcloud.com/thecryingnudes-music/suzuki-rhythm-boy)
 
-**Artist**: DJ YUNG VAMP 
+**Artist**: The Crying Nudes 
 
-**Track**: SHE'S A MANEATER (Forthcoming - Vampire Vice Seazon * MIXTAPE )
+**Track**: Suzuki Rhythm Boy
 
-Last updated at 09/11/2023 10:08
+Last updated at 09/11/2023 10:10
