@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FDNQeJzvKlBOe7N-0AbwEA-t500x500.jpg">](https://soundcloud.com/wearelegacy/legacy-roce-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIBy7zCtc9bf1eqd-UmFF3Q-t500x500.jpg">](https://soundcloud.com/zillionaire-remixes/adore-u-zillionaire-remix)
 
-**Artist**: LEGACY 
+**Artist**: Zillionaire Remixes 
 
-**Track**: Legacy - Rocé
+**Track**: adore u (Zillionaire Remix) - Fred again.. & Obongjayar
 
-Last updated at 09/11/2023 10:17
+Last updated at 09/11/2023 10:20
