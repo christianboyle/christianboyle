@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73SDQMSTbSpICeJx-dOe8bw-t500x500.jpg">](https://soundcloud.com/goodvsevilofficial/risen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtmJRe0CSwNcl1Nm-tgZGaQ-t500x500.jpg">](https://soundcloud.com/jay-lumpkin-1/anxiety-ilovefavors-1)
 
-**Artist**: Good Vs Evil 
+**Artist**: #ILoveFavors (JayDay) 
 
-**Track**: Risen
+**Track**: ANXIETY (#ILoveFavors)
 
-Last updated at 09/11/2023 10:26
+Last updated at 09/11/2023 10:27
