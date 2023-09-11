@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aOTVprOgxS6Bdqcj-yujszg-t500x500.jpg">](https://soundcloud.com/besthouseremixes/aap-ferg-reloaded-feat-mia-crystal-caines-fawks-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01WGpu7qS1rBMcgy-W2q0tg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-subradeon-we-are-still-struggling-sbrdn004)
 
-**Artist**: Best House Remixes 
+**Artist**: HATE 
 
-**Track**: A$AP Ferg - Reloaded (feat. Mia & Crystal Caines) [Fawks Radio Mix]
+**Track**: Premiere: Subradeon - We Are Still Struggling [SBRDN004]
 
-Last updated at 09/11/2023 09:52
+Last updated at 09/11/2023 09:56
