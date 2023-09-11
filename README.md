@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtWV51G93EETyTmi-QLpEaA-t500x500.jpg">](https://soundcloud.com/syence/skydriving-feat-jake-neumar?in=itslostindreams/sets/syence-skydrivin-feat-jake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmjtC0Wp8HRfnpBP-9PuLOA-t500x500.jpg">](https://soundcloud.com/mybadmusic/genesi-everything-you-have-done-meduza-edit-my-bad-remix)
 
-**Artist**: syence 
+**Artist**: MY BAD 🤬 
 
-**Track**: skydrivin (feat. jake neumar)
+**Track**: GENESI - Everything You Have Done (Meduza Edit) (MY BAD Remix)
 
-Last updated at 09/11/2023 09:33
+Last updated at 09/11/2023 09:37
