@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0cDg1ksZy02XH5M-nn0JBQ-t500x500.jpg">](https://soundcloud.com/reccrec/sloppy-feat-mu-tate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FDNQeJzvKlBOe7N-0AbwEA-t500x500.jpg">](https://soundcloud.com/wearelegacy/legacy-roce-original-mix)
 
-**Artist**: rec 
+**Artist**: LEGACY 
 
-**Track**: sloppy feat. mu tate
+**Track**: Legacy - Rocé
 
-Last updated at 09/11/2023 10:13
+Last updated at 09/11/2023 10:17
