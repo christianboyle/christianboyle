@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rypQg90rXzuzRxxF-Wvq5oQ-t500x500.jpg">](https://soundcloud.com/therealwillo/bsg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Hc2o6ct1qSYdYL1-EYqkHg-t500x500.jpg">](https://soundcloud.com/imandubstep/mindpluck)
 
-**Artist**: WILLØ 
+**Artist**: IMAN 
 
-**Track**: ISSEY CROSS - BITTERSWEET GOODBYE (WILLØ REMIX)
+**Track**: Subtronics X HOL! - Mind Pluck (IMAN Remix)
 
-Last updated at 09/11/2023 10:47
+Last updated at 09/11/2023 10:49
