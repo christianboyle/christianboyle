@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FBeFFBqRg4L4BytZ-qDFZeQ-t500x500.jpg">](https://soundcloud.com/silvias-dreams-949368267/phonky-rats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y888YwRmqLUwhyWP-bzoRNA-t500x500.jpg">](https://soundcloud.com/djyungvampire13/shes-a-maneater-forthcoming-vampire-vice-seazon-mixtape)
 
-**Artist**: Silvia's Dreams 
+**Artist**: DJ YUNG VAMP 
 
-**Track**: Phonky Rats
+**Track**: SHE'S A MANEATER (Forthcoming - Vampire Vice Seazon * MIXTAPE )
 
-Last updated at 09/11/2023 10:05
+Last updated at 09/11/2023 10:08
