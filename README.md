@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNllfA5QQOCFXlIP-ezzR6Q-t500x500.jpg">](https://soundcloud.com/phuturecollective/gurf-liberosis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zjy4o3weuLzSj2T-yd0kXw-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/sili-sherlock-fulltek-remix)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Forbidden Frequencies 
 
-**Track**: GURF - Liberosis
+**Track**: SiLi - Sherlock (Fulltek Remix)
 
-Last updated at 09/11/2023 09:26
+Last updated at 09/11/2023 09:27
