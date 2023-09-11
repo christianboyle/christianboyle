@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zjy4o3weuLzSj2T-yd0kXw-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/sili-sherlock-fulltek-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IRMFxpKXKJ9RljhD-Q5FJxQ-t500x500.jpg">](https://soundcloud.com/drumcode/charles-d-usa-dont-stop-drumcode-dc287)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Drumcode 
 
-**Track**: SiLi - Sherlock (Fulltek Remix)
+**Track**: Charles D (USA) - Don't Stop - Drumcode - DC287
 
-Last updated at 09/11/2023 09:27
+Last updated at 09/11/2023 09:28
