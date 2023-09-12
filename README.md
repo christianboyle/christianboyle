@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMBKy66v5mwvMdS0-lpz56A-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/john-askew-escapism-balthazar-jackrock-remix-vii-1?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyWYy1rguR4rXRh8-AY52uw-t500x500.jpg">](https://soundcloud.com/jeremy-aron-978345768/aron-ready-for-you?in=saxurn/sets/acid-override/)
 
-**Artist**: Balthazar & JackRock 
+**Artist**: Aron 
 
-**Track**: John Askew - Escapism (Balthazar & JackRock Remix) [VII]
+**Track**: Aron - Ready For You
 
-Last updated at 09/12/2023 14:56
+Last updated at 09/12/2023 14:59
