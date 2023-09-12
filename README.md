@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3x0iFF1jJTFGVj1W-oPO7AA-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/lunchmoney-lewis-bills-gin-and-sonic-remix?in=gin_and_sonic/sets/lunchmoney-lewis-bills-gin-and)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zGW0eA6ZNz3ST6p-cQRDiA-t500x500.jpg">](https://soundcloud.com/slangdogs/ghostemane-to-whom-it-may-concern-slang-dogs-remix)
 
-**Artist**: Gin and Sonic 
+**Artist**: Slang Dogs 
 
-**Track**: LunchMoney Lewis - Bills (Gin And Sonic Remix)
+**Track**: GHOSTEMANE - To Whom It May Concern (Slang Dogs Remix)
 
-Last updated at 09/12/2023 09:59
+Last updated at 09/12/2023 11:32
