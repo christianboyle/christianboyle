@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000262500326-0vvzti-t500x500.jpg">](https://soundcloud.com/0-angel/purrfect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OuDcdQsjVgKs-0-t500x500.png">](https://soundcloud.com/wilowilde/shy-girl)
 
-**Artist**: 0% ANGEL 
+**Artist**: wilo wilde 
 
-**Track**: perfect</3
+**Track**: shy girl
 
-Last updated at 09/12/2023 14:17
+Last updated at 09/12/2023 14:18
