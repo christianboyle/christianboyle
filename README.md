@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zGW0eA6ZNz3ST6p-cQRDiA-t500x500.jpg">](https://soundcloud.com/slangdogs/ghostemane-to-whom-it-may-concern-slang-dogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqFz0omYEwj6rOPr-wUnJ2A-t500x500.jpg">](https://soundcloud.com/magisteriumbeats/lucia-leaving)
 
-**Artist**: Slang Dogs 
+**Artist**: Magisterium 
 
-**Track**: GHOSTEMANE - To Whom It May Concern (Slang Dogs Remix)
+**Track**: Lucia Leaving
 
-Last updated at 09/12/2023 09:39
+Last updated at 09/12/2023 09:41
