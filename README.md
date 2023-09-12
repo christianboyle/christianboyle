@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rF9yjhQkyRZK5SuT-pEPztQ-t500x500.jpg">](https://soundcloud.com/yerbownik/mirage-baeldorf?in=yerbownik/sets/endless_98)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-feYgwWMXCSa3Ghv9-VzC7fQ-t500x500.jpg">](https://soundcloud.com/c8o/im-still-young-tho)
 
-**Artist**: yerbby 
+**Artist**: c8o 
 
-**Track**: mirage (+baeldorf)
+**Track**: im still young
 
-Last updated at 09/12/2023 09:32
+Last updated at 09/12/2023 09:33
