@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q1uFa6Qh5a4sSiHQ-zR8Caw-t500x500.jpg">](https://soundcloud.com/gangsta-house-rowdy/machine-gun-funk-culture-hit-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k4yRCKxzN70yKfgD-v0WZIw-t500x500.jpg">](https://soundcloud.com/bassgalaxy/thrusters)
 
-**Artist**: GANGSTA HOUSE 
+**Artist**: BASSGALAXY 
 
-**Track**: Machine - Gun Funk (Culture Hit Bootleg)
+**Track**: THRUSTERS
 
-Last updated at 09/12/2023 09:43
+Last updated at 09/12/2023 09:46
