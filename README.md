@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E3LNa3TMaZLTowza-Oha36Q-t500x500.jpg">](https://soundcloud.com/aliasnew/serendipity-feat-sim-u-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zGW0eA6ZNz3ST6p-cQRDiA-t500x500.jpg">](https://soundcloud.com/slangdogs/ghostemane-to-whom-it-may-concern-slang-dogs-remix)
 
-**Artist**: ALIAS 
+**Artist**: Slang Dogs 
 
-**Track**: SERENDIPITY (feat. simu)
+**Track**: GHOSTEMANE - To Whom It May Concern (Slang Dogs Remix)
 
-Last updated at 09/12/2023 09:37
+Last updated at 09/12/2023 09:39
