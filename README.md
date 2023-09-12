@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nc0Vx2nPGT4y-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/2-brothers-of-hardstyle-i-am?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: BRAVO 
 
-**Track**: 2 Brothers of Hardstyle - I AM READY
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/12/2023 13:21
+Last updated at 09/12/2023 13:24
