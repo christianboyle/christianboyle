@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAnnedGV0r6akyJT-sCqruQ-t500x500.jpg">](https://soundcloud.com/neoravenation/the-buckness-warehouse-sound?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Y0PiptFuaYKV9H2-YZ0WDQ-t500x500.jpg">](https://soundcloud.com/thebucknessofficial/wicked?in=saxurn/sets/acid-override/)
 
-**Artist**: Neorave Nation 
+**Artist**: The Buckness 
 
-**Track**: The Buckness - Warehouse Sound
+**Track**: Wicked
 
-Last updated at 09/12/2023 13:54
+Last updated at 09/12/2023 13:58
