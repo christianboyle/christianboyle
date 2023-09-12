@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzDOFyyyBDI7I67R-Sn2zDA-t500x500.jpg">](https://soundcloud.com/bkbeats/butterfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZsGqda2ygdwMXyO0-BFwOLQ-t500x500.jpg">](https://soundcloud.com/bkbeats/ctrl_alt_del_bk-beats-edit)
 
 **Artist**: bk beats 
 
-**Track**: cr@zy tøwn - butterfly (dembow refix)
+**Track**: corbin - ctrl_alt_del (bk beats edit)
 
-Last updated at 09/12/2023 14:13
+Last updated at 09/12/2023 14:14
