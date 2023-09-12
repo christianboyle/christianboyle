@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AcyyLh5ftu0i62oG-tWn9bQ-t500x500.jpg">](https://soundcloud.com/dollarbearremixes/innerbloom-dollar-bear-remix-rufus-du-sol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKSLs1lPhgGqht8W-z0o3yA-t500x500.jpg">](https://soundcloud.com/damon-morris4/doja-cat-paint-the-town-red-damon-morris-remix)
 
-**Artist**: Dollar Bear Remixes 
+**Artist**: Damon Morris 
 
-**Track**: Innerbloom (Dollar Bear Remix) - RUFUS DU SOL
+**Track**: Doja Cat - Paint The Town Red (Damon Morris Remix)
 
-Last updated at 09/12/2023 09:53
+Last updated at 09/12/2023 09:58
