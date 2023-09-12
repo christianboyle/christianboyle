@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Su3g41UtsK0TWlCz-tf80rA-t500x500.jpg">](https://soundcloud.com/semantic-sounds/foodydrop-missing?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMBKy66v5mwvMdS0-lpz56A-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/john-askew-escapism-balthazar-jackrock-remix-vii-1?in=saxurn/sets/acid-override/)
 
-**Artist**: Semantic Sounds 
+**Artist**: Balthazar & JackRock 
 
-**Track**: Foodydrop - Missing
+**Track**: John Askew - Escapism (Balthazar & JackRock Remix) [VII]
 
-Last updated at 09/12/2023 14:53
+Last updated at 09/12/2023 14:56
