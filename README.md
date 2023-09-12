@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CBzpqn0NL4JHQ3L1-sxdQuA-t500x500.jpg">](https://soundcloud.com/mrjay96/nobody-like-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AcyyLh5ftu0i62oG-tWn9bQ-t500x500.jpg">](https://soundcloud.com/dollarbearremixes/innerbloom-dollar-bear-remix-rufus-du-sol)
 
-**Artist**: MRJay 
+**Artist**: Dollar Bear Remixes 
 
-**Track**: Nobody Like You
+**Track**: Innerbloom (Dollar Bear Remix) - RUFUS DU SOL
 
-Last updated at 09/12/2023 09:52
+Last updated at 09/12/2023 09:53
