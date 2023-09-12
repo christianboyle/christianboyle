@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OuDcdQsjVgKs-0-t500x500.png">](https://soundcloud.com/wilowilde/shy-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cmmDOCaHS4ApL814-QBuPZw-t500x500.jpg">](https://soundcloud.com/43u/lifewillbealright)
 
-**Artist**: wilo wilde 
+**Artist**: 2040x2040 
 
-**Track**: shy girl
+**Track**: life will be alright
 
-Last updated at 09/12/2023 14:18
+Last updated at 09/12/2023 14:19
