@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkoTVrTgJ5tHnp8J-QHex5A-t500x500.jpg">](https://soundcloud.com/all172things/skulpt-unsatisfied-demand-a172t009)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: All172Things 
+**Artist**: BRAVO 
 
-**Track**: Skulpt - Unsatisfied Demand [A172T009]
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/12/2023 13:28
+Last updated at 09/12/2023 13:30
