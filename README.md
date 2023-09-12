@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMYWxRkdyOnOB3rd-0WJJCw-t500x500.jpg">](https://soundcloud.com/proxysoficial/menticide-proxys-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E3LNa3TMaZLTowza-Oha36Q-t500x500.jpg">](https://soundcloud.com/aliasnew/serendipity-feat-sim-u-1)
 
-**Artist**: Proxys 
+**Artist**: ALIAS 
 
-**Track**: Samplifire & Yakz - Menticide (Proxys EDIT)
+**Track**: SERENDIPITY (feat. simu)
 
-Last updated at 09/12/2023 09:35
+Last updated at 09/12/2023 09:37
