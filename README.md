@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyWYy1rguR4rXRh8-AY52uw-t500x500.jpg">](https://soundcloud.com/jeremy-aron-978345768/aron-ready-for-you?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXB5yOFcq6CphGm2-noeT3w-t500x500.jpg">](https://soundcloud.com/visionrecordings/vision-radio-s03e37)
 
-**Artist**: Aron 
+**Artist**: VISION 
 
-**Track**: Aron - Ready For You
+**Track**: VISION Radio S03E37 // Co-hosted by Machinedrum & Holly
 
-Last updated at 09/12/2023 14:59
+Last updated at 09/13/2023 10:15
