@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxCzM7jpeg9zEpvy-BvzPjA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/abcdefu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yq9wZwjnK0WAQ4Xc-tmdWfw-t500x500.jpg">](https://soundcloud.com/dimmakrecords/honu-whowhenwhy-think-about)
 
-**Artist**: BOOTY LEAK 
+**Artist**: Dim Mak Records 
 
-**Track**: Booty Leak + HOMINID & CØV3R1st - ABCDEFU [ FREE DOWNLOAD ]
+**Track**: HONÜ & WHOWHENWHY - Think About
 
-Last updated at 09/13/2023 10:18
+Last updated at 09/13/2023 10:19
