@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8aSGO6BT4wD7GLf-0vnWWA-t500x500.jpg">](https://soundcloud.com/colorize-enhanced/floa-oai-ephemeral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qXNtLOSgj95RcFBp-CvSSCA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/zhu-in-the-morning-matroda-remix)
 
-**Artist**: Colorize 
+**Artist**: Best House Remixes 
 
-**Track**: Fløa & OAI - Ephemeral
+**Track**: ZHU - In The Morning (Matroda Remix)
 
-Last updated at 09/13/2023 10:23
+Last updated at 09/13/2023 10:24
