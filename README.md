@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQ8M5jeb9kycogt7-ZXnuwA-t500x500.jpg">](https://soundcloud.com/justicehardcore/jh354?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w4e4TEFzigZ1-0-t500x500.png">](https://soundcloud.com/b1rdieaus/how-will-i-know?in=saxurn/sets/acid-override/)
 
-**Artist**: Justice Hardcore 
+**Artist**: b1rdie 
 
-**Track**: LasaG - Away From U ⚠️OUT NOW⚠️
+**Track**: How Will I Know
 
-Last updated at 09/13/2023 13:20
+Last updated at 09/13/2023 13:24
