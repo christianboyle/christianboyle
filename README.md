@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMBKy66v5mwvMdS0-lpz56A-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/john-askew-escapism-balthazar-jackrock-remix-vii-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Balthazar & JackRock 
+**Artist**: BRAVO 
 
-**Track**: John Askew - Escapism (Balthazar & JackRock Remix) [VII]
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/13/2023 11:35
+Last updated at 09/13/2023 11:36
