@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xSnfqCw21WqygBBJ-dbOIUw-t500x500.jpg">](https://soundcloud.com/deerockmusic/get-up-its-gameday-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0q6M8XagcCKxh0kz-TTXwqg-t500x500.jpg">](https://soundcloud.com/vorso/staycation)
 
-**Artist**: Deerock 
+**Artist**: Vorso 
 
-**Track**: Get Up Its Gameday 10
+**Track**: Vorso — Staycation
 
-Last updated at 09/14/2023 11:27
+Last updated at 09/14/2023 11:28
