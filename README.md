@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqkEaDp0tvlmroYq-AMlAAQ-t500x500.jpg">](https://soundcloud.com/scarfiemusic/losing-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZC0L8ca9eOqm3vi9-x9Umlg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/mac-milio-tornado?in=golddiggerrecs/sets/mac-milio-tornado-gold-digger)
 
-**Artist**: SCARFIE 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: LOSING CONTROL
+**Track**: Mac Milio - Tornado [Gold Digger]
 
-Last updated at 09/14/2023 11:21
+Last updated at 09/14/2023 11:22
