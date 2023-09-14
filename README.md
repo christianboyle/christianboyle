@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byeEtBmCRmaT37qQ-S1zWuQ-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-ghetto-blaster-ezkill-2023-remix/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65hnJ6Hb2jUsyhAe-7frRFg-t500x500.jpg">](https://soundcloud.com/destyrush/miranda-cosgrove-about-you-now-mxnvx-x-desty-rush-remix/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
 
-**Artist**: EzKill 
+**Artist**: Desty Rush 
 
-**Track**: EzKill - Ghetto Blaster (EzKill 2023 Remix) ✅FREE DOWNLOAD✅
+**Track**: Miranda Cosgrove - About You Now [mxnvs x Desty Rush REMIX]
 
-Last updated at 09/14/2023 12:15
+Last updated at 09/14/2023 12:18
