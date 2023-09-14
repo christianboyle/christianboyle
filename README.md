@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000480547299-he5gj3-t500x500.jpg">](https://soundcloud.com/dotmaxmusic/i-want-you-to-know-remix?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6frAYyG1YzIPAIo-Ioq0uA-t500x500.jpg">](https://soundcloud.com/dukeandjones/money-trees?in=dukeandjones/sets/dukebox-the-remixes-vol-1)
 
-**Artist**: dot.MAX 
+**Artist**: Duke & Jones 
 
-**Track**: Zedd - I Want You to Know (feat. Selena Gomez) (Alex Prospect & dot.MAX Remix) [FREE DOWNLOAD]
+**Track**: Money Trees
 
-Last updated at 09/13/2023 19:23
+Last updated at 09/14/2023 11:12
