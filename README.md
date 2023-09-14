@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTowmCoIwUAVB9i-22sQoQ-t500x500.jpg">](https://soundcloud.com/gradient-map/brush?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uKsgTm4DoCsziCjF-4zFfdg-t500x500.jpg">](https://soundcloud.com/itsdemotapes/trap-queen-demotapes-y2k-flip?in=saxurn/sets/new-1/)
 
-**Artist**: gradient map 
+**Artist**: demotapes 
 
-**Track**: onlytom - Brush
+**Track**: trap queen (demotapes Y2K flip)
 
-Last updated at 09/14/2023 13:32
+Last updated at 09/14/2023 13:35
