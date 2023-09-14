@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-edpeb49yWwJxCYro-LhcpGg-t500x500.jpg">](https://soundcloud.com/ineedcoffeebro/brain-shake-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqkEaDp0tvlmroYq-AMlAAQ-t500x500.jpg">](https://soundcloud.com/scarfiemusic/losing-control)
 
-**Artist**: KranK 
+**Artist**: SCARFIE 
 
-**Track**: Brain Shake VIP [Release August 31] [FREE DOWNLOAD .WAV]
+**Track**: LOSING CONTROL
 
-Last updated at 09/14/2023 11:20
+Last updated at 09/14/2023 11:21
