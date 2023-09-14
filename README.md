@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRuVHjNVKPvIZ8nO-V5dG0g-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-matto-matto-man-boom-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-64f5mdUFzaQd4JSi-DcSQCA-t500x500.jpg">](https://soundcloud.com/dunkmellowd/avello-madeline-austin-only-you-mellowd-remixm)
 
-**Artist**: M-Project 
+**Artist**: MellowD 
 
-**Track**: M-Project & Matto Matto Man - Boom Town
+**Track**: Avello & Madeline Austin - Only You (MellowD Remix)
 
-Last updated at 09/14/2023 11:30
+Last updated at 09/14/2023 11:33
