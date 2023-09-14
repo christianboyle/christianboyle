@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCd862AYOGg2vx0o-JcjoyQ-t500x500.jpg">](https://soundcloud.com/vano_nl/alice-deejay-better-off-alone-vano-x-royal-bootleg?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpPtlab9fBWyiVas-OStolw-t500x500.jpg">](https://soundcloud.com/michaelparkermusic/love-parade-michael-parker-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: VANO_NL 
+**Artist**: Michael Parker 
 
-**Track**: ALICE DEEJAY - BETTER OFF ALONE (VANO X ROYAL BOOTLEG)
+**Track**: LOVE PARADE (Michael Parker Remix) [FREE DOWNLOAD]
 
-Last updated at 09/14/2023 14:29
+Last updated at 09/14/2023 14:30
