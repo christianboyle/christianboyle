@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyWYy1rguR4rXRh8-AY52uw-t500x500.jpg">](https://soundcloud.com/jeremy-aron-978345768/aron-ready-for-you/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
 
-**Artist**: Aron 
+**Artist**: NGD Project 
 
-**Track**: Aron - Ready For You
+**Track**: Not Alone
 
-Last updated at 09/14/2023 13:13
+Last updated at 09/14/2023 13:16
