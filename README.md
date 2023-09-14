@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biBVurQ0NRpXp5Ag-GdTWYA-t500x500.jpg">](https://soundcloud.com/wakaan/sully-feat-misdom-seasons?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6jEQCozfyGDv-0-t500x500.png">](https://soundcloud.com/33below/cycles-darby-remix-feat-isaiah?in=saxurn/sets/new-1/)
 
-**Artist**: Wakaan 
+**Artist**: 33 BELOW 
 
-**Track**: Sully feat. Misdom - Seasons
+**Track**: Cycles (Darby Remix) [feat. Isaiah]
 
-Last updated at 09/14/2023 13:46
+Last updated at 09/14/2023 13:50
