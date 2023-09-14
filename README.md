@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n61imaMZ4zHzCB0I-0OOorA-t500x500.jpg">](https://soundcloud.com/azumai_dnb/tessela-hackney-parrot-azumai-bootleg?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyWYy1rguR4rXRh8-AY52uw-t500x500.jpg">](https://soundcloud.com/jeremy-aron-978345768/aron-ready-for-you/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
 
-**Artist**: Azumai 
+**Artist**: Aron 
 
-**Track**: Tessela - Hackney Parrot (Azumai Bootleg) FREE DOWNLOAD
+**Track**: Aron - Ready For You
 
-Last updated at 09/14/2023 13:09
+Last updated at 09/14/2023 13:13
