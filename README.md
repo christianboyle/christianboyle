@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space/s-1D50JdMfv6Z?in=saxurn/sets/acid-override/)
 
-**Artist**: NGD Project 
+**Artist**: JAWNS 
 
-**Track**: Not Alone
+**Track**: Habstrakt - Outer Space (JAWNS Remix)
 
-Last updated at 09/14/2023 13:16
+Last updated at 09/14/2023 13:19
