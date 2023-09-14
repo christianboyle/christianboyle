@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BE8g9TYyyN1ZYzWu-0G8B7w-t500x500.jpg">](https://soundcloud.com/whoslimboslice/aphotic?in=saxurn/sets/acid-override/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zGW0eA6ZNz3ST6p-cQRDiA-t500x500.jpg">](https://soundcloud.com/slangdogs/ghostemane-to-whom-it-may-concern-slang-dogs-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: Limbo Slice 
+**Artist**: Slang Dogs 
 
-**Track**: Aphotic
+**Track**: GHOSTEMANE - To Whom It May Concern (Slang Dogs Remix)
 
-Last updated at 09/13/2023 13:27
+Last updated at 09/13/2023 19:04
