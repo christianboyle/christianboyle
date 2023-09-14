@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-56Sj4IZMf9LqR0tC-F0a1Ow-t500x500.jpg">](https://soundcloud.com/user-553848593/obeis1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eSiPM6Ui2NVziTDr-Se8qVQ-t500x500.jpg">](https://soundcloud.com/ladarudeparty/panteros666-da-kool-tk04)
 
-**Artist**: AbsolutUnsa 
+**Artist**: La Darude / Tekno Kawaii 
 
-**Track**: Obéis (to your Life/Funky Testament)
+**Track**: Panteros666 - Da Kool [TK04]
 
-Last updated at 09/14/2023 11:17
+Last updated at 09/14/2023 11:18
