@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0q6M8XagcCKxh0kz-TTXwqg-t500x500.jpg">](https://soundcloud.com/vorso/staycation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAzipCThvNs0xe2J-uLiIcA-t500x500.jpg">](https://soundcloud.com/circuselectric/shxdow-x-luigi-neighbours-inside-your-eyes)
 
-**Artist**: Vorso 
+**Artist**: Circus Electric 
 
-**Track**: Vorso — Staycation
+**Track**: shXdow. x Luigi Neighbours - Inside Your Eyes
 
-Last updated at 09/14/2023 11:28
+Last updated at 09/14/2023 11:29
