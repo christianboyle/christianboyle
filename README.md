@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7eofedhIRa8RhxwT-OJ5dQQ-t500x500.jpg">](https://soundcloud.com/deathpact/fallingmontell2099remix?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTowmCoIwUAVB9i-22sQoQ-t500x500.jpg">](https://soundcloud.com/gradient-map/brush?in=saxurn/sets/new-1/)
 
-**Artist**: ＤＥＡＴＨＰＡＣＴ 
+**Artist**: gradient map 
 
-**Track**: FALLING (Montell2099 Remix)
+**Track**: onlytom - Brush
 
-Last updated at 09/14/2023 13:29
+Last updated at 09/14/2023 13:32
