@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMYDge3WlGTeeUaR-Czz6Wg-t500x500.jpg">](https://soundcloud.com/asamoy2/the-ones-malachi-dnb-remix?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Kq4A5lYzvERn2vk-LErUGw-t500x500.jpg">](https://soundcloud.com/pyro_records/no-hero-call-u-mine?in=saxurn/sets/acid-override)
 
-**Artist**: Malachi 
+**Artist**: PYRO Records 
 
-**Track**: The Ones (Malachi DnB Remix)
+**Track**: No Hero - Call U Mine
 
-Last updated at 09/15/2023 12:42
+Last updated at 09/15/2023 12:45
