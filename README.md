@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7aSPOErRwxyrpaL-rVMmSw-t500x500.jpg">](https://soundcloud.com/user-779214024/craaig-x-dken-aaliyah-prtytraxva01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pog0rNlzwj1j5I8e-HjxPHw-t500x500.jpg">](https://soundcloud.com/bravo123456789/bravo-juice-world-remix?in=saxurn/sets/acid-override/)
 
-**Artist**: PRTY TRAX 
+**Artist**: BRAVO 
 
-**Track**: CRAAIG X DKEN - Aaliyah [PRTYTRAXVA01]
+**Track**: JuiceWRLD - All Girls Are The Same (BRAVO Remix)
 
-Last updated at 09/15/2023 11:33
+Last updated at 09/15/2023 11:47
