@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7aSPOErRwxyrpaL-rVMmSw-t500x500.jpg">](https://soundcloud.com/user-779214024/craaig-x-dken-aaliyah-prtytraxva01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lz6jd5uJub2zbllt-mxebvg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/floret-loret-bloodstone)
 
-**Artist**: PRTY TRAX 
+**Artist**: Gravitas Music 
 
-**Track**: CRAAIG X DKEN - Aaliyah [PRTYTRAXVA01]
+**Track**: Floret Loret - Bloodstone
 
-Last updated at 09/15/2023 10:58
+Last updated at 09/15/2023 11:00
