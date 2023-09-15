@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvMoEwVzzPyJy17P-AoJ5xQ-t500x500.jpg">](https://soundcloud.com/pls-ty/onemoresong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYarotO2kf2e-0-t500x500.jpg">](https://soundcloud.com/oneseventy/jakka-b-i-just-want-more)
 
-**Artist**: PLS&TY 
+**Artist**: OneSeventy 
 
-**Track**: PLS&TY - One More Song
+**Track**: Jakka-B - I Just Want More
 
-Last updated at 09/15/2023 10:53
+Last updated at 09/15/2023 10:54
