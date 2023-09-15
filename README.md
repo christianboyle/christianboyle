@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Kq4A5lYzvERn2vk-LErUGw-t500x500.jpg">](https://soundcloud.com/pyro_records/no-hero-call-u-mine?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UJGDfvPOeFIt-0-t500x500.jpg">](https://soundcloud.com/r3hab/r3hab-x-w-w-million-places?in=saxurn/sets/acid-override)
 
-**Artist**: PYRO Records 
+**Artist**: R3HAB 
 
-**Track**: No Hero - Call U Mine
+**Track**: R3HAB x W&W - Million Places
 
-Last updated at 09/15/2023 12:45
+Last updated at 09/15/2023 12:46
