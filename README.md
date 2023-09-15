@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibyXPwB7Fepk5inK-schEDQ-t500x500.jpg">](https://soundcloud.com/vandalondatrack/fein)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzxUpfphKLysQNQs-ks2StA-t500x500.jpg">](https://soundcloud.com/rlgrime/jewel?in=rlgrime/sets/play)
 
-**Artist**: Vandal On Da Track 
+**Artist**: RL Grime 
 
-**Track**: Travis Scott, Playboi Carti - FE!N (Vandal On Da Track Edit)
+**Track**: RL Grime & ISOxo - Jewel
 
-Last updated at 09/15/2023 11:05
+Last updated at 09/15/2023 11:06
