@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7aSPOErRwxyrpaL-rVMmSw-t500x500.jpg">](https://soundcloud.com/user-779214024/craaig-x-dken-aaliyah-prtytraxva01?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMOcHAyGW0GasLcM-3PsYkw-t500x500.jpg">](https://soundcloud.com/ziggyx_official/ziggy-x-daniel-seven-overdrive?in=saxurn/sets/acid-override)
 
-**Artist**: PRTY TRAX 
+**Artist**: ZIGGY X_official 
 
-**Track**: CRAAIG X DKEN - Aaliyah [PRTYTRAXVA01]
+**Track**: ZIGGY X & Daniel Seven - Overdrive
 
-Last updated at 09/15/2023 13:02
+Last updated at 09/15/2023 13:08
