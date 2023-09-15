@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lz6jd5uJub2zbllt-mxebvg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/floret-loret-bloodstone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26nVUzdfdUIwfqnx-I6vIuw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tatsunoshin-desire)
 
-**Artist**: Gravitas Music 
+**Artist**: Dirty Workz 
 
-**Track**: Floret Loret - Bloodstone
+**Track**: Tatsunoshin - Desire
 
-Last updated at 09/15/2023 11:00
+Last updated at 09/15/2023 11:01
