@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nk4GB9bmkOSkT1wH-KUKeTQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/mutable-mercury-take-blue-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sMMZzZdY0kCKfvPV-QmuifA-t500x500.jpg">](https://soundcloud.com/user-779214024/sikoti-what-ya-know-prty-va01)
 
-**Artist**: Scuffed Recordings 
+**Artist**: PRTY TRAX 
 
-**Track**: Mutable Mercury - Take Blue In
+**Track**: SIKOTI - WHAT YA KNOW [PRTYTRAXVA01]
 
-Last updated at 09/15/2023 10:55
+Last updated at 09/15/2023 10:56
