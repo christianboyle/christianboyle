@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCu92JECj7yOh194-rJeTyg-t500x500.jpg">](https://soundcloud.com/armnhmr/someonetoforget?in=armnhmr/sets/together-as-one-album)
 
-**Artist**: JAWNS 
+**Artist**: ARMNHMR 
 
-**Track**: Habstrakt - Outer Space (JAWNS Remix)
+**Track**: ARMNHMR & Lights - Someone To Forget
 
-Last updated at 09/15/2023 13:10
+Last updated at 09/16/2023 11:12
