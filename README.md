@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbIQdgKafhR105ny-uyTg8Q-t500x500.jpg">](https://soundcloud.com/zaza/hardfeelings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUHxDj6wU4W5-0-t500x500.jpg">](https://soundcloud.com/bl3ss-bl3ss/bl3ss-losing-my-head-demo)
 
-**Artist**: Zaza 
+**Artist**: bl3ss.bl3ss 
 
-**Track**: Miquela - Hard Feelings (Zaza Remix)
+**Track**: Losing My Head
 
-Last updated at 09/17/2023 14:25
+Last updated at 09/17/2023 14:26
