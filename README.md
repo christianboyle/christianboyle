@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yo1ZqDIco4y8JDq-ZKysiw-t500x500.jpg">](https://soundcloud.com/notvaro/salem-clips-katebi-gali-necroez-pandi-qioh-kristof)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74VYimRrNkmS2jbP-5jD66Q-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-lazuz-locura-original-mix-maneki-neko)
 
-**Artist**: varo 
+**Artist**: Raven Musik 
 
-**Track**: SALEM CLIPS (+ katebi, gali, necroez, pandi, qioh, & kristof)
+**Track**: PREMIERE: Lazuz - Locura (Original Mix) [Maneki Neko]
 
-Last updated at 09/16/2023 16:22
+Last updated at 09/17/2023 14:22
