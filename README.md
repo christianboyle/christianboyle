@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUHxDj6wU4W5-0-t500x500.jpg">](https://soundcloud.com/bl3ss-bl3ss/bl3ss-losing-my-head-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-EoA68xl8z1rHRrks-2jtbiw-t500x500.jpg">](https://soundcloud.com/adrienv/milk-win-v27-131)
 
-**Artist**: bl3ss.bl3ss 
+**Artist**: Adrien V 
 
-**Track**: Losing My Head
+**Track**: Milk Win
 
-Last updated at 09/17/2023 14:26
+Last updated at 09/17/2023 14:45
