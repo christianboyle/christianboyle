@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZTayz4fQavpV7Lm-lsT1gQ-t500x500.jpg">](https://soundcloud.com/imhiraeth/hiraeth-sample-pack-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbIQdgKafhR105ny-uyTg8Q-t500x500.jpg">](https://soundcloud.com/zaza/hardfeelings)
 
-**Artist**: hiræth 
+**Artist**: Zaza 
 
-**Track**: hiræth – sample pack vol. 4
+**Track**: Miquela - Hard Feelings (Zaza Remix)
 
-Last updated at 09/17/2023 14:24
+Last updated at 09/17/2023 14:25
