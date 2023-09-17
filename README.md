@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74VYimRrNkmS2jbP-5jD66Q-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-lazuz-locura-original-mix-maneki-neko)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EY2QczwjFIy5O8La-eufCfQ-t500x500.jpg">](https://soundcloud.com/inrotationrecs/viv-castle-changes?in=inrotationrecs/sets/viv-castle-changes-ep)
 
-**Artist**: Raven Musik 
+**Artist**: IN / ROTATION 
 
-**Track**: PREMIERE: Lazuz - Locura (Original Mix) [Maneki Neko]
+**Track**: Viv Castle - Changes
 
-Last updated at 09/17/2023 14:22
+Last updated at 09/17/2023 14:23
