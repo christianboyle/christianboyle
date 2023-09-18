@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byeEtBmCRmaT37qQ-S1zWuQ-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-ghetto-blaster-ezkill-2023-remix?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-64f5mdUFzaQd4JSi-DcSQCA-t500x500.jpg">](https://soundcloud.com/dunkmellowd/avello-madeline-austin-only-you-mellowd-remixm?in=saxurn/sets/acid-override)
 
-**Artist**: EzKill 
+**Artist**: MellowD 
 
-**Track**: EzKill - Ghetto Blaster (EzKill 2023 Remix) ✅FREE DOWNLOAD✅
+**Track**: Avello & Madeline Austin - Only You (MellowD Remix)
 
-Last updated at 09/18/2023 11:34
+Last updated at 09/18/2023 11:38
