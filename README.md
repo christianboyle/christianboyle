@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfrgddmC3g1v-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/emoticon-rave-god?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nc0Vx2nPGT4y-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/2-brothers-of-hardstyle-i-am?in=saxurn/sets/acid-override)
 
 **Artist**: Keeping The Rave Alive 
 
-**Track**: Emoticon - Rave God
+**Track**: 2 Brothers of Hardstyle - I AM READY
 
-Last updated at 09/18/2023 16:24
+Last updated at 09/18/2023 16:27
