@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMOcHAyGW0GasLcM-3PsYkw-t500x500.jpg">](https://soundcloud.com/ziggyx_official/ziggy-x-daniel-seven-overdrive?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDjl6mFX9mVv8JcA-alDybw-t500x500.jpg">](https://soundcloud.com/longjawns/outer-space?in=saxurn/sets/acid-override)
 
-**Artist**: ZIGGY X_official 
+**Artist**: JAWNS 
 
-**Track**: ZIGGY X & Daniel Seven - Overdrive
+**Track**: Habstrakt - Outer Space (JAWNS Remix)
 
-Last updated at 09/18/2023 17:05
+Last updated at 09/18/2023 17:08
