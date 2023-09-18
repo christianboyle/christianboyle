@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMYDge3WlGTeeUaR-Czz6Wg-t500x500.jpg">](https://soundcloud.com/asamoy2/the-ones-malachi-dnb-remix?in=saxurn/sets/acid-override)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fa3WOviGDYXjgoIk-6lcYeA-t500x500.jpg">](https://soundcloud.com/subfocus/dod-so-much-in-love-sub-focus-remix-1?in=saxurn/sets/acid-override)
 
-**Artist**: Malachi 
+**Artist**: Sub Focus 
 
-**Track**: The Ones (Malachi DnB Remix)
+**Track**: D.O.D - So Much In Love (Sub Focus Remix)
 
-Last updated at 09/18/2023 16:30
+Last updated at 09/18/2023 16:33
