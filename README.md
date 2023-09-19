@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYZXJGmre79ItN7K-z2niGg-t500x500.jpg">](https://soundcloud.com/little-medusa/mixtape-006-tech-house-for-tech-house-nrg-radio-july-2023)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/WWFv-ztZx0Q/maxresdefault.jpg">](https://www.youtube.com/watch?v=WWFv-ztZx0Q)
 
-**Artist**: The little Medusa 
+**Artist**: 
+  
+    That Mexican OT
+  
+  
+  
+    That Mexican OT
+  
 
-**Track**: Mixtape 006 - Tech House For TECH HOUSE NRG RADIO , July 2023
 
-Last updated at 09/19/2023 11:45
+
+
+
+ 
+
+**Track**: That Mexican OT - Skelz (Official Music Video)
+
+Last updated at 09/19/2023 11:46
