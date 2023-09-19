@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7eofedhIRa8RhxwT-OJ5dQQ-t500x500.jpg">](https://soundcloud.com/deathpact/fallingmontell2099remix?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLkSnq2PzWGxcnUN-6qwblA-t500x500.jpg">](https://soundcloud.com/bizarrebass/doja-remix-w-haven-woods)
 
-**Artist**: ＤＥＡＴＨＰＡＣＴ 
+**Artist**: BIZARRE 
 
-**Track**: FALLING (Montell2099 Remix)
+**Track**: Doja Remix W/ Haven Woods.
 
-Last updated at 09/18/2023 17:32
+Last updated at 09/19/2023 11:42
