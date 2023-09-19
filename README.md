@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBfwzXRW9Oy0-0-t500x500.jpg">](https://soundcloud.com/cam3oblush/out-there-feat-yune-pinku)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP0tV07GzIQbITsI-pUQpMA-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-twenty-seven-vardae-la-vallee-electrique-1)
 
-**Artist**: Cameo Blush 
+**Artist**: Animalia 
 
-**Track**: Out There (feat. yunè pinku)
+**Track**: ani/live Twenty Seven: Vardae @ La Nature Festival
 
-Last updated at 09/19/2023 11:53
+Last updated at 09/19/2023 12:45
