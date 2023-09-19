@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d2rGPy07c0zxor8d-T6wkAA-t500x500.jpg">](https://soundcloud.com/tpiston77/damian-marley-welcome-to-jamrock-tpiston-x-selekta-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity)
 
-**Artist**: Tpiston 
+**Artist**: rxflxct 
 
-**Track**: Damian Marley - Welcome To Jamrock (Tpiston X Selekta Remix)
+**Track**: Gravity
 
-Last updated at 09/19/2023 11:48
+Last updated at 09/19/2023 11:50
