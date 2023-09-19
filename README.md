@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mLkSnq2PzWGxcnUN-6qwblA-t500x500.jpg">](https://soundcloud.com/bizarrebass/doja-remix-w-haven-woods)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VQGZaUJQvc4MPrzN-Uvoz5A-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-live-planet-love-2023-subculture-closing-set)
 
-**Artist**: BIZARRE 
+**Artist**: Shugz Music 
 
-**Track**: Doja Remix W/ Haven Woods.
+**Track**: Shugz LIVE @ Planetlove 2023 (Subculture Closing Set)
 
-Last updated at 09/19/2023 11:42
+Last updated at 09/19/2023 11:43
