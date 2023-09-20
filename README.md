@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pP0tV07GzIQbITsI-pUQpMA-t500x500.jpg">](https://soundcloud.com/animalia-label/anilive-twenty-seven-vardae-la-vallee-electrique-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Foe9VqDusxjw28nq-rtMVUA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jks-all-my-love-smiled003)
 
-**Artist**: Animalia 
+**Artist**: HATE 
 
-**Track**: ani/live Twenty Seven: Vardae @ La Nature Festival
+**Track**: Premiere: JKS - All My Love [SMILED003]
 
-Last updated at 09/19/2023 12:45
+Last updated at 09/20/2023 11:20
