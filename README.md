@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Foe9VqDusxjw28nq-rtMVUA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jks-all-my-love-smiled003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kLAhm7OxCnIL-0-t500x500.jpg">](https://soundcloud.com/lumix_music/techno-sound)
 
-**Artist**: HATE 
+**Artist**: LUM!X 
 
-**Track**: Premiere: JKS - All My Love [SMILED003]
+**Track**: Techno Sound
 
-Last updated at 09/20/2023 11:20
+Last updated at 09/20/2023 11:25
