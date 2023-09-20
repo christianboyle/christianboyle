@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kLAhm7OxCnIL-0-t500x500.jpg">](https://soundcloud.com/lumix_music/techno-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GfO0oJEg5YiguMTt-V8n6Ug-t500x500.jpg">](https://soundcloud.com/simplifyrecs/tali-rush-other-side?in=simplifyrecs/sets/tali-rush-other-side)
 
-**Artist**: LUM!X 
+**Artist**: Simplify. 
 
-**Track**: Techno Sound
+**Track**: Tali Rush - Other Side
 
-Last updated at 09/20/2023 11:25
+Last updated at 09/20/2023 11:28
