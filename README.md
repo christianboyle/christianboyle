@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYTl9XHzs6eOXemv-efEAyA-t500x500.jpg">](https://soundcloud.com/hide-the-junk/x-club-exertion-transmission)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jlKMSlVCkfrzrAIx-sqk2Hw-t500x500.jpg">](https://soundcloud.com/wubaholics/cavern-exploria-ft-lam)
 
-**Artist**: HIDE THE JUNK 
+**Artist**: Wubaholics 
 
-**Track**: X CLUB. - Exertion (Transmission)
+**Track**: Cavern - Exploria (ft. Lam)
 
-Last updated at 09/21/2023 12:58
+Last updated at 09/21/2023 13:00
