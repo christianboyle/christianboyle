@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6kpw3BFfm2DIJS2M-OqYRAg-t500x500.jpg">](https://soundcloud.com/realoblivionaudio/oblivion-luv-all-i-need)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S89ttGSAtnHFBUz-l0A1wg-t500x500.jpg">](https://soundcloud.com/lov3lotus/no-way-backprod-yandere-hiyori)
 
-**Artist**: 𝐎𝐁𝐋𝐈𝐕𝐈𝐎𝐍 
+**Artist**: lov3lotus 
 
-**Track**: Oblivion - LUV (All I Need)[HAC089]
+**Track**: no way back「prod. yandere + hiyori」
 
-Last updated at 09/21/2023 13:11
+Last updated at 09/21/2023 13:12
