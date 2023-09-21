@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxlXG0Qd0f7GVaR8-QE6VdA-t500x500.jpg">](https://soundcloud.com/duploc/dplc002-hamdi-immortal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qFOD4Pfe3Eg21y5F-mjnSYA-t500x500.jpg">](https://soundcloud.com/nightbassrecords/ac-slater-shift-k3y-can-u-handle-it-ft-kelli-leigh?in=acslater/sets/ac-slater-together)
 
-**Artist**: DUPLOC 
+**Artist**: Night Bass 
 
-**Track**: Hamdi - Immortal [DPLC002]
+**Track**: AC Slater & Shift K3Y - Can U Handle It (Ft. Kelli-Leigh)
 
-Last updated at 09/21/2023 13:03
+Last updated at 09/21/2023 13:04
