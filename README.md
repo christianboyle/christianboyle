@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n1PVnY2kUpPlD4D0-yh4B8g-t500x500.jpg">](https://soundcloud.com/machinedrum/machinedrum-holly-release-party)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/n6GV5C3hiic/maxresdefault.jpg">](https://www.youtube.com/watch?v=n6GV5C3hiic)
 
-**Artist**: Machinedrum 
+**Artist**: 
+  
+    DRAB MAJESTY
+  
+  
+  
+    DRAB MAJESTY
+  
 
-**Track**: MACHINEDRUM & HOLLY - 天の川 RELEASE PARTY W BROWNIES & LEMONADE
 
-Last updated at 09/21/2023 14:49
+
+
+
+ 
+
+**Track**: Foreign Eyes
+
+Last updated at 09/22/2023 10:11
