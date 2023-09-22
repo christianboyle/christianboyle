@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s1jSHxg0Js6DrekN-Bnh0Tg-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc200)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnVXygJVJtVPmiJQ-SqhyXA-t500x500.jpg">](https://soundcloud.com/dffrntrcrds/spars-these-days)
 
-**Artist**: NON STOP NXC® 
+**Artist**: DIFFERENT RECORDS 
 
-**Track**: NXC200 - SYNOVA X CODRA - ZOEY 101
+**Track**: Spars - These Days
 
-Last updated at 09/22/2023 12:59
+Last updated at 09/22/2023 13:00
