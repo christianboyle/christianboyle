@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/n6GV5C3hiic/maxresdefault.jpg">](https://www.youtube.com/watch?v=n6GV5C3hiic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0hdxcPoC2F13GEZH-rWAq4A-t500x500.jpg">](https://soundcloud.com/iceprincescola/make-you-dance-prod-snorkatje)
 
-**Artist**: 
-  
-    DRAB MAJESTY
-  
-  
-  
-    DRAB MAJESTY
-  
+**Artist**: Ice Prince Scola 
 
+**Track**: Make You Dance (Prod. Snorkatje)
 
-
-
-
- 
-
-**Track**: Foreign Eyes
-
-Last updated at 09/22/2023 10:11
+Last updated at 09/22/2023 12:58
