@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnVXygJVJtVPmiJQ-SqhyXA-t500x500.jpg">](https://soundcloud.com/dffrntrcrds/spars-these-days)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4k54yilG7dYYfWs4-A6V9qw-t500x500.jpg">](https://soundcloud.com/jayceeoh/millionplaces)
 
-**Artist**: DIFFERENT RECORDS 
+**Artist**: Jayceeoh 
 
-**Track**: Spars - These Days
+**Track**: Jayceeoh - million places ft. Lerome Swiss
 
-Last updated at 09/22/2023 13:00
+Last updated at 09/22/2023 13:01
