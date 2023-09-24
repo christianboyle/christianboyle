@@ -1,9 +1,9 @@
-## Currently Playing on YTMusic
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://lh3.googleusercontent.com/rY4iiJzzQV8ahN7b-VFrsD7gzwtW1JcEYVOvG8SwdazZ29ZU2xYw7PQVBm61Y8IeyxAXRoxdKSnPYkm8hQ">](https://music.youtube.com/watch?v=Rhd2EAXD3nk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Msym3Xv2cMQV2zky-hiEV2A-t500x500.jpg">](https://soundcloud.com/monsterkiii/3kings-boom)
 
-**Artist**: Channel Tres 
+**Artist**: [3KinGs] 
 
-**Track**: Topdown
+**Track**: 3KinGs - Boom - A no Budget Prodcution Austria
 
-Last updated at 09/24/2023 15:38
+Last updated at 09/24/2023 15:39
