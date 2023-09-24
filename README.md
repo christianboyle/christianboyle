@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WdDMzWIAdEcP0NiG-xJaZgQ-t500x500.jpg">](https://soundcloud.com/tanfa/ice-spice-princess-diana-lixx-x-tanfa-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIitL16pDtqQ5ePe-LL4KFA-t500x500.jpg">](https://soundcloud.com/solomonomusic/places)
 
-**Artist**: TANFA 
+**Artist**: Solomono 
 
-**Track**: Ice Spice - Princess Diana (Lixx X Tanfa REMIX)
+**Track**: Places
 
-Last updated at 09/24/2023 15:16
+Last updated at 09/24/2023 15:17
