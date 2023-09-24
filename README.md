@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zGW0eA6ZNz3ST6p-cQRDiA-t500x500.jpg">](https://soundcloud.com/slangdogs/ghostemane-to-whom-it-may-concern-slang-dogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gMBKy66v5mwvMdS0-lpz56A-t500x500.jpg">](https://soundcloud.com/balthazar-jackrock/john-askew-escapism-balthazar-jackrock-remix-vii-1)
 
-**Artist**: Slang Dogs 
+**Artist**: Balthazar & JackRock 
 
-**Track**: GHOSTEMANE - To Whom It May Concern (Slang Dogs Remix)
+**Track**: John Askew - Escapism (Balthazar & JackRock Remix) [VII]
 
-Last updated at 09/24/2023 16:04
+Last updated at 09/24/2023 16:08
