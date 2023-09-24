@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyhXauqzwVF8proK-hiizjA-t500x500.jpg">](https://soundcloud.com/underscores/stk?in=underscores/sets/wsk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyZ1gPeHA8Tzdb1V-uFjz0w-t500x500.jpg">](https://soundcloud.com/underscores/hms?in=underscores/sets/wsk)
 
 **Artist**: underscores 
 
-**Track**: Shoot to kill, kill your darlings
+**Track**: Horror movie soundtrack
 
-Last updated at 09/24/2023 14:19
+Last updated at 09/24/2023 14:26
