@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass_11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/kesha-die-young-pk-grxnt-flip)
 
-**Artist**: KULA 
+**Artist**: pk2 
 
-**Track**: KULA_Breakbeat_UK_Bass_11_
+**Track**: kesha - die young (pk + grxnt flip)
 
-Last updated at 09/24/2023 16:12
+Last updated at 09/24/2023 16:37
