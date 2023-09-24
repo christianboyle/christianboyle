@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIitL16pDtqQ5ePe-LL4KFA-t500x500.jpg">](https://soundcloud.com/solomonomusic/places)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7e4Cjf0no2Hd35V-HR3MzA-t500x500.jpg">](https://soundcloud.com/clubangel/make-me)
 
-**Artist**: Solomono 
+**Artist**: Club Angel 
 
-**Track**: Places
+**Track**: Make Me
 
-Last updated at 09/24/2023 15:17
+Last updated at 09/24/2023 15:18
