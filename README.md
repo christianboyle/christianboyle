@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XGk1AZFgK4iukb6s-AmGylA-t500x500.jpg">](https://soundcloud.com/elbamster/pushmy)
 
-**Artist**: Hannah Diamond 
+**Artist**: Bamster 
 
-**Track**: Hannah Diamond - Affirmations
+**Track**: Push My* feat. iKeda
 
-Last updated at 09/24/2023 15:54
+Last updated at 09/24/2023 15:57
