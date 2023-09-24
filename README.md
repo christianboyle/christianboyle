@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zLbQMqDXr2H5Jyy3-sW1aIA-t500x500.jpg">](https://soundcloud.com/systemkids/armnhmr-drowning-system-kids-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQsFIgAJhzwdNX4X-QD39oA-t500x500.jpg">](https://soundcloud.com/electronyze-me/dawave-no-va-house-of-cards-feat-bvlvnce-1?in=chilltrapnetwork/sets/bass-music-united-vol-4)
 
-**Artist**: SYSTEM KIDS 
+**Artist**: Electronyze Me 
 
-**Track**: ARMNHMR - Drowning (feat. Heleen) (SYSTEM KIDS Remix)
+**Track**: DaWave, NO-VA - House Of Cards Feat. BΛLΛNCE
 
-Last updated at 09/24/2023 09:14
+Last updated at 09/24/2023 09:15
