@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqOMIy9fGzoKvOIt-jhn5xw-t500x500.jpg">](https://soundcloud.com/jukaamusic/teenage-dream-bootleg)
 
-**Artist**: rxflxct 
+**Artist**: Jukaa 
 
-**Track**: Gravity
+**Track**: Katy Perry - Teenage Dream (Jukaa Bootleg)
 
-Last updated at 09/24/2023 15:43
+Last updated at 09/24/2023 15:46
