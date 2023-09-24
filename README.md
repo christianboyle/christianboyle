@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MQsFIgAJhzwdNX4X-QD39oA-t500x500.jpg">](https://soundcloud.com/electronyze-me/dawave-no-va-house-of-cards-feat-bvlvnce-1?in=chilltrapnetwork/sets/bass-music-united-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w5UGSIzJhWuuEQ9w-nqZMyA-t500x500.jpg">](https://soundcloud.com/sumitro-mandal/miles-away-two-halves-of-a-heart-neal-remix)
 
-**Artist**: Electronyze Me 
+**Artist**: NEAL 
 
-**Track**: DaWave, NO-VA - House Of Cards Feat. BΛLΛNCE
+**Track**: Miles Away - Two Halves Of A Heart [NEAL Remix]
 
-Last updated at 09/24/2023 09:15
+Last updated at 09/24/2023 09:16
