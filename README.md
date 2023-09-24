@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzXyjxQ9pNdypjpK-zTB8wA-t500x500.jpg">](https://soundcloud.com/djmarkblair/darude-sandstorm-mark-blair-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1)
 
-**Artist**: MARK BLAIR 
+**Artist**: Hannah Diamond 
 
-**Track**: DARUDE - SANDSTORM (MARK BLAIR EDIT)
+**Track**: Hannah Diamond - Affirmations
 
-Last updated at 09/24/2023 15:49
+Last updated at 09/24/2023 15:51
