@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZjZf6ytzsJahRw2-43hZmA-t500x500.jpg">](https://soundcloud.com/underscores/cnr?in=underscores/sets/wsk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6rUkdHLvSur3ELui-XH6ZrQ-t500x500.jpg">](https://soundcloud.com/underscores/l-glu?in=underscores/sets/wsk)
 
 **Artist**: underscores 
 
-**Track**: Cops and robbers
+**Track**: Locals (Girls like us) [with gabby start]
 
-Last updated at 09/24/2023 13:59
+Last updated at 09/24/2023 14:02
