@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4k54yilG7dYYfWs4-A6V9qw-t500x500.jpg">](https://soundcloud.com/jayceeoh/millionplaces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-keyjtdJm2gSVWSy5-9yd8aA-t500x500.jpg">](https://soundcloud.com/maddy-oneal/bliss-w-shylow-x-britt-lari?in=maddy-oneal/sets/mind-over-matter-ep-1)
 
-**Artist**: Jayceeoh 
+**Artist**: Maddy O'Neal 
 
-**Track**: Jayceeoh - million places ft. Lerome Swiss
+**Track**: Bliss w/ Shylow X Britt Lari
 
-Last updated at 09/22/2023 13:01
+Last updated at 09/24/2023 09:08
