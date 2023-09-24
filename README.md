@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGkRFtVk6WqhPSsc-auraGg-t500x500.jpg">](https://soundcloud.com/maddy-oneal/freeyourself-master1?in=maddy-oneal/sets/mind-over-matter-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zLbQMqDXr2H5Jyy3-sW1aIA-t500x500.jpg">](https://soundcloud.com/systemkids/armnhmr-drowning-system-kids-remix)
 
-**Artist**: Maddy O'Neal 
+**Artist**: SYSTEM KIDS 
 
-**Track**: Free Yourself - Maddy O'Neal X Sofasound
+**Track**: ARMNHMR - Drowning (feat. Heleen) (SYSTEM KIDS Remix)
 
-Last updated at 09/24/2023 09:10
+Last updated at 09/24/2023 09:14
