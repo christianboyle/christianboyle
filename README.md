@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OuDcdQsjVgKs-0-t500x500.png">](https://soundcloud.com/wilowilde/shy-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1)
 
-**Artist**: wilo wilde 
+**Artist**: Hannah Diamond 
 
-**Track**: shy girl
+**Track**: Hannah Diamond - Affirmations
 
-Last updated at 09/24/2023 15:52
+Last updated at 09/24/2023 15:54
