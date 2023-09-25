@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YRUPYvkmMR7ly9oa-84OCKA-t500x500.jpg">](https://soundcloud.com/will-donnelly/where-your-heart-at)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voEPy4SrNyUuoUF2-nwbHnQ-t500x500.jpg">](https://soundcloud.com/geckonl/tfc16-geck-o)
 
-**Artist**: Dario Cruz 
+**Artist**: Geck-o 
 
-**Track**: Where Your Heart At?
+**Track**: Geck-o @ The Funky Cat #16 DAYTIME RAVE 🤯💥🚀 set recording
 
-Last updated at 09/25/2023 15:19
+Last updated at 09/25/2023 15:22
