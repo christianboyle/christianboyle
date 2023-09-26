@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/cidal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/kesha-die-young-pk-grxnt-flip)
 
-**Artist**: beverly hills mom 
+**Artist**: pk2 
 
-**Track**: feeling rlly cidal today... cant decide if its homi or sui yet
+**Track**: kesha - die young (pk + grxnt flip)
 
-Last updated at 09/26/2023 12:48
+Last updated at 09/26/2023 14:27
