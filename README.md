@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/kesha-die-young-pk-grxnt-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZB5qVBB8H1CMzaX-indT9Q-t500x500.jpg">](https://soundcloud.com/dopaminewifi/geck-o-u-make-me-feel)
 
-**Artist**: pk2 
+**Artist**: DopamineWIFI 
 
-**Track**: kesha - die young (pk + grxnt flip)
+**Track**: Geck-O - U Make Me Feel
 
-Last updated at 09/26/2023 12:40
+Last updated at 09/26/2023 12:43
