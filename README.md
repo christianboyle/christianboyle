@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZB5qVBB8H1CMzaX-indT9Q-t500x500.jpg">](https://soundcloud.com/dopaminewifi/geck-o-u-make-me-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/cidal)
 
-**Artist**: DopamineWIFI 
+**Artist**: beverly hills mom 
 
-**Track**: Geck-O - U Make Me Feel
+**Track**: feeling rlly cidal today... cant decide if its homi or sui yet
 
-Last updated at 09/26/2023 12:43
+Last updated at 09/26/2023 12:48
