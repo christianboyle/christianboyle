@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5ekok18oZ5yizH8-EDXuwA-t500x500.jpg">](https://soundcloud.com/s3rl/elevate-little-sis-nora-s3rl/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F98iNrEAaBYQxhz3-bjytxA-t500x500.jpg">](https://soundcloud.com/s3rl/space-time-kaylife-remix-s3rl-ft-riddle-anne)
 
 **Artist**: S3RL 
 
-**Track**: Elevate - Little Sis Nora & S3RL
+**Track**: Space Time (KayLife! Remix) - S3RL ft Riddle-Anne
 
-Last updated at 09/28/2023 14:42
+Last updated at 09/28/2023 16:22
