@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/plz_dont_go_pk_flip/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5ekok18oZ5yizH8-EDXuwA-t500x500.jpg">](https://soundcloud.com/s3rl/elevate-little-sis-nora-s3rl/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
 
-**Artist**: pk2 
+**Artist**: S3RL 
 
-**Track**: plz_dont_go (pk flip)
+**Track**: Elevate - Little Sis Nora & S3RL
 
-Last updated at 09/28/2023 14:39
+Last updated at 09/28/2023 14:42
