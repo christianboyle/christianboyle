@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPsPAzjWwPz1-0-t500x500.jpg">](https://soundcloud.com/drab-majesty/out-of-sequence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
 
-**Artist**: Drab Majesty 
+**Artist**: Hannah Diamond 
 
-**Track**: Out of Sequence
+**Track**: Hannah Diamond - Affirmations
 
-Last updated at 09/28/2023 12:39
+Last updated at 09/28/2023 14:29
