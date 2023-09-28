@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZB5qVBB8H1CMzaX-indT9Q-t500x500.jpg">](https://soundcloud.com/dopaminewifi/geck-o-u-make-me-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/new-1/)
 
-**Artist**: DopamineWIFI 
+**Artist**: Francis VI 
 
-**Track**: Geck-O - U Make Me Feel
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 09/27/2023 16:38
+Last updated at 09/28/2023 12:27
