@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UprB7zi2CPt6yBKr-bQ5NOA-t500x500.jpg">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-rave-hymn-no-tomorrow-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfQygjSIcP3z81mY-5ZL6CQ-t500x500.jpg">](https://soundcloud.com/zwansound/flix-mag-1001-zwansound-6am)
 
-**Artist**: Ghost in Real Life 
+**Artist**: zwansound 
 
-**Track**: Ghost in Real Life - Rave Hymn (No Tomorrow)
+**Track**: Flix - Mag 1001 [zwansound 6AM remix] no master.wav
 
-Last updated at 09/29/2023 13:22
+Last updated at 09/29/2023 13:23
