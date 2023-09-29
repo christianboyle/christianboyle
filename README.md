@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1S7dTOfUWxAhy3hl-8eRzQw-t500x500.jpg">](https://soundcloud.com/dellenbach_beat_orchestra/just-a-few-day-to-barca)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybNHNbZKPtVvy38z-7dP9uw-t500x500.jpg">](https://soundcloud.com/remixedbynohero/alan-walker-dash-berlin-vikkstar-better-off-no-hero-hard-mix)
 
-**Artist**: Dellenbach Beat Orchestra 
+**Artist**: Remixed by No Hero 
 
-**Track**: Barca? Lona!
+**Track**: Alan Walker, Dash Berlin, Vikkstar - Better Off (Alone, Pt III) [No Hero Hard Mix]
 
-Last updated at 09/29/2023 13:20
+Last updated at 09/29/2023 13:21
