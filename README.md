@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XgCtEQKGs59m9aWB-YPuC6g-t500x500.jpg">](https://soundcloud.com/steven-brown-208/dune-cant-stop-raving-steven-browns-remix)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: Steven Brown 
 
-**Track**: Peace of mind
+**Track**: Dune - Can't Stop Raving - Steven Brown's Remix
 
-Last updated at 09/29/2023 13:31
+Last updated at 09/29/2023 13:32
