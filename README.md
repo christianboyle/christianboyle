@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gV8269repNrXaIRy-sI2NQQ-t500x500.jpg">](https://soundcloud.com/hamdiofficialmusic/counting?in=hamdiofficialmusic/sets/counting-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/new-1/)
 
-**Artist**: Hamdi 
+**Artist**: Francis VI 
 
-**Track**: Counting (ft. Princess Superstar)
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 09/29/2023 15:23
+Last updated at 09/29/2023 15:24
