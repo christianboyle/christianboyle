@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/kesha-die-young-pk-grxnt-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity?in=saxurn/sets/new-1/)
 
-**Artist**: pk2 
+**Artist**: rxflxct 
 
-**Track**: kesha - die young (pk + grxnt flip)
+**Track**: Gravity
 
-Last updated at 09/29/2023 16:32
+Last updated at 09/29/2023 16:33
