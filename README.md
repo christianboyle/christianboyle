@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfQygjSIcP3z81mY-5ZL6CQ-t500x500.jpg">](https://soundcloud.com/zwansound/flix-mag-1001-zwansound-6am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbCLScIm6oQi4QUE-hIzzUg-t500x500.jpg">](https://soundcloud.com/elex_page/highschool)
 
-**Artist**: zwansound 
+**Artist**: ELEX 
 
-**Track**: Flix - Mag 1001 [zwansound 6AM remix] no master.wav
+**Track**: ELEX - High School
 
-Last updated at 09/29/2023 13:23
+Last updated at 09/29/2023 13:24
