@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiKUagy5Iwp3SbnG-y9NBFA-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/oneandonly?in=welovetunamelt/sets/oneandonly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gV8269repNrXaIRy-sI2NQQ-t500x500.jpg">](https://soundcloud.com/hamdiofficialmusic/counting?in=hamdiofficialmusic/sets/counting-ep)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: Hamdi 
 
-**Track**: Oliver Tree - One & Only (Tuna Melt Remix)
+**Track**: Counting (ft. Princess Superstar)
 
-Last updated at 09/29/2023 14:44
+Last updated at 09/29/2023 15:23
