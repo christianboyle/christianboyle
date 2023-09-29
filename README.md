@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/I7zYTwVD2ZQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=I7zYTwVD2ZQ)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiKUagy5Iwp3SbnG-y9NBFA-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/oneandonly?in=welovetunamelt/sets/oneandonly)
 
-**Artist**: 
-  
-    DJ Smokey
-  
-  
-  
-    DJ Smokey
-  
+**Artist**: Reheated By Tuna Melt 
 
+**Track**: Oliver Tree - One & Only (Tuna Melt Remix)
 
-
-
-
- 
-
-**Track**: dj smokey + Shadow Wizard Money Gang - BURBERRY BATHSALTS RAMPAGE (official music video)
-
-Last updated at 09/29/2023 14:25
+Last updated at 09/29/2023 14:44
