@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-68YPgs0AXzS0nJCS-Q5fcGw-t500x500.jpg">](https://soundcloud.com/rxflxct/ditto-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
 
-**Artist**: rxflxct 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: NewJeans - Ditto [Altare Remix] (rxflxct's Uplifting Mix)
+**Track**: Peace of mind
 
-Last updated at 09/29/2023 13:30
+Last updated at 09/29/2023 13:31
