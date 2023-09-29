@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F98iNrEAaBYQxhz3-bjytxA-t500x500.jpg">](https://soundcloud.com/s3rl/space-time-kaylife-remix-s3rl-ft-riddle-anne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
 
-**Artist**: S3RL 
+**Artist**: rxflxct 
 
-**Track**: Space Time (KayLife! Remix) - S3RL ft Riddle-Anne
+**Track**: Gravity
 
-Last updated at 09/28/2023 16:22
+Last updated at 09/29/2023 10:07
