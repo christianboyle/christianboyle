@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCwYdbvuPTMwbo9s-nuj12Q-t500x500.jpg">](https://soundcloud.com/poylow/oggy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1S7dTOfUWxAhy3hl-8eRzQw-t500x500.jpg">](https://soundcloud.com/dellenbach_beat_orchestra/just-a-few-day-to-barca)
 
-**Artist**: Poylow 
+**Artist**: Dellenbach Beat Orchestra 
 
-**Track**: Oggy and the Tech House (Poylow Remix)
+**Track**: Barca? Lona!
 
-Last updated at 09/29/2023 13:19
+Last updated at 09/29/2023 13:20
