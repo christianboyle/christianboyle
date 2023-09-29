@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybNHNbZKPtVvy38z-7dP9uw-t500x500.jpg">](https://soundcloud.com/remixedbynohero/alan-walker-dash-berlin-vikkstar-better-off-no-hero-hard-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UprB7zi2CPt6yBKr-bQ5NOA-t500x500.jpg">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-rave-hymn-no-tomorrow-1)
 
-**Artist**: Remixed by No Hero 
+**Artist**: Ghost in Real Life 
 
-**Track**: Alan Walker, Dash Berlin, Vikkstar - Better Off (Alone, Pt III) [No Hero Hard Mix]
+**Track**: Ghost in Real Life - Rave Hymn (No Tomorrow)
 
-Last updated at 09/29/2023 13:21
+Last updated at 09/29/2023 13:22
