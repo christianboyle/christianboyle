@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/applause-pk-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/new-1/)
 
-**Artist**: pk2 
+**Artist**: Francis VI 
 
-**Track**: applause (pk flip)
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 09/29/2023 15:37
+Last updated at 09/29/2023 15:38
