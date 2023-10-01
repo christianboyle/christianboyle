@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/plz_dont_go_pk_flip?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcjoDFrOPf8AHP0U-Ik5Axg-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-discovery-project-escape-2023)
 
-**Artist**: pk2 
+**Artist**: Hartshorn 
 
-**Track**: plz_dont_go (pk flip)
+**Track**: Hartshorn - Discovery Project: Escape 2023
 
-Last updated at 09/29/2023 16:46
+Last updated at 10/01/2023 10:41
