@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcjoDFrOPf8AHP0U-Ik5Axg-t500x500.jpg">](https://soundcloud.com/hartshorn303/hartshorn-discovery-project-escape-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IWJPiI6TjyoYFt9-p4BFBw-t500x500.jpg">](https://soundcloud.com/bridgeyb14/resistance-ep25)
 
-**Artist**: Hartshorn 
+**Artist**: BRIDGEY-B 
 
-**Track**: Hartshorn - Discovery Project: Escape 2023
+**Track**: RESISTANCE EP25
 
-Last updated at 10/01/2023 10:41
+Last updated at 10/02/2023 15:45
