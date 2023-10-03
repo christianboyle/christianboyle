@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IWJPiI6TjyoYFt9-p4BFBw-t500x500.jpg">](https://soundcloud.com/bridgeyb14/resistance-ep25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fwz0qbZq0vIcCx6F-QKq5Qw-t500x500.jpg">](https://soundcloud.com/kniteforcerevolution/infl27b2-scartat-cubstar)
 
-**Artist**: BRIDGEY-B 
+**Artist**: Kniteforce Revolution 
 
-**Track**: RESISTANCE EP25
+**Track**: INFL27B2 - Scartat & Cubstar - Something Creative
 
-Last updated at 10/02/2023 15:45
+Last updated at 10/03/2023 13:06
