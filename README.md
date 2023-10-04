@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OE9MS4xzCkSJiRJ2-umRzKw-t500x500.jpg">](https://soundcloud.com/dante-427276876/dante-x-boost-crank-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lneGd4XKBgHWMla1-65fvTA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/rainbow-sc)
 
-**Artist**: Dante 
+**Artist**: Brett Cooper (Scarred DIgital) 
 
-**Track**: DANTE x B00ST - CRANK THAT
+**Track**: Over The Rainbow
 
-Last updated at 10/04/2023 11:13
+Last updated at 10/04/2023 11:14
