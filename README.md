@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fwz0qbZq0vIcCx6F-QKq5Qw-t500x500.jpg">](https://soundcloud.com/kniteforcerevolution/infl27b2-scartat-cubstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkBSkb6y4P05zUJQ-g5PasQ-t500x500.jpg">](https://soundcloud.com/drumandbassarena/mystic-state-last-hope-ft-third-degree)
 
-**Artist**: Kniteforce Revolution 
+**Artist**: Drum&BassArena 
 
-**Track**: INFL27B2 - Scartat & Cubstar - Something Creative
+**Track**: Mystic State - Last Hope (ft. Third Degree)
 
-Last updated at 10/03/2023 13:06
+Last updated at 10/04/2023 11:07
