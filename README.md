@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIdsYCxewTxaIuiY-D1lzyA-t500x500.jpg">](https://soundcloud.com/bitbird/darby-play)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShjLHyh4d8uDGS01-ZbEYbA-t500x500.jpg">](https://soundcloud.com/imreach/vaisepreparando)
 
-**Artist**: bitbird 
+**Artist**: reach 
 
-**Track**: Darby - PLAY
+**Track**: MC Teteu - VAI SE PREPARANDO [Reach Remix]
 
-Last updated at 10/04/2023 11:18
+Last updated at 10/04/2023 11:19
