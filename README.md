@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShjLHyh4d8uDGS01-ZbEYbA-t500x500.jpg">](https://soundcloud.com/imreach/vaisepreparando)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z3zWEanf91nx696t-d6zHrA-t500x500.jpg">](https://soundcloud.com/axelv/paradise-tommy-whos-happy-sunrise-mix)
 
-**Artist**: reach 
+**Artist**: Axel V 
 
-**Track**: MC Teteu - VAI SE PREPARANDO [Reach Remix]
+**Track**: Axel V & Tommy Who - Paradise - Happy Sunrise Mix
 
-Last updated at 10/04/2023 11:19
+Last updated at 10/04/2023 11:20
