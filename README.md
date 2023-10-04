@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kLRVIQU3ox26i1Ur-4wvdoA-t500x500.jpg">](https://soundcloud.com/sungyookr/sungyoo-ultra-japan-2023-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEBJyBdLfa5t8YoF-KeT2nQ-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-oleka-the-timeless-art-of-seduction-out-of-place)
 
-**Artist**: SUNGYOO 
+**Artist**: Four Four Magazine 
 
-**Track**: SUNGYOO ULTRA JAPAN 2023 MIX
+**Track**: Four Four Premiere: Olēka - The Timeless Art Of Seduction [Out Of Place]
 
-Last updated at 10/04/2023 11:09
+Last updated at 10/04/2023 11:10
