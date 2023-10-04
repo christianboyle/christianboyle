@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZ80tQoo8ghzA6NE-eXs4yw-t500x500.jpg">](https://soundcloud.com/luxxout/bad-choices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OL6mcxfbUhsDGXla-avThHQ-t500x500.jpg">](https://soundcloud.com/raverobber/battle-teh-world)
 
-**Artist**: Luxxout 
+**Artist**: raverobber 
 
-**Track**: Bad Choices
+**Track**: MURDER CLUB & RAVEROBBER vs. "IM GONNA KILL YOU" (@ug x @sckx battle track)
 
-Last updated at 10/04/2023 11:16
+Last updated at 10/04/2023 11:17
