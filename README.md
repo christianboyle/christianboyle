@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u14ZxEbYiYuw8fon-zNA5MA-t500x500.jpg">](https://soundcloud.com/scarfiemusic/pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jYN11svodjT4BTMQ-GCmGVA-t500x500.jpg">](https://soundcloud.com/kickcheeze/kickcheeze-eta-remix)
 
-**Artist**: SCARFIE 
+**Artist**: KICKCHEEZE 🧀 
 
-**Track**: PRESSURE
+**Track**: NewJeans - ETA (KICKCHEEZE Hard Remix)
 
-Last updated at 10/06/2023 09:04
+Last updated at 10/06/2023 09:05
