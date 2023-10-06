@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpRCXruzQ7ezm6z4-KqIzFw-t500x500.jpg">](https://soundcloud.com/boriskos/shamadan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kB1K0DZfcvy8AKjl-2n72bg-t500x500.jpg">](https://soundcloud.com/remmie2022/lets-have-it)
 
-**Artist**: Samādhi 
+**Artist**: R.E.M.M.i.E 
 
-**Track**: Shamadan
+**Track**: Let's Have It
 
-Last updated at 10/06/2023 09:00
+Last updated at 10/06/2023 09:01
