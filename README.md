@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3eUkLTH7g8RTsAwu-kIaRSQ-t500x500.jpg">](https://soundcloud.com/ctkoth/k-oth-box-cutter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpRCXruzQ7ezm6z4-KqIzFw-t500x500.jpg">](https://soundcloud.com/boriskos/shamadan)
 
-**Artist**: ⚔K-oth 
+**Artist**: Samādhi 
 
-**Track**: K-oth- Bout it
+**Track**: Shamadan
 
-Last updated at 10/06/2023 08:59
+Last updated at 10/06/2023 09:00
