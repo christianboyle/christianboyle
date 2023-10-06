@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/k5ZtZEtDEGo/maxresdefault.jpg">](https://www.youtube.com/watch?v=k5ZtZEtDEGo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qLTrFVd1mbmNVTDm-LmJ6EQ-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/monstermash)
 
-**Artist**: 
-  
-    Dax
-  
-  
-  
-    Dax
-  
+**Artist**: Reheated By Tuna Melt 
 
+**Track**: Bobby Boris Pickett - Monster Mash (Tuna Melt Remix)
 
-
-
-
- 
-
-**Track**: Dax - "Dear Alcohol" (Official Music Video)
-
-Last updated at 10/06/2023 10:53
+Last updated at 10/06/2023 12:03
