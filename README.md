@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fe1s9UxpLraX-0-t500x500.png">](https://soundcloud.com/ngdproject/not-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ixDyZ3mspf8wYBzi-xllAyw-t500x500.jpg">](https://soundcloud.com/hide-the-junk/block-rockin)
 
-**Artist**: NGD Project 
+**Artist**: HIDE THE JUNK 
 
-**Track**: Not Alone
+**Track**: X CLUB. - Block Rockin
 
-Last updated at 10/06/2023 14:14
+Last updated at 10/06/2023 14:15
