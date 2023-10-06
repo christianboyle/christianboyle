@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhS0j3xzvyv8mpwz-3IL6wg-t500x500.jpg">](https://soundcloud.com/hxlfghoul/closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XO6ncDF5p3CfzkVy-TdI1HA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/inner-circle-bad-boys-los-banderos-pim-umenzi-edit)
 
-**Artist**: 𝗵𝘅lfg𝗵oul 
+**Artist**: Best House Remixes 
 
-**Track**: closer
+**Track**: Inner Circle - Bad Boys (Los Banderos & Pim Umenzi Edit)
 
-Last updated at 10/06/2023 08:56
+Last updated at 10/06/2023 08:57
