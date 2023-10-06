@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxg4ALxFDndXcd5r-dyXnWQ-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/survival-stalking)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrKitjI8QXg3iWry-IdRgvQ-t500x500.jpg">](https://soundcloud.com/torchadub/torcha-rakjay-bandito-dub)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Torcha 
 
-**Track**: Survival - Stalking
+**Track**: Torcha & Rakjay - Bandito
 
-Last updated at 10/06/2023 09:10
+Last updated at 10/06/2023 09:11
