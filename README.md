@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qLTrFVd1mbmNVTDm-LmJ6EQ-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/monstermash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/new-1/)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: Francis VI 
 
-**Track**: Bobby Boris Pickett - Monster Mash (Tuna Melt Remix)
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 10/06/2023 12:03
+Last updated at 10/06/2023 12:59
