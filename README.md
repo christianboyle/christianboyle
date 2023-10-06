@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svberByTmE0d-0-t500x500.jpg">](https://soundcloud.com/theldru/spring-feat-riverine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix)
 
-**Artist**: L D R U 
+**Artist**: BRAVO 
 
-**Track**: Spring (feat. Riverine)
+**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
 
-Last updated at 10/06/2023 14:18
+Last updated at 10/06/2023 14:19
