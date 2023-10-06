@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwtTs8tbs4caFts3-yzYp3Q-t500x500.jpg">](https://soundcloud.com/dj_doci/makeba-docivipedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svberByTmE0d-0-t500x500.jpg">](https://soundcloud.com/theldru/spring-feat-riverine)
 
-**Artist**: DØCI 
+**Artist**: L D R U 
 
-**Track**: Makeba (DØCI VIP EDIT)
+**Track**: Spring (feat. Riverine)
 
-Last updated at 10/06/2023 14:17
+Last updated at 10/06/2023 14:18
