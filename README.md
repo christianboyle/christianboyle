@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/k5411duvNeE/maxresdefault.jpg">](https://www.youtube.com/watch?v=k5411duvNeE)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YeoGr4DqkU2dDzpa-C7jEQw-t500x500.jpg">](https://soundcloud.com/thatsdax/dax-dear-alcohol?in=thatsdax/sets/whatislife)
 
-**Artist**: 
-  
-    RAMIREZ
-  
-  
-  
-    RAMIREZ
-  
+**Artist**: DAX 
 
+**Track**: Dax - Dear Alcohol
 
-
-
-
- 
-
-**Track**: Ramirez - The Dungeon [Music Video]
-
-Last updated at 10/06/2023 08:42
+Last updated at 10/06/2023 08:48
