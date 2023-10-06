@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVH8lsFSMpGqPzGj-kEVmeQ-t500x500.jpg">](https://soundcloud.com/ilyaamusic/john-summit-hayla-where-you-are-ilyaa-remix-filtered-techno-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhS0j3xzvyv8mpwz-3IL6wg-t500x500.jpg">](https://soundcloud.com/hxlfghoul/closer)
 
-**Artist**: ILYAA 
+**Artist**: 𝗵𝘅lfg𝗵oul 
 
-**Track**: John Summit, Hayla - Where You Are (ILYAA Remix) [FILTERED] [TECHNO] [FREE DOWNLOAD]
+**Track**: closer
 
-Last updated at 10/06/2023 08:55
+Last updated at 10/06/2023 08:56
