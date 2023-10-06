@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzrJj18vhtr3R26V-syNynQ-t500x500.jpg">](https://soundcloud.com/bryanvmusic/sweet-dreams-bryan-v-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sblHS55oAOgmUASm-NtL9hQ-t500x500.jpg">](https://soundcloud.com/dunkmellowd/mellowd-wish-you-well)
 
-**Artist**: Bryan V. 
+**Artist**: MellowD 
 
-**Track**: Eurythmics - Sweet Dreams (Dimaro & Bryan V Festival Bootleg)
+**Track**: MellowD - Wish You Well
 
-Last updated at 10/06/2023 14:11
+Last updated at 10/06/2023 14:12
