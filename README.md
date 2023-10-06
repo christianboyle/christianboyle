@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jYN11svodjT4BTMQ-GCmGVA-t500x500.jpg">](https://soundcloud.com/kickcheeze/kickcheeze-eta-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-834kxu1TbcHv1JRi-19gkMg-t500x500.jpg">](https://soundcloud.com/selektamusic/zomboy-monsters-ft-micah-martin-selekta-remix)
 
-**Artist**: KICKCHEEZE 🧀 
+**Artist**: Selekta 
 
-**Track**: NewJeans - ETA (KICKCHEEZE Hard Remix)
+**Track**: Zomboy - Monsters Ft. Micah Martin (Selekta Remix)
 
-Last updated at 10/06/2023 09:05
+Last updated at 10/06/2023 09:06
