@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nc0Vx2nPGT4y-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/2-brothers-of-hardstyle-i-am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tR9yDBDmQtVRb9yY-TkhBIg-t500x500.jpg">](https://soundcloud.com/kickcheeze/yoru-ni-kakeru)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: KICKCHEEZE 🧀 
 
-**Track**: 2 Brothers of Hardstyle - I AM READY
+**Track**: YOASOBI - Racing Into the Night // Yoru ni Kakeru 「夜に駆ける」 (KICKCHEEZE Hard Remix)
 
-Last updated at 10/06/2023 14:22
+Last updated at 10/06/2023 14:23
