@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9pluzDP22zNAs6UT-MIvHDQ-t500x500.jpg">](https://soundcloud.com/officialnohero/kim-petras-nicki-minaj-alone-no-hero-hard-mix?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
 
-**Artist**: No Hero 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: Kim Petras & Nicki Minaj - Alone (No Hero Hard Mix)
+**Track**: Peace of mind
 
-Last updated at 10/06/2023 13:11
+Last updated at 10/06/2023 14:05
