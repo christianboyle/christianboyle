@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5ekok18oZ5yizH8-EDXuwA-t500x500.jpg">](https://soundcloud.com/s3rl/elevate-little-sis-nora-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywxMZLttE753J8UL-f5TUdw-t500x500.jpg">](https://soundcloud.com/ihateshinigami/eyes-wide-shut)
 
-**Artist**: S3RL 
+**Artist**: shinigami 
 
-**Track**: Elevate - Little Sis Nora & S3RL
+**Track**: eyes wide shut
 
-Last updated at 10/06/2023 14:06
+Last updated at 10/06/2023 14:09
