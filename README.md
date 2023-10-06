@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fI9ETR9TKmHQS7O-5v5oPQ-t500x500.jpg">](https://soundcloud.com/edmidentity/paradigm-shift-022-rux-ton)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3Bj4zzD9PfFBLRS-QHO8bQ-t500x500.jpg">](https://soundcloud.com/revoxxmusik/revoxx-worry-bout-it)
 
-**Artist**: EDM Identity 
+**Artist**: Revoxx 
 
-**Track**: Paradigm Shift 022 || Rux Ton
+**Track**: Revoxx - Worry Bout It
 
-Last updated at 10/06/2023 09:07
+Last updated at 10/06/2023 09:08
