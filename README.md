@@ -1,22 +1,9 @@
-## Currently Playing on YouTube
+## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/k5ZtZEtDEGo/maxresdefault.jpg">](https://www.youtube.com/watch?v=k5ZtZEtDEGo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryOHOkbONTByVXEz-y76rKw-t500x500.jpg">](https://soundcloud.com/baeldorf/autumn-ft-stm)
 
-**Artist**: 
-  
-    Dax
-  
-  
-  
-    Dax
-  
+**Artist**: Baeldorf 
 
+**Track**: Autumn (EP) ft. STM
 
-
-
-
- 
-
-**Track**: Dax - "Dear Alcohol" (Official Music Video)
-
-Last updated at 10/06/2023 08:49
+Last updated at 10/06/2023 08:54
