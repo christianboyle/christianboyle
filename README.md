@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5ekok18oZ5yizH8-EDXuwA-t500x500.jpg">](https://soundcloud.com/s3rl/elevate-little-sis-nora-s3rl)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: S3RL 
 
-**Track**: Peace of mind
+**Track**: Elevate - Little Sis Nora & S3RL
 
-Last updated at 10/06/2023 14:05
+Last updated at 10/06/2023 14:06
