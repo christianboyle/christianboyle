@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybNHNbZKPtVvy38z-7dP9uw-t500x500.jpg">](https://soundcloud.com/remixedbynohero/alan-walker-dash-berlin-vikkstar-better-off-no-hero-hard-mix)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/k5ZtZEtDEGo/maxresdefault.jpg">](https://www.youtube.com/watch?v=k5ZtZEtDEGo)
 
-**Artist**: Remixed by No Hero 
+**Artist**: 
+  
+    Dax
+  
+  
+  
+    Dax
+  
 
-**Track**: Alan Walker, Dash Berlin, Vikkstar - Better Off (Alone, Pt III) [No Hero Hard Mix]
 
-Last updated at 10/06/2023 09:14
+
+
+
+ 
+
+**Track**: Dax - "Dear Alcohol" (Official Music Video)
+
+Last updated at 10/06/2023 10:53
