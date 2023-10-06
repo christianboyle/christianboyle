@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vb6ElCuypyGw4jz-MKshZA-t500x500.jpg">](https://soundcloud.com/denile/eufeion-denile-burn-shiver-eufeion-2023-remix-247-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wzvkb4yzaRB0qdgq-5KP7qw-t500x500.jpg">](https://soundcloud.com/iamphocust/the-show?in=circusrecords/sets/phocust-showtime-ep-1)
 
-**Artist**: Denile 
+**Artist**: Phocust 
 
-**Track**: Eufeion & Denile - 'Burn & Shiver' (Eufeion 2023 Remix) [24/7 Hardcore]
+**Track**: The Show
 
-Last updated at 10/06/2023 08:33
+Last updated at 10/06/2023 08:34
