@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Juc9iEdtjTl-0-t500x500.jpg">](https://soundcloud.com/djprinsh/showing-signs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
 
-**Artist**: PRINSH 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: Showing Signs
+**Track**: Peace of mind
 
-Last updated at 10/06/2023 09:12
+Last updated at 10/06/2023 09:13
