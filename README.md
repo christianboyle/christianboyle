@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ixDyZ3mspf8wYBzi-xllAyw-t500x500.jpg">](https://soundcloud.com/hide-the-junk/block-rockin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwtTs8tbs4caFts3-yzYp3Q-t500x500.jpg">](https://soundcloud.com/dj_doci/makeba-docivipedit)
 
-**Artist**: HIDE THE JUNK 
+**Artist**: DØCI 
 
-**Track**: X CLUB. - Block Rockin
+**Track**: Makeba (DØCI VIP EDIT)
 
-Last updated at 10/06/2023 14:15
+Last updated at 10/06/2023 14:17
