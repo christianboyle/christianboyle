@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLhZx1cxxkgiJozz-1IYXUQ-t500x500.jpg">](https://soundcloud.com/snavs/snavs-john-alto-headlights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kMrnT57cD9JDeyX-fWrcxg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dj-bazootka-my-8k-rig-gomb70)
 
-**Artist**: Snavs 
+**Artist**: HATE 
 
-**Track**: Snavs & John Alto - Headlights
+**Track**: Premiere: DJ Bazootka - My 8K Rig [GOMB70]
 
-Last updated at 10/07/2023 11:43
+Last updated at 10/07/2023 13:06
