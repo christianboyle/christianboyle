@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPFE5xDqdoLUKDyy-zEpPGw-t500x500.jpg">](https://soundcloud.com/therealmotherdj/move-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLhZx1cxxkgiJozz-1IYXUQ-t500x500.jpg">](https://soundcloud.com/snavs/snavs-john-alto-headlights)
 
-**Artist**: mother. 
+**Artist**: Snavs 
 
-**Track**: MOVE
+**Track**: Snavs & John Alto - Headlights
 
-Last updated at 10/07/2023 11:34
+Last updated at 10/07/2023 11:43
