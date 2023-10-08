@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CLhZx1cxxkgiJozz-1IYXUQ-t500x500.jpg">](https://soundcloud.com/snavs/snavs-john-alto-headlights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMOtEqSilA9O5VEU-t5Htsg-t500x500.jpg">](https://soundcloud.com/merciless_techno/premiere-spaceman-grym-x-gewoonraves-hard-techno-edit)
 
-**Artist**: Snavs 
+**Artist**: MERCILESS 
 
-**Track**: Snavs & John Alto - Headlights
+**Track**: PREMIERE | Spaceman - GRYM X GEWOONRAVES (Hard Techno Edit)
 
-Last updated at 10/08/2023 09:17
+Last updated at 10/08/2023 09:18
