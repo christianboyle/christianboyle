@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QS3mIOIz8ZbrAeYy-ytqAdw-t500x500.jpg">](https://soundcloud.com/popthatrunk/pop-tha-trunk-real-quick-temp-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnAyYfbYgaAJ8GcK-zUuQow-t500x500.jpg">](https://soundcloud.com/ruxxi/montell2099-xira-sublab-exodia-ruxxi-remix)
 
-**Artist**: POP THA TRUNK 
+**Artist**: Ruxxi 
 
-**Track**: POP THA TRUNK - REAL QUICK [FREE DL]
+**Track**: Montell2099, XIRA & Sublab - Exodia (Ruxxi Remix)
 
-Last updated at 10/08/2023 09:14
+Last updated at 10/08/2023 09:15
