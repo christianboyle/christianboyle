@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ox2RZUyzqHBVGecj-JHPkuQ-t500x500.jpg">](https://soundcloud.com/boooooooooooooooooooo/liedje7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4EF5GboRBle0uCBf-o1XZRg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg)
 
-**Artist**: bo 
+**Artist**: Jukaa 
 
-**Track**: wuthering heights
+**Track**: Taylor Swift - 22 (Jukaa Bootleg)
 
-Last updated at 10/09/2023 14:35
+Last updated at 10/09/2023 14:36
