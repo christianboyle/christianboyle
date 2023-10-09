@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tt0P0LLQVbjrSTiX-lU976g-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/samuel-vasell-berox-got-my-heart-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iz6ICTbTd6qc-0-t500x500.png">](https://soundcloud.com/misogi/void-fallen-1)
 
-**Artist**: EDM FAMILY 
+**Artist**: MISOGI 
 
-**Track**: Samuel Vasell & Berox - Got My Heart [FREE DOWNLOAD] Supported by Djs From Mars!
+**Track**: VOID FALLEN
 
-Last updated at 10/09/2023 08:15
+Last updated at 10/09/2023 09:04
