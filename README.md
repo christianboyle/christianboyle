@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8sar8GlDD5j9YWVp-0tL2eA-t500x500.jpg">](https://soundcloud.com/user-ishthekid/disrespect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oscUuwBFdH0PyfYL-AB5T0g-t500x500.jpg">](https://soundcloud.com/lofreqrecords/samotek-free-forever)
 
-**Artist**: IshTheKid 
+**Artist**: LoFreq 
 
-**Track**: Disrespect
+**Track**: Samotek - Free Forever
 
-Last updated at 10/09/2023 11:29
+Last updated at 10/09/2023 11:30
