@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdQAXOnq8OySHoAJ-THTphw-t500x500.jpg">](https://soundcloud.com/bitbird/darby-crush?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
 
-**Artist**: bitbird 
+**Artist**: rxflxct 
 
-**Track**: Darby - Crush
+**Track**: Gravity
 
-Last updated at 10/09/2023 14:17
+Last updated at 10/09/2023 14:20
