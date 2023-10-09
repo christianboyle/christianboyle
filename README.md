@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxQ4xWjcozUOShhK-JcMxGg-t500x500.jpg">](https://soundcloud.com/user-34968749/pig-circus-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/b00)
 
-**Artist**: Obstinator 
+**Artist**: Francis VI 
 
-**Track**: Pig Circus
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 10/09/2023 14:42
+Last updated at 10/09/2023 14:43
