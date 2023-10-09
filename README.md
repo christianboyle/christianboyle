@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TryO90qL2MqCtsux-CqTqzQ-t500x500.jpg">](https://soundcloud.com/shiro-beats/finally-you-leave-alternative-intro?in=shiro-beats/sets/hocus-pocus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HwhzeeKwGaUWyIe3-M928zA-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-007)
 
-**Artist**: shirobeats 
+**Artist**: Dj Thera 
 
-**Track**: Shirobeats & NOIZZ & Oricadia & Johnald - Finally You Leave Again
+**Track**: Tranceparency Mixtape 007
 
-Last updated at 10/09/2023 09:05
+Last updated at 10/09/2023 09:06
