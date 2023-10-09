@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hWvyTJVHzenxZ39X-QkSy1w-t500x500.jpg">](https://soundcloud.com/zuba-zua/zuba-3-the-cristalyze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8sar8GlDD5j9YWVp-0tL2eA-t500x500.jpg">](https://soundcloud.com/user-ishthekid/disrespect)
 
-**Artist**: ZUBA 3 (official) 
+**Artist**: IshTheKid 
 
-**Track**: THE CRISTALYZE
+**Track**: Disrespect
 
-Last updated at 10/09/2023 11:25
+Last updated at 10/09/2023 11:29
