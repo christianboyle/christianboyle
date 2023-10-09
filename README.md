@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9pluzDP22zNAs6UT-MIvHDQ-t500x500.jpg">](https://soundcloud.com/officialnohero/kim-petras-nicki-minaj-alone-no-hero-hard-mix?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdQAXOnq8OySHoAJ-THTphw-t500x500.jpg">](https://soundcloud.com/bitbird/darby-crush?in=saxurn/sets/new-1/)
 
-**Artist**: No Hero 
+**Artist**: bitbird 
 
-**Track**: Kim Petras & Nicki Minaj - Alone (No Hero Hard Mix)
+**Track**: Darby - Crush
 
-Last updated at 10/09/2023 14:14
+Last updated at 10/09/2023 14:17
