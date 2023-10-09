@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4EF5GboRBle0uCBf-o1XZRg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607640950-p99e8y-t500x500.jpg">](https://soundcloud.com/pooldad/online-brain)
 
-**Artist**: Jukaa 
+**Artist**: pooldad 
 
-**Track**: Taylor Swift - 22 (Jukaa Bootleg)
+**Track**: Online Brain
 
-Last updated at 10/09/2023 14:36
+Last updated at 10/09/2023 14:37
