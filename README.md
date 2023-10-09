@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/cidal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XGk1AZFgK4iukb6s-AmGylA-t500x500.jpg">](https://soundcloud.com/elbamster/pushmy)
 
-**Artist**: beverly hills mom 
+**Artist**: Bamster 
 
-**Track**: feeling rlly cidal today... cant decide if its homi or sui yet
+**Track**: Push My* feat. iKeda
 
-Last updated at 10/09/2023 14:32
+Last updated at 10/09/2023 14:33
