@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iz6ICTbTd6qc-0-t500x500.png">](https://soundcloud.com/misogi/void-fallen-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TryO90qL2MqCtsux-CqTqzQ-t500x500.jpg">](https://soundcloud.com/shiro-beats/finally-you-leave-alternative-intro?in=shiro-beats/sets/hocus-pocus)
 
-**Artist**: MISOGI 
+**Artist**: shirobeats 
 
-**Track**: VOID FALLEN
+**Track**: Shirobeats & NOIZZ & Oricadia & Johnald - Finally You Leave Again
 
-Last updated at 10/09/2023 09:04
+Last updated at 10/09/2023 09:05
