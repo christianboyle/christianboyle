@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6PSlOykK7LzDk6uY-0gNbyQ-t500x500.jpg">](https://soundcloud.com/manifestdnb/sion-headsplitter-fired-up-feat-sabee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tt0P0LLQVbjrSTiX-lU976g-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/samuel-vasell-berox-got-my-heart-free-download)
 
-**Artist**: Manifest 
+**Artist**: EDM FAMILY 
 
-**Track**: S.I.O.N, Headsplitter - Fired Up (feat. Sabee)
+**Track**: Samuel Vasell & Berox - Got My Heart [FREE DOWNLOAD] Supported by Djs From Mars!
 
-Last updated at 10/09/2023 08:14
+Last updated at 10/09/2023 08:15
