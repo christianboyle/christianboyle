@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000607640950-p99e8y-t500x500.jpg">](https://soundcloud.com/pooldad/online-brain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jYN11svodjT4BTMQ-GCmGVA-t500x500.jpg">](https://soundcloud.com/kickcheeze/kickcheeze-eta-remix?in=saxurn/sets/new-1/)
 
-**Artist**: pooldad 
+**Artist**: KICKCHEEZE 🧀 
 
-**Track**: Online Brain
+**Track**: NewJeans - ETA (KICKCHEEZE Hard Remix)
 
-Last updated at 10/09/2023 14:37
+Last updated at 10/09/2023 14:38
