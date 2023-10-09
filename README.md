@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000610732722-13y2c6-t500x500.jpg">](https://soundcloud.com/maramice/chillout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YNHzryPYuwJsvuqP-HMT8jQ-t500x500.jpg">](https://soundcloud.com/ddglacier/kill-jill-ft-onlycenzo)
 
-**Artist**: Maramice 
+**Artist**: DD GLACIER 
 
-**Track**: Chillout
+**Track**: Kill Jill (ft @onlycenzo)
 
-Last updated at 10/09/2023 11:23
+Last updated at 10/09/2023 11:24
