@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XGk1AZFgK4iukb6s-AmGylA-t500x500.jpg">](https://soundcloud.com/elbamster/pushmy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iz6ICTbTd6qc-0-t500x500.png">](https://soundcloud.com/misogi/void-fallen-1)
 
-**Artist**: Bamster 
+**Artist**: MISOGI 
 
-**Track**: Push My* feat. iKeda
+**Track**: VOID FALLEN
 
-Last updated at 10/09/2023 14:33
+Last updated at 10/09/2023 14:34
