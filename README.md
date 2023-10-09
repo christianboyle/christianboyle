@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IPSOOst5EmiWpeJC-cKpITQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-459)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uGO64bpAHFYwQIp-YzU4Rg-t500x500.jpg">](https://soundcloud.com/sablevalley/stacks)
 
-**Artist**: Dj EZC 
+**Artist**: SABLE VALLEY 
 
-**Track**: Hardcore Will Never Die Episode 459
+**Track**: Juelz - Stacks (feat. 24hrs)
 
-Last updated at 10/08/2023 09:38
+Last updated at 10/09/2023 08:13
