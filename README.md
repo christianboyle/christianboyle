@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3Bj4zzD9PfFBLRS-QHO8bQ-t500x500.jpg">](https://soundcloud.com/revoxxmusik/revoxx-worry-bout-it/s-T0rnyQR57E1?in=saxurn/sets/new-1/)
 
-**Artist**: Hannah Diamond 
+**Artist**: Revoxx 
 
-**Track**: Hannah Diamond - Affirmations
+**Track**: Revoxx - Worry Bout It
 
-Last updated at 10/09/2023 14:23
+Last updated at 10/09/2023 14:27
