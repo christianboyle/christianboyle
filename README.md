@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryOHOkbONTByVXEz-y76rKw-t500x500.jpg">](https://soundcloud.com/baeldorf/autumn-ft-stm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/new-1/)
 
-**Artist**: Baeldorf 
+**Artist**: Francis VI 
 
-**Track**: Autumn (EP) ft. STM
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 10/09/2023 12:22
+Last updated at 10/09/2023 14:05
