@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qZUh3J0QOkqtOUua-sT6zYg-t500x500.jpg">](https://soundcloud.com/jamesjamesjamess/fffee3-jjj-remix-3-dj-something)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4EF5GboRBle0uCBf-o1XZRg-t500x500.jpg">](https://soundcloud.com/jukaamusic/22-bootleg)
 
-**Artist**: jamesjamesjames 
+**Artist**: Jukaa 
 
-**Track**: fffee3 (jjj remix ᔰ 𝓪𝓵𝓵𝔂) - dj something
+**Track**: Taylor Swift - 22 (Jukaa Bootleg)
 
-Last updated at 10/10/2023 12:55
+Last updated at 10/10/2023 13:04
