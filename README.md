@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/plz_dont_go_pk_flip?in=saxurn/sets/b00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix?in=saxurn/sets/b00)
 
-**Artist**: pk2 
+**Artist**: BRAVO 
 
-**Track**: plz_dont_go (pk flip)
+**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
 
-Last updated at 10/10/2023 12:39
+Last updated at 10/10/2023 12:40
