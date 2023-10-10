@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9X8bgSIPZ22V1MOG-P6uqWg-t500x500.jpg">](https://soundcloud.com/jamiebrownnnnn/covered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVr0Yg6LyRRy219f-N59PYw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-ferdinger-x-jakojako-second-nature-lip008)
 
-**Artist**: JAMIE BROWN 
+**Artist**: HATE 
 
-**Track**: covered
+**Track**: Premiere: Ferdinger X JakoJako - Second Nature [LIP008]
 
-Last updated at 10/10/2023 13:26
+Last updated at 10/10/2023 13:28
