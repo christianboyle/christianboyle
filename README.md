@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJIcyHyuCjFwKdS3-WQBDdg-t500x500.jpg">](https://soundcloud.com/wearelegacy/legacy-patrick-coles-what-i-want-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAigIXfgLvXNZgxa-OnYRQg-t500x500.jpg">](https://soundcloud.com/realdreamcaster/cement-prod-amai-100?in=realdreamcaster/sets/fish)
 
-**Artist**: LEGACY 
+**Artist**: Dream Caster (woody) 
 
-**Track**: Legacy & Patrick Coles - What I Want
+**Track**: Cement (prod. Amai)
 
-Last updated at 10/10/2023 14:50
+Last updated at 10/10/2023 14:51
