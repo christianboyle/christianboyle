@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgNllOV002P4m8nI-PyLiGA-t500x500.jpg">](https://soundcloud.com/rxflxct/gravity?in=saxurn/sets/b00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1?in=saxurn/sets/b00)
 
-**Artist**: rxflxct 
+**Artist**: Hannah Diamond 
 
-**Track**: Gravity
+**Track**: Hannah Diamond - Affirmations
 
-Last updated at 10/10/2023 12:32
+Last updated at 10/10/2023 12:36
