@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YeoGr4DqkU2dDzpa-C7jEQw-t500x500.jpg">](https://soundcloud.com/thatsdax/dax-dear-alcohol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JgIzt573s3Fz7GV-cD7SIw-t500x500.jpg">](https://soundcloud.com/thatsdax/life)
 
 **Artist**: DAX 
 
-**Track**: Dax - Dear Alcohol
+**Track**: Dax - Life
 
-Last updated at 10/10/2023 13:16
+Last updated at 10/10/2023 13:20
