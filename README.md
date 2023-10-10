@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JgIzt573s3Fz7GV-cD7SIw-t500x500.jpg">](https://soundcloud.com/thatsdax/life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ghkrvdY42GXINHE0-7d9FcA-t500x500.jpg">](https://soundcloud.com/jukaamusic/we-r-who-we-r-bootleg)
 
-**Artist**: DAX 
+**Artist**: Jukaa 
 
-**Track**: Dax - Life
+**Track**: Kesha - We R Who We R (Jukaa Bootleg)
 
-Last updated at 10/10/2023 13:20
+Last updated at 10/10/2023 13:23
