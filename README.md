@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryOHOkbONTByVXEz-y76rKw-t500x500.jpg">](https://soundcloud.com/baeldorf/autumn-ft-stm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gUhJmOXEe0AQyyRg-4ub9vw-t500x500.jpg">](https://soundcloud.com/arcando-official/kings-of-leon-sex-on-fire-arcando-dnb-remix-1)
 
-**Artist**: Baeldorf 
+**Artist**: Arcando 
 
-**Track**: Autumn (EP) ft. STM
+**Track**: Kings Of Leon - Sex On Fire (Arcando DnB Remix)
 
-Last updated at 10/10/2023 14:52
+Last updated at 10/11/2023 15:09
