@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOHUz8NttwHihNlx-y6ohig-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-300721-hour-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzBOkxadRky1mXTS-oWeySA-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/up-down-francis-vi-flip?in=saxurn/sets/b00)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Francis VI 
 
-**Track**: Bonkers Beats #17 on Beat 106 Scotland with Sharkey, Teddy from Taiwan & Doughboy 300721 (Hour 1)
+**Track**: Up & Down (Francis VI Flip)
 
-Last updated at 10/12/2023 14:30
+Last updated at 10/12/2023 15:19
