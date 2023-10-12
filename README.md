@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxmoDuC1I9lZhpSG-qAJF3A-t500x500.jpg">](https://soundcloud.com/hundaes/charli-puth-boy-hundaes-edit?in=saxurn/sets/b00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9pluzDP22zNAs6UT-MIvHDQ-t500x500.jpg">](https://soundcloud.com/officialnohero/kim-petras-nicki-minaj-alone-no-hero-hard-mix?in=saxurn/sets/b00)
 
-**Artist**: hundaes 
+**Artist**: No Hero 
 
-**Track**: Charli Puth - BOY (Hundaes Edit)
+**Track**: Kim Petras & Nicki Minaj - Alone (No Hero Hard Mix)
 
-Last updated at 10/12/2023 15:23
+Last updated at 10/12/2023 15:28
