@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-044GmzxftBxnBC9l-aoNeeg-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-060821-hour-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOHUz8NttwHihNlx-y6ohig-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-300721-hour-1)
 
 **Artist**: Beat 106 Scotland 
 
-**Track**: Bonkers Beats #18 on Beat 106 Scotland with Sharkey, S3rl & Hartshorn 060821 (Hour 1)
+**Track**: Bonkers Beats #17 on Beat 106 Scotland with Sharkey, Teddy from Taiwan & Doughboy 300721 (Hour 1)
 
-Last updated at 10/12/2023 12:36
+Last updated at 10/12/2023 14:30
