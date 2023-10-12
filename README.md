@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ghkrvdY42GXINHE0-7d9FcA-t500x500.jpg">](https://soundcloud.com/jukaamusic/we-r-who-we-r-bootleg?in=saxurn/sets/b00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix?in=saxurn/sets/b00)
 
-**Artist**: Jukaa 
+**Artist**: BRAVO 
 
-**Track**: Kesha - We R Who We R (Jukaa Bootleg)
+**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
 
-Last updated at 10/12/2023 15:46
+Last updated at 10/12/2023 15:49
