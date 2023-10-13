@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jYN11svodjT4BTMQ-GCmGVA-t500x500.jpg">](https://soundcloud.com/kickcheeze/kickcheeze-eta-remix?in=saxurn/sets/b00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u9B2GXWYtVe96jGy-yqyfzg-t500x500.jpg">](https://soundcloud.com/acyanmusic/flowdan-lil-baby-skrillex-pepper-acyan-flip)
 
-**Artist**: KICKCHEEZE 🧀 
+**Artist**: Acyan 
 
-**Track**: NewJeans - ETA (KICKCHEEZE Hard Remix)
+**Track**: Flowdan, Lil Baby & Skrillex - Pepper (Acyan Flip)
 
-Last updated at 10/12/2023 15:52
+Last updated at 10/13/2023 08:11
