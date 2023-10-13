@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LiozzyRzB4qRy4Ye-ZxyApg-t500x500.jpg">](https://soundcloud.com/simplifyrecs/k-theory-time-shifter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2)
 
-**Artist**: Simplify. 
+**Artist**: Great Dane 
 
-**Track**: K Theory - Time Shifter
+**Track**: Everything As It Should Be
 
-Last updated at 10/13/2023 08:13
+Last updated at 10/13/2023 08:14
