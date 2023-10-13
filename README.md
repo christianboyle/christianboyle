@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1rxsSvVdfvfk1dx-L7FIJg-t500x500.jpg">](https://soundcloud.com/genshinisgod/backroads-3-compilation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyJUznpjtIKnUkn5-cERcGQ-t500x500.jpg">](https://soundcloud.com/iamperto/gore)
 
-**Artist**: Genshin。 
+**Artist**: Perto 
 
-**Track**: Genshin - Backroads 3 | Compilation Mix
+**Track**: gore
 
-Last updated at 10/13/2023 08:19
+Last updated at 10/13/2023 08:20
