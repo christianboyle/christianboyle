@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryOHOkbONTByVXEz-y76rKw-t500x500.jpg">](https://soundcloud.com/baeldorf/autumn-ft-stm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pfMdBMbwTDnO01je-tzzSig-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/terrence-phillip-bare-up-inja-my-hearts-forgiving)
 
-**Artist**: Baeldorf 
+**Artist**: Forbidden Frequencies 
 
-**Track**: Autumn (EP) ft. STM
+**Track**: Terrence & Phillip, Bare Up, Inja - My Hearts Forgiving
 
-Last updated at 10/13/2023 11:27
+Last updated at 10/13/2023 11:29
