@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyJUznpjtIKnUkn5-cERcGQ-t500x500.jpg">](https://soundcloud.com/iamperto/gore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y345YvDvQEK1fdw4-JffTFA-t500x500.jpg">](https://soundcloud.com/barongfamily/sikdope-you-got-me)
 
-**Artist**: Perto 
+**Artist**: Barong Family 
 
-**Track**: gore
+**Track**: Sikdope - You Got Me
 
-Last updated at 10/13/2023 08:20
+Last updated at 10/13/2023 08:21
