@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zqb0zlJK4Z1RUyAz-Hno0Xg-t500x500.jpg">](https://soundcloud.com/dunkmellowd/dimension-ft-poppy-baskomb-where-do-we-go-mellowd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBMYvKloj8SA87AS-OSHn6w-t500x500.jpg">](https://soundcloud.com/brandonhombre/gods)
 
-**Artist**: MellowD 
+**Artist**: Brandon Hombre 
 
-**Track**: Dimension Ft. Poppy Baskomb - Where Do We Go (MellowD Remix)
+**Track**: League of Legends x NewJeans (뉴진스) - Gods (Brandon Hombre Hardstyle Remix)
 
-Last updated at 10/14/2023 15:54
+Last updated at 10/14/2023 15:55
