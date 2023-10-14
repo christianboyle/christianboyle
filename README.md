@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zywbs5QzB4w0jTDb-ezHl7w-t500x500.jpg">](https://soundcloud.com/jaysudo1/choosing-sides)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tz6JER8B2FvR5RB6-XyrzkQ-t500x500.jpg">](https://soundcloud.com/therealmotherdj/mini-mix-001)
 
-**Artist**: DJ Jay Sudo 
+**Artist**: mother. 
 
-**Track**: Choosing Sides
+**Track**: mini mix 001.
 
-Last updated at 10/14/2023 15:57
+Last updated at 10/14/2023 15:58
