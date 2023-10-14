@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ua5NAJqkSULYOq5z-xHyqBA-t500x500.jpg">](https://soundcloud.com/seanziral/blaze-vip)
 
-**Artist**: Great Dane 
+**Artist**: Sean Ziral 
 
-**Track**: Everything As It Should Be
+**Track**: Blaze VIP [3K FOLLOWERS FREE DL]
 
-Last updated at 10/13/2023 11:30
+Last updated at 10/14/2023 09:20
