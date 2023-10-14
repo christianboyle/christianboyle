@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000320443308-448igd-t500x500.jpg">](https://soundcloud.com/jordan-stevenson-884553856/bass-boosted-car-music-mix-2018?in=vic-delhaye-70391574/sets/sub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYLS3EwSC5VjsKsp-999ejQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-460)
 
-**Artist**: Jordan Stevenson 
+**Artist**: Dj EZC 
 
-**Track**: 🔈BASS BOOSTED🔈 CAR MUSIC MIX 2018 🔥
+**Track**: Hardcore Will Never Die Episode 460
 
-Last updated at 10/14/2023 09:22
+Last updated at 10/14/2023 09:23
