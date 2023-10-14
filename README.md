@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ua5NAJqkSULYOq5z-xHyqBA-t500x500.jpg">](https://soundcloud.com/seanziral/blaze-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7sZkjEn7pVH8dz0-fZdIaw-t500x500.jpg">](https://soundcloud.com/saint-baek/fein)
 
-**Artist**: Sean Ziral 
+**Artist**: SAINT MILLER 
 
-**Track**: Blaze VIP [3K FOLLOWERS FREE DL]
+**Track**: Fein (re/ saint miller) travis scott , playboi carti
 
-Last updated at 10/14/2023 09:20
+Last updated at 10/14/2023 09:21
