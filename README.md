@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZAvLwNlE36e-0-t500x500.jpg">](https://soundcloud.com/joelcorry/heydj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zywbs5QzB4w0jTDb-ezHl7w-t500x500.jpg">](https://soundcloud.com/jaysudo1/choosing-sides)
 
-**Artist**: Joel Corry 
+**Artist**: DJ Jay Sudo 
 
-**Track**: Joel Corry - Hey DJ
+**Track**: Choosing Sides
 
-Last updated at 10/14/2023 15:56
+Last updated at 10/14/2023 15:57
