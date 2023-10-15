@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqbzfnHyEhqVZQOe-YGLWbQ-t500x500.jpg">](https://soundcloud.com/hardymonk/whos-gonna-carry-the-boats-david-goggins-x-hardstyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-by0yf22HyZMgnNLD-SyC1Fw-t500x500.jpg">](https://soundcloud.com/datskobeats/children-datsko-remix)
 
-**Artist**: hardy 💫 
+**Artist**: DATSKO 
 
-**Track**: Who's Gonna Carry The Boats ?!! David Goggins X Hardstyle
+**Track**: DATSKO - Children (Remix)
 
-Last updated at 10/15/2023 09:56
+Last updated at 10/15/2023 09:57
