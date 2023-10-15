@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w4P10aS0eAiuf1FB-h0TI1g-t500x500.jpg">](https://soundcloud.com/cosmicbeats/amg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzKPZhKeSovLroOU-Vy4h0A-t500x500.jpg">](https://soundcloud.com/reinelexrecs/nanoo-u-must)
 
-**Artist**: COSMIC 
+**Artist**: Reinelex Records 
 
-**Track**: AMG
+**Track**: Nanoo - U Must
 
-Last updated at 10/15/2023 09:54
+Last updated at 10/15/2023 09:55
