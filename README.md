@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tz6JER8B2FvR5RB6-XyrzkQ-t500x500.jpg">](https://soundcloud.com/therealmotherdj/mini-mix-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-odFo66yzCBzBUDqL-jTvtqQ-t500x500.jpg">](https://soundcloud.com/huskibass/huski-like-this-juizze-remix-1)
 
-**Artist**: mother. 
+**Artist**: HUSKI 🐺 
 
-**Track**: mini mix 001.
+**Track**: HUSKI - LIKE THIS (JUIZZE REMIX) FREE DL | STEMS
 
-Last updated at 10/14/2023 15:58
+Last updated at 10/15/2023 09:53
