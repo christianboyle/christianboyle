@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-beULvIzvLpO43Cxf-KzzjmQ-t500x500.jpg">](https://soundcloud.com/lexo1-1/project)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7s8Vp81nZpVHs6m-q3a7rA-t500x500.jpg">](https://soundcloud.com/worldwiderecordings/mr-cunamis-be-mine)
 
-**Artist**: lexo1 
+**Artist**: World WIDE Recordings (℠) 
 
-**Track**: Project
+**Track**: Mr. Cunamis - Be Mine
 
-Last updated at 10/15/2023 09:58
+Last updated at 10/15/2023 09:59
