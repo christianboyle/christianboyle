@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-by0yf22HyZMgnNLD-SyC1Fw-t500x500.jpg">](https://soundcloud.com/datskobeats/children-datsko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-beULvIzvLpO43Cxf-KzzjmQ-t500x500.jpg">](https://soundcloud.com/lexo1-1/project)
 
-**Artist**: DATSKO 
+**Artist**: lexo1 
 
-**Track**: DATSKO - Children (Remix)
+**Track**: Project
 
-Last updated at 10/15/2023 09:57
+Last updated at 10/15/2023 09:58
