@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzKPZhKeSovLroOU-Vy4h0A-t500x500.jpg">](https://soundcloud.com/reinelexrecs/nanoo-u-must)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqbzfnHyEhqVZQOe-YGLWbQ-t500x500.jpg">](https://soundcloud.com/hardymonk/whos-gonna-carry-the-boats-david-goggins-x-hardstyle)
 
-**Artist**: Reinelex Records 
+**Artist**: hardy 💫 
 
-**Track**: Nanoo - U Must
+**Track**: Who's Gonna Carry The Boats ?!! David Goggins X Hardstyle
 
-Last updated at 10/15/2023 09:55
+Last updated at 10/15/2023 09:56
