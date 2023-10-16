@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ASLta3zKfs2v-0-t500x500.jpg">](https://soundcloud.com/charlixcx/how-can-i-not-know-what-i-need?in=charlixcx/sets/crash-deluxe-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZr0MjczLCsz-0-t500x500.jpg">](https://soundcloud.com/charlixcx/sorry-if-i-hurt-you?in=charlixcx/sets/crash-deluxe-1)
 
 **Artist**: charlixcx 
 
-**Track**: How Can I Not Know What I Need Right Now
+**Track**: Sorry if I Hurt You
 
-Last updated at 10/16/2023 14:29
+Last updated at 10/16/2023 17:48
