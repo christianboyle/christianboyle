@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vTYde3yUTNCSqhBw-fFXmmQ-t500x500.jpg">](https://soundcloud.com/bsterthegawd/angel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnOIIiTMtROtnghl-N2PA7A-t500x500.jpg">](https://soundcloud.com/naemsofficial/call-me-maybe-naems-remix-1)
 
-**Artist**: bsterthegawd 
+**Artist**: NAEMS 
 
-**Track**: angel
+**Track**: Call Me Maybe (NAEMS REMIX)
 
-Last updated at 10/16/2023 10:30
+Last updated at 10/16/2023 10:31
