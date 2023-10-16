@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pl7RgyUD6KQSyiqO-Jna7iQ-t500x500.jpg">](https://soundcloud.com/indoorradio/indoor-radio-guest-mix-064)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WalyhyH4mX9MpRFj-LzEuBg-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/rawstyletutorial?in=allhardnation/sets/wegohardervol1)
 
-**Artist**: INDOOR RADIO 
+**Artist**: Electrostep Network 
 
-**Track**: INDOOR RADIO Guest Mix: #064 AVYS [AVYS Promo Mix]
+**Track**: LiquidFlux, Velowen & KURXCO - RAWSTYLE TUTORIAL [Electrostep Network & Hard Nation EXCLUSIVE]
 
-Last updated at 10/16/2023 10:32
+Last updated at 10/16/2023 10:33
