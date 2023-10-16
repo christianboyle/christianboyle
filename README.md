@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8WRWPuGYsyrosBnB-zodL8g-t500x500.jpg">](https://soundcloud.com/allhardnation/frommyself?in=allhardnation/sets/wegohardervol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VYEzKMHNWXCC-0-t500x500.jpg">](https://soundcloud.com/charlixcx/teaching-each-other)
 
-**Artist**: Hard Nation 
+**Artist**: charlixcx 
 
-**Track**: Artix - From Myself [Electrostep Network & Hard Nation EXCLUSIVE]
+**Track**: Teaching Each Other
 
-Last updated at 10/16/2023 10:43
+Last updated at 10/16/2023 10:44
