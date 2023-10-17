@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Lk8QKYoydrsR40H-c8rT9Q-t500x500.png">](https://soundcloud.com/hate_music/premiere-aderal-mch-stk005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Du8gMyN5ffdHKUVb-qpXuqg-t500x500.jpg">](https://soundcloud.com/bloomedm/bloombt)
 
-**Artist**: HATE 
+**Artist**: Lofi Pet Records 
 
-**Track**: Premiere: Aderal - MCH [STK005]
+**Track**: BT - Bloom [Lofi Pet Records]
 
-Last updated at 10/17/2023 09:46
+Last updated at 10/17/2023 09:52
