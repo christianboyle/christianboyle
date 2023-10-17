@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmDApjKHjCnQ1K9n-RjJGVw-t500x500.jpg">](https://soundcloud.com/shashakimbo/06-physically-closed-1?in=shashakimbo/sets/10-years-of-chaos-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZfHyoR4jYv1kCMd-6MzmLw-t500x500.jpg">](https://soundcloud.com/grexbeatz/smoked-out-killaz)
 
-**Artist**: SHA SHA KIMBO 
+**Artist**: G-REX 
 
-**Track**: 06. Physically Closed
+**Track**: Smoked Out Killaz (with Devilish Trio)
 
-Last updated at 10/17/2023 10:56
+Last updated at 10/17/2023 11:00
