@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZfHyoR4jYv1kCMd-6MzmLw-t500x500.jpg">](https://soundcloud.com/grexbeatz/smoked-out-killaz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5HdzqwGbbeuPyvE-vZxydQ-t500x500.jpg">](https://soundcloud.com/stupidassbeats/backstreets-back-cody-ko-flip-1)
 
-**Artist**: G-REX 
+**Artist**: Cody Ko 
 
-**Track**: Smoked Out Killaz (with Devilish Trio)
+**Track**: Backstreets Back (Cody Ko Flip) [FREE DOWNLOAD]
 
-Last updated at 10/17/2023 11:00
+Last updated at 10/17/2023 11:01
