@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrNSd1SQG7H9OhY9-6GhEdg-t500x500.jpg">](https://soundcloud.com/dallaniel/high-with-my-lover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-45jsFlXIOZyfdckU-dzhdnw-t500x500.jpg">](https://soundcloud.com/katanacologne/jude-bradshaw-they-never-learn)
 
-**Artist**: Dallaniel 
+**Artist**: KATANA 
 
-**Track**: High With My Lover
+**Track**: Jude Bradshaw - They Never Learn
 
-Last updated at 10/17/2023 12:47
+Last updated at 10/17/2023 12:51
