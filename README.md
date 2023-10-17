@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pyPQFRryrg3F3x93-21XRoA-t500x500.jpg">](https://soundcloud.com/castorandpollux_music/twin-turbo-radio-ep-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEeIEX8yXQTBz5fE-IsGhqw-t500x500.jpg">](https://soundcloud.com/hom1nid/kingsq)
 
-**Artist**: Castor & Pollux 
+**Artist**: HOMINID 
 
-**Track**: Twin Turbo Radio Ep. 25 (Mesa & Boss Guest Mix)
+**Track**: Booty Leak + HOMINID & TECHNO KING - Kings & Queens / FREE DOWNLOAD
 
-Last updated at 10/17/2023 08:21
+Last updated at 10/17/2023 09:41
