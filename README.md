@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAwYht3vPpVopiAP-KzoeVA-t500x500.jpg">](https://soundcloud.com/zaedamusic/gondo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V1SOu8iFZxYFAnx8-kApK9Q-t500x500.jpg">](https://soundcloud.com/maxdoutrecords/blaize-x-ltch-hood-talk)
 
-**Artist**: Zaeda 
+**Artist**: MAXD OUT RECORDS 
 
-**Track**: GONDO
+**Track**: Blaize X L!TCH - Hood Talk
 
-Last updated at 10/17/2023 09:42
+Last updated at 10/17/2023 09:44
