@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzgwbUccnaSSAGX3-GbIjeg-t500x500.jpg">](https://soundcloud.com/dv60/pearl-fountain-makina-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmDApjKHjCnQ1K9n-RjJGVw-t500x500.jpg">](https://soundcloud.com/shashakimbo/01-zattise-2?in=shashakimbo/sets/10-years-of-chaos-2)
 
-**Artist**: ༺ 𝐃𝐕𝟔𝟎 ༻ 
+**Artist**: SHA SHA KIMBO 
 
-**Track**: Yung Lean - Pearl Fountain (DV60 Makina Edit) [FREE DL]
+**Track**: 01. Zattise
 
-Last updated at 10/17/2023 09:56
+Last updated at 10/17/2023 09:57
