@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3w6BSMhIQAMLwHm-Ka4teA-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-233-darby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bx3qnumKGe0i-0-t500x500.jpg">](https://soundcloud.com/illeniumofficial/illenium-jxdn-lifeline-caslow?in=caslowofficial/sets/illenium-jxdn-lifeline-caslow)
 
-**Artist**: FUXWITHIT 
+**Artist**: ILLENIUM 
 
-**Track**: FUXWITHIT Guest Mix: 233 - Darby
+**Track**: ILLENIUM & jxdn - Lifeline (Caslow Remix)
 
-Last updated at 10/17/2023 11:02
+Last updated at 10/17/2023 11:03
