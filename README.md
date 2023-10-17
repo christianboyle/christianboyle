@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qTgYATthex6a26p3-UqL0sg-t500x500.jpg">](https://soundcloud.com/partyofplastic/vampire-im-the-worst-my-love-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMmTW9pLSN00zBYV-fh5Mbw-t500x500.jpg">](https://soundcloud.com/inrotationrecs/bombays-in-your-eyes)
 
-**Artist**: Party of Plastic 
+**Artist**: IN / ROTATION 
 
-**Track**: vampire (i'm the worst my love)
+**Track**: BOMBAYS - IN YOUR EYES
 
-Last updated at 10/17/2023 09:53
+Last updated at 10/17/2023 09:55
