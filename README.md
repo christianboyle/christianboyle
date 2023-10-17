@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fyg9ZOmfZzzhlQXb-klCnNw-t500x500.jpg">](https://soundcloud.com/katanacologne/premiere-part-time-killer-what-you-need-eevol8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QlX1GGzmXlLpVUg3-QxTVCQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dallaniel-x-emilio-albert)
 
-**Artist**: KATANA 
+**Artist**: ONLYTRANCE 
 
-**Track**: [PREMIERE] Part Time Killer - What You Need [EEVOL8]
+**Track**: Dallaniel X Emilio Albert - Trance 101 [Free Download]
 
-Last updated at 10/17/2023 12:37
+Last updated at 10/17/2023 12:38
