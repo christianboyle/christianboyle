@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNbK15Us3cys-0-t500x500.jpg">](https://soundcloud.com/charlixcx/next-level-charli?in=charlixcx/sets/charli-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrG5gWP9IJ1wmgDl-e05lPw-t500x500.jpg">](https://soundcloud.com/yde-dineroofficial/yde-dinero-going-up-prod)
 
-**Artist**: charlixcx 
+**Artist**: YDE DineroOfficial 
 
-**Track**: Next Level Charli
+**Track**: YDE Dinero-Going Up(Prod:Rollie)
 
-Last updated at 10/16/2023 18:04
+Last updated at 10/17/2023 08:19
