@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QlX1GGzmXlLpVUg3-QxTVCQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dallaniel-x-emilio-albert)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDhoEXP4MygmlHLa-fQPcqA-t500x500.jpg">](https://soundcloud.com/parallelhh/dallaniel-to-the-stars-s016)
 
-**Artist**: ONLYTRANCE 
+**Artist**: Parallel Label [PARA//E/] 
 
-**Track**: Dallaniel X Emilio Albert - Trance 101 [Free Download]
+**Track**: Dallaniel - To The Stars [///S016]
 
-Last updated at 10/17/2023 12:38
+Last updated at 10/17/2023 12:40
