@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDhoEXP4MygmlHLa-fQPcqA-t500x500.jpg">](https://soundcloud.com/parallelhh/dallaniel-to-the-stars-s016)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHOpLqUbbxezbVAQ-Z0NFhg-t500x500.jpg">](https://soundcloud.com/dallaniel/dallaniel-4-the-club-syndikaet)
 
-**Artist**: Parallel Label [PARA//E/] 
+**Artist**: Dallaniel 
 
-**Track**: Dallaniel - To The Stars [///S016]
+**Track**: Dallaniel - 4 The Club [SNDKT_Comp_World1]
 
-Last updated at 10/17/2023 12:40
+Last updated at 10/17/2023 12:44
