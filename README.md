@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHOpLqUbbxezbVAQ-Z0NFhg-t500x500.jpg">](https://soundcloud.com/dallaniel/dallaniel-4-the-club-syndikaet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrNSd1SQG7H9OhY9-6GhEdg-t500x500.jpg">](https://soundcloud.com/dallaniel/high-with-my-lover)
 
 **Artist**: Dallaniel 
 
-**Track**: Dallaniel - 4 The Club [SNDKT_Comp_World1]
+**Track**: High With My Lover
 
-Last updated at 10/17/2023 12:44
+Last updated at 10/17/2023 12:47
