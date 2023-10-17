@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5HdzqwGbbeuPyvE-vZxydQ-t500x500.jpg">](https://soundcloud.com/stupidassbeats/backstreets-back-cody-ko-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3w6BSMhIQAMLwHm-Ka4teA-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-233-darby)
 
-**Artist**: Cody Ko 
+**Artist**: FUXWITHIT 
 
-**Track**: Backstreets Back (Cody Ko Flip) [FREE DOWNLOAD]
+**Track**: FUXWITHIT Guest Mix: 233 - Darby
 
-Last updated at 10/17/2023 11:01
+Last updated at 10/17/2023 11:02
