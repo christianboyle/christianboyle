@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Du8gMyN5ffdHKUVb-qpXuqg-t500x500.jpg">](https://soundcloud.com/bloomedm/bloombt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qTgYATthex6a26p3-UqL0sg-t500x500.jpg">](https://soundcloud.com/partyofplastic/vampire-im-the-worst-my-love-1)
 
-**Artist**: Lofi Pet Records 
+**Artist**: Party of Plastic 
 
-**Track**: BT - Bloom [Lofi Pet Records]
+**Track**: vampire (i'm the worst my love)
 
-Last updated at 10/17/2023 09:52
+Last updated at 10/17/2023 09:53
