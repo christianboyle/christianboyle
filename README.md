@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbA59a5O0cfyH2bl-RtgP9g-t500x500.jpg">](https://soundcloud.com/aajaradio/ware-w-joel-eb-aaja-channel-2-14-10-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0VuA4lRgnVvnUazv-b8u9Fg-t500x500.jpg">](https://soundcloud.com/hyperforms/reign)
 
-**Artist**: Aaja Music 
+**Artist**: hyperforms 
 
-**Track**: WARE w/ Joel EB - Aaja Channel 2 - 14 10 23
+**Track**: REIGN
 
-Last updated at 10/17/2023 13:29
+Last updated at 10/17/2023 14:28
