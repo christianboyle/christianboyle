@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bx3qnumKGe0i-0-t500x500.jpg">](https://soundcloud.com/illeniumofficial/illenium-jxdn-lifeline-caslow?in=caslowofficial/sets/illenium-jxdn-lifeline-caslow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbA59a5O0cfyH2bl-RtgP9g-t500x500.jpg">](https://soundcloud.com/aajaradio/ware-w-joel-eb-aaja-channel-2-14-10-23)
 
-**Artist**: ILLENIUM 
+**Artist**: Aaja Music 
 
-**Track**: ILLENIUM & jxdn - Lifeline (Caslow Remix)
+**Track**: WARE w/ Joel EB - Aaja Channel 2 - 14 10 23
 
-Last updated at 10/17/2023 11:03
+Last updated at 10/17/2023 11:05
