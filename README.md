@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niR2WG64EMw21cb9-xgDFTg-t500x500.jpg">](https://soundcloud.com/katanacologne/premiere-aisha-transcend-into-purple-fractals-ib012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fyg9ZOmfZzzhlQXb-klCnNw-t500x500.jpg">](https://soundcloud.com/katanacologne/premiere-part-time-killer-what-you-need-eevol8)
 
 **Artist**: KATANA 
 
-**Track**: [PREMIERE] AISHA - Transcend Into Purple Fractals [IB012]
+**Track**: [PREMIERE] Part Time Killer - What You Need [EEVOL8]
 
-Last updated at 10/17/2023 12:31
+Last updated at 10/17/2023 12:37
