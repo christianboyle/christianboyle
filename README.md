@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEeIEX8yXQTBz5fE-IsGhqw-t500x500.jpg">](https://soundcloud.com/hom1nid/kingsq)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAwYht3vPpVopiAP-KzoeVA-t500x500.jpg">](https://soundcloud.com/zaedamusic/gondo)
 
-**Artist**: HOMINID 
+**Artist**: Zaeda 
 
-**Track**: Booty Leak + HOMINID & TECHNO KING - Kings & Queens / FREE DOWNLOAD
+**Track**: GONDO
 
-Last updated at 10/17/2023 09:41
+Last updated at 10/17/2023 09:42
