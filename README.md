@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJevHjH53pMx2wNi-q9QZLA-t500x500.jpg">](https://soundcloud.com/discolines/good-good-radio-ep-004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHaSXc1tOSQR6tFL-ZEYl8Q-t500x500.jpg">](https://soundcloud.com/tru_gryt/tru-gryt-still-equipped)
 
-**Artist**: Disco Lines 
+**Artist**: TRU GRYT 
 
-**Track**: Good Good Radio Ep. 004
+**Track**: STILL EQUIPPED
 
-Last updated at 10/18/2023 13:43
+Last updated at 10/18/2023 13:44
