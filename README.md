@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9bQRrPdzHBrrqgh-CHSkcw-t500x500.jpg">](https://soundcloud.com/d00ddubz/wayne-goes-shopping-in-kokiri-forest-gone-sexual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SCFZQRwpSkwm6hz-FKcdew-t500x500.jpg">](https://soundcloud.com/deadweightus/dead-weight-your-true-creator-1)
 
-**Artist**: D00D 
+**Artist**: Dead Weight 
 
-**Track**: lil goes wayne shopping in kokiri forest (gone sexual)
+**Track**: Dead Weight - Your True Creator
 
-Last updated at 10/18/2023 13:47
+Last updated at 10/18/2023 13:48
