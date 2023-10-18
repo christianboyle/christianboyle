@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yp2s6Q732fz2idMO-kyimZg-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-aisha-enter-bounce-ibo12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niR2WG64EMw21cb9-xgDFTg-t500x500.jpg">](https://soundcloud.com/katanacologne/premiere-aisha-transcend-into-purple-fractals-ib012)
 
-**Artist**: Techno Wereld 
+**Artist**: KATANA 
 
-**Track**: Premiere: AISHA - Enter Bounce [IBO12]
+**Track**: [PREMIERE] AISHA - Transcend Into Purple Fractals [IB012]
 
-Last updated at 10/18/2023 13:57
+Last updated at 10/18/2023 14:02
