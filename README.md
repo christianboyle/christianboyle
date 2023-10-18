@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SCFZQRwpSkwm6hz-FKcdew-t500x500.jpg">](https://soundcloud.com/deadweightus/dead-weight-your-true-creator-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttr05DygTvH3Wp0e-IDxEMg-t500x500.jpg">](https://soundcloud.com/discolines/kesha-we-r-who-we-r-disco-lines-remix-4)
 
-**Artist**: Dead Weight 
+**Artist**: Disco Lines 
 
-**Track**: Dead Weight - Your True Creator
+**Track**: kesha - we r who we r (disco lines remix)
 
-Last updated at 10/18/2023 13:48
+Last updated at 10/18/2023 13:49
