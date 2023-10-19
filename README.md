@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZAvLwNlE36e-0-t500x500.jpg">](https://soundcloud.com/joelcorry/heydj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mp4wdfCwwnToE7zc-xWhufA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-cowboys-with-nukes-full-album)
 
-**Artist**: Joel Corry 
+**Artist**: DJ SMOKEY 666 
 
-**Track**: Joel Corry - Hey DJ
+**Track**: DJ Smokey - Cowboys With Nukes (Full Album)
 
-Last updated at 10/19/2023 08:25
+Last updated at 10/19/2023 08:30
