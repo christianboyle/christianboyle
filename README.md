@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLJ5YBtrIggNPi8C-DORUOQ-t500x500.jpg">](https://soundcloud.com/yeongmusic/nylon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRvjJAWqmmZwyjR9-rVnqqQ-t500x500.jpg">](https://soundcloud.com/beatlabradio/xavage-exclusive-mix-beat-lab-radio-440)
 
-**Artist**: yeong 
+**Artist**: Beat Lab Radio 
 
-**Track**: Nylon
+**Track**: XAVAGE - Exclusive Mix - Beat Lab Radio 440
 
-Last updated at 10/19/2023 14:58
+Last updated at 10/19/2023 15:00
