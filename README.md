@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niR2WG64EMw21cb9-xgDFTg-t500x500.jpg">](https://soundcloud.com/katanacologne/premiere-aisha-transcend-into-purple-fractals-ib012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TpbtbbT2oUNkZZzh-ItXWsQ-t500x500.jpg">](https://soundcloud.com/zoniiworld/zonii-warning)
 
-**Artist**: KATANA 
+**Artist**: Zonii 
 
-**Track**: [PREMIERE] AISHA - Transcend Into Purple Fractals [IB012]
+**Track**: Zonii - Warning
 
-Last updated at 10/18/2023 14:02
+Last updated at 10/19/2023 08:05
