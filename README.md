@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAd2mVYTSyFPf6u7-Iu4FJw-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-ace-dance-2000-master-together-for-ukraine?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A47xMuJexvmw-0-t500x500.jpg">](https://soundcloud.com/pirapus/lost-with-u-feat-brody-leigh?in=saxurn/sets/walks/)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Pirapus 
 
-**Track**: PREMIERE: ACE - Dance 2000 | Together For Ukraine | VD
+**Track**: LOST WITH U (feat. Brody Leigh)
 
-Last updated at 10/19/2023 12:41
+Last updated at 10/19/2023 12:46
