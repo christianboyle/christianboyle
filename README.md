@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZkyBcdTLkI9fmRz-mrhlmw-t500x500.jpg">](https://soundcloud.com/nanobii/i2i?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b5ZgNg7EDWU3SMvb-lxNaRg-t500x500.jpg">](https://soundcloud.com/charlixcx/in-the-city-1?in=saxurn/sets/walks/)
 
-**Artist**: nanobii 
+**Artist**: charlixcx 
 
-**Track**: i2i
+**Track**: In The City
 
-Last updated at 10/19/2023 12:06
+Last updated at 10/19/2023 12:33
