@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLJ5YBtrIggNPi8C-DORUOQ-t500x500.jpg">](https://soundcloud.com/yeongmusic/nylon)
 
-**Artist**: Great Dane 
+**Artist**: yeong 
 
-**Track**: Everything As It Should Be
+**Track**: Nylon
 
-Last updated at 10/19/2023 13:00
+Last updated at 10/19/2023 14:58
