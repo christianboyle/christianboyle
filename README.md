@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mp4wdfCwwnToE7zc-xWhufA-t500x500.jpg">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-cowboys-with-nukes-full-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZkyBcdTLkI9fmRz-mrhlmw-t500x500.jpg">](https://soundcloud.com/nanobii/i2i?in=saxurn/sets/walks/)
 
-**Artist**: DJ SMOKEY 666 
+**Artist**: nanobii 
 
-**Track**: DJ Smokey - Cowboys With Nukes (Full Album)
+**Track**: i2i
 
-Last updated at 10/19/2023 08:30
+Last updated at 10/19/2023 12:06
