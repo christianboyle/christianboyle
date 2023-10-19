@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1vdUDTZdqnK6Omfx-cuxqmA-t500x500.jpg">](https://soundcloud.com/shadowsareforever/lizdek-ivoryghost-aker-ivoryghost-rebirth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqbzfnHyEhqVZQOe-YGLWbQ-t500x500.jpg">](https://soundcloud.com/hardymonk/whos-gonna-carry-the-boats-david-goggins-x-hardstyle)
 
-**Artist**: Ivoryghost 
+**Artist**: hardy 💫 
 
-**Track**: Lizdek & Ivoryghost - Aker (Ivoryghost Rebirth)
+**Track**: Who's Gonna Carry The Boats ?!! David Goggins X Hardstyle
 
-Last updated at 10/19/2023 08:22
+Last updated at 10/19/2023 08:23
