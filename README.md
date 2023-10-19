@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIAuYWMvII1T8hdP-7oVDpA-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/censored-the-audio-colored-flavor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqSEC2geLyIy0tpv-ss6s4Q-t500x500.jpg">](https://soundcloud.com/districtbassmusic/geostatic-fragments-of-my-mind)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: DistrictBass 
 
-**Track**: Censored The Audio - Colored Flavor
+**Track**: Geostatic - Fragments Of My Mind
 
-Last updated at 10/19/2023 08:06
+Last updated at 10/19/2023 08:08
