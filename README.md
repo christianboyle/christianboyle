@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TpbtbbT2oUNkZZzh-ItXWsQ-t500x500.jpg">](https://soundcloud.com/zoniiworld/zonii-warning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIAuYWMvII1T8hdP-7oVDpA-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/censored-the-audio-colored-flavor)
 
-**Artist**: Zonii 
+**Artist**: Forbidden Frequencies 
 
-**Track**: Zonii - Warning
+**Track**: Censored The Audio - Colored Flavor
 
-Last updated at 10/19/2023 08:05
+Last updated at 10/19/2023 08:06
