@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqSEC2geLyIy0tpv-ss6s4Q-t500x500.jpg">](https://soundcloud.com/districtbassmusic/geostatic-fragments-of-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b5ZgNg7EDWU3SMvb-lxNaRg-t500x500.jpg">](https://soundcloud.com/charlixcx/in-the-city-1)
 
-**Artist**: DistrictBass 
+**Artist**: charlixcx 
 
-**Track**: Geostatic - Fragments Of My Mind
+**Track**: In The City
 
-Last updated at 10/19/2023 08:08
+Last updated at 10/19/2023 08:09
