@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHOpLqUbbxezbVAQ-Z0NFhg-t500x500.jpg">](https://soundcloud.com/dallaniel/dallaniel-4-the-club-syndikaet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yp2s6Q732fz2idMO-kyimZg-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-aisha-enter-bounce-ibo12)
 
-**Artist**: Dallaniel 
+**Artist**: Techno Wereld 
 
-**Track**: Dallaniel - 4 The Club [SNDKT_Comp_World1]
+**Track**: Premiere: AISHA - Enter Bounce [IBO12]
 
-Last updated at 10/19/2023 08:11
+Last updated at 10/19/2023 08:21
