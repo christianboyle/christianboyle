@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A7J1cZyoCLGQ-0-t500x500.jpg">](https://soundcloud.com/ootorowho/what-you-heard-bout-me?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClGCrhdZxhvq-0-t500x500.jpg">](https://soundcloud.com/samfeldt/memories?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: OOTORO 
+**Artist**: Sam Feldt 
 
-**Track**: What You Heard Bout Me
+**Track**: Memories
 
-Last updated at 10/20/2023 09:42
+Last updated at 10/20/2023 09:47
