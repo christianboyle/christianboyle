@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQLdczVwlgU1vC3O-Bofrmw-t500x500.jpg">](https://soundcloud.com/confession/keeld-what-u-wanna-do?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wyvpOfI4qyg1-0-t500x500.jpg">](https://soundcloud.com/acraze-3/heard-it-like-this?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: CONFESSION 
+**Artist**: ACRAZE 
 
-**Track**: Keeld - What U Wanna Do
+**Track**: Heard It Like This
 
-Last updated at 10/20/2023 08:46
+Last updated at 10/20/2023 08:47
