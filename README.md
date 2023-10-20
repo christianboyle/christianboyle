@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpaoMzqH1WDZRDzG-QsTrDw-t500x500.jpg">](https://soundcloud.com/rudeservice/perry-wayne-lost?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfXAZJpgJqr4hFyN-iM3o5A-t500x500.jpg">](https://soundcloud.com/monstercat/teddy-killerz-fight-me?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: Rude Service 
+**Artist**: Monstercat 
 
-**Track**: Perry Wayne - Lost
+**Track**: Teddy Killerz - Fight Me
 
-Last updated at 10/20/2023 09:35
+Last updated at 10/20/2023 09:39
