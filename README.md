@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-konLbnhVfCj5-0-t500x500.png">](https://soundcloud.com/hardwell/i-wanna-dance?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqS7uMu0IsyA2cfX-099VGQ-t500x500.jpg">](https://soundcloud.com/spaceyacht/hotel-garuda-ciszak-u-got-2?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: HARDWELL 
+**Artist**: SPACE YACHT 
 
-**Track**: I Wanna Dance (feat. MERYLL)
+**Track**: Hotel Garuda, Ciszak - U GOT 2
 
-Last updated at 10/20/2023 09:18
+Last updated at 10/20/2023 09:21
