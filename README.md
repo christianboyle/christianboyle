@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VnvFuNgYW2wK-0-t500x500.png">](https://soundcloud.com/dj4b/4b-haunted?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XOSnwHMxKSy6TDS8-JWXiJA-t500x500.jpg">](https://soundcloud.com/falcoschubert16/the-jump)
 
-**Artist**: 4B 
+**Artist**: Flavy 
 
-**Track**: 4B - Haunted
+**Track**: The Jump
 
-Last updated at 10/20/2023 09:55
+Last updated at 10/20/2023 09:56
