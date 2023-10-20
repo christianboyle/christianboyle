@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQLdczVwlgU1vC3O-Bofrmw-t500x500.jpg">](https://soundcloud.com/confession/keeld-what-u-wanna-do?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNZHBpICJivo1Ynp-C1Lt7Q-t500x500.jpg">](https://soundcloud.com/duskus/moss?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: CONFESSION 
+**Artist**: Duskus 
 
-**Track**: Keeld - What U Wanna Do
+**Track**: Moss
 
-Last updated at 10/20/2023 08:55
+Last updated at 10/20/2023 08:58
