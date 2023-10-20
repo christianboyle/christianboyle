@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqS7uMu0IsyA2cfX-099VGQ-t500x500.jpg">](https://soundcloud.com/spaceyacht/hotel-garuda-ciszak-u-got-2?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXzazSOnFLSj-0-t500x500.jpg">](https://soundcloud.com/musicbyafinity/misunderstood?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: SPACE YACHT 
+**Artist**: Afinity 
 
-**Track**: Hotel Garuda, Ciszak - U GOT 2
+**Track**: Misunderstood
 
-Last updated at 10/20/2023 09:21
+Last updated at 10/20/2023 09:24
