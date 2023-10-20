@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lGPjqT31YuulKcy-YF7Z5A-t500x500.jpg">](https://soundcloud.com/headbangsociety/headspace-sessions-vol-07-jacknife)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttr05DygTvH3Wp0e-IDxEMg-t500x500.jpg">](https://soundcloud.com/discolines/kesha-we-r-who-we-r-disco-lines-remix-4)
 
-**Artist**: Headbang Society 
+**Artist**: Disco Lines 
 
-**Track**: HeadSpace Sessions Vol 76 : JACKNIFE
+**Track**: kesha - we r who we r (disco lines remix)
 
-Last updated at 10/20/2023 09:57
+Last updated at 10/20/2023 09:59
