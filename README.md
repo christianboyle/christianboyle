@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRvjJAWqmmZwyjR9-rVnqqQ-t500x500.jpg">](https://soundcloud.com/beatlabradio/xavage-exclusive-mix-beat-lab-radio-440)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVxz7j3WSBOzrhts-8TMBHg-t500x500.jpg">](https://soundcloud.com/sablevalley/just-too-numb)
 
-**Artist**: Beat Lab Radio 
+**Artist**: SABLE VALLEY 
 
-**Track**: XAVAGE - Exclusive Mix - Beat Lab Radio 440
+**Track**: Sublab - Just Too Numb (with Calivania)
 
-Last updated at 10/19/2023 15:00
+Last updated at 10/20/2023 08:45
