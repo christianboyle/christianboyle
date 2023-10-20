@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KohCyHpJzADjt9Qq-H3UdXw-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-feat-micah-martin-if-it-aint?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWdyIbzzOBgE-0-t500x500.jpg">](https://soundcloud.com/flava_d/miss-dopamine-original?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: Wakaan 
+**Artist**: Flava D 
 
-**Track**: TVBOO feat. Micah Martin - If It Ain't
+**Track**: Miss Dopamine
 
-Last updated at 10/20/2023 09:05
+Last updated at 10/20/2023 09:07
