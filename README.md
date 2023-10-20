@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0q6M8XagcCKxh0kz-TTXwqg-t500x500.jpg">](https://soundcloud.com/vorso/staycation?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V0sBogCYX36Yg2B3-BFO7mg-t500x500.jpg">](https://soundcloud.com/vorso/palindromes?in=radaarshow/sets/release-radaar-1)
 
 **Artist**: Vorso 
 
-**Track**: Vorso — Staycation
+**Track**: Vorso —  Palindromes
 
-Last updated at 10/20/2023 08:49
+Last updated at 10/20/2023 08:51
