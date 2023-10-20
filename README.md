@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wyvpOfI4qyg1-0-t500x500.jpg">](https://soundcloud.com/acraze-3/heard-it-like-this?in=radaarshow/sets/release-radaar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ifdDLKB03reS-0-t500x500.jpg">](https://soundcloud.com/thechainsmokers/the-chainsmokers-gracey-think?in=radaarshow/sets/release-radaar-1)
 
-**Artist**: ACRAZE 
+**Artist**: The Chainsmokers 
 
-**Track**: Heard It Like This
+**Track**: The Chainsmokers & GRACEY - Think Of Us
 
-Last updated at 10/20/2023 08:47
+Last updated at 10/20/2023 08:48
