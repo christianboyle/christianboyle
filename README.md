@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJwiDhMvhOvBCbvN-6PMMuA-t500x500.jpg">](https://soundcloud.com/ian-suryadi/bon-jovi-its-my-life-l3xology-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix)
 
-**Artist**: Dj L3xology 
+**Artist**: BRAVO 
 
-**Track**: Bon Jovi - Its My Life ( L3xology Hard Mix 2023 )
+**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
 
-Last updated at 10/23/2023 16:52
+Last updated at 10/23/2023 16:57
