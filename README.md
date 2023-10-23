@@ -1,9 +1,22 @@
-## Currently Playing on SoundCloud
+## Currently Playing on YouTube
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnytigZzyaFAJJoI-nE5IOA-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-09)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/kmvi8wsHzDU/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGGUgZShlMA8=&rs=AOn4CLAsVyR-dPLRE5y5GFfaZcHQ8zb3BQ">](https://www.youtube.com/watch?v=kmvi8wsHzDU)
 
-**Artist**: TELYKAST 
+**Artist**: 
+  
+    Charli XCX
+  
+  
+  
+    Charli XCX
+  
 
-**Track**: BROADKAST - Mix 09
 
-Last updated at 10/23/2023 11:43
+
+
+
+ 
+
+**Track**: Charli XCX & Sam Smith - In The City [Official Audio]
+
+Last updated at 10/23/2023 13:26
