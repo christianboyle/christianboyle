@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyDB56WzJRSv-0-t500x500.jpg">](https://soundcloud.com/telykast/telykast-georgia-ku-you-got-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nn0eKjqhIte24Zzi-ywzwDQ-t500x500.jpg">](https://soundcloud.com/uiceheidd/doom)
 
-**Artist**: TELYKAST 
+**Artist**: Juice WRLD 
 
-**Track**: TELYKAST, Georgia Ku, The NGHBRS - You Got Me (The NGHBRS Remix)
+**Track**: Doom
 
-Last updated at 10/23/2023 13:34
+Last updated at 10/23/2023 13:35
