@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QS3mIOIz8ZbrAeYy-ytqAdw-t500x500.jpg">](https://soundcloud.com/popthatrunk/pop-tha-trunk-real-quick-temp-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TRvjJAWqmmZwyjR9-rVnqqQ-t500x500.jpg">](https://soundcloud.com/beatlabradio/xavage-exclusive-mix-beat-lab-radio-440)
 
-**Artist**: POP THA TRUNK 
+**Artist**: Beat Lab Radio 
 
-**Track**: POP THA TRUNK - REAL QUICK [FREE DL]
+**Track**: XAVAGE - Exclusive Mix - Beat Lab Radio 440
 
-Last updated at 10/23/2023 14:48
+Last updated at 10/23/2023 14:53
