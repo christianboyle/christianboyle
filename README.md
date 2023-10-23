@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISg9PJn5nFo8Vpqn-duUbQA-t500x500.jpg">](https://soundcloud.com/sebseb122/mission-iimpossible)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iapCHyySeJjcC8t1-p1pGAA-t500x500.jpg">](https://soundcloud.com/sebseb122/mountaiin)
 
 **Artist**: SEBii💫 
 
-**Track**: MISSION iiMPOSSIBLE [p. sebseb122 + vvspipes + kimj]
+**Track**: MOUNTAiiN [p. shinju + naawoj]
 
-Last updated at 10/23/2023 17:17
+Last updated at 10/23/2023 17:19
