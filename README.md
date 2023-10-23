@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nn0eKjqhIte24Zzi-ywzwDQ-t500x500.jpg">](https://soundcloud.com/uiceheidd/doom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XGk1AZFgK4iukb6s-AmGylA-t500x500.jpg">](https://soundcloud.com/elbamster/pushmy)
 
-**Artist**: Juice WRLD 
+**Artist**: Bamster 
 
-**Track**: Doom
+**Track**: Push My* feat. iKeda
 
-Last updated at 10/23/2023 16:44
+Last updated at 10/23/2023 16:45
