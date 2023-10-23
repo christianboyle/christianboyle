@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xss26MQJ8Me7nKMU-echncw-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/haan808-i-aint-playin)
 
-**Artist**: Great Dane 
+**Artist**: FUXWITHIT 
 
-**Track**: Everything As It Should Be
+**Track**: Haan808 - I Ain't Playin
 
-Last updated at 10/23/2023 14:28
+Last updated at 10/23/2023 14:32
