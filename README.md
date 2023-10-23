@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4IMs3gNhFjvlr0uE-4cokMg-t500x500.jpg">](https://soundcloud.com/wukongofficial/guan-yus-anthem-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbayiMyCZGU8nwya-y9FA7A-t500x500.jpg">](https://soundcloud.com/trrr-ttfrr/lovely-proghouse-vol-3-mp3)
 
-**Artist**: WUKONG 
+**Artist**: MAHATMAN 
 
-**Track**: Guan Yu's Anthem
+**Track**: lovely proghouse vol 3
 
-Last updated at 10/23/2023 08:23
+Last updated at 10/23/2023 08:24
