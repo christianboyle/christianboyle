@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yaAOeJBaxGb7cbz-QZVycA-t500x500.jpg">](https://soundcloud.com/wasteurself/wasteurself-x-buzz-junior-i-cant-miss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-emeJtqK9SZeY-0-t500x500.png">](https://soundcloud.com/33below/protecta?in=saxurn/sets/walks/)
 
-**Artist**: wasteurself 
+**Artist**: 33 BELOW 
 
-**Track**: Wasteurself X Buzz Junior - I Can't Miss
+**Track**: PROTECTA
 
-Last updated at 10/23/2023 15:59
+Last updated at 10/23/2023 16:03
