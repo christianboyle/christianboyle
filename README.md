@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XGk1AZFgK4iukb6s-AmGylA-t500x500.jpg">](https://soundcloud.com/elbamster/pushmy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdU5RflIAzD0zv8Q-X6F8Yw-t500x500.jpg">](https://soundcloud.com/rbkmade/mouthwash-and-insecurity)
 
-**Artist**: Bamster 
+**Artist**: rbk made 
 
-**Track**: Push My* feat. iKeda
+**Track**: mouthwash and insecurity (ft. Jassey)
 
-Last updated at 10/23/2023 16:45
+Last updated at 10/23/2023 16:46
