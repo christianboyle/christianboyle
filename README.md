@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-emeJtqK9SZeY-0-t500x500.png">](https://soundcloud.com/33below/protecta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZkyBcdTLkI9fmRz-mrhlmw-t500x500.jpg">](https://soundcloud.com/nanobii/i2i?in=saxurn/sets/walks/)
 
-**Artist**: 33 BELOW 
+**Artist**: nanobii 
 
-**Track**: PROTECTA
+**Track**: i2i
 
-Last updated at 10/23/2023 13:53
+Last updated at 10/23/2023 13:55
