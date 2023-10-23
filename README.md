@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xb4ec9bcUiIGrQGn-J7sElg-t500x500.jpg">](https://soundcloud.com/jamesik/act-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyDB56WzJRSv-0-t500x500.jpg">](https://soundcloud.com/telykast/telykast-georgia-ku-you-got-4)
 
-**Artist**: JAMESIK 
+**Artist**: TELYKAST 
 
-**Track**: ACT LIKE THAT - JAMESIK
+**Track**: TELYKAST, Georgia Ku, The NGHBRS - You Got Me (The NGHBRS Remix)
 
-Last updated at 10/23/2023 13:33
+Last updated at 10/23/2023 13:34
