@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yaAOeJBaxGb7cbz-QZVycA-t500x500.jpg">](https://soundcloud.com/wasteurself/wasteurself-x-buzz-junior-i-cant-miss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nn0eKjqhIte24Zzi-ywzwDQ-t500x500.jpg">](https://soundcloud.com/uiceheidd/doom)
 
-**Artist**: wasteurself 
+**Artist**: Juice WRLD 
 
-**Track**: Wasteurself X Buzz Junior - I Can't Miss
+**Track**: Doom
 
-Last updated at 10/23/2023 16:43
+Last updated at 10/23/2023 16:44
