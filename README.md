@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOcyzl1cNilL0HUo-XG63DQ-t500x500.jpg">](https://soundcloud.com/lyosonthebeat/diamonds-pearls)
 
-**Artist**: Great Dane 
+**Artist**: LyosOnTheBeat 
 
-**Track**: Everything As It Should Be
+**Track**: Diamonds & Pearls
 
-Last updated at 10/23/2023 15:49
+Last updated at 10/23/2023 15:54
