@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xss26MQJ8Me7nKMU-echncw-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/haan808-i-aint-playin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnPMlz89biaxAzIs-JwEnXA-t500x500.jpg">](https://soundcloud.com/user-440692248/tuned-bass)
 
-**Artist**: FUXWITHIT 
+**Artist**: lexum 
 
-**Track**: Haan808 - I Ain't Playin
+**Track**: don't go (ooes - зима lexum remix)
 
-Last updated at 10/23/2023 14:32
+Last updated at 10/23/2023 14:36
