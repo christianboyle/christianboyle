@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycVKnPuWhzPG7qFs-unbcmA-t500x500.jpg">](https://soundcloud.com/visckofficial/visck-trippy-toes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHMcPnV1DO6rbjaA-9Biirw-t500x500.jpg">](https://soundcloud.com/fsss00/twice-feel-special-pluggnb-flip-w-rxi)
 
-**Artist**: Visck 
+**Artist**: fss.s 
 
-**Track**: Trippy Toes
+**Track**: twice - feel special (pluggnb flip w/ rxi)
 
-Last updated at 10/21/2023 15:40
+Last updated at 10/23/2023 08:21
