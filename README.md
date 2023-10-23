@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0MEWIiyva6Y-0-t500x500.jpg">](https://soundcloud.com/pirapus/lost-with-u-feat-brody-leigh?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e1P8qAYBJtSe7bZY-0Vly7Q-t500x500.jpg">](https://soundcloud.com/teedeejayyy/sunkissed?in=saxurn/sets/walks/)
 
-**Artist**: Pirapus 
+**Artist**: TDJ 
 
-**Track**: LOST WITH U (feat. Brody Leigh)
+**Track**: yerbby, Baeldorf - Sunkissed
 
-Last updated at 10/23/2023 14:14
+Last updated at 10/23/2023 14:17
