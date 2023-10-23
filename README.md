@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Myp03GCK7icO4WYU-QyW6Qw-t500x500.jpg">](https://soundcloud.com/ruxton/insulin-ruxton-breathing-underwater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZkyBcdTLkI9fmRz-mrhlmw-t500x500.jpg">](https://soundcloud.com/nanobii/i2i?in=saxurn/sets/walks/)
 
-**Artist**: Rux • Ton 
+**Artist**: nanobii 
 
-**Track**: InSulin & Rux Ton - Breathing Underwater
+**Track**: i2i
 
-Last updated at 10/23/2023 17:23
+Last updated at 10/23/2023 17:27
