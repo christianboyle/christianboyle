@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9J0PPIwIcRapoqYU-TguQgA-t500x500.jpg">](https://soundcloud.com/aajaradio/wwwmalou-aaja-channel-1-18-10-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kTGjFpfwy6N4t5dk-GZNKBw-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/digital-pimp-free-download)
 
-**Artist**: Aaja Music 
+**Artist**: SQISHI 
 
-**Track**: WWW.Malou - Aaja Channel 1 - 18 10 23
+**Track**: DIGITAL PIMP (FREE DOWNLOAD)
 
-Last updated at 10/23/2023 11:41
+Last updated at 10/23/2023 11:42
