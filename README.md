@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZkyBcdTLkI9fmRz-mrhlmw-t500x500.jpg">](https://soundcloud.com/nanobii/i2i?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/walks/)
 
-**Artist**: nanobii 
+**Artist**: juseva's vault 
 
-**Track**: i2i
+**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
 
-Last updated at 10/23/2023 17:34
+Last updated at 10/23/2023 17:35
