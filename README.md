@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzyrDk3gVzyHNQzd-dUFrZw-t500x500.jpg">](https://soundcloud.com/bravo123456789/break-the-rules-bravo-hypertechno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9ji2QtUmF6v-0-t500x500.png">](https://soundcloud.com/leeroseuk/pump-up-the-jam)
 
-**Artist**: BRAVO 
+**Artist**: Lee Rose 
 
-**Track**: Charlie XCX - Break The Rules (BRAVO Remix)
+**Track**: Pump Up the Jam
 
-Last updated at 10/23/2023 16:57
+Last updated at 10/23/2023 17:00
