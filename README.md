@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyXy3zf3j16jQg1C-bxiF0Q-t500x500.jpg">](https://soundcloud.com/rich-hannah/the-rave-escape-official-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54pjrzRIErl9BLsS-v4vXhg-t500x500.jpg">](https://soundcloud.com/geckonl/genie-in-a-bottle)
 
-**Artist**: THE RAVE ESCAPE 
+**Artist**: Geck-o 
 
-**Track**: The Rave Escape OFFICIAL promo mix 1 mixed by ALVAREZ
+**Track**: Christina Aguilera - Genie In A Bottle (Geck-o Remix) 🤗🌼🤍 FREE DOWNLOAD
 
-Last updated at 10/24/2023 09:12
+Last updated at 10/24/2023 12:46
