@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54pjrzRIErl9BLsS-v4vXhg-t500x500.jpg">](https://soundcloud.com/geckonl/genie-in-a-bottle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/walks/)
 
-**Artist**: Geck-o 
+**Artist**: juseva's vault 
 
-**Track**: Christina Aguilera - Genie In A Bottle (Geck-o Remix) 🤗🌼🤍 FREE DOWNLOAD
+**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
 
-Last updated at 10/24/2023 12:46
+Last updated at 10/24/2023 12:47
