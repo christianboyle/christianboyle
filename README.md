@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0MEWIiyva6Y-0-t500x500.jpg">](https://soundcloud.com/pirapus/lost-with-u-feat-brody-leigh?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/walks/)
 
-**Artist**: Pirapus 
+**Artist**: Great Dane 
 
-**Track**: LOST WITH U (feat. Brody Leigh)
+**Track**: Everything As It Should Be
 
-Last updated at 10/24/2023 13:01
+Last updated at 10/24/2023 13:02
