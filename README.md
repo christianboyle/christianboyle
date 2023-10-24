@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YqEP9BSLJ8y9g1e3-zhuzCA-t500x500.jpg">](https://soundcloud.com/karl-guapo/matt-steffanina-reason-why-feat-bailey-may-l3nny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wD7Cj7QZPXzrDvNi-RqTbrw-t500x500.jpg">](https://soundcloud.com/aajaradio/flawapowa-aaja-channel-2-20-10-23)
 
-**Artist**: L3NNY 
+**Artist**: Aaja Music 
 
-**Track**: Matt Steffanina - Reason Why Feat. Bailey May (L3NNY REMIX)
+**Track**: Flawapowa - Aaja Channel 2 - 20 10 23
 
-Last updated at 10/24/2023 08:41
+Last updated at 10/24/2023 08:42
