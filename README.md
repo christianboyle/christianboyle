@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-emeJtqK9SZeY-0-t500x500.png">](https://soundcloud.com/33below/protecta?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttr05DygTvH3Wp0e-IDxEMg-t500x500.jpg">](https://soundcloud.com/discolines/kesha-we-r-who-we-r-disco-lines-remix-4?in=saxurn/sets/as-if)
 
-**Artist**: 33 BELOW 
+**Artist**: Disco Lines 
 
-**Track**: PROTECTA
+**Track**: kesha - we r who we r (disco lines remix)
 
-Last updated at 10/24/2023 14:16
+Last updated at 10/24/2023 14:19
