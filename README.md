@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/juseva-with-you)
 
-**Artist**: Juice WRLD 
+**Artist**: juseva's vault 
 
-**Track**: Stay High
+**Track**: JUSEVA! - With You
 
-Last updated at 10/24/2023 08:52
+Last updated at 10/24/2023 08:55
