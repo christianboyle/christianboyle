@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tNRkoxwAaaUEDii6-8zutww-t500x500.jpg">](https://soundcloud.com/faidev/when-i-was-sober)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyXy3zf3j16jQg1C-bxiF0Q-t500x500.jpg">](https://soundcloud.com/rich-hannah/the-rave-escape-official-promo)
 
-**Artist**: faidev ✧ 
+**Artist**: THE RAVE ESCAPE 
 
-**Track**: when i was sober...
+**Track**: The Rave Escape OFFICIAL promo mix 1 mixed by ALVAREZ
 
-Last updated at 10/24/2023 09:11
+Last updated at 10/24/2023 09:12
