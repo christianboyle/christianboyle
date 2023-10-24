@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRBy1fvqGqclAXOa-zPtXNw-t500x500.jpg">](https://soundcloud.com/mknai/light-blue-color)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MWtUJu8s2D1N4qWx-JyIEyg-t500x500.jpg">](https://soundcloud.com/kurtains/reefer-w-zootzie)
 
-**Artist**: Makenai 
+**Artist**: kurtains 
 
-**Track**: Something that has a light blue color
+**Track**: reefer w zootzie
 
-Last updated at 10/24/2023 08:59
+Last updated at 10/24/2023 09:09
