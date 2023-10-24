@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/as-if)
 
-**Artist**: Great Dane 
+**Artist**: juseva's vault 
 
-**Track**: Everything As It Should Be
+**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
 
-Last updated at 10/24/2023 13:41
+Last updated at 10/24/2023 14:12
