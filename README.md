@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5U5K5kXLLoAU2cM-15DGdQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/destrata-mutationist?in=scuffedrecs/sets/destrata-mutationist-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9zg7870jgzi0gJX-R1hm1A-t500x500.jpg">](https://soundcloud.com/lilkuudere/was-it-all-bc-of-me-ft-sg-lily)
 
-**Artist**: Scuffed Recordings 
+**Artist**: kuudere 
 
-**Track**: Destrata - Mutationist
+**Track**: was it all bc of me? (ft. sg lily)
 
-Last updated at 10/24/2023 08:26
+Last updated at 10/24/2023 08:30
