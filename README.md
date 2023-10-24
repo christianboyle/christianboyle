@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHOpLqUbbxezbVAQ-Z0NFhg-t500x500.jpg">](https://soundcloud.com/dallaniel/dallaniel-4-the-club-syndikaet?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnytigZzyaFAJJoI-nE5IOA-t500x500.jpg">](https://soundcloud.com/telykast/broadkast-mix-09)
 
-**Artist**: Dallaniel 
+**Artist**: TELYKAST 
 
-**Track**: Dallaniel - 4 The Club [SNDKT_Comp_World1]
+**Track**: BROADKAST - Mix 09
 
-Last updated at 10/23/2023 17:45
+Last updated at 10/24/2023 08:14
