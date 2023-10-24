@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5U5K5kXLLoAU2cM-15DGdQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/destrata-desire-signal?in=scuffedrecs/sets/destrata-mutationist-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxBgcjbOgttd37cl-VBz4Bw-t500x500.jpg">](https://soundcloud.com/djmag/premiere-destrata-clubmoss?in=scuffedrecs/sets/destrata-mutationist-ep)
 
-**Artist**: Scuffed Recordings 
+**Artist**: djmag 
 
-**Track**: Destrata - Desire Signal
+**Track**: Premiere: Destrata ‘Clubmoss’
 
-Last updated at 10/24/2023 08:17
+Last updated at 10/24/2023 08:21
