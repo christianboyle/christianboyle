@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MrHGCkfyY04a7Km8-emyVUA-t500x500.jpg">](https://soundcloud.com/tyraz-official/heartherumble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5U5K5kXLLoAU2cM-15DGdQ-t500x500.jpg">](https://soundcloud.com/scuffedrecs/destrata-desire-signal?in=scuffedrecs/sets/destrata-mutationist-ep)
 
-**Artist**: TYRAZ 
+**Artist**: Scuffed Recordings 
 
-**Track**: Rumble (TYRAZ Remix)
+**Track**: Destrata - Desire Signal
 
-Last updated at 10/24/2023 08:15
+Last updated at 10/24/2023 08:17
