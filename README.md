@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAd2mVYTSyFPf6u7-Iu4FJw-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-ace-dance-2000-master-together-for-ukraine?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/as-if)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: juseva's vault 
 
-**Track**: PREMIERE: ACE - Dance 2000 | Together For Ukraine | VD
+**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
 
-Last updated at 10/24/2023 14:27
+Last updated at 10/25/2023 08:20
