@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QwyT2zXU3OM48jbH-Owrnhg-t500x500.jpg">](https://soundcloud.com/teedeejayyy/flying-in-the-club?in=teedeejayyy/sets/spf3)
 
-**Artist**: juseva's vault 
+**Artist**: TDJ 
 
-**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
+**Track**: Lobsta B - Flying In The Club
 
-Last updated at 10/25/2023 09:23
+Last updated at 10/25/2023 09:26
