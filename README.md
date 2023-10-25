@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JPzYmer42myQgDGQ-QOYeGw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/killing-me-softly?in=teedeejayyy/sets/spf3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NfjXKTB44uDHJuH4-0kCx1w-t500x500.jpg">](https://soundcloud.com/teedeejayyy/club-spf?in=teedeejayyy/sets/spf3)
 
 **Artist**: TDJ 
 
-**Track**: Aamourocean, TDJ - Killing Me Softly
+**Track**: Zorza - Club SPF
 
-Last updated at 10/25/2023 09:11
+Last updated at 10/25/2023 09:22
