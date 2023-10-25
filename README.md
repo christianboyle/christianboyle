@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NfjXKTB44uDHJuH4-0kCx1w-t500x500.jpg">](https://soundcloud.com/teedeejayyy/club-spf?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZAvLwNlE36e-0-t500x500.jpg">](https://soundcloud.com/joelcorry/heydj?in=saxurn/sets/as-if)
 
-**Artist**: TDJ 
+**Artist**: Joel Corry 
 
-**Track**: Zorza - Club SPF
+**Track**: Joel Corry - Hey DJ
 
-Last updated at 10/25/2023 09:30
+Last updated at 10/25/2023 10:05
