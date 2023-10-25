@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttr05DygTvH3Wp0e-IDxEMg-t500x500.jpg">](https://soundcloud.com/discolines/kesha-we-r-who-we-r-disco-lines-remix-4?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHOpLqUbbxezbVAQ-Z0NFhg-t500x500.jpg">](https://soundcloud.com/dallaniel/dallaniel-4-the-club-syndikaet?in=saxurn/sets/as-if)
 
-**Artist**: Disco Lines 
+**Artist**: Dallaniel 
 
-**Track**: kesha - we r who we r (disco lines remix)
+**Track**: Dallaniel - 4 The Club [SNDKT_Comp_World1]
 
-Last updated at 10/25/2023 08:26
+Last updated at 10/25/2023 08:46
