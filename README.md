@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NPT3onCPIV7QKFfz-PIjzLQ-t500x500.jpg">](https://soundcloud.com/grrrreatdane/everything-as-it-should-be-2?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Epa3NBH1CEXJoI8W-WHTlZQ-t500x500.jpg">](https://soundcloud.com/seto-chord-music/ddddeeeellllaaa-konb-watasino-ounak-changing-sky)
 
-**Artist**: Great Dane 
+**Artist**: SETO CHORD MUSIC 
 
-**Track**: Everything As It Should Be
+**Track**: ddddeeeellllaaa, konb, Watasino, Ounak - Changing Sky
 
-Last updated at 10/25/2023 10:18
+Last updated at 10/25/2023 10:22
