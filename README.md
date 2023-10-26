@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sze1J9n46iySLyNB-b0rrsQ-t500x500.jpg">](https://soundcloud.com/sirwavy610/pain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctV5DyIYexMyAF4z-oF1yyQ-t500x500.jpg">](https://soundcloud.com/officialyussi/fleetwood-mac-the-chain-yussi-remix)
 
-**Artist**: Lil 610 AKA Mr. Skadeen 
+**Artist**: YUSSI 
 
-**Track**: Pain.
+**Track**: FLEETWOOD MAC - THE CHAIN (YUSSI REMIX)
 
-Last updated at 10/26/2023 08:57
+Last updated at 10/26/2023 08:58
