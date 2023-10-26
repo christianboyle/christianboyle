@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zGVMyyygHs5Ukx6z-o2Sm6A-t500x500.jpg">](https://soundcloud.com/scantraxx/demi-kanon-a-rize-so-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rQTOeAP23kwEA3Qy-icGisA-t500x500.jpg">](https://soundcloud.com/bandoum/pressure)
 
-**Artist**: Scantraxx 
+**Artist**: bandoum 
 
-**Track**: Demi Kanon & A-RIZE - So Alive
+**Track**: pressure [23]
 
-Last updated at 10/26/2023 09:01
+Last updated at 10/26/2023 09:02
