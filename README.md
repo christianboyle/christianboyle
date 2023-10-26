@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-unWWsxIP0yEofn0p-qq5yFg-t500x500.jpg">](https://soundcloud.com/neo_trance/premiere-odymel-les-filles-adorent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sze1J9n46iySLyNB-b0rrsQ-t500x500.jpg">](https://soundcloud.com/sirwavy610/pain)
 
-**Artist**: NEOTRANCE 
+**Artist**: Lil 610 AKA Mr. Skadeen 
 
-**Track**: [PREMIERE] Odymel - Les Filles Adorent
+**Track**: Pain.
 
-Last updated at 10/26/2023 08:56
+Last updated at 10/26/2023 08:57
