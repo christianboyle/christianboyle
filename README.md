@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hSCu1ychhDfpSnwc-dPTCyw-t500x500.jpg">](https://soundcloud.com/benmaxwellmusic/tate-mcrae-greedy-ben-maxwell-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyAno1xICbdJyYMV-snlMpg-t500x500.jpg">](https://soundcloud.com/w-a-production/eastern-progressive-vocals)
 
-**Artist**: Ben Maxwell 
+**Artist**: W. A. Production® 
 
-**Track**: TATE MCRAE - GREEDY (BEN MAXWELL REMIX)
+**Track**: Eastern Progressive Vocals | Vocal Kits, Loops & Phrases
 
-Last updated at 10/29/2023 14:18
+Last updated at 10/29/2023 14:20
