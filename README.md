@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyAno1xICbdJyYMV-snlMpg-t500x500.jpg">](https://soundcloud.com/w-a-production/eastern-progressive-vocals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Il33GpxMC78h-0-t500x500.jpg">](https://soundcloud.com/itsveggi/veggi-josef-lamercier-benita)
 
-**Artist**: W. A. Production® 
+**Artist**: veggi 
 
-**Track**: Eastern Progressive Vocals | Vocal Kits, Loops & Phrases
+**Track**: veggi, Josef Lamercier, Benita - MORE
 
-Last updated at 10/29/2023 14:20
+Last updated at 10/29/2023 14:28
