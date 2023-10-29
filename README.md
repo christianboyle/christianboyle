@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkBD0CXtZrPyTyNu-V0CIuw-t500x500.jpg">](https://soundcloud.com/larry-fredella-682810825/techno-therapy-2-rally-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TwGcmD8VL4biBha-uTyJuw-t500x500.jpg">](https://soundcloud.com/alu-rsa/franco-rossi-arrebato)
 
-**Artist**: Rally 
+**Artist**: ALU 
 
-**Track**: Techno Therapy #2 - Rally LIVE Set
+**Track**: Franco Rossi - Arrebato [AVA001]
 
-Last updated at 10/29/2023 14:34
+Last updated at 10/29/2023 15:21
