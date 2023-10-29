@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jYijytvpcvvXMMV-ePy38Q-t500x500.jpg">](https://soundcloud.com/nitepunk/nitepunk-spider-ft-tida-control-freak-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKROii118PFATd2Y-uvNzzw-t500x500.jpg">](https://soundcloud.com/user-989271940/techno-visions-x-ana-lilia)
 
-**Artist**: Nitepunk 
+**Artist**: Techno Visions 
 
-**Track**: Nitepunk - Spider (ft. Tida) - Control Freak Remix
+**Track**: Ana Lilia - Techno Visions Podcast 011
 
-Last updated at 10/29/2023 15:22
+Last updated at 10/29/2023 15:24
