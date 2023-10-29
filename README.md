@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Il33GpxMC78h-0-t500x500.jpg">](https://soundcloud.com/itsveggi/veggi-josef-lamercier-benita)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3b3Frx1ub6aUgpoG-1DKBGA-t500x500.jpg">](https://soundcloud.com/rough-records316/ennaut-intermission)
 
-**Artist**: veggi 
+**Artist**: Rough Records 
 
-**Track**: veggi, Josef Lamercier, Benita - MORE
+**Track**: ENNAUT - INTERMISSION
 
-Last updated at 10/29/2023 14:28
+Last updated at 10/29/2023 14:31
