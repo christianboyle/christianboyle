@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TwGcmD8VL4biBha-uTyJuw-t500x500.jpg">](https://soundcloud.com/alu-rsa/franco-rossi-arrebato)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jYijytvpcvvXMMV-ePy38Q-t500x500.jpg">](https://soundcloud.com/nitepunk/nitepunk-spider-ft-tida-control-freak-remix)
 
-**Artist**: ALU 
+**Artist**: Nitepunk 
 
-**Track**: Franco Rossi - Arrebato [AVA001]
+**Track**: Nitepunk - Spider (ft. Tida) - Control Freak Remix
 
-Last updated at 10/29/2023 15:21
+Last updated at 10/29/2023 15:22
