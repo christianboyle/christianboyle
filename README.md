@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKROii118PFATd2Y-uvNzzw-t500x500.jpg">](https://soundcloud.com/user-989271940/techno-visions-x-ana-lilia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqoRGyuJtVRYClic-5FghEg-t500x500.jpg">](https://soundcloud.com/23oddcats/ratchet)
 
-**Artist**: Techno Visions 
+**Artist**: 23 Odd Cats 
 
-**Track**: Ana Lilia - Techno Visions Podcast 011
+**Track**: Ratchet
 
-Last updated at 10/29/2023 15:24
+Last updated at 10/30/2023 08:41
