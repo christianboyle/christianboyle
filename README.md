@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6eiTJz3Vo0Onhdt-rTykRw-t500x500.jpg">](https://soundcloud.com/exclusivetunesnetwork/candyman?in=electrostepnetwork/sets/wegohardervol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pWd3MGVqfLellqht-eRuYMA-t500x500.jpg">](https://soundcloud.com/user910457799/help-pt3_mastered-wav)
 
-**Artist**: Exclusive Tunes Network 
+**Artist**: Tueazy 
 
-**Track**: Vyzer - Candyman [Electrostep Network & Hard Nation EXCLUSIVE] [Exclusive Tunes Network PREMIERE]
+**Track**: Help Pt3 (Prod.by youji2k)
 
-Last updated at 10/30/2023 08:47
+Last updated at 10/30/2023 08:48
