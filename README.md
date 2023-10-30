@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWvCfvA1wd34onep-XfYIXA-t500x500.jpg">](https://soundcloud.com/allhardnation/pain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkBD0CXtZrPyTyNu-V0CIuw-t500x500.jpg">](https://soundcloud.com/larry-fredella-682810825/techno-therapy-2-rally-live-set)
 
-**Artist**: Hard Nation 
+**Artist**: Rally 
 
-**Track**: Tripwyre - PAIN [Hard Nation & Electrostep Network EXCLUSIVE]
+**Track**: Techno Therapy #2 - Rally LIVE Set
 
-Last updated at 10/30/2023 08:50
+Last updated at 10/30/2023 08:51
