@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3gnbKvzqr2WVuyQv-NzSk3Q-t500x500.jpg">](https://soundcloud.com/hazbanger/intraffic-intrusted-pt2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pw3FjZMy0UqtzR1-fbihCw-t500x500.jpg">](https://soundcloud.com/anxxietycrypt/prestige)
 
-**Artist**: HAZPAIN 
+**Artist**: CRYPT 
 
-**Track**: InTraffic “Intrusted pt2” - Live
+**Track**: PRESTIGE
 
-Last updated at 10/30/2023 08:44
+Last updated at 10/30/2023 08:46
