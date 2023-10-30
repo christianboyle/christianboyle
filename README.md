@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4pw3FjZMy0UqtzR1-fbihCw-t500x500.jpg">](https://soundcloud.com/anxxietycrypt/prestige)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6eiTJz3Vo0Onhdt-rTykRw-t500x500.jpg">](https://soundcloud.com/exclusivetunesnetwork/candyman?in=electrostepnetwork/sets/wegohardervol1)
 
-**Artist**: CRYPT 
+**Artist**: Exclusive Tunes Network 
 
-**Track**: PRESTIGE
+**Track**: Vyzer - Candyman [Electrostep Network & Hard Nation EXCLUSIVE] [Exclusive Tunes Network PREMIERE]
 
-Last updated at 10/30/2023 08:46
+Last updated at 10/30/2023 08:47
