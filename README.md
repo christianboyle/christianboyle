@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ahhRLzRAh2u7paU9-60i7aA-t500x500.jpg">](https://soundcloud.com/mc4d_official/down-under-country-vol-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high)
 
-**Artist**: MC4D 
+**Artist**: Juice WRLD 
 
-**Track**: Down Under Country Vol. 5
+**Track**: Stay High
 
-Last updated at 10/30/2023 08:52
+Last updated at 10/30/2023 08:55
