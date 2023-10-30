@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttr05DygTvH3Wp0e-IDxEMg-t500x500.jpg">](https://soundcloud.com/discolines/kesha-we-r-who-we-r-disco-lines-remix-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-42PHCnx5h88uWo08-WGzYXg-t500x500.jpg">](https://soundcloud.com/savagef80/savage-wind-up)
 
-**Artist**: Disco Lines 
+**Artist**: SAVAGE 
 
-**Track**: kesha - we r who we r (disco lines remix)
+**Track**: WIND UP
 
-Last updated at 10/30/2023 09:27
+Last updated at 10/30/2023 09:34
