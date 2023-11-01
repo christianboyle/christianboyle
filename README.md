@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tu0AMDL8tyP8Ytn8-1kiAWg-t500x500.jpg">](https://soundcloud.com/tobago-tracks/dj-pitch-exit-time-to-leave?in=madjestickasual/sets/ldn-nov-11-the-glove-that-fits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRrF3zkTifxgCkAB-nCACNg-t500x500.jpg">](https://soundcloud.com/maya-garside/untitled-909-mix?in=madjestickasual/sets/ldn-nov-11-the-glove-that-fits)
 
-**Artist**: TT 
+**Artist**: maya vika 
 
-**Track**: DJ Pitch - Exit (Time to Leave)
+**Track**: untitled 909 mix
 
-Last updated at 11/01/2023 10:13
+Last updated at 11/01/2023 10:25
