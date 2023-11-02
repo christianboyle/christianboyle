@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yRrF3zkTifxgCkAB-nCACNg-t500x500.jpg">](https://soundcloud.com/maya-garside/untitled-909-mix?in=madjestickasual/sets/ldn-nov-11-the-glove-that-fits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiY3yr9dJutL-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-stars)
 
-**Artist**: maya vika 
+**Artist**: Gearbox Digital 
 
-**Track**: untitled 909 mix
+**Track**: Avi8 - STARS
 
-Last updated at 11/01/2023 10:25
+Last updated at 11/02/2023 13:32
