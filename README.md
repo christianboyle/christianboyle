@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiY3yr9dJutL-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-stars)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s63zo9I1yEHv8yf2-GloFLw-t500x500.jpg">](https://soundcloud.com/anderex/welcome-to-anarchy-vol-4)
 
-**Artist**: Gearbox Digital 
+**Artist**: Anderex 🛸 
 
-**Track**: Avi8 - STARS
+**Track**: WELCOME TO ANARCHY VOL. 4
 
-Last updated at 11/02/2023 13:32
+Last updated at 11/02/2023 13:38
