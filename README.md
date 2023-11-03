@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nr27ohnnwpneadLH-rGSAKg-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-the-deserter-most-wanted-original-mix-nes003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QiY3yr9dJutL-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-stars)
 
-**Artist**: Dancefloor Impact Research 
+**Artist**: Gearbox Digital 
 
-**Track**: [PREMIERE] The Deserter - Most Wanted (Original Mix) [NES003]
+**Track**: Avi8 - STARS
 
-Last updated at 11/03/2023 13:16
+Last updated at 11/03/2023 13:21
