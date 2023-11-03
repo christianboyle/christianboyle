@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kPZDBAfggn6FyEq0-IpACyg-t500x500.jpg">](https://soundcloud.com/user-641299577/chickenfinalkurzerepause)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmRgy0vziioRuj24-oRyQEQ-t500x500.jpg">](https://soundcloud.com/intentionallycold/pow2023)
 
-**Artist**: 4D:8K_GUARDEDTRIPZ 
+**Artist**: Cold 
 
-**Track**: cmdc anthem
+**Track**: Cold & Kibo - Pow 2023 (Forward) [Full Song & Lyric Video in Description]
 
-Last updated at 11/03/2023 09:44
+Last updated at 11/03/2023 09:46
