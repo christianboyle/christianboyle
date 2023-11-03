@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fl2XplHP6syoPgUc-e7L9Kw-t500x500.jpg">](https://soundcloud.com/lowke_official/lowke-discovery-project-electric-forest-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kPZDBAfggn6FyEq0-IpACyg-t500x500.jpg">](https://soundcloud.com/user-641299577/chickenfinalkurzerepause)
 
-**Artist**: Lowke 
+**Artist**: 4D:8K_GUARDEDTRIPZ 
 
-**Track**: Lowke - Discovery Project: Electric Forest 2023
+**Track**: cmdc anthem
 
-Last updated at 11/03/2023 09:17
+Last updated at 11/03/2023 09:44
