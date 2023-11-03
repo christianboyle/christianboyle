@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouubmOf9pnt25q54-e4GyWQ-t500x500.jpg">](https://soundcloud.com/mojibootlegs/fine-day-anthem-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyPmluYRijowI998-LjDpsw-t500x500.jpg">](https://soundcloud.com/luca-t-1/da-brozz-x-luca-testa-x-hitak-tik-tok-hardstyle-remix)
 
-**Artist**: MOJI - II 
+**Artist**: Luca Testa 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (MOJI, FAHJAH & T A N E Techno Edit)
+**Track**: Da Brozz x Luca Testa x Hitak x Bomber - Tik Tok [Hyper Techno Remix]
 
-Last updated at 11/03/2023 09:51
+Last updated at 11/03/2023 09:52
