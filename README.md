@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Arx1R0sj1sET8JRN-Db5t8A-t500x500.jpg">](https://soundcloud.com/satoshijpn/rave-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h8iUsN1wYkH9MZ1J-X3sRsw-t500x500.jpg">](https://soundcloud.com/ezkill715/ezkill-love-out-now)
 
-**Artist**: SATOSHI 
+**Artist**: EzKill 
 
-**Track**: SATOSHI - Rave Out
+**Track**: EzKill - Love ✅Out Now✅
 
-Last updated at 11/03/2023 14:33
+Last updated at 11/03/2023 14:35
