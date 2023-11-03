@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-42PHCnx5h88uWo08-WGzYXg-t500x500.jpg">](https://soundcloud.com/savagef80/savage-wind-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TwGcmD8VL4biBha-uTyJuw-t500x500.jpg">](https://soundcloud.com/alu-rsa/franco-rossi-arrebato)
 
-**Artist**: SAVAGE 
+**Artist**: ALU 
 
-**Track**: WIND UP
+**Track**: Franco Rossi - Arrebato [AVA001]
 
-Last updated at 11/03/2023 14:54
+Last updated at 11/03/2023 15:00
