@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3qg4W5FNAuohEpG-rVekjw-t500x500.jpg">](https://soundcloud.com/blockedreceptors/headshot-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-72FaIp7STiLW0mjw-Nz91CA-t500x500.jpg">](https://soundcloud.com/goodvibesonly/gv109)
 
-**Artist**: BLOCKED RECEPTORS 
+**Artist**: Good Vibes Only 
 
-**Track**: HEADSHOT (Original Mix) [FREE DL]
+**Track**: c8o - Would U #GV109
 
-Last updated at 11/03/2023 10:36
+Last updated at 11/03/2023 10:37
