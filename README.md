@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3qg4W5FNAuohEpG-rVekjw-t500x500.jpg">](https://soundcloud.com/blockedreceptors/headshot-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W51MUdXZQaZOgke5-SaiuPg-t500x500.jpg">](https://soundcloud.com/officialwerdna/exploration-of-space-dna-remix)
 
-**Artist**: BLOCKED RECEPTORS 
+**Artist**: 𝘿𝙉𝘼 
 
-**Track**: HEADSHOT (Original Mix) [FREE DL]
+**Track**: EXPLORATION OF SPACE (DNA REMIX)
 
-Last updated at 11/03/2023 14:25
+Last updated at 11/03/2023 14:30
