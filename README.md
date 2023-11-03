@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aK2Fl3WkjBYn9oZy-b2wXwQ-t500x500.jpg">](https://soundcloud.com/user-459366986/rlla-space-block-d8-10-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dyb72H2V2L5KkfcE-1BNfkQ-t500x500.jpg">](https://soundcloud.com/tyrannoflexsaurus/mrpremix)
 
-**Artist**: D8-10 
+**Artist**: Tyrannosaurus Flex 
 
-**Track**: R!LLA - SPACE BLOCK (D8-10 Remix)
+**Track**: Luan LAG - Mr. Pickles (Tyrannosaurus Flex Remix)
 
-Last updated at 11/03/2023 09:55
+Last updated at 11/03/2023 09:56
