@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouubmOf9pnt25q54-e4GyWQ-t500x500.jpg">](https://soundcloud.com/mojibootlegs/fine-day-anthem-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EK7xlhjDyJHCFZw5-0bunCw-t500x500.jpg">](https://soundcloud.com/yub-official/i-love-it-techno-vip)
 
-**Artist**: MOJI - II 
+**Artist**: YuB 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (MOJI, FAHJAH & T A N E Techno Edit)
+**Track**: Icona Pop - I Love It (YuB Techno VIP Edit)
 
-Last updated at 11/03/2023 14:44
+Last updated at 11/03/2023 14:47
