@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyaWBsUqHizSmDfg-nUTrKQ-t500x500.jpg">](https://soundcloud.com/potionghost/dancefloor-level-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAAi8DdHionP0Kc7-qy6c6g-t500x500.jpg">](https://soundcloud.com/cizzvrp/ghetto-lagoon)
 
-**Artist**: ✧lil yume✧ 
+**Artist**: cizzvrp 
 
-**Track**: ᏗᏒᏖᏋᏕᎥᏗᏁ ᏒᏋᏕᎧᏒᏖ ᎴᏗᏁፈᏋᎦᏝᎧᎧᏒ ᏝᏋᏉᏋᏝ ≋２≋ ଘ(∩^o^)⊃━☆゜
+**Track**: GHETTO LAGOON 『prod. cizzvrp x Lord Sesshomaru』
 
-Last updated at 11/03/2023 10:01
+Last updated at 11/03/2023 10:02
