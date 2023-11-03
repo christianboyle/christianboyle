@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m6vAzzTkG4Da6cVw-fDR3cA-t500x500.jpg">](https://soundcloud.com/riotville-records/more-plastic-abnormal?in=riotville-records/sets/riotville-ade-compilation-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qUzzsh67NkyAikl-y1N97Q-t500x500.jpg">](https://soundcloud.com/officialb2s/theracords-by-dj-thera-decibel)
 
-**Artist**: Riotville Records 
+**Artist**: officialb2s 
 
-**Track**: More Plastic - Abnormal
+**Track**: Theracords by DJ Thera | Decibel outdoor 2023 | Raw Classics | SAVAGE SUNDAY
 
-Last updated at 11/03/2023 09:08
+Last updated at 11/03/2023 09:09
