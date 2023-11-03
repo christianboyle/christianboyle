@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P9RhQKHzzwQfpPMb-ChysWg-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra842-fadi-mohem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6WtU3H3o70pUVOB-bCx04g-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gearbox-presents-overdrive-2)
 
-**Artist**: Resident Advisor 
+**Artist**: Gearbox Digital 
 
-**Track**: RA.842 Fadi Mohem
+**Track**: Gearbox presents Overdrive 2024 - DJ Contest By Harticore
 
-Last updated at 11/03/2023 09:48
+Last updated at 11/03/2023 09:49
