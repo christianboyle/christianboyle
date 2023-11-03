@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6WtU3H3o70pUVOB-bCx04g-t500x500.jpg">](https://soundcloud.com/gearbox-digital/gearbox-presents-overdrive-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EK7xlhjDyJHCFZw5-0bunCw-t500x500.jpg">](https://soundcloud.com/yub-official/i-love-it-techno-vip)
 
-**Artist**: Gearbox Digital 
+**Artist**: YuB 
 
-**Track**: Gearbox presents Overdrive 2024 - DJ Contest By Harticore
+**Track**: Icona Pop - I Love It (YuB Techno VIP Edit)
 
-Last updated at 11/03/2023 09:49
+Last updated at 11/03/2023 09:50
