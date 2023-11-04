@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INqTP3KbwM5sDHXY-W5E2pA-t500x500.jpg">](https://soundcloud.com/mojimusicxx/better-off-alone-ft-pink-yusinradio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iK7DyVgy4ldXz85K-lgMQLg-t500x500.jpg">](https://soundcloud.com/orbmag/premiere-em-stav-odd-forest-drive-west-remix)
 
-**Artist**: MOJI 
+**Artist**: Orb Mag 
 
-**Track**: Better Off Alone Ft. Pink Yusin
+**Track**: Premiere: EM + STAV - Odd (Forest Drive West Remix)
 
-Last updated at 11/04/2023 15:14
+Last updated at 11/04/2023 15:17
