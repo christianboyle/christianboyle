@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m3zrGzKeREUpSN8V-bBrtmQ-t500x500.jpg">](https://soundcloud.com/roy-l8/a-new-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DOaFAn4YpKT1bUq5-WQqXIQ-t500x500.jpg">](https://soundcloud.com/6pathsmusic/plvgue-doctor-human-cages-1)
 
-**Artist**: ROY L 
+**Artist**: PLVGUE DOCTOR 
 
-**Track**: A New Day
+**Track**: PLVGUE DOCTOR - HUMAN CAGES
 
-Last updated at 11/04/2023 10:09
+Last updated at 11/04/2023 10:12
