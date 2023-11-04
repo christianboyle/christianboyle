@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INqTP3KbwM5sDHXY-W5E2pA-t500x500.jpg">](https://soundcloud.com/mojimusicxx/better-off-alone-ft-pink-yusinradio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1NkljRjZv8Y-0-t500x500.png">](https://soundcloud.com/bennicky/ben-nicky-x-distorted-dreams-1)
 
-**Artist**: MOJI 
+**Artist**: Ben Nicky 
 
-**Track**: Better Off Alone Ft. Pink Yusin
+**Track**: Ben Nicky x Distorted Dreams - Adagio For Strings (Klubfiller Remix)
 
-Last updated at 11/04/2023 10:33
+Last updated at 11/04/2023 10:36
