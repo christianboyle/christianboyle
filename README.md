@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6RmRC6bcisv-0-t500x500.jpg">](https://soundcloud.com/axmomusic/love-core)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nn0eKjqhIte24Zzi-ywzwDQ-t500x500.jpg">](https://soundcloud.com/uiceheidd/doom)
 
-**Artist**: AXMO 
+**Artist**: Juice WRLD 
 
-**Track**: Love Core
+**Track**: Doom
 
-Last updated at 11/04/2023 12:42
+Last updated at 11/04/2023 12:43
