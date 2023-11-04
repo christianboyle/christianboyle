@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W51MUdXZQaZOgke5-SaiuPg-t500x500.jpg">](https://soundcloud.com/officialwerdna/exploration-of-space-dna-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Arx1R0sj1sET8JRN-Db5t8A-t500x500.jpg">](https://soundcloud.com/satoshijpn/rave-out)
 
-**Artist**: 𝘿𝙉𝘼 
+**Artist**: SATOSHI 
 
-**Track**: EXPLORATION OF SPACE (DNA REMIX)
+**Track**: SATOSHI - Rave Out
 
-Last updated at 11/04/2023 15:27
+Last updated at 11/04/2023 15:30
