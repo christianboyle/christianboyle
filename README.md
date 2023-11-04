@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epzwtgpdYnzIWOcy-9QG3DQ-t500x500.png">](https://soundcloud.com/gseppmusic/haunted-gsepp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1qaJwC0uemyLKgS-xXVOXA-t500x500.jpg">](https://soundcloud.com/willoaus/willos-hype-up-2023-mashup-pack)
 
-**Artist**: GSEPP 
+**Artist**: WILLØ Mashups & Mixtapes 
 
-**Track**: Haunted - GSEPP
+**Track**: WILLØ's Hype Up '2023' Mashup Pack | #1 EH & #2 Hypeddit Top 100
 
-Last updated at 11/04/2023 09:59
+Last updated at 11/04/2023 10:00
