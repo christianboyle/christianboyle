@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-DUhBCN21RpI0BQJz-jp903w-t500x500.jpg">](https://soundcloud.com/christiansmith54/going-off)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ofaYCsDYz4RAJ0vJ-Yl1omw-t500x500.jpg">](https://soundcloud.com/sectionedrecords/alive)
 
-**Artist**: ground_score 
+**Artist**: Barry D 
 
-**Track**: going//off [FREE DL]
+**Track**: Alive.
 
-Last updated at 11/04/2023 10:01
+Last updated at 11/04/2023 10:02
