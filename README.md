@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c1mvWSiZHuCAigzm-5eOY4A-t500x500.jpg">](https://soundcloud.com/rl-grim-cosplay/rl-grime-sable-valleyhaerny-tour-edits-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6RmRC6bcisv-0-t500x500.jpg">](https://soundcloud.com/axmomusic/love-core)
 
-**Artist**: rl grim cosplay 
+**Artist**: AXMO 
 
-**Track**: RL Grime Sable Valley/HAERNY Tour Edits [Mix]
+**Track**: Love Core
 
-Last updated at 11/04/2023 12:32
+Last updated at 11/04/2023 12:42
