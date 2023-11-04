@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tq6p5Ns2ikCazHwK-8OgVlg-t500x500.jpg">](https://soundcloud.com/rival_official/rival-eternity-w-runn-and-luma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epzwtgpdYnzIWOcy-9QG3DQ-t500x500.png">](https://soundcloud.com/gseppmusic/haunted-gsepp)
 
-**Artist**: Rival 
+**Artist**: GSEPP 
 
-**Track**: Rival - Eternity (w/ RUNN and Luma)
+**Track**: Haunted - GSEPP
 
-Last updated at 11/04/2023 09:58
+Last updated at 11/04/2023 09:59
