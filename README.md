@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCPO4edHeldB-0-t500x500.jpg">](https://soundcloud.com/charlixcx/in-the-city-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high)
 
-**Artist**: charlixcx 
+**Artist**: Juice WRLD 
 
-**Track**: In The City
+**Track**: Stay High
 
-Last updated at 11/04/2023 13:05
+Last updated at 11/04/2023 15:05
