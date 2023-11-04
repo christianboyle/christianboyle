@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TwGcmD8VL4biBha-uTyJuw-t500x500.jpg">](https://soundcloud.com/alu-rsa/franco-rossi-arrebato)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tq6p5Ns2ikCazHwK-8OgVlg-t500x500.jpg">](https://soundcloud.com/rival_official/rival-eternity-w-runn-and-luma)
 
-**Artist**: ALU 
+**Artist**: Rival 
 
-**Track**: Franco Rossi - Arrebato [AVA001]
+**Track**: Rival - Eternity (w/ RUNN and Luma)
 
-Last updated at 11/03/2023 15:00
+Last updated at 11/04/2023 09:58
