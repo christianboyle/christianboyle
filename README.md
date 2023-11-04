@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwzwfMKbmlO0YBtx-jeLp6Q-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-vraza-x-exp005)
 
-**Artist**: Juice WRLD 
+**Artist**: HATE 
 
-**Track**: Stay High
+**Track**: Premiere: Vraza - X [EXP005]
 
-Last updated at 11/04/2023 12:46
+Last updated at 11/04/2023 12:49
