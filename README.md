@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1qaJwC0uemyLKgS-xXVOXA-t500x500.jpg">](https://soundcloud.com/willoaus/willos-hype-up-2023-mashup-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-DUhBCN21RpI0BQJz-jp903w-t500x500.jpg">](https://soundcloud.com/christiansmith54/going-off)
 
-**Artist**: WILLØ Mashups & Mixtapes 
+**Artist**: ground_score 
 
-**Track**: WILLØ's Hype Up '2023' Mashup Pack | #1 EH & #2 Hypeddit Top 100
+**Track**: going//off [FREE DL]
 
-Last updated at 11/04/2023 10:00
+Last updated at 11/04/2023 10:01
