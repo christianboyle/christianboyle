@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXbmAtDKlQJqNW1s-qFhw9g-t500x500.jpg">](https://soundcloud.com/isaiah-cn/hate-this-place-ft-micah1tee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDmNz2hbHDIPn19I-mMKDnA-t500x500.jpg">](https://soundcloud.com/zarah-westhouse/english-violin-of-love)
 
-**Artist**: RNB Zae 
+**Artist**: Zarah Westhouse 
 
-**Track**: Hate This Place Ft. Micah1tee (Prod. By RNB)
+**Track**: English Violin Of Love
 
-Last updated at 11/04/2023 10:04
+Last updated at 11/04/2023 10:06
