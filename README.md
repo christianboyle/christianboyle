@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xfGV3ezK9kfkR7if-yQF1YQ-t500x500.jpg">](https://soundcloud.com/levity_music/moment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH7QbHBjFByl6GZA-IL3Gzg-t500x500.jpg">](https://soundcloud.com/beyondrepairr/beyond-repair-x-deamz-abhor)
 
-**Artist**: Levity 
+**Artist**: BEYOND REPAIR 
 
-**Track**: Levity - Moment (JADU222)
+**Track**: Beyond Repair X DEAMZ - ABHOR
 
-Last updated at 11/05/2023 10:51
+Last updated at 11/05/2023 10:52
