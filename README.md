@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zH7QbHBjFByl6GZA-IL3Gzg-t500x500.jpg">](https://soundcloud.com/beyondrepairr/beyond-repair-x-deamz-abhor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJI2ST2YzwXkui1A-NgzmoA-t500x500.jpg">](https://soundcloud.com/edekit/go-out)
 
-**Artist**: BEYOND REPAIR 
+**Artist**: Edekit 
 
-**Track**: Beyond Repair X DEAMZ - ABHOR
+**Track**: Go Out
 
-Last updated at 11/05/2023 10:52
+Last updated at 11/05/2023 10:53
