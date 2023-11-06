@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iK7DyVgy4ldXz85K-lgMQLg-t500x500.jpg">](https://soundcloud.com/orbmag/premiere-em-stav-odd-forest-drive-west-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gxf61D2MoaW7bnqQ-2HSibQ-t500x500.jpg">](https://soundcloud.com/clubnightclub/forestdrivewest)
 
-**Artist**: Orb Mag 
+**Artist**: Club Night Club 
 
-**Track**: Premiere: EM + STAV - Odd (Forest Drive West Remix)
+**Track**: CNC LIVE - FOREST DRIVE WEST
 
-Last updated at 11/06/2023 10:18
+Last updated at 11/06/2023 10:22
