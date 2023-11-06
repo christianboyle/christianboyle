@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdfZPNnszY7tCZfJ-7mzAKQ-t500x500.jpg">](https://soundcloud.com/barongfamily/haus-of-panda-get-hype)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duAuBzmQuyEkFV7s-8ndhbQ-t500x500.jpg">](https://soundcloud.com/wherearethepercs/lesserafim-perfect-night-pluggnb-flip-rxi)
 
-**Artist**: Barong Family 
+**Artist**: rxi 
 
-**Track**: Haus of Panda - GET HYPE!
+**Track**: lesserafim - perfect night pluggnb flip (rxi)
 
-Last updated at 11/06/2023 07:21
+Last updated at 11/06/2023 07:22
