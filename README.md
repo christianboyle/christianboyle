@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouubmOf9pnt25q54-e4GyWQ-t500x500.jpg">](https://soundcloud.com/mojibootlegs/fine-day-anthem-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7e5eJ0pp7I0cmlJU-4UHk1A-t500x500.jpg">](https://soundcloud.com/teedeejayyy/spf3?in=teedeejayyy/sets/spf3)
 
-**Artist**: MOJI - II 
+**Artist**: TDJ 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (MOJI, FAHJAH & T A N E Techno Edit)
+**Track**: SPF INFINI 3 (Continuous Mix)
 
-Last updated at 11/06/2023 13:01
+Last updated at 11/06/2023 13:02
