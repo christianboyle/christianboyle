@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c1mvWSiZHuCAigzm-5eOY4A-t500x500.jpg">](https://soundcloud.com/rl-grim-cosplay/rl-grime-sable-valleyhaerny-tour-edits-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dGwMNx66LAV2IAnQ-5z0K4A-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-aero-blood-groove-aktivv006)
 
-**Artist**: rl grim cosplay 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: RL Grime Sable Valley/HAERNY Tour Edits [Mix]
+**Track**: [PREMIERE] | Aero - Blood Groove  [AKTIVV006]
 
-Last updated at 11/07/2023 09:12
+Last updated at 11/07/2023 09:13
