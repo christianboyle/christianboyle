@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7e5eJ0pp7I0cmlJU-4UHk1A-t500x500.jpg">](https://soundcloud.com/teedeejayyy/spf3?in=teedeejayyy/sets/spf3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66IoMNhLAzx1Syxr-3Jhxbg-t500x500.jpg">](https://soundcloud.com/rlgrime/halloween-xii)
 
-**Artist**: TDJ 
+**Artist**: RL Grime 
 
-**Track**: SPF INFINI 3 (Continuous Mix)
+**Track**: Halloween XII
 
-Last updated at 11/06/2023 13:02
+Last updated at 11/07/2023 08:05
