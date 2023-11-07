@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3NbNbNOMIMgyowO-19SGuw-t500x500.jpg">](https://soundcloud.com/ekalimusic/awakening-mix-13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iK7DyVgy4ldXz85K-lgMQLg-t500x500.jpg">](https://soundcloud.com/orbmag/premiere-em-stav-odd-forest-drive-west-remix)
 
-**Artist**: EKALI 
+**Artist**: Orb Mag 
 
-**Track**: Awakening - Mix. 13
+**Track**: Premiere: EM + STAV - Odd (Forest Drive West Remix)
 
-Last updated at 11/07/2023 08:29
+Last updated at 11/07/2023 08:30
