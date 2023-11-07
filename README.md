@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iK7DyVgy4ldXz85K-lgMQLg-t500x500.jpg">](https://soundcloud.com/orbmag/premiere-em-stav-odd-forest-drive-west-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6RmRC6bcisv-0-t500x500.jpg">](https://soundcloud.com/axmomusic/love-core)
 
-**Artist**: Orb Mag 
+**Artist**: AXMO 
 
-**Track**: Premiere: EM + STAV - Odd (Forest Drive West Remix)
+**Track**: Love Core
 
-Last updated at 11/07/2023 08:30
+Last updated at 11/07/2023 08:59
