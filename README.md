@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nn0eKjqhIte24Zzi-ywzwDQ-t500x500.jpg">](https://soundcloud.com/uiceheidd/doom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high)
 
 **Artist**: Juice WRLD 
 
-**Track**: Doom
+**Track**: Stay High
 
-Last updated at 11/07/2023 09:18
+Last updated at 11/07/2023 12:44
