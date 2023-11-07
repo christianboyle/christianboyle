@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EK7xlhjDyJHCFZw5-0bunCw-t500x500.jpg">](https://soundcloud.com/yub-official/i-love-it-techno-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TwGcmD8VL4biBha-uTyJuw-t500x500.jpg">](https://soundcloud.com/alu-rsa/franco-rossi-arrebato)
 
-**Artist**: YuB 
+**Artist**: ALU 
 
-**Track**: Icona Pop - I Love It (YuB Techno VIP Edit)
+**Track**: Franco Rossi - Arrebato [AVA001]
 
-Last updated at 11/07/2023 09:05
+Last updated at 11/07/2023 09:07
