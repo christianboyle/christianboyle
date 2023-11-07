@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwzwfMKbmlO0YBtx-jeLp6Q-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-vraza-x-exp005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INqTP3KbwM5sDHXY-W5E2pA-t500x500.jpg">](https://soundcloud.com/mojimusicxx/better-off-alone-ft-pink-yusinradio-edit)
 
-**Artist**: HATE 
+**Artist**: MOJI 
 
-**Track**: Premiere: Vraza - X [EXP005]
+**Track**: Better Off Alone Ft. Pink Yusin
 
-Last updated at 11/07/2023 12:47
+Last updated at 11/07/2023 12:53
