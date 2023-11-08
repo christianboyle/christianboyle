@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUGmnuaWJEV7Bmw2-Lwecxg-t500x500.jpg">](https://soundcloud.com/outforce/outforce-blame-it-on-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INqTP3KbwM5sDHXY-W5E2pA-t500x500.jpg">](https://soundcloud.com/mojimusicxx/better-off-alone-ft-pink-yusinradio-edit)
 
-**Artist**: Outforce 
+**Artist**: MOJI 
 
-**Track**: Outforce - Blame It On The Night
+**Track**: Better Off Alone Ft. Pink Yusin
 
-Last updated at 11/08/2023 13:16
+Last updated at 11/08/2023 13:18
