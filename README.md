@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCX0REVqvzSfkDRW-MPspyA-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/chatterbox-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfDzY0YOfk19JmXo-BxJAqg-t500x500.jpg">](https://soundcloud.com/big-fish-recordings/lovo-sygfryd-savage)
 
-**Artist**: SQISHI 
+**Artist**: Big Fish Recordings 
 
-**Track**: CHATTERBOX (FREE DOWNLOAD)
+**Track**: LOVO & SYGFRYD - Savage
 
-Last updated at 11/08/2023 13:05
+Last updated at 11/08/2023 13:06
