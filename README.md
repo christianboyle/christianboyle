@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6jW8tM8bnhVvY6g-Le4sFA-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/milktea-daisychain-303)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCX0REVqvzSfkDRW-MPspyA-t500x500.jpg">](https://soundcloud.com/sqishi_dubz/chatterbox-free-download)
 
-**Artist**: Daisychain 
+**Artist**: SQISHI 
 
-**Track**: Daisychain 303 - milktea
+**Track**: CHATTERBOX (FREE DOWNLOAD)
 
-Last updated at 11/08/2023 13:04
+Last updated at 11/08/2023 13:05
