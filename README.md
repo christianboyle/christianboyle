@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfDzY0YOfk19JmXo-BxJAqg-t500x500.jpg">](https://soundcloud.com/big-fish-recordings/lovo-sygfryd-savage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Rq2KE4U8AXLymet-1vnaZg-t500x500.jpg">](https://soundcloud.com/soulzmusicgroup/samethoughts-let-me-fall-feat-solina)
 
-**Artist**: Big Fish Recordings 
+**Artist**: SoulZ Music Group 
 
-**Track**: LOVO & SYGFRYD - Savage
+**Track**: SameThoughts - Let Me Fall (feat. Solina) [ Original Mix ]
 
-Last updated at 11/08/2023 13:06
+Last updated at 11/08/2023 13:07
