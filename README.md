@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JIkJVdAvOxQfLQ4R-XIfxfg-t500x500.jpg">](https://soundcloud.com/8balldj/david-rust-cultr-8-ball-reverse-bass-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6jW8tM8bnhVvY6g-Le4sFA-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/milktea-daisychain-303)
 
-**Artist**: 8 Ball DJ 
+**Artist**: Daisychain 
 
-**Track**: David Rust x 8 Ball - CULTR (Reverse Bass Edit) FREE DOWNLOAD
+**Track**: Daisychain 303 - milktea
 
-Last updated at 11/08/2023 13:03
+Last updated at 11/08/2023 13:04
