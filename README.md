@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAwgy2O7RDESLNjE-OcYG4w-t500x500.jpg">](https://soundcloud.com/8balldj/joel-corry-hey-dj-8-ball-goes-hardcore-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NBtJX6h9svRACOmk-0TPQpw-t500x500.jpg">](https://soundcloud.com/werosemusic/we-move-your-body)
 
-**Artist**: 8 Ball DJ 
+**Artist**: We Rose 
 
-**Track**: Joel Corry x 8 Ball - Hey DJ (8 Ball Goes Hardcore Edit)
+**Track**: Öwnboss, Sevek - Move Your Body (We Rose Remix)
 
-Last updated at 11/09/2023 08:49
+Last updated at 11/09/2023 08:50
