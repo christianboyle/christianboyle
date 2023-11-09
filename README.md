@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSJ42Ludk4XzFgIN-kavKjw-t500x500.jpg">](https://soundcloud.com/mrjay96/mrjay-ft-underwater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRYaem5T0uaYB8lU-UqQbvw-t500x500.jpg">](https://soundcloud.com/itslostindreams/yetep-hoang-losing-you-feat-linney)
 
-**Artist**: MRJay 
+**Artist**: Lost In Dreams 
 
-**Track**: Now Is The Time ft. underwater
+**Track**: yetep & Hoang - Losing You (feat. Linney)
 
-Last updated at 11/09/2023 08:53
+Last updated at 11/09/2023 08:54
