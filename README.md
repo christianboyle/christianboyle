@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUGmnuaWJEV7Bmw2-Lwecxg-t500x500.jpg">](https://soundcloud.com/outforce/outforce-blame-it-on-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zAzqTyqcNzNy6hb-j1zzYw-t500x500.jpg">](https://soundcloud.com/djhuawei/rhythm-is-a-gabber)
 
-**Artist**: Outforce 
+**Artist**: DJ HUAWEI 
 
-**Track**: Outforce - Blame It On The Night
+**Track**: RHYTHM IS A GABBER
 
-Last updated at 11/09/2023 09:21
+Last updated at 11/09/2023 09:23
