@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRYaem5T0uaYB8lU-UqQbvw-t500x500.jpg">](https://soundcloud.com/itslostindreams/yetep-hoang-losing-you-feat-linney)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAQS3p74TMSVdXH4-9WFCUA-t500x500.jpg">](https://soundcloud.com/bvrnout/taylor-swift-new-romantics-bvrnout-remix)
 
-**Artist**: Lost In Dreams 
+**Artist**: BVRNOUT 
 
-**Track**: yetep & Hoang - Losing You (feat. Linney)
+**Track**: Taylor Swift - New Romantics (BVRNOUT Remix)
 
-Last updated at 11/09/2023 08:54
+Last updated at 11/09/2023 08:55
