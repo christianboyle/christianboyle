@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/as-if)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pNLiAUpnZUmn-0-t500x500.png">](https://soundcloud.com/33below/protecta?in=saxurn/sets/as-if)
 
-**Artist**: juseva's vault 
+**Artist**: 33 BELOW 
 
-**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
+**Track**: PROTECTA
 
-Last updated at 11/09/2023 13:59
+Last updated at 11/09/2023 14:02
