@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZabD4gV7WNjIBrQf-H0ewRw-t500x500.jpg">](https://soundcloud.com/djmag/premiere-russ-brooker-microfilm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2G8RRzcejQFZIEg5-KgNdGg-t500x500.jpg">](https://soundcloud.com/differentfont/different-fonts-high-society-vol-3)
 
-**Artist**: djmag 
+**Artist**: Different Font 
 
-**Track**: Premiere: Russ Brooker ‘Microfilm’
+**Track**: Different Font's HIGH SOCIETY VOL. 3
 
-Last updated at 11/09/2023 08:57
+Last updated at 11/09/2023 08:58
