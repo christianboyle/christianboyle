@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vH6pTQoWNJIUvWWC-UjkyTw-t500x500.jpg">](https://soundcloud.com/hitsdistrict-house/parea-in-my-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSJ42Ludk4XzFgIN-kavKjw-t500x500.jpg">](https://soundcloud.com/mrjay96/mrjay-ft-underwater)
 
-**Artist**: House Mix 
+**Artist**: MRJay 
 
-**Track**: Perea - In My Soul
+**Track**: Now Is The Time ft. underwater
 
-Last updated at 11/09/2023 08:52
+Last updated at 11/09/2023 08:53
