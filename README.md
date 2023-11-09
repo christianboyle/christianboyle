@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qo8vV4GTYqzon4u-bisVyw-t500x500.jpg">](https://soundcloud.com/ftureable/ftureable-vs-psix-entanglement?in=ftureable/sets/ftureable-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ClqxZGl7PS5gIOa-AdXaUQ-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/23-odd-cats-alive)
 
-**Artist**: Ftureable 
+**Artist**: Sweet Sounds Collective 
 
-**Track**: Ftureable vs PsiX - Entanglement
+**Track**: 23 Odd Cats - Alive
 
-Last updated at 11/09/2023 08:09
+Last updated at 11/09/2023 08:48
