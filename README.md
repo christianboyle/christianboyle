@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7KzGuJUFKdUaC3z2-WXyvdw-t500x500.jpg">](https://soundcloud.com/phil-tran/quick-dirty-30-happy-hardcore-mix-149-qdt-021123)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPg3R3APzcOJByj2-nL5dSQ-t500x500.jpg">](https://soundcloud.com/juju-vault/slumberjack-hide-and-seek-juseva-remix?in=saxurn/sets/as-if)
 
-**Artist**: phillyt2k 
+**Artist**: juseva's vault 
 
-**Track**: Quick Dirty 30 Happy Hardcore Mix 149 QDT (02.11.23)
+**Track**: SLUMBERJACK - Hide and Seek (JUSEVA! Remix)
 
-Last updated at 11/09/2023 09:25
+Last updated at 11/09/2023 13:59
