@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3xk4DQqGwy6V0pB-3UwLJg-t500x500.jpg">](https://soundcloud.com/darn84/sharkey-mix-bonkers-8-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfzMg3ionaa1rpKH-iYPXBQ-t500x500.jpg">](https://soundcloud.com/willsparks/will-sparks-presents-clubwrk-40-feat-luca-testa)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Will Sparks 
 
-**Track**: Sharkey Mix - Bonkers 8 - The Rezurrection (2002)
+**Track**: Will Sparks Presents - CLUBWRK #40 Feat. Luca Testa
 
-Last updated at 11/10/2023 08:53
+Last updated at 11/10/2023 08:56
