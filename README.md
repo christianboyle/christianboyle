@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-79LyzEy5YITAfrNh-NSLa4Q-t500x500.jpg">](https://soundcloud.com/frosttop/takeitoffrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XOr2wMx7YRyAgaO-fCYHrw-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-my-happy-ending-hardstyle-remix)
 
-**Artist**: frosttop 
+**Artist**: Luca Testa 
 
-**Track**: TAKE IT OFF (frosttop edit) FISHER, AATIG
+**Track**: Luca Testa - My Happy Ending [Hardstyle Remix]
 
-Last updated at 11/10/2023 08:48
+Last updated at 11/10/2023 08:49
