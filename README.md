@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9B855lmQsGdJOGBp-4tqK3w-t500x500.jpg">](https://soundcloud.com/gmafiarecords/scott-cameron-oicu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTN7znwwqWRKHCE8-qv1dVA-t500x500.jpg">](https://soundcloud.com/k1n_music/realm_1)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: K1N 
 
-**Track**: Scott Cameron - OICU (Original Mix)[G-MAFIA RECORDS]
+**Track**: K1N PRESENTS: REALM_1
 
-Last updated at 11/10/2023 13:03
+Last updated at 11/10/2023 13:04
