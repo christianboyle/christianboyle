@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6DyTrzJ8ohyYKf9K-e0TzaA-t500x500.jpg">](https://soundcloud.com/bunshinrecords/synfidel-funk-sensation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xilzQdiKu84v1g2o-ITLz7A-t500x500.jpg">](https://soundcloud.com/user-168196023/final-battle)
 
-**Artist**: Bunshin Records 
+**Artist**: Darcos Life Music 
 
-**Track**: Synfidel  - Funk Sensation (FREE DOWNLOAD)
+**Track**: Final battle
 
-Last updated at 11/10/2023 08:32
+Last updated at 11/10/2023 08:33
