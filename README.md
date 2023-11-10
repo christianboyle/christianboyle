@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfzMg3ionaa1rpKH-iYPXBQ-t500x500.jpg">](https://soundcloud.com/willsparks/will-sparks-presents-clubwrk-40-feat-luca-testa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9B855lmQsGdJOGBp-4tqK3w-t500x500.jpg">](https://soundcloud.com/gmafiarecords/scott-cameron-oicu)
 
-**Artist**: Will Sparks 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: Will Sparks Presents - CLUBWRK #40 Feat. Luca Testa
+**Track**: Scott Cameron - OICU (Original Mix)[G-MAFIA RECORDS]
 
-Last updated at 11/10/2023 08:56
+Last updated at 11/10/2023 13:03
