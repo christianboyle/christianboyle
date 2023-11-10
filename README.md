@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTN7znwwqWRKHCE8-qv1dVA-t500x500.jpg">](https://soundcloud.com/k1n_music/realm_1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4084s7HaMOLAhUn1-1f95sg-t500x500.jpg">](https://soundcloud.com/n3wportmusic/mean-it-feat-dan-berk-olivia-ray?in=itslostindreams/sets/n3wport-mean-it-with-dan-berk)
 
-**Artist**: K1N 
+**Artist**: N3WPORT 
 
-**Track**: K1N PRESENTS: REALM_1
+**Track**: Mean It (feat. Dan Berk & Olivia Ray)
 
-Last updated at 11/10/2023 13:04
+Last updated at 11/10/2023 13:05
