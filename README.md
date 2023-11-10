@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aBjuosSpWcgIsiZ-m6BSoA-t500x500.jpg">](https://soundcloud.com/hamdiofficialmusic/dubplate-ft-archie?in=hamdiofficialmusic/sets/counting-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000111076572-e6sszn-t500x500.jpg">](https://soundcloud.com/gabrielanddresden/gabriel-dresden-tracking-treasure-down-feat-molly-bancroft-radio-edit?in=gabrielanddresden/sets/gabriel-dresden-original-songs)
 
-**Artist**: Hamdi 
+**Artist**: Gabriel & Dresden 
 
-**Track**: Dubplate (ft. Archie)
+**Track**: Gabriel & Dresden - Tracking Treasure Down Feat Molly Bancroft (Radio Edit)
 
-Last updated at 11/10/2023 08:35
+Last updated at 11/10/2023 08:36
