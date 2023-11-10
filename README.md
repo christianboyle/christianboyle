@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xilzQdiKu84v1g2o-ITLz7A-t500x500.jpg">](https://soundcloud.com/user-168196023/final-battle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3thBdNIZzkQR-0-t500x500.jpg">](https://soundcloud.com/isoxo/dontstopme)
 
-**Artist**: Darcos Life Music 
+**Artist**: ISOxo 
 
-**Track**: Final battle
+**Track**: dontstopme!
 
-Last updated at 11/10/2023 08:33
+Last updated at 11/10/2023 08:34
