@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4084s7HaMOLAhUn1-1f95sg-t500x500.jpg">](https://soundcloud.com/n3wportmusic/mean-it-feat-dan-berk-olivia-ray?in=itslostindreams/sets/n3wport-mean-it-with-dan-berk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YajkMinUGdKVH2Ke-AJJXuA-t500x500.jpg">](https://soundcloud.com/justicehardcore/focusonme?in=justicehardcore/sets/new-justice-hardcore-tunez)
 
-**Artist**: N3WPORT 
+**Artist**: Justice Hardcore 
 
-**Track**: Mean It (feat. Dan Berk & Olivia Ray)
+**Track**: Crusadope - Focus On Me (OUT NOW)
 
-Last updated at 11/10/2023 13:05
+Last updated at 11/10/2023 13:06
