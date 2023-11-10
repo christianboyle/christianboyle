@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YajkMinUGdKVH2Ke-AJJXuA-t500x500.jpg">](https://soundcloud.com/justicehardcore/focusonme?in=justicehardcore/sets/new-justice-hardcore-tunez)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weWtE757fzH6qNP1-2c9hQg-t500x500.jpg">](https://soundcloud.com/baeldorf/winter?in=baeldorf/sets/four-seasons-trance)
 
-**Artist**: Justice Hardcore 
+**Artist**: Baeldorf 
 
-**Track**: Crusadope - Focus On Me (OUT NOW)
+**Track**: Winter
 
-Last updated at 11/10/2023 13:06
+Last updated at 11/10/2023 13:07
