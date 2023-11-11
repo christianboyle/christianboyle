@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWaYk1DJzs1pOQwq-AnalnQ-t500x500.jpg">](https://soundcloud.com/holypriest_music/house-of-pain-jump-around-holy-priest-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SsU8VOzzRzRRRHLY-cyAjew-t500x500.jpg">](https://soundcloud.com/xotixmusic/xotix-x-oudus-this-is-halloween)
 
-**Artist**: HOLY PRIEST 
+**Artist**: XOTIX 
 
-**Track**: House Of Pain - Jump Around (Holy Priest Hard Techno Edit)
+**Track**: XOTIX X OUDUS - THIS IS HALLOWEEN
 
-Last updated at 11/10/2023 13:10
+Last updated at 11/11/2023 10:55
