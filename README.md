@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SsU8VOzzRzRRRHLY-cyAjew-t500x500.jpg">](https://soundcloud.com/xotixmusic/xotix-x-oudus-this-is-halloween)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFphDylewO0MzT8R-3Wn9hw-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/thred-one-more-night-aspire-higher-tune-tuesday-exclusive)
 
-**Artist**: XOTIX 
+**Artist**: Aspire Higher 
 
-**Track**: XOTIX X OUDUS - THIS IS HALLOWEEN
+**Track**: Thred - One More Night {Aspire Higher Tune Tuesday Exclusive}
 
-Last updated at 11/11/2023 10:55
+Last updated at 11/11/2023 10:56
