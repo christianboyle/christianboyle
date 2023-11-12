@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFphDylewO0MzT8R-3Wn9hw-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/thred-one-more-night-aspire-higher-tune-tuesday-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aj1iV4JJEThSizzw-zL4pdQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/toxic-wraith-the-fifth-synergy-red-ocean-x-chill-planet-ade-ep-2023)
 
-**Artist**: Aspire Higher 
+**Artist**: Chill Planet 
 
-**Track**: Thred - One More Night {Aspire Higher Tune Tuesday Exclusive}
+**Track**: Toxic Wraith & The Fifth - Synergy [Red Ocean x Chill Planet ADE EP: 2023]
 
-Last updated at 11/11/2023 10:56
+Last updated at 11/12/2023 08:02
