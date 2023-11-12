@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9DA6Av7eOLa6laS0-tKgkqw-t500x500.jpg">](https://soundcloud.com/jujubeatz/levity-flip-it-juju-beats-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: JuJu Beats 
+**Artist**: Don Drago 
 
-**Track**: Levity - Flip It (JuJu Beats flip)
+**Track**: We Can Go - Don Drago
 
-Last updated at 11/12/2023 14:04
+Last updated at 11/12/2023 14:05
