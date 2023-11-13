@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V8b80y0COdGzKUxQ-VcFM6g-t500x500.jpg">](https://soundcloud.com/adampearcevip/benny-benassi-satisfaction-adam-pearce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4G1Fvfuchql-0-t500x500.png">](https://soundcloud.com/dj4b/haunted-1)
 
-**Artist**: Adam Pearce Remixes 
+**Artist**: 4B 
 
-**Track**: BENNY BENASSI - Satisfaction (Adam Pearce Remix)
+**Track**: 4B - Haunted
 
-Last updated at 11/13/2023 09:14
+Last updated at 11/13/2023 10:05
