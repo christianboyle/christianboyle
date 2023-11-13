@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAQS3p74TMSVdXH4-9WFCUA-t500x500.jpg">](https://soundcloud.com/bvrnout/taylor-swift-new-romantics-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWaYk1DJzs1pOQwq-AnalnQ-t500x500.jpg">](https://soundcloud.com/holypriest_music/house-of-pain-jump-around-holy-priest-hard-techno-remix)
 
-**Artist**: BVRNOUT 
+**Artist**: HOLY PRIEST 
 
-**Track**: Taylor Swift - New Romantics (BVRNOUT Remix)
+**Track**: House Of Pain - Jump Around (Holy Priest Hard Techno Edit)
 
-Last updated at 11/13/2023 10:06
+Last updated at 11/13/2023 10:09
