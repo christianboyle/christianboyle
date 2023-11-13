@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpynYZ4mKJtRGtyL-KhY2FQ-t500x500.jpg">](https://soundcloud.com/monstercat/blanke-casey-cook-crashing-hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jncopDzTndcysecj-lfGKTA-t500x500.jpg">](https://soundcloud.com/staminarecords/transcend-butterfly-effect)
 
-**Artist**: Monstercat 
+**Artist**: Stamina Records 
 
-**Track**: Blanke & Casey Cook - Crashing Hard
+**Track**: Transcend - Transcendance
 
-Last updated at 11/13/2023 08:56
+Last updated at 11/13/2023 08:57
