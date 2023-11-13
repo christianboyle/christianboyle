@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brOs5hcuz3sUM1i5-A7QY7Q-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-ht-d-event-7-the-peoples)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Apqm22PKmOHzR6HQ-COFIaw-t500x500.jpg">](https://soundcloud.com/variablebass/atjabo-1)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Variable 
 
-**Track**: Hixxy @ HT!D - Event 7 - The People's Choice The Ravers Choice (25/03/2005)
+**Track**: Atjabo
 
-Last updated at 11/13/2023 08:59
+Last updated at 11/13/2023 09:00
