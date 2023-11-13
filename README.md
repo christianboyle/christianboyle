@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12kpDnVszeEFTRgT-0ecckw-t500x500.jpg">](https://soundcloud.com/darn84/vibes-helter-skelter-energy-96)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkqLDLtUAt5ibY6W-7z4m9A-t500x500.jpg">](https://soundcloud.com/darn84/ramos-diehard-18-03-1994)
 
 **Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Vibes & MC Livelee @ Helter Skelter - Energy 96 (10/08/1996)
+**Track**: Ramos & MC Marley @ Diehard (18/03/1994)
 
-Last updated at 11/13/2023 09:07
+Last updated at 11/13/2023 09:08
