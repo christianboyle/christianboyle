@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TPjbNLd1I1I0pHCe-mHu38w-t500x500.jpg">](https://soundcloud.com/scarlettlmitchell/traditional-190bpm-nightcore-mix-high-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekbOgsTpXD9mcmKu-PyudEA-t500x500.jpg">](https://soundcloud.com/levianth/mercy-levianth-edit)
 
-**Artist**: DJ Portable Artillery Aimed At A Police Station 
+**Artist**: Levianth 
 
-**Track**: Traditional 190bpm Nightcore Mix (High Version)
+**Track**: Mercy (Levianth Edit)
 
-Last updated at 11/13/2023 09:05
+Last updated at 11/13/2023 09:06
