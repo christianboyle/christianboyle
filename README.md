@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tcavltDdQL0xCR2F-lT9XQg-t500x500.jpg">](https://soundcloud.com/jukaamusic/xg-left-right-jukaa-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high?in=saxurn/sets/walks/)
 
-**Artist**: Jukaa 
+**Artist**: Juice WRLD 
 
-**Track**: XG - LEFT RIGHT (Jukaa Bootleg)
+**Track**: Stay High
 
-Last updated at 11/14/2023 11:14
+Last updated at 11/14/2023 11:15
