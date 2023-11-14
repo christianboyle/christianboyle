@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whFkayDx9sQyHpmN-kGOwgw-t500x500.jpg">](https://soundcloud.com/prodbyobey/lil-peep-x-lil-tracy-witchblades-lvst-obey-remix)
 
-**Artist**: Don Drago 
+**Artist**: obey 🌠 
 
-**Track**: We Can Go - Don Drago
+**Track**: lil peep x lil tracy - witchblades - (lvst & obey Remix)
 
-Last updated at 11/14/2023 09:39
+Last updated at 11/14/2023 09:41
