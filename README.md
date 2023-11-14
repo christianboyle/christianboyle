@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HAZpHCeqN9BcOUeI-2zwp3Q-t500x500.jpg">](https://soundcloud.com/uiceheidd/stay-high?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyPmluYRijowI998-LjDpsw-t500x500.jpg">](https://soundcloud.com/luca-t-1/da-brozz-x-luca-testa-x-hitak-tik-tok-hardstyle-remix?in=saxurn/sets/walks/)
 
-**Artist**: Juice WRLD 
+**Artist**: Luca Testa 
 
-**Track**: Stay High
+**Track**: Da Brozz x Luca Testa x Hitak x Bomber - Tik Tok [Hyper Techno Remix]
 
-Last updated at 11/14/2023 11:15
+Last updated at 11/14/2023 11:21
