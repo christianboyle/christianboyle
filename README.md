@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfzN4zcXtuqizxP0-OP2enQ-t500x500.jpg">](https://soundcloud.com/raversreunited/korkie-presents-lyrical-domination-volume-1-mixed-by-scoot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CHJ72v53dUKUVu8Q-imLW0Q-t500x500.jpg">](https://soundcloud.com/darn84/dj-uplift-night-flight-raw)
 
-**Artist**: Ravers Reunited 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Korkie Presents Lyrical Domination Volume. 1 - Mixed By Scoot
+**Track**: DJ Uplift - Night Flight - Raw Elements (2005)
 
-Last updated at 11/14/2023 09:33
+Last updated at 11/14/2023 09:34
