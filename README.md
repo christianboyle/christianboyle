@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5m2zoIyFcxTGeZ6-TMShXg-t500x500.jpg">](https://soundcloud.com/yungdeepthroat/skeeyee-saint-deepthroat-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHTbqgWkzgKMzef9-qDsRwA-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-dave-van-guten-another-day-burden-remix-ecsy054)
 
-**Artist**: river moon 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: SKEEYEE (SAINT DEEPTHROAT CLUB EDIT)
+**Track**: [PREMIERE] | Dave Van Guten - Another Day (Burden Remix) [ECSY054]
 
-Last updated at 11/14/2023 09:35
+Last updated at 11/14/2023 09:36
