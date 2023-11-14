@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whFkayDx9sQyHpmN-kGOwgw-t500x500.jpg">](https://soundcloud.com/prodbyobey/lil-peep-x-lil-tracy-witchblades-lvst-obey-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORqae3M7qky7XWOz-YoMWFA-t500x500.jpg">](https://soundcloud.com/insomniacrecords/noizu-martin-ikin-burnin)
 
-**Artist**: obey 🌠 
+**Artist**: Insomniac Records 
 
-**Track**: lil peep x lil tracy - witchblades - (lvst & obey Remix)
+**Track**: Noizu & Martin Ikin - Burnin'
 
-Last updated at 11/14/2023 09:41
+Last updated at 11/14/2023 09:42
