@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtpZtVFFCbxYaDLs-qVjNyw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/lil-wayne-a-milli-moji-fahjah-t-a-n-e-techno-edit)
 
-**Artist**: Don Drago 
+**Artist**: MOJI - II 
 
-**Track**: We Can Go - Don Drago
+**Track**: Lil Wayne - A Milli (MOJI, Fahjah & T A N E Techno Edit)
 
-Last updated at 11/14/2023 17:34
+Last updated at 11/14/2023 17:36
