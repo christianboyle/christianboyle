@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4G1Fvfuchql-0-t500x500.png">](https://soundcloud.com/dj4b/haunted-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tcavltDdQL0xCR2F-lT9XQg-t500x500.jpg">](https://soundcloud.com/jukaamusic/xg-left-right-jukaa-bootleg)
 
-**Artist**: 4B 
+**Artist**: Jukaa 
 
-**Track**: 4B - Haunted
+**Track**: XG - LEFT RIGHT (Jukaa Bootleg)
 
-Last updated at 11/14/2023 09:52
+Last updated at 11/14/2023 09:53
