@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5j4wEykLBdOq2ZpR-u2FYmQ-t500x500.jpg">](https://soundcloud.com/all172things/fresh-color-groove-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tKIX6BTH6HO2Burc-a19D2Q-t500x500.jpg">](https://soundcloud.com/duskus/cut?in=duskus/sets/healers-volume-1)
 
-**Artist**: All172Things 
+**Artist**: Duskus 
 
-**Track**: Fresh Color - Groove [Premiere]
+**Track**: Cut
 
-Last updated at 11/14/2023 08:46
+Last updated at 11/14/2023 08:47
