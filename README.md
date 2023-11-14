@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V8b80y0COdGzKUxQ-VcFM6g-t500x500.jpg">](https://soundcloud.com/adampearcevip/benny-benassi-satisfaction-adam-pearce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: Adam Pearce Remixes 
+**Artist**: Don Drago 
 
-**Track**: BENNY BENASSI - Satisfaction (Adam Pearce Remix)
+**Track**: We Can Go - Don Drago
 
-Last updated at 11/14/2023 09:47
+Last updated at 11/14/2023 09:49
