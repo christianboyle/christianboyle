@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvTyhOd4mtFLMIB6-0Y9XUg-t500x500.jpg">](https://soundcloud.com/fabarecords/gordo-dj-happy-when-it-rains?in=fabarecords/sets/back-to-the-80s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5j4wEykLBdOq2ZpR-u2FYmQ-t500x500.jpg">](https://soundcloud.com/all172things/fresh-color-groove-premiere)
 
-**Artist**: Faba Records 
+**Artist**: All172Things 
 
-**Track**: GORDO DJ - Happy When It Rains
+**Track**: Fresh Color - Groove [Premiere]
 
-Last updated at 11/14/2023 08:43
+Last updated at 11/14/2023 08:46
