@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BSnB9rrAM3FS1Jjy-dAeS0A-t500x500.jpg">](https://soundcloud.com/kickcheeze/ado-new-genesis-satoshi-x-kickcheeze-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4z4G6X2y5rqzWQoh-h6iu7g-t500x500.jpg">](https://soundcloud.com/gmafiarecords/brammos-bangerton?in=gmafiahouz/sets/brammos-bangerton-original-3)
 
-**Artist**: KICKCHEEZE 🧀 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: Ado - New Genesis (SATOSHI X KICKCHEEZE Remix) [Free Download]
+**Track**: Brammos - Bangerton (Original Mix)[G-MAFIA RECORDS]
 
-Last updated at 11/14/2023 09:24
+Last updated at 11/14/2023 09:25
