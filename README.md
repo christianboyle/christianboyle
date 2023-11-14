@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qDiUJpMI0nUiD353-6ThEmg-t500x500.jpg">](https://soundcloud.com/configtunes/push-it-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: CONFIG 
+**Artist**: Don Drago 
 
-**Track**: PUSH IT
+**Track**: We Can Go - Don Drago
 
-Last updated at 11/14/2023 11:09
+Last updated at 11/14/2023 11:10
