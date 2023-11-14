@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oA9rYaTaz9reRCU-QbBfFw-t500x500.jpg">](https://soundcloud.com/mobstamane/rhythm-of-vibrations)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SaUy6zY4brQCq3BN-YtaEyg-t500x500.jpg">](https://soundcloud.com/darn84/eye-opener-open-your-eyes-re)
 
-**Artist**: Mobsta Mane 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Rhythm Of Vibrations
+**Track**: Eye Opener - Open Your Eyes (Re-Con Remix) - Unreleased (2005)
 
-Last updated at 11/14/2023 08:40
+Last updated at 11/14/2023 08:41
