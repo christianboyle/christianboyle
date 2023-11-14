@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-arQc2v1UTOCxY686-lytbJA-t500x500.jpg">](https://soundcloud.com/big-mood/big-mood-x-cykl0pz-set-me-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvTyhOd4mtFLMIB6-0Y9XUg-t500x500.jpg">](https://soundcloud.com/fabarecords/gordo-dj-happy-when-it-rains?in=fabarecords/sets/back-to-the-80s)
 
-**Artist**: Big Mood 
+**Artist**: Faba Records 
 
-**Track**: Big Mood X Cykl0pz - Set Me Free
+**Track**: GORDO DJ - Happy When It Rains
 
-Last updated at 11/14/2023 08:42
+Last updated at 11/14/2023 08:43
