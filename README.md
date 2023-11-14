@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tcavltDdQL0xCR2F-lT9XQg-t500x500.jpg">](https://soundcloud.com/jukaamusic/xg-left-right-jukaa-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U3i8S2Ib8hsQF5sl-dQviJA-t500x500.jpg">](https://soundcloud.com/sablevalley/let-you-go-lizdek-remix)
 
-**Artist**: Jukaa 
+**Artist**: SABLE VALLEY 
 
-**Track**: XG - LEFT RIGHT (Jukaa Bootleg)
+**Track**: Pauline Herr - Let You Go (Lizdek Remix)
 
-Last updated at 11/14/2023 09:53
+Last updated at 11/14/2023 09:56
