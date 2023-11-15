@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzV25lGv1nzW55Ge-0uIP6g-t500x500.jpg">](https://soundcloud.com/a01211581/i-tried-so-hard-to-learn-to-say-ill-see-you-again-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7hOthXu61vZ0APW-AmC6cw-t500x500.jpg">](https://soundcloud.com/anttc1/nc-17-evil-c-the-scottie-blueprint-vip-vinyl-exclusive-disblp011)
 
-**Artist**: sunsǝt 
+**Artist**: Dispatch Recs | Ant TC1 
 
-**Track**: i tried so hard to learn to say i'll see you again
+**Track**: NC-17 - Evil C (The Scottie Blueprint VIP) [VINYL EXCLUSIVE] - DISBLP011
 
-Last updated at 11/15/2023 06:39
+Last updated at 11/15/2023 06:56
