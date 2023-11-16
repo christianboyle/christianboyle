@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UVeph7ihYJ8amfMA-mwIUsw-t500x500.jpg">](https://soundcloud.com/chasethesoundrec/caesar-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uafpKJokoOVcfyIS-LuL6cA-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-cremoet-kung-futur-creexp001)
 
-**Artist**: Chase the Sound 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: Caesar - Sky [Buy - for free download]
+**Track**: [PREMIERE] | crémoët - Kung Futur [CREEXP001]
 
-Last updated at 11/16/2023 08:11
+Last updated at 11/16/2023 08:12
