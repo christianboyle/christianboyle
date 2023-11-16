@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avLlCqWAb1qnM3NJ-q5cDDw-t500x500.jpg">](https://soundcloud.com/catch-22_music/elijah-blond-tijuana-catch-22-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fnQ8R2biNDUwRpzy-kQdnyg-t500x500.jpg">](https://soundcloud.com/imtheobsidian/lakes)
 
-**Artist**: Catch-22 
+**Artist**: The Øbsidian 
 
-**Track**: Elijah Blond - Tijuana (Catch-22 Bootleg) (FREE DOWNLOAD)
+**Track**: lakes
 
-Last updated at 11/16/2023 08:19
+Last updated at 11/16/2023 08:26
