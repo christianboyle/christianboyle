@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avLlCqWAb1qnM3NJ-q5cDDw-t500x500.jpg">](https://soundcloud.com/catch-22_music/elijah-blond-tijuana-catch-22-bootleg)
 
-**Artist**: Dirty Workz 
+**Artist**: Catch-22 
 
-**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
+**Track**: Elijah Blond - Tijuana (Catch-22 Bootleg) (FREE DOWNLOAD)
 
-Last updated at 11/16/2023 08:18
+Last updated at 11/16/2023 08:19
