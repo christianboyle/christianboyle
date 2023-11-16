@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uafpKJokoOVcfyIS-LuL6cA-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-cremoet-kung-futur-creexp001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0yywHiYIKX4qR5j-3SET8A-t500x500.jpg">](https://soundcloud.com/darn84/gammer-re-sauce-original-mix)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: [PREMIERE] | crémoët - Kung Futur [CREEXP001]
+**Track**: Gammer - Re-Sauce (Original Mix) - Warped Science (2004)
 
-Last updated at 11/16/2023 08:12
+Last updated at 11/16/2023 08:16
