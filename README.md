@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBzF73Tr57WzCrei-UyGx2A-t500x500.jpg">](https://soundcloud.com/eliminamusic/distant-call)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hh7qjpZLylI4-0-t500x500.jpg">](https://soundcloud.com/bvrnout/lose-my-head)
 
-**Artist**: ELIMINA 
+**Artist**: BVRNOUT 
 
-**Track**: Distant Call
+**Track**: Lose My Head
 
-Last updated at 11/17/2023 11:56
+Last updated at 11/17/2023 11:59
