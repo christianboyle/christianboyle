@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAKOVHw0RkhL-0-t500x500.jpg">](https://soundcloud.com/djsandrosilva/andromeda-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XW2TZ0FPmcEGaZzr-pXFjGw-t500x500.jpg">](https://soundcloud.com/magisteriumbeats/like-a-prayer)
 
-**Artist**: Sandro Silva 
+**Artist**: Magisterium 
 
-**Track**: Andromeda (Extended Mix)
+**Track**: Like A Prayer
 
-Last updated at 11/17/2023 10:13
+Last updated at 11/17/2023 10:16
