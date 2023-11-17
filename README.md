@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfk4Cwcq6zMCU7xD-eGkJDA-t500x500.jpg">](https://soundcloud.com/sadbois_official/love-letter-x-bringing-me-back-sadbois-rocktronic-edit?in=sadbois_official/sets/sad-september)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uoNYybSQT0jjgEOr-Pi2RzA-t500x500.jpg">](https://soundcloud.com/h33records/dv60-bla-bla-bla-h33r057)
 
-**Artist**: SadBois 🦋 
+**Artist**: H33 Records 
 
-**Track**: Love Letter x Bringing Me Back (SadBois 'Rocktronic' Edit)
+**Track**: DV60 - Bla Bla Bla [H33R057]
 
-Last updated at 11/17/2023 12:03
+Last updated at 11/17/2023 12:04
