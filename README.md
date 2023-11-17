@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hfhgl5CrzixoanM-l3mRDQ-t500x500.jpg">](https://soundcloud.com/all172things/psynchro-daptif-burnout-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJJU4Kyo6cE1Dz09-xgCXOA-t500x500.jpg">](https://soundcloud.com/ladarudeparty/la-darude-mix-series-27-joey-mousepads)
 
-**Artist**: All172Things 
+**Artist**: La Darude / Tekno Kawaii 
 
-**Track**: Psynchro & Daptif - Burnout [Premiere]
+**Track**: La Darude Mix Series 27: Joey Mousepads
 
-Last updated at 11/17/2023 08:34
+Last updated at 11/17/2023 08:35
