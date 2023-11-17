@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJJU4Kyo6cE1Dz09-xgCXOA-t500x500.jpg">](https://soundcloud.com/ladarudeparty/la-darude-mix-series-27-joey-mousepads)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hc2ZHMPiyvhYTyvL-76YtyQ-t500x500.jpg">](https://soundcloud.com/gmafiarecords/rafasan-evanmac-until-dawn)
 
-**Artist**: La Darude / Tekno Kawaii 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: La Darude Mix Series 27: Joey Mousepads
+**Track**: Rafasan, EVANMAC - Until Dawn (Original Mix)[G-MAFIA RECORDS]
 
-Last updated at 11/17/2023 08:35
+Last updated at 11/17/2023 10:02
