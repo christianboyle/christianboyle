@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7sfAW2RWmuYB16W-QyiYPA-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/run)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iYyoL1CYbwLY-0-t500x500.jpg">](https://soundcloud.com/djsandrosilva/andromeda)
 
-**Artist**: Dancing Dead 
+**Artist**: Sandro Silva 
 
-**Track**: Lektrique - RUN
+**Track**: Andromeda
 
-Last updated at 11/17/2023 10:07
+Last updated at 11/17/2023 10:10
