@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCGNPWBYO6xzJVC8-Y2JF2g-t500x500.jpg">](https://soundcloud.com/tomfrane/tiny-fractures)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KweHhQyXtUntONIo-VAoecg-t500x500.jpg">](https://soundcloud.com/itslucha/rei)
 
-**Artist**: Tom Frane 
+**Artist**: Lucha 
 
-**Track**: Tom Frane, RJ Pasin - Tiny Fractures
+**Track**: REI
 
-Last updated at 11/17/2023 08:29
+Last updated at 11/17/2023 08:30
