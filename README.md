@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iYyoL1CYbwLY-0-t500x500.jpg">](https://soundcloud.com/djsandrosilva/andromeda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAKOVHw0RkhL-0-t500x500.jpg">](https://soundcloud.com/djsandrosilva/andromeda-extended-mix)
 
 **Artist**: Sandro Silva 
 
-**Track**: Andromeda
+**Track**: Andromeda (Extended Mix)
 
-Last updated at 11/17/2023 10:10
+Last updated at 11/17/2023 10:13
