@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XW2TZ0FPmcEGaZzr-pXFjGw-t500x500.jpg">](https://soundcloud.com/magisteriumbeats/like-a-prayer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6U5nGR0n8H9sC9Ax-KQk0Qg-t500x500.jpg">](https://soundcloud.com/codychase/the-chase-ep-041)
 
-**Artist**: Magisterium 
+**Artist**: CodyChase 
 
-**Track**: Like A Prayer
+**Track**: The Chase - Ep 041 Feat Moji
 
-Last updated at 11/17/2023 10:16
+Last updated at 11/17/2023 10:21
