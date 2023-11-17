@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7b8wJc8cctFl1hwy-QG5gsA-t500x500.jpg">](https://soundcloud.com/naemsofficial/usher-u-remind-me-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7sfAW2RWmuYB16W-QyiYPA-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/run)
 
-**Artist**: NAEMS 
+**Artist**: Dancing Dead 
 
-**Track**: Usher - U Remind Me (NAEMS REMIX)
+**Track**: Lektrique - RUN
 
-Last updated at 11/17/2023 10:05
+Last updated at 11/17/2023 10:07
