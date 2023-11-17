@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzgSMaZEcszpePuN-U3pyrw-t500x500.jpg">](https://soundcloud.com/shvdz/kenya-grace-strangers-shvdz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ni1gWjz0njeIfZS0-yLztCQ-t500x500.jpg">](https://soundcloud.com/savagef80/everything-you-say-vip)
 
-**Artist**: SHVDZ 
+**Artist**: SAVAGE 
 
-**Track**: Kenya Grace - Strangers (SHVDZ Remix)
+**Track**: EVERYTHING YOU SAY (VIP)
 
-Last updated at 11/17/2023 11:05
+Last updated at 11/17/2023 11:06
