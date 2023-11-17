@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cwla52fN82Xrmntl-MEIw1A-t500x500.jpg">](https://soundcloud.com/thedjthumpa/thumpa-htid-event-hardcore-anthems-2004-2005-volume-1?in=thedjthumpa/sets/thumpa-htid-event-anthems-2004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCGNPWBYO6xzJVC8-Y2JF2g-t500x500.jpg">](https://soundcloud.com/tomfrane/tiny-fractures)
 
-**Artist**: Thumpa 
+**Artist**: Tom Frane 
 
-**Track**: Thumpa - HTID Event Hardcore Anthems 2004 / 2005 Volume 1
+**Track**: Tom Frane, RJ Pasin - Tiny Fractures
 
-Last updated at 11/16/2023 08:34
+Last updated at 11/17/2023 08:29
