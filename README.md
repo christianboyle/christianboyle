@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzXbbsgtuLvha0Sy-76eEHw-t500x500.jpg">](https://soundcloud.com/gmafiarecords/dirty-paws-champagne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Va4RpDumagzzDCQC-8Y3s4g-t500x500.jpg">](https://soundcloud.com/cyb3rpvnkradio/cyb3rpvnk-radio-579)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: CYB3RPVNK Radio 
 
-**Track**: Dirty Paws - Champagne (Original Mix)[G-MAFIA RECORDS]
+**Track**: CYB3RPVNK Radio #579
 
-Last updated at 11/17/2023 11:19
+Last updated at 11/17/2023 11:21
