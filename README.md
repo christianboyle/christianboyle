@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0BiGwZySz7j4Vur-mi07ZA-t500x500.jpg">](https://soundcloud.com/corebeats03/mia-paper-planes-noise-mafia-edit-crbfree014)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
 
-**Artist**: Core Beats 
+**Artist**: Dirty Workz 
 
-**Track**: M.I.A - PAPER PLANES (NOISE MAFIA EDIT) (CRBFREE014)
+**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
 
-Last updated at 11/18/2023 15:17
+Last updated at 11/18/2023 15:22
