@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFYReKMkPNvVqL90-87sjFw-t500x500.jpg">](https://soundcloud.com/320rip/fluke-nukes-cash-bandicoot-so-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2Od3SrHyiIuBTBs-kdQrNA-t500x500.jpg">](https://soundcloud.com/adamenoise/a-lack-of-conviction)
 
-**Artist**: 320 RIP 
+**Artist**: ADAME 
 
-**Track**: fluke nukes & ca$h bandicoot - SO BACK
+**Track**: A Lack Of Conviction
 
-Last updated at 11/18/2023 15:02
+Last updated at 11/18/2023 15:04
