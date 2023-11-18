@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G8Z461bzO87fuzE1-L8Jg0A-t500x500.jpg">](https://soundcloud.com/warblebeats/west)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEYiEJlUp5gtz6Cd-IRnKzQ-t500x500.jpg">](https://soundcloud.com/maryarcane/immaterial)
 
-**Artist**: Warble 
+**Artist**: maryarcane 
 
-**Track**: west
+**Track**: SOPHIE - Immaterial (Mary Arcane Patch)
 
-Last updated at 11/18/2023 14:55
+Last updated at 11/18/2023 14:56
