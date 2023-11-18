@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ni1gWjz0njeIfZS0-yLztCQ-t500x500.jpg">](https://soundcloud.com/savagef80/everything-you-say-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0BiGwZySz7j4Vur-mi07ZA-t500x500.jpg">](https://soundcloud.com/corebeats03/mia-paper-planes-noise-mafia-edit-crbfree014)
 
-**Artist**: SAVAGE 
+**Artist**: Core Beats 
 
-**Track**: EVERYTHING YOU SAY (VIP)
+**Track**: M.I.A - PAPER PLANES (NOISE MAFIA EDIT) (CRBFREE014)
 
-Last updated at 11/18/2023 15:12
+Last updated at 11/18/2023 15:17
