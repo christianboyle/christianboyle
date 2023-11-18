@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ifwy97dp7xuyxIWq-Q2cjwA-t500x500.jpg">](https://soundcloud.com/half-heart-proj/feydrives-i-feel-sick?in=wearenova/sets/nmf-11-17-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFYReKMkPNvVqL90-87sjFw-t500x500.jpg">](https://soundcloud.com/320rip/fluke-nukes-cash-bandicoot-so-back)
 
-**Artist**: The Half Heart Project 
+**Artist**: 320 RIP 
 
-**Track**: Feydrives - I Feel Sick.
+**Track**: fluke nukes & ca$h bandicoot - SO BACK
 
-Last updated at 11/18/2023 12:48
+Last updated at 11/18/2023 13:05
