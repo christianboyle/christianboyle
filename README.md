@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yju08jRozzA5KyxQ-tweKTQ-t500x500.jpg">](https://soundcloud.com/a_way/ocean-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KvjzQI3tCeUxj9dC-tJytVQ-t500x500.jpg">](https://soundcloud.com/beaker-probeard/joypox?in=wearenova/sets/nmf-11-17-23)
 
-**Artist**: A.way 
+**Artist**: Toy Shoulders 
 
-**Track**: Billie Eilish - Ocean Eyes (A.way Bootleg)
+**Track**: Joypox
 
-Last updated at 11/18/2023 10:40
+Last updated at 11/18/2023 10:41
