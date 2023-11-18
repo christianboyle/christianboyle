@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aP98ufroID5vCAcg-SqVSfw-t500x500.jpg">](https://soundcloud.com/vyharamusic/nirvana-smells-like-teen-spirit-vyhara-flip-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFYReKMkPNvVqL90-87sjFw-t500x500.jpg">](https://soundcloud.com/320rip/fluke-nukes-cash-bandicoot-so-back)
 
-**Artist**: VYHARA 
+**Artist**: 320 RIP 
 
-**Track**: Nirvana - Smells Like Teen Spirit (Vyhara Flip) [free dl]
+**Track**: fluke nukes & ca$h bandicoot - SO BACK
 
-Last updated at 11/18/2023 15:00
+Last updated at 11/18/2023 15:02
