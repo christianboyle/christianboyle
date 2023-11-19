@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWzfXUeUyRwO4Lws-x5LH3Q-t500x500.jpg">](https://soundcloud.com/billain/baka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15wxE6nyMvuzg7DV-wqaWJA-t500x500.jpg">](https://soundcloud.com/gmafiarecords/oldvine-quiet)
 
-**Artist**: Billain 
+**Artist**: G-MAFIA RECORDS 
 
-**Track**: BAKA
+**Track**: Oldvine - Quiet (Original Mix) [G-MAFIA RECORDS]
 
-Last updated at 11/19/2023 09:47
+Last updated at 11/19/2023 11:10
