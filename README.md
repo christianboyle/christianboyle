@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWzfXUeUyRwO4Lws-x5LH3Q-t500x500.jpg">](https://soundcloud.com/billain/baka)
 
-**Artist**: Dirty Workz 
+**Artist**: Billain 
 
-**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
+**Track**: BAKA
 
-Last updated at 11/18/2023 15:22
+Last updated at 11/19/2023 09:47
