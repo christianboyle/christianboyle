@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DFr5QvV80hQjp0za-FCjiQA-t500x500.jpg">](https://soundcloud.com/cosmicbeats/aerial-w-skypierr-x-yaego)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4m65sXzPr6ah7zR-XRJUiw-t500x500.jpg">](https://soundcloud.com/synmusicaz/shook-ones-pt-ii-offmedz-x-sweetboi)
 
-**Artist**: COSMIC 
+**Artist**: Synesthesia Records 
 
-**Track**: AERIAL W/ SKYPIERR X YAEGO
+**Track**: Mobb Deep - Shook Ones Pt. II (OffMedz_ X Sweetboi Remix) [SYNESTHESIA RECORDS]
 
-Last updated at 11/19/2023 11:14
+Last updated at 11/19/2023 11:15
