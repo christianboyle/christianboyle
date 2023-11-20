@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2Od3SrHyiIuBTBs-kdQrNA-t500x500.jpg">](https://soundcloud.com/adamenoise/a-lack-of-conviction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: ADAME 
+**Artist**: Don Drago 
 
-**Track**: A Lack Of Conviction
+**Track**: We Can Go - Don Drago
 
-Last updated at 11/20/2023 13:58
+Last updated at 11/20/2023 13:59
