@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUPWLu46N2QK1kpC-6eoT3Q-t500x500.jpg">](https://soundcloud.com/doktorcross/cross-wake-the-fu-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9HRmty42IlMQ54U2-fnF9Uw-t500x500.jpg">](https://soundcloud.com/subplate/darkyycomet-time-code-subplate-126)
 
-**Artist**: Cross 
+**Artist**: Subplate Recordings 
 
-**Track**: CROSS WAKE THE FU%§ UP
+**Track**: DarKYYComet - Time Code [SUBPLATE-126]
 
-Last updated at 11/19/2023 11:16
+Last updated at 11/20/2023 11:16
