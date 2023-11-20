@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xl4wjrfi4HfESGnF-iIXVkg-t500x500.jpg">](https://soundcloud.com/imkotori/cut-ties)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2Od3SrHyiIuBTBs-kdQrNA-t500x500.jpg">](https://soundcloud.com/adamenoise/a-lack-of-conviction)
 
-**Artist**: Kotori 
+**Artist**: ADAME 
 
-**Track**: Cut Ties (feat. Ginko)
+**Track**: A Lack Of Conviction
 
-Last updated at 11/20/2023 13:28
+Last updated at 11/20/2023 13:58
