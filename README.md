@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4G1Fvfuchql-0-t500x500.png">](https://soundcloud.com/dj4b/haunted-1)
 
-**Artist**: Don Drago 
+**Artist**: 4B 
 
-**Track**: We Can Go - Don Drago
+**Track**: 4B - Haunted
 
-Last updated at 11/20/2023 13:59
+Last updated at 11/20/2023 14:01
