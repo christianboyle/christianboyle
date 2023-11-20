@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iik0JzOfEvM5S9ox-0bObng-t500x500.jpg">](https://soundcloud.com/chasethesoundrec/dranxx-the-jibryy-bright-euphoria-blake-hills-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit)
 
-**Artist**: Chase the Sound 
+**Artist**: L3NNY 
 
-**Track**: Dranxx & The Jibryy - Bright Euphoria (Blake Hills Remix) [Buy - for free download]
+**Track**: Takeoff - Last Memory (L3NNY EDIT)
 
-Last updated at 11/20/2023 13:21
+Last updated at 11/20/2023 13:27
