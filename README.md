@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4G1Fvfuchql-0-t500x500.png">](https://soundcloud.com/dj4b/haunted-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SaUy6zY4brQCq3BN-YtaEyg-t500x500.jpg">](https://soundcloud.com/darn84/eye-opener-open-your-eyes-re)
 
-**Artist**: 4B 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: 4B - Haunted
+**Track**: Eye Opener - Open Your Eyes (Re-Con Remix) - Unreleased (2005)
 
-Last updated at 11/20/2023 14:01
+Last updated at 11/20/2023 15:19
