@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9HRmty42IlMQ54U2-fnF9Uw-t500x500.jpg">](https://soundcloud.com/subplate/darkyycomet-time-code-subplate-126)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iik0JzOfEvM5S9ox-0bObng-t500x500.jpg">](https://soundcloud.com/chasethesoundrec/dranxx-the-jibryy-bright-euphoria-blake-hills-remix)
 
-**Artist**: Subplate Recordings 
+**Artist**: Chase the Sound 
 
-**Track**: DarKYYComet - Time Code [SUBPLATE-126]
+**Track**: Dranxx & The Jibryy - Bright Euphoria (Blake Hills Remix) [Buy - for free download]
 
-Last updated at 11/20/2023 11:16
+Last updated at 11/20/2023 13:21
