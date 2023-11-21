@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit?in=saxurn/sets/walks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Apqm22PKmOHzR6HQ-COFIaw-t500x500.jpg">](https://soundcloud.com/variablebass/black-atoll-1)
 
-**Artist**: L3NNY 
+**Artist**: Variable 
 
-**Track**: Takeoff - Last Memory (L3NNY EDIT)
+**Track**: Black Atoll
 
-Last updated at 11/21/2023 16:28
+Last updated at 11/21/2023 16:30
