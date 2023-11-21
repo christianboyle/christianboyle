@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Lw6BgCudv3tqlSD-sMLaVQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/sr8-noscope-kushface-x-katebi-unreleased)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPTQ7HaDQtyOQKNQ-VAe5uA-t500x500.jpg">](https://soundcloud.com/bkbeats/sf005)
 
-**Artist**: kushface ☤ 
+**Artist**: bk beats 
 
-**Track**: SR8 NOSCOPE (KUSHFACE x KATEBI) **UNRELEASED**
+**Track**: special favorite 005 set
 
-Last updated at 11/21/2023 08:34
+Last updated at 11/21/2023 08:35
