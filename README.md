@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XOr2wMx7YRyAgaO-fCYHrw-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-my-happy-ending-hardstyle-remix?in=saxurn/sets/toxgiving)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox?in=saxurn/sets/toxgiving)
 
-**Artist**: Luca Testa 
+**Artist**: Dirty Workz 
 
-**Track**: Luca Testa - My Happy Ending [Hardstyle Remix]
+**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
 
-Last updated at 11/21/2023 13:57
+Last updated at 11/21/2023 14:00
