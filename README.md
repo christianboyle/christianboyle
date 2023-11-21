@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyPmluYRijowI998-LjDpsw-t500x500.jpg">](https://soundcloud.com/luca-t-1/da-brozz-x-luca-testa-x-hitak-tik-tok-hardstyle-remix?in=saxurn/sets/toxgiving)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6RmRC6bcisv-0-t500x500.jpg">](https://soundcloud.com/axmomusic/love-core?in=saxurn/sets/toxgiving)
 
-**Artist**: Luca Testa 
+**Artist**: AXMO 
 
-**Track**: Da Brozz x Luca Testa x Hitak x Bomber - Tik Tok [Hyper Techno Remix]
+**Track**: Love Core
 
-Last updated at 11/21/2023 13:38
+Last updated at 11/21/2023 13:41
