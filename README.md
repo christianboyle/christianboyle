@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MmjdsncdEGUEkGFo-HgdEIg-t500x500.jpg">](https://soundcloud.com/bvrnout/the-1975-somebody-else-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fcn3dXKko0Gw-0-t500x500.jpg">](https://soundcloud.com/weareepb/hot-one-electric-polar-bears)
 
-**Artist**: BVRNOUT 
+**Artist**: Electric Polar Bears 
 
-**Track**: The 1975 - Somebody Else (BVRNOUT Remix)
+**Track**: Hot One (Electric Polar Bears Remix) [feat. Paris Hilton]
 
-Last updated at 11/21/2023 08:32
+Last updated at 11/21/2023 08:33
