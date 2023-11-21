@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox?in=saxurn/sets/toxgiving)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit?in=saxurn/sets/walks)
 
-**Artist**: Dirty Workz 
+**Artist**: L3NNY 
 
-**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
+**Track**: Takeoff - Last Memory (L3NNY EDIT)
 
-Last updated at 11/21/2023 14:00
+Last updated at 11/21/2023 16:28
