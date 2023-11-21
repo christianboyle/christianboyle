@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bQycKk2Gbw3sdhNs-vhdhaw-t500x500.jpg">](https://soundcloud.com/m-y-n-r-g-y/dj-travella-crazy-beat-music-umeme-1-mynrgy-r3m1x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvCyWi9tkzs3tZPP-acp5Hg-t500x500.jpg">](https://soundcloud.com/candyflip030/belavie-nto-1711)
 
-**Artist**: MYNRGY 
+**Artist**: candyflip030 
 
-**Track**: DJ Travella - Crazy Beat Music Umeme 1 [MYNRGY RĒMĪX]
+**Track**: FLIP004: BÉLAVIE @ re:mise closing
 
-Last updated at 11/21/2023 08:21
+Last updated at 11/21/2023 08:22
