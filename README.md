@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBo3ShMHZzD6xSpp-nVsLTw-t500x500.jpg">](https://soundcloud.com/dj-colin-bell/classic-90s-hard-trance-vol7-vinyl-only-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MmjdsncdEGUEkGFo-HgdEIg-t500x500.jpg">](https://soundcloud.com/bvrnout/the-1975-somebody-else-bvrnout-remix)
 
-**Artist**: DJ Colin Bell 
+**Artist**: BVRNOUT 
 
-**Track**: Classic 90's Hard Trance Vol.7 - Vinyl Only Mix
+**Track**: The 1975 - Somebody Else (BVRNOUT Remix)
 
-Last updated at 11/21/2023 08:31
+Last updated at 11/21/2023 08:32
