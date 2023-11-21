@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fcn3dXKko0Gw-0-t500x500.jpg">](https://soundcloud.com/weareepb/hot-one-electric-polar-bears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Lw6BgCudv3tqlSD-sMLaVQ-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/sr8-noscope-kushface-x-katebi-unreleased)
 
-**Artist**: Electric Polar Bears 
+**Artist**: kushface ☤ 
 
-**Track**: Hot One (Electric Polar Bears Remix) [feat. Paris Hilton]
+**Track**: SR8 NOSCOPE (KUSHFACE x KATEBI) **UNRELEASED**
 
-Last updated at 11/21/2023 08:33
+Last updated at 11/21/2023 08:34
