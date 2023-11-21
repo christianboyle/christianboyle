@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NV7ylo2ryt9Xk3Ov-Kl53zQ-t500x500.jpg">](https://soundcloud.com/iphigen/lovr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPTQ7HaDQtyOQKNQ-VAe5uA-t500x500.jpg">](https://soundcloud.com/bkbeats/sf005)
 
-**Artist**: iphi 
+**Artist**: bk beats 
 
-**Track**: lov-r (braincoat, iph)
+**Track**: special favorite 005 set
 
-Last updated at 11/21/2023 11:45
+Last updated at 11/21/2023 11:54
