@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvCyWi9tkzs3tZPP-acp5Hg-t500x500.jpg">](https://soundcloud.com/candyflip030/belavie-nto-1711)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVE5EBT6IEfwdvJZ-EIzHYg-t500x500.jpg">](https://soundcloud.com/darn84/darren-styles-b2b-gammer-mc)
 
-**Artist**: candyflip030 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: FLIP004: BÉLAVIE @ re:mise closing
+**Track**: Darren Styles B2B Gammer & MC Storm & Whizzkid @ HH Awards 2013 (06/12/2013)
 
-Last updated at 11/21/2023 08:22
+Last updated at 11/21/2023 08:26
