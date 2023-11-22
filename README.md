@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U7Y4IdFmf8MmjtO0-TegCJQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/inner-shadows-rising-sun-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoiFg6P7Mzre7xWQ-t3vtnA-t500x500.jpg">](https://soundcloud.com/p3pper/rustie-444sure-p3pper-flip?in=p3pper/sets/14kzxshkgbxd)
 
-**Artist**: Dirty Workz 
+**Artist**: P3PPER 
 
-**Track**: Inner Shadows - Rising Sun (DWX Copyright Free)
+**Track**: Rustie - 444sure (P3PPER flip)
 
-Last updated at 11/22/2023 10:00
+Last updated at 11/22/2023 10:02
