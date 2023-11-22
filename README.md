@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoiFg6P7Mzre7xWQ-t3vtnA-t500x500.jpg">](https://soundcloud.com/p3pper/rustie-444sure-p3pper-flip?in=p3pper/sets/14kzxshkgbxd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZnKXMDwmyHnS8L-2q7i5Q-t500x500.jpg">](https://soundcloud.com/dreambay/moty-remix)
 
-**Artist**: P3PPER 
+**Artist**: DREAMBAY. 
 
-**Track**: Rustie - 444sure (P3PPER flip)
+**Track**: ScHoolboy Q - MAN OF THE YEAR (DREAMBAY REMIX) [FREE DOWNLOAD]
 
-Last updated at 11/22/2023 10:02
+Last updated at 11/22/2023 10:03
