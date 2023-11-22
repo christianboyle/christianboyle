@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nrWr7l4t5BhtTiIC-WyIM4g-t500x500.jpg">](https://soundcloud.com/kasra-critical/kasra-x-gardna-spaceman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRpbySKWvJZwOUJP-vikrbA-t500x500.jpg">](https://soundcloud.com/justicehardcore/soalive)
 
-**Artist**: Kasra Critical 
+**Artist**: Justice Hardcore 
 
-**Track**: Kasra x Gardna - Spaceman
+**Track**: Ryzern - So Alive (OUT NOW)
 
-Last updated at 11/22/2023 09:23
+Last updated at 11/22/2023 09:56
