@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0USioQJI9oWayKyt-MSY26g-t500x500.jpg">](https://soundcloud.com/sprinkk/hurts-me-remix-v5-playable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHj5BzmywikUz9Ss-UI075A-t500x500.jpg">](https://soundcloud.com/open-minded-music-nl/omm-showcase-mix-episode-16)
 
-**Artist**: SPRINKK 
+**Artist**: Open Minded Music 
 
-**Track**: Tory Lanez - Hurts Me (SPRINKK REMIX) [FREE DOWNLOAD]
+**Track**: OMM Showcase Mix | Episode 16
 
-Last updated at 11/22/2023 10:05
+Last updated at 11/22/2023 10:08
