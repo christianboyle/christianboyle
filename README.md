@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZnKXMDwmyHnS8L-2q7i5Q-t500x500.jpg">](https://soundcloud.com/dreambay/moty-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0USioQJI9oWayKyt-MSY26g-t500x500.jpg">](https://soundcloud.com/sprinkk/hurts-me-remix-v5-playable)
 
-**Artist**: DREAMBAY. 
+**Artist**: SPRINKK 
 
-**Track**: ScHoolboy Q - MAN OF THE YEAR (DREAMBAY REMIX) [FREE DOWNLOAD]
+**Track**: Tory Lanez - Hurts Me (SPRINKK REMIX) [FREE DOWNLOAD]
 
-Last updated at 11/22/2023 10:03
+Last updated at 11/22/2023 10:05
