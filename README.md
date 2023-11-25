@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHj5BzmywikUz9Ss-UI075A-t500x500.jpg">](https://soundcloud.com/open-minded-music-nl/omm-showcase-mix-episode-16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSP0k42TjVyRyJbg-q88Vwg-t500x500.jpg">](https://soundcloud.com/darn84/eclipse-be-happy-next)
 
-**Artist**: Open Minded Music 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: OMM Showcase Mix | Episode 16
+**Track**: Eclipse - Be Happy - Next Generation (2005)
 
-Last updated at 11/22/2023 10:08
+Last updated at 11/25/2023 11:34
