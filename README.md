@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Po08dBAKRr1uJZ80-Da1hXw-t500x500.jpg">](https://soundcloud.com/gmafiarecords/dj-b-lost-lie-to-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8LYOsRVvXnsNwgU-5JtrDQ-t500x500.jpg">](https://soundcloud.com/vital-viper/house-music-mix-by-dj-vital-viper-2023)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Vital Viper 🐍 
 
-**Track**: DJ B - LOST - Lie To Me (Original Mix)[G-MAFIA RECORDS]
+**Track**: Vital Viper's House Vibes 🎶 feat. MK, Camelphat, & More! 🔥
 
-Last updated at 11/25/2023 11:38
+Last updated at 11/25/2023 11:39
