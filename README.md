@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oscUuwBFdH0PyfYL-AB5T0g-t500x500.jpg">](https://soundcloud.com/lofreqrecords/tobacco-rat-bassquake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjGJQKnEq3d72MEm-IVKKvw-t500x500.jpg">](https://soundcloud.com/ancitydeep/luzyon-modern?in=claytontorre/sets/luzyon-modern-free-dl)
 
-**Artist**: LoFreq 
+**Artist**: Ancity Techno 
 
-**Track**: Tobacco Rat - Bassquake
+**Track**: Luzyon - Modern [FREE DL]
 
-Last updated at 11/26/2023 08:48
+Last updated at 11/26/2023 08:49
