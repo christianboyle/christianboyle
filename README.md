@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMH7z1GSXAsKlPmp-X0VTMg-t500x500.jpg">](https://soundcloud.com/bloomedm/streetspirit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyC2Hb20U26HLGmu-iDBH3A-t500x500.jpg">](https://soundcloud.com/speedmasterrecords/dj-feeltoomuch-massagio-beyond)
 
-**Artist**: Lofi Pet Records 
+**Artist**: Speedmaster Records 
 
-**Track**: GLowBrain - Street Spirit [Lofi Pet Records]
+**Track**: DJ FEELTOOMUCH & Massagio - Beyond
 
-Last updated at 11/26/2023 09:31
+Last updated at 11/26/2023 09:32
