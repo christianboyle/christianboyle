@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Apqm22PKmOHzR6HQ-COFIaw-t500x500.jpg">](https://soundcloud.com/variablebass/the-steppes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHY8tXqIL3KdQELh-oEISTA-t500x500.jpg">](https://soundcloud.com/adamenoise/the-sentence)
 
-**Artist**: Variable 
+**Artist**: ADAME 
 
-**Track**: The Steppes
+**Track**: The Sentence
 
-Last updated at 11/26/2023 09:33
+Last updated at 11/26/2023 09:34
