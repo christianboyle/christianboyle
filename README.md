@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozFUHXrNZ4arnj2M-T59klQ-t500x500.jpg">](https://soundcloud.com/cure97/3lokos)
 
-**Artist**: NEW BEAT ORDER 
+**Artist**: CURE97 
 
-**Track**: Beautiful People
+**Track**: Coyote & Shaquille O-'Neal - 3 Lokos (CURED BY CURE97)
 
-Last updated at 11/25/2023 12:00
+Last updated at 11/26/2023 08:00
