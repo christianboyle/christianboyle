@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAEBplwBl4IjBCrg-OayeLw-t500x500.jpg">](https://soundcloud.com/variofficial/node)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oscUuwBFdH0PyfYL-AB5T0g-t500x500.jpg">](https://soundcloud.com/lofreqrecords/tobacco-rat-bassquake)
 
-**Artist**: VARI 
+**Artist**: LoFreq 
 
-**Track**: NODE [ID MIX]
+**Track**: Tobacco Rat - Bassquake
 
-Last updated at 11/26/2023 08:06
+Last updated at 11/26/2023 08:48
