@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozFUHXrNZ4arnj2M-T59klQ-t500x500.jpg">](https://soundcloud.com/cure97/3lokos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o7QKloPLXcSDD1LU-WS8HFw-t500x500.jpg">](https://soundcloud.com/artifactsounds/svdden-death-rise-artifact-flip)
 
-**Artist**: CURE97 
+**Artist**: ARTIFACT 
 
-**Track**: Coyote & Shaquille O-'Neal - 3 Lokos (CURED BY CURE97)
+**Track**: SVDDEN DEATH - RISE (ARTIFACT FLIP)
 
-Last updated at 11/26/2023 08:00
+Last updated at 11/26/2023 08:01
