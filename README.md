@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6FLtnKGkb5t36Ez-DpCKMA-t500x500.jpg">](https://soundcloud.com/hate_music/specific-objects-hate-podcast-361)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tATymdiQbVuuQvyT-mR7w1A-t500x500.jpg">](https://soundcloud.com/dutchmasterworks/skush-jade-key-one-more-time)
 
-**Artist**: HATE 
+**Artist**: Dutch Master Works 
 
-**Track**: Specific Objects - HATE Podcast 361
+**Track**: Skush, Jade Key - One More Time
 
-Last updated at 11/26/2023 08:02
+Last updated at 11/26/2023 08:05
