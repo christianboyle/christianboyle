@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nrdeVcSdjSsEjcri-iJdKEw-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/music-kuts-podcast-5-fracus-darwin-november-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
 
-**Artist**: Fracus & Darwin 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: Music Kuts Podcast 5 - Fracus & Darwin (November 2023)
+**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
 
-Last updated at 11/27/2023 11:56
+Last updated at 11/27/2023 12:49
