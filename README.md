@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQOzFjIbyaukAnEy-HuObYA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/tripulse-scattered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NyVJezXlrtPNiJe-isPOsQ-t500x500.jpg">](https://soundcloud.com/djheartstring/charli-xcx-sam-smith-in-the-city-dj-heartstring-remix)
 
-**Artist**: THE GOBLINS LAIR 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: Tripulse - Scattered
+**Track**: Charli XCX & Sam Smith - In The City (DJ HEARTSTRING Remix)
 
-Last updated at 11/27/2023 12:55
+Last updated at 11/27/2023 12:56
