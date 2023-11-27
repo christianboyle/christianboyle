@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmCpFAtiMiUh8yts-ouDrEg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/3-dyslecta-annihilate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKsIZXrR7YnGQUyw-iSltPw-t500x500.jpg">](https://soundcloud.com/macyofficial/work-it-radio-edit)
 
-**Artist**: Scuffed Recordings 
+**Artist**: MACY Official 
 
-**Track**: Dyslecta - Annihilate
+**Track**: Work It (Radio Edit)
 
-Last updated at 11/27/2023 11:52
+Last updated at 11/27/2023 11:54
