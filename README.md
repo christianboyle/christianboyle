@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NyVJezXlrtPNiJe-isPOsQ-t500x500.jpg">](https://soundcloud.com/djheartstring/charli-xcx-sam-smith-in-the-city-dj-heartstring-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWGmF3AJ1BkOqc0E-dphEaQ-t500x500.jpg">](https://soundcloud.com/djheartstring/dj-heartstring-bbc-radio-1-essential-mix)
 
 **Artist**: DJ HEARTSTRING 
 
-**Track**: Charli XCX & Sam Smith - In The City (DJ HEARTSTRING Remix)
+**Track**: DJ HEARTSTRING - BBC Radio 1 Essential Mix
 
-Last updated at 11/27/2023 12:56
+Last updated at 11/27/2023 12:58
