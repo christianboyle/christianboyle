@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHY8tXqIL3KdQELh-oEISTA-t500x500.jpg">](https://soundcloud.com/adamenoise/the-sentence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmCpFAtiMiUh8yts-ouDrEg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/3-dyslecta-annihilate)
 
-**Artist**: ADAME 
+**Artist**: Scuffed Recordings 
 
-**Track**: The Sentence
+**Track**: Dyslecta - Annihilate
 
-Last updated at 11/26/2023 09:34
+Last updated at 11/27/2023 11:52
