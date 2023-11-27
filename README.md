@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rKsIZXrR7YnGQUyw-iSltPw-t500x500.jpg">](https://soundcloud.com/macyofficial/work-it-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J60OVxECNu1OWhqi-FyCuNw-t500x500.jpg">](https://soundcloud.com/zettatunes/skinandbones)
 
-**Artist**: MACY Official 
+**Artist**: ZETTA 
 
-**Track**: Work It (Radio Edit)
+**Track**: ZETTA, ANELAY - SKIN&BONES
 
-Last updated at 11/27/2023 11:54
+Last updated at 11/27/2023 11:55
