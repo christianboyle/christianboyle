@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQOzFjIbyaukAnEy-HuObYA-t500x500.jpg">](https://soundcloud.com/thegoblinslair/tripulse-scattered)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: THE GOBLINS LAIR 
 
-**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
+**Track**: Tripulse - Scattered
 
-Last updated at 11/27/2023 12:49
+Last updated at 11/27/2023 12:55
