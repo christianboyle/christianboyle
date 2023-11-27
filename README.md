@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J60OVxECNu1OWhqi-FyCuNw-t500x500.jpg">](https://soundcloud.com/zettatunes/skinandbones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nrdeVcSdjSsEjcri-iJdKEw-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/music-kuts-podcast-5-fracus-darwin-november-2023)
 
-**Artist**: ZETTA 
+**Artist**: Fracus & Darwin 
 
-**Track**: ZETTA, ANELAY - SKIN&BONES
+**Track**: Music Kuts Podcast 5 - Fracus & Darwin (November 2023)
 
-Last updated at 11/27/2023 11:55
+Last updated at 11/27/2023 11:56
