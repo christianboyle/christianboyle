@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djmvUV6Vyn8dXnyu-NzlgfQ-t500x500.jpg">](https://soundcloud.com/houseviewsmusic/wastemytime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oS18WcvpQXHpWZtj-bjgiug-t500x500.jpg">](https://soundcloud.com/neeksnbrandt/calvin-harris-summer-neeks-n)
 
-**Artist**: HOUSE VIEWS. 
+**Artist**: NEEKS N BRANDT 
 
-**Track**: WAND7R - Waste My Time
+**Track**: Calvin Harris - Summer (NEEKS N BRANDT Remix)
 
-Last updated at 11/28/2023 08:31
+Last updated at 11/28/2023 08:33
