@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5vzBB3X39C9UUWN-NUhuZQ-t500x500.jpg">](https://soundcloud.com/phaseyy/summer)
 
-**Artist**: L3NNY 
+**Artist**: Phasey 
 
-**Track**: Takeoff - Last Memory (L3NNY EDIT)
+**Track**: SUMMER
 
-Last updated at 11/28/2023 14:09
+Last updated at 11/28/2023 14:14
