@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BpzNbAzzmzIk-0-t500x500.jpg">](https://soundcloud.com/takeoffofficialmusic/last-memory)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: Takeoff 
 
-**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
+**Track**: Last Memory
 
-Last updated at 11/28/2023 13:59
+Last updated at 11/28/2023 14:08
