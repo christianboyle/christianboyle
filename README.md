@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HhJ4C7xqSqzlXqgw-Z1ufVw-t500x500.jpg">](https://soundcloud.com/terminalvfest/funk-tribu-ice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QS6nmboRDKZ7kBRK-LyKCmQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/kelis-milkshake-pizzata-klein-remix)
 
-**Artist**: Terminal V 
+**Artist**: Best House Remixes 
 
-**Track**: Funk Tribu - ICE [TVR008]
+**Track**: Kelis - Milkshake (Pizzata & Klein Remix)
 
-Last updated at 11/28/2023 08:14
+Last updated at 11/28/2023 08:15
