@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7iAidazTq43bQifM-cvfiTA-t500x500.jpg">](https://soundcloud.com/zerot/zero-t-snb2023-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ah8TmsBonpRgzNC-FjyQFA-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/comisar-encounter)
 
-**Artist**: Zero T 
+**Artist**: Wormhole Music Group 
 
-**Track**: Zero T SNB2023 Live Set
+**Track**: Comisar - Encounter
 
-Last updated at 11/28/2023 09:00
+Last updated at 11/28/2023 09:01
