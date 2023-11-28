@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoiFg6P7Mzre7xWQ-t3vtnA-t500x500.jpg">](https://soundcloud.com/p3pper/rustie-444sure-p3pper-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bJIEFNooCiXCYdx-hzlSCg-t500x500.jpg">](https://soundcloud.com/ssssombra/xio3)
 
-**Artist**: P3PPER 
+**Artist**: sombra 
 
-**Track**: Rustie - 444sure (P3PPER flip)
+**Track**: xio3
 
-Last updated at 11/28/2023 12:32
+Last updated at 11/28/2023 12:35
