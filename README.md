@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3nCVAhtKSUPqiLqz-pY9Zdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tatsunoshin-aurede-want-you-close-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Ws4rOGgyIHoMNVb-fQKDdw-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/premiere-monibi-mahsa-amini-w133)
 
-**Artist**: Dirty Workz 
+**Artist**: Rhythmic Culture 
 
-**Track**: Tatsunoshin & Aurede - Want You Close (Electric Fox)
+**Track**: Premiere: Monibi - Mahsa Amini | W133
 
-Last updated at 11/28/2023 07:05
+Last updated at 11/28/2023 07:06
