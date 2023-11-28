@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
 
-**Artist**: NEW BEAT ORDER 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: Beautiful People
+**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
 
-Last updated at 11/28/2023 13:56
+Last updated at 11/28/2023 13:59
