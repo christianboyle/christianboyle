@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bJIEFNooCiXCYdx-hzlSCg-t500x500.jpg">](https://soundcloud.com/ssssombra/xio3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
 
-**Artist**: sombra 
+**Artist**: NEW BEAT ORDER 
 
-**Track**: xio3
+**Track**: Beautiful People
 
-Last updated at 11/28/2023 11:42
+Last updated at 11/28/2023 12:27
