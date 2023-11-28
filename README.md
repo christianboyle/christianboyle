@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmCpFAtiMiUh8yts-ouDrEg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/3-dyslecta-annihilate)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: Scuffed Recordings 
 
-**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
+**Track**: Dyslecta - Annihilate
 
-Last updated at 11/28/2023 15:27
+Last updated at 11/28/2023 15:33
