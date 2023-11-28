@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5vzBB3X39C9UUWN-NUhuZQ-t500x500.jpg">](https://soundcloud.com/phaseyy/summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
 
-**Artist**: Phasey 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: SUMMER
+**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
 
-Last updated at 11/28/2023 14:14
+Last updated at 11/28/2023 15:27
