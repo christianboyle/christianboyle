@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWGmF3AJ1BkOqc0E-dphEaQ-t500x500.jpg">](https://soundcloud.com/djheartstring/dj-heartstring-bbc-radio-1-essential-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dimOnqw6dCBJW6zh-Hrfwjg-t500x500.jpg">](https://soundcloud.com/palpapalpa/activ8)
 
-**Artist**: DJ HEARTSTRING 
+**Artist**: Palpa 
 
-**Track**: DJ HEARTSTRING - BBC Radio 1 Essential Mix
+**Track**: activ8
 
-Last updated at 11/27/2023 12:58
+Last updated at 11/28/2023 07:03
