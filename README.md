@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLZHi0Or0sZtZ1OI-RvmjHA-t500x500.jpg">](https://soundcloud.com/masonexclamation/trial-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7zKcSQJyeBMv6mZ5-n7T8Hw-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/medium-the-pledge)
 
-**Artist**: MASON! 
+**Artist**: Forbidden Frequencies 
 
-**Track**: COIN - Talk Too Much (MASON! Remix)
+**Track**: Medium - The Pledge
 
-Last updated at 11/28/2023 08:58
+Last updated at 11/28/2023 08:59
