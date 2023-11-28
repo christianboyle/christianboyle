@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okjBcuV5tUeBUAqc-ZllPhA-t500x500.jpg">](https://soundcloud.com/marlomusic/altitude-radio-episode-134)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLZHi0Or0sZtZ1OI-RvmjHA-t500x500.jpg">](https://soundcloud.com/masonexclamation/trial-2)
 
-**Artist**: MaRLo 
+**Artist**: MASON! 
 
-**Track**: Altitude Radio - Episode #134
+**Track**: COIN - Talk Too Much (MASON! Remix)
 
-Last updated at 11/28/2023 08:45
+Last updated at 11/28/2023 08:58
