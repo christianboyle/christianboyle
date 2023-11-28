@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyC2Hb20U26HLGmu-iDBH3A-t500x500.jpg">](https://soundcloud.com/speedmasterrecords/dj-feeltoomuch-massagio-beyond)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
 
-**Artist**: Speedmaster Records 
+**Artist**: NEW BEAT ORDER 
 
-**Track**: DJ FEELTOOMUCH & Massagio - Beyond
+**Track**: Beautiful People
 
-Last updated at 11/28/2023 11:29
+Last updated at 11/28/2023 11:34
