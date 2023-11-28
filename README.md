@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GX1mFnSr2zt4TAbQ-rPVaBg-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-467)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NyVJezXlrtPNiJe-isPOsQ-t500x500.jpg">](https://soundcloud.com/djheartstring/charli-xcx-sam-smith-in-the-city-dj-heartstring-remix)
 
-**Artist**: Dj EZC 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: Hardcore Will Never Die Episode 467
+**Track**: Charli XCX & Sam Smith - In The City (DJ HEARTSTRING Remix)
 
-Last updated at 11/28/2023 09:04
+Last updated at 11/28/2023 09:41
