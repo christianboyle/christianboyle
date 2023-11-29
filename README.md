@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIjf0IxmnDK4eyEk-zgteBA-t500x500.jpg">](https://soundcloud.com/neo_trance/promo-emo-rollercoaster-shine-bright)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LhnK745TwOD6zr7H-zT6QNw-t500x500.jpg">](https://soundcloud.com/candyflip030/antonym-candyflip-1811)
 
-**Artist**: NEOTRANCE 
+**Artist**: candyflip030 
 
-**Track**: [PROMO] Emo Rollercoaster - Shine Bright
+**Track**: FLIP005: ANTONYM @ candyflip
 
-Last updated at 11/29/2023 06:29
+Last updated at 11/29/2023 06:35
