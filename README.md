@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CuwkibHw60lQ4Oh7-zpzNQw-t500x500.jpg">](https://soundcloud.com/christian-krauter-1/voodoo-acid-ritual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIjf0IxmnDK4eyEk-zgteBA-t500x500.jpg">](https://soundcloud.com/neo_trance/promo-emo-rollercoaster-shine-bright)
 
-**Artist**: Christian Krauter 
+**Artist**: NEOTRANCE 
 
-**Track**: Voodoo Acid Ritual
+**Track**: [PROMO] Emo Rollercoaster - Shine Bright
 
-Last updated at 11/29/2023 06:28
+Last updated at 11/29/2023 06:29
