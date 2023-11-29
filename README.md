@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CuwkibHw60lQ4Oh7-zpzNQw-t500x500.jpg">](https://soundcloud.com/christian-krauter-1/voodoo-acid-ritual)
 
-**Artist**: NEW BEAT ORDER 
+**Artist**: Christian Krauter 
 
-**Track**: Beautiful People
+**Track**: Voodoo Acid Ritual
 
-Last updated at 11/28/2023 15:47
+Last updated at 11/29/2023 06:28
