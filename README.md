@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoiFg6P7Mzre7xWQ-t3vtnA-t500x500.jpg">](https://soundcloud.com/p3pper/rustie-444sure-p3pper-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
 
-**Artist**: P3PPER 
+**Artist**: Dirty Workz 
 
-**Track**: Rustie - 444sure (P3PPER flip)
+**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
 
-Last updated at 11/29/2023 12:00
+Last updated at 11/29/2023 12:01
