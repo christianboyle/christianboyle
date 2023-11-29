@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: L3NNY 
 
-**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
+**Track**: Takeoff - Last Memory (L3NNY EDIT)
 
-Last updated at 11/29/2023 10:42
+Last updated at 11/29/2023 10:43
