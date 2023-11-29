@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2Od3SrHyiIuBTBs-kdQrNA-t500x500.jpg">](https://soundcloud.com/adamenoise/a-lack-of-conviction)
 
-**Artist**: L3NNY 
+**Artist**: ADAME 
 
-**Track**: Takeoff - Last Memory (L3NNY EDIT)
+**Track**: A Lack Of Conviction
 
-Last updated at 11/29/2023 14:16
+Last updated at 11/29/2023 14:19
