@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U3i8S2Ib8hsQF5sl-dQviJA-t500x500.jpg">](https://soundcloud.com/sablevalley/let-you-go-lizdek-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SaUy6zY4brQCq3BN-YtaEyg-t500x500.jpg">](https://soundcloud.com/darn84/eye-opener-open-your-eyes-re)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Pauline Herr - Let You Go (Lizdek Remix)
+**Track**: Eye Opener - Open Your Eyes (Re-Con Remix) - Unreleased (2005)
 
-Last updated at 11/29/2023 14:06
+Last updated at 11/29/2023 14:10
