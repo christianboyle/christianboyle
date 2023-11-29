@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHwBwvihhiYjZO5N-9Ui9dA-t500x500.jpg">](https://soundcloud.com/slagwerk/bambinodj-high-as-ever-still)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: Slagwerk 
+**Artist**: Don Drago 
 
-**Track**: bambinodj - High As Ever Still Passin' Through (Remix)
+**Track**: We Can Go - Don Drago
 
-Last updated at 11/29/2023 14:25
+Last updated at 11/29/2023 14:31
