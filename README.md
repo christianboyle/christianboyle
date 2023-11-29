@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LhnK745TwOD6zr7H-zT6QNw-t500x500.jpg">](https://soundcloud.com/candyflip030/antonym-candyflip-1811)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MPZIEd1PmU6eC9aj-lRl0Aw-t500x500.jpg">](https://soundcloud.com/purityleech/beats-like)
 
-**Artist**: candyflip030 
+**Artist**: purityleech 
 
-**Track**: FLIP005: ANTONYM @ candyflip
+**Track**: my <3 beats like a
 
-Last updated at 11/29/2023 06:35
+Last updated at 11/29/2023 06:36
