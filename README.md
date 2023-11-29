@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZLqdIeon0h7H3K1-cft0Mw-t500x500.jpg">](https://soundcloud.com/karl-guapo/takeoff-last-memory-l3nny-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viVvofERTinDJIcM-kzRyag-t500x500.jpg">](https://soundcloud.com/monstercat/slippy-darby-take-2)
 
-**Artist**: L3NNY 
+**Artist**: Monstercat 
 
-**Track**: Takeoff - Last Memory (L3NNY EDIT)
+**Track**: Slippy & Darby - Take 2
 
-Last updated at 11/29/2023 10:43
+Last updated at 11/29/2023 10:45
