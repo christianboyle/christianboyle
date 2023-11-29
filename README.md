@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viVvofERTinDJIcM-kzRyag-t500x500.jpg">](https://soundcloud.com/monstercat/slippy-darby-take-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
 
-**Artist**: Monstercat 
+**Artist**: NEW BEAT ORDER 
 
-**Track**: Slippy & Darby - Take 2
+**Track**: Beautiful People
 
-Last updated at 11/29/2023 10:45
+Last updated at 11/29/2023 10:46
