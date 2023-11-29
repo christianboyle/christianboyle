@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-SaUy6zY4brQCq3BN-YtaEyg-t500x500.jpg">](https://soundcloud.com/darn84/eye-opener-open-your-eyes-re)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TPjbNLd1I1I0pHCe-mHu38w-t500x500.jpg">](https://soundcloud.com/scarlettlmitchell/traditional-190bpm-nightcore-mix-high-version)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: DJ Portable Artillery Aimed At A Police Station 
 
-**Track**: Eye Opener - Open Your Eyes (Re-Con Remix) - Unreleased (2005)
+**Track**: Traditional 190bpm Nightcore Mix (High Version)
 
-Last updated at 11/29/2023 14:10
+Last updated at 11/29/2023 14:14
