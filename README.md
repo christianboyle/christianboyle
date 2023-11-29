@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-joWieB2sy3NCPUI0-3Lc8zg-t500x500.jpg">](https://soundcloud.com/kula_1/kula_drum_n_bass_6-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NyVJezXlrtPNiJe-isPOsQ-t500x500.jpg">](https://soundcloud.com/djheartstring/charli-xcx-sam-smith-in-the-city-dj-heartstring-remix)
 
-**Artist**: KULA 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: KULA_Drum_N_Bass_6_
+**Track**: Charli XCX & Sam Smith - In The City (DJ HEARTSTRING Remix)
 
-Last updated at 11/29/2023 06:37
+Last updated at 11/29/2023 10:38
