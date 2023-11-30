@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHgOePcnjWzwSeLt-oGNv2A-t500x500.jpg">](https://soundcloud.com/darn84/sy-fusion-ii-farnborough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5g4PcLJHIl2yCmf5-DGVLmw-t500x500.jpg">](https://soundcloud.com/tomachkamusic/gyngery)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Tomachka 
 
-**Track**: Sy & MC Marley @ Fusion II - Farnborough Recreation Centre (07/05/1994)
+**Track**: Gyngery
 
-Last updated at 11/30/2023 08:44
+Last updated at 11/30/2023 08:52
