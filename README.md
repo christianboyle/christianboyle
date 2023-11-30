@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeKzQnI5old9rP71-7gTAJw-t500x500.jpg">](https://soundcloud.com/ruxxi/high-wedieyoung)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHgOePcnjWzwSeLt-oGNv2A-t500x500.jpg">](https://soundcloud.com/darn84/sy-fusion-ii-farnborough)
 
-**Artist**: Ruxxi 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: High 【F/C WE DIE YOUNG Vol.3】
+**Track**: Sy & MC Marley @ Fusion II - Farnborough Recreation Centre (07/05/1994)
 
-Last updated at 11/30/2023 08:43
+Last updated at 11/30/2023 08:44
