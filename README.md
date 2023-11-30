@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoiFg6P7Mzre7xWQ-t3vtnA-t500x500.jpg">](https://soundcloud.com/p3pper/rustie-444sure-p3pper-flip?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxsxMxRVh9KcjbEe-8T94nQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-isabel-soto-2-mundos-nyxii005)
 
-**Artist**: P3PPER 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: Rustie - 444sure (P3PPER flip)
+**Track**: [PREMIERE] | Isabel Soto - 2 Mundos [NYXII005]
 
-Last updated at 11/30/2023 14:04
+Last updated at 11/30/2023 14:43
