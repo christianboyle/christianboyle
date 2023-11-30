@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byw3NlX7V5XeH8k5-w12uRw-t500x500.jpg">](https://soundcloud.com/sayonara_style/akila)
 
-**Artist**: Don Drago 
+**Artist**: $ayonara. 
 
-**Track**: We Can Go - Don Drago
+**Track**: AKILA.
 
-Last updated at 11/29/2023 14:31
+Last updated at 11/30/2023 08:05
