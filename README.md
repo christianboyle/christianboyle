@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5vzBB3X39C9UUWN-NUhuZQ-t500x500.jpg">](https://soundcloud.com/phaseyy/summer?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NyVJezXlrtPNiJe-isPOsQ-t500x500.jpg">](https://soundcloud.com/djheartstring/charli-xcx-sam-smith-in-the-city-dj-heartstring-remix?in=saxurn/sets/walks/)
 
-**Artist**: Phasey 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: SUMMER
+**Track**: Charli XCX & Sam Smith - In The City (DJ HEARTSTRING Remix)
 
-Last updated at 11/30/2023 13:49
+Last updated at 11/30/2023 13:51
