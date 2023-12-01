@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dimOnqw6dCBJW6zh-Hrfwjg-t500x500.jpg">](https://soundcloud.com/palpapalpa/activ8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wDBz76BzmdPj9EBK-fiQpLg-t500x500.jpg">](https://soundcloud.com/blxkmntn/take-off-everything-remix)
 
-**Artist**: Palpa 
+**Artist**: BLXK MNTN 
 
-**Track**: activ8
+**Track**: Dwells - Take Off Everything (BLXK MNTN Remix)
 
-Last updated at 12/01/2023 10:14
+Last updated at 12/01/2023 10:17
