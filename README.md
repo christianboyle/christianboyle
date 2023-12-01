@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jApZ5KWtLMpzc9E-kTG54w-t500x500.jpg">](https://soundcloud.com/bkbeats/sf005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
 
-**Artist**: bk beats 
+**Artist**: NEW BEAT ORDER 
 
-**Track**: special favorite 005 set
+**Track**: Beautiful People
 
-Last updated at 11/30/2023 15:13
+Last updated at 12/01/2023 09:37
