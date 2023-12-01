@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekbOgsTpXD9mcmKu-PyudEA-t500x500.jpg">](https://soundcloud.com/levianth/mercy-levianth-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCrlbKHXQyOxR8jL-C4G0Ww-t500x500.jpg">](https://soundcloud.com/skankandbass/borders-distress)
 
-**Artist**: Levianth 
+**Artist**: Skankandbass 
 
-**Track**: Mercy (Levianth Edit)
+**Track**: [BORDERS] - Distress
 
-Last updated at 12/01/2023 10:18
+Last updated at 12/01/2023 10:21
