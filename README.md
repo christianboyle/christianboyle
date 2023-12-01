@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JJp1QKxm2Cx0Rqe-KH0Riw-t500x500.jpg">](https://soundcloud.com/y-r-42/ghetto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jApZ5KWtLMpzc9E-kTG54w-t500x500.jpg">](https://soundcloud.com/bkbeats/sf005)
 
-**Artist**: Receipt 
+**Artist**: bk beats 
 
-**Track**: GHETTO
+**Track**: special favorite 005 set
 
-Last updated at 12/01/2023 10:24
+Last updated at 12/01/2023 10:27
