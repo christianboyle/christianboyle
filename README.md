@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TPjbNLd1I1I0pHCe-mHu38w-t500x500.jpg">](https://soundcloud.com/scarlettlmitchell/traditional-190bpm-nightcore-mix-high-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
 
-**Artist**: DJ Portable Artillery Aimed At A Police Station 
+**Artist**: Dirty Workz 
 
-**Track**: Traditional 190bpm Nightcore Mix (High Version)
+**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
 
-Last updated at 12/01/2023 13:02
+Last updated at 12/01/2023 14:51
