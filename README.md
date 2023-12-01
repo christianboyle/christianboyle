@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2Od3SrHyiIuBTBs-kdQrNA-t500x500.jpg">](https://soundcloud.com/adamenoise/a-lack-of-conviction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
 
-**Artist**: ADAME 
+**Artist**: Dirty Workz 
 
-**Track**: A Lack Of Conviction
+**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
 
-Last updated at 12/01/2023 12:38
+Last updated at 12/01/2023 12:41
