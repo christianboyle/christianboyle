@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHwBwvihhiYjZO5N-9Ui9dA-t500x500.jpg">](https://soundcloud.com/slagwerk/bambinodj-high-as-ever-still)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVCCWRtYtGRIuGpP-btNEXg-t500x500.jpg">](https://soundcloud.com/atcg_music/california-gurls-take-me-high-atcg-mash-up)
 
-**Artist**: Slagwerk 
+**Artist**: ATCG 
 
-**Track**: bambinodj - High As Ever Still Passin' Through (Remix)
+**Track**: CALIFORNIA GURLS TAKE ME HIGH (ATCG MASH UP)
 
-Last updated at 12/01/2023 12:44
+Last updated at 12/01/2023 12:50
