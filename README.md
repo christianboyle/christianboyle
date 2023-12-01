@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ejytLGYLAquVwNy-7qOJ7g-t500x500.jpg">](https://soundcloud.com/welovetunamelt/upndown)
 
-**Artist**: NEW BEAT ORDER 
+**Artist**: Tuna Melt 
 
-**Track**: Beautiful People
+**Track**: The Chainsmokers x 347aidan - Up & Down (Tuna Melt Remix)
 
-Last updated at 12/01/2023 09:37
+Last updated at 12/01/2023 09:40
