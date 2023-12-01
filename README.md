@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVDKdyRzBhYhH1xD-3bKz2g-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-ft-eirik-naess-one-day-left-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHwBwvihhiYjZO5N-9Ui9dA-t500x500.jpg">](https://soundcloud.com/slagwerk/bambinodj-high-as-ever-still)
 
-**Artist**: Dirty Workz 
+**Artist**: Slagwerk 
 
-**Track**: Tweekacore ft. Eirik Næss - One Day Left (Electric Fox)
+**Track**: bambinodj - High As Ever Still Passin' Through (Remix)
 
-Last updated at 12/01/2023 14:51
+Last updated at 12/01/2023 14:54
