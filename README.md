@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wDBz76BzmdPj9EBK-fiQpLg-t500x500.jpg">](https://soundcloud.com/blxkmntn/take-off-everything-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekbOgsTpXD9mcmKu-PyudEA-t500x500.jpg">](https://soundcloud.com/levianth/mercy-levianth-edit)
 
-**Artist**: BLXK MNTN 
+**Artist**: Levianth 
 
-**Track**: Dwells - Take Off Everything (BLXK MNTN Remix)
+**Track**: Mercy (Levianth Edit)
 
-Last updated at 12/01/2023 10:17
+Last updated at 12/01/2023 10:18
