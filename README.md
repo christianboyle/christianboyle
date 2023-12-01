@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ejytLGYLAquVwNy-7qOJ7g-t500x500.jpg">](https://soundcloud.com/welovetunamelt/upndown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnnN8xe3TL5g-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/kyle-starkey-your-party-1)
 
-**Artist**: Tuna Melt 
+**Artist**: Tidy Trax 
 
-**Track**: The Chainsmokers x 347aidan - Up & Down (Tuna Melt Remix)
+**Track**: Kyle Starkey - Your Party
 
-Last updated at 12/01/2023 09:40
+Last updated at 12/01/2023 09:41
