@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xyzaqz3gkYs9SLnA-j5Zbiw-t500x500.jpg">](https://soundcloud.com/werosemusic/thunderbolt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4Rzwmi1ryUIzklR-iATPIQ-t500x500.jpg">](https://soundcloud.com/hanael_official/aespa-drama-hanael-remix)
 
-**Artist**: We Rose 
+**Artist**: HANAEL 
 
-**Track**: ThunderBolt
+**Track**: Aespa - Drama (HANAEL Remix)
 
-Last updated at 12/02/2023 11:09
+Last updated at 12/02/2023 11:10
