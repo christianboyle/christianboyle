@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLcSnpFqFq38Bbaq-ZT3GXw-t500x500.jpg">](https://soundcloud.com/strobez-music/getlouder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjO9cPzGhyPz0uei-UngBlA-t500x500.jpg">](https://soundcloud.com/cov3r1st/friends)
 
-**Artist**: Strobez 
+**Artist**: CØV3R1st 
 
-**Track**: getLOUDER! (w/ dheeman)
+**Track**: Booty Leak + CØV3R1st & TECHNO KING - Friends | FREE DOWNLOAD
 
-Last updated at 12/02/2023 11:06
+Last updated at 12/02/2023 11:07
