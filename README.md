@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjO9cPzGhyPz0uei-UngBlA-t500x500.jpg">](https://soundcloud.com/cov3r1st/friends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wekWYNwyfiffq9zk-Sz5MWw-t500x500.jpg">](https://soundcloud.com/djtfalcon/aimee-britannia-metaverse-t-falcon-remix)
 
-**Artist**: CØV3R1st 
+**Artist**: T-Falcon 
 
-**Track**: Booty Leak + CØV3R1st & TECHNO KING - Friends | FREE DOWNLOAD
+**Track**: Aimée Britannia - Metaverse (T-Falcon Remix)
 
-Last updated at 12/02/2023 11:07
+Last updated at 12/02/2023 11:08
