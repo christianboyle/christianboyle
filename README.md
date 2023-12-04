@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAx386MPSwqNTVtA-2QrDzA-t500x500.jpg">](https://soundcloud.com/itslostindreams/egzod-edge-of-letting-go-feat-nytrix?in=itslostindreams/sets/egzod-collide-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7e5eJ0pp7I0cmlJU-4UHk1A-t500x500.jpg">](https://soundcloud.com/teedeejayyy/spf3?in=teedeejayyy/sets/spf3)
 
-**Artist**: Lost In Dreams 
+**Artist**: TDJ 
 
-**Track**: Egzod - Edge of Letting Go (feat. Nytrix)
+**Track**: SPF INFINI 3 (Continuous Mix)
 
-Last updated at 12/04/2023 09:41
+Last updated at 12/04/2023 10:01
