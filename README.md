@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/just-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAx386MPSwqNTVtA-2QrDzA-t500x500.jpg">](https://soundcloud.com/itslostindreams/egzod-edge-of-letting-go-feat-nytrix?in=itslostindreams/sets/egzod-collide-ep)
 
-**Artist**: dj something 
+**Artist**: Lost In Dreams 
 
-**Track**: Just like this
+**Track**: Egzod - Edge of Letting Go (feat. Nytrix)
 
-Last updated at 12/04/2023 09:38
+Last updated at 12/04/2023 09:41
