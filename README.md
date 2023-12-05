@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZQwzQpLfysKC4Vi-NbzOQA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/tdj-spf-infini-continuous-mix?in=teedeejayyy/sets/spf-infini)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kksdxo3rXoxeWKbJ-av79UA-t500x500.jpg">](https://soundcloud.com/itslostindreams/egzod-dead-rose-for-the-love-feat-meggie-york?in=itslostindreams/sets/egzod-collide-ep)
 
-**Artist**: TDJ 
+**Artist**: Lost In Dreams 
 
-**Track**: SPF INFINI (Continuous Mix)
+**Track**: Egzod & Dead Rose - For The Love (feat. Meggie York)
 
-Last updated at 12/04/2023 13:39
+Last updated at 12/05/2023 08:24
