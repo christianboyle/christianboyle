@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aH3xH7Bf0ziNwCLm-VIKzYQ-t500x500.jpg">](https://soundcloud.com/disinety2/mac-miller-blue-world-disinety-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZnKQtzwiWKqvwdkY-SgoQxg-t500x500.jpg">](https://soundcloud.com/vexx2/baauer-love-u-remix)
 
-**Artist**: DISINETY+ 
+**Artist**: vexx 
 
-**Track**: Mac Miller - Blue World [DISINETY FLIP]
+**Track**: baauer - let me love u (vexx remix)
 
-Last updated at 12/05/2023 08:33
+Last updated at 12/05/2023 08:34
