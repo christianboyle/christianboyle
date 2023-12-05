@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRtNOswn9tNNw5R8-ysjnjg-t500x500.jpg">](https://soundcloud.com/polyscream/oblique_angel?in=polyscream/sets/oblique-angel-depthcharge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOV3YRLANx2eqhrX-jPFKIg-t500x500.jpg">](https://soundcloud.com/diegointhedark/frustrating-y4ndere)
 
-**Artist**: polyscream 
+**Artist**: diegointhedark 
 
-**Track**: ❊OBLIQUE.angel
+**Track**: frustrating @y4ndere
 
-Last updated at 12/05/2023 08:40
+Last updated at 12/05/2023 08:41
