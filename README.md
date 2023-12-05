@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClMaqbrgqzrqAMiQ-tgJt0Q-t500x500.jpg">](https://soundcloud.com/kenetic-kannibalz/excision-kai-wachi-fyu-lazrus-kenetic-kannibalz-remix-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZOukVkLJ2ajx5nj-AYGsnQ-t500x500.jpg">](https://soundcloud.com/clara_cibera/biting-mania-mastrng-2)
 
-**Artist**: Kenetic Kannibalz 
+**Artist**: Clara Cibera 
 
-**Track**: EXCISION & KAI WACHI - F.Y.U. (KENETIC KANNIBALZ & LAZRUS- REMIX)
+**Track**: Biting Mania (Mastrng 1)
 
-Last updated at 12/05/2023 09:08
+Last updated at 12/05/2023 09:09
