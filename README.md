@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNzynNl3sdaxfK1J-OECDAA-t500x500.jpg">](https://soundcloud.com/prime-nightcult/patch-notes-hype-shit?in=prime-nightcult/sets/patch-notes-wanna-be-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoZ30xj5iZTCKZRb-S2McBQ-t500x500.jpg">](https://soundcloud.com/darn84/billy-daniel-bunter-jungle)
 
-**Artist**: PRIME 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Patch Notes - Hype Shit
+**Track**: Billy Daniel Bunter - Jungle Tekno
 
-Last updated at 12/06/2023 09:01
+Last updated at 12/06/2023 09:02
