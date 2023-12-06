@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LfhWfizzt6kL9yjb-ppWTpQ-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-died-in-your-arms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000237020726-n45x2s-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/say-you-will-be-mine-m-project-remix)
 
-**Artist**: Brett Cooper (Scarred DIgital) 
+**Artist**: M-Project 
 
-**Track**: Brett Cooper - Died In Your Arms ( The World Of Obsession)
+**Track**: MOB & Squad-E - Say You Will Be Mine (M-Project Remix)
 
-Last updated at 12/06/2023 11:13
+Last updated at 12/06/2023 11:15
