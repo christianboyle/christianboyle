@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoZ30xj5iZTCKZRb-S2McBQ-t500x500.jpg">](https://soundcloud.com/darn84/billy-daniel-bunter-jungle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sr0y4PlzL3XlWqiP-zdVYpw-t500x500.jpg">](https://soundcloud.com/sikdope/get-ur-freak-on)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Sikdope 
 
-**Track**: Billy Daniel Bunter - Jungle Tekno
+**Track**: Get Ur Freak On
 
-Last updated at 12/06/2023 09:02
+Last updated at 12/06/2023 09:03
