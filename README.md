@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rv6W1O0RQ68Ctyio-d5UyGA-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-christmas-cracker-2023-upfront-hardcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LfhWfizzt6kL9yjb-ppWTpQ-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-died-in-your-arms)
 
-**Artist**: Outburst 
+**Artist**: Brett Cooper (Scarred DIgital) 
 
-**Track**: Outburst - Christmas  2023 Upfront Hardcore Mix
+**Track**: Brett Cooper - Died In Your Arms ( The World Of Obsession)
 
-Last updated at 12/06/2023 11:10
+Last updated at 12/06/2023 11:13
