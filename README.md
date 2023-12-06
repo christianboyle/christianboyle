@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rv6W1O0RQ68Ctyio-d5UyGA-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-christmas-cracker-2023-upfront-hardcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V3sdhUH2KFQWpyf9-ADPxTQ-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-and-kin-run-away)
 
-**Artist**: Outburst 
+**Artist**: Brett Cooper (Scarred DIgital) 
 
-**Track**: Outburst - Christmas  2023 Upfront Hardcore Mix
+**Track**: Brett Cooper And Kinn - Run Away
 
-Last updated at 12/06/2023 09:05
+Last updated at 12/06/2023 11:08
