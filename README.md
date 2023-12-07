@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rv6W1O0RQ68Ctyio-d5UyGA-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-christmas-cracker-2023-upfront-hardcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoffDO1FsPa6PDdA-ZIquRQ-t500x500.jpg">](https://soundcloud.com/code-e/never-forget-you-code-e-remix)
 
-**Artist**: Outburst 
+**Artist**: Code-E 
 
-**Track**: Outburst - Christmas  2023 Upfront Hardcore Mix
+**Track**: Darren Styles feat. Molly - Never Forget You (Code-E Remix)
 
-Last updated at 12/07/2023 08:03
+Last updated at 12/07/2023 08:13
