@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hqf9gpSXpY4yAsWS-oy6yHg-t500x500.jpg">](https://soundcloud.com/siegemusic420/paradise-coldplay-siege-liquid-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbfCX55xIUNKSPBb-0ftbAw-t500x500.jpg">](https://soundcloud.com/skinkofficial/james-dece-alkaline)
 
-**Artist**: SIEGE MUSIC 
+**Artist**: SKINK 
 
-**Track**: PARADISE - COLDPLAY (LIQUID DNB BOOTLEG)
+**Track**: James Dece - Alkaline
 
-Last updated at 12/09/2023 11:59
+Last updated at 12/09/2023 12:01
