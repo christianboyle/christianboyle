@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MjnVpKUCBal6ub8Y-m49MEg-t500x500.jpg">](https://soundcloud.com/itslostindreams/vaance-something-good?in=itslostindreams/sets/gateway-vol-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVmSOHFFqatmjCPw-myLZdg-t500x500.jpg">](https://soundcloud.com/noiseprn/remy-heart-x-eternal-hurt-u-like-that)
 
-**Artist**: Lost In Dreams 
+**Artist**: Noiseporn 
 
-**Track**: Vaance - Something Good
+**Track**: Remy Heart x Eternal - Hurt U Like That
 
-Last updated at 12/09/2023 12:08
+Last updated at 12/09/2023 12:13
