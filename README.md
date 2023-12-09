@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqnHxikJEBum1TSr-qBLkUw-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/greywood-miscreant-o-m-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqEkQuKQF0YZeLWL-yYEUYw-t500x500.jpg">](https://soundcloud.com/whitepanda/nightcub?in=whitepanda/sets/mashup-albums)
 
-**Artist**: O.M.G (Oblysk Music Group) 
+**Artist**: White Panda 
 
-**Track**: Greywood- Miscreant (O.M.G Premiere)
+**Track**: Nightcub (Continuous Mix) [NEW ALBUM]
 
-Last updated at 12/09/2023 12:05
+Last updated at 12/09/2023 12:06
