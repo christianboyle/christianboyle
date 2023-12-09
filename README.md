@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qqQkaKCKasPzCSaq-fIAtmg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-ft-bram-boender-arabian-nights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SB8ruR5ZXsSWIJXd-EMDMeA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/yellow-claw-dj-turn-it-up-rogerson-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Best House Remixes 
 
-**Track**: Da Tweekaz ft. Bram Boender - Arabian Nights
+**Track**: Yellow Claw - DJ Turn It Up (Rogerson Remix)
 
-Last updated at 12/09/2023 12:20
+Last updated at 12/09/2023 12:21
