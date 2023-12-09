@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FExpBtmunv52jbk7-5NPnzw-t500x500.jpg">](https://soundcloud.com/syntheticlovehamburg/stock-stein-x-maxximodus-jazzy?in=syntheticlovehamburg/sets/synthetic-love-various-3artists-003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uJXjn26YHaZyeR7G-AsB3vw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/coone-savages)
 
-**Artist**: Synthetic Love 
+**Artist**: Dirty Workz 
 
-**Track**: STOCK&STEIN x Maximmodus- Jazzy Groove
+**Track**: Coone - Savages
 
-Last updated at 12/09/2023 12:17
+Last updated at 12/09/2023 12:18
