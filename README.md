@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uJXjn26YHaZyeR7G-AsB3vw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/coone-savages)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrLuj6TNrpyWLN1e-A0xZDA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/wasted-penguinz-astrak-december)
 
 **Artist**: Dirty Workz 
 
-**Track**: Coone - Savages
+**Track**: Wasted Penguinz & Astrak - December
 
-Last updated at 12/09/2023 12:18
+Last updated at 12/09/2023 12:19
