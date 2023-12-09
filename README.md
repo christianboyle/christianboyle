@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-36w86zRrkd6yORa5-wzH47g-t500x500.jpg">](https://soundcloud.com/jamescozmo/hard-dance-mash-up-pack-vol4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o3XgiW8OS1Spy3Ic-DnpbQw-t500x500.jpg">](https://soundcloud.com/sam-segan/eli-brown-diamonds-on-my-mind-segan-remix)
 
-**Artist**: JAMES COZMO 
+**Artist**: Segan 
 
-**Track**: HARD DANCE - MASH UP PACK Vol.4
+**Track**: Eli Brown - Diamonds On My Mind (Segan Remix)
 
-Last updated at 12/09/2023 12:03
+Last updated at 12/09/2023 12:04
