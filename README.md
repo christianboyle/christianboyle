@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63sRH4y89t2uQ6Sf-ocesLw-t500x500.jpg">](https://soundcloud.com/ekonovah/hekler-dabow-heartbreak-paradise-feat-jessy-covets-ekonovah-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FExpBtmunv52jbk7-5NPnzw-t500x500.jpg">](https://soundcloud.com/syntheticlovehamburg/stock-stein-x-maxximodus-jazzy?in=syntheticlovehamburg/sets/synthetic-love-various-3artists-003)
 
-**Artist**: Ekonovah 
+**Artist**: Synthetic Love 
 
-**Track**: HEKLER & DABOW - HEARTBREAK PARADISE Feat. Jessy Covets (Ekonovah Remix)
+**Track**: STOCK&STEIN x Maximmodus- Jazzy Groove
 
-Last updated at 12/09/2023 12:15
+Last updated at 12/09/2023 12:17
