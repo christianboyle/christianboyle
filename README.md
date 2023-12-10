@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXU5LsfXZf0TZrgR-tvZzyg-t500x500.jpg">](https://soundcloud.com/pls-ty/rsclrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vDbSZy1wcDiSdEZ3-yCZOZQ-t500x500.jpg">](https://soundcloud.com/synovamusic/in-for-the-kill-synova-edit-3)
 
-**Artist**: PLS&TY 
+**Artist**: Synova 
 
-**Track**: PLS&TY - Party in My Head (ft. Lost Boy) [RSCL Remix]
+**Track**: In For the Kill (Synova Flip)
 
-Last updated at 12/10/2023 10:13
+Last updated at 12/10/2023 10:14
