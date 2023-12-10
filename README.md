@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAzmyyvz9h0s9kS-ZZ4EZA-t500x500.jpg">](https://soundcloud.com/crime-music/alice-deejay-better-off-alone-crime-hard-rave-remixfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWiz2kZHvIyrZ6VT-5jRvSg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/november-clips)
 
-**Artist**: CRIME 
+**Artist**: kushface ☤ 
 
-**Track**: Alice Deejay - Better Off Alone (CRIME Hard Rave Remix)FREE DL
+**Track**: NOVEMBER CLIPS
 
-Last updated at 12/10/2023 11:42
+Last updated at 12/10/2023 12:09
