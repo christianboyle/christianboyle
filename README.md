@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0jJU1GVPTwE6B2Q-daZa4A-t500x500.jpg">](https://soundcloud.com/montarecs/holly-flosstradamus-xg-monzo-private-link)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAzmyyvz9h0s9kS-ZZ4EZA-t500x500.jpg">](https://soundcloud.com/crime-music/alice-deejay-better-off-alone-crime-hard-rave-remixfree-dl)
 
-**Artist**: MONTA 
+**Artist**: CRIME 
 
-**Track**: HOLLY, Flosstradamus, X&G, Gaszia, Kollaba - Monzo
+**Track**: Alice Deejay - Better Off Alone (CRIME Hard Rave Remix)FREE DL
 
-Last updated at 12/10/2023 11:39
+Last updated at 12/10/2023 11:42
