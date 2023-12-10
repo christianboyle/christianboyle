@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXU5LsfXZf0TZrgR-tvZzyg-t500x500.jpg">](https://soundcloud.com/pls-ty/rsclrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqUDkaCVYS0VwwNy-SR1tAQ-t500x500.jpg">](https://soundcloud.com/samlaxton/sam-laxton-full-effect)
 
-**Artist**: PLS&TY 
+**Artist**: Sam Laxton 
 
-**Track**: PLS&TY - Party in My Head (ft. Lost Boy) [RSCL Remix]
+**Track**: Sam Laxton - Full Effect [FREE DL]
 
-Last updated at 12/10/2023 11:30
+Last updated at 12/10/2023 11:32
