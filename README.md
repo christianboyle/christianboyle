@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SB8ruR5ZXsSWIJXd-EMDMeA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/yellow-claw-dj-turn-it-up-rogerson-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMzEHzQkPVSODeBZ-a0Hftw-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-130-on-beat-1)
 
-**Artist**: Best House Remixes 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Yellow Claw - DJ Turn It Up (Rogerson Remix)
+**Track**: Bonkers Beats #129 on Beat 106 Scotland with Mark Breeze 081223 (Hour 1)
 
-Last updated at 12/09/2023 12:21
+Last updated at 12/10/2023 09:38
