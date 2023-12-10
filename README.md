@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjO9cPzGhyPz0uei-UngBlA-t500x500.jpg">](https://soundcloud.com/cov3r1st/friends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0jJU1GVPTwE6B2Q-daZa4A-t500x500.jpg">](https://soundcloud.com/montarecs/holly-flosstradamus-xg-monzo-private-link)
 
-**Artist**: CØV3R1st 
+**Artist**: MONTA 
 
-**Track**: Booty Leak + CØV3R1st & TECHNO KING - Friends | FREE DOWNLOAD
+**Track**: HOLLY, Flosstradamus, X&G, Gaszia, Kollaba - Monzo
 
-Last updated at 12/10/2023 11:37
+Last updated at 12/10/2023 11:39
