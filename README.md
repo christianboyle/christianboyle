@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqUDkaCVYS0VwwNy-SR1tAQ-t500x500.jpg">](https://soundcloud.com/samlaxton/sam-laxton-full-effect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GL5F1Hm8SFqClz1m-OuAclw-t500x500.jpg">](https://soundcloud.com/skinkofficial/moji-viloid-insane)
 
-**Artist**: Sam Laxton 
+**Artist**: SKINK 
 
-**Track**: Sam Laxton - Full Effect [FREE DL]
+**Track**: MOJI, Viloid - Insane
 
-Last updated at 12/10/2023 11:32
+Last updated at 12/10/2023 11:34
