@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezSYTLcZSdz67Eff-axRQ4Q-t500x500.jpg">](https://soundcloud.com/beatburguer/mix-savy-x-beatburguer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G0rbBPNRFPUGplUY-gvFmkQ-t500x500.jpg">](https://soundcloud.com/belavie/lostwoods)
 
-**Artist**: Beatburguer 
+**Artist**: Bélavie 
 
-**Track**: MIX: Sevy x Beatburguer
+**Track**: Bélavie - Lost Woods (Zelda on Trance) | Free DL
 
-Last updated at 12/10/2023 10:49
+Last updated at 12/10/2023 10:50
