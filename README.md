@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yHNkD3Hx6r717zJ-1v1AKQ-t500x500.jpg">](https://soundcloud.com/cavestudioofficial/cant-tell-me-nothing-cave-studio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DfKJ0hESvRkaFI0w-wxGXNw-t500x500.jpg">](https://soundcloud.com/garageshared/ashdunn-september-dub)
 
-**Artist**: Cave Studio 
+**Artist**: Garage Shared 
 
-**Track**: Kanye West - Can't Tell Me Nothing (Cave Studio Edit)
+**Track**: Ashdunn - September Dub
 
-Last updated at 12/10/2023 10:51
+Last updated at 12/10/2023 10:52
