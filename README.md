@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMzEHzQkPVSODeBZ-a0Hftw-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-130-on-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXU5LsfXZf0TZrgR-tvZzyg-t500x500.jpg">](https://soundcloud.com/pls-ty/rsclrmx)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: PLS&TY 
 
-**Track**: Bonkers Beats #129 on Beat 106 Scotland with Mark Breeze 081223 (Hour 1)
+**Track**: PLS&TY - Party in My Head (ft. Lost Boy) [RSCL Remix]
 
-Last updated at 12/10/2023 09:38
+Last updated at 12/10/2023 10:13
