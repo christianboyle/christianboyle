@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjO9cPzGhyPz0uei-UngBlA-t500x500.jpg">](https://soundcloud.com/cov3r1st/friends?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeKzQnI5old9rP71-7gTAJw-t500x500.jpg">](https://soundcloud.com/ruxxi/high-wedieyoung?in=saxurn/sets/walks/)
 
-**Artist**: CØV3R1st 
+**Artist**: Ruxxi 
 
-**Track**: Booty Leak + CØV3R1st & TECHNO KING - Friends | FREE DOWNLOAD
+**Track**: High 【F/C WE DIE YOUNG Vol.3】
 
-Last updated at 12/10/2023 15:10
+Last updated at 12/10/2023 15:12
