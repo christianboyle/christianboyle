@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G0rbBPNRFPUGplUY-gvFmkQ-t500x500.jpg">](https://soundcloud.com/belavie/lostwoods)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yHNkD3Hx6r717zJ-1v1AKQ-t500x500.jpg">](https://soundcloud.com/cavestudioofficial/cant-tell-me-nothing-cave-studio-edit)
 
-**Artist**: Bélavie 
+**Artist**: Cave Studio 
 
-**Track**: Bélavie - Lost Woods (Zelda on Trance) | Free DL
+**Track**: Kanye West - Can't Tell Me Nothing (Cave Studio Edit)
 
-Last updated at 12/10/2023 10:50
+Last updated at 12/10/2023 10:51
