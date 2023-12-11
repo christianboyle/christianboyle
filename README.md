@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz4DzMVlk09b-0-t500x500.jpg">](https://soundcloud.com/sesco/feel-good?in=dp_np/sets/cw49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9ZZf811nbCa-0-t500x500.jpg">](https://soundcloud.com/imandreacrocicchia/good-time?in=dp_np/sets/cw49)
 
-**Artist**: sesco 
+**Artist**: Andrea Crocicchia 
 
-**Track**: Feel Good
+**Track**: Good Time
 
-Last updated at 12/11/2023 08:39
+Last updated at 12/11/2023 08:42
