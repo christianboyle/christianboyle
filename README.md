@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HhpC2gN60pQI-0-t500x500.jpg">](https://soundcloud.com/relanium/leel-lost-reloaded-relanium?in=dp_np/sets/cw49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pfgq8Th2KhIt-0-t500x500.jpg">](https://soundcloud.com/mairee-music/ouaa?in=dp_np/sets/cw49)
 
-**Artist**: Relanium 
+**Artist**: Mairee 
 
-**Track**: Leel Lost (Reloaded) [Relanium & Deen West vs. Tribeat Remix]
+**Track**: Ouaa
 
-Last updated at 12/11/2023 08:27
+Last updated at 12/11/2023 08:30
