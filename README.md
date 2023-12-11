@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jl7ONFIRBS5GfcoV-e4NfFw-t500x500.jpg">](https://soundcloud.com/mentalomusic/wave-wave-overdrive-wave-wave-vip-mix?in=dp_np/sets/cw49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeuagWXH5OBB-0-t500x500.jpg">](https://soundcloud.com/mosimannofficial/carol-of-the-bells-2023-edit?in=dp_np/sets/cw49)
 
-**Artist**: Mentalo Music 
+**Artist**: MOSIMANN 
 
-**Track**: Wave Wave - Overdrive (Wave Wave VIP Mix)
+**Track**: Carol Of The Bells (2023 Edit)
 
-Last updated at 12/11/2023 08:22
+Last updated at 12/11/2023 08:24
