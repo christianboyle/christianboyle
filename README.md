@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwfPXHI3p1kaDYcO-UpcDhQ-t500x500.jpg">](https://soundcloud.com/inrotationrecs/isenberg-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZypGulriTsQnoIw-HxzWow-t500x500.jpg">](https://soundcloud.com/karefuluk/kareful-play-it-cool-lr)
 
-**Artist**: IN / ROTATION 
+**Artist**: Kareful 
 
-**Track**: Isenberg - Like That
+**Track**: Kareful - Play It Cool
 
-Last updated at 12/12/2023 17:47
+Last updated at 12/12/2023 17:48
