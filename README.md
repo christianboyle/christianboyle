@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1FPQVEYUdDCKt4Q4-mzFNvg-t500x500.jpg">](https://soundcloud.com/rinse_france/the-dj-plant-texture-sessions-adroit-special-with-janein-gabriella-vergilov-11-decembre-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0rTmzUQwYAdjB8e-TrYBcg-t500x500.jpg">](https://soundcloud.com/bitbirdradio/p3pper-presents-bitbird-radio-127)
 
-**Artist**: Rinse France 
+**Artist**: bitbird radio 
 
-**Track**: The DJ Plant Texture Sessions - Adroit special with Janein & Gabriella Vergilov - 11 Décembre 2023
+**Track**: P3PPER Presents: bitbird radio #127
 
-Last updated at 12/12/2023 09:05
+Last updated at 12/12/2023 17:45
