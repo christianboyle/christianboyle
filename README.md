@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZypGulriTsQnoIw-HxzWow-t500x500.jpg">](https://soundcloud.com/karefuluk/kareful-play-it-cool-lr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3ZpT5SyydODvdXt-rKWJig-t500x500.jpg">](https://soundcloud.com/presentlylifted/vincebyvince-x-palpa-headcold)
 
-**Artist**: Kareful 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Kareful - Play It Cool
+**Track**: vincebyvince X palpa- Headcold
 
-Last updated at 12/12/2023 17:48
+Last updated at 12/12/2023 17:49
