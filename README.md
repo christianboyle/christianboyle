@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yztEYOtLLWbmpFDK-olcn2w-t500x500.jpg">](https://soundcloud.com/ola_radio/lollytop-20-fifibiza-invite-tomodachi100)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2RsrfCnY9FhqQpBo-BwPs0A-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-92groovz-med-switchback-92g006)
 
-**Artist**: Ola Radio 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: LOLLYTOP 2.0 — Fifibiza invite tomodachi100
+**Track**: [PREMIERE] | 92Groovz - Med Switchback [92G006]
 
-Last updated at 12/12/2023 08:53
+Last updated at 12/12/2023 08:55
