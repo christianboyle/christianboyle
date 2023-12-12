@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zoj7XcuI5t3n-0-t500x500.jpg">](https://soundcloud.com/aanse-776918864/with-me?in=dp_np/sets/cw49)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzutHfPUN8v9uyYI-1bXxBQ-t500x500.jpg">](https://soundcloud.com/nvadrz/tardecaysmiles)
 
-**Artist**: AANSE 
+**Artist**: NVADRZ 
 
-**Track**: With Me
+**Track**: TAR-DECAY SMILES - NVADRZ, ALIAS
 
-Last updated at 12/11/2023 08:44
+Last updated at 12/12/2023 08:52
