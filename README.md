@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HWzUo4CmIyUqxllf-bAYYjQ-t500x500.jpg">](https://soundcloud.com/big-mood/easy-midnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwpX51zlpRoDK0Z3-zqkCgw-t500x500.jpg">](https://soundcloud.com/scantraxx/divinez-liar)
 
-**Artist**: Big Mood 
+**Artist**: Scantraxx 
 
-**Track**: Easy Midnight
+**Track**: Divinez - Liar
 
-Last updated at 12/12/2023 08:59
+Last updated at 12/12/2023 09:02
