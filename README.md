@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NTT6P71y80OYO11M-pykuxg-t500x500.jpg">](https://soundcloud.com/whitepanda/gives-you-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwfPXHI3p1kaDYcO-UpcDhQ-t500x500.jpg">](https://soundcloud.com/inrotationrecs/isenberg-like-that)
 
-**Artist**: White Panda 
+**Artist**: IN / ROTATION 
 
-**Track**: Gives You Hell (feat. Eva Snyder)
+**Track**: Isenberg - Like That
 
-Last updated at 12/12/2023 17:46
+Last updated at 12/12/2023 17:47
