@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afFBJczzzzdtl3Hs-A8RHhQ-t500x500.jpg">](https://soundcloud.com/gangstahouserec/sun-shi-feels-good-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weQW9ZDQO9qnCbjz-cxeFUQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/green-day-boulevard-of-broken-dreams-hisashi-remix-sun-shi-edit)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Best House Remixes 
 
-**Track**: SUN SHI - Feels Good
+**Track**: Green Day - Boulevard Of Broken Dreams (Hisashi Remix) [SUN SHI Edit]
 
-Last updated at 12/12/2023 22:16
+Last updated at 12/12/2023 22:20
