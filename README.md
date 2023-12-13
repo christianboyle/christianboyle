@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwnQRz2GZ13Dn0wA-gQHoLA-t500x500.jpg">](https://soundcloud.com/bangerangnetwork/bn052)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-35gJ2yyD2HtZ11yk-GfWy4w-t500x500.jpg">](https://soundcloud.com/outsidersmusic/outsiders-x-starlab-endless)
 
-**Artist**: Bangerang Network 
+**Artist**: Outsiders ® 
 
-**Track**: Alan Feik & GNDLLZ - Burn
+**Track**: Outsiders x Starlab - Endless Horizon (Sample) .wav
 
-Last updated at 12/12/2023 20:44
+Last updated at 12/12/2023 20:47
