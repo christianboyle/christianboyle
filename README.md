@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pKbrW3HfEjDX37y0-l5c0hg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-change-your-mind-with-justin-j-moore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NcCezpL5Zts2-0-t500x500.jpg">](https://soundcloud.com/oneseventy/mike-reverie-ben-journiee)
 
-**Artist**: Future Generation 
+**Artist**: OneSeventy 
 
-**Track**: Arcando - Change Your Mind (with Justin J. Moore)
+**Track**: Mike Reverie & Ben Journiee - Without You
 
-Last updated at 12/12/2023 20:11
+Last updated at 12/12/2023 20:12
