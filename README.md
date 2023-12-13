@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsXan7yzWTcI20dC-VXmxKA-t500x500.jpg">](https://soundcloud.com/ilyaamusic/calvin-harris-rihanna-this-is-what-you-came-for-ilyaa-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H2HlyRMLUx9RiGRC-Mrj6ww-t500x500.jpg">](https://soundcloud.com/tatesedar_music/tate-sedar-edc-2023-discovery-project-set)
 
-**Artist**: ILYAA 
+**Artist**: TATE SEDAR 
 
-**Track**: Calvin Harris, Rihanna - This Is What You Came For (ILYAA Remix) [FREE DOWNLOAD] [Tech House Remix]
+**Track**: TATE SEDAR - EDC 2023 Discovery Project: Set
 
-Last updated at 12/12/2023 21:35
+Last updated at 12/12/2023 21:38
