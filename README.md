@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcut5EU76LKNzusn-rmBs4w-t500x500.jpg">](https://soundcloud.com/oogamusic/rocket-appliances)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmA0oTZaqNq39rKG-uR2qpg-t500x500.jpg">](https://soundcloud.com/noiseprn/hearsay-curse-of-tongues-pick-it-up)
 
-**Artist**: ooga 
+**Artist**: Noiseporn 
 
-**Track**: Rocket Appliances
+**Track**: Hearsay & Curse Of Tongues - Pick It Up
 
-Last updated at 12/13/2023 09:53
+Last updated at 12/13/2023 09:55
