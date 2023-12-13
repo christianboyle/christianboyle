@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5vzBB3X39C9UUWN-NUhuZQ-t500x500.jpg">](https://soundcloud.com/phaseyy/summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4Dyg0RuZMwEINl2-sRcaYQ-t500x500.jpg">](https://soundcloud.com/officialdondrago/we-can-go-don-drago)
 
-**Artist**: Phasey 
+**Artist**: Don Drago 
 
-**Track**: SUMMER
+**Track**: We Can Go - Don Drago
 
-Last updated at 12/12/2023 20:07
+Last updated at 12/12/2023 20:08
