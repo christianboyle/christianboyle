@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAzmyyvz9h0s9kS-ZZ4EZA-t500x500.jpg">](https://soundcloud.com/crime-music/alice-deejay-better-off-alone-crime-hard-rave-remixfree-dl?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5vzBB3X39C9UUWN-NUhuZQ-t500x500.jpg">](https://soundcloud.com/phaseyy/summer)
 
-**Artist**: CRIME 
+**Artist**: Phasey 
 
-**Track**: Alice Deejay - Better Off Alone (CRIME Hard Rave Remix)FREE DL
+**Track**: SUMMER
 
-Last updated at 12/12/2023 20:03
+Last updated at 12/12/2023 20:07
