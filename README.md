@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UYp7dj7vkxLkIAu-mVNunQ-t500x500.jpg">](https://soundcloud.com/itschuckjones/lets-take-our-chances)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q19tcW6ozbRzPiDQ-xejnvQ-t500x500.jpg">](https://soundcloud.com/feelqrecordings/fqr260)
 
-**Artist**: Chuck Jones 
+**Artist**: FeelQ Recordings 
 
-**Track**: Let's Take Our Chances
+**Track**: Fedo - Speakin'
 
-Last updated at 12/13/2023 01:01
+Last updated at 12/13/2023 01:03
