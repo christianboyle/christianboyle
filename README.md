@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r5eKjliBYKOsXztQ-Q4FzPw-t500x500.jpg">](https://soundcloud.com/naemsofficial/numbencore-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcbFpQdFzzncLKaj-3cdrSQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/dua-lipa-levitating-luisdemark-remix)
 
-**Artist**: NAEMS 
+**Artist**: Best House Remixes 
 
-**Track**: Numb/Encore (NAEMS Remix)
+**Track**: Dua Lipa - Levitating (LUISDEMARK Remix)
 
-Last updated at 12/12/2023 21:17
+Last updated at 12/12/2023 21:22
