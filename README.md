@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeKzQnI5old9rP71-7gTAJw-t500x500.jpg">](https://soundcloud.com/ruxxi/high-wedieyoung?in=saxurn/sets/walks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwnQRz2GZ13Dn0wA-gQHoLA-t500x500.jpg">](https://soundcloud.com/bangerangnetwork/bn052)
 
-**Artist**: Ruxxi 
+**Artist**: Bangerang Network 
 
-**Track**: High 【F/C WE DIE YOUNG Vol.3】
+**Track**: Alan Feik & GNDLLZ - Burn
 
-Last updated at 12/12/2023 20:17
+Last updated at 12/12/2023 20:44
