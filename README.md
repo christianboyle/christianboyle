@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmA0oTZaqNq39rKG-uR2qpg-t500x500.jpg">](https://soundcloud.com/noiseprn/hearsay-curse-of-tongues-pick-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKCPWTqzm3romK2u-iS9eyw-t500x500.jpg">](https://soundcloud.com/t-menace/set-you-free-hardtek-remix)
 
-**Artist**: Noiseporn 
+**Artist**: T-MENACE 
 
-**Track**: Hearsay & Curse Of Tongues - Pick It Up
+**Track**: Set You Free Hardtek Remix
 
-Last updated at 12/13/2023 09:55
+Last updated at 12/13/2023 09:56
