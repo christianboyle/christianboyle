@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLak6ZpBdi0b-0-t500x500.jpg">](https://soundcloud.com/oneseventy/tatsunoshin-gregor-le-dahl-one?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeKzQnI5old9rP71-7gTAJw-t500x500.jpg">](https://soundcloud.com/ruxxi/high-wedieyoung?in=saxurn/sets/walks)
 
-**Artist**: OneSeventy 
+**Artist**: Ruxxi 
 
-**Track**: Tatsunoshin & Gregor Le Dahl - One More Night
+**Track**: High 【F/C WE DIE YOUNG Vol.3】
 
-Last updated at 12/12/2023 20:15
+Last updated at 12/12/2023 20:17
