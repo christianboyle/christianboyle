@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbtzJklh3Pe5jS0y-W7rF4A-t500x500.jpg">](https://soundcloud.com/bangerangnetwork/bn053)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NDyyvpUC4k07d3me-AXGi6w-t500x500.jpg">](https://soundcloud.com/bangerangelectro/bngelc011)
 
-**Artist**: Bangerang Network 
+**Artist**: Bangerang Electro 
 
-**Track**: Zerolow & DVRKNOISE - Without You
+**Track**: Rəind Səid & DaybaK - Run With Me
 
-Last updated at 12/12/2023 20:53
+Last updated at 12/12/2023 20:55
