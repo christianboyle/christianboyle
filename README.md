@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeKzQnI5old9rP71-7gTAJw-t500x500.jpg">](https://soundcloud.com/ruxxi/high-wedieyoung?in=saxurn/sets/walks/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9RnXW6jhe4qBszrG-5KEGKg-t500x500.jpg">](https://soundcloud.com/bendelofficial/wingpdx)
 
-**Artist**: Ruxxi 
+**Artist**: Bendel 
 
-**Track**: High 【F/C WE DIE YOUNG Vol.3】
+**Track**: wingPDX
 
-Last updated at 12/13/2023 09:48
+Last updated at 12/13/2023 09:49
