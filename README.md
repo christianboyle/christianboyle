@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NDyyvpUC4k07d3me-AXGi6w-t500x500.jpg">](https://soundcloud.com/bangerangelectro/bngelc011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5wS6JLwQBqTqZO5F-sfUzvA-t500x500.jpg">](https://soundcloud.com/dj_magicd/i-see-a-vision-dj-magicd)
 
-**Artist**: Bangerang Electro 
+**Artist**: Dj MagicD 
 
-**Track**: Rəind Səid & DaybaK - Run With Me
+**Track**: I See A Vision - Dj MagicD (Buy = Free download)
 
-Last updated at 12/12/2023 20:55
+Last updated at 12/12/2023 20:59
