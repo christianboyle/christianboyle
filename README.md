@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DnVTL3zrSUYcUXu9-zFH9VQ-t500x500.jpg">](https://soundcloud.com/wearebermuda/bermuda-mashup-pack-vol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UYp7dj7vkxLkIAu-mVNunQ-t500x500.jpg">](https://soundcloud.com/itschuckjones/lets-take-our-chances)
 
-**Artist**: BERMUDA 
+**Artist**: Chuck Jones 
 
-**Track**: Mashup Pack Vol.3
+**Track**: Let's Take Our Chances
 
-Last updated at 12/13/2023 00:51
+Last updated at 12/13/2023 01:01
