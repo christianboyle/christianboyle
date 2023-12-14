@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CNyBiUdOlyLHsnes-9bHmxw-t500x500.jpg">](https://soundcloud.com/jamesik/shae-district-sink-jamesik-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UoWbm9bySeiM2n8b-qE8rAQ-t500x500.jpg">](https://soundcloud.com/magisteriumbeats/constantine-weeping)
 
-**Artist**: JAMESIK 
+**Artist**: Magisterium 
 
-**Track**: Shae District - Sink (JAMESIK Remix)
+**Track**: Constantine Weeping
 
-Last updated at 12/14/2023 15:30
+Last updated at 12/14/2023 15:35
