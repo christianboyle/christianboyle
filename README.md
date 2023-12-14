@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000577458902-1ra306-t500x500.jpg">](https://soundcloud.com/jxxyy/blue?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000521253039-0bqgvv-t500x500.jpg">](https://soundcloud.com/jxxyy/mybirthday?in=nabimenj/sets/jjoeyy)
 
 **Artist**: Joeyy 
 
-**Track**: Blue (Prod. By Juvenile Sam)
+**Track**: Birthday (Prod. By Vraldo & Ogstevie)
 
-Last updated at 12/13/2023 19:30
+Last updated at 12/13/2023 19:33
