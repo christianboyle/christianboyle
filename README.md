@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzSNMFzqr171d1K2-R6lLEA-t500x500.jpg">](https://soundcloud.com/jxxyy/bubblebass?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000606851143-d0c9fc-t500x500.jpg">](https://soundcloud.com/jxxyy/patchwork?in=nabimenj/sets/jjoeyy)
 
 **Artist**: Joeyy 
 
-**Track**: Bubble Bass (Prod. By Chapter & Sp00)
+**Track**: Patchwork (Prod. By Hurtful)
 
-Last updated at 12/13/2023 19:23
+Last updated at 12/13/2023 19:25
