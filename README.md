@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-he3HBy2muKnSfqLC-RvNq0A-t500x500.jpg">](https://soundcloud.com/jerry-callaghan/paprazzi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcyxavCzT9b7y7fz-y4MoSg-t500x500.jpg">](https://soundcloud.com/c3b/c3b-x-e-coli-gotta-be)
 
-**Artist**: Jerry Callaghan 
+**Artist**: C3B 
 
-**Track**: Paprazzi HEAVYY TECHNO
+**Track**: C3B X E-COLI - GOTTA BE
 
-Last updated at 12/13/2023 19:19
+Last updated at 12/13/2023 19:22
