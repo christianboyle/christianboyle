@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000237614548-o8n7mi-t500x500.jpg">](https://soundcloud.com/fallenshrine/piccolo-x-fallen-shirne-no-sleep?in=fallenshrine/sets/masters-of-nxc-dark-edition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEGlg2AWowVPm3wc-eKbF1w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-611-hard-dance-bpms)
 
-**Artist**: Fallen Shrine 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Pìccolo X Fallen Shirne - 全く寝てない [NO SLEEP]
+**Track**: KTRA Episode 611: Hard Dance BPM's
 
-Last updated at 12/14/2023 15:41
+Last updated at 12/14/2023 15:42
