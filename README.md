@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKCPWTqzm3romK2u-iS9eyw-t500x500.jpg">](https://soundcloud.com/t-menace/set-you-free-hardtek-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-he3HBy2muKnSfqLC-RvNq0A-t500x500.jpg">](https://soundcloud.com/jerry-callaghan/paprazzi)
 
-**Artist**: T-MENACE 
+**Artist**: Jerry Callaghan 
 
-**Track**: Set You Free Hardtek Remix
+**Track**: Paprazzi HEAVYY TECHNO
 
-Last updated at 12/13/2023 09:56
+Last updated at 12/13/2023 19:19
