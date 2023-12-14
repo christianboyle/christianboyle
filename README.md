@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4uvxDiny9FOIVzP-PFT7ug-t500x500.jpg">](https://soundcloud.com/user-119572110-785460557/spacesaxophon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rRDcsEBDliVrbSQz-3SZ4bw-t500x500.jpg">](https://soundcloud.com/jared-mirande-950008291/nasa-sticks-stones-remix)
 
-**Artist**: Nomax 
+**Artist**: factoryboy 
 
-**Track**: Solar Sax Prod. and Composed by Nomax
+**Track**: NASA (sticks & stones remix)
 
-Last updated at 12/14/2023 14:38
+Last updated at 12/14/2023 14:41
