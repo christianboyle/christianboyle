@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MxNzVYeRS5s5dzn1-x59C0Q-t500x500.jpg">](https://soundcloud.com/jxxyy/muskrat?in=nabimenj/sets/jjoeyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q0rbX98TbfDzBuZ4-90OQlQ-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-runaway-1)
 
-**Artist**: Joeyy 
+**Artist**: CRAAIG 
 
-**Track**: Ꮇuᦓᛕ𝑟𝐚ʇ (𝒻乇Aᴛ. ꙅioᙠuᗡ ᴎo|ɿɒM) (𝑃r𝗼∂︎. iji)
+**Track**: CRAAIG - RUNAWAY
 
-Last updated at 12/13/2023 19:44
+Last updated at 12/14/2023 08:04
