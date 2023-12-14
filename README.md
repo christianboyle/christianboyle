@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcyxavCzT9b7y7fz-y4MoSg-t500x500.jpg">](https://soundcloud.com/c3b/c3b-x-e-coli-gotta-be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzSNMFzqr171d1K2-R6lLEA-t500x500.jpg">](https://soundcloud.com/jxxyy/bubblebass?in=nabimenj/sets/jjoeyy)
 
-**Artist**: C3B 
+**Artist**: Joeyy 
 
-**Track**: C3B X E-COLI - GOTTA BE
+**Track**: Bubble Bass (Prod. By Chapter & Sp00)
 
-Last updated at 12/13/2023 19:22
+Last updated at 12/13/2023 19:23
