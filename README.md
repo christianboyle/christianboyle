@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEGlg2AWowVPm3wc-eKbF1w-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-611-hard-dance-bpms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrCdxOz07Y7pYBtl-O5RpkQ-t500x500.jpg">](https://soundcloud.com/zestubuu/err0r-27)
 
-**Artist**: Keeping The Rave Alive 
+**Artist**: BUUKIID 
 
-**Track**: KTRA Episode 611: Hard Dance BPM's
+**Track**: Err0R 27
 
-Last updated at 12/14/2023 15:42
+Last updated at 12/15/2023 08:11
