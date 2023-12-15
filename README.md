@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DwJ8IDC9AklD4OCd-C9jX7g-t500x500.jpg">](https://soundcloud.com/serenrealm/the-shell?in=serenrealm/sets/the-shell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1)
 
-**Artist**: Seren Realm 
+**Artist**: Hannah Diamond 
 
-**Track**: The Shell
+**Track**: Hannah Diamond - Affirmations
 
-Last updated at 12/15/2023 08:25
+Last updated at 12/15/2023 08:26
