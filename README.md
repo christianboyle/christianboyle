@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xI5KiMl5WJEwUdbz-xZUqKQ-t500x500.jpg">](https://soundcloud.com/gradient-map/onlytom-cranberry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q0rbX98TbfDzBuZ4-90OQlQ-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-runaway-1)
 
-**Artist**: gradient map 
+**Artist**: CRAAIG 
 
-**Track**: onlytom - Cranberry
+**Track**: CRAAIG - RUNAWAY
 
-Last updated at 12/15/2023 12:20
+Last updated at 12/15/2023 12:23
