@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLak6ZpBdi0b-0-t500x500.jpg">](https://soundcloud.com/oneseventy/tatsunoshin-gregor-le-dahl-one?in=saxurn/sets/nnn-2023-naughty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LkHznP7LmMQMWRjU-0rmfhA-t500x500.jpg">](https://soundcloud.com/vowlmusic/kareful-playitcool-vowl-remix?in=saxurn/sets/nnn-2023-naughty)
 
-**Artist**: Tatsunoshin & Gregor Le Dahl 
+**Artist**: vowl. 
 
-**Track**: Tatsunoshin & Gregor Le Dahl - One More Night
+**Track**: kareful - play it cool (vowl. remix)
 
-Last updated at 12/15/2023 08:56
+Last updated at 12/15/2023 08:59
