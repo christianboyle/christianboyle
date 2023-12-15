@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKCPWTqzm3romK2u-iS9eyw-t500x500.jpg">](https://soundcloud.com/t-menace/set-you-free-hardtek-remix?in=saxurn/sets/nnn-2023-naughty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLak6ZpBdi0b-0-t500x500.jpg">](https://soundcloud.com/oneseventy/tatsunoshin-gregor-le-dahl-one?in=saxurn/sets/nnn-2023-naughty)
 
-**Artist**: T-MENACE 
+**Artist**: Tatsunoshin & Gregor Le Dahl 
 
-**Track**: Set You Free Hardtek Remix
+**Track**: Tatsunoshin & Gregor Le Dahl - One More Night
 
-Last updated at 12/15/2023 08:52
+Last updated at 12/15/2023 08:56
