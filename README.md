@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000218350022-tw7o6b-t500x500.jpg">](https://soundcloud.com/alexprospectbackup/alex-prospect-wdywfm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xI5KiMl5WJEwUdbz-xZUqKQ-t500x500.jpg">](https://soundcloud.com/gradient-map/onlytom-cranberry)
 
-**Artist**: Alex Prospect (Back-up Page) 
+**Artist**: gradient map 
 
-**Track**: Alex Prospect - WDYWFM
+**Track**: onlytom - Cranberry
 
-Last updated at 12/15/2023 12:03
+Last updated at 12/15/2023 12:20
