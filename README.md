@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7mpy1uLQq1Ej6wo-FDc6Kg-t500x500.jpg">](https://soundcloud.com/kkoosk/taylor-swift-cruel-summer-pokkun-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1UMgCissOdjsFNW-astnVg-t500x500.jpg">](https://soundcloud.com/gidi-segal/baron-von-trax-x-jove-baby-girl)
 
-**Artist**: Pokkun 
+**Artist**: Baron Von Trax 
 
-**Track**: Taylor Swift - Cruel Summer (Pokkun Remix)
+**Track**: Baron Von Trax & JOVE - Baby Girl
 
-Last updated at 12/15/2023 08:13
+Last updated at 12/15/2023 08:14
