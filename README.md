@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uYfBe7SQVdP9-0-t500x500.jpg">](https://soundcloud.com/hannahdiamond/hannah-diamond-affirmations-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKCPWTqzm3romK2u-iS9eyw-t500x500.jpg">](https://soundcloud.com/t-menace/set-you-free-hardtek-remix?in=saxurn/sets/nnn-2023-naughty)
 
-**Artist**: Hannah Diamond 
+**Artist**: T-MENACE 
 
-**Track**: Hannah Diamond - Affirmations
+**Track**: Set You Free Hardtek Remix
 
-Last updated at 12/15/2023 08:26
+Last updated at 12/15/2023 08:52
