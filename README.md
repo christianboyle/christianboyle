@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBlMVBN1LctymMj-g9m4uA-t500x500.jpg">](https://soundcloud.com/ziv_official/z-i-v-done-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLw42dIGeJhUFyaj-kzyKtQ-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-let-uwu-go)
 
-**Artist**: ZIV 
+**Artist**: Panteros666 
 
-**Track**: Z-I-V - DONE
+**Track**: Panteros666 - Let UwU Go
 
-Last updated at 12/16/2023 09:17
+Last updated at 12/16/2023 11:05
