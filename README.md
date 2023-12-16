@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-he3HBy2muKnSfqLC-RvNq0A-t500x500.jpg">](https://soundcloud.com/jerry-callaghan/paprazzi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bJdPYrWt0pWYBVOt-zY0fTQ-t500x500.jpg">](https://soundcloud.com/tomoyu/on-my-mind)
 
-**Artist**: Jerry Callaghan 
+**Artist**: TOMOYU 
 
-**Track**: Paprazzi HEAVYY TECHNO
+**Track**: On My Mind
 
-Last updated at 12/15/2023 12:28
+Last updated at 12/16/2023 09:14
