@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sr0y4PlzL3XlWqiP-zdVYpw-t500x500.jpg">](https://soundcloud.com/sikdope/get-ur-freak-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBlMVBN1LctymMj-g9m4uA-t500x500.jpg">](https://soundcloud.com/ziv_official/z-i-v-done-1)
 
-**Artist**: Sikdope 
+**Artist**: ZIV 
 
-**Track**: Get Ur Freak On
+**Track**: Z-I-V - DONE
 
-Last updated at 12/16/2023 09:16
+Last updated at 12/16/2023 09:17
