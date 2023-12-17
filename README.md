@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5KO46Rz98X8-0-t500x500.jpg">](https://soundcloud.com/new-beat-order/beautiful-people?in=saxurn/sets/nnn-2023-nice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c575i84fEUFpUTxw-wp9vvw-t500x500.jpg">](https://soundcloud.com/bo0tyleak/bfree?in=saxurn/sets/nnn-2023-nice)
 
-**Artist**: NEW BEAT ORDER 
+**Artist**: BOOTY LEAK 
 
-**Track**: Beautiful People
+**Track**: New Beat Order + Booty Leak & Cmagic5 - Breaking Free [ FREE DOWNLOAD ]
 
-Last updated at 12/17/2023 10:24
+Last updated at 12/17/2023 10:26
