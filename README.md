@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fLS09GIkdyoIABWD-RbpZQA-t500x500.jpg">](https://soundcloud.com/mystictearz/5-weeks-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSn62J3QjQSC0hA9-1xTgBg-t500x500.jpg">](https://soundcloud.com/officialb2s/geck-o-lovely-launch-decibel-outdoor-2023-pussy-lounge-saturday)
 
-**Artist**: Jetty 
+**Artist**: officialb2s 
 
-**Track**: 5 Weeks In
+**Track**: Geck-O [Lovely Launch] | Decibel outdoor 2023 | Pussy Lounge | Saturday
 
-Last updated at 12/17/2023 06:53
+Last updated at 12/17/2023 06:54
