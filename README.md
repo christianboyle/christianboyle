@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oq4zTkL1Wnoa-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-so-cold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lDXjkkUooIVzy8k-QCRR1A-t500x500.jpg">](https://soundcloud.com/hartshorn303/mask-off-hartshorn-bootleg)
 
-**Artist**: OneSeventy 
+**Artist**: Hartshorn 
 
-**Track**: Technikore - So Cold
+**Track**: Nicolas Julian - Mask Off (Hartshorn Bootleg)
 
-Last updated at 12/18/2023 11:31
+Last updated at 12/18/2023 11:32
