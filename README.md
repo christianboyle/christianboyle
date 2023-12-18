@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LyuzxW2Z50HrtGfR-TQwXIQ-t500x500.jpg">](https://soundcloud.com/big-mood/big-mood-saturns-son-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8GlGyPsVPzTehu0z-NyCFRw-t500x500.jpg">](https://soundcloud.com/rave-energy/rave-energy-joy-ride-120)
 
-**Artist**: Big Mood 
+**Artist**: Rave Energy 
 
-**Track**: Big Mood - Saturn's Son
+**Track**: Rave Energy - Joy Ride 120
 
-Last updated at 12/18/2023 08:55
+Last updated at 12/18/2023 08:56
