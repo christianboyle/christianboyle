@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4k5hNFMEW9yby30e-19xMag-t500x500.jpg">](https://soundcloud.com/egpodcast/eg-techno122-aamourocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7hoTEyJHGw3tOch-BAeC5Q-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-best-of-2023-mix)
 
-**Artist**: EG 
+**Artist**: SDJ 
 
-**Track**: EG TECHNO.122 Aamourocean
+**Track**: SDJ - Best of 2023 Mix
 
-Last updated at 12/18/2023 13:51
+Last updated at 12/18/2023 13:57
