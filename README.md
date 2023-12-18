@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UK2RoQoKS3dRzUxu-9TzWlg-t500x500.jpg">](https://soundcloud.com/yerbownik/sadclubbing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fLS09GIkdyoIABWD-RbpZQA-t500x500.jpg">](https://soundcloud.com/mystictearz/5-weeks-in)
 
-**Artist**: yerbby 
+**Artist**: Jetty 
 
-**Track**: sadclubbing (+STM)
+**Track**: 5 Weeks In
 
-Last updated at 12/18/2023 11:28
+Last updated at 12/18/2023 11:29
