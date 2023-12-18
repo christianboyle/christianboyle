@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3GIZdyjOSp8igwv-ajyBvA-t500x500.jpg">](https://soundcloud.com/syntheticlovehamburg/jude-bradshaw-paradise-1?in=syntheticlovehamburg/sets/synthetic-love-various-artists)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5s1EwdzoTKXcfH6-dGHs3A-t500x500.jpg">](https://soundcloud.com/datskobeats/datsko-ocean-eyes-remix)
 
-**Artist**: Synthetic Love 
+**Artist**: DATSKO 
 
-**Track**: Jude Bradshaw - Paradise
+**Track**: DATSKO - Ocean Eyes (Remix)
 
-Last updated at 12/18/2023 11:37
+Last updated at 12/18/2023 13:49
