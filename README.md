@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOwz5HWgmtbsRb9k-oxkBPQ-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/subdue-distant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oq4zTkL1Wnoa-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-so-cold)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: OneSeventy 
 
-**Track**: Subdue - Distant
+**Track**: Technikore - So Cold
 
-Last updated at 12/18/2023 11:30
+Last updated at 12/18/2023 11:31
