@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lDXjkkUooIVzy8k-QCRR1A-t500x500.jpg">](https://soundcloud.com/hartshorn303/mask-off-hartshorn-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VF114e2mLU4Ye6lP-5kCwHQ-t500x500.jpg">](https://soundcloud.com/darn84/dougal-gammer-true-hardcore?in=darn84/sets/true-hardcore-a-way-of-life)
 
-**Artist**: Hartshorn 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Nicolas Julian - Mask Off (Hartshorn Bootleg)
+**Track**: Dougal & Gammer - True Hardcore (2007)
 
-Last updated at 12/18/2023 11:32
+Last updated at 12/18/2023 11:33
