@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYwMEaf5WBc6qGnY-19LCFQ-t500x500.jpg">](https://soundcloud.com/joshiguess/fatse-x-polearm-ft-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tGaJIxQyo9dsOl7P-ZklyBw-t500x500.jpg">](https://soundcloud.com/karl-guapo/lunatic-x-21-savage)
 
-**Artist**: JoshIGuess 
+**Artist**: L3NNY 
 
-**Track**: blend w/ fats'e & polearm (quitall)
+**Track**: LUNATIC X 21 SAVAGE
 
-Last updated at 12/18/2023 11:23
+Last updated at 12/18/2023 11:24
