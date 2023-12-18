@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIPtU3dVeXt9E5lY-cCsJWA-t500x500.jpg">](https://soundcloud.com/djmovie2023/joeyy-laker-brady-cant-stop-prod-nyli-kyuro-dj-movie-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y4f2tNFIHyuyygWb-izriDg-t500x500.jpg">](https://soundcloud.com/raversreunited/breeze-mc-static-ravers-reunited-air-nye-22-23?in=raversreunited/sets/ravers-reunited-air-nye-22-23)
 
-**Artist**: DJ MOVIE 
+**Artist**: Ravers Reunited 
 
-**Track**: JOEYY & LAKER BRADY - CAN'T STOP (PROD. NYLI KYURO) *DJ MOVIE EXCLUSIVE*
+**Track**: Breeze & MC Static - Ravers Reunited: AIR NYE 22-23
 
-Last updated at 12/18/2023 16:15
+Last updated at 12/18/2023 16:16
