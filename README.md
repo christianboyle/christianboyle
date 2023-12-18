@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FExpBtmunv52jbk7-5NPnzw-t500x500.jpg">](https://soundcloud.com/syntheticlovehamburg/lovestory-x-salzbauer-papaya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoTsMVaa5CXuqroI-oHRTGQ-t500x500.jpg">](https://soundcloud.com/parallelhh/premiere-introvert-falling-down-introvert-edit-free-dl)
 
-**Artist**: Synthetic Love 
+**Artist**: Parallel Label [PARA//E/] 
 
-**Track**: Lovestory X Salzbauer - Papaya (Rave Edit)
+**Track**: PREMIERE /// Lil Peep & XXXTentacion - Falling Down (Introvert Edit) [Free DL]
 
-Last updated at 12/18/2023 11:34
+Last updated at 12/18/2023 11:35
