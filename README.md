@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7hoTEyJHGw3tOch-BAeC5Q-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-best-of-2023-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYwMEaf5WBc6qGnY-19LCFQ-t500x500.jpg">](https://soundcloud.com/joshiguess/fatse-x-polearm-ft-master)
 
-**Artist**: SDJ 
+**Artist**: JoshIGuess 
 
-**Track**: SDJ - Best of 2023 Mix
+**Track**: blend w/ fats'e & polearm (quitall)
 
-Last updated at 12/18/2023 08:57
+Last updated at 12/18/2023 11:23
