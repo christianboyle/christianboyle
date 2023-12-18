@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoe9oqlqHAQuFct6-LJy8hA-t500x500.jpg">](https://soundcloud.com/alu-rsa/alu-premiere-m-in-the-middle-manifesto-pc001-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4k5hNFMEW9yby30e-19xMag-t500x500.jpg">](https://soundcloud.com/egpodcast/eg-techno122-aamourocean)
 
-**Artist**: ALU 
+**Artist**: EG 
 
-**Track**: ALU Premiere: M in the Middle - Manifesto [PC001] [FREE DL]
+**Track**: EG TECHNO.122 Aamourocean
 
-Last updated at 12/18/2023 13:50
+Last updated at 12/18/2023 13:51
