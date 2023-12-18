@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoTsMVaa5CXuqroI-oHRTGQ-t500x500.jpg">](https://soundcloud.com/parallelhh/premiere-introvert-falling-down-introvert-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FExpBtmunv52jbk7-5NPnzw-t500x500.jpg">](https://soundcloud.com/syntheticlovehamburg/nand-sonnenblumenfeld-antonym?in=syntheticlovehamburg/sets/synthetic-love-various-3artists-003)
 
-**Artist**: Parallel Label [PARA//E/] 
+**Artist**: Synthetic Love 
 
-**Track**: PREMIERE /// Lil Peep & XXXTentacion - Falling Down (Introvert Edit) [Free DL]
+**Track**: Nand - Sonnenblumenfeld (Antonym Edit)
 
-Last updated at 12/18/2023 11:35
+Last updated at 12/18/2023 11:36
