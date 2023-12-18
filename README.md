@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8GlGyPsVPzTehu0z-NyCFRw-t500x500.jpg">](https://soundcloud.com/rave-energy/rave-energy-joy-ride-120)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7hoTEyJHGw3tOch-BAeC5Q-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-best-of-2023-mix)
 
-**Artist**: Rave Energy 
+**Artist**: SDJ 
 
-**Track**: Rave Energy - Joy Ride 120
+**Track**: SDJ - Best of 2023 Mix
 
-Last updated at 12/18/2023 08:56
+Last updated at 12/18/2023 08:57
