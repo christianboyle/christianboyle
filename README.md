@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROyU908sn4OCymqT-tOwH4g-t500x500.jpg">](https://soundcloud.com/7onyofficial/take-me-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfZM6L9B4aTyokzz-NkzWGA-t500x500.jpg">](https://soundcloud.com/twistedreload/changing-world)
 
-**Artist**: 7ONY 
+**Artist**: Twistedreload 
 
-**Track**: Take Me Away
+**Track**: Changing World
 
-Last updated at 12/18/2023 11:25
+Last updated at 12/18/2023 11:26
