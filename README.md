@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rz36mKqq1zdcUy24-ERVThw-t500x500.jpg">](https://soundcloud.com/phrva/baddadan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GSVNHVBvBVswWOXv-P756Pg-t500x500.jpg">](https://soundcloud.com/gtarecs/b-plexx-cynical)
 
-**Artist**: Phrva 
+**Artist**: Grand Theft Audio Records 
 
-**Track**: Chase & Status, Bou - Baddadan (Phrva Flip)
+**Track**: B - Plexx - Cynical
 
-Last updated at 12/19/2023 08:53
+Last updated at 12/19/2023 08:54
