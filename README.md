@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oq4zTkL1Wnoa-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-so-cold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fLS09GIkdyoIABWD-RbpZQA-t500x500.jpg">](https://soundcloud.com/mystictearz/5-weeks-in)
 
-**Artist**: OneSeventy 
+**Artist**: Jetty 
 
-**Track**: Technikore - So Cold
+**Track**: 5 Weeks In
 
-Last updated at 12/19/2023 09:02
+Last updated at 12/19/2023 09:05
