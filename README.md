@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-84Thv1lPBqc115Ih-TR0ghw-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sdf032-kaylene-scr-ska-show-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RR7iBgu43c1vSbdg-cNwEVw-t500x500.jpg">](https://soundcloud.com/user-732083412/dj-rish-jetty-blue-crush-bambinodj-remix)
 
-**Artist**: scarreddigital 
+**Artist**: bino's bin 
 
-**Track**: SDF032 Kaylene Sc@r - Ska Show *Free Download*
+**Track**: DJ RISH & Jetty - Blue Crush (bambinodj Remix)
 
-Last updated at 12/20/2023 08:11
+Last updated at 12/20/2023 08:12
