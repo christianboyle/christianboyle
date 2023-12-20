@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UtA3BsxMBRzpzDWG-7iBJow-t500x500.jpg">](https://soundcloud.com/sqwadmusic/sqwad-wild-badjokes-remix?in=sqwadmusic/sets/sqwad-wild-remixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KE79BVxvjXcGmSFW-1GgzyA-t500x500.jpg">](https://soundcloud.com/astraldescent/worlds-apart-feat-cass-1?in=astraldescent/sets/worlds-apart-ep)
 
-**Artist**: SQWAD 
+**Artist**: Astral Descent🌎☄️🐙 
 
-**Track**: SQWAD - Wild (Badjokes Remix)
+**Track**: Worlds Apart feat. CASS
 
-Last updated at 12/20/2023 08:18
+Last updated at 12/20/2023 08:19
