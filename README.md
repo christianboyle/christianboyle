@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7hoTEyJHGw3tOch-BAeC5Q-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-best-of-2023-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-REjNzfiiIP4LqVuu-3Tmfmg-t500x500.jpg">](https://soundcloud.com/czdoe/wavenet)
 
-**Artist**: SDJ 
+**Artist**: C.Z. 
 
-**Track**: SDJ - Best of 2023 Mix
+**Track**: Wavenet
 
-Last updated at 12/19/2023 09:11
+Last updated at 12/19/2023 21:16
