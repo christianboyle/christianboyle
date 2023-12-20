@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtYLCjOifJv4tUXL-Ll6Jnw-t500x500.jpg">](https://soundcloud.com/hate_music/vntm-the-hunt-nethern-realm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDEikLb0yXPJsIcc-vGXJQA-t500x500.jpg">](https://soundcloud.com/playmerecords/enkei-reid-speed-rocket-science?in=playmerecords/sets/play-me-the-best-of-2023)
 
-**Artist**: HATE 
+**Artist**: Play Me Records 
 
-**Track**: Premiere: VNTM - The Hunt [NR001]
+**Track**: Enkei, Reid Speed - Rocket Science
 
-Last updated at 12/20/2023 08:14
+Last updated at 12/20/2023 08:16
