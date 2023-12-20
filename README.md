@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDEikLb0yXPJsIcc-vGXJQA-t500x500.jpg">](https://soundcloud.com/playmerecords/enkei-reid-speed-rocket-science?in=playmerecords/sets/play-me-the-best-of-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vyXxH0A7NqQymDxt-KTaWTA-t500x500.jpg">](https://soundcloud.com/the_music_blender/galazy-x-karezza-chop-chop)
 
-**Artist**: Play Me Records 
+**Artist**: The Music Blender 
 
-**Track**: Enkei, Reid Speed - Rocket Science
+**Track**: GALAZY & KAREZZA - CHOP CHOP
 
-Last updated at 12/20/2023 08:16
+Last updated at 12/20/2023 08:17
