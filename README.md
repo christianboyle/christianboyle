@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sub9zFoon4ekPoM5-Fl9aBA-t500x500.jpg">](https://soundcloud.com/open-minded-music-nl/omm-showcase-mix-episode-18-cloudrider-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JjxE3mEkOU0Bpqqy-nBLsCA-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-goldzik-vortex-trm282)
 
-**Artist**: Open Minded Music 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: OMM Showcase Mix | Episode 18 - Cloudrider Guest Mix
+**Track**: [PREMIERE] | Goldzik - Vortex [TRM282]
 
-Last updated at 12/21/2023 07:44
+Last updated at 12/21/2023 08:14
