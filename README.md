@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VTAxtcJAyySQj6ub-34fjzQ-t500x500.jpg">](https://soundcloud.com/vincenzo-giambanco/freedom-fighter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q9FC9j7gdaSyNC9n-FZeUDQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-faded-audiophetamine)
 
-**Artist**: vincenzo Giambanco 
+**Artist**: Dirty Workz 
 
-**Track**: Freedom Fighter
+**Track**: Crypton - FADED (Audiophetamine)
 
-Last updated at 12/21/2023 07:34
+Last updated at 12/21/2023 07:35
