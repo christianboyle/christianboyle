@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ry8Js5KOzgEKPeXD-i9rZnw-t500x500.jpg">](https://soundcloud.com/itsrellik/pimp-v4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yronaHrDZwdXuiqT-YEN7nw-t500x500.jpg">](https://soundcloud.com/aadysi/what-u-see)
 
-**Artist**: RELL!K 
+**Artist**: Aadysi 
 
-**Track**: P.I.M.P. - RELL!K
+**Track**: what u see
 
-Last updated at 12/20/2023 08:22
+Last updated at 12/21/2023 07:05
