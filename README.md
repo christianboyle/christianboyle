@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yronaHrDZwdXuiqT-YEN7nw-t500x500.jpg">](https://soundcloud.com/aadysi/what-u-see)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VTAxtcJAyySQj6ub-34fjzQ-t500x500.jpg">](https://soundcloud.com/vincenzo-giambanco/freedom-fighter)
 
-**Artist**: Aadysi 
+**Artist**: vincenzo Giambanco 
 
-**Track**: what u see
+**Track**: Freedom Fighter
 
-Last updated at 12/21/2023 07:05
+Last updated at 12/21/2023 07:34
