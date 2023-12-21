@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wz97kieygFwGtVOZ-Man26A-t500x500.jpg">](https://soundcloud.com/itsrestricted-second/black-eyed-peas-pump-it-restricted-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8WyTetbqwy3sceyF-jRHrzg-t500x500.jpg">](https://soundcloud.com/rinsefm/nervous-horizon-18-december-2023)
 
-**Artist**: Restricted (Bootlegs & Mixes) 
+**Artist**: Rinse FM 
 
-**Track**: Black Eyed Peas - Pump It (Restricted Edit)
+**Track**: Nervous Horizon with TSVI & Remiseria Temperley -  18 December 2023
 
-Last updated at 12/21/2023 08:20
+Last updated at 12/21/2023 08:23
