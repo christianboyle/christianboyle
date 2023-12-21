@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6y592iG2JUNWEz2-PKJKfQ-t500x500.jpg">](https://soundcloud.com/officialtrapparty/gxrsifvt-pistol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKuQPQtVSJwcHTkz-dA3VRg-t500x500.jpg">](https://soundcloud.com/wehavefunmusic/jack-harlow-loving-on-me-jake-shore-edit)
 
-**Artist**: Trap Party Records 
+**Artist**: @JAKESHORE 
 
-**Track**: Gxrsifvt - Pistol
+**Track**: Jack Harlow- Lovin On Me (Jake Shore Edit)
 
-Last updated at 12/21/2023 12:25
+Last updated at 12/21/2023 12:26
