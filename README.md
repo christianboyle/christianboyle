@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fny3GzgnDuYuOb4y-bnm6Hg-t500x500.jpg">](https://soundcloud.com/teedeejayyy/crazy-glue)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuhJN4lkoRvWyoCq-Viy8Dw-t500x500.jpg">](https://soundcloud.com/audiobambino/dawn-on-the-moon-surfer-2001)
 
-**Artist**: TDJ 
+**Artist**: audio bambino 
 
-**Track**: crazy glue
+**Track**: Dawn On The Moon Surfer 2001 (Legacy Mix)
 
-Last updated at 12/22/2023 14:33
+Last updated at 12/22/2023 14:34
