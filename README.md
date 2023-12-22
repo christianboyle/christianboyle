@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iI9Yd3rGc9ndEFr7-NTawCA-t500x500.jpg">](https://soundcloud.com/geckonl/wonderful-tonight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzgSMaZEcszpePuN-U3pyrw-t500x500.jpg">](https://soundcloud.com/shvdz/kenya-grace-strangers-shvdz-remix)
 
-**Artist**: Geck-o 
+**Artist**: SHVDZ 
 
-**Track**: Wonderful Tonight (Geck-o Remix) 🤗🎄🤍 FREE DOWNLOAD
+**Track**: Kenya Grace - Strangers (SHVDZ Remix)
 
-Last updated at 12/22/2023 15:25
+Last updated at 12/22/2023 15:26
