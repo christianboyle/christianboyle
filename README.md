@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JtEdjvuaphdyDN10-FMJuYQ-t500x500.jpg">](https://soundcloud.com/aeon_mode/touch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKuQPQtVSJwcHTkz-dA3VRg-t500x500.jpg">](https://soundcloud.com/wehavefunmusic/jack-harlow-loving-on-me-jake-shore-edit)
 
-**Artist**: ÆON:MODE 
+**Artist**: @JAKESHORE 
 
-**Track**: Touch (Feat. L8NCY)
+**Track**: Jack Harlow- Lovin On Me (Jake Shore Edit)
 
-Last updated at 12/22/2023 15:28
+Last updated at 12/22/2023 15:29
