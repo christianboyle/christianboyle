@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6axDfdT7tBlAOhx-dYYMyw-t500x500.jpg">](https://soundcloud.com/klubbheads/klubbheads-bounce-2-da-beat-discoschorlee-x-nightsub-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JtEdjvuaphdyDN10-FMJuYQ-t500x500.jpg">](https://soundcloud.com/aeon_mode/touch)
 
-**Artist**: Klubbheads 
+**Artist**: ÆON:MODE 
 
-**Track**: Klubbheads - Bounce 2 Da Beat (Discoschorlee X Nightsub Remix)
+**Track**: Touch (Feat. L8NCY)
 
-Last updated at 12/22/2023 15:27
+Last updated at 12/22/2023 15:28
