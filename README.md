@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptonuQy55ZzBPI5K-RWjnKA-t500x500.jpg">](https://soundcloud.com/organikparis/kolab-freed-from-desire-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SCTS1xUqpaegYdLN-fSNmLQ-t500x500.jpg">](https://soundcloud.com/mikaheggemann/black-eyed-peas-my-humps-heggemann-edit)
 
-**Artist**: ORGANÏK 
+**Artist**: Mika Heggemann 
 
-**Track**: Kø:lab - Freed From Desire (Rave Edit) [SE01]
+**Track**: Black Eyed Peas - My Humps (Heggemann Edit)
 
-Last updated at 12/22/2023 14:35
+Last updated at 12/22/2023 14:36
