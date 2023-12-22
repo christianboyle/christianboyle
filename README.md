@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuhJN4lkoRvWyoCq-Viy8Dw-t500x500.jpg">](https://soundcloud.com/audiobambino/dawn-on-the-moon-surfer-2001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptonuQy55ZzBPI5K-RWjnKA-t500x500.jpg">](https://soundcloud.com/organikparis/kolab-freed-from-desire-rave-edit)
 
-**Artist**: audio bambino 
+**Artist**: ORGANÏK 
 
-**Track**: Dawn On The Moon Surfer 2001 (Legacy Mix)
+**Track**: Kø:lab - Freed From Desire (Rave Edit) [SE01]
 
-Last updated at 12/22/2023 14:34
+Last updated at 12/22/2023 14:35
