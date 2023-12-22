@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XnhyRlTazvBDySn-zh21Lg-t500x500.jpg">](https://soundcloud.com/letslinkmusic/link-i-belong-to-you-vip)
 
-**Artist**: Disco Lines 
+**Artist**: LINK 
 
-**Track**: Peace of Mind
+**Track**: LINK - I BELONG TO YOU VIP
 
-Last updated at 12/22/2023 15:30
+Last updated at 12/22/2023 15:31
