@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SCTS1xUqpaegYdLN-fSNmLQ-t500x500.jpg">](https://soundcloud.com/mikaheggemann/black-eyed-peas-my-humps-heggemann-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqdkgNWzRqidAUvy-VMme8A-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/ktra-episode-612-christmas-special-2023)
 
-**Artist**: Mika Heggemann 
+**Artist**: Keeping The Rave Alive 
 
-**Track**: Black Eyed Peas - My Humps (Heggemann Edit)
+**Track**: KTRA Episode 612: Christmas Special 2023
 
-Last updated at 12/22/2023 14:36
+Last updated at 12/22/2023 15:24
