@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Wxf3qnBXIqTolzd-XzIiyg-t500x500.jpg">](https://soundcloud.com/djryanganar/ryan-ganar-hurt-the-ones-i-love-continuous-album-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fny3GzgnDuYuOb4y-bnm6Hg-t500x500.jpg">](https://soundcloud.com/teedeejayyy/crazy-glue)
 
-**Artist**: Ryan Ganar 
+**Artist**: TDJ 
 
-**Track**: Ryan Ganar - Hurt The Ones I Love (Continuous Album Mix) [Click To BUY NOW]
+**Track**: crazy glue
 
-Last updated at 12/22/2023 14:32
+Last updated at 12/22/2023 14:33
