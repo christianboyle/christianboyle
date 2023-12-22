@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKuQPQtVSJwcHTkz-dA3VRg-t500x500.jpg">](https://soundcloud.com/wehavefunmusic/jack-harlow-loving-on-me-jake-shore-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctOo77wcYqrkv72q-tyOtUg-t500x500.jpg">](https://soundcloud.com/teoriachaosupodcast/teochao-podcast-057-staryk)
 
-**Artist**: @JAKESHORE 
+**Artist**: TeoriaChaosuPodcast 
 
-**Track**: Jack Harlow- Lovin On Me (Jake Shore Edit)
+**Track**: TEOCHAO PODCAST #057 - Staryk
 
-Last updated at 12/21/2023 12:26
+Last updated at 12/22/2023 08:20
