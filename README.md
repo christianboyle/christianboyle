@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62T1OZmet0etDeBT-24osNg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/refusal?in=hybridtrapmusic/sets/retaliation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtcVyG6f1UhxXQ5A-KyX6Dw-t500x500.jpg">](https://soundcloud.com/foxilylofi/foxily-ethereal-radiance)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Foxily 
 
-**Track**: INTERLINK - Refusal
+**Track**: Foxily - Ethereal Radiance
 
-Last updated at 12/22/2023 08:25
+Last updated at 12/22/2023 08:26
