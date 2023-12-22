@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtcVyG6f1UhxXQ5A-KyX6Dw-t500x500.jpg">](https://soundcloud.com/foxilylofi/foxily-ethereal-radiance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6I8N4GDEQjktVax-yzhm7w-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/starlight)
 
-**Artist**: Foxily 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Foxily - Ethereal Radiance
+**Track**: Stephanno x Iccarus - Starlight
 
-Last updated at 12/22/2023 08:26
+Last updated at 12/22/2023 08:41
