@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LylFBCK4Bou4Nmo-GyIJBQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/shivers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZLc9l1dkviyj0Xrj-YbEWFw-t500x500.jpg">](https://soundcloud.com/pedicure-records/hurting-transponder)
 
-**Artist**: BOOTY LEAK 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: Booty Leak + Garonzos & Andreea Flavia - Shivers [ FREE DOWNLOAD ]
+**Track**: Hurting - Transponder
 
-Last updated at 12/23/2023 07:54
+Last updated at 12/23/2023 07:55
