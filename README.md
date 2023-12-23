@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROyU908sn4OCymqT-tOwH4g-t500x500.jpg">](https://soundcloud.com/7onyofficial/take-me-away?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
 
-**Artist**: 7ONY 
+**Artist**: Disco Lines 
 
-**Track**: Take Me Away
+**Track**: Peace of Mind
 
-Last updated at 12/23/2023 10:41
+Last updated at 12/23/2023 13:25
