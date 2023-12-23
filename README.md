@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-retNbSLnyU9yLjg3-NDfbfg-t500x500.jpg">](https://soundcloud.com/onumi/legendsneverdie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TgzUwNTJqArQolrv-D5s9vA-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/putj?in=club_for_losers/sets/haddaway-what-is-love-tuna)
 
-**Artist**: onumi 
+**Artist**: Reheated By Tuna Melt 
 
-**Track**: ✧✦✧LEGENDS✧✦✧NEVER✧✦✧DIE✧✦✧
+**Track**: Technotronic - Pump Up The Jam (Everettz x Tuna Melt Remix)
 
-Last updated at 12/23/2023 07:46
+Last updated at 12/23/2023 07:47
