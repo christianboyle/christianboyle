@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPEQrXAoL3rZ-0-t500x500.png">](https://soundcloud.com/officialsoundrush/take-me-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnSTzZebtJ1MryM6-drsRGg-t500x500.jpg">](https://soundcloud.com/fahjahmusic/chris-brown-forever-fahjah-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Sound Rush. 
+**Artist**: Fahjah 
 
-**Track**: Take Me Back
+**Track**: Chris Brown - Forever (Fahjah Remix)
 
-Last updated at 12/23/2023 08:16
+Last updated at 12/23/2023 08:17
