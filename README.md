@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLyfUXzGbxNP891g-jNRliA-t500x500.jpg">](https://soundcloud.com/itslostindreams/taylor-kade-katt-love-you-like-that-tailspin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LEBVtBVGgyEd2Pvm-87jswA-t500x500.jpg">](https://soundcloud.com/stockustein/cant-believe-it)
 
-**Artist**: Lost In Dreams 
+**Artist**: STOCK&STEIN 
 
-**Track**: Taylor Kade & KATT - Love You Like That (TAILSPIN Remix)
+**Track**: Can't Believe It
 
-Last updated at 12/23/2023 07:56
+Last updated at 12/23/2023 07:57
