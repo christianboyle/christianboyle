@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1UMgCissOdjsFNW-astnVg-t500x500.jpg">](https://soundcloud.com/gidi-segal/baron-von-trax-x-jove-baby-girl?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qFWj9tWC91zzug0Z-FyMzRg-t500x500.jpg">](https://soundcloud.com/clubangel/bulletproof?in=saxurn/sets/santa-pilled)
 
-**Artist**: Baron Von Trax 
+**Artist**: Club Angel 
 
-**Track**: Baron Von Trax & JOVE - Baby Girl
+**Track**: Bulletproof
 
-Last updated at 12/23/2023 10:06
+Last updated at 12/23/2023 10:12
