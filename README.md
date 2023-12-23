@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTExWIiILEoA8tzE-P1VO9w-t500x500.jpg">](https://soundcloud.com/arcando-official/arcando-mr-brightside-with-livingston-crain?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXAr7tJxZvCEkeQr-BTtRog-t500x500.jpg">](https://soundcloud.com/djheartstring/dj-heartstring-baby-keem-flip?in=saxurn/sets/santa-pilled)
 
-**Artist**: Arcando 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: Arcando - Mr. Brightside (with Livingston Crain) [The Killers cover]
+**Track**: DJ HEARTSTRING - BABY KEEM FLIP
 
-Last updated at 12/23/2023 10:00
+Last updated at 12/23/2023 10:03
