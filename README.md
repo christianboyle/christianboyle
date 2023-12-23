@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnSTzZebtJ1MryM6-drsRGg-t500x500.jpg">](https://soundcloud.com/fahjahmusic/chris-brown-forever-fahjah-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTExWIiILEoA8tzE-P1VO9w-t500x500.jpg">](https://soundcloud.com/arcando-official/arcando-mr-brightside-with-livingston-crain?in=saxurn/sets/tmp/)
 
-**Artist**: Fahjah 
+**Artist**: Arcando 
 
-**Track**: Chris Brown - Forever (Fahjah Remix)
+**Track**: Arcando - Mr. Brightside (with Livingston Crain) [The Killers cover]
 
-Last updated at 12/23/2023 09:19
+Last updated at 12/23/2023 09:35
