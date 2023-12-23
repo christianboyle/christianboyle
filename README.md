@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KrZyMCCxONPozKES-MlUqLQ-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-all-i-want-for-christmas-is-you-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xPEQrXAoL3rZ-0-t500x500.png">](https://soundcloud.com/officialsoundrush/take-me-back)
 
-**Artist**: Luca Testa 
+**Artist**: Sound Rush. 
 
-**Track**: Luca Testa - All I Want For Christmas Is You [Hardstyle Remix]
+**Track**: Take Me Back
 
-Last updated at 12/23/2023 08:14
+Last updated at 12/23/2023 08:16
