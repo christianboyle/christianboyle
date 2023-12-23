@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9RnXW6jhe4qBszrG-5KEGKg-t500x500.jpg">](https://soundcloud.com/bendelofficial/wingpdx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LylFBCK4Bou4Nmo-GyIJBQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/shivers)
 
-**Artist**: Bendel 
+**Artist**: BOOTY LEAK 
 
-**Track**: wingPDX
+**Track**: Booty Leak + Garonzos & Andreea Flavia - Shivers [ FREE DOWNLOAD ]
 
-Last updated at 12/23/2023 07:48
+Last updated at 12/23/2023 07:54
