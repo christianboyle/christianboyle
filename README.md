@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXAr7tJxZvCEkeQr-BTtRog-t500x500.jpg">](https://soundcloud.com/djheartstring/dj-heartstring-baby-keem-flip?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjPDW4L4qfk6kd5n-RxdzmA-t500x500.jpg">](https://soundcloud.com/t-mass/hypnotize?in=saxurn/sets/tmp/)
 
-**Artist**: DJ HEARTSTRING 
+**Artist**: T-Mass 
 
-**Track**: DJ HEARTSTRING - BABY KEEM FLIP
+**Track**: T-Mass & Subsurface - Hypnotize
 
-Last updated at 12/23/2023 08:29
+Last updated at 12/23/2023 08:32
