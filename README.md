@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SCTS1xUqpaegYdLN-fSNmLQ-t500x500.jpg">](https://soundcloud.com/mikaheggemann/black-eyed-peas-my-humps-heggemann-edit?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rz36mKqq1zdcUy24-ERVThw-t500x500.jpg">](https://soundcloud.com/phrva/baddadan?in=saxurn/sets/tmp)
 
-**Artist**: Mika Heggemann 
+**Artist**: Phrva 
 
-**Track**: Black Eyed Peas - My Humps (Heggemann Edit)
+**Track**: Chase & Status, Bou - Baddadan (Phrva Flip)
 
-Last updated at 12/23/2023 08:08
+Last updated at 12/23/2023 08:11
