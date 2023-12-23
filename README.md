@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Om9OVTEV9ocSrvTz-JMkRzA-t500x500.jpg">](https://soundcloud.com/basscon/link-let-it-roll?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROyU908sn4OCymqT-tOwH4g-t500x500.jpg">](https://soundcloud.com/7onyofficial/take-me-away?in=saxurn/sets/tmp/)
 
-**Artist**: BASSCON 
+**Artist**: 7ONY 
 
-**Track**: LINK - LET IT ROLL
+**Track**: Take Me Away
 
-Last updated at 12/23/2023 09:06
+Last updated at 12/23/2023 09:10
