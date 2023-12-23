@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ID8v4EEHMe7GpwYy-YUXmmw-t500x500.jpg">](https://soundcloud.com/aurelios-edits-mashups/cant-hold-us-x-pump-it-louder-aurelios-funk-d-mashup-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jh4hAZS2GBrlvJzW-GWVcrA-t500x500.jpg">](https://soundcloud.com/ducklandbristol/subscript-party-together)
 
-**Artist**: Aurelios Edits & Mashups 
+**Artist**: Duckland 
 
-**Track**: Can't Hold Us X Pump It Louder (Aurelios & Funk D Mashup) [FREE DOWNLOAD]
+**Track**: Subscript - Party Together (Free Download)
 
-Last updated at 12/23/2023 07:42
+Last updated at 12/23/2023 07:43
