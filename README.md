@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjPDW4L4qfk6kd5n-RxdzmA-t500x500.jpg">](https://soundcloud.com/t-mass/hypnotize?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H3jpYMuvxo8zDIPT-2hTGsA-t500x500.jpg">](https://soundcloud.com/tiesto/tiesto-rudimental-waterslides-feat-absolutely?in=saxurn/sets/tmp/)
 
-**Artist**: T-Mass 
+**Artist**: Tiësto 
 
-**Track**: T-Mass & Subsurface - Hypnotize
+**Track**: Tiësto, Rudimental & Absolutely - Waterslides
 
-Last updated at 12/23/2023 08:32
+Last updated at 12/23/2023 08:35
