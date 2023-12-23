@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q0rbX98TbfDzBuZ4-90OQlQ-t500x500.jpg">](https://soundcloud.com/craighughesdj/craaig-runaway-1?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROyU908sn4OCymqT-tOwH4g-t500x500.jpg">](https://soundcloud.com/7onyofficial/take-me-away?in=saxurn/sets/santa-pilled)
 
-**Artist**: CRAAIG 
+**Artist**: 7ONY 
 
-**Track**: CRAAIG - RUNAWAY
+**Track**: Take Me Away
 
-Last updated at 12/23/2023 10:24
+Last updated at 12/23/2023 10:31
