@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rz36mKqq1zdcUy24-ERVThw-t500x500.jpg">](https://soundcloud.com/phrva/baddadan?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROyU908sn4OCymqT-tOwH4g-t500x500.jpg">](https://soundcloud.com/7onyofficial/take-me-away?in=saxurn/sets/santa-pilled)
 
-**Artist**: Phrva 
+**Artist**: 7ONY 
 
-**Track**: Chase & Status, Bou - Baddadan (Phrva Flip)
+**Track**: Take Me Away
 
-Last updated at 12/23/2023 10:39
+Last updated at 12/23/2023 10:41
