@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnSTzZebtJ1MryM6-drsRGg-t500x500.jpg">](https://soundcloud.com/fahjahmusic/chris-brown-forever-fahjah-remix?in=saxurn/sets/santa-pilled)
 
-**Artist**: Disco Lines 
+**Artist**: Fahjah 
 
-**Track**: Peace of Mind
+**Track**: Chris Brown - Forever (Fahjah Remix)
 
-Last updated at 12/23/2023 09:46
+Last updated at 12/23/2023 09:55
