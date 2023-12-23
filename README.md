@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qFWj9tWC91zzug0Z-FyMzRg-t500x500.jpg">](https://soundcloud.com/clubangel/bulletproof?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjPDW4L4qfk6kd5n-RxdzmA-t500x500.jpg">](https://soundcloud.com/t-mass/hypnotize?in=saxurn/sets/santa-pilled)
 
-**Artist**: Club Angel 
+**Artist**: T-Mass 
 
-**Track**: Bulletproof
+**Track**: T-Mass & Subsurface - Hypnotize
 
-Last updated at 12/23/2023 10:12
+Last updated at 12/23/2023 10:16
