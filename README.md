@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnSTzZebtJ1MryM6-drsRGg-t500x500.jpg">](https://soundcloud.com/fahjahmusic/chris-brown-forever-fahjah-remix?in=saxurn/sets/santa-pilled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xTExWIiILEoA8tzE-P1VO9w-t500x500.jpg">](https://soundcloud.com/arcando-official/arcando-mr-brightside-with-livingston-crain?in=saxurn/sets/santa-pilled)
 
-**Artist**: Fahjah 
+**Artist**: Arcando 
 
-**Track**: Chris Brown - Forever (Fahjah Remix)
+**Track**: Arcando - Mr. Brightside (with Livingston Crain) [The Killers cover]
 
-Last updated at 12/23/2023 09:55
+Last updated at 12/23/2023 10:00
