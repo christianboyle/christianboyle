@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMS5WkScfVaaiZ53-U60byg-t500x500.jpg">](https://soundcloud.com/falls-2/losing-theme)
 
-**Artist**: Disco Lines 
+**Artist**: falls 
 
-**Track**: Peace of Mind
+**Track**: losing theme
 
-Last updated at 12/23/2023 13:25
+Last updated at 12/24/2023 12:50
