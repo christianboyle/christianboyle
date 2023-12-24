@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jh4hAZS2GBrlvJzW-GWVcrA-t500x500.jpg">](https://soundcloud.com/ducklandbristol/subscript-pace-and-style-playable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4AWLA8YVKUkoc5E-XxCHZw-t500x500.jpg">](https://soundcloud.com/goodvibesonly/gv105?in=goodvibesonly/sets/gvo2023)
 
-**Artist**: Duckland 
+**Artist**: Good Vibes Only 
 
-**Track**: Subscript - Pace and Style (Free Download)
+**Track**: WarMchne - Don't Wana Be #GV105
 
-Last updated at 12/24/2023 12:51
+Last updated at 12/24/2023 12:52
