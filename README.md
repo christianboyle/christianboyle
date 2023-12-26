@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MbJ417dRcArkIgQG-nzAk7Q-t500x500.jpg">](https://soundcloud.com/neavesofficial/neave-computa-basics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evbrJ98Ng2IJbit2-NZczxQ-t500x500.jpg">](https://soundcloud.com/justin-butensky-250842018/love-me-curlyheads-edit)
 
-**Artist**: NEAVE$ 
+**Artist**: CURLYHEADS 
 
-**Track**: NEAVE$ & COMPUTA - Basics [KANNIBALEN RECORDS]
+**Track**: LIL WAYNE - LOVE ME  (CURLYHEADS EDIT) **FULL VERSION IN DESCRIPTION**
 
-Last updated at 12/24/2023 12:54
+Last updated at 12/26/2023 09:47
