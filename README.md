@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26JJhY4D9OqfL8Wp-V06QEQ-t500x500.jpg">](https://soundcloud.com/itslucha/leveller-beats-lucha-drop-it-low)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsUdNqXOmcUPYCbj-PDxevg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-fukumachi-berlandieri-fr027)
 
-**Artist**: Lucha 
+**Artist**: HATE 
 
-**Track**: Leveller Beats & Lucha - Drop It Low
+**Track**: Premiere: Fukumachi - Berlandieri [FR027]
 
-Last updated at 12/26/2023 09:50
+Last updated at 12/26/2023 09:51
