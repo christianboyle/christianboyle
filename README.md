@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wUwKSi94EpyzTco7-mo7STw-t500x500.jpg">](https://soundcloud.com/eyelander_music/stuck-in-limbo-pt3-eyelander-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBhOHdAyzh2KS0da-5yXzyQ-t500x500.jpg">](https://soundcloud.com/casualgabberz/von-bikraev-sidi-sid-bientot?in=casualgabberz/sets/meilleurs-voeux-vii)
 
-**Artist**: Eyelander 
+**Artist**: CASUAL GABBERZ RECORDS 
 
-**Track**: STUCK IN LIMBO Pt.3 (EYELANDER SHOWCASE)
+**Track**: Von Bikräv & Sidisid - Bientôt
 
-Last updated at 12/26/2023 09:55
+Last updated at 12/26/2023 09:56
