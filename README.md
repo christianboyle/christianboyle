@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evbrJ98Ng2IJbit2-NZczxQ-t500x500.jpg">](https://soundcloud.com/justin-butensky-250842018/love-me-curlyheads-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukLtgyyOLEIMR5LY-5K7VkQ-t500x500.jpg">](https://soundcloud.com/gunpointmusic/spag-heddy-zoom-gunpoint-flip-1)
 
-**Artist**: CURLYHEADS 
+**Artist**: Gunpoint 
 
-**Track**: LIL WAYNE - LOVE ME  (CURLYHEADS EDIT) **FULL VERSION IN DESCRIPTION**
+**Track**: SPAG HEDDY - Zoom (Gunpoint Flip)
 
-Last updated at 12/26/2023 09:47
+Last updated at 12/26/2023 09:48
