@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukLtgyyOLEIMR5LY-5K7VkQ-t500x500.jpg">](https://soundcloud.com/gunpointmusic/spag-heddy-zoom-gunpoint-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-641NyOAatyayyCc8-nxYsHQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/dua-lipa-diplo-electricity-feat-silk-city-mark-ronson-mt-soul-remix)
 
-**Artist**: Gunpoint 
+**Artist**: Best House Remixes 
 
-**Track**: SPAG HEDDY - Zoom (Gunpoint Flip)
+**Track**: Dua Lipa & Diplo - Electricity (feat. Silk City & Mark Ronson) [MT SOUL Remix]
 
-Last updated at 12/26/2023 09:48
+Last updated at 12/26/2023 09:49
