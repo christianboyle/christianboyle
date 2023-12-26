@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-641NyOAatyayyCc8-nxYsHQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/dua-lipa-diplo-electricity-feat-silk-city-mark-ronson-mt-soul-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26JJhY4D9OqfL8Wp-V06QEQ-t500x500.jpg">](https://soundcloud.com/itslucha/leveller-beats-lucha-drop-it-low)
 
-**Artist**: Best House Remixes 
+**Artist**: Lucha 
 
-**Track**: Dua Lipa & Diplo - Electricity (feat. Silk City & Mark Ronson) [MT SOUL Remix]
+**Track**: Leveller Beats & Lucha - Drop It Low
 
-Last updated at 12/26/2023 09:49
+Last updated at 12/26/2023 09:50
