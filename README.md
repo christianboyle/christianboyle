@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBhOHdAyzh2KS0da-5yXzyQ-t500x500.jpg">](https://soundcloud.com/casualgabberz/evil-grimace-paul-seul-jusqua)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6nNNy125WGbb93l3-APedTg-t500x500.jpg">](https://soundcloud.com/terugnaardebasis/basis-podcast-031-moes-vinyl-set)
 
-**Artist**: CASUAL GABBERZ RECORDS 
+**Artist**: BASIS 
 
-**Track**: Evil Grimace & Paul Seul - Jusqu'à La Mort
+**Track**: BASIS PODCAST 031: MOES [vinyl set]
 
-Last updated at 12/26/2023 09:59
+Last updated at 12/26/2023 10:00
