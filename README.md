@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qQzA2MQsyOiopnF-mqwrEw-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/badjokes-nothing?in=golddiggerrecs/sets/gold-digger-best-of-2023-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PymWwcz6bzWMUtK-oba24Q-t500x500.jpg">](https://soundcloud.com/beyondrepairr/6-month-sober-showcase)
 
-**Artist**: GOLD DiGGER [RECORDS] 
+**Artist**: BEYOND REPAIR 
 
-**Track**: Badjokes - Nothing [Gold Digger]
+**Track**: Six Month Sober ID Showcase
 
-Last updated at 12/27/2023 09:17
+Last updated at 12/27/2023 09:18
