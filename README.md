@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zamq262nnoqr1x5j-AKyyew-t500x500.jpg">](https://soundcloud.com/morphrumofficial/chipi-chipi-chapa-chapa-tiktok-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-411dPwTEfU2afb8H-OX6pTw-t500x500.jpg">](https://soundcloud.com/ihazo/hol-x-lil-nas-x-billy-ray-cyrus-old-town-country-road-hazo-x-wolfboy-flip)
 
-**Artist**: Morphrum 
+**Artist**: HaZo 
 
-**Track**: CHIPI CHIPI CHAPA CHAPA - TikTok Version
+**Track**: HOL! X Lil Nas X & Billy Ray Cyrus - Old Town Country Road (HaZo X Wolfboy Flip)
 
-Last updated at 12/27/2023 09:22
+Last updated at 12/27/2023 09:29
