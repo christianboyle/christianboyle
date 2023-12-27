@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Om9OVTEV9ocSrvTz-JMkRzA-t500x500.jpg">](https://soundcloud.com/basscon/link-let-it-roll)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
 
-**Artist**: BASSCON 
+**Artist**: Disco Lines 
 
-**Track**: LINK - LET IT ROLL
+**Track**: Peace of Mind
 
-Last updated at 12/27/2023 13:23
+Last updated at 12/27/2023 13:27
