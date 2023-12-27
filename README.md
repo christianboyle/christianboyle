@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsUdNqXOmcUPYCbj-PDxevg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-fukumachi-berlandieri-fr027)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KlZRcj34Fthv8J5H-mwon3g-t500x500.jpg">](https://soundcloud.com/grid-recordings/griduk233-crucifyme-kyda)
 
-**Artist**: HATE 
+**Artist**: Grid Recordings 
 
-**Track**: Premiere: Fukumachi - Berlandieri [FR027]
+**Track**: GRIDUK233 - CRUCIFYME & KYDA
 
-Last updated at 12/27/2023 09:35
+Last updated at 12/27/2023 12:58
