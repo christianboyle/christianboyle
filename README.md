@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6xAKFRS7F7bQfaaQ-hKWHrw-t500x500.jpg">](https://soundcloud.com/basscon/sihk-tatsunoshin-everything-feat-rachel-florencia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnSTzZebtJ1MryM6-drsRGg-t500x500.jpg">](https://soundcloud.com/fahjahmusic/chris-brown-forever-fahjah-remix)
 
-**Artist**: BASSCON 
+**Artist**: Fahjah 
 
-**Track**: Sihk, Tatsunoshin - Everything (feat. Rachel Florencia)
+**Track**: Chris Brown - Forever (Fahjah Remix)
 
-Last updated at 12/27/2023 13:18
+Last updated at 12/27/2023 13:21
