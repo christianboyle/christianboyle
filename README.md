@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1PymWwcz6bzWMUtK-oba24Q-t500x500.jpg">](https://soundcloud.com/beyondrepairr/6-month-sober-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7OHci7BEAASyqkdW-LAqmyw-t500x500.jpg">](https://soundcloud.com/soundzzzbeats/big-yavo-him-soundzzz-flip)
 
-**Artist**: BEYOND REPAIR 
+**Artist**: SoundzZz 
 
-**Track**: Six Month Sober ID Showcase
+**Track**: Big Yavo - HIM (SoundzZz Flip)
 
-Last updated at 12/27/2023 09:18
+Last updated at 12/27/2023 09:19
