@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EWuxC2OGOuPlq5ye-eHC49A-t500x500.jpg">](https://soundcloud.com/phydrabass/eastern-jam-chark-phydra-bootleg-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsUdNqXOmcUPYCbj-PDxevg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-fukumachi-berlandieri-fr027)
 
-**Artist**: Phydra 
+**Artist**: HATE 
 
-**Track**: Eastern Jam (Chark & Phydra Bootleg)
+**Track**: Premiere: Fukumachi - Berlandieri [FR027]
 
-Last updated at 12/27/2023 09:33
+Last updated at 12/27/2023 09:35
