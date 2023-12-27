@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzpVOg1dPfTdIkuy-hGoYmg-t500x500.jpg">](https://soundcloud.com/subcietypresents/seppoko-x-devious-manglewood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EWuxC2OGOuPlq5ye-eHC49A-t500x500.jpg">](https://soundcloud.com/phydrabass/eastern-jam-chark-phydra-bootleg-2)
 
-**Artist**: Subciety Presents 
+**Artist**: Phydra 
 
-**Track**: Seppoko X Devious -  MangleWood
+**Track**: Eastern Jam (Chark & Phydra Bootleg)
 
-Last updated at 12/27/2023 09:32
+Last updated at 12/27/2023 09:33
