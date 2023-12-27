@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6nNNy125WGbb93l3-APedTg-t500x500.jpg">](https://soundcloud.com/terugnaardebasis/basis-podcast-031-moes-vinyl-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8q6rzWDgmSjILM46-grqrog-t500x500.jpg">](https://soundcloud.com/mikesrevenge/boysaliarpart2)
 
-**Artist**: BASIS 
+**Artist**: Mikes Revenge 
 
-**Track**: BASIS PODCAST 031: MOES [vinyl set]
+**Track**: PinkPantheress & Ice Spice - Boy’s A Liar (Mikes Revenge Remix)
 
-Last updated at 12/26/2023 10:00
+Last updated at 12/27/2023 09:13
