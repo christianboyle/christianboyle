@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GsOVA1JWNeEP0v2-EntVOg-t500x500.jpg">](https://soundcloud.com/haus-tier/youre-the-best-at-making-me-feel-bad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qQzA2MQsyOiopnF-mqwrEw-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/badjokes-nothing?in=golddiggerrecs/sets/gold-digger-best-of-2023-1)
 
-**Artist**: Haus Tier 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: You're the Best (At Making Me Feel Bad)
+**Track**: Badjokes - Nothing [Gold Digger]
 
-Last updated at 12/27/2023 09:16
+Last updated at 12/27/2023 09:17
