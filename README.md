@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-82Gw0g7VR1cmO1G2-ZDHNlg-t500x500.jpg">](https://soundcloud.com/ruxxi/omg-trydeny-ruxxi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GsOVA1JWNeEP0v2-EntVOg-t500x500.jpg">](https://soundcloud.com/haus-tier/youre-the-best-at-making-me-feel-bad)
 
-**Artist**: Ruxxi 
+**Artist**: Haus Tier 
 
-**Track**: NewJeans - OMG (TRYDENY & Ruxxi Remix)
+**Track**: You're the Best (At Making Me Feel Bad)
 
-Last updated at 12/27/2023 09:15
+Last updated at 12/27/2023 09:16
