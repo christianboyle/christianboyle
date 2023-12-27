@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6nNNy125WGbb93l3-APedTg-t500x500.jpg">](https://soundcloud.com/terugnaardebasis/basis-podcast-031-moes-vinyl-set)
 
-**Artist**: Disco Lines 
+**Artist**: BASIS 
 
-**Track**: Peace of Mind
+**Track**: BASIS PODCAST 031: MOES [vinyl set]
 
-Last updated at 12/27/2023 13:27
+Last updated at 12/27/2023 13:30
