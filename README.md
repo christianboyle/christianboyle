@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgeFFqr3yopijxvZ-z0tkbQ-t500x500.jpg">](https://soundcloud.com/future-bassnet/seekingfree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERH7mEriduTRMAEt-vN2zLQ-t500x500.jpg">](https://soundcloud.com/bornemusicc/drake-central-cee-on-the-radar-borne-remix-2)
 
-**Artist**: Future Bass Records 
+**Artist**: borne 
 
-**Track**: 4US - Seeking Free [Future Bass Release]
+**Track**: Drake & Central Cee - On The Radar (borne Remix)
 
-Last updated at 12/29/2023 13:51
+Last updated at 12/29/2023 13:52
