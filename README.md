@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ft1yN2SzXlnHgN4q-b6YVsA-t500x500.jpg">](https://soundcloud.com/basscon/stormerz-hixxy-behind-hixxy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uDMOWjafRWcv2xzU-zVpTfQ-t500x500.jpg">](https://soundcloud.com/stealmc/ben-critic-baker-with-finchy-steal-live-from-totally-lost-it)
 
-**Artist**: BASSCON 
+**Artist**: Mc Steal 
 
-**Track**: Stormerz - Behind (Hixxy Remix)
+**Track**: BEN CRITIC & BAKER WITH FINCHY & STEAL - LIVE FROM TOTALLY LOST IT
 
-Last updated at 12/29/2023 09:10
+Last updated at 12/29/2023 09:11
