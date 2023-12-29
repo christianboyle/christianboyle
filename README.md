@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERH7mEriduTRMAEt-vN2zLQ-t500x500.jpg">](https://soundcloud.com/bornemusicc/drake-central-cee-on-the-radar-borne-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTxkrnpcwtI2NOAz-KXlfiA-t500x500.jpg">](https://soundcloud.com/intensityrecordings/shooting-star)
 
-**Artist**: borne 
+**Artist**: Intensity Recordings 
 
-**Track**: Drake & Central Cee - On The Radar (borne Remix)
+**Track**: OUTRAGE, No Hero & Narcyz - Shooting Star (ft. Jaime Deraz)
 
-Last updated at 12/29/2023 13:56
+Last updated at 12/29/2023 13:57
