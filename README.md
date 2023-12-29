@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pgigO5as2ziHH2bG-fvtnHQ-t500x500.jpg">](https://soundcloud.com/obscuurrecords/premiere-szg-dark-manoeuvres-representa-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lkxf74R1B1pESMAW-aAxxzA-t500x500.jpg">](https://soundcloud.com/cadillac911/nightvision)
 
-**Artist**: OBSCUUR 
+**Artist**: PURPP CADDY 
 
-**Track**: Premiere: SZG & Dark Manoeuvres - Representa [Free Download]
+**Track**: NIGHT VISION w/ EVILEAF
 
-Last updated at 12/29/2023 07:17
+Last updated at 12/29/2023 07:18
