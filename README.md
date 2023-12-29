@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTxkrnpcwtI2NOAz-KXlfiA-t500x500.jpg">](https://soundcloud.com/intensityrecordings/shooting-star)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lkVB49CRjPtIzL5-0p78SA-t500x500.jpg">](https://soundcloud.com/iamdecoder/live-domicile)
 
-**Artist**: Intensity Recordings 
+**Artist**: Decoder 
 
-**Track**: OUTRAGE, No Hero & Narcyz - Shooting Star (ft. Jaime Deraz)
+**Track**: Live @ Domicile
 
-Last updated at 12/29/2023 13:57
+Last updated at 12/29/2023 14:00
