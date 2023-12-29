@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Mh8V8uLpb5PjnyL-OpPptA-t500x500.jpg">](https://soundcloud.com/morelia/what-do-ya-say?in=xxiiibeats/sets/xxiii-volume-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WeYdce4iy0jn9wir-Lgnd0w-t500x500.jpg">](https://soundcloud.com/karamel0522/shirotation)
 
-**Artist**: Morelia 
+**Artist**: KarameL。 
 
-**Track**: What Do Ya Say
+**Track**: SHIROTATE
 
-Last updated at 12/29/2023 13:54
+Last updated at 12/29/2023 13:55
