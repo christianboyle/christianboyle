@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERH7mEriduTRMAEt-vN2zLQ-t500x500.jpg">](https://soundcloud.com/bornemusicc/drake-central-cee-on-the-radar-borne-remix-2?in=saxurn/sets/tmp/)
 
-**Artist**: Disco Lines 
+**Artist**: borne 
 
-**Track**: Peace of Mind
+**Track**: Drake & Central Cee - On The Radar (borne Remix)
 
-Last updated at 12/30/2023 10:53
+Last updated at 12/30/2023 10:54
