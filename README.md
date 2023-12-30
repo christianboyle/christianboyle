@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZQnYb6qh6d-0-t500x500.png">](https://soundcloud.com/discolines/peace-of-mind?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6xAKFRS7F7bQfaaQ-hKWHrw-t500x500.jpg">](https://soundcloud.com/basscon/sihk-tatsunoshin-everything-feat-rachel-florencia?in=saxurn/sets/tmp/)
 
-**Artist**: Disco Lines 
+**Artist**: BASSCON 
 
-**Track**: Peace of Mind
+**Track**: Sihk, Tatsunoshin - Everything (feat. Rachel Florencia)
 
-Last updated at 12/30/2023 10:51
+Last updated at 12/30/2023 10:52
