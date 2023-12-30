@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGkXGHPnwCm8uEJ1-UtpOeA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-way-i-nrg-nrg?in=nightcore4totalsluts/sets/nightcore4totalsluts-va5-xo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yefHW4sifaljwJD-d4yooA-t500x500.jpg">](https://soundcloud.com/lildvrkie/pussy-too-nukemix)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Lil Darkie 
 
-**Track**: D V D - WAY I NRG
+**Track**: PUSSY TOO NUKEMIX (PROD. SOLSA TRIPLESIXDELETE DJSMOKEY)
 
-Last updated at 12/30/2023 15:27
+Last updated at 12/30/2023 15:30
