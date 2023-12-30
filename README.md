@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5iWqjnzudEAwmPoy-hYILCw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/xxxt-moonlight-void-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-llyBhD28U6A0Dudj-R1NbcQ-t500x500.jpg">](https://soundcloud.com/acemyth/escape-remix)
 
-**Artist**: Hood Politics Records Edits 
+**Artist**: AceMyth 
 
-**Track**: XXXT - MOONLIGHT (VOID Edit) [PREVIEW]
+**Track**: Kx5 - Escape feat. Hayla (AceMyth Remix)
 
-Last updated at 12/30/2023 09:08
+Last updated at 12/30/2023 09:09
