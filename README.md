@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvfv6ubs2Jpzp2V4-opIl3w-t500x500.jpg">](https://soundcloud.com/1laker/tables-laker-joeyy-prod-thr6x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykd31gWP5dsxqiEz-7rKw1g-t500x500.jpg">](https://soundcloud.com/bbygoyard/teacups-and-kettles-prod)
 
-**Artist**: Laker 
+**Artist**: BBY GOYARD 
 
-**Track**: Tables - Laker & Joeyy (Prod. Thr6x & Venexxi)
+**Track**: TEACUPS AND KETTLES (prod. ccured x 4evr) *HOSTED BY DJ SMOKEY*
 
-Last updated at 12/30/2023 15:31
+Last updated at 12/30/2023 15:32
