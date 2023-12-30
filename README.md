@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9fifi1477IKiFswu-LBkWNg-t500x500.jpg">](https://soundcloud.com/justicehardcore/onlyone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Np3hULSrsRCst3b5-I3UH2A-t500x500.jpg">](https://soundcloud.com/silcrowmusic/take-me-down?in=silcrowmusic/sets/take-me-down)
 
-**Artist**: Justice Hardcore 
+**Artist**: Silcrow 
 
-**Track**: Jel7yz & MC Sheehy - Only One (OUT NOW)
+**Track**: TAKE ME DOWN
 
-Last updated at 12/30/2023 09:05
+Last updated at 12/30/2023 09:06
