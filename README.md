@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lkVB49CRjPtIzL5-0p78SA-t500x500.jpg">](https://soundcloud.com/iamdecoder/live-domicile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9fifi1477IKiFswu-LBkWNg-t500x500.jpg">](https://soundcloud.com/justicehardcore/onlyone)
 
-**Artist**: Decoder 
+**Artist**: Justice Hardcore 
 
-**Track**: Live @ Domicile
+**Track**: Jel7yz & MC Sheehy - Only One (OUT NOW)
 
-Last updated at 12/29/2023 14:00
+Last updated at 12/30/2023 09:05
