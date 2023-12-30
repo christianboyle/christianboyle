@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERH7mEriduTRMAEt-vN2zLQ-t500x500.jpg">](https://soundcloud.com/bornemusicc/drake-central-cee-on-the-radar-borne-remix-2?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOohjCzvnPBllI1H-Gc92hw-t500x500.jpg">](https://soundcloud.com/duploc/grawinkel-big-ben-vip)
 
-**Artist**: borne 
+**Artist**: DUPLOC 
 
-**Track**: Drake & Central Cee - On The Radar (borne Remix)
+**Track**: Grawinkel - Big Ben VIP (forthcoming)
 
-Last updated at 12/30/2023 10:54
+Last updated at 12/30/2023 15:26
