@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J60OVxECNu1OWhqi-FyCuNw-t500x500.jpg">](https://soundcloud.com/zettatunes/skinandbones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dV6CVZBzNO8shbc4-TUb7AQ-t500x500.jpg">](https://soundcloud.com/petitbiscuit/honor-your-goals-live-edit?in=petitbiscuit/sets/honor-your-goals-live)
 
-**Artist**: ZETTA 
+**Artist**: PETIT BISCUIT 
 
-**Track**: ZETTA, ANELAY - SKIN&BONES
+**Track**: Honor Your Goals (Live Edit)
 
-Last updated at 01/01/2024 14:42
+Last updated at 01/01/2024 14:43
