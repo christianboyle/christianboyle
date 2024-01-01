@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-it3kyWYXIoI7nQkx-be0nTA-t500x500.jpg">](https://soundcloud.com/djslostidentity/post-malone-vs-jordan-baker-congratulations-x-explode-maxtreme-lost-identity-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HFnRYxr2PmSigQWf-XJpPUg-t500x500.jpg">](https://soundcloud.com/darksys/darksys-darkness-inside-you)
 
-**Artist**: LOST IDENTITY 
+**Artist**: DARKSYS 
 
-**Track**: Post Malone vs. Jordan Baker - Congratulations X Explode (Maxtreme & Lost Identity Bootleg)
+**Track**: Darksys - Darkness Inside You
 
-Last updated at 01/01/2024 16:55
+Last updated at 01/01/2024 16:56
