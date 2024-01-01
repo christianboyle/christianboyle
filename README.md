@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000602388070-07bt6f-t500x500.jpg">](https://soundcloud.com/rekids/dustin-zahn-stranger-to-stability-len-faki-podium-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6q5zDpkAXm0x2p5i-0gXajQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-neika-bad-habits)
 
-**Artist**: REKIDS 
+**Artist**: Rave Alert 
 
-**Track**: Dustin Zahn - Stranger (To Stability) (Len Faki Podium Mix)
+**Track**: [PREMIERE] Neika - Bad Habits
 
-Last updated at 01/01/2024 14:53
+Last updated at 01/01/2024 16:51
