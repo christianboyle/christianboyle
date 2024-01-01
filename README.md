@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8gpLS5KbzGmbsZ9-zIvCfQ-t500x500.jpg">](https://soundcloud.com/maryarcane/hitmewhenithurts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvREzLyuQZHm1QcZ-iYI82w-t500x500.jpg">](https://soundcloud.com/gesmusic/ges-flashback-2)
 
-**Artist**: maryarcane 
+**Artist**: GES 
 
-**Track**: Caroline Polachek - Hit Me Where It Hurts (Mary Arcane Patch)
+**Track**: GES - FLASHBACK
 
-Last updated at 01/01/2024 14:48
+Last updated at 01/01/2024 14:49
