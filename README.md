@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMyvR2Zs6un56UhK-JJHzDw-t500x500.jpg">](https://soundcloud.com/tajine-tabasco/esmerada-3k-special)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrs8Odho8o0NBXX9-Zn7Pxg-t500x500.jpg">](https://soundcloud.com/jakkyboi/i-still-love-my-ex)
 
-**Artist**: TAJINE TABASCO 
+**Artist**: jakkyboí 
 
-**Track**: Esmeralda (3K Special 💫) [FREE DOWNLOAD]
+**Track**: i still love my ex :/
 
-Last updated at 01/01/2024 16:57
+Last updated at 01/01/2024 16:58
