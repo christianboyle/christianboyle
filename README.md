@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7SDNyLToPUUDwjDp-dSXogw-t500x500.jpg">](https://soundcloud.com/drumarmycrew/noise-parfumerie-batrachotoxin-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyP0byYtCBSY8BzI-ENRfLQ-t500x500.jpg">](https://soundcloud.com/djhimera/clarity-2024-will-be-my-year)
 
-**Artist**: Drum Army 
+**Artist**: Himera 
 
-**Track**: Noise Parfumerie - Batrachotoxin (Premiere)
+**Track**: Clarity (2024 Will Be My Year!)
 
-Last updated at 12/31/2023 11:20
+Last updated at 01/01/2024 14:40
