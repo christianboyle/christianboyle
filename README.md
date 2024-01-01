@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RQZQFCzlt5SdQtmK-V9rX4w-t500x500.jpg">](https://soundcloud.com/tanfa/skrillex-tears-tanfa-baile-funk-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J60OVxECNu1OWhqi-FyCuNw-t500x500.jpg">](https://soundcloud.com/zettatunes/skinandbones)
 
-**Artist**: TANFA 
+**Artist**: ZETTA 
 
-**Track**: SKRILLEX - TEARS (TANFA BAILE FUNK FLIP)
+**Track**: ZETTA, ANELAY - SKIN&BONES
 
-Last updated at 01/01/2024 14:41
+Last updated at 01/01/2024 14:42
