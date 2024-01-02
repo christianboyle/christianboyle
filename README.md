@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTnP8orMJqC3-0-t500x500.jpg">](https://soundcloud.com/jxxyy/they-know?in=jxxyy/sets/just-tired-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOBDN8gvSxlb-0-t500x500.jpg">](https://soundcloud.com/jxxyy/grade-9?in=jxxyy/sets/just-tired-2-1)
 
 **Artist**: Joeyy 
 
-**Track**: They Know
+**Track**: Grade 9
 
-Last updated at 01/02/2024 11:23
+Last updated at 01/02/2024 11:25
