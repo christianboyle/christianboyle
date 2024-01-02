@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Byj6eTUzCXSw-0-t500x500.jpg">](https://soundcloud.com/jxxyy/on?in=jxxyy/sets/just-tired-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vhkj6z4ZRHIS5Y67-yYVmAA-t500x500.jpg">](https://soundcloud.com/kompakt/ctpfe_azzecca)
 
-**Artist**: Joeyy 
+**Artist**: Kompakt 
 
-**Track**: On
+**Track**: Rex The Dog - Change This Pain For Ecstasy (Azzecca Remix)
 
-Last updated at 01/02/2024 11:40
+Last updated at 01/02/2024 14:28
