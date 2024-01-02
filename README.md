@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vhkj6z4ZRHIS5Y67-yYVmAA-t500x500.jpg">](https://soundcloud.com/kompakt/ctpfe_azzecca)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PiOiW2uJjat0NHZg-apgmvg-t500x500.jpg">](https://soundcloud.com/maythey/d-v-d-essan1e-delete-forever-1)
 
-**Artist**: Kompakt 
+**Artist**: MAYTHEY 
 
-**Track**: Rex The Dog - Change This Pain For Ecstasy (Azzecca Remix)
+**Track**: D V D, Essan1e - Delete Forever
 
-Last updated at 01/02/2024 14:28
+Last updated at 01/02/2024 14:29
