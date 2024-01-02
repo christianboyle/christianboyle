@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3KKEPgAR00YYWPR-MO0vxg-t500x500.jpg">](https://soundcloud.com/itslucha/lucha-x-dillin-hoox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WfKsvUy3pw4lNQGn-mbeEkg-t500x500.jpg">](https://soundcloud.com/stuinfinity/stu-infinity-quicksand)
 
-**Artist**: Lucha 
+**Artist**: Stu Infinity 
 
-**Track**: Lucha & Dillin Hoox - We Don't Lose
+**Track**: Stu Infinity - Quicksand
 
-Last updated at 01/02/2024 09:29
+Last updated at 01/02/2024 09:30
