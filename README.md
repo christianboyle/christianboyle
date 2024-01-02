@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PiOiW2uJjat0NHZg-apgmvg-t500x500.jpg">](https://soundcloud.com/maythey/d-v-d-essan1e-delete-forever-1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGkXGHPnwCm8uEJ1-UtpOeA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-way-i-nrg-nrg?in=saxurn/sets/tmp/)
 
-**Artist**: MAYTHEY 
+**Artist**: nightcore4totalsluts 
 
-**Track**: D V D, Essan1e - Delete Forever
+**Track**: D V D - WAY I NRG
 
-Last updated at 01/02/2024 14:42
+Last updated at 01/02/2024 14:46
