@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AfvOOjToVHzdGpLD-t8RKqg-t500x500.jpg">](https://soundcloud.com/isoxo/shypop?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BOp5ErzRmjHspdIQ-IyXZYw-t500x500.jpg">](https://soundcloud.com/offspringmusic/whistles-from-above-wav)
 
-**Artist**: ISOxo 
+**Artist**: Offspring Mysterious 
 
-**Track**: SHYPOP (with Ninajirachi)
+**Track**: Whistles From Above
 
-Last updated at 01/02/2024 14:49
+Last updated at 01/03/2024 08:08
