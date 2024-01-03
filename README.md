@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vDF2sgooCZczmyXT-JObQpg-t500x500.jpg">](https://soundcloud.com/999999999music/sikoti-one-more-time-ntnd014?in=sikotii/sets/sikoti-one-more-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzutHfPUN8v9uyYI-1bXxBQ-t500x500.jpg">](https://soundcloud.com/nvadrz/tardecaysmiles)
 
-**Artist**: 999999999 
+**Artist**: NVADRZ 
 
-**Track**: SIKOTI - One More Time [NTND014]
+**Track**: TAR-DECAY SMILES - NVADRZ, ALIAS
 
-Last updated at 01/03/2024 08:10
+Last updated at 01/03/2024 08:11
