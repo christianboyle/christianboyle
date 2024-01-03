@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTxkrnpcwtI2NOAz-KXlfiA-t500x500.jpg">](https://soundcloud.com/intensityrecordings/shooting-star?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTnP8orMJqC3-0-t500x500.jpg">](https://soundcloud.com/jxxyy/they-know?in=jxxyy/sets/just-tired-2-1)
 
-**Artist**: Intensity Recordings 
+**Artist**: Joeyy 
 
-**Track**: OUTRAGE, No Hero & Narcyz - Shooting Star (ft. Jaime Deraz)
+**Track**: They Know
 
-Last updated at 01/03/2024 09:55
+Last updated at 01/03/2024 13:19
