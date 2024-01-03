@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BZ2B5sBB0oqW-0-t500x500.jpg">](https://soundcloud.com/jxxyy/sfogliatelle-feat-dee-aura?in=jxxyy/sets/just-tired-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ASCG1Guhg7EI-0-t500x500.jpg">](https://soundcloud.com/jxxyy/balayage-feat-yhapojj?in=jxxyy/sets/just-tired-2-1)
 
 **Artist**: Joeyy 
 
-**Track**: Sfogliatelle (feat. Dee Aura)
+**Track**: Balayage (feat. Yhapojj)
 
-Last updated at 01/03/2024 13:23
+Last updated at 01/03/2024 13:26
