@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMcKfdWb7a1qe5t8-W7xUcg-t500x500.jpg">](https://soundcloud.com/shibiremusiqq/diving-w-entris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AWNyHgqSS1HoFUlz-9TlOtQ-t500x500.jpg">](https://soundcloud.com/playmerecords/lmnop-see-the-light)
 
-**Artist**: shibíre 
+**Artist**: Play Me Records 
 
-**Track**: diving (w/ entris)
+**Track**: LMNOP - See The Light
 
-Last updated at 01/03/2024 08:12
+Last updated at 01/03/2024 08:13
