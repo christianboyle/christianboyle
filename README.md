@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000502039896-gjxkwk-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-40-texas-baby-nxc-guest-mix-interview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oh1hhnVvb226cnIy-Fk3OlA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/alex-gaudino-crystal-waters-destination-calabria-denim-fox-remix)
 
-**Artist**: SoCal Nightcore Podcast 
+**Artist**: Best House Remixes 
 
-**Track**: Episode 40 - texas baby nxc guest mix + interview
+**Track**: Alex Gaudino & Crystal Waters - Destination Calabria (Denim Fox Remix)
 
-Last updated at 01/03/2024 08:16
+Last updated at 01/03/2024 08:17
