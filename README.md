@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-94tFdUVUMMTvd6qJ-2bga9Q-t500x500.jpg">](https://soundcloud.com/mediiofficial/when-we-ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJkfi7tFrwpl4wJt-rgHzsQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/tate-mcrae-greedy-wbn-mojnz-remix)
 
-**Artist**: Medii 
+**Artist**: Best House Remixes 
 
-**Track**: Medii & BRAVVN - When We Ride
+**Track**: Tate McRae - Greedy (WBN & Mojnz Remix)
 
-Last updated at 01/04/2024 08:00
+Last updated at 01/04/2024 08:01
