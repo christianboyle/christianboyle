@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ASCG1Guhg7EI-0-t500x500.jpg">](https://soundcloud.com/jxxyy/balayage-feat-yhapojj?in=jxxyy/sets/just-tired-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-94tFdUVUMMTvd6qJ-2bga9Q-t500x500.jpg">](https://soundcloud.com/mediiofficial/when-we-ride)
 
-**Artist**: Joeyy 
+**Artist**: Medii 
 
-**Track**: Balayage (feat. Yhapojj)
+**Track**: Medii & BRAVVN - When We Ride
 
-Last updated at 01/03/2024 13:26
+Last updated at 01/04/2024 08:00
