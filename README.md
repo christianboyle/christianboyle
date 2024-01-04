@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEmiwMEjW2n6egka-XSYUjA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/coone-ft-diandra-faye-nothing-to-lose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U3UoupwobhszIGkv-aOcG7A-t500x500.jpg">](https://soundcloud.com/clubangel/club-angel-lost-paradise-2023)
 
-**Artist**: Dirty Workz 
+**Artist**: Club Angel 
 
-**Track**: Coone ft. Diandra Faye - Nothing To Lose
+**Track**: Club Angel - Lost Paradise 2023
 
-Last updated at 01/04/2024 14:25
+Last updated at 01/04/2024 14:26
