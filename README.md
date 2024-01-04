@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mI7Q3uDtFsxMf9Cz-Yc5Sqg-t500x500.jpg">](https://soundcloud.com/gangstahouserec/arendude-bender?in=gangstahouserec/sets/arendude-bender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWjCKiSC3N7qrhF8-RXJzzQ-t500x500.jpg">](https://soundcloud.com/kimksound/rider)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Kim K Sound 
 
-**Track**: ÁREN'DUDE - Bender
+**Track**: Rider
 
-Last updated at 01/04/2024 14:31
+Last updated at 01/04/2024 14:32
