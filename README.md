@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EkuyFymFHm7mxd4A-XmJY5Q-t500x500.jpg">](https://soundcloud.com/derioflorence/katatonic-silentio-residual?in=derioflorence/sets/traiettorie-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XAmnyvfZUPaxv7Sm-rLq1Fg-t500x500.jpg">](https://soundcloud.com/neufneunneufneun/fun-mood-for-2024)
 
-**Artist**: DE RIO 
+**Artist**: NEUF 
 
-**Track**: Katatonic Silentio - Residual
+**Track**: F.U.N. (MOOD FOR 2024)
 
-Last updated at 01/05/2024 09:18
+Last updated at 01/05/2024 13:26
