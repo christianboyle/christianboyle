@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XAmnyvfZUPaxv7Sm-rLq1Fg-t500x500.jpg">](https://soundcloud.com/neufneunneufneun/fun-mood-for-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycStPmyBNBz1jYui-k0ZIfw-t500x500.jpg">](https://soundcloud.com/soladnb/popes-of-chillitown-wisdom-teeth-sola-remix-free-dl)
 
-**Artist**: NEUF 
+**Artist**: Sola 
 
-**Track**: F.U.N. (MOOD FOR 2024)
+**Track**: Popes Of Chillitown - Wisdom Teeth (Sola Remix) [FREE DL]
 
-Last updated at 01/05/2024 13:26
+Last updated at 01/05/2024 13:27
