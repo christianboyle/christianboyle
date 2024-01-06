@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2y5Ifpv3PiKf4yeF-AzTCpA-t500x500.jpg">](https://soundcloud.com/fallenshrine/we-found-stereo-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9gUNslLQmABBTJgW-iac8hQ-t500x500.jpg">](https://soundcloud.com/replicator/replicator-live-in-la)
 
-**Artist**: Fallen Shrine 
+**Artist**: Replicator 
 
-**Track**: We Found Stereo Love
+**Track**: Replicator - LIVE IN LA
 
-Last updated at 01/06/2024 08:25
+Last updated at 01/06/2024 08:26
