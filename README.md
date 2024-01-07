@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FY2CAbcueEEg4IkT-ocNqew-t500x500.jpg">](https://soundcloud.com/hate_music/maedon-hate-podcast-367)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RWnSEqG2F16ASi6o-7NRGQQ-t500x500.jpg">](https://soundcloud.com/tomfinster/the-hole)
 
-**Artist**: HATE 
+**Artist**: Tom Finster 
 
-**Track**: Maedon - HATE Podcast 367
+**Track**: The Hole
 
-Last updated at 01/07/2024 10:37
+Last updated at 01/07/2024 10:39
