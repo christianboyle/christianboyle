@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XAmnyvfZUPaxv7Sm-rLq1Fg-t500x500.jpg">](https://soundcloud.com/neufneunneufneun/fun-mood-for-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztTOpmlDzIKKazCR-XgEo6Q-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-paolo-noise-roby-giordana-demons-hardstyle-remix)
 
-**Artist**: NEUF 
+**Artist**: Luca Testa 
 
-**Track**: F.U.N. (MOOD FOR 2024)
+**Track**: Luca Testa, Paolo Noise, Roby Giordana - Demons [Hardstyle Remix]
 
-Last updated at 01/07/2024 10:41
+Last updated at 01/07/2024 10:42
