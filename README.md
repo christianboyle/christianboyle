@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U3UoupwobhszIGkv-aOcG7A-t500x500.jpg">](https://soundcloud.com/clubangel/club-angel-lost-paradise-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XAmnyvfZUPaxv7Sm-rLq1Fg-t500x500.jpg">](https://soundcloud.com/neufneunneufneun/fun-mood-for-2024)
 
-**Artist**: Club Angel 
+**Artist**: NEUF 
 
-**Track**: Club Angel - Lost Paradise 2023
+**Track**: F.U.N. (MOOD FOR 2024)
 
-Last updated at 01/07/2024 10:40
+Last updated at 01/07/2024 10:41
