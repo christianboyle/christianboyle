@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RWnSEqG2F16ASi6o-7NRGQQ-t500x500.jpg">](https://soundcloud.com/tomfinster/the-hole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U3UoupwobhszIGkv-aOcG7A-t500x500.jpg">](https://soundcloud.com/clubangel/club-angel-lost-paradise-2023)
 
-**Artist**: Tom Finster 
+**Artist**: Club Angel 
 
-**Track**: The Hole
+**Track**: Club Angel - Lost Paradise 2023
 
-Last updated at 01/07/2024 10:39
+Last updated at 01/07/2024 10:40
