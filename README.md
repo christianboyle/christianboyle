@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SuE5gKs5fP2F7UvM-ObuRfA-t500x500.jpg">](https://soundcloud.com/adamenoise/adame-24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FY2CAbcueEEg4IkT-ocNqew-t500x500.jpg">](https://soundcloud.com/hate_music/maedon-hate-podcast-367)
 
-**Artist**: ADAME 
+**Artist**: HATE 
 
-**Track**: ADAME 24
+**Track**: Maedon - HATE Podcast 367
 
-Last updated at 01/06/2024 08:29
+Last updated at 01/07/2024 10:37
