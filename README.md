@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lf0ygOyEruzIz3Ig-AYjV0g-t500x500.jpg">](https://soundcloud.com/bo0tyleak/faded?in=rusuitor/sets/booty-leak-garonzos-hominid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7y0SuEy1zSJqWT1B-RjABRw-t500x500.jpg">](https://soundcloud.com/corecorecc/ity-corecore-x-big-toilet-fm)
 
-**Artist**: BOOTY LEAK 
+**Artist**: corecore 
 
-**Track**: Booty Leak + Garonzos & HOMINID - Faded [ FREE DOWNLOAD ]
+**Track**: ity | corecore x Big Toilet FM
 
-Last updated at 01/08/2024 11:20
+Last updated at 01/08/2024 11:21
