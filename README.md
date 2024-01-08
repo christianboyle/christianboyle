@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZUDzlkWzwKHRASi-kf0hFw-t500x500.png">](https://soundcloud.com/user-612196404/im-feeling-lucky-w-umru-030124)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWI3iQrtLUyqSMEB-ndKX0g-t500x500.jpg">](https://soundcloud.com/luv02/chief-keef-make-america-go-hard-again-daze02-edit)
 
-**Artist**: NTS LATEST 
+**Artist**: daze02 (@dazegxd1k) 
 
-**Track**: I'm Feeling Lucky w/ umru 030124
+**Track**: Chief Keef - Make America Go Hard Again (daze02 Edit)
 
-Last updated at 01/08/2024 16:28
+Last updated at 01/08/2024 16:57
