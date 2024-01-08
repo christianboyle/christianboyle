@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKjZxMCJNrSDlv1r-bUy3gw-t500x500.jpg">](https://soundcloud.com/isladen/rainworld)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zoHRFAcNL2FS0c8u-CkhoLA-t500x500.jpg">](https://soundcloud.com/helveticandoom/paris-frequency)
 
-**Artist**: Isla Den 
+**Artist**: Helvetican 
 
-**Track**: Rainworld
+**Track**: PARIS FREQUENCY
 
-Last updated at 01/08/2024 17:04
+Last updated at 01/08/2024 17:08
