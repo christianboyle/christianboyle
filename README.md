@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztTOpmlDzIKKazCR-XgEo6Q-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-paolo-noise-roby-giordana-demons-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5FwuGyfBG1quCaYu-wYw4gw-t500x500.jpg">](https://soundcloud.com/wearesteez/24-showcase)
 
-**Artist**: Luca Testa 
+**Artist**: STEEZ 
 
-**Track**: Luca Testa, Paolo Noise, Roby Giordana - Demons [Hardstyle Remix]
+**Track**: '24 SHOWCASE
 
-Last updated at 01/07/2024 10:42
+Last updated at 01/08/2024 08:17
