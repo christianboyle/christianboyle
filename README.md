@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9wkiHlzPCRdFcAzz-kOMXjg-t500x500.jpg">](https://soundcloud.com/ghetto_rhythm/ponky-free-delivery-groove-001-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uD2HFq9bMFPQkDNk-V24ieg-t500x500.jpg">](https://soundcloud.com/all-84/ayurveda)
 
-**Artist**: Ghetto Rhythm. 
+**Artist**: ALL84 
 
-**Track**: Pōnky - Free Delivery Groove 001 (FREE DL)
+**Track**: Ayurveda
 
-Last updated at 01/08/2024 12:20
+Last updated at 01/08/2024 12:21
