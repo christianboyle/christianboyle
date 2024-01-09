@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cs322RCjqdOBDa45-BRC0LA-t500x500.jpg">](https://soundcloud.com/wearestudio/throe-contra-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uwPk7CgzZZDBJHaR-jIytJA-t500x500.jpg">](https://soundcloud.com/lostidentitiesmusic/cadmium-x-evilwave-fly-again-lost-identities-remix)
 
-**Artist**: STUDIO 
+**Artist**: Lost Identities 
 
-**Track**: Throe - Contra [Premiere]
+**Track**: Cadmium X Evilwave - Fly Again (Lost Identities Remix)
 
-Last updated at 01/09/2024 16:04
+Last updated at 01/09/2024 16:05
