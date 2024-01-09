@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-rHsWM7H27Kkzzt2R-842l4Q-t500x500.jpg">](https://soundcloud.com/caua-ribeiro-887704962/carta-aberta-dj-salles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZUDzlkWzwKHRASi-kf0hFw-t500x500.png">](https://soundcloud.com/user-612196404/im-feeling-lucky-w-umru-030124)
 
-**Artist**: DJ SALLES 
+**Artist**: NTS LATEST 
 
-**Track**: # ' CARTA ABERTA ( ( DJ SALLES ) )
+**Track**: I'm Feeling Lucky w/ umru 030124
 
-Last updated at 01/08/2024 17:11
+Last updated at 01/09/2024 07:16
