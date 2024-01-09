@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZUDzlkWzwKHRASi-kf0hFw-t500x500.png">](https://soundcloud.com/user-612196404/im-feeling-lucky-w-umru-030124)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yeChZkGTZ50YPem-MPptmg-t500x500.jpg">](https://soundcloud.com/proclamagency/crime-opposite-free-dl)
 
-**Artist**: NTS LATEST 
+**Artist**: PROCLAM 
 
-**Track**: I'm Feeling Lucky w/ umru 030124
+**Track**: CRIME - Opposite (FREE DL)
 
-Last updated at 01/09/2024 07:16
+Last updated at 01/09/2024 16:02
