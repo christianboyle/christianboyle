@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yeChZkGTZ50YPem-MPptmg-t500x500.jpg">](https://soundcloud.com/proclamagency/crime-opposite-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8AA8YR9kKgizVZoD-3BUXLg-t500x500.jpg">](https://soundcloud.com/metalheadz/gyrofield-ones-and-somehows)
 
-**Artist**: PROCLAM 
+**Artist**: Metalheadz 
 
-**Track**: CRIME - Opposite (FREE DL)
+**Track**: gyrofield - Ones and Somehows
 
-Last updated at 01/09/2024 16:02
+Last updated at 01/09/2024 16:03
