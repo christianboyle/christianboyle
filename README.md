@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6drOJ0mELaAkpm8-6QQkZQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-before-it-all-started)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hS2Mbif5rusDG7i2-8exKow-t500x500.jpg">](https://soundcloud.com/mannfredmann/i-think-she-talked-to-me-just-to-get-a-free-cigarette)
 
-**Artist**: Dirty Workz 
+**Artist**: Mannfred 
 
-**Track**: Solstice - Before It All Started
+**Track**: I Think She Talked To Me Just To Get A Free Cigarette
 
-Last updated at 01/10/2024 09:36
+Last updated at 01/10/2024 09:37
