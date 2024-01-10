@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8pSBXHO8tuo7h2SS-Dimvgg-t500x500.jpg">](https://soundcloud.com/yub-official/set-fire-to-the-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEAuIexmAyw1Slka-TRN27w-t500x500.jpg">](https://soundcloud.com/bloomedm/beta-one-im-not-the-only-one-lofi-pet-records)
 
-**Artist**: YuB 
+**Artist**: Lofi Pet Records 
 
-**Track**: Adele - Set Fire To The Rain (YuB & LUPAGE Techno Edit)
+**Track**: Beta One - I'm Not The Only One [Lofi Pet Records]
 
-Last updated at 01/10/2024 08:46
+Last updated at 01/10/2024 08:48
