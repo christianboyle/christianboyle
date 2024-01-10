@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H0IOelyyUHyxayIg-M1IA7g-t500x500.jpg">](https://soundcloud.com/officialyussi/paint-the-town-red-yussi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6drOJ0mELaAkpm8-6QQkZQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-before-it-all-started)
 
-**Artist**: YUSSI 
+**Artist**: Dirty Workz 
 
-**Track**: PAINT THE TOWN RED - YUSSI REMIX [10000 FOLLOWERS FREE DL]
+**Track**: Solstice - Before It All Started
 
-Last updated at 01/10/2024 09:35
+Last updated at 01/10/2024 09:36
