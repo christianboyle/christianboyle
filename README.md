@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWVkPiHBdUEViy7E-v2qwVQ-t500x500.jpg">](https://soundcloud.com/gesesmusic/gesesnwr2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSBgxLopt331Unl8-FN6Dsg-t500x500.jpg">](https://soundcloud.com/bassjackers/mask-off-remix)
 
-**Artist**: GESES 
+**Artist**: BASSJACKERS 
 
-**Track**: GESES NU WORLD RAVE VOL. 2 MASHUP PACK 2024 - (TECHNO, EURODANCE, HARD DANCE)
+**Track**: Mask Off (Bassjackers Remix)
 
-Last updated at 01/10/2024 08:42
+Last updated at 01/10/2024 08:45
