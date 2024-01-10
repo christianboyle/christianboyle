@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OBYPm0xAWSmOTKMH-LV41mw-t500x500.jpg">](https://soundcloud.com/rinse_france/the-dj-plant-texture-sessions-08-janvier-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWVkPiHBdUEViy7E-v2qwVQ-t500x500.jpg">](https://soundcloud.com/gesesmusic/gesesnwr2)
 
-**Artist**: Rinse France 
+**Artist**: GESES 
 
-**Track**: The DJ Plant Texture Sessions : This Is Not special with Alfa Cornae & Katnada - 08 Janvier 2024
+**Track**: GESES NU WORLD RAVE VOL. 2 MASHUP PACK 2024 - (TECHNO, EURODANCE, HARD DANCE)
 
-Last updated at 01/09/2024 18:04
+Last updated at 01/10/2024 08:42
