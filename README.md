@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mxbaHzElH1OsPcGi-ayr7ng-t500x500.jpg">](https://soundcloud.com/rynocerousmusic/peekaboo-x-eliminate-eliminate-rynocerous-mad-city-vocal-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fsfv7fl2WCnhd9Be-DIoDow-t500x500.jpg">](https://soundcloud.com/itsyokomusic/dazzle-feat-inspectah-electric-hawk-premiere)
 
-**Artist**: RYNO 
+**Artist**: Yoko 
 
-**Track**: Peekaboo X Eliminate- Quickness (Ryno Mad City Vocal Edit)
+**Track**: Dazzle (feat. Inspectah) [Electric Hawk Premiere]
 
-Last updated at 01/10/2024 10:40
+Last updated at 01/10/2024 10:42
