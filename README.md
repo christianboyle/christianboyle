@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5OGOwGPejzKRThh-Q9FzVw-t500x500.jpg">](https://soundcloud.com/higherpowerrecords/ohmi-gawds-big-chune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mxbaHzElH1OsPcGi-ayr7ng-t500x500.jpg">](https://soundcloud.com/rynocerousmusic/peekaboo-x-eliminate-eliminate-rynocerous-mad-city-vocal-edit)
 
-**Artist**: Higher Power Records 
+**Artist**: RYNO 
 
-**Track**: OHMi GaWDs - Big Chune
+**Track**: Peekaboo X Eliminate- Quickness (Ryno Mad City Vocal Edit)
 
-Last updated at 01/10/2024 10:37
+Last updated at 01/10/2024 10:40
