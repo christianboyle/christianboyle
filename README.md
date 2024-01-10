@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrkszWMyuYqDTh0K-8e7tpg-t500x500.jpg">](https://soundcloud.com/hexafexofficial/jimmy-jawns)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-37anPYSyvE6PJCPL-hbVjMQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/blade-ward-styl)
 
-**Artist**: HEXAFEX 
+**Artist**: No Hype Music 
 
-**Track**: Jimmy Jawns ?!?! [FREE DOWNLOAD]
+**Track**: Blade Ward - Styl
 
-Last updated at 01/10/2024 10:27
+Last updated at 01/10/2024 10:30
