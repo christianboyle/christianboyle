@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9AzEs5SOkRkDFyp6-dy0eZw-t500x500.jpg">](https://soundcloud.com/heklermusic/hekler-live-escape-2023-what-the-hek-vol-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aulGm8DGZzQeWHHy-wvUJVw-t500x500.jpg">](https://soundcloud.com/deadlinerec/kvlr-6am-free-dl)
 
-**Artist**: HEKLER 
+**Artist**: Deadline Records 
 
-**Track**: HEKLER LIVE @ ESCAPE 2023 (WHAT THE HEK VOL 7)
+**Track**: KVLR - 6am [Free DL]
 
-Last updated at 01/10/2024 09:40
+Last updated at 01/10/2024 09:41
