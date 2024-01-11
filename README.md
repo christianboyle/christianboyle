@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTopWbEAPRRrUuYV-lDQtOA-t500x500.jpg">](https://soundcloud.com/naemsofficial/party-sc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AEztoTuCzE0B7ubP-l16pqw-t500x500.jpg">](https://soundcloud.com/drawnerrecords/truxx-lost-npc-dr025-free-dl)
 
-**Artist**: NAEMS 
+**Artist**: Drawner Records 
 
-**Track**: LMFAO - Party Rock Anthem (NAEMS REMIX)
+**Track**: Truxx - Lost NPC | DR025 | FREE DL
 
-Last updated at 01/11/2024 08:16
+Last updated at 01/11/2024 08:19
