@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQeTF9Yp03V5Blya-NIzMEw-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/gyrofield-forever-ballet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yaxT1jEzcT9oGeSr-WQFS8Q-t500x500.jpg">](https://soundcloud.com/planetyes1/sonic)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: PlanetYes 
 
-**Track**: gyrofield - Forever Ballet
+**Track**: Sonic
 
-Last updated at 01/11/2024 13:50
+Last updated at 01/11/2024 13:54
