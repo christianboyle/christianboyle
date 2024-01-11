@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MH5U9H4CbX3uK3Gg-z6HWDA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/ngo-dont-stay-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K8yq6YfKgldPnB1-bjr1AA-t500x500.jpg">](https://soundcloud.com/ninaprotocol/nina-label-mix-014-3xl)
 
-**Artist**: NCS 
+**Artist**: Nina 
 
-**Track**: NGO - Don't Stay [NCS Release]
+**Track**: Nina Label Mix 014: 3XL
 
-Last updated at 01/11/2024 14:01
+Last updated at 01/11/2024 14:05
