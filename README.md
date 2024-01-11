@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTTonC6HUVEImumG-OdBSGA-t500x500.jpg">](https://soundcloud.com/m1ssjay/ultra-red?in=m1ssjay/sets/club-tools-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7Lzzico0VfvVMLK-HeLsEQ-t500x500.jpg">](https://soundcloud.com/satoshijpn/good-time-satoshi-remix)
 
-**Artist**: Miss Jay 
+**Artist**: SATOSHI 
 
-**Track**: 145 BPM - ultra red
+**Track**: Owl City & Carly Rae Jepson - Good Time (SATOSHI Remix)
 
-Last updated at 01/11/2024 07:03
+Last updated at 01/11/2024 07:04
