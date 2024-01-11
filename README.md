@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nme0smDjHSL6vy25-JigM0w-t500x500.jpg">](https://soundcloud.com/drrux/just-a-dream-ft-pradaaslife-prod-silver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQeTF9Yp03V5Blya-NIzMEw-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/gyrofield-forever-ballet)
 
-**Artist**: Drux 
+**Artist**: Forbidden Frequencies 
 
-**Track**: Just a dream ft. pradaaslife (prod. silver)
+**Track**: gyrofield - Forever Ballet
 
-Last updated at 01/11/2024 13:49
+Last updated at 01/11/2024 13:50
