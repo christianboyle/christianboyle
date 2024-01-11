@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTTonC6HUVEImumG-OdBSGA-t500x500.jpg">](https://soundcloud.com/m1ssjay/ultra-red?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztTOpmlDzIKKazCR-XgEo6Q-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-paolo-noise-roby-giordana-demons-hardstyle-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Miss Jay 
+**Artist**: Luca Testa 
 
-**Track**: 145 BPM - ultra red
+**Track**: Luca Testa, Paolo Noise, Roby Giordana - Demons [Hardstyle Remix]
 
-Last updated at 01/11/2024 10:25
+Last updated at 01/11/2024 10:28
