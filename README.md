@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZbeF1BKvk7HiIr9-nYGbRw-t500x500.jpg">](https://soundcloud.com/sweeetsour/goom-gum-legion-extended-mix-avtook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LhaAdwHCvlic-0-t500x500.jpg">](https://soundcloud.com/gudfellaofficial/those-tears)
 
-**Artist**: Sweet & Sour 
+**Artist**: GUDFELLA 
 
-**Track**: Goom Gum - Legion (Extended Mix) [Avtook]
+**Track**: Those Tears
 
-Last updated at 01/11/2024 13:25
+Last updated at 01/11/2024 13:29
