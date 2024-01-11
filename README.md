@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7Lzzico0VfvVMLK-HeLsEQ-t500x500.jpg">](https://soundcloud.com/satoshijpn/good-time-satoshi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJy8rpGzMOuIGHAM-svPitw-t500x500.jpg">](https://soundcloud.com/pro-tex-beats/pro-tex-xtc-150bpm)
 
-**Artist**: SATOSHI 
+**Artist**: PRO-TEX 
 
-**Track**: Owl City & Carly Rae Jepson - Good Time (SATOSHI Remix)
+**Track**: PRO-TEX - XTC 150BPM [FREE DOWNLOAD]
 
-Last updated at 01/11/2024 07:04
+Last updated at 01/11/2024 07:05
