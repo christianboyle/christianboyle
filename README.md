@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U8E081OP2PopzOOl-AX1lyA-t500x500.jpg">](https://soundcloud.com/offspringmusic/walking-onslaughts-anarchy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-grvgyL3bg8YZ6lHK-eq8Kdw-t500x500.jpg">](https://soundcloud.com/phritzmusic/hudson-mohawke-nikki-nair-tayla-parx-set-the-roof-phritz-remix)
 
-**Artist**: Offspring Mysterious 
+**Artist**: phritz 
 
-**Track**: Walking Onslaughts Anarchy
+**Track**: Set The Roof (phritz remix)
 
-Last updated at 01/11/2024 06:59
+Last updated at 01/11/2024 07:01
