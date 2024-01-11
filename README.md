@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSBgxLopt331Unl8-FN6Dsg-t500x500.jpg">](https://soundcloud.com/bassjackers/mask-off-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTopWbEAPRRrUuYV-lDQtOA-t500x500.jpg">](https://soundcloud.com/naemsofficial/party-sc-2)
 
-**Artist**: BASSJACKERS 
+**Artist**: NAEMS 
 
-**Track**: Mask Off (Bassjackers Remix)
+**Track**: LMFAO - Party Rock Anthem (NAEMS REMIX)
 
-Last updated at 01/11/2024 08:15
+Last updated at 01/11/2024 08:16
