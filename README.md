@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6KFphEKf7hsHZZB-moe5pw-t500x500.jpg">](https://soundcloud.com/bassjackers/prada-bassjackers-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZbeF1BKvk7HiIr9-nYGbRw-t500x500.jpg">](https://soundcloud.com/sweeetsour/goom-gum-legion-extended-mix-avtook)
 
-**Artist**: BASSJACKERS 
+**Artist**: Sweet & Sour 
 
-**Track**: Prada (Bassjackers & Dimitri Vegas Remix)
+**Track**: Goom Gum - Legion (Extended Mix) [Avtook]
 
-Last updated at 01/11/2024 10:36
+Last updated at 01/11/2024 13:25
