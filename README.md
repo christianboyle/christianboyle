@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vhkj6z4ZRHIS5Y67-yYVmAA-t500x500.jpg">](https://soundcloud.com/kompakt/ctpfe_azzecca)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gihglUo6UA1YRlOv-zIjxsA-t500x500.jpg">](https://soundcloud.com/bayemusique/talk-talk-its-my-life-baye-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Kompakt 
+**Artist**: BAYÉ 
 
-**Track**: Rex The Dog - Change This Pain For Ecstasy (Azzecca Remix)
+**Track**: Talk Talk - It's My Life (BAYÉ Remix)
 
-Last updated at 01/11/2024 10:09
+Last updated at 01/11/2024 10:11
