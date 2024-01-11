@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVVhOHRv0zuyyMUa-bY8IJQ-t500x500.jpg">](https://soundcloud.com/montarecs/holly-dabow-suahn-uoh-private-link)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vhkj6z4ZRHIS5Y67-yYVmAA-t500x500.jpg">](https://soundcloud.com/kompakt/ctpfe_azzecca)
 
-**Artist**: MONTA 
+**Artist**: Kompakt 
 
-**Track**: HOLLY, SUAHN , Dabow - UOH
+**Track**: Rex The Dog - Change This Pain For Ecstasy (Azzecca Remix)
 
-Last updated at 01/11/2024 10:05
+Last updated at 01/11/2024 10:09
