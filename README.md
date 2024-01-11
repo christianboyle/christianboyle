@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMjhVXzHxw08Ofwu-V8ot1w-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-239-borne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCE55HgO8LZhA6ly-1wTpFw-t500x500.jpg">](https://soundcloud.com/theoutsidersdnb/the-outsiders-high-tea-melkweg)
 
-**Artist**: FUXWITHIT 
+**Artist**: The Outsiders 
 
-**Track**: FUXWITHIT Guest Mix: 239 - borne
+**Track**: The Outsiders @ High Tea Melkweg
 
-Last updated at 01/11/2024 07:08
+Last updated at 01/11/2024 07:09
