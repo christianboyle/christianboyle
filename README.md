@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LhaAdwHCvlic-0-t500x500.jpg">](https://soundcloud.com/gudfellaofficial/those-tears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olLa9w1l4LyhyaWW-7PTgUQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/detre-on-my-mind)
 
-**Artist**: GUDFELLA 
+**Artist**: Wavecraft Collective 
 
-**Track**: Those Tears
+**Track**: DÊTRE - On My Mind
 
-Last updated at 01/11/2024 13:29
+Last updated at 01/11/2024 13:33
