@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-grvgyL3bg8YZ6lHK-eq8Kdw-t500x500.jpg">](https://soundcloud.com/phritzmusic/hudson-mohawke-nikki-nair-tayla-parx-set-the-roof-phritz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0XPtWsl1W3agc3J-VzwqOQ-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/molecular-figure-it-out-vip)
 
-**Artist**: phritz 
+**Artist**: Forbidden Frequencies 
 
-**Track**: Set The Roof (phritz remix)
+**Track**: Molecular - Figure It Out VIP [Free Download]
 
-Last updated at 01/11/2024 07:01
+Last updated at 01/11/2024 07:02
