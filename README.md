@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzxIhgY7aZ0NVmJc-7kx3OA-t500x500.jpg">](https://soundcloud.com/crystalskies/crystal-skies-haliene-stardust?in=itslostindreams/sets/crystal-skies-haliene-stardust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MH5U9H4CbX3uK3Gg-z6HWDA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/ngo-dont-stay-ncs-release)
 
-**Artist**: Crystal Skies 
+**Artist**: NCS 
 
-**Track**: Crystal Skies & HALIENE - Stardust
+**Track**: NGO - Don't Stay [NCS Release]
 
-Last updated at 01/11/2024 13:56
+Last updated at 01/11/2024 14:01
