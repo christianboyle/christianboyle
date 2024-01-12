@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYycozFvyNFrKU59-KVbdiA-t500x500.jpg">](https://soundcloud.com/prada2000/walking-on-a-dream-prada2000-edit-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7rCnyN4QzrzHb6b-4pzN7A-t500x500.jpg">](https://soundcloud.com/technowereld/technowereldpodcast-strisc)
 
-**Artist**: PRADA2000 
+**Artist**: Techno Wereld 
 
-**Track**: Walking On A Dream (PRADA2000 Edit)
+**Track**: TW PODCAST 029 - STRISC.
 
-Last updated at 01/12/2024 09:34
+Last updated at 01/12/2024 09:35
