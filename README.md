@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ygsWvaKgIEQfFzV-SQwYyQ-t500x500.jpg">](https://soundcloud.com/bvrnd/kendrick-lamar-swimming-pools-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H3jpYMuvxo8zDIPT-2hTGsA-t500x500.jpg">](https://soundcloud.com/tiesto/tiesto-rudimental-waterslides-feat-absolutely?in=tiesto/sets/tiesto-rudimental-absolutely-1)
 
-**Artist**: BVRN'D 
+**Artist**: Tiësto 
 
-**Track**: Kendrick Lamar - Swimming Pools (BVRNOUT Remix) [Click Buy]
+**Track**: Tiësto, Rudimental & Absolutely - Waterslides
 
-Last updated at 01/12/2024 09:17
+Last updated at 01/12/2024 09:19
