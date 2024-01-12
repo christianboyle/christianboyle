@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ScUIt7kPQy7tCQq-HU2B3A-t500x500.jpg">](https://soundcloud.com/jukaamusic/doja-cat-agora-hills-jukaa-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZLUwyB9lVrJAibx-CHvl0Q-t500x500.jpg">](https://soundcloud.com/all172things/omina-reside-a172t013?in=all172things/sets/omina-reside-a172t013)
 
-**Artist**: Jukaa 
+**Artist**: All172Things 
 
-**Track**: Doja Cat - Agora Hills (Jukaa Bootleg)
+**Track**: Omina - Reside [A172T013]
 
-Last updated at 01/12/2024 08:38
+Last updated at 01/12/2024 08:40
