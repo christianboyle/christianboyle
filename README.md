@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H3jpYMuvxo8zDIPT-2hTGsA-t500x500.jpg">](https://soundcloud.com/tiesto/tiesto-rudimental-waterslides-feat-absolutely?in=tiesto/sets/tiesto-rudimental-absolutely-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8thx72FajTEJfF2E-A5u4NQ-t500x500.jpg">](https://soundcloud.com/naems-remixes/all-my-life-naems-edit-1)
 
-**Artist**: Tiësto 
+**Artist**: NAEMS (Remixes) 
 
-**Track**: Tiësto, Rudimental & Absolutely - Waterslides
+**Track**: All My Life (NAEMS EDIT)
 
-Last updated at 01/12/2024 09:19
+Last updated at 01/12/2024 09:21
