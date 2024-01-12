@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBeyQy0K63Cveud2-60s4iw-t500x500.jpg">](https://soundcloud.com/the-log-cabin-428118096/buzz-junior-on-the-block)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYycozFvyNFrKU59-KVbdiA-t500x500.jpg">](https://soundcloud.com/prada2000/walking-on-a-dream-prada2000-edit-2)
 
-**Artist**: The Log Cabin 
+**Artist**: PRADA2000 
 
-**Track**: Buzz Junior - On The Block 2
+**Track**: Walking On A Dream (PRADA2000 Edit)
 
-Last updated at 01/12/2024 09:23
+Last updated at 01/12/2024 09:34
