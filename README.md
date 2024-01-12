@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CosiGAPnvl1deZRQ-2iZqsA-t500x500.jpg">](https://soundcloud.com/elicitrecords/dom-carlo-ssslip-leech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ScUIt7kPQy7tCQq-HU2B3A-t500x500.jpg">](https://soundcloud.com/jukaamusic/doja-cat-agora-hills-jukaa-bootleg)
 
-**Artist**: Elicit 
+**Artist**: Jukaa 
 
-**Track**: Dom Carlo & SSSLIP - Leech
+**Track**: Doja Cat - Agora Hills (Jukaa Bootleg)
 
-Last updated at 01/12/2024 08:36
+Last updated at 01/12/2024 08:38
