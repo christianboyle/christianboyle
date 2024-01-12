@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqsBfY8syAYziqnt-lTI6uw-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/enjoytheride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpfJtGCBAavbqilN-0hycrg-t500x500.jpg">](https://soundcloud.com/craymakmusic/utt)
 
-**Artist**: Dancing Dead 
+**Artist**: CRaymak 
 
-**Track**: Crude Intentions - Enjoy The Ride (Extended Mix)
+**Track**: CRaymak - Under The Tree (feat. Demitri Medina) [From 'Attack On Titan']
 
-Last updated at 01/12/2024 08:59
+Last updated at 01/12/2024 09:02
