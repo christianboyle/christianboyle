@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpfJtGCBAavbqilN-0hycrg-t500x500.jpg">](https://soundcloud.com/craymakmusic/utt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wN97LL2BkNxJOyXG-WhLU0Q-t500x500.jpg">](https://soundcloud.com/jalayamusic/mischievous-ft-isabelle-rose-1)
 
-**Artist**: CRaymak 
+**Artist**: Jalaya 
 
-**Track**: CRaymak - Under The Tree (feat. Demitri Medina) [From 'Attack On Titan']
+**Track**: Mischievous Ft. Isabelle Rose
 
-Last updated at 01/12/2024 09:02
+Last updated at 01/12/2024 09:07
