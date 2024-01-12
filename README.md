@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wN97LL2BkNxJOyXG-WhLU0Q-t500x500.jpg">](https://soundcloud.com/jalayamusic/mischievous-ft-isabelle-rose-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqEqW9BwzEc0eDhU-FQesTQ-t500x500.jpg">](https://soundcloud.com/3000bass/phantasm-take)
 
-**Artist**: Jalaya 
+**Artist**: 3000 BASS 
 
-**Track**: Mischievous Ft. Isabelle Rose
+**Track**: PHANTASM - Take
 
-Last updated at 01/12/2024 09:07
+Last updated at 01/12/2024 09:11
