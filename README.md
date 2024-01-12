@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNoWwH0tTW6K-0-t500x500.jpg">](https://soundcloud.com/oneseventy/summa-jae-axel-oliver-all-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMjhVXzHxw08Ofwu-V8ot1w-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-239-borne)
 
-**Artist**: OneSeventy 
+**Artist**: FUXWITHIT 
 
-**Track**: Summa Jae & Axel Oliver - All Over Again
+**Track**: FUXWITHIT Guest Mix: 239 - borne
 
-Last updated at 01/12/2024 10:56
+Last updated at 01/12/2024 10:58
