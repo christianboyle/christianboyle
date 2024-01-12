@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SK13dPztv6P0Omq-NgeG6w-t500x500.jpg">](https://soundcloud.com/thefinesttechno/tucker-screech-machine-tft018?in=callumtucker1/sets/the-finest-techno-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JcsU46nKkUMkC6Xk-6njubg-t500x500.jpg">](https://soundcloud.com/debisco/second-contact?in=debisco/sets/first-contact-single-2024-self)
 
-**Artist**: The Finest Techno 
+**Artist**: DeBisco 
 
-**Track**: TUCKER - SCREECH MACHINE [TFT018]
+**Track**: Second Contact
 
-Last updated at 01/12/2024 08:33
+Last updated at 01/12/2024 08:35
