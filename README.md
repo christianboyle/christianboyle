@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGAUsGRNqUPa-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/fahjah-ezra-hazard-little-love?in=fahjahmusic/sets/fahjah-ezra-hazard-little-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqsBfY8syAYziqnt-lTI6uw-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/enjoytheride)
 
-**Artist**: Find Your Harmony 
+**Artist**: Dancing Dead 
 
-**Track**: Fahjah & Ezra Hazard - Little Love
+**Track**: Crude Intentions - Enjoy The Ride (Extended Mix)
 
-Last updated at 01/12/2024 08:55
+Last updated at 01/12/2024 08:59
