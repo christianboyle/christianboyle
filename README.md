@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PpH0hrQHdPpzYgp0-BYXSOw-t500x500.png">](https://soundcloud.com/tnt_ofc/govnah-graveyard-tnt003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mgq59VzjMwIZuKzl-cfbiIg-t500x500.jpg">](https://soundcloud.com/sopranosbounce/dj-shivv-sopranoss-24th-febuary-mode-burnley-promo)
 
-**Artist**: TNT 
+**Artist**: Sopranos Bounce 
 
-**Track**: GOVNAH – Graveyard [TNT003]
+**Track**: DJ SHIVV SOPRANOS 24TH FEBUARY MODE BURNLEY PROMO
 
-Last updated at 01/13/2024 06:27
+Last updated at 01/13/2024 06:28
