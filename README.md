@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMjhVXzHxw08Ofwu-V8ot1w-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-239-borne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpArS0ftWsnNS744-dqqBpQ-t500x500.jpg">](https://soundcloud.com/cristianmarchi/wham-last-christmas-2023-cristian-marchi-luis-rodriguez-bootleg)
 
-**Artist**: FUXWITHIT 
+**Artist**: Cristian Marchi 
 
-**Track**: FUXWITHIT Guest Mix: 239 - borne
+**Track**: WHAM - Last Christmas 2023 (Cristian Marchi & Luis Rodriguez Bootleg)
 
-Last updated at 01/13/2024 06:32
+Last updated at 01/13/2024 11:30
