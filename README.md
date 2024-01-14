@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCDonWQKOCyyRvsv-ut5g9g-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/kdh-beginning?in=chillplanetmusic/sets/best-of-chill-planet-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9n8uyjMEZ5fince-S86mFw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/knuckles-bad-original-mix)
 
-**Artist**: Chill Planet 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: KDH - Beginning
+**Track**: Knuckles - Bad (Original Mix)
 
-Last updated at 01/14/2024 14:13
+Last updated at 01/14/2024 14:14
