@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BmYo2I6vhTcJ73If-Ugxgjw-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/taiga-for-you-1?in=chillplanetmusic/sets/best-of-chill-planet-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cawuQnko9u3seT4z-MZLa3g-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/divaro-closer?in=chillplanetmusic/sets/best-of-chill-planet-2023)
 
 **Artist**: Chill Planet 
 
-**Track**: TAIGA - For You
+**Track**: Divaro - Closer
 
-Last updated at 01/14/2024 11:13
+Last updated at 01/14/2024 11:16
