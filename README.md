@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-El59yykiabJzyf2A-7X86zg-t500x500.jpg">](https://soundcloud.com/thewbass/jet2u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqxP1IM4Tbko-0-t500x500.jpg">](https://soundcloud.com/kastramusic/kastra-luma-think-about-you-1)
 
-**Artist**: Thew 
+**Artist**: Kastra 
 
-**Track**: jet 2 u
+**Track**: Kastra & Luma - Think About You
 
-Last updated at 01/14/2024 11:03
+Last updated at 01/14/2024 11:04
