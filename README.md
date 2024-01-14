@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTopWbEAPRRrUuYV-lDQtOA-t500x500.jpg">](https://soundcloud.com/naemsofficial/party-sc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tdu7dY1gsexZlqxx-KFURyg-t500x500.png">](https://soundcloud.com/seal-network/1062backtoyou)
 
-**Artist**: NAEMS 
+**Artist**: Seal Network 
 
-**Track**: LMFAO - Party Rock Anthem (NAEMS REMIX)
+**Track**: Artix - Back To You
 
-Last updated at 01/13/2024 15:13
+Last updated at 01/14/2024 11:02
