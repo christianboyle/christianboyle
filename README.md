@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5HBmouzvRhgO2dyj-5J9Isw-t500x500.jpg">](https://soundcloud.com/freshtheprophet/1spliff-w-swagman-prod-lsdvas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpzqnnkKmh0fa3wg-NkXejQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/21ror-not-in-love-feat-madishu?in=chillplanetmusic/sets/best-of-chill-planet-2023)
 
-**Artist**: Fresh The Prophet 
+**Artist**: Chill Planet 
 
-**Track**: 1SPLIFF w SWAGMAN prod lsdvas
+**Track**: 21RoR - Not In Love (feat. Madishu)
 
-Last updated at 01/14/2024 11:05
+Last updated at 01/14/2024 11:11
