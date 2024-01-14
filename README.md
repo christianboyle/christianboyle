@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9n8uyjMEZ5fince-S86mFw-t500x500.jpg">](https://soundcloud.com/gangstahouserec/knuckles-bad-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u4qBxtXtypLpwCF5-ekUCFA-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/thred-madness)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: High Caliber Records 
 
-**Track**: Knuckles - Bad (Original Mix)
+**Track**: Thred - Madness
 
-Last updated at 01/14/2024 14:14
+Last updated at 01/14/2024 14:15
