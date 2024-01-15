@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gihglUo6UA1YRlOv-zIjxsA-t500x500.jpg">](https://soundcloud.com/bayemusique/talk-talk-its-my-life-baye-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJy8rpGzMOuIGHAM-svPitw-t500x500.jpg">](https://soundcloud.com/pro-tex-beats/pro-tex-xtc-150bpm?in=saxurn/sets/tmp/)
 
-**Artist**: BAYÉ 
+**Artist**: PRO-TEX 
 
-**Track**: Talk Talk - It's My Life (BAYÉ Remix)
+**Track**: PRO-TEX - XTC 150BPM [FREE DOWNLOAD]
 
-Last updated at 01/15/2024 14:15
+Last updated at 01/15/2024 14:21
