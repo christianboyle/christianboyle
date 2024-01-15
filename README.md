@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhomMDesA70UOSHF-PdLnvg-t500x500.jpg">](https://soundcloud.com/user-279994848/love-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G1PyVB6ZpYkZFudg-jqgxrQ-t500x500.jpg">](https://soundcloud.com/ephexbass/behemoth-dubplate)
 
-**Artist**: lyra 
+**Artist**: Ephex 
 
-**Track**: love me
+**Track**: Behemoth (Dubplate)
 
-Last updated at 01/15/2024 12:49
+Last updated at 01/15/2024 12:50
