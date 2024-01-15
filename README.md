@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vX3QyEzxMV5hG8ti-Gh57Ow-t500x500.jpg">](https://soundcloud.com/ta1lsd0ll/the-most-filler-song-in-the-entire-comp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lGrVvNgN4x6Ke7rD-PJ06cA-t500x500.jpg">](https://soundcloud.com/wubaholics/devowr-finneh-a-fiyah-beat)
 
-**Artist**: ta1lsd0ll 
+**Artist**: Wubaholics 
 
-**Track**: ta1lsd022
+**Track**: DEVOWR. & finneh - A FIYAH BEAT
 
-Last updated at 01/15/2024 12:47
+Last updated at 01/15/2024 12:48
