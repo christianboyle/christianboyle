@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yj2J4fbeCK6RzUou-hDME7g-t500x500.jpg">](https://soundcloud.com/trapicalmusic/nostalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GylgGBldGiN4pnKd-owTWbA-t500x500.jpg">](https://soundcloud.com/vinceedward/vin-e-that-girl-1)
 
-**Artist**: Trapical Music 
+**Artist**: Punky Brewstar/Vince Edward/vin-E 
 
-**Track**: lys! - Nostalgia
+**Track**: Vin - E That Girl
 
-Last updated at 01/15/2024 12:52
+Last updated at 01/15/2024 12:53
