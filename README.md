@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjaeVkYyIUZUXl6k-qHB0FQ-t500x500.jpg">](https://soundcloud.com/gangstahouserec/markuz-666-original-mix?in=gangstahouserec/sets/markuz-666-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fousfj8olY8B03Jz-TzJofg-t500x500.jpg">](https://soundcloud.com/besthouseremixes/therr-maitz-my-love-is-like-rakurs-mike-prado-remix)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Best House Remixes 
 
-**Track**: MARKUZ - 666 (Original Mix)
+**Track**: Therr Maitz - My Love Is Like (Rakurs & Mike Prado Remix)
 
-Last updated at 01/16/2024 09:32
+Last updated at 01/16/2024 09:33
