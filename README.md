@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynXowNxZKL4L-0-t500x500.jpg">](https://soundcloud.com/oneseventy/cg-x-echoes?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0f5Uy2jRzLfBMoRY-acyWSQ-t500x500.jpg">](https://soundcloud.com/shanghaidoom/shanghai-doom-mouse-trap-vip)
 
-**Artist**: OneSeventy 
+**Artist**: Shanghai Doom 
 
-**Track**: CG X - Echoes
+**Track**: Shanghai Doom - Mouse Trap VIP
 
-Last updated at 01/15/2024 14:43
+Last updated at 01/16/2024 09:29
