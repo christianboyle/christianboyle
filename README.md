@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZnfzxeAv2ZDoUiL-IDjfaA-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-joey-risdon-silent-release-eyd027)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-moLV062K52Fn-0-t500x500.jpg">](https://soundcloud.com/ellahenderson/alibi-feat-rudimental)
 
-**Artist**: INNERGATED 
+**Artist**: Ella Henderson 
 
-**Track**: Premiere: Joey Risdon - Silent Release [EYD027]
+**Track**: Alibi (feat. Rudimental)
 
-Last updated at 01/17/2024 07:05
+Last updated at 01/17/2024 07:08
