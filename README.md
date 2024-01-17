@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1psPtwOzGTkl2eUU-k7PYxg-t500x500.jpg">](https://soundcloud.com/capshun/eli-brown-diamonds-on-my-mind-capshun-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLXsT3Uep2fc4Bk4-4scl8A-t500x500.jpg">](https://soundcloud.com/tanukichi/higher)
 
-**Artist**: capshun 
+**Artist**: Tanukichi 
 
-**Track**: Eli Brown - Diamonds On My Mind (capshun Remix)
+**Track**: Mandidextrous & Tanukichi - Higher
 
-Last updated at 01/17/2024 10:44
+Last updated at 01/17/2024 13:18
