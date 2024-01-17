@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OSBgxLopt331Unl8-FN6Dsg-t500x500.jpg">](https://soundcloud.com/bassjackers/mask-off-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTTonC6HUVEImumG-OdBSGA-t500x500.jpg">](https://soundcloud.com/m1ssjay/ultra-red?in=saxurn/sets/tmp/)
 
-**Artist**: BASSJACKERS 
+**Artist**: Miss Jay 
 
-**Track**: Mask Off (Bassjackers Remix)
+**Track**: 145 BPM - ultra red
 
-Last updated at 01/17/2024 10:10
+Last updated at 01/17/2024 10:14
