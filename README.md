@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B9iQGLPRFW7BukQq-CP9IUg-t500x500.jpg">](https://soundcloud.com/bassment-dwellers/bdr030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHjL4NcTyyPChKya-rbFzzg-t500x500.jpg">](https://soundcloud.com/user-219120497/xts-money-right-free-dl)
 
-**Artist**: Bassment Dweller Records 
+**Artist**: Rebellion Records 
 
-**Track**: FauHx - Weep Womp
+**Track**: XTS - Money Right (FREE DL)
 
-Last updated at 01/17/2024 06:55
+Last updated at 01/17/2024 06:56
