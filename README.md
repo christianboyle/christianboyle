@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-moLV062K52Fn-0-t500x500.jpg">](https://soundcloud.com/ellahenderson/alibi-feat-rudimental)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BYjYy1dy4WHpPXzt-FRFi5w-t500x500.jpg">](https://soundcloud.com/blindsidedrec/in-the-mix-48-notorious-lynch)
 
-**Artist**: Ella Henderson 
+**Artist**: BLINDsided Records 
 
-**Track**: Alibi (feat. Rudimental)
+**Track**: In The Mix #48 - Notorious Lynch
 
-Last updated at 01/17/2024 07:08
+Last updated at 01/17/2024 09:03
