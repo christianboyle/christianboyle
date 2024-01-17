@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9BXB7yewlvUvyaW-ElGzDw-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-elevation-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tdu7dY1gsexZlqxx-KFURyg-t500x500.png">](https://soundcloud.com/seal-network/1062backtoyou)
 
-**Artist**: KINN 
+**Artist**: Seal Network 
 
-**Track**: S3RL - ELEVATION (KINN - REMIX) **FREE DOWNLOAD**
+**Track**: Artix - Back To You
 
-Last updated at 01/17/2024 10:00
+Last updated at 01/17/2024 10:02
