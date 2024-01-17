@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHjL4NcTyyPChKya-rbFzzg-t500x500.jpg">](https://soundcloud.com/user-219120497/xts-money-right-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIaUz4czDPAKHVXU-CN6hqg-t500x500.jpg">](https://soundcloud.com/innergatetechno/infeed-freedom-inside-your-illness-ls41remix)
 
-**Artist**: Rebellion Records 
+**Artist**: INNERGATED 
 
-**Track**: XTS - Money Right (FREE DL)
+**Track**: INFEED - FREEDOM INSIDE YOUR ILLNESS (LS41 Remix) [INNERGATED EP]
 
-Last updated at 01/17/2024 06:56
+Last updated at 01/17/2024 07:00
