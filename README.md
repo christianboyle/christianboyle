@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B6KFphEKf7hsHZZB-moe5pw-t500x500.jpg">](https://soundcloud.com/bassjackers/prada-bassjackers-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynXowNxZKL4L-0-t500x500.jpg">](https://soundcloud.com/oneseventy/cg-x-echoes?in=saxurn/sets/tmp/)
 
-**Artist**: BASSJACKERS 
+**Artist**: OneSeventy 
 
-**Track**: Prada (Bassjackers & Dimitri Vegas Remix)
+**Track**: CG X - Echoes
 
-Last updated at 01/17/2024 10:25
+Last updated at 01/17/2024 10:28
