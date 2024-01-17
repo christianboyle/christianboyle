@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vixeqfts2GvHu7mA-38npmg-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-forever-young)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AT8seNtMrNxrjOC5-brfxnw-t500x500.jpg">](https://soundcloud.com/hotdogwaterr/blame-it-on-the-weather)
 
-**Artist**: Brett Cooper (Scarred DIgital) 
+**Artist**: DB80809 
 
-**Track**: Brett Cooper - Forever Young (Free Download)
+**Track**: blame it on the weather
 
-Last updated at 01/17/2024 06:51
+Last updated at 01/17/2024 06:52
