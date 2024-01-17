@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVosNCCygIFu12WS-V7oXYg-t500x500.jpg">](https://soundcloud.com/parkahproducer/katy-perry-last-friday-night-parkah-durzo-hypertechno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJy8rpGzMOuIGHAM-svPitw-t500x500.jpg">](https://soundcloud.com/pro-tex-beats/pro-tex-xtc-150bpm?in=saxurn/sets/tmp/)
 
-**Artist**: ＰＡＲＫＡＨ 
+**Artist**: PRO-TEX 
 
-**Track**: Katy Perry - Last Friday Night (PARKAH & DURZO Hypertechno Remix)
+**Track**: PRO-TEX - XTC 150BPM [FREE DOWNLOAD]
 
-Last updated at 01/17/2024 10:03
+Last updated at 01/17/2024 10:07
