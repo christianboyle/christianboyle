@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVVhOHRv0zuyyMUa-bY8IJQ-t500x500.jpg">](https://soundcloud.com/montarecs/holly-dabow-suahn-uoh-private-link)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XAmnyvfZUPaxv7Sm-rLq1Fg-t500x500.jpg">](https://soundcloud.com/neufneunneufneun/fun-mood-for-2024)
 
-**Artist**: MONTA 
+**Artist**: NEUF 
 
-**Track**: HOLLY, SUAHN , Dabow - UOH
+**Track**: F.U.N. (MOOD FOR 2024)
 
-Last updated at 01/17/2024 09:52
+Last updated at 01/17/2024 09:57
