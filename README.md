@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BYjYy1dy4WHpPXzt-FRFi5w-t500x500.jpg">](https://soundcloud.com/blindsidedrec/in-the-mix-48-notorious-lynch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhbEGXI7FmzAZ47a-LXkU4A-t500x500.jpg">](https://soundcloud.com/future-bassnet/findmyself)
 
-**Artist**: BLINDsided Records 
+**Artist**: Future Bass Records 
 
-**Track**: In The Mix #48 - Notorious Lynch
+**Track**: Bumpÿ & Vincentz - Find Myself [Future Bass Release]
 
-Last updated at 01/17/2024 09:03
+Last updated at 01/17/2024 09:07
