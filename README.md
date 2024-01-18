@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000342517728-1rf8ue-t500x500.jpg">](https://soundcloud.com/xlr8r/premiere-zuli-trigger-finger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVGWOwRwZMB9xKgK-qXrCXw-t500x500.jpg">](https://soundcloud.com/obscuurrecords/cyberpunkers-kinetic-field-1)
 
-**Artist**: XLR8R 
+**Artist**: OBSCUUR 
 
-**Track**: Premiere: ZULI - Trigger Finger
+**Track**: Cyberpunkers - Kinetic Field
 
-Last updated at 01/18/2024 07:08
+Last updated at 01/18/2024 07:17
