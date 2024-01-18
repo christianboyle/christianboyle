@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJWDgyuRYHxweWmI-ZpyFZw-t500x500.jpg">](https://soundcloud.com/djhungergames1/max-peezay-tukholma-dj-crime-geemix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000244352024-ajwffd-t500x500.jpg">](https://soundcloud.com/yungsherman/frozen-kamixlo-remix)
 
-**Artist**: DJ CRIME 
+**Artist**: yung sherman 
 
-**Track**: Max Peezay Tukholma DJ CRIME GEEMIX
+**Track**: Frozen (Kamixlo Remix)
 
-Last updated at 01/18/2024 09:00
+Last updated at 01/18/2024 09:04
