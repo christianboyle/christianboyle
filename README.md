@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztTOpmlDzIKKazCR-XgEo6Q-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-paolo-noise-roby-giordana-demons-hardstyle-remix?in=saxurn/sets/cmittka-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vhkj6z4ZRHIS5Y67-yYVmAA-t500x500.jpg">](https://soundcloud.com/kompakt/ctpfe_azzecca?in=saxurn/sets/cmittka-a)
 
-**Artist**: Luca Testa 
+**Artist**: Kompakt 
 
-**Track**: Luca Testa, Paolo Noise, Roby Giordana - Demons [Hardstyle Remix]
+**Track**: Rex The Dog - Change This Pain For Ecstasy (Azzecca Remix)
 
-Last updated at 01/18/2024 12:31
+Last updated at 01/18/2024 12:33
