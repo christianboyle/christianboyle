@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qp3JwawW8RE9kaBa-UExtwg-t500x500.jpg">](https://soundcloud.com/cloutfarmpod/episode-10-freaky-style-feat-dj-smokey-full-episode-on-patreon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJWDgyuRYHxweWmI-ZpyFZw-t500x500.jpg">](https://soundcloud.com/djhungergames1/max-peezay-tukholma-dj-crime-geemix)
 
-**Artist**: Clout Farm 
+**Artist**: DJ CRIME 
 
-**Track**: Episode 10: “FREAKY STYLE” feat. DJ Smokey *FULL EPISODE ON PATREON*
+**Track**: Max Peezay Tukholma DJ CRIME GEEMIX
 
-Last updated at 01/18/2024 08:25
+Last updated at 01/18/2024 09:00
