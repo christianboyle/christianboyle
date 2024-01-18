@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVVhOHRv0zuyyMUa-bY8IJQ-t500x500.jpg">](https://soundcloud.com/montarecs/holly-dabow-suahn-uoh-private-link?in=saxurn/sets/cmittka-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVGWOwRwZMB9xKgK-qXrCXw-t500x500.jpg">](https://soundcloud.com/obscuurrecords/cyberpunkers-by-the-time-1?in=saxurn/sets/cmittka-b)
 
-**Artist**: MONTA 
+**Artist**: OBSCUUR 
 
-**Track**: HOLLY, SUAHN , Dabow - UOH
+**Track**: Cyberpunkers - By The Time
 
-Last updated at 01/18/2024 12:48
+Last updated at 01/18/2024 12:54
