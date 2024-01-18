@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9BXB7yewlvUvyaW-ElGzDw-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-elevation-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000342517728-1rf8ue-t500x500.jpg">](https://soundcloud.com/xlr8r/premiere-zuli-trigger-finger)
 
-**Artist**: KINN 
+**Artist**: XLR8R 
 
-**Track**: S3RL - ELEVATION (KINN - REMIX) **FREE DOWNLOAD**
+**Track**: Premiere: ZULI - Trigger Finger
 
-Last updated at 01/17/2024 13:24
+Last updated at 01/18/2024 07:08
