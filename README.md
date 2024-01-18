@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBqhghej3yuHnKrT-nDBpMA-t500x500.jpg">](https://soundcloud.com/platform/yung-sherman-stockholm-friday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sEy8CxoQXAXBORWI-nG97WA-t500x500.jpg">](https://soundcloud.com/daily/yung-sherman-boiler-room-stockholm-2023)
 
-**Artist**: Boiler Room 
+**Artist**: max 
 
-**Track**: Yung Sherman | Boiler Room: Stockholm
+**Track**: Yung Sherman Boiler Room Stockholm 2023
 
-Last updated at 01/18/2024 09:21
+Last updated at 01/18/2024 11:55
