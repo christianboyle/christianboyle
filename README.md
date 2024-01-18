@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVGWOwRwZMB9xKgK-qXrCXw-t500x500.jpg">](https://soundcloud.com/obscuurrecords/cyberpunkers-kinetic-field-1?in=saxurn/sets/cmittka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJWDgyuRYHxweWmI-ZpyFZw-t500x500.jpg">](https://soundcloud.com/djhungergames1/max-peezay-tukholma-dj-crime-geemix?in=saxurn/sets/cmittka-b)
 
-**Artist**: OBSCUUR 
+**Artist**: DJ CRIME 
 
-**Track**: Cyberpunkers - Kinetic Field
+**Track**: Max Peezay Tukholma DJ CRIME GEEMIX
 
-Last updated at 01/18/2024 14:25
+Last updated at 01/18/2024 14:30
