@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJWDgyuRYHxweWmI-ZpyFZw-t500x500.jpg">](https://soundcloud.com/djhungergames1/max-peezay-tukholma-dj-crime-geemix?in=saxurn/sets/cmittka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000342517728-1rf8ue-t500x500.jpg">](https://soundcloud.com/xlr8r/premiere-zuli-trigger-finger?in=saxurn/sets/cmittka-b)
 
-**Artist**: DJ CRIME 
+**Artist**: XLR8R 
 
-**Track**: Max Peezay Tukholma DJ CRIME GEEMIX
+**Track**: Premiere: ZULI - Trigger Finger
 
-Last updated at 01/18/2024 13:05
+Last updated at 01/18/2024 13:08
