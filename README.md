@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chIYOwZZNoLN-0-t500x500.jpg">](https://soundcloud.com/mikaheggemann/vibration)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9UtgEhloA52qsln-KPEtDQ-t500x500.jpg">](https://soundcloud.com/uncanny-valley-dresden/paracek-palastoni-sabroso)
 
-**Artist**: Mika Heggemann 
+**Artist**: Uncanny Valley 
 
-**Track**: Vibration
+**Track**: Paraçek & Palastoni - Sabroso
 
-Last updated at 01/19/2024 12:08
+Last updated at 01/19/2024 12:11
