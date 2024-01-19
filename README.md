@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cANpRT9CTRAHyqgH-H5y9CQ-t500x500.jpg">](https://soundcloud.com/parallelhh/premiere-h369-trancemaster-krause-gate-to-heaven-durchxst001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxNK74crUvaySVRr-LN0YqQ-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-eamon-fuck-it-i-dont-want-you-back-feta-felice-edit)
 
-**Artist**: Parallel Label [PARA//E/] 
+**Artist**: SINDEX 
 
-**Track**: PREMIERE /// H369 & Trancemaster Krause - Gate To Heaven [DURCHxST001]
+**Track**: SINDEX PREMIERE: Eamon - Fuck It (I Don't Want You Back) [Feta Felice Edit]
 
-Last updated at 01/19/2024 11:55
+Last updated at 01/19/2024 12:03
