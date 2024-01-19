@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-23BfYSH9MJ4VKAgL-MoTpZw-t500x500.jpg">](https://soundcloud.com/quickdropmusic/apologize)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uCnxvy4yzdbhbg1s-uBqxbQ-t500x500.jpg">](https://soundcloud.com/duploc/dplc002-hamdi-peace)
 
-**Artist**: Quickdrop 
+**Artist**: DUPLOC 
 
-**Track**: Apologize (with ZEL)
+**Track**: Hamdi - Peace (vinyl-only)
 
-Last updated at 01/19/2024 09:56
+Last updated at 01/19/2024 09:57
