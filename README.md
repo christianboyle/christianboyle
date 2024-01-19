@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uFXZBAkwyLxkTGg-zF4jIg-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBqhghej3yuHnKrT-nDBpMA-t500x500.jpg">](https://soundcloud.com/platform/yung-sherman-stockholm-friday)
 
-**Artist**: Seven Lions 
+**Artist**: Boiler Room 
 
-**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
+**Track**: Yung Sherman | Boiler Room: Stockholm
 
-Last updated at 01/19/2024 10:00
+Last updated at 01/19/2024 10:04
