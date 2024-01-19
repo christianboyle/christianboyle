@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxNK74crUvaySVRr-LN0YqQ-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-eamon-fuck-it-i-dont-want-you-back-feta-felice-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JoUljxfbNIWa4vX-2oZnug-t500x500.jpg">](https://soundcloud.com/influenceireland/craaig-lazer-beams-irva009)
 
-**Artist**: SINDEX 
+**Artist**: Influence Records 
 
-**Track**: SINDEX PREMIERE: Eamon - Fuck It (I Don't Want You Back) [Feta Felice Edit]
+**Track**: CRAAIG - LAZER BEAMS [IRVA009] FREEDL
 
-Last updated at 01/19/2024 13:40
+Last updated at 01/19/2024 14:44
