@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4e9rzNV5nVVJXxDa-pS78wg-t500x500.jpg">](https://soundcloud.com/joulebeats/dom-dolla-black-betty-remix-joule-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBQ0EZs8XwDwDeWl-RC3QuA-t500x500.jpg">](https://soundcloud.com/rickypearson-new/strangers-ricky-pearson-bootlegfree-dl)
 
-**Artist**: Joule 
+**Artist**: Ricky Pearson (New) 
 
-**Track**: Dom Dolla - Black Betty Remix (Joule Flip)
+**Track**: Strangers - (Ricky Pearson Bootleg)*FREE DL*
 
-Last updated at 01/19/2024 08:22
+Last updated at 01/19/2024 08:24
