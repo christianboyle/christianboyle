@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9UtgEhloA52qsln-KPEtDQ-t500x500.jpg">](https://soundcloud.com/uncanny-valley-dresden/paracek-palastoni-sabroso)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WCykEOiAbR2zRs7Q-zKTS2Q-t500x500.jpg">](https://soundcloud.com/draco-74074/draco-linus-villa-perc-passion)
 
-**Artist**: Uncanny Valley 
+**Artist**: Dracø 
 
-**Track**: Paraçek & Palastoni - Sabroso
+**Track**: Perc Passion (ft. Linus Villa)
 
-Last updated at 01/19/2024 12:11
+Last updated at 01/19/2024 12:14
