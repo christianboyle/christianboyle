@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBQ0EZs8XwDwDeWl-RC3QuA-t500x500.jpg">](https://soundcloud.com/rickypearson-new/strangers-ricky-pearson-bootlegfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhIWoVLQwfcBCOjG-QY6cqg-t500x500.png">](https://soundcloud.com/donpaolo/the-drill-x-mind-dimension-don-paolo-remakedom-dolla-edit)
 
-**Artist**: Ricky Pearson (New) 
+**Artist**: Don Paolo 
 
-**Track**: Strangers - (Ricky Pearson Bootleg)*FREE DL*
+**Track**: The Drill x Mind Dimension - Dom Dolla EDIT (Don Paolo Remake)
 
-Last updated at 01/19/2024 08:24
+Last updated at 01/19/2024 09:13
