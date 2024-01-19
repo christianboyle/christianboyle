@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVosNCCygIFu12WS-V7oXYg-t500x500.jpg">](https://soundcloud.com/parkahproducer/katy-perry-last-friday-night-parkah-durzo-hypertechno-remix?in=saxurn/sets/cmittka-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJy8rpGzMOuIGHAM-svPitw-t500x500.jpg">](https://soundcloud.com/pro-tex-beats/pro-tex-xtc-150bpm?in=saxurn/sets/cmittka-a)
 
-**Artist**: ＰＡＲＫＡＨ 
+**Artist**: PRO-TEX 
 
-**Track**: Katy Perry - Last Friday Night (PARKAH & DURZO Hypertechno Remix)
+**Track**: PRO-TEX - XTC 150BPM [FREE DOWNLOAD]
 
-Last updated at 01/19/2024 14:48
+Last updated at 01/19/2024 14:50
