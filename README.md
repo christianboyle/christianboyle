@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cPDiYZaMog81yNQV-w9jAQw-t500x500.jpg">](https://soundcloud.com/djprinsh/prinsh-desert-temple)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yepayphTK3di7hHQ-BrfiOg-t500x500.jpg">](https://soundcloud.com/1800blkout/hedex-mhitr-blkout-bootleg-master10)
 
-**Artist**: PRINSH 
+**Artist**: blkout. 
 
-**Track**: PRINSH - Desert Temple (Extended Mix)
+**Track**: Hedex - MHITR (semi-automatic) [blkout. bootleg]
 
-Last updated at 01/20/2024 07:17
+Last updated at 01/20/2024 07:18
