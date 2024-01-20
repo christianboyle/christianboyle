@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HLiefYbJIHjuoLh4-SfXlsA-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/trixy-the-ultimate-vocal-hardcore-collection-part-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uFXZBAkwyLxkTGg-zF4jIg-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1)
 
-**Artist**: TRIXY 
+**Artist**: Seven Lions 
 
-**Track**: Trixy - The Ultimate Vocal Hardcore Collection (Part 2)
+**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
 
-Last updated at 01/20/2024 07:29
+Last updated at 01/20/2024 08:45
