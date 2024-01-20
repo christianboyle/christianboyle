@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DXaeKnffWy7pBzop-5xHf5Q-t500x500.jpg">](https://soundcloud.com/straat264/straat-264-prst-vienna-09122023-set-by-elotrance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6bNnuZFlvwsCzK2X-xd7u7Q-t500x500.jpg">](https://soundcloud.com/enjoii/fallen-rose)
 
-**Artist**: Straat264 
+**Artist**: enjoii 
 
-**Track**: ELOTRANCE @ STRAAT 264 / PRST VIENNA
+**Track**: fallen rose (i can remember)
 
-Last updated at 01/20/2024 07:15
+Last updated at 01/20/2024 07:16
