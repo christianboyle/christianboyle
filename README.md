@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVZ6EPeRwOXbGz58-oVN35Q-t500x500.jpg">](https://soundcloud.com/discolines/disco-lines-good-good-radio-007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gf1Co1YOtEsm-0-t500x500.jpg">](https://soundcloud.com/juntaromusic/selecta-1)
 
-**Artist**: Disco Lines 
+**Artist**: JUNTARO 
 
-**Track**: Disco Lines - Good Good Radio #007
+**Track**: Selecta
 
-Last updated at 01/20/2024 07:27
+Last updated at 01/20/2024 07:28
