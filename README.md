@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9BXB7yewlvUvyaW-ElGzDw-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-elevation-kinn-remix-free-download?in=saxurn/sets/cmittka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMqU7mXAhSdxFyE-6y3vmw-t500x500.jpg">](https://soundcloud.com/discolines/this-a-money-dance?in=saxurn/sets/tmp/)
 
-**Artist**: KINN 
+**Artist**: Disco Lines 
 
-**Track**: S3RL - ELEVATION (KINN - REMIX) **FREE DOWNLOAD**
+**Track**: shoreline mafia - bands (disco lines remix)
 
-Last updated at 01/21/2024 15:23
+Last updated at 01/21/2024 15:31
