@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-759FAs7kzzAma5Xo-zFOLWg-t500x500.jpg">](https://soundcloud.com/thelotradio/nick-leon-the-lot-radio-01-19-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMqU7mXAhSdxFyE-6y3vmw-t500x500.jpg">](https://soundcloud.com/discolines/this-a-money-dance)
 
-**Artist**: The Lot Radio 
+**Artist**: Disco Lines 
 
-**Track**: Nick León @ The Lot Radio 01-19-2024
+**Track**: shoreline mafia - bands (disco lines remix)
 
-Last updated at 01/21/2024 06:34
+Last updated at 01/21/2024 08:17
