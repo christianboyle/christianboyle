@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwbQoYmbNoY9FZYg-v2mhMA-t500x500.jpg">](https://soundcloud.com/nicolassales/upsidedown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PiOiW2uJjat0NHZg-apgmvg-t500x500.jpg">](https://soundcloud.com/maythey/d-v-d-essan1e-delete-forever-1)
 
-**Artist**: NIC𝓞L𝙰S ♫♪ 𝒮AL𝐸S 
+**Artist**: MAYTHEY 
 
-**Track**: 𝒰PSIDE 𝒟OWN (prod. freeman713)
+**Track**: D V D, Essan1e - Delete Forever
 
-Last updated at 01/21/2024 08:19
+Last updated at 01/21/2024 08:20
