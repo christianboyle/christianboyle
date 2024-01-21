@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uFXZBAkwyLxkTGg-zF4jIg-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o3TrAGLRR8gxMtYZ-du9tDA-t500x500.jpg">](https://soundcloud.com/vinceedward/punky-brewstar-its-another-makina-mix)
 
-**Artist**: Seven Lions 
+**Artist**: Punky Brewstar/Vince Edward/vin-E 
 
-**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
+**Track**: Punky Brewstar Oh $h!t It's Another Makina Mix!
 
-Last updated at 01/20/2024 08:45
+Last updated at 01/21/2024 06:30
