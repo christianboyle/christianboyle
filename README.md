@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBqhghej3yuHnKrT-nDBpMA-t500x500.jpg">](https://soundcloud.com/platform/yung-sherman-stockholm-friday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-759FAs7kzzAma5Xo-zFOLWg-t500x500.jpg">](https://soundcloud.com/thelotradio/nick-leon-the-lot-radio-01-19-2024)
 
-**Artist**: Boiler Room 
+**Artist**: The Lot Radio 
 
-**Track**: Yung Sherman | Boiler Room: Stockholm
+**Track**: Nick León @ The Lot Radio 01-19-2024
 
-Last updated at 01/21/2024 13:43
+Last updated at 01/21/2024 14:17
