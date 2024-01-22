@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMqU7mXAhSdxFyE-6y3vmw-t500x500.jpg">](https://soundcloud.com/discolines/this-a-money-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQTYUzyZCRX5YE5Y-cvprCQ-t500x500.jpg">](https://soundcloud.com/purityleech/waiting)
 
-**Artist**: Disco Lines 
+**Artist**: purityleech 
 
-**Track**: shoreline mafia - bands (disco lines remix)
+**Track**: W41T1NG 4 U
 
-Last updated at 01/22/2024 12:01
+Last updated at 01/22/2024 12:04
