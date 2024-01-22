@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HLiefYbJIHjuoLh4-SfXlsA-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/trixy-the-ultimate-vocal-hardcore-collection-part-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkNGsnKa4SonlaQA-rcDGTA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/deepspace)
 
-**Artist**: TRIXY 
+**Artist**: NIGHTMODE 
 
-**Track**: Trixy - The Ultimate Vocal Hardcore Collection (Part 2)
+**Track**: HELLBOUND! - DEEP SPACE
 
-Last updated at 01/22/2024 12:07
+Last updated at 01/22/2024 12:08
