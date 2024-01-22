@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000404372985-h27kcv-t500x500.jpg">](https://soundcloud.com/r-diger-heuer/nickelback-if-today-was-your-last-day-dj-rgee-vsblack-noize-bootleg-radio-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkNGsnKa4SonlaQA-rcDGTA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/deepspace)
 
-**Artist**: Rüdiger 
+**Artist**: NIGHTMODE 
 
-**Track**: Nickelback - If Today Was Your Last Day (DJ R.Gee VS.Black Noize Bootleg Radio Edit)
+**Track**: HELLBOUND! - DEEP SPACE
 
-Last updated at 01/22/2024 10:43
+Last updated at 01/22/2024 10:46
