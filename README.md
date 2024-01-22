@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMqU7mXAhSdxFyE-6y3vmw-t500x500.jpg">](https://soundcloud.com/discolines/this-a-money-dance?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CnY0MCzwrhz0VRsc-tHxiUA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/saymyname)
 
-**Artist**: Disco Lines 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: shoreline mafia - bands (disco lines remix)
+**Track**: Ryse Above All - SAY MY NAME
 
-Last updated at 01/21/2024 15:31
+Last updated at 01/22/2024 09:01
