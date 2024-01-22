@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUZ9IbUWg0HGGTjS-YlnwsQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/purityleech-its-a-beautiful?in=weirdnxc/sets/act-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B8gNkrEMyR1zKdo9-RVmbVg-t500x500.jpg">](https://soundcloud.com/humorme/masta-humorme-ryns?in=rynsmusic/sets/masta-humorme-ryns)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: HUMORME 
 
-**Track**: 06 - purityleech - it’s a beautiful day⠀^_^
+**Track**: MASTA - HUMORME & RYNS
 
-Last updated at 01/22/2024 09:09
+Last updated at 01/22/2024 09:10
