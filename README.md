@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQTYUzyZCRX5YE5Y-cvprCQ-t500x500.jpg">](https://soundcloud.com/purityleech/waiting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HLiefYbJIHjuoLh4-SfXlsA-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/trixy-the-ultimate-vocal-hardcore-collection-part-2)
 
-**Artist**: purityleech 
+**Artist**: TRIXY 
 
-**Track**: W41T1NG 4 U
+**Track**: Trixy - The Ultimate Vocal Hardcore Collection (Part 2)
 
-Last updated at 01/22/2024 12:04
+Last updated at 01/22/2024 12:07
