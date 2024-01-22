@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NISf4bZoVfgaLXbo-f31BHg-t500x500.jpg">](https://soundcloud.com/ole-kristoffer-martinsen/meiko-leave-the-lights-on-reliqium-hardstyle-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VMN4lZq0zLsIa1z8-rrc74A-t500x500.jpg">](https://soundcloud.com/pvredj/run-away-to-mars-remix)
 
-**Artist**: Ole Kristoffer Martinsen 
+**Artist**: PVRE 
 
-**Track**: Meiko - Leave The Lights On (ReliQium Hardstyle Bootleg)
+**Track**: TALK - Run Away to Mars (PVRE REMIX)
 
-Last updated at 01/22/2024 10:24
+Last updated at 01/22/2024 10:28
