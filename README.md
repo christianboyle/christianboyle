@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6o241rQiBVT1CslY-BRBejw-t500x500.jpg">](https://soundcloud.com/hayabusa-beats/cant-you-see-im-dying-outro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgEGFpV9fEaJ601y-eN6E9g-t500x500.jpg">](https://soundcloud.com/mazaretheparacosm/mazare-presents-the-paracosm-023-insomniac-radio)
 
-**Artist**: Hayabvsa 
+**Artist**: The Paracosm with Mazare 
 
-**Track**: can't you see i'm dying? (outro)
+**Track**: Mazare Presents: The Paracosm #023 [Insomniac Radio]
 
-Last updated at 01/23/2024 06:40
+Last updated at 01/23/2024 06:45
