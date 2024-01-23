@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyOTkiouikH0D23o-1HOYHQ-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra920-client_03)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oe0Dz2VSr9GjKFay-j4PHCQ-t500x500.jpg">](https://soundcloud.com/eastwoodred/pivot)
 
-**Artist**: Resident Advisor 
+**Artist**: Eastwood Red 
 
-**Track**: RA.920 Client_03
+**Track**: Pivot
 
-Last updated at 01/23/2024 06:49
+Last updated at 01/23/2024 06:55
