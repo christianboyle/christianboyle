@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UgEGFpV9fEaJ601y-eN6E9g-t500x500.jpg">](https://soundcloud.com/mazaretheparacosm/mazare-presents-the-paracosm-023-insomniac-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-crJpS8Dstz7CK2zV-geKtEw-t500x500.jpg">](https://soundcloud.com/fluiditydnb/fluidity-the-deepest)
 
-**Artist**: The Paracosm with Mazare 
+**Artist**: Fluidity 
 
-**Track**: Mazare Presents: The Paracosm #023 [Insomniac Radio]
+**Track**: Fluidity - The Deepest
 
-Last updated at 01/23/2024 06:45
+Last updated at 01/23/2024 06:46
