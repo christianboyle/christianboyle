@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-plm359qtYnKeiMdu-kRlvWQ-t500x500.jpg">](https://soundcloud.com/wearesoundspace/mix356-nicolas-taboada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWpSPyUc9mm4euUz-H2j4HA-t500x500.jpg">](https://soundcloud.com/basiliskbass/blade-concept)
 
-**Artist**: Soundspace 
+**Artist**: Basilisk Bass 
 
-**Track**: MIX356: Nicolas Taboada
+**Track**: Blade - Concept
 
-Last updated at 01/23/2024 06:47
+Last updated at 01/23/2024 06:48
