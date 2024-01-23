@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjdwxM1Wuskm8HfS-QgBWuw-t500x500.jpg">](https://soundcloud.com/jadudala/borne-my-mind-jadu232)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6o241rQiBVT1CslY-BRBejw-t500x500.jpg">](https://soundcloud.com/hayabusa-beats/cant-you-see-im-dying-outro)
 
-**Artist**: Jadū Dala 
+**Artist**: Hayabvsa 
 
-**Track**: borne - My Mind (JADŪ232)
+**Track**: can't you see i'm dying? (outro)
 
-Last updated at 01/23/2024 06:36
+Last updated at 01/23/2024 06:40
