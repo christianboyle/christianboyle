@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9BXB7yewlvUvyaW-ElGzDw-t500x500.jpg">](https://soundcloud.com/billykinn/s3rl-elevation-kinn-remix-free-download?in=saxurn/sets/cmittka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8oNlQKSCTYUGAu1y-fNEk1Q-t500x500.jpg">](https://soundcloud.com/dunkmellowd/triedeverything)
 
-**Artist**: KINN 
+**Artist**: MellowD 
 
-**Track**: S3RL - ELEVATION (KINN - REMIX) **FREE DOWNLOAD**
+**Track**: Tried Everything
 
-Last updated at 01/23/2024 09:01
+Last updated at 01/23/2024 09:04
