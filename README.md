@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4zaRS2y5pc8O9Fnd-M6EzAQ-t500x500.jpg">](https://soundcloud.com/tanukichi/floxytek-tanukichi-serpent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Y8ZEgsc6T0Ac5Wd-2Sz5pw-t500x500.jpg">](https://soundcloud.com/kaipe-music/corona-the-rhythm-of-the-night-kaipe-hardgroove-edit?in=saxurn/sets/tmp/)
 
-**Artist**: Tanukichi 
+**Artist**: KAIPE 
 
-**Track**: Floxytek & Tanukichi - Serpent
+**Track**: Corona - The Rhythm Of The Night [KAIPE HARDGROOVE EDIT] FREE DL
 
-Last updated at 01/23/2024 09:05
+Last updated at 01/23/2024 09:06
