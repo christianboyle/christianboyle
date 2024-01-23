@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-759FAs7kzzAma5Xo-zFOLWg-t500x500.jpg">](https://soundcloud.com/thelotradio/nick-leon-the-lot-radio-01-19-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ks5eBprOErkUA5zy-HHyGmg-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/he-mix-series-32-rayven-lux)
 
-**Artist**: The Lot Radio 
+**Artist**: Hardcore Energy 
 
-**Track**: Nick León @ The Lot Radio 01-19-2024
+**Track**: Mix Series 32 - Rayven Lux
 
-Last updated at 01/23/2024 09:54
+Last updated at 01/23/2024 09:55
