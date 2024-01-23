@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oj9zn1fvUI7oQWfq-cpOKDQ-t500x500.jpg">](https://soundcloud.com/piercesounds/fisher-aatig-take-it-off-pierce-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjdwxM1Wuskm8HfS-QgBWuw-t500x500.jpg">](https://soundcloud.com/jadudala/borne-my-mind-jadu232)
 
-**Artist**: PIERCE 
+**Artist**: Jadū Dala 
 
-**Track**: FISHER & AATIG - TAKE IT OFF (PIERCE FLIP)
+**Track**: borne - My Mind (JADŪ232)
 
-Last updated at 01/23/2024 06:29
+Last updated at 01/23/2024 06:36
