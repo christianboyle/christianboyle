@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-759FAs7kzzAma5Xo-zFOLWg-t500x500.jpg">](https://soundcloud.com/thelotradio/nick-leon-the-lot-radio-01-19-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5NVLgFB082QG6HHH-jQFGNw-t500x500.jpg">](https://soundcloud.com/enforcerecords/starvingdnvx)
 
-**Artist**: The Lot Radio 
+**Artist**: ENFORCE RCRDS 
 
-**Track**: Nick León @ The Lot Radio 01-19-2024
+**Track**: DNVX & IM FIN3 - Starving
 
-Last updated at 01/22/2024 14:12
+Last updated at 01/23/2024 05:51
