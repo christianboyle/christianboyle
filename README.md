@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GC3q5w15Dt9dbwy3-C28BQA-t500x500.jpg">](https://soundcloud.com/txrecords/premiere-maddix-feat-feles-my-gasoline-grym-hard-edit?in=saxurn/sets/cmittka-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLXsT3Uep2fc4Bk4-4scl8A-t500x500.jpg">](https://soundcloud.com/tanukichi/higher?in=saxurn/sets/cmittka-b)
 
-**Artist**: Tx Records 
+**Artist**: Tanukichi 
 
-**Track**: PREMIERE: Maddix Feat. Fēlēs - My Gasoline (GRYM Hard Edit)
+**Track**: Mandidextrous & Tanukichi - Higher
 
-Last updated at 01/23/2024 08:51
+Last updated at 01/23/2024 08:56
