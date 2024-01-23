@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWpSPyUc9mm4euUz-H2j4HA-t500x500.jpg">](https://soundcloud.com/basiliskbass/blade-concept)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyOTkiouikH0D23o-1HOYHQ-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra920-client_03)
 
-**Artist**: Basilisk Bass 
+**Artist**: Resident Advisor 
 
-**Track**: Blade - Concept
+**Track**: RA.920 Client_03
 
-Last updated at 01/23/2024 06:48
+Last updated at 01/23/2024 06:49
