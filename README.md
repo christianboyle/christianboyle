@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAfmc9wQWuXX-0-t500x500.jpg">](https://soundcloud.com/swankmami-music/i-saw-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000404372985-h27kcv-t500x500.jpg">](https://soundcloud.com/r-diger-heuer/nickelback-if-today-was-your-last-day-dj-rgee-vsblack-noize-bootleg-radio-edit)
 
-**Artist**: Swank Mami 
+**Artist**: Rüdiger 
 
-**Track**: I Saw U
+**Track**: Nickelback - If Today Was Your Last Day (DJ R.Gee VS.Black Noize Bootleg Radio Edit)
 
-Last updated at 01/23/2024 16:45
+Last updated at 01/23/2024 18:54
