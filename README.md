@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzbtXrobtaMSKDgY-gbtDbA-t500x500.jpg">](https://soundcloud.com/soul_feeder/sfmix47-d-v-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdwuoII1XhtcVbl3-dgj8wg-t500x500.jpg">](https://soundcloud.com/chris_aus_official/7-rings-chris-a-remix)
 
-**Artist**: Soul Feeder 
+**Artist**: CHRIS A 
 
-**Track**: SF.MIX.47 - D V D
+**Track**: Ariana Grande - 7 Rings (CHRIS A Remix) [FREE DOWNLOAD]
 
-Last updated at 01/24/2024 08:22
+Last updated at 01/24/2024 09:02
