@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQTYUzyZCRX5YE5Y-cvprCQ-t500x500.jpg">](https://soundcloud.com/purityleech/waiting?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxNK74crUvaySVRr-LN0YqQ-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-eamon-fuck-it-i-dont-want-you-back-feta-felice-edit?in=saxurn/sets/tmp/)
 
-**Artist**: purityleech 
+**Artist**: SINDEX 
 
-**Track**: W41T1NG 4 U
+**Track**: SINDEX PREMIERE: Eamon - Fuck It (I Don't Want You Back) [Feta Felice Edit]
 
-Last updated at 01/24/2024 09:58
+Last updated at 01/24/2024 10:01
