@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YxNK74crUvaySVRr-LN0YqQ-t500x500.jpg">](https://soundcloud.com/sindextechno/sindex-premiere-eamon-fuck-it-i-dont-want-you-back-feta-felice-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkNGsnKa4SonlaQA-rcDGTA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/deepspace?in=saxurn/sets/tmp/)
 
-**Artist**: SINDEX 
+**Artist**: NIGHTMODE 
 
-**Track**: SINDEX PREMIERE: Eamon - Fuck It (I Don't Want You Back) [Feta Felice Edit]
+**Track**: HELLBOUND! - DEEP SPACE
 
-Last updated at 01/24/2024 11:17
+Last updated at 01/24/2024 11:22
