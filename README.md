@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZokidwNdcaKR3YP7-3wIAFA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-profoundness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOd5Aa88uL2k-0-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/the-way-i-are-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Olly James 
 
-**Track**: Cyber - Profoundness
+**Track**: The Way I Are (Remix)
 
-Last updated at 01/24/2024 09:30
+Last updated at 01/24/2024 09:34
