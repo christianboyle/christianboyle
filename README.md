@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szJoGi8DJeVeBi1a-ZanyGw-t500x500.jpg">](https://soundcloud.com/strangewavmusic/strangewav-corridors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4SklOLPQfGdk2Pb-ViVjKA-t500x500.jpg">](https://soundcloud.com/boxofcatsmusic/take-control-ft-hawaiian-hue)
 
-**Artist**: STRANGEWAV 
+**Artist**: Box Of Cats 
 
-**Track**: STRANGEWAV - Corridors
+**Track**: HONÜ & WHOWHENWHY - Take Control (ft. Hawaiian Hue Hefner)
 
-Last updated at 01/24/2024 08:18
+Last updated at 01/24/2024 08:19
