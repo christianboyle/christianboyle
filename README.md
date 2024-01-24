@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjdwxM1Wuskm8HfS-QgBWuw-t500x500.jpg">](https://soundcloud.com/jadudala/borne-my-mind-jadu232)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzbtXrobtaMSKDgY-gbtDbA-t500x500.jpg">](https://soundcloud.com/soul_feeder/sfmix47-d-v-d)
 
-**Artist**: Jadū Dala 
+**Artist**: Soul Feeder 
 
-**Track**: borne - My Mind (JADŪ232)
+**Track**: SF.MIX.47 - D V D
 
-Last updated at 01/24/2024 11:45
+Last updated at 01/24/2024 11:46
