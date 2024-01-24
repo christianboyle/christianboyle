@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uFXZBAkwyLxkTGg-zF4jIg-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lq7hs3WzAOaX-0-t500x500.jpg">](https://soundcloud.com/denhamaudio/denham-audio-triple-point-2?in=saxurn/sets/tmp/)
 
-**Artist**: Seven Lions 
+**Artist**: Denham Audio 
 
-**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
+**Track**: Denham Audio & Triple Point - Wasting Time with You
 
-Last updated at 01/24/2024 11:04
+Last updated at 01/24/2024 11:08
