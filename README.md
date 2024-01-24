@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdwuoII1XhtcVbl3-dgj8wg-t500x500.jpg">](https://soundcloud.com/chris_aus_official/7-rings-chris-a-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7ZDdC0746sa-0-t500x500.png">](https://soundcloud.com/officialdjcyber/profoundness)
 
-**Artist**: CHRIS A 
+**Artist**: Cyberdj 
 
-**Track**: Ariana Grande - 7 Rings (CHRIS A Remix) [FREE DOWNLOAD]
+**Track**: Profoundness
 
-Last updated at 01/24/2024 09:02
+Last updated at 01/24/2024 09:05
