@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EmHRDcTTfcgJURoJ-UBlAIg-t500x500.jpg">](https://soundcloud.com/joshiguess/throw-it-up-w-shinigami-wayza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QewKrXWod7Fx1H10-BZey2A-t500x500.jpg">](https://soundcloud.com/remyheartmusic/dont-phunk-with-me)
 
-**Artist**: JoshIGuess 
+**Artist**: Remy Heart 
 
-**Track**: throw it up! w/ shinigami (wayza)
+**Track**: Don't Phunk With Me
 
-Last updated at 01/24/2024 05:52
+Last updated at 01/24/2024 06:38
