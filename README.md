@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZokidwNdcaKR3YP7-3wIAFA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-profoundness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EmHRDcTTfcgJURoJ-UBlAIg-t500x500.jpg">](https://soundcloud.com/joshiguess/throw-it-up-w-shinigami-wayza)
 
-**Artist**: Dirty Workz 
+**Artist**: JoshIGuess 
 
-**Track**: Cyber - Profoundness
+**Track**: throw it up! w/ shinigami (wayza)
 
-Last updated at 01/24/2024 05:51
+Last updated at 01/24/2024 05:52
