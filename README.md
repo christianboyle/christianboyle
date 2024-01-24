@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz4lTIYW7v0YAhZd-2b6iTw-t500x500.jpg">](https://soundcloud.com/align_music/align-beacon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjdwxM1Wuskm8HfS-QgBWuw-t500x500.jpg">](https://soundcloud.com/jadudala/borne-my-mind-jadu232)
 
-**Artist**: ALIGN 
+**Artist**: Jadū Dala 
 
-**Track**: ALIGN - Beacon
+**Track**: borne - My Mind (JADŪ232)
 
-Last updated at 01/24/2024 11:43
+Last updated at 01/24/2024 11:45
