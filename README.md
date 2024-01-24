@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzbtXrobtaMSKDgY-gbtDbA-t500x500.jpg">](https://soundcloud.com/soul_feeder/sfmix47-d-v-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA8DOIT2nOYgZluK-MSA4cQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/w-e-coastr-remix)
 
-**Artist**: Soul Feeder 
+**Artist**: COASTR. 
 
-**Track**: SF.MIX.47 - D V D
+**Track**: Kygo, Ava Max - Whatever (COASTR. Remix)
 
-Last updated at 01/24/2024 11:46
+Last updated at 01/24/2024 14:45
