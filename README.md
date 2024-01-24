@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Y8ZEgsc6T0Ac5Wd-2Sz5pw-t500x500.jpg">](https://soundcloud.com/kaipe-music/corona-the-rhythm-of-the-night-kaipe-hardgroove-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9uFXZBAkwyLxkTGg-zF4jIg-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1?in=saxurn/sets/tmp/)
 
-**Artist**: KAIPE 
+**Artist**: Seven Lions 
 
-**Track**: Corona - The Rhythm Of The Night [KAIPE HARDGROOVE EDIT] FREE DL
+**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
 
-Last updated at 01/24/2024 09:43
+Last updated at 01/24/2024 09:48
