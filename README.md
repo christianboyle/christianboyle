@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkNGsnKa4SonlaQA-rcDGTA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/deepspace?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tdu7dY1gsexZlqxx-KFURyg-t500x500.png">](https://soundcloud.com/seal-network/1062backtoyou?in=saxurn/sets/tmp/)
 
-**Artist**: NIGHTMODE 
+**Artist**: Seal Network 
 
-**Track**: HELLBOUND! - DEEP SPACE
+**Track**: Artix - Back To You
 
-Last updated at 01/24/2024 10:07
+Last updated at 01/24/2024 10:11
