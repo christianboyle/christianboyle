@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA8DOIT2nOYgZluK-MSA4cQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/w-e-coastr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz4lTIYW7v0YAhZd-2b6iTw-t500x500.jpg">](https://soundcloud.com/align_music/align-beacon)
 
-**Artist**: COASTR. 
+**Artist**: ALIGN 
 
-**Track**: Kygo, Ava Max - Whatever (COASTR. Remix)
+**Track**: ALIGN - Beacon
 
-Last updated at 01/24/2024 11:42
+Last updated at 01/24/2024 11:43
