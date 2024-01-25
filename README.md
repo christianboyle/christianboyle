@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoJ2aNdDsAWaH5UE-68z3qA-t500x500.jpg">](https://soundcloud.com/rinsefm/adam-pits-13-january-2024?in=adampits/sets/mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d66mIHRdKauTu8Om-sexDug-t500x500.jpg">](https://soundcloud.com/outforce/stickz-remix-cover-voxx-outforce-master)
 
-**Artist**: Rinse FM 
+**Artist**: Outforce 
 
-**Track**: Adam Pits - 13 January 2024
+**Track**: Stickz Remix Outforce
 
-Last updated at 01/25/2024 13:07
+Last updated at 01/25/2024 14:09
