@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BK5zc9TxgWYBT0Fq-DcpCuA-t500x500.jpg">](https://soundcloud.com/dreamer_records/zetmo-unliferous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhwViP2yyotuYek4-zs9UFg-t500x500.jpg">](https://soundcloud.com/melodinumbra/nexus)
 
-**Artist**: Dreamer Music 
+**Artist**: Melodinumbra 
 
-**Track**: Zetmo - Unliferous
+**Track**: 𝙉𝙀𝙓𝙐𝙎
 
-Last updated at 01/25/2024 08:47
+Last updated at 01/25/2024 08:48
