@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIFfzMWlJDvhGdkE-nLVQZA-t500x500.jpg">](https://soundcloud.com/mc4d_official/mc4d-tanner-olsen-band-call-it-fate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA8DOIT2nOYgZluK-MSA4cQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/w-e-coastr-remix)
 
-**Artist**: MC4D 
+**Artist**: COASTR. 
 
-**Track**: MC4D & Tanner Olsen Band - Call It Fate
+**Track**: Kygo, Ava Max - Whatever (COASTR. Remix)
 
-Last updated at 01/25/2024 08:39
+Last updated at 01/25/2024 08:40
