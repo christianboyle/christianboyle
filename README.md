@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA8DOIT2nOYgZluK-MSA4cQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/w-e-coastr-remix?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQM3CFWz6a1Jmdgl-HGUKgw-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/t-sugah-imma-give?in=saxurn/sets/tmp2/)
 
-**Artist**: COASTR. 
+**Artist**: Pilot. 
 
-**Track**: Kygo, Ava Max - Whatever (COASTR. Remix)
+**Track**: T & Sugah - Imma Give
 
-Last updated at 01/25/2024 14:28
+Last updated at 01/25/2024 14:31
