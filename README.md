@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzyzWJjAIYpPteyT-4fLUFQ-t500x500.jpg">](https://soundcloud.com/angerissuesmusic/the-shark)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIFfzMWlJDvhGdkE-nLVQZA-t500x500.jpg">](https://soundcloud.com/mc4d_official/mc4d-tanner-olsen-band-call-it-fate)
 
-**Artist**: Anger Issues 
+**Artist**: MC4D 
 
-**Track**: The Shark
+**Track**: MC4D & Tanner Olsen Band - Call It Fate
 
-Last updated at 01/25/2024 08:38
+Last updated at 01/25/2024 08:39
