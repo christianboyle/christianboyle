@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d66mIHRdKauTu8Om-sexDug-t500x500.jpg">](https://soundcloud.com/outforce/stickz-remix-cover-voxx-outforce-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BK5zc9TxgWYBT0Fq-DcpCuA-t500x500.jpg">](https://soundcloud.com/dreamer_records/zetmo-unliferous)
 
-**Artist**: Outforce 
+**Artist**: Dreamer Music 
 
-**Track**: Stickz Remix Outforce
+**Track**: Zetmo - Unliferous
 
-Last updated at 01/25/2024 08:46
+Last updated at 01/25/2024 08:47
