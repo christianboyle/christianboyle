@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-orTVZBNeCqJxY9GU-QmBI9Q-t500x500.jpg">](https://soundcloud.com/prmidv/geck-o-how-low-can-you-go-prmidv-remix?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdwuoII1XhtcVbl3-dgj8wg-t500x500.jpg">](https://soundcloud.com/chris_aus_official/7-rings-chris-a-remix?in=saxurn/sets/tmp2/)
 
-**Artist**: PRMIDV 
+**Artist**: CHRIS A 
 
-**Track**: Geck-O - How Low Can You Go (PRMIDV Remix)
+**Track**: Ariana Grande - 7 Rings (CHRIS A Remix) [FREE DOWNLOAD]
 
-Last updated at 01/25/2024 14:48
+Last updated at 01/25/2024 14:54
