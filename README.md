@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7p9WquFU0ODr0Z0I-CO08jw-t500x500.jpg">](https://soundcloud.com/huskibass/huski-be-your-fantasy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idsS3JxzL0moLNBp-zszOOA-t500x500.jpg">](https://soundcloud.com/spacelabrecords/adam-pits-grounded-ep-sl010)
 
-**Artist**: HUSKI (HUSKI BASS) 🐺 
+**Artist**: space lab 
 
-**Track**: HUSKI - BE YOUR FANTASY (HUSKI BASS 001)
+**Track**: Adam Pits - Grounded EP (SL010)
 
-Last updated at 01/25/2024 08:50
+Last updated at 01/25/2024 08:51
