@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MfNQnxc7QLERxCap-sL0iYg-t500x500.jpg">](https://soundcloud.com/crystalskies/growing-pains-with-soundr?in=itslostindreams/sets/crystal-skies-soundr-growing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dypfFbIuTTJUHUjo-WmR9Ig-t500x500.jpg">](https://soundcloud.com/whoisredwave/planetary-1)
 
-**Artist**: Crystal Skies 
+**Artist**: REDWAVE. 
 
-**Track**: Growing Pains (with SOUNDR)
+**Track**: REDWAVE. - Planetary
 
-Last updated at 01/25/2024 08:44
+Last updated at 01/25/2024 08:45
