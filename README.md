@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhwViP2yyotuYek4-zs9UFg-t500x500.jpg">](https://soundcloud.com/melodinumbra/nexus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uT1y5DgX1RMwyqgf-tzI60g-t500x500.jpg">](https://soundcloud.com/juicyjesus/lobotomy-enhanced-rapper-money)
 
-**Artist**: Melodinumbra 
+**Artist**: Juicy Jesus 
 
-**Track**: 𝙉𝙀𝙓𝙐𝙎
+**Track**: Lobotomy Enhanced Rapper Money
 
-Last updated at 01/25/2024 08:48
+Last updated at 01/25/2024 08:49
