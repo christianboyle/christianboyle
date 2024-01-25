@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uT1y5DgX1RMwyqgf-tzI60g-t500x500.jpg">](https://soundcloud.com/juicyjesus/lobotomy-enhanced-rapper-money)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7p9WquFU0ODr0Z0I-CO08jw-t500x500.jpg">](https://soundcloud.com/huskibass/huski-be-your-fantasy)
 
-**Artist**: Juicy Jesus 
+**Artist**: HUSKI (HUSKI BASS) 🐺 
 
-**Track**: Lobotomy Enhanced Rapper Money
+**Track**: HUSKI - BE YOUR FANTASY (HUSKI BASS 001)
 
-Last updated at 01/25/2024 08:49
+Last updated at 01/25/2024 08:50
