@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTfA0ENGQiFw-0-t500x500.jpg">](https://soundcloud.com/bixenter/sandstorm-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsoJbRVzZDzudjUl-aiW7Og-t500x500.jpg">](https://soundcloud.com/scuffedrecs/dufraine-uber-xl)
 
-**Artist**: Bixenter 
+**Artist**: Scuffed Recordings 
 
-**Track**: Sandstorm 2
+**Track**: Dufraine - Uber XL
 
-Last updated at 01/26/2024 08:44
+Last updated at 01/26/2024 08:47
