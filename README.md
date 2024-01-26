@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsoJbRVzZDzudjUl-aiW7Og-t500x500.jpg">](https://soundcloud.com/scuffedrecs/dufraine-uber-xl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509678244-n9yqcf-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-001-adam-pits)
 
-**Artist**: Scuffed Recordings 
+**Artist**: space lab 
 
-**Track**: Dufraine - Uber XL
+**Track**: space•cast 001 Adam Pits
 
-Last updated at 01/26/2024 12:20
+Last updated at 01/26/2024 12:25
