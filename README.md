@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzbtXrobtaMSKDgY-gbtDbA-t500x500.jpg">](https://soundcloud.com/soul_feeder/sfmix47-d-v-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xP24YEPAQ1AN-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/stick-up)
 
-**Artist**: Soul Feeder 
+**Artist**: RAMIREZ. 
 
-**Track**: SF.MIX.47 - D V D
+**Track**: STICK UP
 
-Last updated at 01/26/2024 11:26
+Last updated at 01/26/2024 12:01
