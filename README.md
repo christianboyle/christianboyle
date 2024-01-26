@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pGxdWiy4Cdi7MS71-PKbugA-t500x500.jpg">](https://soundcloud.com/besthouseremixes/david-guetta-afrojack-hey-mama-feat-nicki-minaj-bebe-rexha-alex-now-villapic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZzxnVMD6uReQvB1-jfYFpA-t500x500.jpg">](https://soundcloud.com/russell-bach-446750495/summer-vibes-radio-03)
 
-**Artist**: Best House Remixes 
+**Artist**: RUSTY 
 
-**Track**: David Guetta & Afrojack - Hey Mama (feat. Nicki Minaj & Bebe Rexha) [Alex Now & Villapic Remix]
+**Track**: Summer Vibes Radio 03 Featuring Artomik
 
-Last updated at 01/26/2024 07:23
+Last updated at 01/26/2024 07:24
