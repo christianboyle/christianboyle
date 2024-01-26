@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xP24YEPAQ1AN-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/stick-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v6RgSxd10EZr-0-t500x500.png">](https://soundcloud.com/itsmelvv/voltage)
 
-**Artist**: RAMIREZ. 
+**Artist**: MELVV 
 
-**Track**: STICK UP
+**Track**: Voltage
 
-Last updated at 01/26/2024 12:01
+Last updated at 01/26/2024 12:02
