@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHREe4RfBhoDUYso-GwuvnQ-t500x500.jpg">](https://soundcloud.com/houseviewsmusic/onmywaytoyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izo1M6zZXVrzRoKV-QKCGyw-t500x500.jpg">](https://soundcloud.com/trydeny/sonyeon)
 
-**Artist**: HOUSE VIEWS. 
+**Artist**: TRYDENY 
 
-**Track**: Reece Rosé - On My Way To You (Feat. Sydcxx)
+**Track**: Sonyeon
 
-Last updated at 01/27/2024 10:55
+Last updated at 01/27/2024 10:56
