@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15iDHuenOHSCyehd-9L5jTQ-t500x500.jpg">](https://soundcloud.com/djzkosta/zkosta-krossed-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qeW0cf1LfEq5SJKt-RWkmRg-t500x500.jpg">](https://soundcloud.com/beat106scotland/paul-mendez-on-beat-106-scotland-january-26th-2024)
 
-**Artist**: Zkosta 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Zkosta - Krossed
+**Track**: Paul Mendez on Beat 106 Scotland 26th January 2024
 
-Last updated at 01/27/2024 10:49
+Last updated at 01/27/2024 10:50
