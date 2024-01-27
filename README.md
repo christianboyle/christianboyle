@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qeW0cf1LfEq5SJKt-RWkmRg-t500x500.jpg">](https://soundcloud.com/beat106scotland/paul-mendez-on-beat-106-scotland-january-26th-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dknC3yml2t4AIwP1-vLouqA-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-against-all-odds-higher-ground-original-mix-astral-records)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Raven Musik 
 
-**Track**: Paul Mendez on Beat 106 Scotland 26th January 2024
+**Track**: PREMIERE: Against All Ødds - Higher Ground (Original Mix) [Astral Records]
 
-Last updated at 01/27/2024 10:50
+Last updated at 01/27/2024 10:53
