@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fp5CzOhOy4gNKFDC-gAMggA-t500x500.jpg">](https://soundcloud.com/sablevalley/jsyk?in=nawtystep/sets/top-50-bass-singles-of-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=nawtystep/sets/top-50-bass-singles-of-2023)
 
-**Artist**: SABLE VALLEY 
+**Artist**: Wraz. 
 
-**Track**: Pauline Herr - JSYK
+**Track**: Wraz & Nautical Divine - Womp
 
-Last updated at 01/28/2024 12:19
+Last updated at 01/28/2024 12:20
