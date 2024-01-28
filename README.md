@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=nawtystep/sets/top-50-bass-singles-of-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y59TXTw6jqBAoCx8-gmpstw-t500x500.jpg">](https://soundcloud.com/1chill/hex)
 
-**Artist**: Wraz. 
+**Artist**: 2chill 
 
-**Track**: Wraz & Nautical Divine - Womp
+**Track**: hex
 
-Last updated at 01/28/2024 12:20
+Last updated at 01/28/2024 12:21
