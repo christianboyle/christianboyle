@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tKKGdLiYW5JYLETl-1QtoEA-t500x500.jpg">](https://soundcloud.com/jalayavip/lab-group-player-dave-jawnza-hd-jalaya-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1bPXZbydvQ5IqQ2L-hqOwog-t500x500.jpg">](https://soundcloud.com/strvfemusic/infrared1)
 
-**Artist**: Jalaya VIP 
+**Artist**: STRVFE 
 
-**Track**: Lab Group, Player Dave, JAWNZA - HD (Jalaya Flip)
+**Track**: INFRARED
 
-Last updated at 01/28/2024 07:36
+Last updated at 01/28/2024 07:37
