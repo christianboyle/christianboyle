@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJKGu8SDik7nlgiC-g8DIqg-t500x500.jpg">](https://soundcloud.com/wubaholics/noetika-wobble-wit-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hlbzGW5LJ37utaHM-K9pACQ-t500x500.jpg">](https://soundcloud.com/cosmicbeats/vetements)
 
-**Artist**: Wubaholics 
+**Artist**: COSMIC 
 
-**Track**: Noetika - Wobble Wit Me
+**Track**: VETEMENTS
 
-Last updated at 01/28/2024 12:13
+Last updated at 01/28/2024 12:14
