@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiCH1nz3p57uIydI-3bVnVw-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-135-on-beat-106-scotland-with-mkn-260124)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tKKGdLiYW5JYLETl-1QtoEA-t500x500.jpg">](https://soundcloud.com/jalayavip/lab-group-player-dave-jawnza-hd-jalaya-flip)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Jalaya VIP 
 
-**Track**: Bonkers Beats #136 on Beat 106 Scotland with MKN 260124
+**Track**: Lab Group, Player Dave, JAWNZA - HD (Jalaya Flip)
 
-Last updated at 01/27/2024 11:04
+Last updated at 01/28/2024 07:36
