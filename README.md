@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5crlWhUuuOB49zH2-hskzVw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/drake-daylight-carlyle-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIMLlEjgtiipdkqX-DIYCkQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/psyopticsirenscall)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Drake - Daylight (CARLYLE Remix) [FREE DOWNLOAD]
+**Track**: Psyoptic - Siren's Call
 
-Last updated at 01/29/2024 08:42
+Last updated at 01/29/2024 08:43
