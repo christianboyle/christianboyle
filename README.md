@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qT7U3p1vMqCcTbF-U6z1tw-t500x500.jpg">](https://soundcloud.com/phrva/domm?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5of1HXzItajhXA9Z-MboC2g-t500x500.jpg">](https://soundcloud.com/phuqhaus/big-city-luke-sully-hyuck)
 
-**Artist**: Phrva 
+**Artist**: PHUQHAUS 
 
-**Track**: Eli Brown - Diamonds On My Mind (Phrva Flip)
+**Track**: Big City x Luke Sully - Hyuck
 
-Last updated at 01/28/2024 12:47
+Last updated at 01/29/2024 08:32
