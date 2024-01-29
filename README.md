@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K8QySt2P4YTDZYbn-VW8ZZQ-t500x500.jpg">](https://soundcloud.com/david-mills-119/fix-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhPnwiCpQIQte7FZ-nXhDsA-t500x500.jpg">](https://soundcloud.com/therealwillo/team-remix)
 
-**Artist**: David Mills 
+**Artist**: WILLØ 
 
-**Track**: Fix Me
+**Track**: LORDE - TEAM [WE LIVE IN CITIES] (WILLØ REMIX)
 
-Last updated at 01/29/2024 15:31
+Last updated at 01/29/2024 15:35
