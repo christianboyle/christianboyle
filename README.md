@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o4kQrcMyNsalWAQF-X9KrMw-t500x500.jpg">](https://soundcloud.com/djthera/tranceparency-mixtape-010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbJJ0Csr8c1CQY5H-ikQoPw-t500x500.jpg">](https://soundcloud.com/theelectricmovement/lostronaut-hvnty-bout-u)
 
-**Artist**: Dj Thera 
+**Artist**: The Electric Movement 
 
-**Track**: Tranceparency Mixtape 010
+**Track**: LØSTRONAUT & HVNTY - Bout U
 
-Last updated at 01/29/2024 08:57
+Last updated at 01/29/2024 09:17
