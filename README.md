@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0qveM9ZI01K8nLv-1T5dFA-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/icona-pop-i-love-it-febration-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhPnwiCpQIQte7FZ-nXhDsA-t500x500.jpg">](https://soundcloud.com/therealwillo/team-remix)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: WILLØ 
 
-**Track**: Icona Pop - I Love It (Febration Remix) [FREE DOWNLOAD]
+**Track**: LORDE - TEAM [WE LIVE IN CITIES] (WILLØ REMIX)
 
-Last updated at 01/29/2024 09:29
+Last updated at 01/29/2024 09:30
