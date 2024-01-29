@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yj2J4fbeCK6RzUou-hDME7g-t500x500.jpg">](https://soundcloud.com/trapicalmusic/nostalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsoJbRVzZDzudjUl-aiW7Og-t500x500.jpg">](https://soundcloud.com/scuffedrecs/dufraine-the-feeling)
 
-**Artist**: Trapical Music 
+**Artist**: Scuffed Recordings 
 
-**Track**: lys! - Nostalgia
+**Track**: Dufraine - The Feeling
 
-Last updated at 01/29/2024 08:34
+Last updated at 01/29/2024 08:41
