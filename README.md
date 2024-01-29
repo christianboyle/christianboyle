@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhPnwiCpQIQte7FZ-nXhDsA-t500x500.jpg">](https://soundcloud.com/therealwillo/team-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyK99VN3Z2RPRuMf-vrl5DA-t500x500.jpg">](https://soundcloud.com/letslinkmusic/link-hyper)
 
-**Artist**: WILLØ 
+**Artist**: LINK 
 
-**Track**: LORDE - TEAM [WE LIVE IN CITIES] (WILLØ REMIX)
+**Track**: LINK - HYPER
 
-Last updated at 01/29/2024 09:30
+Last updated at 01/29/2024 09:31
