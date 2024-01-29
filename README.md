@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AiYOdXJSLmcwtq70-Ob0zhQ-t500x500.jpg">](https://soundcloud.com/mronevibe/energy-cleanse-feat-krokadile-kathelo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKz6EXbTbxubvfoF-n27Gqw-t500x500.jpg">](https://soundcloud.com/reinelexrecs/nejvex-lupara-bianca)
 
-**Artist**: MrOneVibe 
+**Artist**: Reinelex Records 
 
-**Track**: ENERGY CLEANSE Feat. Krokadile & Kathelo
+**Track**: Nejvex - Lupara Bianca
 
-Last updated at 01/29/2024 09:20
+Last updated at 01/29/2024 09:22
