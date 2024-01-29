@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BK5zc9TxgWYBT0Fq-DcpCuA-t500x500.jpg">](https://soundcloud.com/dreamer_records/zetmo-unliferous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zhPnwiCpQIQte7FZ-nXhDsA-t500x500.jpg">](https://soundcloud.com/therealwillo/team-remix)
 
-**Artist**: Dreamer Music 
+**Artist**: WILLØ 
 
-**Track**: Zetmo - Unliferous
+**Track**: LORDE - TEAM [WE LIVE IN CITIES] (WILLØ REMIX)
 
-Last updated at 01/29/2024 11:19
+Last updated at 01/29/2024 14:28
