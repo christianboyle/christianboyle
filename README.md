@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FMp3aNvKrRsOHfVN-Ri0PKw-t500x500.jpg">](https://soundcloud.com/ophelia_records/bendel-after-dark)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rk0QfaUWt9wHyPY4-pqryDg-t500x500.jpg">](https://soundcloud.com/bloomedm/7soul-together-lofi-pet-records)
 
-**Artist**: Ophelia Records 
+**Artist**: Lofi Pet Records 
 
-**Track**: Bendel - After Dark
+**Track**: 7Soul - Together [Lofi Pet Records]
 
-Last updated at 01/29/2024 09:25
+Last updated at 01/29/2024 09:26
