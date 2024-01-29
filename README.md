@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EyKo3vnpuen8unET-zHVb5g-t500x500.jpg">](https://soundcloud.com/discotiek/acid-in-my-veins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you)
 
-**Artist**: Discötiek 
+**Artist**: Rave Alert 
 
-**Track**: Acid In My Veins
+**Track**: [PREMIERE] Aksys - Wanna See You
 
-Last updated at 01/29/2024 08:46
+Last updated at 01/29/2024 08:52
