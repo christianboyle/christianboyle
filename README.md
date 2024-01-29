@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIMLlEjgtiipdkqX-DIYCkQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/psyopticsirenscall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mPCL3HQlUBIFS7XW-Kvz7Lg-t500x500.jpg">](https://soundcloud.com/oizrecords/cusimano-imagine-original-mix-free-download)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: OIZ Records 
 
-**Track**: Psyoptic - Siren's Call
+**Track**: CuSiMaNo - Imagine (Original Mix) FREE DOWNLOAD
 
-Last updated at 01/29/2024 08:43
+Last updated at 01/29/2024 08:44
