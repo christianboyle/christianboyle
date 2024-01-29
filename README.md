@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUnG3w1P038ThhTF-xzqsVg-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/lets-get-fucked-up-mandidextrous-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qT7U3p1vMqCcTbF-U6z1tw-t500x500.jpg">](https://soundcloud.com/phrva/domm)
 
-**Artist**: Mandidextrous 
+**Artist**: Phrva 
 
-**Track**: Lets Get Fucked Up Mandidextrous Flip
+**Track**: Eli Brown - Diamonds On My Mind (Phrva Flip)
 
-Last updated at 01/29/2024 09:41
+Last updated at 01/29/2024 09:45
