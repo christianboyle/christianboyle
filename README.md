@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbJJ0Csr8c1CQY5H-ikQoPw-t500x500.jpg">](https://soundcloud.com/theelectricmovement/lostronaut-hvnty-bout-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhcJEulR9b7K5wzr-amsfPg-t500x500.jpg">](https://soundcloud.com/uwuntuwu/dan-larkin-swamp-fest-13)
 
-**Artist**: The Electric Movement 
+**Artist**: DJ Gator Aids 
 
-**Track**: LØSTRONAUT & HVNTY - Bout U
+**Track**: Dan Larkin @ Swamp Fest 13
 
-Last updated at 01/29/2024 09:17
+Last updated at 01/29/2024 09:18
