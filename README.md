@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynXowNxZKL4L-0-t500x500.jpg">](https://soundcloud.com/oneseventy/cg-x-echoes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K8QySt2P4YTDZYbn-VW8ZZQ-t500x500.jpg">](https://soundcloud.com/david-mills-119/fix-me?in=saxurn/sets/tmp/)
 
-**Artist**: OneSeventy 
+**Artist**: David Mills 
 
-**Track**: CG X - Echoes
+**Track**: Fix Me
 
-Last updated at 01/30/2024 08:28
+Last updated at 01/30/2024 08:29
