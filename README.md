@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQM3CFWz6a1Jmdgl-HGUKgw-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/t-sugah-imma-give)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-orTVZBNeCqJxY9GU-QmBI9Q-t500x500.jpg">](https://soundcloud.com/prmidv/geck-o-how-low-can-you-go-prmidv-remix)
 
-**Artist**: Pilot. 
+**Artist**: PRMIDV 
 
-**Track**: T & Sugah - Imma Give
+**Track**: Geck-O - How Low Can You Go (PRMIDV Remix)
 
-Last updated at 01/30/2024 12:42
+Last updated at 01/30/2024 12:46
