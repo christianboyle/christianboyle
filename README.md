@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwNDSUDARemo-0-t500x500.jpg">](https://soundcloud.com/oneseventy/mingtist-love-tonight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2VPyOt1nX06mDv6-sdq54w-t500x500.jpg">](https://soundcloud.com/8balldj/tcc037-8-ball-cant-stand-it)
 
-**Artist**: OneSeventy 
+**Artist**: 8 Ball DJ 
 
-**Track**: MinGtist - Love Tonight
+**Track**: 8 Ball - Can't Stand It
 
-Last updated at 01/30/2024 09:20
+Last updated at 01/30/2024 09:23
