@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7y2gl3SvBDqFDxCI-Dq2lOA-t500x500.jpg">](https://soundcloud.com/skysia/overture-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwNDSUDARemo-0-t500x500.jpg">](https://soundcloud.com/oneseventy/mingtist-love-tonight)
 
-**Artist**: Skysia 
+**Artist**: OneSeventy 
 
-**Track**: Skysia - Overture Mix [Odyzey]
+**Track**: MinGtist - Love Tonight
 
-Last updated at 01/30/2024 07:40
+Last updated at 01/30/2024 08:25
