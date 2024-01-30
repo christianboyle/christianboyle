@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000894311767-v3ilwi-t500x500.jpg">](https://soundcloud.com/felix-holstenson-nielsen/frozen-x-taylor-swift-colin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwNDSUDARemo-0-t500x500.jpg">](https://soundcloud.com/oneseventy/mingtist-love-tonight)
 
-**Artist**: Felix 
+**Artist**: OneSeventy 
 
-**Track**: Frozen X Taylor Swift (Colin Hennerz Remix) [Electronic]
+**Track**: MinGtist - Love Tonight
 
-Last updated at 01/30/2024 09:18
+Last updated at 01/30/2024 09:20
