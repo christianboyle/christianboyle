@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8L6xCT4GjXyw7aX-0Myciw-t500x500.jpg">](https://soundcloud.com/iamperto/sleepitoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-697Pdb12g56a3INP-vdQaZA-t500x500.jpg">](https://soundcloud.com/phrva/siren)
 
-**Artist**: Perto 
+**Artist**: Phrva 
 
-**Track**: sleep it off
+**Track**: Sub Focus - Siren (Phrva Flip)
 
-Last updated at 01/31/2024 08:39
+Last updated at 01/31/2024 09:00
