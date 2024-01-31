@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyBZJ8uxqZrPbyNX-CAytKg-t500x500.jpg">](https://soundcloud.com/i-am-seimei/seimei-carpainter-vinyl-only-live-trekkie-trax-pres-tommy-holohan-at-r-lounge-27-jan-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTHAJ3yBrGz4Xy1y-eb1ToQ-t500x500.jpg">](https://soundcloud.com/sam-segan/youwereright)
 
-**Artist**: Seimei 
+**Artist**: Segan 
 
-**Track**: Seimei & Carpainter (Vinyl Only) - Live @ TREKKIE TRAX pres. Tommy Holohan at R-Lounge (27 Jan 2024)
+**Track**: Rüfüs Du Sol - You Were Right (Segan Remix)
 
-Last updated at 01/31/2024 08:29
+Last updated at 01/31/2024 08:30
