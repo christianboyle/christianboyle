@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WczQCnzzC6QekRoZ-D35Img-t500x500.jpg">](https://soundcloud.com/tripbmusicc/trip-b-2024-showcase-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2VPyOt1nX06mDv6-sdq54w-t500x500.jpg">](https://soundcloud.com/8balldj/tcc037-8-ball-cant-stand-it)
 
-**Artist**: TRiP B 
+**Artist**: 8 Ball DJ 
 
-**Track**: TRiP B 2024 SHOWCASE MIX
+**Track**: 8 Ball - Can't Stand It
 
-Last updated at 01/31/2024 08:32
+Last updated at 01/31/2024 08:36
