@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/sein)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tmSCXBxNtEy7MAc-xWN2eQ-t500x500.jpg">](https://soundcloud.com/user-588583523/dj-casper-it-girl-vocal-mix-1)
 
-**Artist**: dj something 
+**Artist**: DJ*CASPER 
 
-**Track**: Sein
+**Track**: dj casper * it girl (vocal mix)
 
-Last updated at 02/01/2024 10:54
+Last updated at 02/01/2024 10:56
