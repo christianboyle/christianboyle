@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z3U1ZRDdoNVYcDyT-aAFOvw-t500x500.jpg">](https://soundcloud.com/goshfather/surround-sound-goshfather-x-eche-palante-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PhVRzQWoe3NLMSQ-8s96nQ-t500x500.jpg">](https://soundcloud.com/boynothome/id-showcase-2024)
 
-**Artist**: goshfather 
+**Artist**: BoyNotHome 
 
-**Track**: Surround Sound [Goshfather x Eche Palante Remix]
+**Track**: ID Showcase 2024
 
-Last updated at 02/01/2024 08:37
+Last updated at 02/01/2024 08:38
