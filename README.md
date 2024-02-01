@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W7BRdq2OI0gyksI4-RQNYmg-t500x500.jpg">](https://soundcloud.com/djsmth/leave-a-trace-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUnG3w1P038ThhTF-xzqsVg-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/lets-get-fucked-up-mandidextrous-flip?in=saxurn/sets/tmp3/)
 
-**Artist**: dj something 
+**Artist**: Mandidextrous 
 
-**Track**: CHVRCHES -- Leave A Trace (dj something remix)
+**Track**: Lets Get Fucked Up Mandidextrous Flip
 
-Last updated at 02/01/2024 08:45
+Last updated at 02/01/2024 08:49
