@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/its-not-me-its-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tPLPBOv9h7AW1n4-pa5KEQ-t500x500.jpg">](https://soundcloud.com/djsmth/sein2)
 
-**Artist**: beverly hills mom 
+**Artist**: dj something 
 
-**Track**: its not me. its YOU...
+**Track**: sein2
 
-Last updated at 02/01/2024 10:44
+Last updated at 02/01/2024 10:50
