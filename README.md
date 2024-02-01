@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/its-not-me-its-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8L6xCT4GjXyw7aX-0Myciw-t500x500.jpg">](https://soundcloud.com/iamperto/sleepitoff)
 
-**Artist**: beverly hills mom 
+**Artist**: Perto 
 
-**Track**: its not me. its YOU...
+**Track**: sleep it off
 
-Last updated at 02/01/2024 09:25
+Last updated at 02/01/2024 09:32
