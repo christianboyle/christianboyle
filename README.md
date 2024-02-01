@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W7BRdq2OI0gyksI4-RQNYmg-t500x500.jpg">](https://soundcloud.com/djsmth/leave-a-trace-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3waUKi7x2cHEyfVt-N1N6KA-t500x500.jpg">](https://soundcloud.com/secretstvsh/id-mix-2024)
 
-**Artist**: dj something 
+**Artist**: STVSH 
 
-**Track**: CHVRCHES -- Leave A Trace (dj something remix)
+**Track**: ID MIX 2024
 
-Last updated at 02/01/2024 08:43
+Last updated at 02/01/2024 08:44
