@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAmVYbaDkgnIY60A-T8sqEg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/darren-styles-satellite-tweekacore-remix-elfx?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGAUsGRNqUPa-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/fahjah-ezra-hazard-little-love?in=saxurn/sets/tmp3/)
 
-**Artist**: Dirty Workz 
+**Artist**: Find Your Harmony 
 
-**Track**: Darren Styles - Satellite (Tweekacore Remix) (Electric Fox)
+**Track**: Fahjah & Ezra Hazard - Little Love
 
-Last updated at 02/01/2024 10:19
+Last updated at 02/01/2024 10:25
