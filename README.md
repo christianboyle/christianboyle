@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzzLilsO8PYizszr-PLyxYg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/nirborna-plexus-ep-remixes-official-teaser?in=trekkie-trax/sets/nirborna-plexus-ep-remixes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FXFakpLKzTpycxTF-xd59Ug-t500x500.jpg">](https://soundcloud.com/bomaus/lpfj2-bom-bootleg)
 
-**Artist**: TREKKIE TRAX 
+**Artist**: B.O.M 
 
-**Track**: NirBorna - Plexus EP Remixes [Official Teaser]
+**Track**: LPFJ2 (B.O.M BOOTLEG)
 
-Last updated at 02/01/2024 08:35
+Last updated at 02/01/2024 08:36
