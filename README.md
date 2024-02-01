@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ilOAtxpKKCZBtN2K-2FPOTw-t500x500.jpg">](https://soundcloud.com/crisosound/ygg-strikers-criso-bootleg)
 
-**Artist**: S3RL 
+**Artist**: Criso 
 
-**Track**: Back To You - S3RL & Walras ft Regina
+**Track**: YGG - Strikers (Criso Bootleg)
 
-Last updated at 02/01/2024 08:39
+Last updated at 02/01/2024 08:40
