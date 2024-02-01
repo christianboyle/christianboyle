@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUnG3w1P038ThhTF-xzqsVg-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/lets-get-fucked-up-mandidextrous-flip?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyJUznpjtIKnUkn5-cERcGQ-t500x500.jpg">](https://soundcloud.com/iamperto/gore?in=saxurn/sets/tmp3/)
 
-**Artist**: Mandidextrous 
+**Artist**: Perto 
 
-**Track**: Lets Get Fucked Up Mandidextrous Flip
+**Track**: gore
 
-Last updated at 02/01/2024 08:49
+Last updated at 02/01/2024 08:53
