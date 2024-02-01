@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGAUsGRNqUPa-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/fahjah-ezra-hazard-little-love?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-697Pdb12g56a3INP-vdQaZA-t500x500.jpg">](https://soundcloud.com/phrva/siren?in=saxurn/sets/tmp3/)
 
-**Artist**: Find Your Harmony 
+**Artist**: Phrva 
 
-**Track**: Fahjah & Ezra Hazard - Little Love
+**Track**: Sub Focus - Siren (Phrva Flip)
 
-Last updated at 02/01/2024 10:25
+Last updated at 02/01/2024 10:27
