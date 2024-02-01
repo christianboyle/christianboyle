@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Y8ZEgsc6T0Ac5Wd-2Sz5pw-t500x500.jpg">](https://soundcloud.com/kaipe-music/corona-the-rhythm-of-the-night-kaipe-hardgroove-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lq7hs3WzAOaX-0-t500x500.jpg">](https://soundcloud.com/denhamaudio/denham-audio-triple-point-2?in=saxurn/sets/tmp/)
 
-**Artist**: KAIPE 
+**Artist**: Denham Audio 
 
-**Track**: Corona - The Rhythm Of The Night [KAIPE HARDGROOVE EDIT] FREE DL
+**Track**: Denham Audio & Triple Point - Wasting Time with You
 
-Last updated at 02/01/2024 09:38
+Last updated at 02/01/2024 09:44
