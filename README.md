@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KkNGsnKa4SonlaQA-rcDGTA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/deepspace?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8L6xCT4GjXyw7aX-0Myciw-t500x500.jpg">](https://soundcloud.com/iamperto/sleepitoff?in=saxurn/sets/tmp3/)
 
-**Artist**: NIGHTMODE 
+**Artist**: Perto 
 
-**Track**: HELLBOUND! - DEEP SPACE
+**Track**: sleep it off
 
-Last updated at 02/01/2024 09:58
+Last updated at 02/01/2024 10:05
