@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxZt1UhxcJXSzvIl-Vu5Yjw-t500x500.jpg">](https://soundcloud.com/user-779214024/tucker-feeling-naughty-2?in=user-779214024/sets/prtyva-vol2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzzLilsO8PYizszr-PLyxYg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/nirborna-plexus-ep-remixes-official-teaser?in=trekkie-trax/sets/nirborna-plexus-ep-remixes-1)
 
-**Artist**: PRTY TRAX 
+**Artist**: TREKKIE TRAX 
 
-**Track**: TUCKER - FEELING NAUGHTY [PRTYTRAXVA02]
+**Track**: NirBorna - Plexus EP Remixes [Official Teaser]
 
-Last updated at 02/01/2024 08:34
+Last updated at 02/01/2024 08:35
