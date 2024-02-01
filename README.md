@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3j7344doGUGOdAr-ykJGLw-t500x500.jpg">](https://soundcloud.com/itsdynxmite/your-phone-linging-club-core?in=itsdynxmite/sets/v-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyJUznpjtIKnUkn5-cERcGQ-t500x500.jpg">](https://soundcloud.com/iamperto/gore)
 
-**Artist**: It's Dynamite 
+**Artist**: Perto 
 
-**Track**: Your Phone Linging (Club Core)
+**Track**: gore
 
-Last updated at 02/01/2024 08:41
+Last updated at 02/01/2024 08:42
