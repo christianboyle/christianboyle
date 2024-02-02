@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8L6xCT4GjXyw7aX-0Myciw-t500x500.jpg">](https://soundcloud.com/iamperto/stranger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509678244-n9yqcf-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-001-adam-pits)
 
-**Artist**: Perto 
+**Artist**: space lab 
 
-**Track**: stranger
+**Track**: space•cast 001 Adam Pits
 
-Last updated at 02/01/2024 15:55
+Last updated at 02/02/2024 09:03
