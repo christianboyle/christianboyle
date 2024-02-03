@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ATyRpZbRs8X5PPsI-Chd5Dg-t500x500.jpg">](https://soundcloud.com/eliminatemusic/egotrip?in=eliminatemusic/sets/get-off-the-internet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nXA6Yyp0AsiB59QM-GiyRvg-t500x500.jpg">](https://soundcloud.com/ontherecradio/tdj-on-the-record-208)
 
-**Artist**: Eliminate* 
+**Artist**: On The Record 
 
-**Track**: EGOTRIP
+**Track**: TDJ - On The Record #208
 
-Last updated at 02/03/2024 09:05
+Last updated at 02/03/2024 09:06
