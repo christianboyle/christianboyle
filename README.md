@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbAQp3Aoz3da9fNd-7DyAHw-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/akeos-ferra-flopmouth-joof-jmoss-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uaMAnoqyGvIlsK67-o5U6Xg-t500x500.jpg">](https://soundcloud.com/syzymusic2/narcissist)
 
-**Artist**: Best Dubstep Remixes 
+**Artist**: syzy2 
 
-**Track**: Akeos & Ferra - Flopmouth (joof & Jmoss Remix)
+**Track**: °˖✧ 02 NARCISSIST ✧˖°
 
-Last updated at 02/03/2024 08:34
+Last updated at 02/03/2024 08:35
