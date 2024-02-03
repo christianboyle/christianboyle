@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kA4Kbsp7uRv4zZlk-OfWObw-t500x500.jpg">](https://soundcloud.com/event-whalien/petzdas5k-sacra-vindicta-wha002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UODKsIoQzSER0tqt-ksIZ8Q-t500x500.jpg">](https://soundcloud.com/event-whalien/dstbl-now-the-bass-kicks-in-wha003)
 
 **Artist**: Whalien 
 
-**Track**: petzdas5k - Sacra Vindicta [WHA002]
+**Track**: DSTBL - Now The Bass Kicks In [WHA003]
 
-Last updated at 02/03/2024 08:36
+Last updated at 02/03/2024 08:41
