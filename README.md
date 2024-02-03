@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N3EY83VOwnZ9Apwu-9bEINA-t500x500.jpg">](https://soundcloud.com/sidechainsclub/agony-medical?in=sidechainsclub/sets/agony-forever-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ATyRpZbRs8X5PPsI-Chd5Dg-t500x500.jpg">](https://soundcloud.com/eliminatemusic/egotrip?in=eliminatemusic/sets/get-off-the-internet)
 
-**Artist**: SIDECHAINS 
+**Artist**: Eliminate* 
 
-**Track**: AGONY - MEDICAL
+**Track**: EGOTRIP
 
-Last updated at 02/03/2024 09:02
+Last updated at 02/03/2024 09:05
