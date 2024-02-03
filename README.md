@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kA4Kbsp7uRv4zZlk-OfWObw-t500x500.jpg">](https://soundcloud.com/event-whalien/petzdas5k-sacra-vindicta-wha002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caJQscyHbm8tAEpj-mTzQbw-t500x500.jpg">](https://soundcloud.com/niraya/lets-get-it)
 
-**Artist**: Whalien 
+**Artist**: Niraya 
 
-**Track**: petzdas5k - Sacra Vindicta [WHA002]
+**Track**: Let's Get It
 
-Last updated at 02/03/2024 08:55
+Last updated at 02/03/2024 09:01
