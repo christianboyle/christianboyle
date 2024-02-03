@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uaMAnoqyGvIlsK67-o5U6Xg-t500x500.jpg">](https://soundcloud.com/syzymusic2/narcissist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kA4Kbsp7uRv4zZlk-OfWObw-t500x500.jpg">](https://soundcloud.com/event-whalien/petzdas5k-sacra-vindicta-wha002)
 
-**Artist**: syzy2 
+**Artist**: Whalien 
 
-**Track**: °˖✧ 02 NARCISSIST ✧˖°
+**Track**: petzdas5k - Sacra Vindicta [WHA002]
 
-Last updated at 02/03/2024 08:35
+Last updated at 02/03/2024 08:36
