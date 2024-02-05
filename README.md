@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W7BRdq2OI0gyksI4-RQNYmg-t500x500.jpg">](https://soundcloud.com/djsmth/leave-a-trace-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you)
 
-**Artist**: dj something 
+**Artist**: S3RL 
 
-**Track**: CHVRCHES -- Leave A Trace (dj something remix)
+**Track**: Back To You - S3RL & Walras ft Regina
 
-Last updated at 02/05/2024 13:43
+Last updated at 02/05/2024 13:48
