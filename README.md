@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/its-not-me-its-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W7BRdq2OI0gyksI4-RQNYmg-t500x500.jpg">](https://soundcloud.com/djsmth/leave-a-trace-remix)
 
-**Artist**: beverly hills mom 
+**Artist**: dj something 
 
-**Track**: its not me. its YOU...
+**Track**: CHVRCHES -- Leave A Trace (dj something remix)
 
-Last updated at 02/05/2024 13:37
+Last updated at 02/05/2024 13:43
