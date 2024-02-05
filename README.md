@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbJJ0Csr8c1CQY5H-ikQoPw-t500x500.jpg">](https://soundcloud.com/theelectricmovement/lostronaut-hvnty-bout-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjdwxM1Wuskm8HfS-QgBWuw-t500x500.jpg">](https://soundcloud.com/jadudala/borne-my-mind-jadu232?in=goldenlotusart/sets/lotus-somnia-ep-17)
 
-**Artist**: The Electric Movement 
+**Artist**: Jadū Dala 
 
-**Track**: LØSTRONAUT & HVNTY - Bout U
+**Track**: borne - My Mind (JADŪ232)
 
-Last updated at 02/05/2024 08:19
+Last updated at 02/05/2024 09:17
