@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233439113-prig6y-t500x500.jpg">](https://soundcloud.com/fmbdz/19-fmb-dz-friday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbJJ0Csr8c1CQY5H-ikQoPw-t500x500.jpg">](https://soundcloud.com/theelectricmovement/lostronaut-hvnty-bout-u)
 
-**Artist**: FMB DZ 
+**Artist**: The Electric Movement 
 
-**Track**: 19. FMB DZ - Friday
+**Track**: LØSTRONAUT & HVNTY - Bout U
 
-Last updated at 02/05/2024 08:16
+Last updated at 02/05/2024 08:19
