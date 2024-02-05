@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nXA6Yyp0AsiB59QM-GiyRvg-t500x500.jpg">](https://soundcloud.com/ontherecradio/tdj-on-the-record-208)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/its-not-me-its-you)
 
-**Artist**: On The Record 
+**Artist**: beverly hills mom 
 
-**Track**: TDJ - On The Record #208
+**Track**: its not me. its YOU...
 
-Last updated at 02/05/2024 09:49
+Last updated at 02/05/2024 13:37
