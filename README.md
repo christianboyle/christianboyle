@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yb1OzTl8uyZyjbP-wBRrsQ-t500x500.jpg">](https://soundcloud.com/john-borea/krafty-hard-elements-launch-mix-feb-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000233439113-prig6y-t500x500.jpg">](https://soundcloud.com/fmbdz/19-fmb-dz-friday)
 
-**Artist**: Krafty (DJ John Borea) 
+**Artist**: FMB DZ 
 
-**Track**: Krafty - Hard Elements Launch Mix Feb 2024
+**Track**: 19. FMB DZ - Friday
 
-Last updated at 02/04/2024 11:12
+Last updated at 02/05/2024 08:16
