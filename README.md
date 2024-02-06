@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNoWwH0tTW6K-0-t500x500.jpg">](https://soundcloud.com/oneseventy/summa-jae-axel-oliver-all-over?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you?in=saxurn/sets/tmp3/)
 
-**Artist**: OneSeventy 
+**Artist**: S3RL 
 
-**Track**: Summa Jae & Axel Oliver - All Over Again
+**Track**: Back To You - S3RL & Walras ft Regina
 
-Last updated at 02/06/2024 09:22
+Last updated at 02/06/2024 09:25
