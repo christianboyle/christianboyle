@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ry5yVDxBx2gmydK-ZOs6AA-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecords/curlyheads-nasty-sht-hood-politics-records?in=hoodpoliticsrecords/sets/curlyheads-nasty-sh-t-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rWhnqFUzpvCbfR3W-EnjVdw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/blurrd-vzn-asau-nice-try)
 
-**Artist**: Hood Politics Records 
+**Artist**: Wavecraft Collective 
 
-**Track**: Curlyheads - Nasty Sh!T
+**Track**: blurrd vzn & asáu - Nice Try
 
-Last updated at 02/06/2024 08:17
+Last updated at 02/06/2024 08:18
