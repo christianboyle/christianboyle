@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-krzgGlGvwhOy2lXQ-IhyDaw-t500x500.jpg">](https://soundcloud.com/user-779214024/alex-farell-strange-world?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAmVYbaDkgnIY60A-T8sqEg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/darren-styles-satellite-tweekacore-remix-elfx?in=saxurn/sets/tmp3/)
 
-**Artist**: PRTY TRAX 
+**Artist**: Dirty Workz 
 
-**Track**: ALEX FARRELL - STRANGE WORLD (EDIT) [PRTYTRAXVA02]
+**Track**: Darren Styles - Satellite (Tweekacore Remix) (Electric Fox)
 
-Last updated at 02/06/2024 09:28
+Last updated at 02/06/2024 09:33
