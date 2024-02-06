@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNoWwH0tTW6K-0-t500x500.jpg">](https://soundcloud.com/oneseventy/summa-jae-axel-oliver-all-over)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZokidwNdcaKR3YP7-3wIAFA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-profoundness)
 
-**Artist**: OneSeventy 
+**Artist**: Dirty Workz 
 
-**Track**: Summa Jae & Axel Oliver - All Over Again
+**Track**: Cyber - Profoundness
 
-Last updated at 02/06/2024 09:16
+Last updated at 02/06/2024 09:18
