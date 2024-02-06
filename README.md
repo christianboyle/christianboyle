@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-krzgGlGvwhOy2lXQ-IhyDaw-t500x500.jpg">](https://soundcloud.com/user-779214024/alex-farell-strange-world?in=saxurn/sets/tmp3/)
 
-**Artist**: S3RL 
+**Artist**: PRTY TRAX 
 
-**Track**: Back To You - S3RL & Walras ft Regina
+**Track**: ALEX FARRELL - STRANGE WORLD (EDIT) [PRTYTRAXVA02]
 
-Last updated at 02/06/2024 09:25
+Last updated at 02/06/2024 09:28
