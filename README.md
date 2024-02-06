@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVZ6EPeRwOXbGz58-oVN35Q-t500x500.jpg">](https://soundcloud.com/discolines/good-good-radio-006)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GGv7giEsSITq-0-t500x500.jpg">](https://soundcloud.com/oneseventy/jakka-b-grvity-feat-joey-law)
 
-**Artist**: Disco Lines 
+**Artist**: OneSeventy 
 
-**Track**: Good Good Radio #006
+**Track**: Jakka-B & GRVITY feat. Joey Law - Won't Give Up
 
-Last updated at 02/06/2024 09:14
+Last updated at 02/06/2024 09:15
