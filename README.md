@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LXXsyDm1Wu19EpC-7dAXYA-t500x500.jpg">](https://soundcloud.com/yanis-bellalem/shake-your-pantz-ya-edit?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fej7fGWHdB59QBUG-2qrG8g-t500x500.jpg">](https://soundcloud.com/81zaki/survivors-guilt?in=saxurn/sets/tmp)
 
-**Artist**: YÅ 
+**Artist**: 81zaki 
 
-**Track**: Shake Your Pantz (YÅ Edit)
+**Track**: Survivor's Guilt
 
-Last updated at 02/07/2024 13:14
+Last updated at 02/07/2024 13:20
