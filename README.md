@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8z4zb2nAcdHRqldp-Jz8EQA-t500x500.jpg">](https://soundcloud.com/swaycred/swaycred-fatman?in=swaycred/sets/big-boi-riddim-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fg6aNEAB9mp5vQMZ-qo8frg-t500x500.jpg">](https://soundcloud.com/81zaki/thinking-of-you)
 
-**Artist**: SWAYCRED 
+**Artist**: 81zaki 
 
-**Track**: SWAYCRED - FATMAN
+**Track**: Thinking of You
 
-Last updated at 02/07/2024 08:35
+Last updated at 02/07/2024 08:36
