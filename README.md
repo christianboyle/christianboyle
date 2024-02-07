@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOd5Aa88uL2k-0-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/the-way-i-are-remix?in=saxurn/sets/oh-baby-a-triple-cd2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8z4zb2nAcdHRqldp-Jz8EQA-t500x500.jpg">](https://soundcloud.com/swaycred/swaycred-fatman?in=swaycred/sets/big-boi-riddim-ep-1)
 
-**Artist**: Olly James 
+**Artist**: SWAYCRED 
 
-**Track**: The Way I Are (Remix)
+**Track**: SWAYCRED - FATMAN
 
-Last updated at 02/06/2024 14:46
+Last updated at 02/07/2024 08:35
