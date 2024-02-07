@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lVbRURmpboYXuFfV-0hSd7w-t500x500.jpg">](https://soundcloud.com/user-655722008-603895859/losing-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycTfR1QIVAoHRjz5-UZyCLQ-t500x500.jpg">](https://soundcloud.com/highdruhdub/fukumean-gunna-highdruh-remix)
 
-**Artist**: Jonny B. Cool 
+**Artist**: HighdruH 
 
-**Track**: Losing My Mind
+**Track**: Fukumean - Gunna (Highdruh Flip)
 
-Last updated at 02/07/2024 09:03
+Last updated at 02/07/2024 09:04
