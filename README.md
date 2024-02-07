@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qT7U3p1vMqCcTbF-U6z1tw-t500x500.jpg">](https://soundcloud.com/phrva/domm?in=saxurn/sets/oh-baby-a-triple-cd2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zcSZVriDzaOWxsS-RmlZ2Q-t500x500.jpg">](https://soundcloud.com/sablevalley/freefall-arya-remix?in=saxurn/sets/oh-baby-a-triple-cd2)
 
-**Artist**: Phrva 
+**Artist**: SABLE VALLEY 
 
-**Track**: Eli Brown - Diamonds On My Mind (Phrva Flip)
+**Track**: Juelz - Freefall (Arya Remix)
 
-Last updated at 02/07/2024 09:45
+Last updated at 02/07/2024 09:48
