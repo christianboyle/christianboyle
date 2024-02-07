@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOd5Aa88uL2k-0-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/the-way-i-are-remix?in=saxurn/sets/oh-baby-a-triple-cd2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrwybCb9rjgQtDgN-Hi8gyg-t500x500.jpg">](https://soundcloud.com/phased_records/arman-john-roll-with-ice?in=saxurn/sets/oh-baby-a-triple-cd2)
 
-**Artist**: Olly James 
+**Artist**: Phased Records 
 
-**Track**: The Way I Are (Remix)
+**Track**: Arman John - Roll With Ice
 
-Last updated at 02/07/2024 09:29
+Last updated at 02/07/2024 09:32
