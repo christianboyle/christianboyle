@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zC1NnYGxl0imavXq-u95wTA-t500x500.jpg">](https://soundcloud.com/aajaradio/ware-w-klotang-aaja-channel-2-02-02-24?in=warecollective/sets/ware-on-aaja)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0FbUmy96TZezMsST-aqdVqg-t500x500.jpg">](https://soundcloud.com/waxxarecords/warp-brothers-distorted-reality-deevey-schranz-edit-waxxa060)
 
-**Artist**: Aaja Music 
+**Artist**: WAXXA Records 
 
-**Track**: WARE w/ Klotang - Aaja Channel 2 - 02 02 24
+**Track**: Warp Brothers - Distorted Reality (DEEVEY Schranz Edit) [WAXXA060]
 
-Last updated at 02/07/2024 08:50
+Last updated at 02/07/2024 08:51
