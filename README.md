@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Y8ZEgsc6T0Ac5Wd-2Sz5pw-t500x500.jpg">](https://soundcloud.com/kaipe-music/corona-the-rhythm-of-the-night-kaipe-hardgroove-edit?in=saxurn/sets/oh-baby-a-triple-cd1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opL4alGlN3dgbCVx-lnenCg-t500x500.png">](https://soundcloud.com/satoshijpn/starships-satoshi-2024-remix?in=saxurn/sets/tmp)
 
-**Artist**: KAIPE 
+**Artist**: SATOSHI 
 
-**Track**: Corona - The Rhythm Of The Night [KAIPE HARDGROOVE EDIT] FREE DL
+**Track**: Nicki Minaj - Starships (SATOSHI 2024 Remix)
 
-Last updated at 02/07/2024 09:54
+Last updated at 02/07/2024 13:05
