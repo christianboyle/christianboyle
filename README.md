@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycTfR1QIVAoHRjz5-UZyCLQ-t500x500.jpg">](https://soundcloud.com/highdruhdub/fukumean-gunna-highdruh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJEhciHIsvZ2zypj-QxlQcQ-t500x500.jpg">](https://soundcloud.com/parsa-nani-esfahani/marlon-hoffstadt-i-got-you-parsa-nani-mddltn-rave-edit-free-dl)
 
-**Artist**: HighdruH 
+**Artist**: Parsa Nani 
 
-**Track**: Fukumean - Gunna (Highdruh Flip)
+**Track**: Marlon Hoffstadt - I Got You (Parsa Nani & MDDLTN Rave Edit)
 
-Last updated at 02/07/2024 09:04
+Last updated at 02/07/2024 09:05
