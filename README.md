@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opL4alGlN3dgbCVx-lnenCg-t500x500.png">](https://soundcloud.com/satoshijpn/starships-satoshi-2024-remix?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LXXsyDm1Wu19EpC-7dAXYA-t500x500.jpg">](https://soundcloud.com/yanis-bellalem/shake-your-pantz-ya-edit?in=saxurn/sets/tmp)
 
-**Artist**: SATOSHI 
+**Artist**: YÅ 
 
-**Track**: Nicki Minaj - Starships (SATOSHI 2024 Remix)
+**Track**: Shake Your Pantz (YÅ Edit)
 
-Last updated at 02/07/2024 13:05
+Last updated at 02/07/2024 13:14
