@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQM3CFWz6a1Jmdgl-HGUKgw-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/t-sugah-imma-give?in=saxurn/sets/oh-baby-a-triple-cd2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOz4ZVq0IuCq7GCR-S6HSUg-t500x500.jpg">](https://soundcloud.com/braincoat/braincoat-x-lyustra-b8tleg?in=saxurn/sets/oh-baby-a-triple-cd2)
 
-**Artist**: Pilot. 
+**Artist**: braincoat 
 
-**Track**: T & Sugah - Imma Give
+**Track**: BRAINCOAT X LYUSTRA - B8TLEG
 
-Last updated at 02/07/2024 09:23
+Last updated at 02/07/2024 09:27
