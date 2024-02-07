@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iy2xfdIaOSV5Dzky-jX0OuA-t500x500.jpg">](https://soundcloud.com/dstm_music/drakk-fallen-angel-original?in=drakkofficial/sets/premiere-drakk-fallen-angel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-92xXEmjxFCAUgn1z-ojTbHg-t500x500.jpg">](https://soundcloud.com/huskibass/huski-be-your-fantasy-instrumental-1)
 
-**Artist**: Dstm 
+**Artist**: HUSKI (HUSKI BASS) 🐺 
 
-**Track**: PREMIERE - DRAKK - Fallen Angel (Original Mix)
+**Track**: HUSKI - BE YOUR FANTASY (INSTRUMENTAL)
 
-Last updated at 02/07/2024 08:45
+Last updated at 02/07/2024 08:48
