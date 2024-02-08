@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-614tdfXkX0HBUaZn-anX5vQ-t500x500.jpg">](https://soundcloud.com/thedjthumpa/thumpa-the-lighter-side-of-drum-bass-vol-6-classic-90s-atmospheric-db-jungle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zoFF2Sxg0DRQknA8-SmTuFA-t500x500.jpg">](https://soundcloud.com/emoticonharddance/illenium-sueco-story-of-my-life-firelite-emoticon-remix)
 
-**Artist**: Thumpa 
+**Artist**: ⚪️⚫️ Emoticon ⚫️⚪️ 
 
-**Track**: Thumpa - The Lighter Side Of Drum & Bass Vol 6 (Classic 90s Atmospheric D&B Jungle)
+**Track**: ILLENIUM & Sueco - Story Of My Life (Firelite & Emoticon Remix)
 
-Last updated at 02/08/2024 11:13
+Last updated at 02/08/2024 14:24
