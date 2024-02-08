@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nsnqcYuMRjymIzlb-GorO5w-t500x500.jpg">](https://soundcloud.com/prmidv/prmidv-x-eminem-x-d12-my-band-hard-techno-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnFfOu9W0oW9UW38-zysKSA-t500x500.jpg">](https://soundcloud.com/tsoumusic/secret-recipe-broken-timepiece-tsou-flip)
 
-**Artist**: PRMIDV 
+**Artist**: tsou 
 
-**Track**: PRMIDV x D12 - MY BAND (HARD TECHNO FLIP)
+**Track**: Secret Recipe - Broken Timepiece [tsou flip]
 
-Last updated at 02/08/2024 05:59
+Last updated at 02/08/2024 06:00
