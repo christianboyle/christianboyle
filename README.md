@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWqvJb7vIa6G5dd7-NCh4ag-t500x500.jpg">](https://soundcloud.com/bo0tyleak/comxndo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8Y0Q1jORThhT8CE-YMO7Ww-t500x500.jpg">](https://soundcloud.com/jakazid/reprobeats-spraybox-friends-27-01-2024)
 
-**Artist**: BOOTY LEAK 
+**Artist**: JAKAZiD 
 
-**Track**: phonk.me + Booty Leak & HOMINID - COMXNDÓ [ FREE DOWNLOAD ]
+**Track**: JAKAZiD @ Reprobeats ⨉ Spraybox & Friends 27-01-2024
 
-Last updated at 02/08/2024 06:01
+Last updated at 02/08/2024 06:02
