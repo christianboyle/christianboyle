@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy1akzqVyKR7xy6z-KR97uA-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin055-samurai-breaks-napes-wavelord-bizniz-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkQb6g5jwPIJ1k5s-sdOo4w-t500x500.jpg">](https://soundcloud.com/dissent-og/kvnstrvkt-modular)
 
-**Artist**: Shall Not Fade 
+**Artist**: dissent 
 
-**Track**: TIN055 // Samurai Breaks & Napes - Wavelord Bizniz EP
+**Track**: kvnstrvkt - modular
 
-Last updated at 02/08/2024 05:52
+Last updated at 02/08/2024 05:53
