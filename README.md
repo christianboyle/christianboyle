@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509678244-n9yqcf-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-001-adam-pits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy1akzqVyKR7xy6z-KR97uA-t500x500.jpg">](https://soundcloud.com/shallnotfade/tin055-samurai-breaks-napes-wavelord-bizniz-ep)
 
-**Artist**: space lab 
+**Artist**: Shall Not Fade 
 
-**Track**: space•cast 001 Adam Pits
+**Track**: TIN055 // Samurai Breaks & Napes - Wavelord Bizniz EP
 
-Last updated at 02/07/2024 13:26
+Last updated at 02/08/2024 05:52
