@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRORyvVTQpxGlk8c-mHjGpA-t500x500.jpg">](https://soundcloud.com/basscvlt/bnnh2promomix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lPQqWc6o1Ie77wC-4R15zw-t500x500.jpg">](https://soundcloud.com/jakka-b/litr1)
 
-**Artist**: BASSCVLT 
+**Artist**: Jakka-B 
 
-**Track**: BREAK NECKS NOT HEARTS VOL II | PROMO MIX
+**Track**: Lost In The Rave Vol.1
 
-Last updated at 02/08/2024 14:25
+Last updated at 02/08/2024 14:26
