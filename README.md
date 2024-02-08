@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8Y0Q1jORThhT8CE-YMO7Ww-t500x500.jpg">](https://soundcloud.com/jakazid/reprobeats-spraybox-friends-27-01-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opL4alGlN3dgbCVx-lnenCg-t500x500.png">](https://soundcloud.com/satoshijpn/starships-satoshi-2024-remix)
 
-**Artist**: JAKAZiD 
+**Artist**: SATOSHI 
 
-**Track**: JAKAZiD @ Reprobeats ⨉ Spraybox & Friends 27-01-2024
+**Track**: Nicki Minaj - Starships (SATOSHI 2024 Remix)
 
-Last updated at 02/08/2024 06:02
+Last updated at 02/08/2024 10:52
