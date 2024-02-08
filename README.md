@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zoFF2Sxg0DRQknA8-SmTuFA-t500x500.jpg">](https://soundcloud.com/emoticonharddance/illenium-sueco-story-of-my-life-firelite-emoticon-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRORyvVTQpxGlk8c-mHjGpA-t500x500.jpg">](https://soundcloud.com/basscvlt/bnnh2promomix)
 
-**Artist**: ⚪️⚫️ Emoticon ⚫️⚪️ 
+**Artist**: BASSCVLT 
 
-**Track**: ILLENIUM & Sueco - Story Of My Life (Firelite & Emoticon Remix)
+**Track**: BREAK NECKS NOT HEARTS VOL II | PROMO MIX
 
-Last updated at 02/08/2024 14:24
+Last updated at 02/08/2024 14:25
