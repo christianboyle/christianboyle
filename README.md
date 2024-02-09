@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ECYsqJid7WllywY-gyo4bg-t500x500.jpg">](https://soundcloud.com/sh00tinr3ckless/r3ckless-behavior-vol2-nye-edition?in=wabetasty/sets/tasty1987)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EgR79aB3DHJnly2Y-IV8otg-t500x500.jpg">](https://soundcloud.com/phrva/leavemealone)
 
-**Artist**: sh00tinr3ckless 
+**Artist**: Phrva 
 
-**Track**: r3ckless behavior vol.2 (NYE Edition)
+**Track**: Fred again.. & Baby Keem - leavemealone (Phrva Flip)
 
-Last updated at 02/08/2024 20:06
+Last updated at 02/09/2024 07:04
