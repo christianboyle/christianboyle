@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EgR79aB3DHJnly2Y-IV8otg-t500x500.jpg">](https://soundcloud.com/phrva/leavemealone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUZ9IbUWg0HGGTjS-YlnwsQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/purityleech-its-a-beautiful?in=purityleech/sets/purityleech-x-weirdnxc)
 
-**Artist**: Phrva 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Fred again.. & Baby Keem - leavemealone (Phrva Flip)
+**Track**: 06 - purityleech - it’s a beautiful day⠀^_^
 
-Last updated at 02/09/2024 07:04
+Last updated at 02/09/2024 07:05
