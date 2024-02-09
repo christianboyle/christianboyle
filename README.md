@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUZ9IbUWg0HGGTjS-YlnwsQ-t500x500.jpg">](https://soundcloud.com/weirdnxc/fallen-shrine-kling-klang?in=weirdnxc/sets/act-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4gQZUacbfcyQ-0-t500x500.jpg">](https://soundcloud.com/turntmusicmedia/fahjah-viiq-waiting-for)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: TURNT Music Media 
 
-**Track**: (bonus²) Fallen Shrine - Kling like a Klang
+**Track**: Fahjah, Viiq - Waiting For Tonight
 
-Last updated at 02/09/2024 07:06
+Last updated at 02/09/2024 10:09
