@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-04TXnqbDkMjuYV4d-jEi2AA-t500x500.jpg">](https://soundcloud.com/systemkids/disarm-you-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ECYsqJid7WllywY-gyo4bg-t500x500.jpg">](https://soundcloud.com/sh00tinr3ckless/r3ckless-behavior-vol2-nye-edition?in=wabetasty/sets/tasty1987)
 
-**Artist**: SYSTEM KIDS 
+**Artist**: sh00tinr3ckless 
 
-**Track**: Kaskade - Disarm You (SYSTEM KIDS Remix)
+**Track**: r3ckless behavior vol.2 (NYE Edition)
 
-Last updated at 02/08/2024 20:05
+Last updated at 02/08/2024 20:06
