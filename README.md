@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lPQqWc6o1Ie77wC-4R15zw-t500x500.jpg">](https://soundcloud.com/jakka-b/litr1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-04TXnqbDkMjuYV4d-jEi2AA-t500x500.jpg">](https://soundcloud.com/systemkids/disarm-you-remix)
 
-**Artist**: Jakka-B 
+**Artist**: SYSTEM KIDS 
 
-**Track**: Lost In The Rave Vol.1
+**Track**: Kaskade - Disarm You (SYSTEM KIDS Remix)
 
-Last updated at 02/08/2024 14:26
+Last updated at 02/08/2024 20:05
