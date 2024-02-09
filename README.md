@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDDQ9qgxpf17PDzI-WHT8WA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/shellshock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pknAEJUb5RyeTHO7-QQS56w-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/polygondust)
 
-**Artist**: NIGHTMODE 
+**Artist**: Reheated By Tuna Melt 
 
-**Track**: TWERL - SHELLSHOCK
+**Track**: Porter Robinson - Polygon Dust (Tuna Melt Remix)
 
-Last updated at 02/09/2024 11:05
+Last updated at 02/09/2024 11:07
