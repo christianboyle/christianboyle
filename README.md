@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IDNrLxazg4FA3L7E-z5zTLQ-t500x500.jpg">](https://soundcloud.com/adekn_bass/holy-spirit-ft-benevolent-neeche)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owgAitRUa6zT-0-t500x500.jpg">](https://soundcloud.com/pegassimusic/yoyoyo)
 
-**Artist**: adekn 
+**Artist**: Pegassi 
 
-**Track**: Holy Spirit w/ Benevolent & Neeche
+**Track**: Yoyoyo
 
-Last updated at 02/10/2024 09:10
+Last updated at 02/10/2024 09:11
