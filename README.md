@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoI3yqA4ucvEZ34D-vEJgOg-t500x500.jpg">](https://soundcloud.com/chromebodies/daysgoby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iz3N4UzKHH6mDULu-l0Ivew-t500x500.jpg">](https://soundcloud.com/barongfamily/only-gain-alltika-thorns)
 
-**Artist**: CHROMEBODIES 
+**Artist**: Barong Family 
 
-**Track**: DIRTY VEGAS - DAYS GO BY (CHROMEBODIED)
+**Track**: ONLY GAIN & Alltika - Thorns
 
-Last updated at 02/09/2024 15:05
+Last updated at 02/10/2024 09:07
