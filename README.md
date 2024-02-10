@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iz3N4UzKHH6mDULu-l0Ivew-t500x500.jpg">](https://soundcloud.com/barongfamily/only-gain-alltika-thorns?in=saxurn/sets/tmp/)
 
-**Artist**: Rave Alert 
+**Artist**: Barong Family 
 
-**Track**: [PREMIERE] Aksys - Wanna See You
+**Track**: ONLY GAIN & Alltika - Thorns
 
-Last updated at 02/10/2024 14:04
+Last updated at 02/10/2024 14:08
