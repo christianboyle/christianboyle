@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoI3yqA4ucvEZ34D-vEJgOg-t500x500.jpg">](https://soundcloud.com/chromebodies/daysgoby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lPQqWc6o1Ie77wC-4R15zw-t500x500.jpg">](https://soundcloud.com/jakka-b/litr1)
 
-**Artist**: CHROMEBODIES 
+**Artist**: Jakka-B 
 
-**Track**: DIRTY VEGAS - DAYS GO BY (CHROMEBODIED)
+**Track**: Lost In The Rave Vol.1
 
-Last updated at 02/10/2024 10:07
+Last updated at 02/10/2024 10:12
