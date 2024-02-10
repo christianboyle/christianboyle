@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TwOLzYwuxHwMze2o-1nVoOQ-t500x500.jpg">](https://soundcloud.com/orlando_boom/third-coast-bass-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nI8yzek3yKIywbRK-TYNeFA-t500x500.jpg">](https://soundcloud.com/tabularasarecords/boy-in-nature-kelbin-an-opal-echo)
 
-**Artist**: Orlando BOOM 
+**Artist**: Tabula Rasa Records 
 
-**Track**: THIRD COAST BASS RADIO MIX
+**Track**: Boy In Nature, Kelbin - An Opal Echo
 
-Last updated at 02/10/2024 09:24
+Last updated at 02/10/2024 09:28
