@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you?in=saxurn/sets/tmp/)
 
-**Artist**: Wraz. 
+**Artist**: Rave Alert 
 
-**Track**: Wraz & Nautical Divine - Womp
+**Track**: [PREMIERE] Aksys - Wanna See You
 
-Last updated at 02/10/2024 14:01
+Last updated at 02/10/2024 14:04
