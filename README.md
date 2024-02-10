@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nI8yzek3yKIywbRK-TYNeFA-t500x500.jpg">](https://soundcloud.com/tabularasarecords/boy-in-nature-kelbin-an-opal-echo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owgAitRUa6zT-0-t500x500.jpg">](https://soundcloud.com/pegassimusic/yoyoyo)
 
-**Artist**: Tabula Rasa Records 
+**Artist**: Pegassi 
 
-**Track**: Boy In Nature, Kelbin - An Opal Echo
+**Track**: Yoyoyo
 
-Last updated at 02/10/2024 09:28
+Last updated at 02/10/2024 09:59
