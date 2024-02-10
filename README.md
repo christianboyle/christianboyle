@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WinPLgvAzu0AsaQ-IZoWeA-t500x500.jpg">](https://soundcloud.com/pirapus/titanium-pirapus-bootleg?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=saxurn/sets/tmp/)
 
-**Artist**: Pirapus 
+**Artist**: Wraz. 
 
-**Track**: Titanium (Pirapus Bootleg)
+**Track**: Wraz & Nautical Divine - Womp
 
-Last updated at 02/10/2024 13:58
+Last updated at 02/10/2024 14:01
