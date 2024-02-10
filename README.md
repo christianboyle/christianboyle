@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owgAitRUa6zT-0-t500x500.jpg">](https://soundcloud.com/pegassimusic/yoyoyo?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fej7fGWHdB59QBUG-2qrG8g-t500x500.jpg">](https://soundcloud.com/81zaki/survivors-guilt?in=saxurn/sets/tmp/)
 
-**Artist**: Pegassi 
+**Artist**: 81zaki 
 
-**Track**: Yoyoyo
+**Track**: Survivor's Guilt
 
-Last updated at 02/10/2024 13:40
+Last updated at 02/10/2024 13:45
