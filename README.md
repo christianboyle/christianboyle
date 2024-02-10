@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lPQqWc6o1Ie77wC-4R15zw-t500x500.jpg">](https://soundcloud.com/jakka-b/litr1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you)
 
-**Artist**: Jakka-B 
+**Artist**: Rave Alert 
 
-**Track**: Lost In The Rave Vol.1
+**Track**: [PREMIERE] Aksys - Wanna See You
 
-Last updated at 02/10/2024 10:12
+Last updated at 02/10/2024 13:37
