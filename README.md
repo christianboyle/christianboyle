@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGpNS0zkMY6O59Gg-Y85yiw-t500x500.jpg">](https://soundcloud.com/psychocybinrec/wyndeupfunawugga?in=hippieflippromotions/sets/f-u-n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZguLvdpUyEBwIV5-1jDVSQ-t500x500.jpg">](https://soundcloud.com/5am-beats/get-down)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: ~5AM~ 
 
-**Track**: Wynde Up - Funawugga
+**Track**: Get Down
 
-Last updated at 02/11/2024 11:01
+Last updated at 02/11/2024 11:02
