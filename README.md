@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ms9OMzWWIh0w1TEA-gXVXLw-t500x500.jpg">](https://soundcloud.com/xylinsound/love-drunk-feat-olivia-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZIydjyQlmc24HXr-Xw65Og-t500x500.jpg">](https://soundcloud.com/destinuna/thatskenny-impermanence)
 
-**Artist**: xylin 
+**Artist**: Destinuna 
 
-**Track**: love drunk (feat. olivia ray)
+**Track**: thatskenny - impermanence
 
-Last updated at 02/11/2024 10:54
+Last updated at 02/11/2024 10:55
