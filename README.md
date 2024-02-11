@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAj8sqNHyRZP3yzg-P3ny8g-t500x500.jpg">](https://soundcloud.com/codemuckmusic/code-muck-the-lost-file)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wgHCyRaUh70gRiYa-Fvlf7g-t500x500.jpg">](https://soundcloud.com/bimyomusic/winterfell)
 
-**Artist**: CODE MUCK 
+**Artist**: bimyo. 
 
-**Track**: The Lost File
+**Track**: Winterfell
 
-Last updated at 02/11/2024 10:56
+Last updated at 02/11/2024 10:57
