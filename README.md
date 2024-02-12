@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLsgqmgNBVU5xtDF-6NPVyA-t500x500.jpg">](https://soundcloud.com/morflorecords/shanghai-doom-daizy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RmLjOi9amA3fRDJC-vfvW2w-t500x500.jpg">](https://soundcloud.com/keriah-659424899/balla-con-me)
 
-**Artist**: MorFlo Records 
+**Artist**: Keriah 
 
-**Track**: Shanghai Doom & DAIZY - Facedropper
+**Track**: Balla Con Me
 
-Last updated at 02/12/2024 08:16
+Last updated at 02/12/2024 08:57
