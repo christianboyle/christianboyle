@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQWegTtD7GYqMyh3-eylWmA-t500x500.jpg">](https://soundcloud.com/gmafiarecords/bobi-kentero-wannabe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BjM66Dt3nyoiF6nM-o1ZRRg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-angata-bara-original-mix-ursul-records)
 
-**Artist**: G-MAFIA RECORDS 
+**Artist**: Raven Musik 
 
-**Track**: Bobi Kentero - Wannabe (Original Mix)[G-MAFIA RECORDS]
+**Track**: PREMIERE: Angata - Bara  (Feat. Fanta Konè) (Original Mix) [Ursul Records]
 
-Last updated at 02/12/2024 08:13
+Last updated at 02/12/2024 08:14
