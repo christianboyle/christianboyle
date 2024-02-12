@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9z9szugYeZUFkrgu-SkP8zQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-minna-murra-nadodrze-snps001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpFtyEQYkRid9Quz-ArgOuA-t500x500.jpg">](https://soundcloud.com/hu-zin/hu-zin-pokkun-your-love)
 
-**Artist**: POLISH TECHNO.LOGY/PTL 
+**Artist**: hu-zin 
 
-**Track**: [PREMIERE] | Minna Murra - Nadodrze  [SNPS001]
+**Track**: hu-zin & Pokkun - Your Love
 
-Last updated at 02/12/2024 08:09
+Last updated at 02/12/2024 08:11
