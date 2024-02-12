@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCclXCKL1d3Rc4S8-6gKh3g-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-tranz-hakak-amsterdam-rmva002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QLLDryXThGHF746S-XEGreg-t500x500.jpg">](https://soundcloud.com/all172things/osprey-nos-a172t014)
 
-**Artist**: Techno Wereld 
+**Artist**: All172Things 
 
-**Track**: Premiere: TRANZ & HAKK - Amsterdam [RMVA002]
+**Track**: Osprey - NOS [A172T014]
 
-Last updated at 02/12/2024 08:06
+Last updated at 02/12/2024 08:08
