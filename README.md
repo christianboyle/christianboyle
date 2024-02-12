@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BjM66Dt3nyoiF6nM-o1ZRRg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-angata-bara-original-mix-ursul-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLsgqmgNBVU5xtDF-6NPVyA-t500x500.jpg">](https://soundcloud.com/morflorecords/so-sus-adame-the-count)
 
-**Artist**: Raven Musik 
+**Artist**: MorFlo Records 
 
-**Track**: PREMIERE: Angata - Bara  (Feat. Fanta Konè) (Original Mix) [Ursul Records]
+**Track**: So Sus & ADAME - The Count
 
-Last updated at 02/12/2024 08:14
+Last updated at 02/12/2024 08:15
