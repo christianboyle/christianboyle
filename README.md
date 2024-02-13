@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCWZ1wHj1QfdOiGS-gBQ0bw-t500x500.jpg">](https://soundcloud.com/sinensis-ute/omformer-threshold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsh6j0AWz9YEgyaO-D5SznQ-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-boys-noize-fine-day-anthem-synova-flip)
 
-**Artist**: Sinensis 
+**Artist**: Synova 
 
-**Track**: Omformer - Threshold
+**Track**: Skrillex & Boys Noize - Fine Day Anthem (Synova Flip)
 
-Last updated at 02/12/2024 16:07
+Last updated at 02/13/2024 09:24
