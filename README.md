@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLsgqmgNBVU5xtDF-6NPVyA-t500x500.jpg">](https://soundcloud.com/morflorecords/jalaya-bd-hbt-departure-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bBcsZzy0yEwlBga-ytcaQA-t500x500.jpg">](https://soundcloud.com/etrnlrecs/meyer-dirty-confession)
 
-**Artist**: MorFlo Records 
+**Artist**: ETERNAL 
 
-**Track**: Jalaya & bd hbt - Departure
+**Track**: Meyer - Dirty Confessions (Extended Mix)
 
-Last updated at 02/13/2024 09:30
+Last updated at 02/13/2024 09:31
