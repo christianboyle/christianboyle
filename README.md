@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsh6j0AWz9YEgyaO-D5SznQ-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-boys-noize-fine-day-anthem-synova-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YLsgqmgNBVU5xtDF-6NPVyA-t500x500.jpg">](https://soundcloud.com/morflorecords/jalaya-bd-hbt-departure-1)
 
-**Artist**: Synova 
+**Artist**: MorFlo Records 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (Synova Flip)
+**Track**: Jalaya & bd hbt - Departure
 
-Last updated at 02/13/2024 09:24
+Last updated at 02/13/2024 09:30
