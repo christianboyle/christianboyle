@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000509678244-n9yqcf-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-001-adam-pits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idsS3JxzL0moLNBp-zszOOA-t500x500.jpg">](https://soundcloud.com/spacelabrecords/adam-pits-grounded-ep-sl010)
 
 **Artist**: space lab 
 
-**Track**: space•cast 001 Adam Pits
+**Track**: Adam Pits - Grounded EP (SL010)
 
-Last updated at 02/13/2024 14:24
+Last updated at 02/13/2024 15:25
