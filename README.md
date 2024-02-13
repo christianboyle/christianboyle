@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bBcsZzy0yEwlBga-ytcaQA-t500x500.jpg">](https://soundcloud.com/etrnlrecs/meyer-dirty-confession)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I1lBkl0Dl6ULvgDX-sIYzDQ-t500x500.jpg">](https://soundcloud.com/suitsandsnares/medua-x-modelx-opioids)
 
-**Artist**: ETERNAL 
+**Artist**: Suits & Snares 
 
-**Track**: Meyer - Dirty Confessions (Extended Mix)
+**Track**: MEDU$A X ModelX ~ Opioids (Free Download)
 
-Last updated at 02/13/2024 09:31
+Last updated at 02/13/2024 09:34
