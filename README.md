@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8L6xCT4GjXyw7aX-0Myciw-t500x500.jpg">](https://soundcloud.com/iamperto/mandown?in=iamperto/sets/bozo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzwWzK1nO6hg-0-t500x500.png">](https://soundcloud.com/hartshorn303/hold-on)
 
-**Artist**: Perto 
+**Artist**: Hartshorn 
 
-**Track**: man down
+**Track**: Hold On
 
-Last updated at 02/13/2024 13:59
+Last updated at 02/13/2024 14:08
