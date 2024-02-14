@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-697Pdb12g56a3INP-vdQaZA-t500x500.jpg">](https://soundcloud.com/phrva/siren)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uosRonCAIchuaX8z-8FeKhw-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-34-peppa)
 
-**Artist**: Phrva 
+**Artist**: Hardcore Energy 
 
-**Track**: Sub Focus - Siren (Phrva Flip)
+**Track**: Mix Series 34 - Peppa
 
-Last updated at 02/13/2024 19:30
+Last updated at 02/14/2024 08:01
