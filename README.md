@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vH1TGNObavksrdDx-SIUjXg-t500x500.jpg">](https://soundcloud.com/lunaa1/lunaa-d1v-narnia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhcJEulR9b7K5wzr-amsfPg-t500x500.jpg">](https://soundcloud.com/uwuntuwu/dan-larkin-swamp-fest-13)
 
-**Artist**: Lunaa 
+**Artist**: DJ Gator Aids 
 
-**Track**: Lunaa & d1v - Narnia
+**Track**: Dan Larkin @ Swamp Fest 13
 
-Last updated at 02/13/2024 19:23
+Last updated at 02/13/2024 19:24
