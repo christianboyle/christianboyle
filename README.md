@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/give-2-u-the-3-u-seek-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wlOrEbCOnRD-0-t500x500.jpg">](https://soundcloud.com/agcook/beautiful-superstar)
 
-**Artist**: dj something 
+**Artist**: A. G. Cook 
 
-**Track**: Give 2 U the <3 U Seek & More
+**Track**: Beautiful Superstar
 
-Last updated at 02/15/2024 09:27
+Last updated at 02/15/2024 09:28
