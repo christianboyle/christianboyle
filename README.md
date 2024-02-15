@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zM8qBLW8qlxCSUiM-b4CAqQ-t500x500.jpg">](https://soundcloud.com/silvianxc/nxc-valentine-mix-finale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fcwdGrjDOSkbUgA6-ObFVZA-t500x500.jpg">](https://soundcloud.com/aryadubz/showcaseidmix)
 
-**Artist**: Silvia nxc 
+**Artist**: ARYA 
 
-**Track**: NXC VALENTINE MIX FINALE
+**Track**: 2024 SHOWCASE [ID MIX]
 
-Last updated at 02/15/2024 08:56
+Last updated at 02/15/2024 08:59
