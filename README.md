@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wlOrEbCOnRD-0-t500x500.jpg">](https://soundcloud.com/agcook/beautiful-superstar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc6NOOjGZpRxqkrg-JNFW5Q-t500x500.jpg">](https://soundcloud.com/kmoethekid/gloves)
 
-**Artist**: A. G. Cook 
+**Artist**: kmoe 
 
-**Track**: Beautiful Superstar
+**Track**: gloves
 
-Last updated at 02/15/2024 09:28
+Last updated at 02/15/2024 09:29
