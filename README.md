@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8xiW6UvyO4xMyere-TuQFYw-t500x500.jpg">](https://soundcloud.com/kastra-bootlegs/murder-on-the-dancefloor-kastra-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tj4o5pJR2tfClp23-ddJo1g-t500x500.jpg">](https://soundcloud.com/modparlour/terror-reid-uppercuts-mod-parlour-edit)
 
-**Artist**: Kastra [Bootlegs] 
+**Artist**: Mod Parlour 
 
-**Track**: Sophie Ellis-Bextor - Murder On The Dancefloor (Kastra Remix)
+**Track**: Terror Reid - Uppercuts (Mod Parlour Edit)
 
-Last updated at 02/15/2024 08:35
+Last updated at 02/15/2024 08:54
