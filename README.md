@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tj4o5pJR2tfClp23-ddJo1g-t500x500.jpg">](https://soundcloud.com/modparlour/terror-reid-uppercuts-mod-parlour-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2q03BrSCWRU2y5AF-Nvzu1Q-t500x500.jpg">](https://soundcloud.com/lonewulfsounds/forge)
 
-**Artist**: Mod Parlour 
+**Artist**: lonewulf 
 
-**Track**: Terror Reid - Uppercuts (Mod Parlour Edit)
+**Track**: Forge [Liquid Ritual]
 
-Last updated at 02/15/2024 08:54
+Last updated at 02/15/2024 08:55
