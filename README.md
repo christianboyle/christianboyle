@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7XsPqfkCVVy8BrD-FaPXdQ-t500x500.jpg">](https://soundcloud.com/echoescollective/astral-descent-gainchanger-changes?in=astraldescent/sets/astral-descent-gainchanger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bAms86GM394wYkKr-YCVW5A-t500x500.jpg">](https://soundcloud.com/muteddiagram/slow-down-1)
 
-**Artist**: Echoes Collective 
+**Artist**: Muted Diagram 
 
-**Track**: Astral Descent, GAINCHANGER - Changes
+**Track**: Slow Down
 
-Last updated at 02/15/2024 08:19
+Last updated at 02/15/2024 08:20
