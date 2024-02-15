@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WIMOh8fpI0vz4deD-IVeiaw-t500x500.jpg">](https://soundcloud.com/jukaamusic/i-wanna-show-u-off-dj-set?in=jukaamusic/sets/will-u-be-my-valentine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/give-2-u-the-3-u-seek-more)
 
-**Artist**: Jukaa 
+**Artist**: dj something 
 
-**Track**: i wanna show u off - dj set
+**Track**: Give 2 U the <3 U Seek & More
 
-Last updated at 02/15/2024 09:00
+Last updated at 02/15/2024 09:27
