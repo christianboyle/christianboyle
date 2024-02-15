@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2q03BrSCWRU2y5AF-Nvzu1Q-t500x500.jpg">](https://soundcloud.com/lonewulfsounds/forge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zM8qBLW8qlxCSUiM-b4CAqQ-t500x500.jpg">](https://soundcloud.com/silvianxc/nxc-valentine-mix-finale)
 
-**Artist**: lonewulf 
+**Artist**: Silvia nxc 
 
-**Track**: Forge [Liquid Ritual]
+**Track**: NXC VALENTINE MIX FINALE
 
-Last updated at 02/15/2024 08:55
+Last updated at 02/15/2024 08:56
