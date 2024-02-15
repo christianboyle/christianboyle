@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bAms86GM394wYkKr-YCVW5A-t500x500.jpg">](https://soundcloud.com/muteddiagram/slow-down-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqXIqGODyonbYEwR-gsHXcw-t500x500.jpg">](https://soundcloud.com/itsfrancisvi/francis-vi-rampant-drinking-1)
 
-**Artist**: Muted Diagram 
+**Artist**: Francis VI (IG @itsfrancisvi) 
 
-**Track**: Slow Down
+**Track**: Francis VI, Rampant - Drinking
 
-Last updated at 02/15/2024 08:20
+Last updated at 02/15/2024 08:21
