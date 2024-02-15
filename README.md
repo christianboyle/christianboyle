@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OKl6fpd62eyTimz7-4CykBw-t500x500.jpg">](https://soundcloud.com/rinsefm/angel-dlite-20-december-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G7rYhlYEdULnRtH8-bMcnwQ-t500x500.jpg">](https://soundcloud.com/deejayectomorph/the-morph-harder-podcast-episode-20-featuring-dj-shimamura)
 
-**Artist**: Rinse FM 
+**Artist**: DJ Ectomorph 
 
-**Track**: Angel D’lite with X3butterfly - 20 December 2023
+**Track**: The Morph Harder Podcast: Episode 20 featuring DJ SHIMAMURA
 
-Last updated at 02/14/2024 10:25
+Last updated at 02/15/2024 08:18
