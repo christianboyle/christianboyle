@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G7rYhlYEdULnRtH8-bMcnwQ-t500x500.jpg">](https://soundcloud.com/deejayectomorph/the-morph-harder-podcast-episode-20-featuring-dj-shimamura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7XsPqfkCVVy8BrD-FaPXdQ-t500x500.jpg">](https://soundcloud.com/echoescollective/astral-descent-gainchanger-changes?in=astraldescent/sets/astral-descent-gainchanger)
 
-**Artist**: DJ Ectomorph 
+**Artist**: Echoes Collective 
 
-**Track**: The Morph Harder Podcast: Episode 20 featuring DJ SHIMAMURA
+**Track**: Astral Descent, GAINCHANGER - Changes
 
-Last updated at 02/15/2024 08:18
+Last updated at 02/15/2024 08:19
