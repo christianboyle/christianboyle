@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAk8wYwAgsNCXW2y-u2UhaQ-t500x500.jpg">](https://soundcloud.com/crimtek/bloodstainedtears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zoPxX4Ia3cNtbW8n-1rzjAg-t500x500.jpg">](https://soundcloud.com/flo_vantablack/vantablack-alaaarm)
 
-**Artist**: CRIMTEK 
+**Artist**: VANTABLACK 
 
-**Track**: BLOOD STAINED TEARS [Ft. Tiffany's Roses]
+**Track**: Vantablack - Alaaarm
 
-Last updated at 02/16/2024 08:53
+Last updated at 02/16/2024 08:55
