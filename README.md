@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1yBl2T1MiBb5HyQ-JFNX5w-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-rj-pasin-unstable?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-56Sj4IZMf9LqR0tC-F0a1Ow-t500x500.jpg">](https://soundcloud.com/user-553848593/obeis1)
 
-**Artist**: Tom Frane 
+**Artist**: AbsolutUnsa 
 
-**Track**: Tom Frane, RJ Pasin - Unstable
+**Track**: Obéis (to your Life/Funky Testament)
 
-Last updated at 02/15/2024 15:48
+Last updated at 02/16/2024 08:16
