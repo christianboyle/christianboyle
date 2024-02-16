@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfOtJR3I21ylBi9r-rNl72Q-t500x500.jpg">](https://soundcloud.com/rawsomerecords/shifty-need-it-rawdeep081-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0G4BtmZhOuWQcpPF-WDzEtg-t500x500.jpg">](https://soundcloud.com/soviet_kid/armstrong-new-jazz-type-beat-prod-ovet-kd)
 
-**Artist**: Rawsome Recordings 
+**Artist**: $OV!ET K!D 
 
-**Track**: SHIFTY - NEED IT [RAWDEEP081]
+**Track**: "ARMSTRONG" NEW JAZZ TYPE BEAT [Prod. $OV!ET K!D]
 
-Last updated at 02/16/2024 08:30
+Last updated at 02/16/2024 08:35
