@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTpMOBLnie5wFadW-ro7IiQ-t500x500.jpg">](https://soundcloud.com/jonathankiddmusic/jonathan-kidd-wtf-do-djs-actually-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHX4rB8UbHP65sAA-8UmPAg-t500x500.jpg">](https://soundcloud.com/alexdpaul/senales-mp3)
 
-**Artist**: Jonathan Kidd (MAS) 
+**Artist**: Alex d paul 
 
-**Track**: Jonathan Kidd - WTF Do DJs Actually Do [FDL] (Supported by DAX J, PERSES, Versus (USA) & more..)
+**Track**: Sings.
 
-Last updated at 02/16/2024 08:38
+Last updated at 02/16/2024 08:41
