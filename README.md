@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O8GximYcZQE5Vrzd-ZGrgsA-t500x500.jpg">](https://soundcloud.com/audio-felonz-enquiries/insightz-badtrip-ep-outnow-link-in-description)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-0rUOD44ZzuR1syFi-nYfaTg-t500x500.jpg">](https://soundcloud.com/healingjourneymusic/deep-joy?in=wabetasty/sets/tasty1976)
 
-**Artist**: Audio Felonz Records 
+**Artist**: Jessie lynn rose 
 
-**Track**: Insightz Badtrip Ep OUTNOW link in description
+**Track**: Deep Joy
 
-Last updated at 02/17/2024 06:50
+Last updated at 02/17/2024 06:51
