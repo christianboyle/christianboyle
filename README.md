@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZTeVrm8DvjebBxP-XVGmlg-t500x500.jpg">](https://soundcloud.com/steven-brown-208/rebekah-ryan-just-a-little-bit-of-love-reunion-remix-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O8GximYcZQE5Vrzd-ZGrgsA-t500x500.jpg">](https://soundcloud.com/audio-felonz-enquiries/insightz-badtrip-ep-outnow-link-in-description)
 
-**Artist**: Steven Brown 
+**Artist**: Audio Felonz Records 
 
-**Track**: Rebekah Ryan - Just a Little Bit of Love - Reunion Remix (Preview)
+**Track**: Insightz Badtrip Ep OUTNOW link in description
 
-Last updated at 02/17/2024 06:49
+Last updated at 02/17/2024 06:50
