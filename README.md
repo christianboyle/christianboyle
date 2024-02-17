@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PArby8grcFmhp7BQ-WSeJCA-t500x500.jpg">](https://soundcloud.com/stubo-house/stubo-there-it-is?in=goldphaser/sets/tagteam-there-it-is-stubo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caUzw1h5g9LlmAJK-SxQmzg-t500x500.jpg">](https://soundcloud.com/slangdogs/danger)
 
-**Artist**: Stubo 
+**Artist**: Slang Dogs 
 
-**Track**: TagTeam - There It Is (Stubo Remix)
+**Track**: Danger
 
-Last updated at 02/17/2024 06:54
+Last updated at 02/17/2024 10:02
