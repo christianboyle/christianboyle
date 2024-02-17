@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TMt4QV3S0I90hIRh-aKFuVw-t500x500.jpg">](https://soundcloud.com/wubaholics/ugly-lungs-devious-outer-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTYon0KUAtzAIgT2-LXBZEg-t500x500.jpg">](https://soundcloud.com/k1n_music/bodypartyx3)
 
-**Artist**: Wubaholics 
+**Artist**: K1N 
 
-**Track**: UGLY LUNGS & DEVIOUS - OUTER SPACE
+**Track**: Chris Brown X Ciara - BODY PARTYx3 (K1N & CODY DUNSTALL Festival Flip) (RADIO EDIT)
 
-Last updated at 02/16/2024 15:54
+Last updated at 02/17/2024 06:48
