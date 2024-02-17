@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PosVz8Ude6LTL8Qf-eYdR9g-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/rusko-hold-on-sub-focus-remix-proppa-x-ancientexe-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J9aMNhQAp5Kf6tFp-DWzJOw-t500x500.jpg">](https://soundcloud.com/k1n_music/turnoffthelights)
 
-**Artist**: Hood Politics Records Edits 
+**Artist**: K1N 
 
-**Track**: Rusko - Hold On (Sub Focus Remix) [Proppa X Ancient.EXE Flip]
+**Track**: DOG BLOOD - TURN OFF THE LIGHTS (K1N FESTIVAL FLIP)
 
-Last updated at 02/17/2024 10:03
+Last updated at 02/17/2024 10:05
