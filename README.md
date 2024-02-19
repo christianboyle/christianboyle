@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEw19L1yshsZayye-shrLEw-t500x500.jpg">](https://soundcloud.com/cosmicbeats/need-you)
 
-**Artist**: ultravialit 
+**Artist**: COSMIC 
 
-**Track**: someday w/tjweaver (lileffort)
+**Track**: NEED YOU
 
-Last updated at 02/19/2024 07:44
+Last updated at 02/19/2024 07:45
