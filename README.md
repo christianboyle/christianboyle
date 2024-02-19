@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7LUTkeUmBKXkBzc-3BdkLw-t500x500.jpg">](https://soundcloud.com/ruffhouse/rec013)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
 
-**Artist**: RUFFHOUSE 
+**Artist**: ultravialit 
 
-**Track**: VEGA FEB 2024
+**Track**: someday w/tjweaver (lileffort)
 
-Last updated at 02/19/2024 15:09
+Last updated at 02/19/2024 16:47
