@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEw19L1yshsZayye-shrLEw-t500x500.jpg">](https://soundcloud.com/cosmicbeats/need-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0NOi4ntmi9GX0Ryz-RmTwyg-t500x500.jpg">](https://soundcloud.com/itscloverdale/cloverdale-believe-in-the-music-free-download)
 
-**Artist**: COSMIC 
+**Artist**: Cloverdale 
 
-**Track**: NEED YOU
+**Track**: Cloverdale - Believe In The Music [FREE DL]
 
-Last updated at 02/19/2024 07:45
+Last updated at 02/19/2024 13:40
