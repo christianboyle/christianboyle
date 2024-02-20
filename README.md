@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8pNvxrSfYz6ZKs1g-BAPe4w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/soren-cold-hearted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zrauuQXAULhDF2WD-uyxagA-t500x500.jpg">](https://soundcloud.com/discoveryproject/phocust-halo-beam)
 
-**Artist**: Dirty Workz 
+**Artist**: Discovery Project 
 
-**Track**: SOREN - COLD HEARTED
+**Track**: Phocust - Halo Beam
 
-Last updated at 02/20/2024 08:27
+Last updated at 02/20/2024 08:28
