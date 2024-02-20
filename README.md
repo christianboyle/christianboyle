@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEtvnYqchtxHUrki-gGVPLg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/stop-for-a-moment?in=saxurn/sets/tmp/)
 
-**Artist**: Wraz. 
+**Artist**: ONLYTRANCE 
 
-**Track**: Wraz & Nautical Divine - Womp
+**Track**: [PREMIERE] Sonny Smiles - Stop For A Moment (feat. happysadgirl)
 
-Last updated at 02/20/2024 09:08
+Last updated at 02/20/2024 09:09
