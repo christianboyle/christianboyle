@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPxETMlxkmeMxPR1-yLKvQQ-t500x500.jpg">](https://soundcloud.com/bloomedm/wxvynxte-reverie-lofi-pet-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEtvnYqchtxHUrki-gGVPLg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/stop-for-a-moment)
 
-**Artist**: Lofi Pet Records 
+**Artist**: ONLYTRANCE 
 
-**Track**: WxvyNxte - Reverie [Lofi Pet Records]
+**Track**: [PREMIERE] Sonny Smiles - Stop For A Moment (feat. happysadgirl)
 
-Last updated at 02/20/2024 08:31
+Last updated at 02/20/2024 08:32
