@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWiA88McZNyASZ7d-DNa57Q-t500x500.jpg">](https://soundcloud.com/teddycream/how-to-save-a-life-hypertechno-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsh6j0AWz9YEgyaO-D5SznQ-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-boys-noize-fine-day-anthem-synova-flip?in=saxurn/sets/tmp/)
 
-**Artist**: Teddy Cream 
+**Artist**: Synova 
 
-**Track**: How To Save A Life (Hypertechno Edit) **FREE DOWNLOAD
+**Track**: Skrillex & Boys Noize - Fine Day Anthem (Synova Flip)
 
-Last updated at 02/20/2024 09:14
+Last updated at 02/20/2024 09:16
