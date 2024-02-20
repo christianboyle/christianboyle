@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opL4alGlN3dgbCVx-lnenCg-t500x500.png">](https://soundcloud.com/satoshijpn/starships-satoshi-2024-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyK99VN3Z2RPRuMf-vrl5DA-t500x500.jpg">](https://soundcloud.com/letslinkmusic/link-hyper?in=saxurn/sets/tmp/)
 
-**Artist**: SATOSHI 
+**Artist**: LINK 
 
-**Track**: Nicki Minaj - Starships (SATOSHI 2024 Remix)
+**Track**: LINK - HYPER
 
-Last updated at 02/20/2024 09:23
+Last updated at 02/20/2024 09:26
