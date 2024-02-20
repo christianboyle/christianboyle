@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caUzw1h5g9LlmAJK-SxQmzg-t500x500.jpg">](https://soundcloud.com/slangdogs/danger?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you?in=saxurn/sets/tmp/)
 
-**Artist**: Slang Dogs 
+**Artist**: Rave Alert 
 
-**Track**: Danger
+**Track**: [PREMIERE] Aksys - Wanna See You
 
-Last updated at 02/20/2024 09:33
+Last updated at 02/20/2024 09:37
