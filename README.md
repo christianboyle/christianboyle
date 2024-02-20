@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IadewrGTVJVsm2xP-Vfro7Q-t500x500.jpg">](https://soundcloud.com/joelcorry/desire-radio-010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPxETMlxkmeMxPR1-yLKvQQ-t500x500.jpg">](https://soundcloud.com/bloomedm/wxvynxte-reverie-lofi-pet-records)
 
-**Artist**: Joel Corry 
+**Artist**: Lofi Pet Records 
 
-**Track**: DESIRE RADIO #010
+**Track**: WxvyNxte - Reverie [Lofi Pet Records]
 
-Last updated at 02/20/2024 08:30
+Last updated at 02/20/2024 08:31
