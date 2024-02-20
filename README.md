@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iz3N4UzKHH6mDULu-l0Ivew-t500x500.jpg">](https://soundcloud.com/barongfamily/only-gain-alltika-thorns?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort?in=saxurn/sets/tmp2/)
 
-**Artist**: Barong Family 
+**Artist**: ultravialit 
 
-**Track**: ONLY GAIN & Alltika - Thorns
+**Track**: someday w/tjweaver (lileffort)
 
-Last updated at 02/20/2024 09:41
+Last updated at 02/20/2024 09:44
