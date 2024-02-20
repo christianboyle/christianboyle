@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zrauuQXAULhDF2WD-uyxagA-t500x500.jpg">](https://soundcloud.com/discoveryproject/phocust-halo-beam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viYUHysuxkHww8dl-2ZUi5Q-t500x500.jpg">](https://soundcloud.com/mrjennings/mr-jennings-dune-rattler-sc-master)
 
-**Artist**: Discovery Project 
+**Artist**: Mr Jennings 
 
-**Track**: Phocust - Halo Beam
+**Track**: DUNE RATTLER
 
-Last updated at 02/20/2024 08:28
+Last updated at 02/20/2024 08:29
