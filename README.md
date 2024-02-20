@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=saxurn/sets/tmp/)
 
-**Artist**: ultravialit 
+**Artist**: Wraz. 
 
-**Track**: someday w/tjweaver (lileffort)
+**Track**: Wraz & Nautical Divine - Womp
 
-Last updated at 02/20/2024 09:07
+Last updated at 02/20/2024 09:08
