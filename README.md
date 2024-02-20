@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsh6j0AWz9YEgyaO-D5SznQ-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-boys-noize-fine-day-anthem-synova-flip?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoI3yqA4ucvEZ34D-vEJgOg-t500x500.jpg">](https://soundcloud.com/chromebodies/daysgoby?in=saxurn/sets/tmp/)
 
-**Artist**: Synova 
+**Artist**: CHROMEBODIES 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (Synova Flip)
+**Track**: DIRTY VEGAS - DAYS GO BY (CHROMEBODIED)
 
-Last updated at 02/20/2024 09:16
+Last updated at 02/20/2024 09:19
