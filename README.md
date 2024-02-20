@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H949vR9R0O3H8Gh3-R42NjA-t500x500.jpg">](https://soundcloud.com/da-bow/in-ha-mood-dabow-flip)
 
-**Artist**: ultravialit 
+**Artist**: Dabow 
 
-**Track**: someday w/tjweaver (lileffort)
+**Track**: IN HA MOOD (Dabow Flip)
 
-Last updated at 02/20/2024 08:49
+Last updated at 02/20/2024 08:52
