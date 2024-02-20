@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEtvnYqchtxHUrki-gGVPLg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/stop-for-a-moment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
 
-**Artist**: ONLYTRANCE 
+**Artist**: ultravialit 
 
-**Track**: [PREMIERE] Sonny Smiles - Stop For A Moment (feat. happysadgirl)
+**Track**: someday w/tjweaver (lileffort)
 
-Last updated at 02/20/2024 08:32
+Last updated at 02/20/2024 08:37
