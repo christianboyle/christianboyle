@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJivx5sMZzQiE4GM-jpLqzA-t500x500.jpg">](https://soundcloud.com/sonance_events/sonance-bad-decisions-mix-series-033-paul-z)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlD86DfEjm8702td-crDkYA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jurek-przezdziecki-centre-of-attention-ido023)
 
-**Artist**: Sonance 
+**Artist**: HATE 
 
-**Track**: Sonance Bad Decisions Mix Series 033 - Paul Z
+**Track**: Premiere: Jurek Przezdziecki - Centre Of Attention [IDO023]
 
-Last updated at 02/21/2024 08:21
+Last updated at 02/21/2024 08:22
