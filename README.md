@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-opL4alGlN3dgbCVx-lnenCg-t500x500.png">](https://soundcloud.com/satoshijpn/starships-satoshi-2024-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HQx27Xp4CzawDB4h-VMTeuQ-t500x500.jpg">](https://soundcloud.com/themoonlotus/fk-a-wedding-ring-i-bought-a-lotus-2)
 
-**Artist**: SATOSHI 
+**Artist**: Moon Lotus 
 
-**Track**: Nicki Minaj - Starships (SATOSHI 2024 Remix)
+**Track**: fk a wedding ring i bought a lotus
 
-Last updated at 02/20/2024 14:26
+Last updated at 02/21/2024 08:18
