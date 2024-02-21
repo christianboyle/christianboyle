@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NyfVdvJyPMkvdEu9-FpSYjw-t500x500.jpg">](https://soundcloud.com/thefinesttechno/premiere-chane-bass-bass-bass-jff5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJivx5sMZzQiE4GM-jpLqzA-t500x500.jpg">](https://soundcloud.com/sonance_events/sonance-bad-decisions-mix-series-033-paul-z)
 
-**Artist**: The Finest Techno 
+**Artist**: Sonance 
 
-**Track**: Premiere: Chané - Bass Bass Bass [JFF5]
+**Track**: Sonance Bad Decisions Mix Series 033 - Paul Z
 
-Last updated at 02/21/2024 08:19
+Last updated at 02/21/2024 08:21
