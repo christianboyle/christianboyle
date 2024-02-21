@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ur6QLlkCKQ8P2KxL-yqDhUA-t500x500.jpg">](https://soundcloud.com/crescentxx/why-even-live-pt-1-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caUzw1h5g9LlmAJK-SxQmzg-t500x500.jpg">](https://soundcloud.com/slangdogs/danger)
 
-**Artist**: crescent 
+**Artist**: Slang Dogs 
 
-**Track**: why even live pt. 1 & 2
+**Track**: Danger
 
-Last updated at 02/21/2024 16:43
+Last updated at 02/21/2024 16:46
