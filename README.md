@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCGNPWBYO6xzJVC8-Y2JF2g-t500x500.jpg">](https://soundcloud.com/tomfrane/tiny-fractures?in=saxurn/sets/upside-frown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mljcQkE26Z39TPaR-7VwxDA-t500x500.jpg">](https://soundcloud.com/darbysounds/worldsawayrmx?in=saxurn/sets/upside-frown)
 
-**Artist**: Tom Frane 
+**Artist**: Darby 
 
-**Track**: Tom Frane, RJ Pasin - Tiny Fractures
+**Track**: Dabin feat. Trella - Worlds Away (Darby Remix)
 
-Last updated at 02/21/2024 16:08
+Last updated at 02/21/2024 16:17
