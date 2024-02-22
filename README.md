@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUHGFOdJrmy0xHyS-iiWd5g-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-dorian-parano-get-hi-finder-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gg6RhvmjkTfn03OE-KZdfsw-t500x500.jpg">](https://soundcloud.com/rossykate/linkin-park-numb-rossy-remix)
 
-**Artist**: Rave Alert 
+**Artist**: ROSSY 
 
-**Track**: [PREMIERE] Dorian Parano - Get Hi (Finder Records)
+**Track**: Linkin Park - Numb (ROSSY Remix)
 
-Last updated at 02/22/2024 13:43
+Last updated at 02/22/2024 13:45
