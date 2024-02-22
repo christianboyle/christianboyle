@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCWZ1wHj1QfdOiGS-gBQ0bw-t500x500.jpg">](https://soundcloud.com/sinensis-ute/omformer-threshold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Qt7ZxlEUei2xqbh-wEmE6Q-t500x500.jpg">](https://soundcloud.com/all172things/lovetheend-bioresonance-premiere)
 
-**Artist**: Sinensis 
+**Artist**: All172Things 
 
-**Track**: Omformer - Threshold
+**Track**: LoveTheEND - BioResonance [Premiere]
 
-Last updated at 02/21/2024 16:58
+Last updated at 02/22/2024 06:18
