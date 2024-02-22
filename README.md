@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Qt7ZxlEUei2xqbh-wEmE6Q-t500x500.jpg">](https://soundcloud.com/all172things/lovetheend-bioresonance-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAIiQhyVfjQwKzcG-UFxMUA-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-mrated-tipsy)
 
-**Artist**: All172Things 
+**Artist**: BLAIZE [HIGH SOCK SOCIETY] 
 
-**Track**: LoveTheEND - BioResonance [Premiere]
+**Track**: Blaize x M-Rated - Tipsy
 
-Last updated at 02/22/2024 06:18
+Last updated at 02/22/2024 06:31
