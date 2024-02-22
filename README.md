@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOJPHhOxAmleSZym-MHZPDw-t500x500.jpg">](https://soundcloud.com/ftureable/ftureable-aix7-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Tq4M2puzXzUR57P-ZOrFKQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/in-the-end-sc)
 
-**Artist**: Ftureable 
+**Artist**: NAEMS 
 
-**Track**: Ftureable - AIX7
+**Track**: IN THE END [NAEMS REMIX]
 
-Last updated at 02/22/2024 11:31
+Last updated at 02/22/2024 11:34
