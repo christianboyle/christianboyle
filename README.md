@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAIiQhyVfjQwKzcG-UFxMUA-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-mrated-tipsy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGaJGaLBf2bBBz25-zrrYLQ-t500x500.jpg">](https://soundcloud.com/besthouseremixes/dua-lipa-sean-paul-no-lie-lebedeff-remix-sun-shi-radio-mix)
 
-**Artist**: BLAIZE [HIGH SOCK SOCIETY] 
+**Artist**: Best House Remixes 
 
-**Track**: Blaize x M-Rated - Tipsy
+**Track**: Dua Lipa & Sean Paul - No Lie (Lebedeff Remix) [SUN SHI Radio Mix]
 
-Last updated at 02/22/2024 06:31
+Last updated at 02/22/2024 06:33
