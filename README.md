@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAUk3W0Zw45SBg38-GMQOFw-t500x500.jpg">](https://soundcloud.com/robertcurtisofficial/public-domain-operation-blade-robert-curtis-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U33yytDzPu9KXzKx-AnGaIA-t500x500.jpg">](https://soundcloud.com/angelcannonmusic/techno-skrillex-mega-edit-2024)
 
-**Artist**: Robert Curtis//Primus 
+**Artist**: ANGEL CANNON 
 
-**Track**: Public Domain - Operation Blade (Robert Curtis Remix)
+**Track**: TECHNO SKRILLEX MEGA EDIT 2024
 
-Last updated at 02/22/2024 06:51
+Last updated at 02/22/2024 06:56
