@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H949vR9R0O3H8Gh3-R42NjA-t500x500.jpg">](https://soundcloud.com/da-bow/in-ha-mood-dabow-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAUk3W0Zw45SBg38-GMQOFw-t500x500.jpg">](https://soundcloud.com/robertcurtisofficial/public-domain-operation-blade-robert-curtis-remix-1)
 
-**Artist**: Dabow 
+**Artist**: Robert Curtis//Primus 
 
-**Track**: IN HA MOOD (Dabow Flip)
+**Track**: Public Domain - Operation Blade (Robert Curtis Remix)
 
-Last updated at 02/22/2024 07:18
+Last updated at 02/22/2024 07:19
