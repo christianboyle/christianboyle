@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mljcQkE26Z39TPaR-7VwxDA-t500x500.jpg">](https://soundcloud.com/darbysounds/worldsawayrmx?in=saxurn/sets/upside-frown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scBQ69TGlG6AlJzB-9ZZPfA-t500x500.jpg">](https://soundcloud.com/jukaamusic/in-the-city-bootleg?in=saxurn/sets/upside-frown)
 
-**Artist**: Darby 
+**Artist**: Jukaa 
 
-**Track**: Dabin feat. Trella - Worlds Away (Darby Remix)
+**Track**: Charli XCX & Sam Smith - In The City (Jukaa Bootleg)
 
-Last updated at 02/22/2024 11:09
+Last updated at 02/22/2024 11:12
