@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C9P4QvmzZbIxyUQ1-yRzCwg-t500x500.jpg">](https://soundcloud.com/yatixofficial/2024-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9PNSX4Rg54u6qre-FXs1nw-t500x500.jpg">](https://soundcloud.com/brunchbeatz/pre-heaters-vol-3)
 
-**Artist**: YATIX 
+**Artist**: BRUNCHBEATZ 
 
-**Track**: 2024 SHOWCASE
+**Track**: Pre Heaters Vol. 1
 
-Last updated at 02/22/2024 13:38
+Last updated at 02/22/2024 13:39
