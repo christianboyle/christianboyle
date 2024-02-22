@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U33yytDzPu9KXzKx-AnGaIA-t500x500.jpg">](https://soundcloud.com/angelcannonmusic/techno-skrillex-mega-edit-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEtvnYqchtxHUrki-gGVPLg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/stop-for-a-moment)
 
-**Artist**: ANGEL CANNON 
+**Artist**: ONLYTRANCE 
 
-**Track**: TECHNO SKRILLEX MEGA EDIT 2024
+**Track**: [PREMIERE] Sonny Smiles - Stop For A Moment (feat. happysadgirl)
 
-Last updated at 02/22/2024 06:56
+Last updated at 02/22/2024 07:01
