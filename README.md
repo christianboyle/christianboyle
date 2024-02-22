@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mljcQkE26Z39TPaR-7VwxDA-t500x500.jpg">](https://soundcloud.com/darbysounds/worldsawayrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOJPHhOxAmleSZym-MHZPDw-t500x500.jpg">](https://soundcloud.com/ftureable/ftureable-aix7-3)
 
-**Artist**: Darby 
+**Artist**: Ftureable 
 
-**Track**: Dabin feat. Trella - Worlds Away (Darby Remix)
+**Track**: Ftureable - AIX7
 
-Last updated at 02/22/2024 11:28
+Last updated at 02/22/2024 11:31
