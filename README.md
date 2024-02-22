@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fs8XixfvmBMRER8y-AT3LJw-t500x500.jpg">](https://soundcloud.com/chris_aus_official/beyond-us-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAUk3W0Zw45SBg38-GMQOFw-t500x500.jpg">](https://soundcloud.com/robertcurtisofficial/public-domain-operation-blade-robert-curtis-remix-1)
 
-**Artist**: CHRIS A 
+**Artist**: Robert Curtis//Primus 
 
-**Track**: Adriatique & Eynka - Beyond Us (CHRIS A Edit) [FREE DOWNLOAD]
+**Track**: Public Domain - Operation Blade (Robert Curtis Remix)
 
-Last updated at 02/22/2024 06:46
+Last updated at 02/22/2024 06:51
