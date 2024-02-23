@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAGukO9BVQ5Ncjsq-gHrvVw-t500x500.jpg">](https://soundcloud.com/brvmesmusic/brvmes-on-my-block)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1jiwvEi2ttHp5Qp-WcYDxw-t500x500.jpg">](https://soundcloud.com/zeplinn/zeplinn-rolemodels)
 
-**Artist**: BRVMES 
+**Artist**: Zeplinn 
 
-**Track**: BRVMES - ON MY BLOCK
+**Track**: Rolemodels
 
-Last updated at 02/23/2024 08:05
+Last updated at 02/23/2024 08:07
