@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4zyp1jZqeSWytOo-ptxUNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/synthsoldier-sensory-overload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1vVyhVqkTnVh6ozT-4d496A-t500x500.jpg">](https://soundcloud.com/two-friends/thewayitis)
 
-**Artist**: Dirty Workz 
+**Artist**: Two Friends 
 
-**Track**: Synthsoldier - Sensory Overload
+**Track**: Cheat Codes & Two Friends - The Way It Is
 
-Last updated at 02/23/2024 11:34
+Last updated at 02/23/2024 17:09
