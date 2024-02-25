@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rP7JcXQWlMdzXAXt-WaHk9g-t500x500.jpg">](https://soundcloud.com/drakeo-the-ruler/diddy-bop?in=drakeo-the-ruler/sets/a-cold-day-in-hell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4zyp1jZqeSWytOo-ptxUNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/synthsoldier-sensory-overload)
 
-**Artist**: DRAKEO The Ruler 
+**Artist**: Dirty Workz 
 
-**Track**: Diddy Bop
+**Track**: Synthsoldier - Sensory Overload
 
-Last updated at 02/25/2024 07:20
+Last updated at 02/25/2024 07:21
