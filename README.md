@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RDDrfyWHkYfH-0-t500x500.jpg">](https://soundcloud.com/oneseventy/gold-coast-ghost-town)
 
-**Artist**: ultravialit 
+**Artist**: OneSeventy 
 
-**Track**: someday w/tjweaver (lileffort)
+**Track**: Gold Coast - Ghost Town
 
-Last updated at 02/25/2024 07:32
+Last updated at 02/25/2024 07:35
