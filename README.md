@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4zyp1jZqeSWytOo-ptxUNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/synthsoldier-sensory-overload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
 
-**Artist**: Dirty Workz 
+**Artist**: ultravialit 
 
-**Track**: Synthsoldier - Sensory Overload
+**Track**: someday w/tjweaver (lileffort)
 
-Last updated at 02/25/2024 07:21
+Last updated at 02/25/2024 07:32
