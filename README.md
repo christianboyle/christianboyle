@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLliHRLBV3TWo9YI-Awn5TQ-t500x500.jpg">](https://soundcloud.com/dopaminewifi/waclava-bacterium-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RmbetBAS2qYzJzVF-xR7HzA-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/travis-scott-drake-meltdown-arya-remix)
 
-**Artist**: DopamineWIFI 
+**Artist**: Best Dubstep Remixes 
 
-**Track**: WACLAVA - BACTERIUM
+**Track**: Travis Scott & Drake - Meltdown (Arya Remix)
 
-Last updated at 02/23/2024 17:14
+Last updated at 02/25/2024 06:20
