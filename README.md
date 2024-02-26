@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjsDHhyGlqEaoV5e-6SoJvw-t500x500.jpg">](https://soundcloud.com/rohaanofficial/easy-for-them?in=saxurn/sets/thingy-thang/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Np3hULSrsRCst3b5-I3UH2A-t500x500.jpg">](https://soundcloud.com/silcrowmusic/take-me-down)
 
-**Artist**: Rohaan 
+**Artist**: Silcrow 
 
-**Track**: Easy For Them
+**Track**: TAKE ME DOWN
 
-Last updated at 02/26/2024 14:40
+Last updated at 02/26/2024 14:41
