@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YTfA0ENGQiFw-0-t500x500.jpg">](https://soundcloud.com/bixenter/sandstorm-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOz4ZVq0IuCq7GCR-S6HSUg-t500x500.jpg">](https://soundcloud.com/braincoat/braincoat-x-lyustra-b8tleg)
 
-**Artist**: Bixenter 
+**Artist**: braincoat 
 
-**Track**: Sandstorm 2
+**Track**: BRAINCOAT X LYUSTRA - B8TLEG
 
-Last updated at 02/26/2024 14:34
+Last updated at 02/26/2024 14:35
