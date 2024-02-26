@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jMqU7mXAhSdxFyE-6y3vmw-t500x500.jpg">](https://soundcloud.com/discolines/this-a-money-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27F3b4KCavS9BTtv-yOyfsw-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1)
 
-**Artist**: Disco Lines 
+**Artist**: Seven Lions 
 
-**Track**: shoreline mafia - bands (disco lines remix)
+**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
 
-Last updated at 02/26/2024 14:36
+Last updated at 02/26/2024 14:37
