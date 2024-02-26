@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RDDrfyWHkYfH-0-t500x500.jpg">](https://soundcloud.com/oneseventy/gold-coast-ghost-town)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyg1h4PyTDtyheiX-2ox9yg-t500x500.jpg">](https://soundcloud.com/electronyze-me/earl-the-kid-dezalg?in=electronyze-me/sets/earl-the-kid-xxx-ep)
 
-**Artist**: OneSeventy 
+**Artist**: Electronyze Me 
 
-**Track**: Gold Coast - Ghost Town
+**Track**: Earl The Kid - DEZALG
 
-Last updated at 02/25/2024 07:35
+Last updated at 02/26/2024 08:25
