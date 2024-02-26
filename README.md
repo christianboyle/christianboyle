@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Tq4M2puzXzUR57P-ZOrFKQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/in-the-end-sc?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27F3b4KCavS9BTtv-yOyfsw-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1?in=saxurn/sets/thingy-thang)
 
-**Artist**: NAEMS 
+**Artist**: Seven Lions 
 
-**Track**: IN THE END [NAEMS REMIX]
+**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
 
-Last updated at 02/26/2024 14:51
+Last updated at 02/26/2024 15:34
