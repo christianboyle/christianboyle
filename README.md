@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1nMbIykUxg9IuVz-jn36TQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-sopikskinner-ua-veres)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0mUvPymWkv8lyOy-5pD71Q-t500x500.jpg">](https://soundcloud.com/geckonl/nothing-everything)
 
-**Artist**: Rave Alert 
+**Artist**: Geck-o 
 
-**Track**: [PREMIERE] Sopik,Skinner (UA) - Veres
+**Track**: Geck-o @ Nothing & Everything (club set recording)
 
-Last updated at 02/26/2024 08:26
+Last updated at 02/26/2024 08:27
