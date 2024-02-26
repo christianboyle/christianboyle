@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZyO4aF2mmzW4hpi-pnJWUA-t500x500.jpg">](https://soundcloud.com/jstjr/jstjr4321)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4zyp1jZqeSWytOo-ptxUNw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/synthsoldier-sensory-overload?in=saxurn/sets/thingy-thang)
 
-**Artist**: JSTJR 
+**Artist**: Dirty Workz 
 
-**Track**: 4321
+**Track**: Synthsoldier - Sensory Overload
 
-Last updated at 02/26/2024 15:37
+Last updated at 02/26/2024 15:38
