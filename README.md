@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyg1h4PyTDtyheiX-2ox9yg-t500x500.jpg">](https://soundcloud.com/electronyze-me/earl-the-kid-dezalg?in=electronyze-me/sets/earl-the-kid-xxx-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1nMbIykUxg9IuVz-jn36TQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-sopikskinner-ua-veres)
 
-**Artist**: Electronyze Me 
+**Artist**: Rave Alert 
 
-**Track**: Earl The Kid - DEZALG
+**Track**: [PREMIERE] Sopik,Skinner (UA) - Veres
 
-Last updated at 02/26/2024 08:25
+Last updated at 02/26/2024 08:26
