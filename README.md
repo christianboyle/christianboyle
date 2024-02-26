@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-07Z6XrWowi3oGtRy-GbBLug-t500x500.jpg">](https://soundcloud.com/taylortorrencemusic/eli-brown-layton-giordani-offaiah-when-i-push-taylor-torrence-techrave-remix?in=saxurn/sets/thingy-thang/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QOaWKN0QHkdo-0-t500x500.jpg">](https://soundcloud.com/ramirez_187/stick-up?in=saxurn/sets/thingy-thang/)
 
-**Artist**: Taylor Torrence 
+**Artist**: RAMIREZ. 
 
-**Track**: Eli Brown, Layton Giordani, Offaiah - When I Push (Taylor Torrence TechRave Remix) [FREE DOWNLOAD]
+**Track**: STICK UP
 
-Last updated at 02/26/2024 14:31
+Last updated at 02/26/2024 14:32
