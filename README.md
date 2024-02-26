@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27F3b4KCavS9BTtv-yOyfsw-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZyO4aF2mmzW4hpi-pnJWUA-t500x500.jpg">](https://soundcloud.com/jstjr/jstjr4321)
 
-**Artist**: Seven Lions 
+**Artist**: JSTJR 
 
-**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
+**Track**: 4321
 
-Last updated at 02/26/2024 15:34
+Last updated at 02/26/2024 15:37
