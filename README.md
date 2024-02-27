@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RDDrfyWHkYfH-0-t500x500.jpg">](https://soundcloud.com/oneseventy/gold-coast-ghost-town?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Tq4M2puzXzUR57P-ZOrFKQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/in-the-end-sc?in=saxurn/sets/thingy-thang)
 
-**Artist**: OneSeventy 
+**Artist**: NAEMS 
 
-**Track**: Gold Coast - Ghost Town
+**Track**: IN THE END [NAEMS REMIX]
 
-Last updated at 02/27/2024 09:15
+Last updated at 02/27/2024 09:18
