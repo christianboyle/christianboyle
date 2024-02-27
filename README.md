@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-caUzw1h5g9LlmAJK-SxQmzg-t500x500.jpg">](https://soundcloud.com/slangdogs/danger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W8fe6K8baZP9UzSb-Jdz9Rw-t500x500.jpg">](https://soundcloud.com/deadlyft/maad-city-deadlyft-remix)
 
-**Artist**: Slang Dogs 
+**Artist**: DEADLYFT 
 
-**Track**: Danger
+**Track**: MAAD CITY (DEADLYFT REMIX)
 
-Last updated at 02/27/2024 06:57
+Last updated at 02/27/2024 07:01
