@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAUk3W0Zw45SBg38-GMQOFw-t500x500.jpg">](https://soundcloud.com/robertcurtisofficial/public-domain-operation-blade-robert-curtis-remix-1?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Tq4M2puzXzUR57P-ZOrFKQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/in-the-end-sc?in=saxurn/sets/thingy-thang)
 
-**Artist**: Robert Curtis//Primus 
+**Artist**: NAEMS 
 
-**Track**: Public Domain - Operation Blade (Robert Curtis Remix)
+**Track**: IN THE END [NAEMS REMIX]
 
-Last updated at 02/26/2024 15:51
+Last updated at 02/27/2024 05:51
