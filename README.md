@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZRpH5neVv9UulY7C-8ATqQA-t500x500.jpg">](https://soundcloud.com/redz42069/hell-raiser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naXECBEf1bFc7I3P-w8DGiQ-t500x500.jpg">](https://soundcloud.com/ultravialit/someday-wtjweaver-lileffort)
 
-**Artist**: Red Z 
+**Artist**: ultravialit 
 
-**Track**: Hell Raiser
+**Track**: someday w/tjweaver (lileffort)
 
-Last updated at 02/27/2024 06:51
+Last updated at 02/27/2024 06:52
