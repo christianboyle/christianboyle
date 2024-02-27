@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e2un5Vzll1nB4SNP-t5LR4g-t500x500.jpg">](https://soundcloud.com/plainsailingbelfast/gearmaster-sugarworld-holly-lester-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ffaAETBERsit-0-t500x500.jpg">](https://soundcloud.com/heklermusic/sold-my-soul-feat-b-rich)
 
-**Artist**: Plain Sailing 
+**Artist**: HEKLER 
 
-**Track**: Gearmaster - Sugarworld (Holly Lester Remix)
+**Track**: SOLD MY SOUL (feat. B.Rich)
 
-Last updated at 02/27/2024 08:48
+Last updated at 02/27/2024 08:49
