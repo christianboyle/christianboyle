@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0DnJvrlm1ymmgUDR-YGg4zw-t500x500.jpg">](https://soundcloud.com/sam-segan/innocenceremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjRlTAa0PUNr86QS-YbcEKg-t500x500.jpg">](https://soundcloud.com/djnarcisorsprod/ziu-ziu)
 
-**Artist**: Segan 
+**Artist**: Dj Narciso 
 
-**Track**: Nero - Innocence (Segan Remix)
+**Track**: ZIU ZIU
 
-Last updated at 02/27/2024 08:45
+Last updated at 02/27/2024 08:46
