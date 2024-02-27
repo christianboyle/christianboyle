@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXSud1GRASsGo4xf-wjZaUQ-t500x500.jpg">](https://soundcloud.com/interval-audio/ql1x-osh1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uu0zyTTXNkyb6Bwg-pEV1gQ-t500x500.jpg">](https://soundcloud.com/wakaan/hydraulix-feat-maksim-mc-anxious?in=wakaan/sets/hydraulix-nerves-ep)
 
-**Artist**: Interval Audio 
+**Artist**: Wakaan 
 
-**Track**: QL1X - OSH
+**Track**: Hydraulix feat. Maksim MC - ANXIOUS [Headbang Society Premiere]
 
-Last updated at 02/27/2024 08:54
+Last updated at 02/27/2024 08:57
