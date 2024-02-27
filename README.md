@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06YGuNECxy8un8WC-897CiA-t500x500.jpg">](https://soundcloud.com/deepofcl/hardstyle-flp?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27F3b4KCavS9BTtv-yOyfsw-t500x500.jpg">](https://soundcloud.com/seven-lions/seven-lions-andrew-bayer-fiora-places-i-belong-1?in=saxurn/sets/thingy-thang)
 
-**Artist**: Deep Promo 
+**Artist**: Seven Lions 
 
-**Track**: Hardstyle FLP
+**Track**: Seven Lions, Andrew Bayer & Fiora - Places I Belong
 
-Last updated at 02/27/2024 06:06
+Last updated at 02/27/2024 06:08
