@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ffaAETBERsit-0-t500x500.jpg">](https://soundcloud.com/heklermusic/sold-my-soul-feat-b-rich)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ufr2vcYFywCinEqK-KvvTgA-t500x500.jpg">](https://soundcloud.com/pausedpilot/primordial)
 
-**Artist**: HEKLER 
+**Artist**: Paused Pilot 
 
-**Track**: SOLD MY SOUL (feat. B.Rich)
+**Track**: Primordial
 
-Last updated at 02/27/2024 08:49
+Last updated at 02/27/2024 08:50
