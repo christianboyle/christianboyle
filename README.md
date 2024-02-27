@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjRlTAa0PUNr86QS-YbcEKg-t500x500.jpg">](https://soundcloud.com/djnarcisorsprod/ziu-ziu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TnYyqX8ztY0Sz5Qm-wErA1g-t500x500.jpg">](https://soundcloud.com/bomaus/bom-free)
 
-**Artist**: Dj Narciso 
+**Artist**: B.O.M 
 
-**Track**: ZIU ZIU
+**Track**: B.O.M - FREE
 
-Last updated at 02/27/2024 08:46
+Last updated at 02/27/2024 08:47
