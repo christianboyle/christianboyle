@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-US3q09qN90zx327C-zhaVBQ-t500x500.jpg">](https://soundcloud.com/listorio/diplo-hugel-stay-high-feat-julia-church-listorio-remix-radio-editwav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mI08aUWbYFISFycr-L2PSXQ-t500x500.jpg">](https://soundcloud.com/kupydmusic/corona-vs-max-styler-westend-rhythm-machine-of-the-night)
 
-**Artist**: LISTORIO 
+**Artist**: Kupyd 
 
-**Track**: Diplo & HUGEL - Stay High Feat. Julia Church (LISTORIO Remix) Radio Edit
+**Track**: Corona vs Max Styler & Westend - Rhythm Machine of the Night (Kupyd Edit) *Hypeddit Top 100 #12
 
-Last updated at 02/28/2024 08:48
+Last updated at 02/28/2024 08:49
