@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZ2t0zqbcKrWw1kY-qV0jIw-t500x500.jpg">](https://soundcloud.com/wesh64/calvin-harris-ellie-goulding-miracle-wesh-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gqyrFn1xKDbOXw8x-l7sQBA-t500x500.jpg">](https://soundcloud.com/psychocybinrec/eerieanticsjungle?in=psychocybinpromotions/sets/hottest-tracks-of-2023)
 
-**Artist**: WESH 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Calvin Harris, Ellie Goulding - Miracle (WESH REMIX)
+**Track**: Eerie Antics - Jungle
 
-Last updated at 02/28/2024 08:39
+Last updated at 02/28/2024 08:40
