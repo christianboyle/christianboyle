@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0yQzZ0EkcvQ3QYsB-kFJhIw-t500x500.jpg">](https://soundcloud.com/codywongg/cody-wong-lost-in-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7TcrrnEPUouyyg3G-0a1tIA-t500x500.jpg">](https://soundcloud.com/spicyboismusic/sumn-dark)
 
-**Artist**: CODY WONG 
+**Artist**: spicy bois 
 
-**Track**: CODY WONG - LOST IN YOU (STACK CITY RECORDS)
+**Track**: Jeffufu - Sumn Dark
 
-Last updated at 02/28/2024 08:31
+Last updated at 02/28/2024 08:38
