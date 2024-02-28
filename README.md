@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ciISxcrbLi6v-0-t500x500.jpg">](https://soundcloud.com/blindsidedrec/dj-hammy-ire-come-on-back-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4KAcpywbga7gYHTn-c0m5qw-t500x500.jpg">](https://soundcloud.com/echoescollective/echoes-radio-episode-006-bagha)
 
-**Artist**: BLINDsided Records 
+**Artist**: Echoes Collective 
 
-**Track**: DJ Hammy (IRE) - Come On Back To Love
+**Track**: Echoes Radio Episode 006 - Bagha
 
-Last updated at 02/28/2024 08:06
+Last updated at 02/28/2024 08:07
