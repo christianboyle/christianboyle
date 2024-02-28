@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3r5brDzvCsQq8gnp-Ewgv1A-t500x500.jpg">](https://soundcloud.com/shadient/next-level)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FnLod9SLGq3YKLc1-RrUlnw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-boys-noize-pilo-pvssy-feat-deevious-mac-declos-remix-bnr236)
 
-**Artist**: Shadient 
+**Artist**: HATE 
 
-**Track**: NEXT LEVEL
+**Track**: Premiere: Boys Noize, Pilo - Pvssy feat. DEEVIOUS (Mac Declos Remix) [BNR236]
 
-Last updated at 02/28/2024 08:16
+Last updated at 02/28/2024 08:20
