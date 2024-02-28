@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFcTt9UcMN66go62-vy5v7w-t500x500.jpg">](https://soundcloud.com/sadyouth/travis-scott-no-bystander-sadyouth-bootleg-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HUgC8t9i2aOmzwQG-VpSiuw-t500x500.jpg">](https://soundcloud.com/quasmusiq/quasluv)
 
-**Artist**: SADYOUTH 
+**Artist**: Quas 
 
-**Track**: TRAVIS SCOTT - NO BYSTANDER (SADYOUTH BOOTLEG) [FREE DL]
+**Track**: What's Luv? (Quas Remix)
 
-Last updated at 02/28/2024 08:25
+Last updated at 02/28/2024 08:26
