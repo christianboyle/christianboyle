@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XWFoZjWP2PpBJzaC-9sv6rQ-t500x500.jpg">](https://soundcloud.com/hpts/kagamihara)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ezQoUM9kdEztARp-KlNbrQ-t500x500.jpg">](https://soundcloud.com/bvrnd/rihanna-x-bvrnout-where-have-you-been-x-falling-in-reverse-mashup)
 
-**Artist**: hitpoints 
+**Artist**: BVRN'D 
 
-**Track**: kagamihara (dthd)
+**Track**: Rihanna x BVRNOUT - Where Have You Been x Falling In Reverse (Mashup)
 
-Last updated at 02/28/2024 08:52
+Last updated at 02/28/2024 08:53
