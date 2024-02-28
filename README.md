@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvyzAhSYlTWORTm0-rtlipQ-t500x500.jpg">](https://soundcloud.com/mirroril2002/mirror-to-the-ocean-extended-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXlRAdyLLIkFiDAA-i7mrSw-t500x500.jpg">](https://soundcloud.com/codywongg/cody-wong-n13)
 
-**Artist**: MIRROR 
+**Artist**: CODY WONG 
 
-**Track**: MIRROR - To The Ocean (Extended Mix)
+**Track**: CODY WONG - N13
 
-Last updated at 02/28/2024 08:29
+Last updated at 02/28/2024 08:30
