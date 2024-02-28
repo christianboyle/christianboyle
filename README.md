@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U33yytDzPu9KXzKx-AnGaIA-t500x500.jpg">](https://soundcloud.com/angelcannonmusic/techno-skrillex-mega-edit-2024?in=saxurn/sets/thingy-thang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P7KV8b9RMGyKMzx9-dkXyhQ-t500x500.jpg">](https://soundcloud.com/itsmsft/fuck-2023)
 
-**Artist**: ANGEL CANNON 
+**Artist**: msft. 
 
-**Track**: TECHNO SKRILLEX MEGA EDIT 2024
+**Track**: FUCK 2023
 
-Last updated at 02/27/2024 09:52
+Last updated at 02/28/2024 07:16
