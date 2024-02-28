@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gOwtWBdQ1t1lxjQl-cIikOw-t500x500.png">](https://soundcloud.com/besthouseremixes/skrillex-wiwek-killa-moksi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQmoyK3zBE1RXBCL-tICS7g-t500x500.jpg">](https://soundcloud.com/scantraxx/bright-visions-i-got-this)
 
-**Artist**: Best House Remixes 
+**Artist**: Scantraxx 
 
-**Track**: Skrillex & Wiwek - Killa (Moksi Remix)
+**Track**: Bright Visions - I GOT THIS
 
-Last updated at 02/28/2024 08:46
+Last updated at 02/28/2024 08:47
