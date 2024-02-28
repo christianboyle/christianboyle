@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WfjtXue5nYZ4aRTJ-iOq6eA-t500x500.jpg">](https://soundcloud.com/afterlifeofc/oostil-juan-hansen-drown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXQoEKDRpQeeIq0b-mK8Fcw-t500x500.jpg">](https://soundcloud.com/codywongg/fred-again-jungle-cody-wong-rave-edit)
 
-**Artist**: Afterlife 
+**Artist**: CODY WONG 
 
-**Track**: Øostil & Juan Hansen - Drown (Massano Remix)
+**Track**: FRED AGAIN - JUNGLE (CODY WONG RAVE EDIT)
 
-Last updated at 02/28/2024 08:27
+Last updated at 02/28/2024 08:28
