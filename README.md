@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S2yyqXcnctXMH1j9-rnGC2w-t500x500.jpg">](https://soundcloud.com/meantyyy/wishlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyIrBVf6GYgIciad-KOiQzw-t500x500.jpg">](https://soundcloud.com/kupydmusic/pink-x-dubvision-can-you-feel-this-party-started-kupyd-edit)
 
-**Artist**: Meanty 
+**Artist**: Kupyd 
 
-**Track**: Wishlist (prod. rxi)
+**Track**: Pink x Dubvision - Can You Feel This Party Started (Kupyd Edit)
 
-Last updated at 02/28/2024 08:23
+Last updated at 02/28/2024 08:24
