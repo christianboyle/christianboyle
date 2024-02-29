@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0mUvPymWkv8lyOy-5pD71Q-t500x500.jpg">](https://soundcloud.com/geckonl/nothing-everything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you)
 
-**Artist**: Geck-o 
+**Artist**: S3RL 
 
-**Track**: Geck-o @ Nothing & Everything (club set recording)
+**Track**: Back To You - S3RL & Walras ft Regina
 
-Last updated at 02/28/2024 08:55
+Last updated at 02/28/2024 18:57
