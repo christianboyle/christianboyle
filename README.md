@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-112hqit0AIvKkRoq-gef2og-t500x500.jpg">](https://soundcloud.com/sectorninerecs/faulterz-talk?in=goldenlotusart/sets/l-tus-somnia-ep-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wgHCyRaUh70gRiYa-Fvlf7g-t500x500.jpg">](https://soundcloud.com/bimyomusic/winterfell?in=goldenlotusart/sets/l-tus-somnia-ep-19)
 
-**Artist**: SECTOR  9 
+**Artist**: bimyo. 
 
-**Track**: Faulterz - TALK
+**Track**: Winterfell
 
-Last updated at 02/29/2024 08:29
+Last updated at 02/29/2024 08:30
