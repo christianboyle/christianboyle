@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnRFkpQsYC98SpHD-hBf57A-t500x500.jpg">](https://soundcloud.com/dillon_hett/like-a-domdom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nByDXfng3xycEI6W-pMchBQ-t500x500.jpg">](https://soundcloud.com/subcarbon/eater-thaioh-isolation)
 
-**Artist**: Dillon Hett 
+**Artist**: SubCarbon Records 
 
-**Track**: LIKE A DOMINO
+**Track**: Eater & Thai.oh - Isolation
 
-Last updated at 02/29/2024 09:04
+Last updated at 02/29/2024 09:08
