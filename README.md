@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnRFkpQsYC98SpHD-hBf57A-t500x500.jpg">](https://soundcloud.com/dillon_hett/like-a-domdom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lSz8kUksJRazJ8Au-BATKoQ-t500x500.jpg">](https://soundcloud.com/spicyboismusic/bouncer)
 
-**Artist**: Dillon Hett 
+**Artist**: spicy bois 
 
-**Track**: LIKE A DOMINO
+**Track**: Volume Unit - Bouncer
 
-Last updated at 02/29/2024 08:46
+Last updated at 02/29/2024 08:47
