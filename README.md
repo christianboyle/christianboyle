@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cm7DzWbN0lfsqZRm-k0zyqQ-t500x500.jpg">](https://soundcloud.com/dropwizz/popstardnb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUL7CRhNgFjtqhtN-N1fZlg-t500x500.jpg">](https://soundcloud.com/ukf/sota-machete-amc-remix)
 
-**Artist**: DROPWIZZ 
+**Artist**: UKF 
 
-**Track**: DRAKE - POPSTAR (DROPWIZZ 'dnb' flip)
+**Track**: Sota - Machete (A.M.C Remix)
 
-Last updated at 02/29/2024 08:53
+Last updated at 02/29/2024 08:54
