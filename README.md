@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S5DCqWsaWDMho1Ny-mHx5eA-t500x500.png">](https://soundcloud.com/user-643553014/im-feeling-lucky-w-umru-b2b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EgR79aB3DHJnly2Y-IV8otg-t500x500.jpg">](https://soundcloud.com/phrva/leavemealone)
 
-**Artist**: NTS Latest 
+**Artist**: Phrva 
 
-**Track**: I'm Feeling Lucky w/ umru b2b .cutspace 280224
+**Track**: Fred again.. & Baby Keem - leavemealone (Phrva Flip)
 
-Last updated at 02/29/2024 08:35
+Last updated at 02/29/2024 08:36
