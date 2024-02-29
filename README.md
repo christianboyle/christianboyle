@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AnoUSeWHk0q41ynP-n4CaCA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/moonlightshadow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnRFkpQsYC98SpHD-hBf57A-t500x500.jpg">](https://soundcloud.com/dillon_hett/like-a-domdom)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Dillon Hett 
 
-**Track**: Groove Coverage - Moonlight Shadow (Ezra Hazard Remix)
+**Track**: LIKE A DOMINO
 
-Last updated at 02/29/2024 08:45
+Last updated at 02/29/2024 08:46
