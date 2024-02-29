@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUL7CRhNgFjtqhtN-N1fZlg-t500x500.jpg">](https://soundcloud.com/ukf/sota-machete-amc-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UAXvVsxB04Vaqycz-baujzQ-t500x500.jpg">](https://soundcloud.com/koisum/only-you-wardub-s5)
 
-**Artist**: UKF 
+**Artist**: koi sum 
 
-**Track**: Sota - Machete (A.M.C Remix)
+**Track**: only you [wardub s5]
 
-Last updated at 02/29/2024 08:54
+Last updated at 02/29/2024 08:55
