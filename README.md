@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wD6ScYxBk0T6Zz6-otawzg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hard-driver-anger-is-my-acid-wrath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0kBRZYcmt2YoQzfS-9zDe1A-t500x500.jpg">](https://soundcloud.com/sus1er/scan-pat-mahomes-prod-sus1er-1)
 
-**Artist**: Dirty Workz 
+**Artist**: SUS1ER 
 
-**Track**: Hard Driver - Anger Is My Acid (Wrath)
+**Track**: Scan - Pat mahomes (Prod. SUS1ER)
 
-Last updated at 02/29/2024 08:38
+Last updated at 02/29/2024 08:39
