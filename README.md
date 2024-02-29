@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oD5Oi19LSnQFHssA-7ptyZQ-t500x500.jpg">](https://soundcloud.com/artomik1/artomik-radio-metro-bounce-radio-290224)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cm7DzWbN0lfsqZRm-k0zyqQ-t500x500.jpg">](https://soundcloud.com/dropwizz/popstardnb)
 
-**Artist**: Artomik 
+**Artist**: DROPWIZZ 
 
-**Track**: Artomik : RADIO METRO - BOUNCE RADIO 29/02/24
+**Track**: DRAKE - POPSTAR (DROPWIZZ 'dnb' flip)
 
-Last updated at 02/29/2024 08:52
+Last updated at 02/29/2024 08:53
