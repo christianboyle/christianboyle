@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QnSLBuXN6xX45Gvz-IRJyDQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/butterfly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
 
-**Artist**: Justice Hardcore 
+**Artist**: Galantis 
 
-**Track**: SMiLE.dk - Butterfly (Smeets UK Hardcore Bootleg) ✅FREE DOWNLOAD✅
+**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
 
-Last updated at 03/01/2024 09:19
+Last updated at 03/01/2024 09:20
