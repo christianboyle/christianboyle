@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Ad9xBy3ATWzUsAA-lbsDgA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-tara-louise-we-are-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEEnoyeZgOwTe8Kl-ATv4Nw-t500x500.jpg">](https://soundcloud.com/rave_alert/tars-neon-soul-extended-mix)
 
-**Artist**: Dirty Workz 
+**Artist**: Rave Alert 
 
-**Track**: Crystal Lake ft. Tara Louise - We Are One
+**Track**: [PREMIERE] TARS - Neon Soul (Extended Mix) NEOTRANCE
 
-Last updated at 03/01/2024 09:07
+Last updated at 03/01/2024 09:08
