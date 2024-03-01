@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jUyE0SUkByVRXH8U-NWgLLg-t500x500.jpg">](https://soundcloud.com/hom1nid/heartbeats)
 
-**Artist**: Galantis 
+**Artist**: HOMINID 
 
-**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
+**Track**: HOMINID + CØV3R1st & Margad - Heartbeats / FREE DOWNLOAD
 
-Last updated at 03/01/2024 14:30
+Last updated at 03/01/2024 14:33
