@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uMkX674gKXdynPn-eV89RQ-t500x500.jpg">](https://soundcloud.com/grexbeatz/fallout)
 
-**Artist**: Galantis 
+**Artist**: G-REX 
 
-**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
+**Track**: Fallout
 
-Last updated at 03/01/2024 09:20
+Last updated at 03/01/2024 09:21
