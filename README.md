@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uMkX674gKXdynPn-eV89RQ-t500x500.jpg">](https://soundcloud.com/grexbeatz/fallout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aoJ6oNZKzVSIvbHf-dfZYoA-t500x500.jpg">](https://soundcloud.com/sebseb122/10203040damn?in=saxurn/sets/toys-r-us-type-smell)
 
-**Artist**: G-REX 
+**Artist**: SEBii💫 
 
-**Track**: Fallout
+**Track**: 10<20<30<40 [p. vvspipes + kimj]
 
-Last updated at 03/01/2024 09:21
+Last updated at 03/01/2024 09:22
