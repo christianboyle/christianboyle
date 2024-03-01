@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIjDWWz1Y77K4Wyp-HP8dzA-t500x500.jpg">](https://soundcloud.com/yav-yav-521075203/scloud-p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jUyE0SUkByVRXH8U-NWgLLg-t500x500.jpg">](https://soundcloud.com/hom1nid/heartbeats)
 
-**Artist**: Alx Yav 
+**Artist**: HOMINID 
 
-**Track**: Travis Scott - I KNOW (Alx Yav remix)
+**Track**: HOMINID + CØV3R1st & Margad - Heartbeats / FREE DOWNLOAD
 
-Last updated at 03/01/2024 09:16
+Last updated at 03/01/2024 09:17
