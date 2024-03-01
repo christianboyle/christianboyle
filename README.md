@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUL7CRhNgFjtqhtN-N1fZlg-t500x500.jpg">](https://soundcloud.com/ukf/sota-machete-amc-remix?in=saxurn/sets/toys-r-us-type-smell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOJyn33FN00lhXWK-xsGnFg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-when-im-gone-with-micah-martin?in=saxurn/sets/toys-r-us-type-smell)
 
-**Artist**: UKF 
+**Artist**: Future Generation 
 
-**Track**: Sota - Machete (A.M.C Remix)
+**Track**: Arcando - When I'm Gone (with Micah Martin)
 
-Last updated at 03/01/2024 09:52
+Last updated at 03/01/2024 09:55
