@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVGGizu0JxDU879O-hGedng-t500x500.jpg">](https://soundcloud.com/acyanmusic/dontwait-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jUyE0SUkByVRXH8U-NWgLLg-t500x500.jpg">](https://soundcloud.com/hom1nid/heartbeats)
 
-**Artist**: Acyan 
+**Artist**: HOMINID 
 
-**Track**: msft. - dontwaiT (Acyan Flip)
+**Track**: HOMINID + CØV3R1st & Margad - Heartbeats / FREE DOWNLOAD
 
-Last updated at 03/01/2024 14:49
+Last updated at 03/01/2024 14:53
