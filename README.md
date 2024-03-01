@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBLzWIqh7Qwk8gzm-bn9e7g-t500x500.jpg">](https://soundcloud.com/s3rl/the-few-the-many-s3rl?in=saxurn/sets/toys-r-us-type-smell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
 
-**Artist**: S3RL 
+**Artist**: Galantis 
 
-**Track**: The Few & The Many - S3RL
+**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
 
-Last updated at 03/01/2024 10:31
+Last updated at 03/01/2024 14:30
