@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qf19nmovrwLkuUgY-siTvKA-t500x500.jpg">](https://soundcloud.com/boyjugo/nandai-feat-shima)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Ad9xBy3ATWzUsAA-lbsDgA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-tara-louise-we-are-one)
 
-**Artist**: Boy Jugo 
+**Artist**: Dirty Workz 
 
-**Track**: なんだいnandai feat SHIMA
+**Track**: Crystal Lake ft. Tara Louise - We Are One
 
-Last updated at 03/01/2024 09:06
+Last updated at 03/01/2024 09:07
