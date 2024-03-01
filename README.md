@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnRFkpQsYC98SpHD-hBf57A-t500x500.jpg">](https://soundcloud.com/dillon_hett/like-a-domdom?in=saxurn/sets/toys-r-us-type-smell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u6sbttxi50cyQEUH-U2LPCQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/polishtechnology)
 
-**Artist**: Dillon Hett 
+**Artist**: POLISH TECHNO.LOGY/PTL 
 
-**Track**: LIKE A DOMINO
+**Track**: Polishtechnology
 
-Last updated at 02/29/2024 16:30
+Last updated at 03/01/2024 09:04
