@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zw2V8K6rH0k8BhJi-CuTgTg-t500x500.jpg">](https://soundcloud.com/officialtrapparty/bronzy-dewar-knock-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hfChsyYN1czpTGdl-I1E3JQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-psyk-orbe-tunnel-diode-mote069)
 
-**Artist**: Trap Party Records 
+**Artist**: HATE 
 
-**Track**: BRONZY, DEWAR - Knock Out
+**Track**: Premiere: Psyk & Orbe - Tunnel Diode [MOTE069]
 
-Last updated at 03/02/2024 10:07
+Last updated at 03/02/2024 10:08
