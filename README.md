@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ay3IuKx1UBfECvFn-ANE6Bg-t500x500.jpg">](https://soundcloud.com/oddennn/choices-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCUhOgpFmThDMTLB-komZ7g-t500x500.jpg">](https://soundcloud.com/future-bassnet/royalcapital)
 
-**Artist**: oddën 
+**Artist**: Future Bass Records 
 
-**Track**: Choices
+**Track**: 361ue - Royal Capital [Future Bass Release]
 
-Last updated at 03/02/2024 10:20
+Last updated at 03/02/2024 10:22
