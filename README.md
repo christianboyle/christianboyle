@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dX5iNzEKt9JpriXq-AIZjdw-t500x500.png">](https://soundcloud.com/hate_music/01-gary-holldman-tribe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TMt4QV3S0I90hIRh-aKFuVw-t500x500.jpg">](https://soundcloud.com/wubaholics/ugly-lungs-digits)
 
-**Artist**: HATE 
+**Artist**: Wubaholics 
 
-**Track**: Premiere: Gary Holldman - Tribe [KAN004]
+**Track**: UGLY LUNGS - DIGITS
 
-Last updated at 03/01/2024 14:55
+Last updated at 03/02/2024 09:15
