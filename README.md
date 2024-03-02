@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z90GlLVGC6y1ggyH-IiQ3fw-t500x500.jpg">](https://soundcloud.com/basscvlt/wud2me?in=side_fx/sets/porter-robinson-polygon-dust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5I1KOmBqsefya0Fz-NcXqXw-t500x500.jpg">](https://soundcloud.com/insteadof7/instead-of-7-prada-1?in=side_fx/sets/porter-robinson-polygon-dust)
 
-**Artist**: BASSCVLT 
+**Artist**: Instead of 7 
 
-**Track**: Tuna Melt - What U Do 2 Me (ft. Thug Shells)
+**Track**: Instead Of 7 - Prada (FREE DL)
 
-Last updated at 03/02/2024 09:51
+Last updated at 03/02/2024 09:56
