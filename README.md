@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RnyoN3kvoTp5gkZe-Kb5UCw-t500x500.jpg">](https://soundcloud.com/h3lpl3ss/i-n-s-i-d-e-w-shrxpnel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t7qU9UTqUN7FgT2d-nQjs8A-t500x500.jpg">](https://soundcloud.com/meddus/dreams4evr)
 
-**Artist**: Helpless 
+**Artist**: Meddus 
 
-**Track**: I N S I D E w/ shrxpnel
+**Track**: Dreams4evr
 
-Last updated at 03/02/2024 09:20
+Last updated at 03/02/2024 09:23
