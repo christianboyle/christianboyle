@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EtPj1gjgasdQlQZC-5GQfzw-t500x500.jpg">](https://soundcloud.com/jiantmusic/doumo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NImE3XkBAm8izsjV-Pg39ng-t500x500.jpg">](https://soundcloud.com/phuturecollective/fidus-achates-x-dink-the-poof-irritation)
 
-**Artist**: jiant 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: doumo
+**Track**: Fidus Achates x Dink the Poof -  Irritation
 
-Last updated at 03/02/2024 09:28
+Last updated at 03/02/2024 09:33
