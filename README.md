@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtOOyHoXDiHYiX2D-kXRhMA-t500x500.jpg">](https://soundcloud.com/fruitydelay2/backing-away-from-everything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1P08aNiBT9B-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-hannah-boleyn-little?in=wearegalantis/sets/galantis-x-hannah-boleyn-1)
 
-**Artist**: gunk 
+**Artist**: Galantis 
 
-**Track**: backing away from everything
+**Track**: Galantis, Hannah Boleyn - Little Bit Yours
 
-Last updated at 03/02/2024 10:11
+Last updated at 03/02/2024 10:12
