@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NImE3XkBAm8izsjV-Pg39ng-t500x500.jpg">](https://soundcloud.com/phuturecollective/fidus-achates-x-dink-the-poof-irritation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Nym09a57pe7MIRs-d2iNXQ-t500x500.jpg">](https://soundcloud.com/prime-nightcult/zander-taylor-drummer)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: PRIME 
 
-**Track**: Fidus Achates x Dink the Poof -  Irritation
+**Track**: ZANDER + TAYLOR. - Drummer
 
-Last updated at 03/02/2024 09:33
+Last updated at 03/02/2024 09:37
