@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9I200JszAyLnGAH-qQbhlg-t500x500.jpg">](https://soundcloud.com/eastghost/burning-doghouse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aWpn8mkz7htVhVz-pyWFVA-t500x500.jpg">](https://soundcloud.com/snapbackmusik/mia-paper-planes-snapback-remix)
 
-**Artist**: Eastghost 
+**Artist**: SnapBack 
 
-**Track**: Burning Doghouse
+**Track**: M.I.A PAPER PLANES SNAPBACK REMIX
 
-Last updated at 03/03/2024 14:20
+Last updated at 03/03/2024 14:28
