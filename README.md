@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzB8eNGRAxigDFbf-WMOR8A-t500x500.jpg">](https://soundcloud.com/upscale-recordings/cube)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhzVG1FaQOyUexQR-yovfJA-t500x500.jpg">](https://soundcloud.com/fabianmazursecretstuff/skrillex-scary-monsters-nice-sprites-fabian-mazur-remix)
 
-**Artist**: UPSCALE 
+**Artist**: Fabian Mazur Secret Stuff 
 
-**Track**: COPYCATT, Frequent & Hudson Lee - CUBE
+**Track**: Skrillex - Scary Monsters & Nice Sprites (Fabian Mazur Remix)
 
-Last updated at 03/03/2024 09:54
+Last updated at 03/03/2024 09:55
