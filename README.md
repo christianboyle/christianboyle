@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHy8zsPtW0PTRGe7-211FBA-t500x500.jpg">](https://soundcloud.com/bassrush/xotix-pure-powers-wook-rocket-feat-pure-powers?in=xotixmusic/sets/a-very-weird-totally-awesome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOy2FZTTVqnt3F9i-mtSe2Q-t500x500.jpg">](https://soundcloud.com/adamenoise/the-citadel)
 
-**Artist**: Bassrush 
+**Artist**: ADAME 
 
-**Track**: Xotix - Wook Rocket (feat. Pure Powers)
+**Track**: The Citadel
 
-Last updated at 03/03/2024 09:40
+Last updated at 03/03/2024 09:41
