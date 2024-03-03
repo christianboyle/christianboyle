@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugo8c9E5yWz1sCQg-eyyTtw-t500x500.jpg">](https://soundcloud.com/kursauk/meandu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9I200JszAyLnGAH-qQbhlg-t500x500.jpg">](https://soundcloud.com/eastghost/burning-doghouse)
 
-**Artist**: Kursa. 
+**Artist**: Eastghost 
 
-**Track**: Cassie - Me & U (Kursa's Moderately Suggestive Vibey Bootleg)
+**Track**: Burning Doghouse
 
-Last updated at 03/03/2024 09:56
+Last updated at 03/03/2024 14:20
