@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JF5oAbZcy5PyKcad-d8TpAA-t500x500.jpg">](https://soundcloud.com/badmouthrecs/rux-ton-is-it-really-love?in=ruxton/sets/rux-ton-is-it-really-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9I200JszAyLnGAH-qQbhlg-t500x500.jpg">](https://soundcloud.com/eastghost/burning-doghouse)
 
-**Artist**: BADMOUTH RECS 
+**Artist**: Eastghost 
 
-**Track**: RUX TON - IS IT REALLY LOVE
+**Track**: Burning Doghouse
 
-Last updated at 03/03/2024 09:49
+Last updated at 03/03/2024 09:50
