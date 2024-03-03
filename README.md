@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hCUhOgpFmThDMTLB-komZ7g-t500x500.jpg">](https://soundcloud.com/future-bassnet/royalcapital)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hLLIzK384xS2l9K-5X2eBQ-t500x500.jpg">](https://soundcloud.com/havenwoods/money-x3)
 
-**Artist**: Future Bass Records 
+**Artist**: haven woods. 
 
-**Track**: 361ue - Royal Capital [Future Bass Release]
+**Track**: MONEY! x3
 
-Last updated at 03/02/2024 10:22
+Last updated at 03/03/2024 09:38
