@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhzVG1FaQOyUexQR-yovfJA-t500x500.jpg">](https://soundcloud.com/fabianmazursecretstuff/skrillex-scary-monsters-nice-sprites-fabian-mazur-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugo8c9E5yWz1sCQg-eyyTtw-t500x500.jpg">](https://soundcloud.com/kursauk/meandu)
 
-**Artist**: Fabian Mazur Secret Stuff 
+**Artist**: Kursa. 
 
-**Track**: Skrillex - Scary Monsters & Nice Sprites (Fabian Mazur Remix)
+**Track**: Cassie - Me & U (Kursa's Moderately Suggestive Vibey Bootleg)
 
-Last updated at 03/03/2024 09:55
+Last updated at 03/03/2024 09:56
