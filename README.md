@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aWpn8mkz7htVhVz-pyWFVA-t500x500.jpg">](https://soundcloud.com/snapbackmusik/mia-paper-planes-snapback-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lHTO051RSjP2W9fy-8PYpVQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/shine6)
 
-**Artist**: SnapBack 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: M.I.A PAPER PLANES SNAPBACK REMIX
+**Track**: shine6
 
-Last updated at 03/03/2024 14:28
+Last updated at 03/03/2024 14:29
