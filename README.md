@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQbSFTvgBZdp6Kvf-RL1QLw-t500x500.png">](https://soundcloud.com/tabbychoonz/dj-gen-dried-flower)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YgouJgPuM3vaMRsy-C30xpg-t500x500.png">](https://soundcloud.com/tabbychoonz/hirohiro-still-alive)
 
 **Artist**: TABBY CHOONZ 
 
-**Track**: [174BPM] DJ GEN - Dried Flower [FREE DL]
+**Track**: [170BPM] HiroHiro - Still Alive [FREE DL]
 
-Last updated at 03/03/2024 09:44
+Last updated at 03/03/2024 09:45
