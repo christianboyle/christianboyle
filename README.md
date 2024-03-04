@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmA0oTZaqNq39rKG-uR2qpg-t500x500.jpg">](https://soundcloud.com/noiseprn/hearsay-curse-of-tongues-pick-it-up?in=saxurn/sets/wockhardt-falls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gs18tYofJbhn9BM8-8VnkqA-t500x500.jpg">](https://soundcloud.com/wraz/wraz-nautical-divine-womp1?in=saxurn/sets/wockhardt-falls)
 
-**Artist**: Noiseporn 
+**Artist**: Wraz. 
 
-**Track**: Hearsay & Curse Of Tongues - Pick It Up
+**Track**: Wraz & Nautical Divine - Womp
 
-Last updated at 03/04/2024 14:10
+Last updated at 03/04/2024 14:12
