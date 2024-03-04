@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DZTlPY6e1hvzFTWn-16bDKA-t500x500.jpg">](https://soundcloud.com/zcrmadeit/mad-at-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dhyjr5sR4J47PO9z-zVG60g-t500x500.jpg">](https://soundcloud.com/havenmorofficial/errorcode)
 
-**Artist**: ZCR 
+**Artist**: Havenmor 
 
-**Track**: MAD AT ME
+**Track**: ErrorCode (Out on Spotify)
 
-Last updated at 03/04/2024 07:31
+Last updated at 03/04/2024 07:32
