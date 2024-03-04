@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnzQK98yhViweVtM-MAX7PQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/kid-koma-cliqclaq-shield)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5s9Z56RAZRPc8mQ-3Syqng-t500x500.jpg">](https://soundcloud.com/venture5/next-phase)
 
-**Artist**: Wavecraft Collective 
+**Artist**: Venture 5 
 
-**Track**: Kid Koma & CliqClaq - Shield
+**Track**: Next Phase
 
-Last updated at 03/04/2024 08:18
+Last updated at 03/04/2024 08:21
