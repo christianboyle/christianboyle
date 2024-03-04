@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dhyjr5sR4J47PO9z-zVG60g-t500x500.jpg">](https://soundcloud.com/havenmorofficial/errorcode)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyOkEwyJHvxnoShb-EsxgSA-t500x500.jpg">](https://soundcloud.com/bucketofficial/paperplates)
 
-**Artist**: Havenmor 
+**Artist**: bucket 桶 
 
-**Track**: ErrorCode (Out on Spotify)
+**Track**: PAPER PLATES
 
-Last updated at 03/04/2024 07:32
+Last updated at 03/04/2024 07:40
