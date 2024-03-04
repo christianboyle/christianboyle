@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dX5iNzEKt9JpriXq-AIZjdw-t500x500.png">](https://soundcloud.com/hate_music/01-gary-holldman-tribe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aoJ6oNZKzVSIvbHf-dfZYoA-t500x500.jpg">](https://soundcloud.com/sebseb122/10203040damn?in=saxurn/sets/toys-r-us-type-smell)
 
-**Artist**: HATE 
+**Artist**: SEBii💫 
 
-**Track**: Premiere: Gary Holldman - Tribe [KAN004]
+**Track**: 10<20<30<40 [p. vvspipes + kimj]
 
-Last updated at 03/04/2024 10:14
+Last updated at 03/04/2024 13:03
