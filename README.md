@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lHTO051RSjP2W9fy-8PYpVQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/closer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: Galantis 
 
-**Track**: Closer
+**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
 
-Last updated at 03/04/2024 10:08
+Last updated at 03/04/2024 10:10
