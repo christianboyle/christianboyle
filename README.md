@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5s9Z56RAZRPc8mQ-3Syqng-t500x500.jpg">](https://soundcloud.com/venture5/next-phase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zE0tZMLyzzzJmjGv-vuNlgw-t500x500.jpg">](https://soundcloud.com/officialcyclops/boundless?in=officialcyclops/sets/merry-eggsmas-vol-2-1)
 
-**Artist**: Venture 5 
+**Artist**: CYCLOPS 
 
-**Track**: Next Phase
+**Track**: INFEKT - BOUNDLESS (CYCLOPS REMIX)
 
-Last updated at 03/04/2024 08:21
+Last updated at 03/04/2024 08:22
