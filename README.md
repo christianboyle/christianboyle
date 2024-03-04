@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dX5iNzEKt9JpriXq-AIZjdw-t500x500.png">](https://soundcloud.com/hate_music/01-gary-holldman-tribe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLb9DS2v40t4FgoI-AacASg-t500x500.jpg">](https://soundcloud.com/user-anastovskii/cry-for-you-anastovskii-edit)
 
-**Artist**: HATE 
+**Artist**: ANASTOVSKII 
 
-**Track**: Premiere: Gary Holldman - Tribe [KAN004]
+**Track**: Cry For You [ANASTOVSKII Edit]
 
-Last updated at 03/04/2024 09:04
+Last updated at 03/04/2024 09:34
