@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YjD4X5huHRbmbWLx-2ZGmvQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/peace-of-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5HtPYnLbHDfkZnM2-3oMlIA-t500x500.jpg">](https://soundcloud.com/awochka/rave-angel-w-awochka)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: awochka 
 
-**Track**: Peace of mind
+**Track**: ཏཔསའ།ཏཇ - rave angel w/ awochka
 
-Last updated at 03/04/2024 08:26
+Last updated at 03/04/2024 08:27
