@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZI1rCeSrn7nztmhA-GEpKsg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/clarky-accelerate-future-focus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5s9Z56RAZRPc8mQ-3Syqng-t500x500.jpg">](https://soundcloud.com/venture5/next-phase)
 
-**Artist**: scarreddigital 
+**Artist**: Venture 5 
 
-**Track**: Clarky & Accelerate - Future Focus Promo *FREE DOWNLOAD*
+**Track**: Next Phase
 
-Last updated at 03/04/2024 07:41
+Last updated at 03/04/2024 08:17
