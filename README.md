@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGh8Oxz1kqrAhZVD-y7W5gw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-aksys-wanna-see-you?in=saxurn/sets/wockhardt-falls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W8fe6K8baZP9UzSb-Jdz9Rw-t500x500.jpg">](https://soundcloud.com/deadlyft/maad-city-deadlyft-remix?in=saxurn/sets/wockhardt-falls)
 
-**Artist**: Rave Alert 
+**Artist**: DEADLYFT 
 
-**Track**: [PREMIERE] Aksys - Wanna See You
+**Track**: MAAD CITY (DEADLYFT REMIX)
 
-Last updated at 03/04/2024 14:19
+Last updated at 03/04/2024 14:23
