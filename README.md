@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goGWjxckDmVf-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-david-guetta-x-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k8HPM2lfTKBpksk-Tn5S5g-t500x500.jpg">](https://soundcloud.com/groove030/fake-the-deal)
 
-**Artist**: Galantis 
+**Artist**: Groove Street Berlin 
 
-**Track**: Galantis x David Guetta x 5 Seconds of Summer - Lighter
+**Track**: achtzig - fake the deal | Free DL
 
-Last updated at 03/03/2024 14:32
+Last updated at 03/04/2024 06:03
