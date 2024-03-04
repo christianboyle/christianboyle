@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugo8c9E5yWz1sCQg-eyyTtw-t500x500.jpg">](https://soundcloud.com/kursauk/meandu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAwBUA0VP40bxCYu-GxbKCQ-t500x500.jpg">](https://soundcloud.com/label-dazed/limp-bizkit-break-stuff-morty-ukg-bootleg)
 
-**Artist**: Kursa. 
+**Artist**: Dazed Muzic 
 
-**Track**: Cassie - Me & U (Kursa's Moderately Suggestive Vibey Bootleg)
+**Track**: Limp Bizkit - Break Stuff (Morty UKG Bootleg)
 
-Last updated at 03/04/2024 09:48
+Last updated at 03/04/2024 09:51
