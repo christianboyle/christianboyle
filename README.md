@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLb9DS2v40t4FgoI-AacASg-t500x500.jpg">](https://soundcloud.com/user-anastovskii/cry-for-you-anastovskii-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnzQK98yhViweVtM-MAX7PQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/kid-koma-cliqclaq-shield)
 
-**Artist**: ANASTOVSKII 
+**Artist**: Wavecraft Collective 
 
-**Track**: Cry For You [ANASTOVSKII Edit]
+**Track**: Kid Koma & CliqClaq - Shield
 
-Last updated at 03/04/2024 09:34
+Last updated at 03/04/2024 09:40
