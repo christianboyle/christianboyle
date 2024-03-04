@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iz3N4UzKHH6mDULu-l0Ivew-t500x500.jpg">](https://soundcloud.com/barongfamily/only-gain-alltika-thorns?in=saxurn/sets/wockhardt-falls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZevQBK3decWzAGw9-grMLwA-t500x500.jpg">](https://soundcloud.com/clean-big-bootie-mixes/bb24clean?in=clean-big-bootie-mixes/sets/clean-big-bootie-mixes)
 
-**Artist**: Barong Family 
+**Artist**: Clean Big Bootie Mixes 
 
-**Track**: ONLY GAIN & Alltika - Thorns
+**Track**: 2F Big Bootie Mix, Volume 24 [CLEAN] - Two Friends
 
-Last updated at 03/04/2024 14:26
+Last updated at 03/04/2024 14:29
