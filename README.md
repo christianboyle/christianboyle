@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03JHNodt9Ao5Ub9G-rZSGbA-t500x500.jpg">](https://soundcloud.com/regersound/reger-boiler-room-x-ava-festival-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKXKzNqtgT9v-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-trapped)
 
-**Artist**: Reger 
+**Artist**: Gearbox Digital 
 
-**Track**: AVA Festival 2023 x Boiler Room - Reger
+**Track**: Avi8 - Trapped
 
-Last updated at 03/05/2024 08:24
+Last updated at 03/05/2024 08:57
