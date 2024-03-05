@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zgulbp4XuozkXER-rUbPaw-t500x500.jpg">](https://soundcloud.com/1ffp23sgbjd4/massano-the-feeling-dj-llen-kyle-harrison-bootleg-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKXKzNqtgT9v-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-trapped)
 
-**Artist**: DJ Λllen 
+**Artist**: Gearbox Digital 
 
-**Track**: Massano - The Feeling (DJ Λllen & Kyle Harrison Bootleg) Supported by Rave Republic
+**Track**: Avi8 - Trapped
 
-Last updated at 03/05/2024 08:19
+Last updated at 03/05/2024 08:20
