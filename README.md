@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzVyKv50hafLJvN2-xmfvdQ-t500x500.jpg">](https://soundcloud.com/s3rl/back-to-you?in=saxurn/sets/oh-baby-a-triple-cd3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrOpIEgy0QL60o9F-tTzlQg-t500x500.jpg">](https://soundcloud.com/unboundedlimits/resilience)
 
-**Artist**: S3RL 
+**Artist**: Unbounded Limits 
 
-**Track**: Back To You - S3RL & Walras ft Regina
+**Track**: Emco - Resilience.
 
-Last updated at 03/04/2024 15:42
+Last updated at 03/05/2024 08:18
