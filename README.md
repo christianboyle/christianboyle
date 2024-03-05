@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8wQGY6zressHzvdC-uCNV9g-t500x500.jpg">](https://soundcloud.com/august-kind/xo-tour-llif3-august-kind-bbymeister-trance-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBLzWIqh7Qwk8gzm-bn9e7g-t500x500.jpg">](https://soundcloud.com/s3rl/the-few-the-many-s3rl)
 
-**Artist**: August Kind 
+**Artist**: S3RL 
 
-**Track**: XO Tour Llif3 (August Kind & bbymeister Trance Edit) FREE DL
+**Track**: The Few & The Many - S3RL
 
-Last updated at 03/05/2024 12:04
+Last updated at 03/05/2024 12:09
