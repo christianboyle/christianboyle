@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BGw1OB7MYueBrBO-cCG1wQ-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/far-east-movement-like-a-g6-breez-vip-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EqFCawNW93TVRyBy-gZagWw-t500x500.jpg">](https://soundcloud.com/macbassdj/otto-le-blanc-macbass-ft-mido-voltexx-mystery)
 
-**Artist**: EDM FAMILY Remixes 
+**Artist**: Macbass 
 
-**Track**: Far East Movement - Like A G6 (Breez VIP Edit) [FREE DOWNLOAD]
+**Track**: Otto Le Blanc & Macbass ft. MiDO & Voltexx - Mystery
 
-Last updated at 03/05/2024 08:21
+Last updated at 03/05/2024 08:23
