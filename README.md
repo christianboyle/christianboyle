@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M2rziJ9g6QIrHrUW-5h4Gkw-t500x500.jpg">](https://soundcloud.com/officialtrapparty/remy-heart-run-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugo8c9E5yWz1sCQg-eyyTtw-t500x500.jpg">](https://soundcloud.com/kursauk/meandu)
 
-**Artist**: Trap Party Records 
+**Artist**: Kursa. 
 
-**Track**: Remy Heart - Run It Up
+**Track**: Cassie - Me & U (Kursa's Moderately Suggestive Vibey Bootleg)
 
-Last updated at 03/05/2024 09:08
+Last updated at 03/05/2024 09:11
