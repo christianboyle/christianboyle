@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmLiuLhr0clYgb15-ZkqsqQ-t500x500.jpg">](https://soundcloud.com/trydeny/clown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aoJ6oNZKzVSIvbHf-dfZYoA-t500x500.jpg">](https://soundcloud.com/sebseb122/10203040damn)
 
-**Artist**: TRYDENY 
+**Artist**: SEBii💫 
 
-**Track**: Clown
+**Track**: 10<20<30<40 [p. vvspipes + kimj]
 
-Last updated at 03/05/2024 11:46
+Last updated at 03/05/2024 11:48
