@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOJyn33FN00lhXWK-xsGnFg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-when-im-gone-with-micah-martin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8wQGY6zressHzvdC-uCNV9g-t500x500.jpg">](https://soundcloud.com/august-kind/xo-tour-llif3-august-kind-bbymeister-trance-edit-free-dl)
 
-**Artist**: Future Generation 
+**Artist**: August Kind 
 
-**Track**: Arcando - When I'm Gone (with Micah Martin)
+**Track**: XO Tour Llif3 (August Kind & bbymeister Trance Edit) FREE DL
 
-Last updated at 03/05/2024 12:01
+Last updated at 03/05/2024 12:04
