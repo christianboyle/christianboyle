@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0mUvPymWkv8lyOy-5pD71Q-t500x500.jpg">](https://soundcloud.com/geckonl/nothing-everything)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKXKzNqtgT9v-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-trapped)
 
-**Artist**: Geck-o 
+**Artist**: Gearbox Digital 
 
-**Track**: Geck-o @ Nothing & Everything (club set recording)
+**Track**: Avi8 - Trapped
 
-Last updated at 03/05/2024 12:11
+Last updated at 03/05/2024 13:54
