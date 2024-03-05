@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBLzWIqh7Qwk8gzm-bn9e7g-t500x500.jpg">](https://soundcloud.com/s3rl/the-few-the-many-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0mUvPymWkv8lyOy-5pD71Q-t500x500.jpg">](https://soundcloud.com/geckonl/nothing-everything)
 
-**Artist**: S3RL 
+**Artist**: Geck-o 
 
-**Track**: The Few & The Many - S3RL
+**Track**: Geck-o @ Nothing & Everything (club set recording)
 
-Last updated at 03/05/2024 12:09
+Last updated at 03/05/2024 12:11
