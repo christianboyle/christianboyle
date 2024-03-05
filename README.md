@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lUL7CRhNgFjtqhtN-N1fZlg-t500x500.jpg">](https://soundcloud.com/ukf/sota-machete-amc-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnRFkpQsYC98SpHD-hBf57A-t500x500.jpg">](https://soundcloud.com/dillon_hett/like-a-domdom)
 
-**Artist**: UKF 
+**Artist**: Dillon Hett (AUS) 
 
-**Track**: Sota - Machete (A.M.C Remix)
+**Track**: LIKE A DOMINO
 
-Last updated at 03/05/2024 09:51
+Last updated at 03/05/2024 09:54
