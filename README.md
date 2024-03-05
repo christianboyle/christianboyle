@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7EW7W5NKf5viV1CB-dnUj5Q-t500x500.jpg">](https://soundcloud.com/maakg/gjones-dancing-on-the-edge-maakg-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOJyn33FN00lhXWK-xsGnFg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-when-im-gone-with-micah-martin)
 
-**Artist**: Maāk.G 
+**Artist**: Future Generation 
 
-**Track**: G Jones - Dancing On The Edge (Maāk.G Bootleg)
+**Track**: Arcando - When I'm Gone (with Micah Martin)
 
-Last updated at 03/05/2024 11:58
+Last updated at 03/05/2024 12:01
