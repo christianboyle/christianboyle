@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmx2lLykDfhBjlzQ-cxNYyg-t500x500.jpg">](https://soundcloud.com/sachsentrance/st009-cappella-u-got-2-let-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7EW7W5NKf5viV1CB-dnUj5Q-t500x500.jpg">](https://soundcloud.com/maakg/gjones-dancing-on-the-edge-maakg-bootleg)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Maāk.G 
 
-**Track**: [ST009] Cappella - U Got 2 Let The Music (Panteros666 Edit)
+**Track**: G Jones - Dancing On The Edge (Maāk.G Bootleg)
 
-Last updated at 03/05/2024 11:53
+Last updated at 03/05/2024 11:58
