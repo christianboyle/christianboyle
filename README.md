@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKXKzNqtgT9v-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-trapped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KD892pYY4rB3zf0b-dFehuA-t500x500.jpg">](https://soundcloud.com/scarfiemusic/william-black-lie-scarfie-remix)
 
-**Artist**: Gearbox Digital 
+**Artist**: SCARFIE 
 
-**Track**: Avi8 - Trapped
+**Track**: WILLIAM BLACK - LIE (SCARFIE REMIX)
 
-Last updated at 03/05/2024 13:54
+Last updated at 03/05/2024 13:56
