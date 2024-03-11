@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJyy52fRHwiJDEy-kSz6fQ-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-uicideboy-carrollton-jawis-falllon-edit?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Luca Testa 
 
-**Track**: [PREMIERE]  $uicideboy$ - Carrollton (Jawis Fallon Edit)
+**Track**: Luca Testa X Bomber X Hitak - Wake Up
 
-Last updated at 03/11/2024 14:58
+Last updated at 03/11/2024 15:00
