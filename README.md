@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmLiuLhr0clYgb15-ZkqsqQ-t500x500.jpg">](https://soundcloud.com/trydeny/clown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJyy52fRHwiJDEy-kSz6fQ-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-uicideboy-carrollton-jawis-falllon-edit?in=saxurn/sets/w-stream)
 
-**Artist**: TRYDENY 
+**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: Clown
+**Track**: [PREMIERE]  $uicideboy$ - Carrollton (Jawis Fallon Edit)
 
-Last updated at 03/05/2024 14:56
+Last updated at 03/11/2024 14:58
