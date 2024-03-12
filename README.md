@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6vGC63DvAH3JeZD-jBUjFg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-tatsunoshin-feel-your-echo-elfx?in=saxurn/sets/w-stream)
 
-**Artist**: Luca Testa 
+**Artist**: Dirty Workz 
 
-**Track**: Luca Testa X Bomber X Hitak - Wake Up
+**Track**: Tweekacore & Tatsunoshin - Feel Your Echo (ELFX)
 
-Last updated at 03/12/2024 09:05
+Last updated at 03/12/2024 09:07
