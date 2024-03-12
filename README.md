@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaLAWreUPx862vlC-8Hsusw-t500x500.jpg">](https://soundcloud.com/itslostindreams/synymata-egzod-josh-rubin-already-numb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyS1SWDDwk9byCj0-QQPBWQ-t500x500.jpg">](https://soundcloud.com/kris_cayden/adventure-gold-gold-ft-yuna-kris-cayden-reimagination?in=kris_cayden/sets/adventure-club-gold-ft-yuna)
 
-**Artist**: Lost In Dreams 
+**Artist**: Kris Cayden 
 
-**Track**: Synymata, Egzod & Josh Rubin - Already Numb
+**Track**: Adventure Club - Gold Ft Yuna (Kris Cayden Reimagination)
 
-Last updated at 03/12/2024 08:24
+Last updated at 03/12/2024 08:25
