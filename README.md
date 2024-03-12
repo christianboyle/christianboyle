@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6vGC63DvAH3JeZD-jBUjFg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/tweekacore-tatsunoshin-feel-your-echo-elfx?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-628sX2KTympdgyfS-FTIWhA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-avantocs-secret-channels-oscdgtl015)
 
-**Artist**: Dirty Workz 
+**Artist**: HATE 
 
-**Track**: Tweekacore & Tatsunoshin - Feel Your Echo (ELFX)
+**Track**: Premiere: Avant.OCS - Secret Channels [OCSDGTL015]
 
-Last updated at 03/11/2024 15:06
+Last updated at 03/12/2024 08:19
