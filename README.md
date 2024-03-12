@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyS1SWDDwk9byCj0-QQPBWQ-t500x500.jpg">](https://soundcloud.com/kris_cayden/adventure-gold-gold-ft-yuna-kris-cayden-reimagination?in=kris_cayden/sets/adventure-club-gold-ft-yuna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6VQEGaHI3r7ZZECf-pv31DQ-t500x500.jpg">](https://soundcloud.com/wreckingball76/red-wine-sessions-8)
 
-**Artist**: Kris Cayden 
+**Artist**: wreckingball76 
 
-**Track**: Adventure Club - Gold Ft Yuna (Kris Cayden Reimagination)
+**Track**: RWS 8 - More Upfront Hardcore - March 24
 
-Last updated at 03/12/2024 08:25
+Last updated at 03/12/2024 08:28
