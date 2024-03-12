@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCJyy52fRHwiJDEy-kSz6fQ-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-uicideboy-carrollton-jawis-falllon-edit?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ctP7DlX2KAG-0-t500x500.jpg">](https://soundcloud.com/basspill/worry-bout-me?in=saxurn/sets/w-stream)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Basspill 
 
-**Track**: [PREMIERE]  $uicideboy$ - Carrollton (Jawis Fallon Edit)
+**Track**: Worry Bout Me!
 
-Last updated at 03/12/2024 09:28
+Last updated at 03/12/2024 09:33
