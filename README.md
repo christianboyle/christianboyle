@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OWAKREoOtyObbpTL-V22g4Q-t500x500.jpg">](https://soundcloud.com/stereogomusic/nofriends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaLAWreUPx862vlC-8Hsusw-t500x500.jpg">](https://soundcloud.com/itslostindreams/synymata-egzod-josh-rubin-already-numb)
 
-**Artist**: stereoGO 
+**Artist**: Lost In Dreams 
 
-**Track**: No Friends
+**Track**: Synymata, Egzod & Josh Rubin - Already Numb
 
-Last updated at 03/12/2024 08:23
+Last updated at 03/12/2024 08:24
