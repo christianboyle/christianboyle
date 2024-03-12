@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-628sX2KTympdgyfS-FTIWhA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-avantocs-secret-channels-oscdgtl015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7G0sYVLrbpXdqzBY-8pod2w-t500x500.jpg">](https://soundcloud.com/mylonrae/miguel-do-you-mylonrae-remix-1)
 
-**Artist**: HATE 
+**Artist**: Mylonrae 
 
-**Track**: Premiere: Avant.OCS - Secret Channels [OCSDGTL015]
+**Track**: Miguel - Do You (Mylonrae Remix)
 
-Last updated at 03/12/2024 08:19
+Last updated at 03/12/2024 08:20
