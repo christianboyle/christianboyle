@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGFYNxmCZ3cOEttF-Sk3QvQ-t500x500.jpg">](https://soundcloud.com/hypergeneration/01-hypergeneration-111-signal)
 
-**Artist**: Quality Goods Records 
+**Artist**: Hypergeneration 
 
-**Track**: QGR-031 | Hypergeneration - Candyland
+**Track**: 111 [Signal]
 
-Last updated at 03/13/2024 07:25
+Last updated at 03/13/2024 07:26
