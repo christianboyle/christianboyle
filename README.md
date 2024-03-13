@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7OOW4lchdo30IP7O-FXh2aA-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/laces-out-sc-master-rev-1644?in=wormhole-music-group/sets/phydra-bloodshot-ep)
 
-**Artist**: bino's bin 
+**Artist**: Wormhole Music Group 
 
-**Track**: Solastalgia
+**Track**: Phydra - Laces Out
 
-Last updated at 03/13/2024 07:27
+Last updated at 03/13/2024 07:28
