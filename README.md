@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abnmulTwx4RB-0-t500x500.jpg">](https://soundcloud.com/bkayeofficial/better-days)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4Mahjfq9Hbw-0-t500x500.jpg">](https://soundcloud.com/toby-romeo/bulla)
 
-**Artist**: BKAYE 
+**Artist**: Toby Romeo 
 
-**Track**: Better Days
+**Track**: Toby Romeo, Tim Hox - Bulla
 
-Last updated at 03/13/2024 10:50
+Last updated at 03/13/2024 10:51
