@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uX86TE1khAYPoPL1-uZz0cg-t500x500.jpg">](https://soundcloud.com/bvrnd/the-game-50-cent-hate-it-or-love-it-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/tmp/)
 
-**Artist**: BVRN'D 
+**Artist**: Quality Goods Records 
 
-**Track**: The Game, 50 Cent - Hate It Or Love It (BVRNOUT Remix)
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/13/2024 10:56
+Last updated at 03/13/2024 13:26
