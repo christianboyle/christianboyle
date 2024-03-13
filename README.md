@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t8SyE0Ne5GEaJLF8-31ekJQ-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/daddysgroove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ax3GQrYear8zJ0tw-Seh1qQ-t500x500.jpg">](https://soundcloud.com/geomcd/saviour-kirstie-smiler-geo-mcd-remix?in=user-199626029-450517421/sets/kirstie-smiler-makina)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: ♕ Geo Mcd ♕ 
 
-**Track**: Marlon Hoffstadt aka DJ Daddy Trance - Daddys Groove
+**Track**: Saviour - Kirstie Smiler - Geo Mcd Remix
 
-Last updated at 03/13/2024 09:56
+Last updated at 03/13/2024 09:57
