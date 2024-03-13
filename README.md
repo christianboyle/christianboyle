@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JdtQadX7tNnGlMEu-BMmkYw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/chris-isaak-wicked-game-al-roberts-bootleg-remix-free-wav-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G7yIUVlgWFgqxxy0-SaBfGg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/quinny-midland-st-chris-f-remix1)
 
 **Artist**: Fatal Energy Records 
 
-**Track**: Chris Isaak - Wicked Game (Al Roberts Bootleg Remix) *FREE WAV DOWNLOAD*
+**Track**: Quinny - Midland St. (Chris F Remix)
 
-Last updated at 03/13/2024 10:03
+Last updated at 03/13/2024 10:04
