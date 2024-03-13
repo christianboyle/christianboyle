@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnA8Uj0SarkAzUcV-erjKXA-t500x500.jpg">](https://soundcloud.com/whoisphantasm/self-control-phantasm-extrakt-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMAH1a0Ky4QysTnp-jIeTMw-t500x500.jpg">](https://soundcloud.com/audiobambino/r-vit-d?in=audiobambino/sets/singles-series)
 
-**Artist**: PHANTASM 
+**Artist**: audio bambino 
 
-**Track**: SELF CONTROL (PHANTASM & EXTRAKT FLIP)
+**Track**: R@ - Vit D
 
-Last updated at 03/13/2024 07:23
+Last updated at 03/13/2024 07:24
