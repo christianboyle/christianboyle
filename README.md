@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvyrXFQAk8wPczru-4pRkwA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-48-feat-bvrnout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abnmulTwx4RB-0-t500x500.jpg">](https://soundcloud.com/bkayeofficial/better-days)
 
-**Artist**: syence experiments 
+**Artist**: BKAYE 
 
-**Track**: syence lab: volume 48 (feat. bvrnout)
+**Track**: Better Days
 
-Last updated at 03/13/2024 10:07
+Last updated at 03/13/2024 10:50
