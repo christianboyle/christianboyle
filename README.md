@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOczzNLzD3BaoaLz-WzEoCA-t500x500.jpg">](https://soundcloud.com/gurfmusic/stroll)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvyrXFQAk8wPczru-4pRkwA-t500x500.jpg">](https://soundcloud.com/syenceexperiments/syence-lab-volume-48-feat-bvrnout)
 
-**Artist**: GURF 
+**Artist**: syence experiments 
 
-**Track**: GURF - STROLL
+**Track**: syence lab: volume 48 (feat. bvrnout)
 
-Last updated at 03/13/2024 10:06
+Last updated at 03/13/2024 10:07
