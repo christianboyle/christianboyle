@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1fPmVBA7k2aYLc1y-EzY89w-t500x500.jpg">](https://soundcloud.com/tiarowastaken/369girlswanna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NMGR8IhiMqGpY6DC-JJkPDg-t500x500.jpg">](https://soundcloud.com/bvrnd/skee-lo-i-wish-bvrnout-club-edit)
 
-**Artist**: TIARO 
+**Artist**: BVRN'D 
 
-**Track**: 3 - 6 - 9 (ROQUE x TIARO)
+**Track**: Skee-Lo - I Wish (BVRNOUT Club Edit)
 
-Last updated at 03/13/2024 10:53
+Last updated at 03/13/2024 10:54
