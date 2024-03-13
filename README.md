@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y6dIpTSMEUtFuxMe-ogov4Q-t500x500.jpg">](https://soundcloud.com/nervoushorizon/tsvi-vitamina-h?in=nervoushorizon/sets/nhd012-tsvi-mediterraneo-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-79ErAuxGoHLzIIgG-w5zJ3A-t500x500.jpg">](https://soundcloud.com/de-clary/teenage-crime-de-clary-baye-remix?in=bayemusique/sets/free-downloads)
 
-**Artist**: Nervous Horizon 
+**Artist**: De Clary 
 
-**Track**: TSVI - Vitamina H
+**Track**: Adrian Lux - Teenage Crime (De Clary & BAYÉ Remix)
 
-Last updated at 03/13/2024 07:30
+Last updated at 03/13/2024 07:31
