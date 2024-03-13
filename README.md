@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMAH1a0Ky4QysTnp-jIeTMw-t500x500.jpg">](https://soundcloud.com/audiobambino/r-vit-d?in=audiobambino/sets/singles-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland)
 
-**Artist**: audio bambino 
+**Artist**: Quality Goods Records 
 
-**Track**: R@ - Vit D
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/13/2024 07:24
+Last updated at 03/13/2024 07:25
