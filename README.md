@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G7yIUVlgWFgqxxy0-SaBfGg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/quinny-midland-st-chris-f-remix1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdhLssaP8uZu-0-t500x500.jpg">](https://soundcloud.com/kastramusic/constellations)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Kastra 
 
-**Track**: Quinny - Midland St. (Chris F Remix)
+**Track**: Constellations
 
-Last updated at 03/13/2024 10:04
+Last updated at 03/13/2024 10:05
