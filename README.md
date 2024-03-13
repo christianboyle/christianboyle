@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000025255315-17i2t8-t500x500.jpg">](https://soundcloud.com/rhodes54/s-w-19-fields-of-metallic-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-49Ty9WaJOfEVhdar-aC5k4Q-t500x500.jpg">](https://soundcloud.com/user-184984864-132056739/all-tied-up-feat-sarah-de-warren)
 
-**Artist**: S.W. 
+**Artist**: ALL CANE 
 
-**Track**: "The Adventurous World Of S.W." - 18 - Fields of Metallic Funk Part IV - Technicoloured Melodies
+**Track**: All Tied Up (Feat. Sarah De Warren)
 
-Last updated at 03/13/2024 09:53
+Last updated at 03/13/2024 09:54
