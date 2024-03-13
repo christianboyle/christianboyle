@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-628sX2KTympdgyfS-FTIWhA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-avantocs-secret-channels-oscdgtl015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M3cTLWbUw8bQpXGP-IWgzyA-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-37-pacemaker)
 
-**Artist**: HATE 
+**Artist**: Hardcore Energy 
 
-**Track**: Premiere: Avant.OCS - Secret Channels [OCSDGTL015]
+**Track**: Mix Series 37 - Pacemaker
 
-Last updated at 03/13/2024 07:32
+Last updated at 03/13/2024 07:33
