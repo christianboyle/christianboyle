@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-79ErAuxGoHLzIIgG-w5zJ3A-t500x500.jpg">](https://soundcloud.com/de-clary/teenage-crime-de-clary-baye-remix?in=bayemusique/sets/free-downloads)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-628sX2KTympdgyfS-FTIWhA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-avantocs-secret-channels-oscdgtl015)
 
-**Artist**: De Clary 
+**Artist**: HATE 
 
-**Track**: Adrian Lux - Teenage Crime (De Clary & BAYÉ Remix)
+**Track**: Premiere: Avant.OCS - Secret Channels [OCSDGTL015]
 
-Last updated at 03/13/2024 07:31
+Last updated at 03/13/2024 07:32
