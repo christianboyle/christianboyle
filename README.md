@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Kv4D7SYZlGYCdeS-3X3F8A-t500x500.jpg">](https://soundcloud.com/aeklay/far-away-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0FSwiBXmoxCLlrJ-EvVbag-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/dani-fiesta-definitiva-heppy-bootleg-remix-free-wav-download)
 
-**Artist**: Aeklay 
+**Artist**: Fatal Energy Records 
 
-**Track**: Far Away
+**Track**: Dani Fiesta - Definitiva (Heppy Bootleg Remix) *FREE WAV DOWNLOAD*
 
-Last updated at 03/13/2024 09:59
+Last updated at 03/13/2024 10:00
