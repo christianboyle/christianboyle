@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VsC5SVPtXqafoQyI-8KGQOQ-t500x500.jpg">](https://soundcloud.com/speedservices/speed-services-truthspeaker)
 
-**Artist**: Luca Testa 
+**Artist**: Speed Services™ 
 
-**Track**: Luca Testa X Bomber X Hitak - Wake Up
+**Track**: speed services: truthspeaker
 
-Last updated at 03/13/2024 08:18
+Last updated at 03/13/2024 08:28
