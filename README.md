@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGFYNxmCZ3cOEttF-Sk3QvQ-t500x500.jpg">](https://soundcloud.com/hypergeneration/01-hypergeneration-111-signal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie)
 
-**Artist**: Hypergeneration 
+**Artist**: bino's bin 
 
-**Track**: 111 [Signal]
+**Track**: Solastalgia
 
-Last updated at 03/13/2024 07:26
+Last updated at 03/13/2024 07:27
