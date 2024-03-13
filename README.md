@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kUvpHnZZisWc4Oam-7WsL5A-t500x500.jpg">](https://soundcloud.com/neoravenation/fractures-in-time-closer)
 
-**Artist**: Quality Goods Records 
+**Artist**: Neorave Nation 
 
-**Track**: QGR-031 | Hypergeneration - Candyland
+**Track**: Fractures In Time - Closer
 
-Last updated at 03/13/2024 09:29
+Last updated at 03/13/2024 09:31
