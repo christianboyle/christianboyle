@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dBGe5F7oIvoFczwm-KVLBPg-t500x500.jpg">](https://soundcloud.com/adam_pearsall/matador-mercy-blvd-vs-knaye-west-big-sean-adam-pearsall-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1fPmVBA7k2aYLc1y-EzY89w-t500x500.jpg">](https://soundcloud.com/tiarowastaken/369girlswanna)
 
-**Artist**: Adam Pearsall 
+**Artist**: TIARO 
 
-**Track**: Matador Mercy - BLVD Vs. Kanye West & Big Sean (Adam Pearsall x Nick Gabriel Mashup)
+**Track**: 3 - 6 - 9 (ROQUE x TIARO)
 
-Last updated at 03/13/2024 10:52
+Last updated at 03/13/2024 10:53
