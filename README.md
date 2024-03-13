@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M3cTLWbUw8bQpXGP-IWgzyA-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/mix-series-37-pacemaker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
 
-**Artist**: Hardcore Energy 
+**Artist**: Luca Testa 
 
-**Track**: Mix Series 37 - Pacemaker
+**Track**: Luca Testa X Bomber X Hitak - Wake Up
 
-Last updated at 03/13/2024 07:33
+Last updated at 03/13/2024 08:18
