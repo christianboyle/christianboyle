@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ftfZkXM3XAyHUQez-cSIYlQ-t500x500.jpg">](https://soundcloud.com/djthera/smash-the-speaker-with-deep-dimension)
 
-**Artist**: Scantraxx 
+**Artist**: Dj Thera 
 
-**Track**: Adrenalize - Illusion
+**Track**: Smash The Speaker (with Deep Dimension)
 
-Last updated at 03/14/2024 09:14
+Last updated at 03/14/2024 09:18
