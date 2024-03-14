@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrVkKYyyYLjr3mlv-DFZQ8A-t500x500.jpg">](https://soundcloud.com/djsfrenchcandy/corona-the-rhythm-of-the-night-french-candy-extended-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174139229-p9tavr-t500x500.jpg">](https://soundcloud.com/auscore/auscore-sunshine-fc-justice-hardcore?in=saxurn/sets/tmp/)
 
-**Artist**: French Candy 
+**Artist**: Sam Auscore 
 
-**Track**: Corona - The Rhythm Of The Night (French Candy Remix) SUPPORTED BY DIPLO & DILLON FRANCIS
+**Track**: Auscore - Sunshine (f/c Justice Hardcore)
 
-Last updated at 03/14/2024 09:11
+Last updated at 03/14/2024 09:12
