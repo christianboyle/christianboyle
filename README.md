@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4DcKfZde6weOYrG-mVYVhA-t500x500.jpg">](https://soundcloud.com/user-199626029-450517421/drake-liddell-feat-kirstie?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoYbNSLDPsFPF2yc-Cnyfjg-t500x500.jpg">](https://soundcloud.com/user-320945381/tie-wrap-x-81zaki-jersey?in=saxurn/sets/tmp/)
 
-**Artist**: Kirstie Smiler Vocalist 
+**Artist**: Tie Wrap 
 
-**Track**: Drake Liddell Feat Kirstie Smiler - Rave Alone Radio Edit
+**Track**: Jersey Lullaby (ft. 81zaki)
 
-Last updated at 03/14/2024 08:52
+Last updated at 03/14/2024 08:55
