@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntIw0ecQujbX5rcl-bRPi6w-t500x500.jpg">](https://soundcloud.com/pacificpatterns/tendril-plexus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aa2itarDyQVi41Wx-1vSRsg-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/tungevaag-raaban-million-lights-fady-haroun-remix)
 
-**Artist**: Pacific Patterns 
+**Artist**: Best Dubstep Remixes 
 
-**Track**: Tendril Plexus
+**Track**: Tungevaag & Raaban - Million Lights (Fady Haroun Remix)
 
-Last updated at 03/14/2024 08:04
+Last updated at 03/14/2024 08:05
