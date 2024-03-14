@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/tmp/)
 
-**Artist**: Scantraxx 
+**Artist**: Quality Goods Records 
 
-**Track**: Adrenalize - Illusion
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/14/2024 08:27
+Last updated at 03/14/2024 08:30
