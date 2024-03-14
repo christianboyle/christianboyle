@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkNz8rl57MkqNp8E-o12Tzw-t500x500.png">](https://soundcloud.com/swickswick/aora-ft-jupita-swick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SmZR9jRF7SmoFYs-aLX3Dw-t500x500.jpg">](https://soundcloud.com/s3rl/pika-girl-naitkore-remix?in=s3rl/sets/remix-ep-19)
 
-**Artist**: Swick 
+**Artist**: S3RL 
 
-**Track**: DoloRRes - AORA (ft. JUPiTA) [Swick Remix]
+**Track**: Pika Girl (NaitKore Remix) - S3RL
 
-Last updated at 03/14/2024 08:13
+Last updated at 03/14/2024 08:14
