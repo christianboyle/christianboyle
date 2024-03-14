@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JaCSc4De6uNV5Vmy-L7AYYA-t500x500.jpg">](https://soundcloud.com/user-512949007/downunder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie?in=saxurn/sets/tmp/)
 
-**Artist**: pkdrummer 
+**Artist**: bino's bin 
 
-**Track**: Downunder
+**Track**: Solastalgia
 
-Last updated at 03/14/2024 08:38
+Last updated at 03/14/2024 08:47
