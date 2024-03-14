@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSKCoY98e0IDseKp-z82fpQ-t500x500.jpg">](https://soundcloud.com/speedservices/djloser-waxxx-hypnagogia?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntIw0ecQujbX5rcl-bRPi6w-t500x500.jpg">](https://soundcloud.com/pacificpatterns/tendril-plexus)
 
-**Artist**: Speed Services™ 
+**Artist**: Pacific Patterns 
 
-**Track**: djloser + vaxxx - hypnagogia
+**Track**: Tendril Plexus
 
-Last updated at 03/13/2024 13:29
+Last updated at 03/14/2024 08:04
