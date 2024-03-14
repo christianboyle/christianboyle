@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SmZR9jRF7SmoFYs-aLX3Dw-t500x500.jpg">](https://soundcloud.com/s3rl/pika-girl-naitkore-remix?in=s3rl/sets/remix-ep-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5nsnCtJTd0yPYaQV-TP8OfQ-t500x500.jpg">](https://soundcloud.com/gangstahouserec/mikla-x-loudbass-heart-original-mix?in=gangstahouserec/sets/mikla-x-loudbass-heart)
 
-**Artist**: S3RL 
+**Artist**: GANGSTA HOUSE RECORDS 
 
-**Track**: Pika Girl (NaitKore Remix) - S3RL
+**Track**: MIKLA X LoudBass - Heart (Original Mix)
 
-Last updated at 03/14/2024 08:14
+Last updated at 03/14/2024 08:15
