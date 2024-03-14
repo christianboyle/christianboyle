@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrVkKYyyYLjr3mlv-DFZQ8A-t500x500.jpg">](https://soundcloud.com/djsfrenchcandy/corona-the-rhythm-of-the-night-french-candy-extended-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion)
 
-**Artist**: French Candy 
+**Artist**: Scantraxx 
 
-**Track**: Corona - The Rhythm Of The Night (French Candy Remix) SUPPORTED BY DIPLO & DILLON FRANCIS
+**Track**: Adrenalize - Illusion
 
-Last updated at 03/14/2024 08:22
+Last updated at 03/14/2024 08:27
