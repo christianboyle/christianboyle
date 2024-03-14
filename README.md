@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoYbNSLDPsFPF2yc-Cnyfjg-t500x500.jpg">](https://soundcloud.com/user-320945381/tie-wrap-x-81zaki-jersey?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jglLABzuNgKzXvyA-pZMoPA-t500x500.png">](https://soundcloud.com/madjestickasual/ichiro-tanimoto-still-air?in=saxurn/sets/tmp/)
 
-**Artist**: Tie Wrap 
+**Artist**: Madjestic Kasual 
 
-**Track**: Jersey Lullaby (ft. 81zaki)
+**Track**: Ichiro Tanimoto - Still Air [MK PREMIERE]
 
-Last updated at 03/14/2024 08:55
+Last updated at 03/14/2024 08:59
