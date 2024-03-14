@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vp0i2MtHHObSdnym-Kki0aQ-t500x500.jpg">](https://soundcloud.com/discoveryproject/malixe-losing-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkNz8rl57MkqNp8E-o12Tzw-t500x500.png">](https://soundcloud.com/swickswick/aora-ft-jupita-swick-remix)
 
-**Artist**: Discovery Project 
+**Artist**: Swick 
 
-**Track**: MALIXE - Losing Control
+**Track**: DoloRRes - AORA (ft. JUPiTA) [Swick Remix]
 
-Last updated at 03/14/2024 08:12
+Last updated at 03/14/2024 08:13
