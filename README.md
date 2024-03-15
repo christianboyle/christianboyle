@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
 
-**Artist**: Scantraxx 
+**Artist**: Luca Testa 
 
-**Track**: Adrenalize - Illusion
+**Track**: Luca Testa X Bomber X Hitak - Wake Up
 
-Last updated at 03/15/2024 08:24
+Last updated at 03/15/2024 08:28
