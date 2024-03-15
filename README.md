@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y0NyqymBzgbEM0mk-HgrSLw-t500x500.jpg">](https://soundcloud.com/covexmusic/another-night-with-fi-sullivan?in=saxurn/sets/bippin-dots)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lHTO051RSjP2W9fy-8PYpVQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/shine6?in=saxurn/sets/bippin-dots)
 
-**Artist**: COVEX 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: Another Night (with Fi Sullivan)
+**Track**: shine6
 
-Last updated at 03/15/2024 10:26
+Last updated at 03/15/2024 10:28
