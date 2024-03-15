@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrVkKYyyYLjr3mlv-DFZQ8A-t500x500.jpg">](https://soundcloud.com/djsfrenchcandy/corona-the-rhythm-of-the-night-french-candy-extended-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abnmulTwx4RB-0-t500x500.jpg">](https://soundcloud.com/bkayeofficial/better-days?in=saxurn/sets/tmp/)
 
-**Artist**: French Candy 
+**Artist**: BKAYE 
 
-**Track**: Corona - The Rhythm Of The Night (French Candy Remix) SUPPORTED BY DIPLO & DILLON FRANCIS
+**Track**: Better Days
 
-Last updated at 03/15/2024 08:15
+Last updated at 03/15/2024 08:20
