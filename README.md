@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-lHTO051RSjP2W9fy-8PYpVQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/shine6?in=saxurn/sets/bippin-dots)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KD892pYY4rB3zf0b-dFehuA-t500x500.jpg">](https://soundcloud.com/scarfiemusic/william-black-lie-scarfie-remix?in=saxurn/sets/bippin-dots)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: SCARFIE 
 
-**Track**: shine6
+**Track**: WILLIAM BLACK - LIE (SCARFIE REMIX)
 
-Last updated at 03/15/2024 10:28
+Last updated at 03/15/2024 10:31
