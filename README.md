@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UeK0rfPqHzlfYtWw-WUWIsQ-t500x500.jpg">](https://soundcloud.com/neoravenation/submariner-tuna-melt?in=neoravenation/sets/releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gcozy74zyQ7DcEYK-DTxzIQ-t500x500.jpg">](https://soundcloud.com/avyss/premiere-europa-absentia-feat-joongloom?in=saxurn/sets/bippin-dots)
 
-**Artist**: Neorave Nation 
+**Artist**: AVYSS 
 
-**Track**: Tuna Melt - Submariner
+**Track**: Premiere: Europa & 500 - Absentia (feat. Joongloom)
 
-Last updated at 03/15/2024 10:19
+Last updated at 03/15/2024 10:23
