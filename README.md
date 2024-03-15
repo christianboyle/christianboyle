@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abnmulTwx4RB-0-t500x500.jpg">](https://soundcloud.com/bkayeofficial/better-days?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174139229-p9tavr-t500x500.jpg">](https://soundcloud.com/auscore/auscore-sunshine-fc-justice-hardcore?in=saxurn/sets/tmp/)
 
-**Artist**: BKAYE 
+**Artist**: Sam Auscore 
 
-**Track**: Better Days
+**Track**: Auscore - Sunshine (f/c Justice Hardcore)
 
-Last updated at 03/15/2024 08:20
+Last updated at 03/15/2024 08:22
