@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174139229-p9tavr-t500x500.jpg">](https://soundcloud.com/auscore/auscore-sunshine-fc-justice-hardcore?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMXLGBL5dFszp6PC-5LQ1Hg-t500x500.jpg">](https://soundcloud.com/presentlylifted/dalfin-x-kitty-cartel-crystal-eyes)
 
-**Artist**: Sam Auscore 
+**Artist**: Presently Lifted 👑 
 
-**Track**: Auscore - Sunshine (f/c Justice Hardcore)
+**Track**: Dalfin X Kitty Cartel - Crystal Eyes
 
-Last updated at 03/15/2024 19:42
+Last updated at 03/16/2024 09:52
