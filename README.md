@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4DcKfZde6weOYrG-mVYVhA-t500x500.jpg">](https://soundcloud.com/user-199626029-450517421/drake-liddell-feat-kirstie?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yKcEk5P0jTlaUUP-Y8zMjQ-t500x500.jpg">](https://soundcloud.com/stemacmusic/ste-mac-x-simon-jay-we-got-something-radio?in=saxurn/sets/tmp/)
 
-**Artist**: Kirstie Smiler Vocalist 
+**Artist**: Ste Mac 
 
-**Track**: Drake Liddell Feat Kirstie Smiler - Rave Alone Radio Edit
+**Track**: Ste Mac X Simon Jay - We Got Something (Original Mix)
 
-Last updated at 03/15/2024 10:57
+Last updated at 03/15/2024 19:30
