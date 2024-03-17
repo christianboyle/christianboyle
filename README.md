@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hFqKfJEzcoOdHeDb-44uaUw-t500x500.jpg">](https://soundcloud.com/eaterextras/ktrl-ghost-lotus-big-mad-eater-remix?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhodMwR7FOKF-0-t500x500.jpg">](https://soundcloud.com/hardelements/dj-joe-craig-to-be-with-you?in=saxurn/sets/w-stream)
 
-**Artist**: Eater Extras 
+**Artist**: Hard Elements 
 
-**Track**: KTRL & Ghost Lotus - Big Mad (Eater Remix)
+**Track**: DJ Joe Craig - To Be With You (Radio Edit)
 
-Last updated at 03/17/2024 11:41
+Last updated at 03/17/2024 11:43
