@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJT7wXce6tir-0-t500x500.jpg">](https://soundcloud.com/maxo-kream/bang-the-bus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/tmp/)
 
-**Artist**: MAXO KREAM 
+**Artist**: Quality Goods Records 
 
-**Track**: Bang The Bus
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/17/2024 08:47
+Last updated at 03/17/2024 10:59
