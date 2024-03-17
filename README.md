@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSKCoY98e0IDseKp-z82fpQ-t500x500.jpg">](https://soundcloud.com/speedservices/djloser-waxxx-hypnagogia?in=saxurn/sets/tmp/)
 
-**Artist**: Quality Goods Records 
+**Artist**: Speed Services™ 
 
-**Track**: QGR-031 | Hypergeneration - Candyland
+**Track**: djloser + vaxxx - hypnagogia
 
-Last updated at 03/17/2024 10:59
+Last updated at 03/17/2024 11:02
