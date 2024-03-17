@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoYbNSLDPsFPF2yc-Cnyfjg-t500x500.jpg">](https://soundcloud.com/user-320945381/tie-wrap-x-81zaki-jersey?in=saxurn/sets/tmp/)
 
-**Artist**: bino's bin 
+**Artist**: Tie Wrap 
 
-**Track**: Solastalgia
+**Track**: Jersey Lullaby (ft. 81zaki)
 
-Last updated at 03/17/2024 11:09
+Last updated at 03/17/2024 11:14
