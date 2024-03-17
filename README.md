@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kUvpHnZZisWc4Oam-7WsL5A-t500x500.jpg">](https://soundcloud.com/neoravenation/fractures-in-time-closer?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1Ju6bAjOf8xpFbQ-3wFYbg-t500x500.jpg">](https://soundcloud.com/luca-t-1/luca-testa-bomber-hitak-wake-up?in=saxurn/sets/w-stream)
 
-**Artist**: Neorave Nation 
+**Artist**: Luca Testa 
 
-**Track**: Fractures In Time - Closer
+**Track**: Luca Testa X Bomber X Hitak - Wake Up
 
-Last updated at 03/17/2024 11:59
+Last updated at 03/17/2024 13:59
