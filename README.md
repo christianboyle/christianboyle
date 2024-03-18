@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQbhfmMeCskszkzz-wBrFQQ-t500x500.jpg">](https://soundcloud.com/s3rl/mtc2-atef-remix?in=s3rl/sets/remix-ep-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4uQwKAu3yjr5y1k-Enc4jw-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-mrgnstrn-blackout-edit)
 
-**Artist**: S3RL 
+**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: MTC2 (Atef Remix) - S3RL
+**Track**: [PREMIERE] mrgnstrn - Blackout (Edit)
 
-Last updated at 03/18/2024 08:51
+Last updated at 03/18/2024 08:53
