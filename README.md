@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7VzXTurmFOlAsKy-HMyJiQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-wherever-you-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQbhfmMeCskszkzz-wBrFQQ-t500x500.jpg">](https://soundcloud.com/s3rl/mtc2-atef-remix?in=s3rl/sets/remix-ep-19)
 
-**Artist**: Dirty Workz 
+**Artist**: S3RL 
 
-**Track**: Solstice - Wherever You Go
+**Track**: MTC2 (Atef Remix) - S3RL
 
-Last updated at 03/18/2024 08:50
+Last updated at 03/18/2024 08:51
