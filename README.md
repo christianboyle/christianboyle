@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ChpEeuI4OnXsGrE0-mLNDZw-t500x500.jpg">](https://soundcloud.com/radarlicht7/radarlicht-hydra-for-better-or-worse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpJlHsHSSgBJ4Ho4-wGNU6A-t500x500.jpg">](https://soundcloud.com/youngburial/urdead2me-w-jakkyboi)
 
-**Artist**: Radarlicht 
+**Artist**: fats'e 
 
-**Track**: Radarlicht , Hydra - For Better Or Worse
+**Track**: URDEAD2ME w/ jakkyboi
 
-Last updated at 03/18/2024 08:58
+Last updated at 03/18/2024 08:59
