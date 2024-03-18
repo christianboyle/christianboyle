@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ey5KWx6TvAAmesGh-ziJf2A-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/goblin-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOczzNLzD3BaoaLz-WzEoCA-t500x500.jpg">](https://soundcloud.com/gurfmusic/stroll)
 
-**Artist**: shadow wizard money gang 
+**Artist**: GURF 
 
-**Track**: Goblin Anthem ft CHXPO
+**Track**: GURF - STROLL
 
-Last updated at 03/18/2024 13:22
+Last updated at 03/18/2024 14:48
