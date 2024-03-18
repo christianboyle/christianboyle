@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oF9VQyzSy29SHdoI-iPc5Wg-t500x500.jpg">](https://soundcloud.com/burmanboys/pull-me-out-of-this-burman-boys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ChpEeuI4OnXsGrE0-mLNDZw-t500x500.jpg">](https://soundcloud.com/radarlicht7/radarlicht-hydra-for-better-or-worse)
 
-**Artist**: BURMAN BOYS 
+**Artist**: Radarlicht 
 
-**Track**: DELILAH (PULL ME OUT OF THIS) [BURMAN BOYS REMIX]
+**Track**: Radarlicht , Hydra - For Better Or Worse
 
-Last updated at 03/18/2024 08:57
+Last updated at 03/18/2024 08:58
