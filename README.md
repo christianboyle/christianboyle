@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4uQwKAu3yjr5y1k-Enc4jw-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-mrgnstrn-blackout-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r1SUp1flGwpc9duE-QfPTqg-t500x500.jpg">](https://soundcloud.com/on-rotation-music/va-genetic-memories-vol-2-onro06-clips)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: On Rotation 
 
-**Track**: [PREMIERE] mrgnstrn - Blackout (Edit)
+**Track**: VA - Genetic Memories Vol. 2 [ONRO06] - CLIPS
 
-Last updated at 03/18/2024 08:53
+Last updated at 03/18/2024 08:54
