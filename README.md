@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSKCoY98e0IDseKp-z82fpQ-t500x500.jpg">](https://soundcloud.com/speedservices/djloser-waxxx-hypnagogia?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoYbNSLDPsFPF2yc-Cnyfjg-t500x500.jpg">](https://soundcloud.com/user-320945381/tie-wrap-x-81zaki-jersey?in=saxurn/sets/tmp/)
 
-**Artist**: Speed Services™ 
+**Artist**: Tie Wrap 
 
-**Track**: djloser + vaxxx - hypnagogia
+**Track**: Jersey Lullaby (ft. 81zaki)
 
-Last updated at 03/18/2024 16:44
+Last updated at 03/18/2024 16:47
