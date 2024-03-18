@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4ZJ75RjlEQuacIJ-OBA7WQ-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-a-state-of-trance-rotterdam-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ey5KWx6TvAAmesGh-ziJf2A-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/goblin-anthem)
 
-**Artist**: Ben Nicky 
+**Artist**: shadow wizard money gang 
 
-**Track**: Ben Nicky Live @ A State Of Trance, Rotterdam 2024
+**Track**: Goblin Anthem ft CHXPO
 
-Last updated at 03/18/2024 11:00
+Last updated at 03/18/2024 13:22
