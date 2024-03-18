@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxGVUllErUxRbCkG-lhoCVg-t500x500.jpg">](https://soundcloud.com/wearelostkings/heartless?in=saxurn/sets/w-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7VzXTurmFOlAsKy-HMyJiQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-wherever-you-go)
 
-**Artist**: Lost Kings 
+**Artist**: Dirty Workz 
 
-**Track**: Kanye West - Heartless (Lost Kings Remix)
+**Track**: Solstice - Wherever You Go
 
-Last updated at 03/17/2024 14:54
+Last updated at 03/18/2024 08:50
