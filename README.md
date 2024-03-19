@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7VzXTurmFOlAsKy-HMyJiQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-wherever-you-go?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/tmp/)
 
-**Artist**: Dirty Workz 
+**Artist**: Quality Goods Records 
 
-**Track**: Solstice - Wherever You Go
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/19/2024 11:06
+Last updated at 03/19/2024 11:15
