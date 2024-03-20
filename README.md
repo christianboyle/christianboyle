@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIw2KiIkjCa1xyWH-7nBbpw-t500x500.jpg">](https://soundcloud.com/youngpirelli/lil-xelly-soudiere-xrrtified-posse-2-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zm8yhfpdRkWMC1FT-XzfDzA-t500x500.jpg">](https://soundcloud.com/justicehardcore/who-knows?in=justicehardcore/sets/new-justice-hardcore-releases)
 
-**Artist**: SOUDIERE 
+**Artist**: Justice Hardcore 
 
-**Track**: LIL XELLY & SOUDIERE - XRRTIFIED POSSE 2 (Full Stream)
+**Track**: Who Knows - Come Alive (OUT NOW)
 
-Last updated at 03/20/2024 08:06
+Last updated at 03/20/2024 08:07
