@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rw8kaXKHzM1TXp3-ByokPw-t500x500.jpg">](https://soundcloud.com/sachsentrance/catperson-undercover-aqua001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BrKsxWOGSggox3wJ-zzvr0A-t500x500.jpg">](https://soundcloud.com/ashershashaty/eyes-with-whoskevin)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Asher Shashaty 
 
-**Track**: Catperson - Undercover (AQUA001)
+**Track**: EYES with whoskevin?
 
-Last updated at 03/20/2024 13:48
+Last updated at 03/20/2024 13:49
