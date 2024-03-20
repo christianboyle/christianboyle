@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YGJA6BNZKcpfa5Op-3CySyA-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/the-rave-is-here)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIw2KiIkjCa1xyWH-7nBbpw-t500x500.jpg">](https://soundcloud.com/youngpirelli/lil-xelly-soudiere-xrrtified-posse-2-full-stream)
 
-**Artist**: Mandidextrous 
+**Artist**: SOUDIERE 
 
-**Track**: The Rave
+**Track**: LIL XELLY & SOUDIERE - XRRTIFIED POSSE 2 (Full Stream)
 
-Last updated at 03/20/2024 08:05
+Last updated at 03/20/2024 08:06
