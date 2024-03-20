@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MoYbNSLDPsFPF2yc-Cnyfjg-t500x500.jpg">](https://soundcloud.com/user-320945381/tie-wrap-x-81zaki-jersey?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yKcEk5P0jTlaUUP-Y8zMjQ-t500x500.jpg">](https://soundcloud.com/stemacmusic/ste-mac-x-simon-jay-we-got-something-radio?in=saxurn/sets/chain-swangin)
 
-**Artist**: Tie Wrap 
+**Artist**: Ste Mac 
 
-**Track**: Jersey Lullaby (ft. 81zaki)
+**Track**: Ste Mac X Simon Jay - We Got Something (Original Mix)
 
-Last updated at 03/20/2024 08:43
+Last updated at 03/20/2024 08:58
