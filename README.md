@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7VzXTurmFOlAsKy-HMyJiQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-wherever-you-go?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1O3PFjRoztNf-0-t500x500.jpg">](https://soundcloud.com/cadmiumsound/still-alive-voyager-remix-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Cadmium 
 
-**Track**: Solstice - Wherever You Go
+**Track**: Still Alive (Voyager Remix)
 
-Last updated at 03/19/2024 11:52
+Last updated at 03/20/2024 06:52
