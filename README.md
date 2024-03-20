@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzQ63i0W7fchwx9N-Y37dtg-t500x500.jpg">](https://soundcloud.com/mantra_sounds/27-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EFPLEyYlqO6cqqWE-cgsJqw-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/crushed-candy-in-my-heart-1)
 
-**Artist**: Mantra Sounds 
+**Artist**: Chill Planet 
 
-**Track**: 27 Club
+**Track**: Crushed Candy - In My Heart
 
-Last updated at 03/20/2024 08:03
+Last updated at 03/20/2024 08:04
