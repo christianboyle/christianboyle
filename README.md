@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFN4zg64nTjSVFtS-AZqUAA-t500x500.jpg">](https://soundcloud.com/ayyofree/withinsanity-womp?in=ayyofree/sets/withinsanity-womp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGK4j7PkkfyryyxM-zdskYQ-t500x500.jpg">](https://soundcloud.com/cntrlla/derealization)
 
-**Artist**: AY YO TRIP! 
+**Artist**: Cntrlla 
 
-**Track**: Withinsanity - Womp
+**Track**: DEREALIZATION
 
-Last updated at 03/20/2024 08:01
+Last updated at 03/20/2024 08:02
