@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174139229-p9tavr-t500x500.jpg">](https://soundcloud.com/auscore/auscore-sunshine-fc-justice-hardcore?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion?in=saxurn/sets/chain-swangin)
 
-**Artist**: Sam Auscore 
+**Artist**: Scantraxx 
 
-**Track**: Auscore - Sunshine (f/c Justice Hardcore)
+**Track**: Adrenalize - Illusion
 
-Last updated at 03/20/2024 09:07
+Last updated at 03/20/2024 09:10
