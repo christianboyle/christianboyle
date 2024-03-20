@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-khYhDxgMSJT198sf-CwaCUw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-031-hypergeneration-candyland?in=saxurn/sets/chain-swangin)
 
-**Artist**: bino's bin 
+**Artist**: Quality Goods Records 
 
-**Track**: Solastalgia
+**Track**: QGR-031 | Hypergeneration - Candyland
 
-Last updated at 03/20/2024 08:23
+Last updated at 03/20/2024 08:40
