@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WxpK92uPNmyOAwh6-aDy4MA-t500x500.jpg">](https://soundcloud.com/dvdmtl/without-you-1?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSKCoY98e0IDseKp-z82fpQ-t500x500.jpg">](https://soundcloud.com/speedservices/djloser-waxxx-hypnagogia?in=saxurn/sets/chain-swangin)
 
-**Artist**: D V D 
+**Artist**: Speed Services™ 
 
-**Track**: Without You
+**Track**: djloser + vaxxx - hypnagogia
 
-Last updated at 03/20/2024 08:16
+Last updated at 03/20/2024 08:17
