@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HSKCoY98e0IDseKp-z82fpQ-t500x500.jpg">](https://soundcloud.com/speedservices/djloser-waxxx-hypnagogia?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie?in=saxurn/sets/chain-swangin)
 
-**Artist**: Speed Services™ 
+**Artist**: bino's bin 
 
-**Track**: djloser + vaxxx - hypnagogia
+**Track**: Solastalgia
 
-Last updated at 03/20/2024 08:17
+Last updated at 03/20/2024 08:23
