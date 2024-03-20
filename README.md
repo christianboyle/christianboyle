@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lm9ojKnzJkiLWFlL-1mCF6A-t500x500.jpg">](https://soundcloud.com/scantraxx/adrenalize-illusion?in=saxurn/sets/chain-swangin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7VzXTurmFOlAsKy-HMyJiQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/solstice-wherever-you-go?in=saxurn/sets/chain-swangin)
 
-**Artist**: Scantraxx 
+**Artist**: Dirty Workz 
 
-**Track**: Adrenalize - Illusion
+**Track**: Solstice - Wherever You Go
 
-Last updated at 03/20/2024 09:10
+Last updated at 03/20/2024 09:13
