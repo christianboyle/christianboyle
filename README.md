@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000174139229-p9tavr-t500x500.jpg">](https://soundcloud.com/auscore/auscore-sunshine-fc-justice-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yKcEk5P0jTlaUUP-Y8zMjQ-t500x500.jpg">](https://soundcloud.com/stemacmusic/ste-mac-x-simon-jay-we-got-something-radio)
 
-**Artist**: Sam Auscore 
+**Artist**: Ste Mac 
 
-**Track**: Auscore - Sunshine (f/c Justice Hardcore)
+**Track**: Ste Mac X Simon Jay - We Got Something (Original Mix)
 
-Last updated at 03/20/2024 11:08
+Last updated at 03/20/2024 11:10
