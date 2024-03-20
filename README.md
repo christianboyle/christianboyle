@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qs771FekPg2F9Ykd-BzNl6A-t500x500.jpg">](https://soundcloud.com/blakeskinz/skinz-deep-fake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFN4zg64nTjSVFtS-AZqUAA-t500x500.jpg">](https://soundcloud.com/ayyofree/withinsanity-womp?in=ayyofree/sets/withinsanity-womp)
 
-**Artist**: SkInZ 
+**Artist**: AY YO TRIP! 
 
-**Track**: SkInZ - Deep Fake (FREE DOWNLOAD)
+**Track**: Withinsanity - Womp
 
-Last updated at 03/20/2024 08:00
+Last updated at 03/20/2024 08:01
