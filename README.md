@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVZo6CqCnhamJBYO-2Ays6g-t500x500.jpg">](https://soundcloud.com/lobsta-b/perfect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9CXHTnAogO8lg7td-stpOwQ-t500x500.jpg">](https://soundcloud.com/tanfa/beyonce-run-the-world-rmx)
 
-**Artist**: LOBSTA B 
+**Artist**: TANFA 
 
-**Track**: MASON VS PRINCESS SUPERSTAR - PERFECT (EXCEEDER) [LOBSTA B REMIX]
+**Track**: BEYONCE - RUN THE WORLD (TANFA RMX)
 
-Last updated at 03/20/2024 10:46
+Last updated at 03/20/2024 10:49
