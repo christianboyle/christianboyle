@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKmTfiKrafz3s1fG-ifFdLg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/triiipl3-inc-ft-lin-was-here-in-command-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyS7kyVYdRUzel82-kqdRVA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/ecstatic-audiotricz-again-again)
 
 **Artist**: Dirty Workz 
 
-**Track**: TRIIIPL3 INC. ft. Lin was here - In Command (DWX Copyright Free)
+**Track**: Ecstatic & Audiotricz - Again & Again
 
-Last updated at 03/21/2024 13:24
+Last updated at 03/21/2024 13:25
