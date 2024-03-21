@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YGJA6BNZKcpfa5Op-3CySyA-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/the-rave-is-here?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVZo6CqCnhamJBYO-2Ays6g-t500x500.jpg">](https://soundcloud.com/lobsta-b/perfect?in=saxurn/sets/tmp)
 
-**Artist**: Mandidextrous 
+**Artist**: LOBSTA B 
 
-**Track**: The Rave
+**Track**: MASON VS PRINCESS SUPERSTAR - PERFECT (EXCEEDER) [LOBSTA B REMIX]
 
-Last updated at 03/21/2024 09:33
+Last updated at 03/21/2024 09:38
