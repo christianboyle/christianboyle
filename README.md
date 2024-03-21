@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-godNtExbySCGvPlB-yagqLA-t500x500.jpg">](https://soundcloud.com/scantraxx/demi-kanon-on-the-edge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QwDktky6LaJivl4M-xBubPQ-t500x500.jpg">](https://soundcloud.com/user-258079113/lights-dario-valli-remix)
 
-**Artist**: Scantraxx 
+**Artist**: Dario Valli Remixes/Mashups 
 
-**Track**: Demi Kanon - On The Edge
+**Track**: Lights (Dario Valli Remix)
 
-Last updated at 03/21/2024 08:51
+Last updated at 03/21/2024 08:52
