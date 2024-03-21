@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pUIUYk5qr7H0KwqA-3ucw5w-t500x500.jpg">](https://soundcloud.com/gseppmusic/back-at-it-gunna-gsepp-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hZ6hwk2ul7DX1rYp-6V8TwQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-l-v-v-n-here-ggn004)
 
-**Artist**: GSEPP 
+**Artist**: HATE 
 
-**Track**: Back At It - Gunna ( GSEPP REMIX )
+**Track**: Premiere: L Ʌ V Σ N - Here [GGN004]
 
-Last updated at 03/21/2024 08:47
+Last updated at 03/21/2024 08:48
