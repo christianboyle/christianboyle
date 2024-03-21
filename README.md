@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugHBcwiHNK7aAzeo-h8aUig-t500x500.jpg">](https://soundcloud.com/denile/axel-gear-gimmix-killer-bounce-heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqLXy1TSA2ouQopF-DYpdug-t500x500.jpg">](https://soundcloud.com/ilian-tape/it062-laksa-voices)
 
-**Artist**: Denile 
+**Artist**: ILIAN TAPE 
 
-**Track**: Axel Gear & Gimmix - 'Killer' [Bounce Heaven]
+**Track**: IT062 LAKSA - VOICES
 
-Last updated at 03/21/2024 08:49
+Last updated at 03/21/2024 08:50
