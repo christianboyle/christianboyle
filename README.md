@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3ryF6DAe8y1vD8v-5BHhfg-t500x500.jpg">](https://soundcloud.com/320rip/bk-beats-cash-bandicoot-let-it-go?in=saxurn/sets/drip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKmTfiKrafz3s1fG-ifFdLg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/triiipl3-inc-ft-lin-was-here-in-command-dwx-copyright-free)
 
-**Artist**: 320 RIP 
+**Artist**: Dirty Workz 
 
-**Track**: bk beats & ca$h bandicoot - Let It Go
+**Track**: TRIIIPL3 INC. ft. Lin was here - In Command (DWX Copyright Free)
 
-Last updated at 03/21/2024 10:57
+Last updated at 03/21/2024 13:24
