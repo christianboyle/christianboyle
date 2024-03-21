@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hZ6hwk2ul7DX1rYp-6V8TwQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-l-v-v-n-here-ggn004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugHBcwiHNK7aAzeo-h8aUig-t500x500.jpg">](https://soundcloud.com/denile/axel-gear-gimmix-killer-bounce-heaven)
 
-**Artist**: HATE 
+**Artist**: Denile 
 
-**Track**: Premiere: L Ʌ V Σ N - Here [GGN004]
+**Track**: Axel Gear & Gimmix - 'Killer' [Bounce Heaven]
 
-Last updated at 03/21/2024 08:48
+Last updated at 03/21/2024 08:49
