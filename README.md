@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyS7kyVYdRUzel82-kqdRVA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/ecstatic-audiotricz-again-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WxpK92uPNmyOAwh6-aDy4MA-t500x500.jpg">](https://soundcloud.com/dvdmtl/without-you-1?in=saxurn/sets/drip-1)
 
-**Artist**: Dirty Workz 
+**Artist**: D V D 
 
-**Track**: Ecstatic & Audiotricz - Again & Again
+**Track**: Without You
 
-Last updated at 03/21/2024 13:25
+Last updated at 03/21/2024 14:47
