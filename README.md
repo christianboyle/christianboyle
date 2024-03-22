@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-btVhAOGEp7ksCrhh-6tEjWA-t500x500.jpg">](https://soundcloud.com/holypriest_music/bennett-vois-sur-ton-chemin-holy-priest-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eXtXzyX04UPUnewQ-pllYIQ-t500x500.jpg">](https://soundcloud.com/holypriest_music/holy-priest-elmefti-xxx)
 
 **Artist**: HOLY PRIEST 
 
-**Track**: Bennett - Vois sur ton chemin (Holy Priest Hard Techno Edit)
+**Track**: Holy Priest & elMefti - XXX
 
-Last updated at 03/22/2024 09:43
+Last updated at 03/22/2024 09:46
