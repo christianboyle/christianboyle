@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRMikqTamNimhqyQ-ZN95yw-t500x500.jpg">](https://soundcloud.com/holypriest_music/holy-priest-phone-break)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRMikqTamNimhqyQ-ZN95yw-t500x500.jpg">](https://soundcloud.com/holypriest_music/holy-priest-dont-give-a-fuck)
 
 **Artist**: HOLY PRIEST 
 
-**Track**: Holy Priest - Phone Breaker
+**Track**: Holy Priest - Don't Give A FUCK
 
-Last updated at 03/22/2024 09:36
+Last updated at 03/22/2024 09:38
