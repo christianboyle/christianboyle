@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WxpK92uPNmyOAwh6-aDy4MA-t500x500.jpg">](https://soundcloud.com/dvdmtl/without-you-1?in=saxurn/sets/drip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YGJA6BNZKcpfa5Op-3CySyA-t500x500.jpg">](https://soundcloud.com/mandidextroustnt/the-rave-is-here?in=saxurn/sets/drip-1)
 
-**Artist**: D V D 
+**Artist**: Mandidextrous 
 
-**Track**: Without You
+**Track**: The Rave
 
-Last updated at 03/22/2024 12:59
+Last updated at 03/22/2024 13:03
