@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcfDCRy10wR9LV8E-ZOlUYA-t500x500.jpg">](https://soundcloud.com/holypriest_music/knife-party-internet-friends-holy-priest-elmefti-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRMikqTamNimhqyQ-ZN95yw-t500x500.jpg">](https://soundcloud.com/holypriest_music/holy-priest-shitty-kick?in=holypriest_music/sets/shitty-kicks-ep)
 
 **Artist**: HOLY PRIEST 
 
-**Track**: Knife Party - Internet Friends (Holy Priest & elMefti - Hard Techno Edit)
+**Track**: Holy Priest - Shitty Kicks
 
-Last updated at 03/22/2024 09:22
+Last updated at 03/22/2024 09:24
