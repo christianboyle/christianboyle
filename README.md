@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRMikqTamNimhqyQ-ZN95yw-t500x500.jpg">](https://soundcloud.com/holypriest_music/holy-priest-dont-give-a-fuck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-btVhAOGEp7ksCrhh-6tEjWA-t500x500.jpg">](https://soundcloud.com/holypriest_music/bennett-vois-sur-ton-chemin-holy-priest-edit)
 
 **Artist**: HOLY PRIEST 
 
-**Track**: Holy Priest - Don't Give A FUCK
+**Track**: Bennett - Vois sur ton chemin (Holy Priest Hard Techno Edit)
 
-Last updated at 03/22/2024 09:38
+Last updated at 03/22/2024 09:43
