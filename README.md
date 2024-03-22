@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZsfW7VKmo7mIqyYY-N4LCug-t500x500.jpg">](https://soundcloud.com/nightmoderecs/silence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sBa8iE9A6MCh4fkd-g6IWQg-t500x500.jpg">](https://soundcloud.com/djryanganar/ryan-ganar-i-believe-in-you-preview-out-now)
 
-**Artist**: NIGHTMODE 
+**Artist**: Ryan Ganar 
 
-**Track**: borne - Silence
+**Track**: Ryan Ganar - I Believe In You (Preview) [OUT NOW]
 
-Last updated at 03/22/2024 14:31
+Last updated at 03/22/2024 14:32
