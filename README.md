@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8VDMn2GYFmf9iP2D-i3yibQ-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/phydra-thew-chopping-block)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZprbiBpMJ84f8If2-fQYGRA-t500x500.jpg">](https://soundcloud.com/hayden-brady-634520601/nathan-dawe-we-aint-here-for-long-thxndrz-remix)
 
-**Artist**: Wormhole Music Group 
+**Artist**: THXNDRZ 
 
-**Track**: Phydra & Thew - Chopping Block
+**Track**: Nathan Dawe - We Ain't Here For Long (Thxndrz Remix)
 
-Last updated at 03/23/2024 08:55
+Last updated at 03/23/2024 08:57
