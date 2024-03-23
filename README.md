@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZprbiBpMJ84f8If2-fQYGRA-t500x500.jpg">](https://soundcloud.com/hayden-brady-634520601/nathan-dawe-we-aint-here-for-long-thxndrz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ivezzy7S5suxkpZY-fCKPtw-t500x500.jpg">](https://soundcloud.com/byxco/martin-garrix-third-party-feat-oaks-declan-j-donovan-carry-you-byxco-remix)
 
-**Artist**: THXNDRZ 
+**Artist**: BYXCO 
 
-**Track**: Nathan Dawe - We Ain't Here For Long (Thxndrz Remix)
+**Track**: Martin Garrix & Third Party Feat. Oaks & Declan J Donovan - Carry You (BYXCO Remix)
 
-Last updated at 03/23/2024 08:57
+Last updated at 03/23/2024 12:07
