@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDQEpjyiYSoiCmyW-CcaDvw-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/clear-blue-waters-mccrea-rework-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z4oJWtAO19Tv1qYj-LZvMJQ-t500x500.jpg">](https://soundcloud.com/jameskaduro/angeljameskaduroremix)
 
-**Artist**: MCCREA 
+**Artist**: James Kaduro 
 
-**Track**: Clear Blue Water (MCCREA Rework) [FREE DL]
+**Track**: Shaggy - Angel (James Kaduro Remix) *FILTERED* *DL FOR CLEAN VERSION*
 
-Last updated at 03/23/2024 12:11
+Last updated at 03/23/2024 12:12
