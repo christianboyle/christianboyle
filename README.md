@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbgIbB0FTQq7gTjp-OMiiIw-t500x500.png">](https://soundcloud.com/7svmzatk3udt/bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDQEpjyiYSoiCmyW-CcaDvw-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/clear-blue-waters-mccrea-rework-free-dl)
 
-**Artist**: JOODY 
+**Artist**: MCCREA 
 
-**Track**: BOUNCE!
+**Track**: Clear Blue Water (MCCREA Rework) [FREE DL]
 
-Last updated at 03/23/2024 12:10
+Last updated at 03/23/2024 12:11
