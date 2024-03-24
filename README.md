@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZrfrqmHby6zq920-CXCgSw-t500x500.jpg">](https://soundcloud.com/danlrk/summer-nights-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDQEpjyiYSoiCmyW-CcaDvw-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/clear-blue-waters-mccrea-rework-free-dl?in=saxurn/sets/tmp/)
 
-**Artist**: Dan Larkin 
+**Artist**: MCCREA 
 
-**Track**: Summer Nights (Dan Larkin Remix)
+**Track**: Clear Blue Water (MCCREA Rework) [FREE DL]
 
-Last updated at 03/24/2024 09:32
+Last updated at 03/24/2024 09:35
