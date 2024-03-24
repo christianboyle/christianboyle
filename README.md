@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtSOeMU8NWHFpzFq-fRRZhA-t500x500.jpg">](https://soundcloud.com/drakkofficial/take-me-away-drakk-edit-1?in=saxurn/sets/contour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugLrQyR57TGWNVP9-HIjxOw-t500x500.jpg">](https://soundcloud.com/hexacube/cheerleader-hexacube-bootleg?in=saxurn/sets/contour)
 
-**Artist**: 𝐃𝐑𝐀𝐊𝐊 
+**Artist**: Hexacube 
 
-**Track**: Take Me Away (DRAKK EDIT)
+**Track**: Porter Robinson - Cheerleader (Hexacube's HARDCORE-style Bootleg)
 
-Last updated at 03/24/2024 10:41
+Last updated at 03/24/2024 10:47
