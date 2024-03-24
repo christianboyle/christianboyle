@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wOzzyDrRv2SO2F31-s8Xkag-t500x500.jpg">](https://soundcloud.com/wearerivid/rebuke-storm-storm-2024-rivid-a-bit-harder-edit2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x1CP2b9ANCWk-0-t500x500.jpg">](https://soundcloud.com/charkomusic/sick-as-a-dog)
 
-**Artist**: RiVid 
+**Artist**: Charko 
 
-**Track**: Rebuke, Storm - Storm 2024 (RiVid A Bit Harder Edit)
+**Track**: sick as a dog
 
-Last updated at 03/24/2024 08:20
+Last updated at 03/24/2024 08:21
