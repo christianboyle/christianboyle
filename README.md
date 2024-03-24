@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NGp7Ra63SCRBL80s-P2qyfQ-t500x500.jpg">](https://soundcloud.com/traptownrecords/forever-promise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szi7HfHU2KVZJtSO-Kadb0g-t500x500.jpg">](https://soundcloud.com/prodbyobey/obey-mystik-delusion-feat-devilish-trio)
 
-**Artist**: Trap Town Records 
+**Artist**: obey 🌠 
 
-**Track**: Hybrid Noise - Forever Promise
+**Track**: obey & MYSTIK - delusion (feat. Devilish Trio)
 
-Last updated at 03/24/2024 08:17
+Last updated at 03/24/2024 08:18
