@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szi7HfHU2KVZJtSO-Kadb0g-t500x500.jpg">](https://soundcloud.com/prodbyobey/obey-mystik-delusion-feat-devilish-trio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZrfrqmHby6zq920-CXCgSw-t500x500.jpg">](https://soundcloud.com/danlrk/summer-nights-remix)
 
-**Artist**: obey 🌠 
+**Artist**: Dan Larkin 
 
-**Track**: obey & MYSTIK - delusion (feat. Devilish Trio)
+**Track**: Summer Nights (Dan Larkin Remix)
 
-Last updated at 03/24/2024 08:18
+Last updated at 03/24/2024 08:19
