@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489044022-9diwlo-t500x500.jpg">](https://soundcloud.com/mechatok/bladee-x-mechatok-all-i-want)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ivezzy7S5suxkpZY-fCKPtw-t500x500.jpg">](https://soundcloud.com/byxco/martin-garrix-third-party-feat-oaks-declan-j-donovan-carry-you-byxco-remix)
 
-**Artist**: mechatok 
+**Artist**: BYXCO 
 
-**Track**: Bladee x Mechatok - All I Want
+**Track**: Martin Garrix & Third Party Feat. Oaks & Declan J Donovan - Carry You (BYXCO Remix)
 
-Last updated at 03/24/2024 08:57
+Last updated at 03/24/2024 08:59
