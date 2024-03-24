@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z4oJWtAO19Tv1qYj-LZvMJQ-t500x500.jpg">](https://soundcloud.com/jameskaduro/angeljameskaduroremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XlPekdq5up59TpyR-RhJrjw-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/paul-gannon-no-regrets-feat-elle-mariachi-teaser)
 
-**Artist**: James Kaduro 
+**Artist**: Paul Gannon 
 
-**Track**: Shaggy - Angel (James Kaduro Remix) *FILTERED* *DL FOR CLEAN VERSION*
+**Track**: Paul Gannon - No Regrets Feat. Elle Mariachi (Teaser)
 
-Last updated at 03/23/2024 12:12
+Last updated at 03/24/2024 08:04
