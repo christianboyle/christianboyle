@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000416251914-gqeq0c-t500x500.jpg">](https://soundcloud.com/djhimera/eternal-life-hearing-a-voice-in-crystal-stasis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489044022-9diwlo-t500x500.jpg">](https://soundcloud.com/mechatok/bladee-x-mechatok-all-i-want)
 
-**Artist**: Himera 
+**Artist**: mechatok 
 
-**Track**: Eternal Life (Hearing a Voice In Crystal Stasis)
+**Track**: Bladee x Mechatok - All I Want
 
-Last updated at 03/24/2024 09:14
+Last updated at 03/24/2024 09:20
