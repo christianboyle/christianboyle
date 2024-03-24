@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489044022-9diwlo-t500x500.jpg">](https://soundcloud.com/mechatok/bladee-x-mechatok-all-i-want?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcfDCRy10wR9LV8E-ZOlUYA-t500x500.jpg">](https://soundcloud.com/holypriest_music/knife-party-internet-friends-holy-priest-elmefti-hard-techno-edit?in=saxurn/sets/tmp)
 
-**Artist**: mechatok 
+**Artist**: HOLY PRIEST 
 
-**Track**: Bladee x Mechatok - All I Want
+**Track**: Knife Party - Internet Friends (Holy Priest & elMefti - Hard Techno Edit)
 
-Last updated at 03/24/2024 09:59
+Last updated at 03/24/2024 10:01
