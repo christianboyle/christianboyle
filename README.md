@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcfDCRy10wR9LV8E-ZOlUYA-t500x500.jpg">](https://soundcloud.com/holypriest_music/knife-party-internet-friends-holy-priest-elmefti-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZrfrqmHby6zq920-CXCgSw-t500x500.jpg">](https://soundcloud.com/danlrk/summer-nights-remix?in=saxurn/sets/tmp/)
 
-**Artist**: HOLY PRIEST 
+**Artist**: Dan Larkin 
 
-**Track**: Knife Party - Internet Friends (Holy Priest & elMefti - Hard Techno Edit)
+**Track**: Summer Nights (Dan Larkin Remix)
 
-Last updated at 03/24/2024 09:31
+Last updated at 03/24/2024 09:32
