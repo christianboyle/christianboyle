@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bO6GHimbxOZ1-0-t500x500.jpg">](https://soundcloud.com/panteros666/ultra-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000416251914-gqeq0c-t500x500.jpg">](https://soundcloud.com/djhimera/eternal-life-hearing-a-voice-in-crystal-stasis)
 
-**Artist**: Panteros666 
+**Artist**: Himera 
 
-**Track**: Ultra Ray
+**Track**: Eternal Life (Hearing a Voice In Crystal Stasis)
 
-Last updated at 03/24/2024 08:47
+Last updated at 03/24/2024 08:52
