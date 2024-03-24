@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lgK45eSGzuSrz6G-s3BWMQ-t500x500.jpg">](https://soundcloud.com/lowfyemusic/vision2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZrfrqmHby6zq920-CXCgSw-t500x500.jpg">](https://soundcloud.com/danlrk/summer-nights-remix)
 
-**Artist**: LOWFYE 
+**Artist**: Dan Larkin 
 
-**Track**: @ VISION NYE 2023
+**Track**: Summer Nights (Dan Larkin Remix)
 
-Last updated at 03/24/2024 08:23
+Last updated at 03/24/2024 08:24
