@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugLrQyR57TGWNVP9-HIjxOw-t500x500.jpg">](https://soundcloud.com/hexacube/cheerleader-hexacube-bootleg?in=saxurn/sets/contour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IcfDCRy10wR9LV8E-ZOlUYA-t500x500.jpg">](https://soundcloud.com/holypriest_music/knife-party-internet-friends-holy-priest-elmefti-hard-techno-edit?in=saxurn/sets/contour)
 
-**Artist**: Hexacube 
+**Artist**: HOLY PRIEST 
 
-**Track**: Porter Robinson - Cheerleader (Hexacube's HARDCORE-style Bootleg)
+**Track**: Knife Party - Internet Friends (Holy Priest & elMefti - Hard Techno Edit)
 
-Last updated at 03/25/2024 12:54
+Last updated at 03/25/2024 12:59
