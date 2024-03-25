@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9PCrynPtYHKicFN-E96Lrg-t500x500.jpg">](https://soundcloud.com/jakazid/rat-stack-3-23-02-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SAcML1rENeSWwEfR-e1R0Sg-t500x500.jpg">](https://soundcloud.com/sadbois_official/love-letter-x-bringing-me-back-sadbois-rocktronic-edit-dl)
 
-**Artist**: JAKAZiD 
+**Artist**: SadBois 🦋 
 
-**Track**: JAKAZiD @ Rat Stack 3 23-02-2024
+**Track**: Love Letter x Bringing Me Back (SadBois 'Rocktronic' Edit)
 
-Last updated at 03/25/2024 08:23
+Last updated at 03/25/2024 08:24
