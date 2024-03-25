@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4KA7e6fzdTzB8N1-I9CCyg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/legacy-curlyheads-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PS7RkwJcVsyirPfR-u2zb2Q-t500x500.jpg">](https://soundcloud.com/luhvmusic/good-things)
 
-**Artist**: GOLD DiGGER [RECORDS] 
+**Artist**: Luhv 
 
-**Track**: Legacy & Curlyheads - Bounce [Gold Digger]
+**Track**: GOOD THINGS
 
-Last updated at 03/25/2024 08:21
+Last updated at 03/25/2024 08:22
