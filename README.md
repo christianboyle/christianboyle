@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzKco53q4c2yygkP-N1CDQA-t500x500.jpg">](https://soundcloud.com/michaelparkermusic/pre-workout-essentials-v6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekRoFCnmnpXzRuty-i6yznA-t500x500.jpg">](https://soundcloud.com/cov3r1st/iaw)
 
-**Artist**: Michael Parker 
+**Artist**: CØV3R1st 
 
-**Track**: PRE WORKOUT ESSENTIALS V6
+**Track**: CØV3R1st + HOMINID & Margad - I Ain't Worried | FREE DOWNLOAD
 
-Last updated at 03/25/2024 08:10
+Last updated at 03/25/2024 08:11
