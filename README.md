@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tSMONM1Uzy4esUQI-1tszCA-t500x500.jpg">](https://soundcloud.com/dvdmtl/1999-d-v-d-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4NqXzARD1lMueXNQ-pIyyfA-t500x500.jpg">](https://soundcloud.com/trapsntrees/ecstasy-remix)
 
-**Artist**: D V D 
+**Artist**: Traps N Trees 
 
-**Track**: 1999 (D V D HARD EDIT)
+**Track**: SUICIDAL IDOL- ECSTASY Traps N Trees Philly Rave Remix (JERSEYCLUB)
 
-Last updated at 03/25/2024 08:12
+Last updated at 03/25/2024 08:16
