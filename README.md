@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekRoFCnmnpXzRuty-i6yznA-t500x500.jpg">](https://soundcloud.com/cov3r1st/iaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tSMONM1Uzy4esUQI-1tszCA-t500x500.jpg">](https://soundcloud.com/dvdmtl/1999-d-v-d-hard-edit)
 
-**Artist**: CØV3R1st 
+**Artist**: D V D 
 
-**Track**: CØV3R1st + HOMINID & Margad - I Ain't Worried | FREE DOWNLOAD
+**Track**: 1999 (D V D HARD EDIT)
 
-Last updated at 03/25/2024 08:11
+Last updated at 03/25/2024 08:12
