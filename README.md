@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z5kxtO5P4LDQeJ-dw3mnQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/austin-bones-coastr-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xl9hBZaQcXlFMEJj-dEeDwQ-t500x500.jpg">](https://soundcloud.com/tsoumusic/u-dont-need-me?in=tsoumusic/sets/still-iv)
 
-**Artist**: COASTR. 
+**Artist**: tsou 
 
-**Track**: Austin Bones (COASTR. Edit) [Dasha vs. Galantis, One Republic, shndo]
+**Track**: u dont need me
 
-Last updated at 03/25/2024 13:04
+Last updated at 03/25/2024 13:05
