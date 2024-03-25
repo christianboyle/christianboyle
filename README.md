@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugLrQyR57TGWNVP9-HIjxOw-t500x500.jpg">](https://soundcloud.com/hexacube/cheerleader-hexacube-bootleg?in=saxurn/sets/contour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AkteuoaoqG642Jus-WoW8Fg-t500x500.jpg">](https://soundcloud.com/bassrush/ghost-in-real-life-stuck-in-purgatory)
 
-**Artist**: Hexacube 
+**Artist**: Bassrush 
 
-**Track**: Porter Robinson - Cheerleader (Hexacube's HARDCORE-style Bootleg)
+**Track**: Ghost In Real Life - Stuck In Purgatory
 
-Last updated at 03/24/2024 10:47
+Last updated at 03/25/2024 08:08
