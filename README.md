@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xl9hBZaQcXlFMEJj-dEeDwQ-t500x500.jpg">](https://soundcloud.com/tsoumusic/blossom?in=tsoumusic/sets/still-iv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZRInWPZztjcjrs6-3jewfQ-t500x500.jpg">](https://soundcloud.com/rhythmicculturerecords/premiere-evul-dirty-maria-parule-unlucky-year-viennas-filthiest)
 
-**Artist**: tsou 
+**Artist**: Rhythmic Culture 
 
-**Track**: blossom
+**Track**: Premiere: EVUL (Dirty Maria & Parule) - Unlucky Year | Vienna's Filthiest
 
-Last updated at 03/25/2024 13:11
+Last updated at 03/25/2024 13:13
