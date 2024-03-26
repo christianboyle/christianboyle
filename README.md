@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xr08B1IxwtpeuDv4-wDMWuw-t500x500.jpg">](https://soundcloud.com/david-276313890/you-make-me-avicii-good-company-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBKt8FJTqpnXAvFm-Vn6nOw-t500x500.jpg">](https://soundcloud.com/bvrnd/kid-cudi-pursuit-of-happiness-bvrnout-remix)
 
-**Artist**: GOOD COMPANY 
+**Artist**: BVRN'D 
 
-**Track**: You Make Me - Avicii (GOOD COMPANY REMIX) *FREE DOWNLOAD*
+**Track**: Kid Cudi - Pursuit of Happiness (BVRNOUT Remix)
 
-Last updated at 03/26/2024 09:33
+Last updated at 03/26/2024 09:34
