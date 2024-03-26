@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VDgXH8UK2j6J-0-t500x500.jpg">](https://soundcloud.com/gheistmusic/lose-control-i-wont-break)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
 
-**Artist**: GHEIST 
+**Artist**: OneSeventy 
 
-**Track**: Lose Control (I Won’t Break Version)
+**Track**: Technikore & Redhot - Bass Addict
 
-Last updated at 03/26/2024 09:40
+Last updated at 03/26/2024 09:41
