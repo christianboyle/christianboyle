@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3R4SapXWgdgZ-0-t500x500.jpg">](https://soundcloud.com/charlottehaining/sinner-1)
 
-**Artist**: OneSeventy 
+**Artist**: Charlotte Haining 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Sinner
 
-Last updated at 03/26/2024 09:52
+Last updated at 03/26/2024 09:55
