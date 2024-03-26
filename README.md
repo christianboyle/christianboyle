@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBKt8FJTqpnXAvFm-Vn6nOw-t500x500.jpg">](https://soundcloud.com/bvrnd/kid-cudi-pursuit-of-happiness-bvrnout-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VDgXH8UK2j6J-0-t500x500.jpg">](https://soundcloud.com/gheistmusic/lose-control-i-wont-break)
 
-**Artist**: BVRN'D 
+**Artist**: GHEIST 
 
-**Track**: Kid Cudi - Pursuit of Happiness (BVRNOUT Remix)
+**Track**: Lose Control (I Won’t Break Version)
 
-Last updated at 03/26/2024 09:34
+Last updated at 03/26/2024 09:40
