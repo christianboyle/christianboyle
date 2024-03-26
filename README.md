@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekRoFCnmnpXzRuty-i6yznA-t500x500.jpg">](https://soundcloud.com/cov3r1st/iaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JRbgKynL92BGI0u-HxNnvA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/7rings)
 
-**Artist**: CØV3R1st 
+**Artist**: BOOTY LEAK 
 
-**Track**: CØV3R1st + HOMINID & Margad - I Ain't Worried | FREE DOWNLOAD
+**Track**: Booty Leak + Garonzos & TECHNO KING feat. Veronica Bravo - 7 Rings [ FREE DOWNLOAD ]
 
-Last updated at 03/26/2024 08:36
+Last updated at 03/26/2024 08:38
