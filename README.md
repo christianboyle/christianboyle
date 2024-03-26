@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cz2Hc50s8D7B4KGJ-YX2Lvw-t500x500.jpg">](https://soundcloud.com/upscale-recordings/niko-scheme-o-prime-delta-l-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7OOW4lchdo30IP7O-FXh2aA-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/ronin-sc-master-rev-1644?in=phydrabass/sets/bloodshot-ep)
 
-**Artist**: UPSCALE 
+**Artist**: Wormhole Music Group 
 
-**Track**: niko scheme & O-Prime Delta - L BEAT
+**Track**: Phydra - Ronin
 
-Last updated at 03/26/2024 09:10
+Last updated at 03/26/2024 09:13
