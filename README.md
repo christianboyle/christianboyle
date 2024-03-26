@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rixAz4yAANxN6uTg-NdnPpA-t500x500.jpg">](https://soundcloud.com/technowereld/levs-cybernetika-twep003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFjxmGuZjHM0tWuo-mDP3SQ-t500x500.jpg">](https://soundcloud.com/repulsexplosif/11xxx27-mystics-paradise-collapse-rx001-snippets)
 
-**Artist**: Techno Wereld 
+**Artist**: Repulse Xplosif 
 
-**Track**: LEVS - Cybernetika [TWEP004]
+**Track**: 11xxx27 & Mystics - Paradise Collapse [RX001]
 
-Last updated at 03/25/2024 13:16
+Last updated at 03/26/2024 08:14
