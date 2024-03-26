@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3CDeSozOoj9GLEC-WP4yLA-t500x500.jpg">](https://soundcloud.com/noiseprn/mrpixxul-blocc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sCPVyyh03dKrUwCF-XkvAWg-t500x500.jpg">](https://soundcloud.com/presentlylifted/beat-kitty-dancing-with-dinosaurs-1)
 
-**Artist**: Noiseporn 
+**Artist**: Presently Lifted 👑 
 
-**Track**: MrPixxul - BLOCC
+**Track**: Beat Kitty - Dancing With Dinosaurs
 
-Last updated at 03/26/2024 09:05
+Last updated at 03/26/2024 09:06
