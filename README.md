@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNHBMsJN1AM4aJRp-pDwqqw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/meet-her-at-the-love-parade-x-stompin-moji-tane-techno-edit)
 
-**Artist**: OneSeventy 
+**Artist**: MOJI - II 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Meet Her At The Love Parade X Stompin (MOJI & TANE Techno Edit)
 
-Last updated at 03/26/2024 11:47
+Last updated at 03/26/2024 11:50
