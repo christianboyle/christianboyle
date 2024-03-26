@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pFjxmGuZjHM0tWuo-mDP3SQ-t500x500.jpg">](https://soundcloud.com/repulsexplosif/11xxx27-mystics-paradise-collapse-rx001-snippets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife)
 
-**Artist**: Repulse Xplosif 
+**Artist**: eunhae 
 
-**Track**: 11xxx27 & Mystics - Paradise Collapse [RX001]
+**Track**: smite knife [greentop]
 
-Last updated at 03/26/2024 08:14
+Last updated at 03/26/2024 08:27
