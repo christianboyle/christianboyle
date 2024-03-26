@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyQv6LhNS67XwDc8-zud5UA-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/riton-kah-lo-fake-id-stang-remix-free-download?in=edm-family-remixes/sets/riton-kah-lo-fake-id-stang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RHQpEnW8wVyqrSKm-z76dMw-t500x500.jpg">](https://soundcloud.com/puff_corn/le-sserafim-easy-puffcorn-rmx)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: PuFFcorn 
 
-**Track**: Riton & Kah-Lo - Fake ID (Stang Remix) [FREE DOWNLOAD]
+**Track**: LE SSERAFIM (르세라핌) - EASY (PUFFCORN STUTTER REMIX) [FREE DOWNLOAD!]
 
-Last updated at 03/26/2024 08:49
+Last updated at 03/26/2024 09:03
