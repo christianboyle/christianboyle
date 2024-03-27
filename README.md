@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNe8bBf3cDzWQ5p2-LbeGCw-t500x500.jpg">](https://soundcloud.com/adamenoise/forging-flames?in=saxurn/sets/inflaton-field)
 
-**Artist**: eunhae 
+**Artist**: ADAME 
 
-**Track**: smite knife [greentop]
+**Track**: Forging Flames
 
-Last updated at 03/26/2024 21:32
+Last updated at 03/26/2024 21:33
