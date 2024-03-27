@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Ya78LDTHvyO6fBl-oNdrSQ-t500x500.jpg">](https://soundcloud.com/eufeion/stars?in=saxurn/sets/tmp/)
 
-**Artist**: OneSeventy 
+**Artist**: Eufeion 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Eufeion - Stars
 
-Last updated at 03/26/2024 20:20
+Last updated at 03/26/2024 20:35
