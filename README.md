@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YrhziGlxV4oCRYxS-Qz5RpA-t500x500.jpg">](https://soundcloud.com/monstercat/ace-aura-nazaar-dani-king-ill-be-waiting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ADuZNoZ9Ge8kCyBw-yCST2A-t500x500.jpg">](https://soundcloud.com/nazaar-waves/leavemelikethis?in=nazaarmusic/sets/skrillex-bobby-raps-leave-me)
 
-**Artist**: Monstercat 
+**Artist**: NAZAAR 2.0 
 
-**Track**: Ace Aura, NAZAAR & Dani King - I'll Be Waiting
+**Track**: Skrillex & Bobby Raps - Leave Me Like This (NAZAAR Remix)
 
-Last updated at 03/27/2024 16:27
+Last updated at 03/27/2024 16:28
