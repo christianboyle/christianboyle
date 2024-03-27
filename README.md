@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cum5njz7FUUIoyGi-AaGlbQ-t500x500.jpg">](https://soundcloud.com/eufeion/control-eufeion-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNHBMsJN1AM4aJRp-pDwqqw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/meet-her-at-the-love-parade-x-stompin-moji-tane-techno-edit?in=saxurn/sets/tmp/)
 
-**Artist**: Eufeion 
+**Artist**: MOJI - II 
 
-**Track**: Dy5oN - Control (Eufeion Remix)
+**Track**: Meet Her At The Love Parade X Stompin (MOJI & TANE Techno Edit)
 
-Last updated at 03/26/2024 20:38
+Last updated at 03/26/2024 20:42
