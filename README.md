@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HNtj6MnNpSbAgMnb-sJaNrQ-t500x500.jpg">](https://soundcloud.com/eufeion/let-me-tell-u?in=saxurn/sets/inflaton-field)
 
-**Artist**: OneSeventy 
+**Artist**: Eufeion 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Eufeion - Let Me Tell U - (24/7) - OUT NOW!!
 
-Last updated at 03/26/2024 20:58
+Last updated at 03/26/2024 21:05
