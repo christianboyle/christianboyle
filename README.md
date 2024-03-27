@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tSMONM1Uzy4esUQI-1tszCA-t500x500.jpg">](https://soundcloud.com/dvdmtl/1999-d-v-d-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict?in=saxurn/sets/inflaton-field)
 
-**Artist**: D V D 
+**Artist**: OneSeventy 
 
-**Track**: 1999 (D V D HARD EDIT)
+**Track**: Technikore & Redhot - Bass Addict
 
-Last updated at 03/26/2024 20:53
+Last updated at 03/26/2024 20:58
