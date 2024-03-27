@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKLSSRCqBCbpB34T-i5Wgyw-t500x500.jpg">](https://soundcloud.com/prtytrax/stretch-x-jezza-jod-red-light-green-light-mst-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5CbeQqqS6YOUWSG-QRFyHQ-t500x500.jpg">](https://soundcloud.com/teksa/spice-up-therapy)
 
-**Artist**: PRTY TRAX 
+**Artist**: Teksa 
 
-**Track**: STRETCH X JEZZA & JOD - RED LIGHT GREEN LIGHT [PRTYTRAXVA02]
+**Track**: Spice Up! - Therapy   (free download)
 
-Last updated at 03/26/2024 21:22
+Last updated at 03/26/2024 21:23
