@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sjIGzLImHaWE2F8y-i1INSg-t500x500.jpg">](https://soundcloud.com/dave_era/dave-era-save-me-master-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKLSSRCqBCbpB34T-i5Wgyw-t500x500.jpg">](https://soundcloud.com/prtytrax/stretch-x-jezza-jod-red-light-green-light-mst-v3)
 
-**Artist**: DAVE ERA 
+**Artist**: PRTY TRAX 
 
-**Track**: DAVE ERA - Save Me
+**Track**: STRETCH X JEZZA & JOD - RED LIGHT GREEN LIGHT [PRTYTRAXVA02]
 
-Last updated at 03/26/2024 21:20
+Last updated at 03/26/2024 21:22
