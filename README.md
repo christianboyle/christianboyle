@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyQv6LhNS67XwDc8-zud5UA-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/riton-kah-lo-fake-id-stang-remix-free-download?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cum5njz7FUUIoyGi-AaGlbQ-t500x500.jpg">](https://soundcloud.com/eufeion/control-eufeion-remix?in=saxurn/sets/tmp/)
 
-**Artist**: EDM FAMILY Extras 
+**Artist**: Eufeion 
 
-**Track**: Riton & Kah-Lo - Fake ID (Stang Remix) [FREE DOWNLOAD]
+**Track**: Dy5oN - Control (Eufeion Remix)
 
-Last updated at 03/26/2024 20:18
+Last updated at 03/26/2024 20:19
