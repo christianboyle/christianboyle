@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1OYeHlfy9kv0A9U3-IDNTFA-t500x500.jpg">](https://soundcloud.com/merger-official/will-smith-miami-merger-remix-free-extended-dl?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HNtj6MnNpSbAgMnb-sJaNrQ-t500x500.jpg">](https://soundcloud.com/eufeion/let-me-tell-u)
 
-**Artist**: Merger 
+**Artist**: Eufeion 
 
-**Track**: Will Smith - Miami (Merger Remix) [Free Extended DL]
+**Track**: Eufeion - Let Me Tell U - (24/7) - OUT NOW!!
 
-Last updated at 03/26/2024 20:45
+Last updated at 03/26/2024 20:46
