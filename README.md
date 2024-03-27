@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RHQpEnW8wVyqrSKm-z76dMw-t500x500.jpg">](https://soundcloud.com/puff_corn/le-sserafim-easy-puffcorn-rmx?in=saxurn/sets/tmp/)
 
-**Artist**: eunhae 
+**Artist**: PuFFcorn 
 
-**Track**: smite knife [greentop]
+**Track**: LE SSERAFIM (르세라핌) - EASY (PUFFCORN STUTTER REMIX) [FREE DOWNLOAD!]
 
-Last updated at 03/26/2024 20:48
+Last updated at 03/26/2024 20:49
