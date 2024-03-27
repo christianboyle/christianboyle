@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cum5njz7FUUIoyGi-AaGlbQ-t500x500.jpg">](https://soundcloud.com/eufeion/control-eufeion-remix?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5CbeQqqS6YOUWSG-QRFyHQ-t500x500.jpg">](https://soundcloud.com/teksa/spice-up-therapy?in=saxurn/sets/inflaton-field)
 
-**Artist**: Eufeion 
+**Artist**: Teksa 
 
-**Track**: Dy5oN - Control (Eufeion Remix)
+**Track**: Spice Up! - Therapy   (free download)
 
-Last updated at 03/26/2024 21:44
+Last updated at 03/26/2024 21:47
