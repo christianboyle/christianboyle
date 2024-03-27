@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BowZMOfXZBZhrkBW-4dTpyw-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-ud-10-19-04-1996)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5oPavs3Lmm4lQGvP-gIRN1w-t500x500.jpg">](https://soundcloud.com/thenghbrs/noah-kahan-stick-season-the-nghbrs-remix)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: The NGHBRS 
 
-**Track**: Hixxy @ UD 10 (19/04/1996)
+**Track**: Noah Kahan - Stick Season (The NGHBRS Remix) *Vocal slightly filtered for SC*
 
-Last updated at 03/27/2024 06:45
+Last updated at 03/27/2024 06:46
