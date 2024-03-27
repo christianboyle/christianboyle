@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5oPavs3Lmm4lQGvP-gIRN1w-t500x500.jpg">](https://soundcloud.com/thenghbrs/noah-kahan-stick-season-the-nghbrs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife?in=saxurn/sets/inflaton-field)
 
-**Artist**: The NGHBRS 
+**Artist**: eunhae 
 
-**Track**: Noah Kahan - Stick Season (The NGHBRS Remix) *Vocal slightly filtered for SC*
+**Track**: smite knife [greentop]
 
-Last updated at 03/27/2024 06:46
+Last updated at 03/27/2024 09:22
