@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1OYeHlfy9kv0A9U3-IDNTFA-t500x500.jpg">](https://soundcloud.com/merger-official/will-smith-miami-merger-remix-free-extended-dl?in=saxurn/sets/tmp/)
 
-**Artist**: OneSeventy 
+**Artist**: Merger 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Will Smith - Miami (Merger Remix) [Free Extended DL]
 
-Last updated at 03/26/2024 20:43
+Last updated at 03/26/2024 20:45
