@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Xfn4LzjPGQ0QHNR-kEfRTA-t500x500.jpg">](https://soundcloud.com/denile/axel-gear-gimmix-grand-theft-audio-1-bounce-heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife?in=saxurn/sets/tmp/)
 
-**Artist**: Denile 
+**Artist**: eunhae 
 
-**Track**: Axel Gear & Gimmix - 'Grand Theft Audio 1' [Bounce Heaven]
+**Track**: smite knife [greentop]
 
-Last updated at 03/26/2024 20:47
+Last updated at 03/26/2024 20:48
