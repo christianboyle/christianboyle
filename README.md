@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cum5njz7FUUIoyGi-AaGlbQ-t500x500.jpg">](https://soundcloud.com/eufeion/control-eufeion-remix?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHXIjyqAV0q1xLeU-wUYIqQ-t500x500.jpg">](https://soundcloud.com/dumsticky/any-1?in=dumsticky/sets/releases)
 
-**Artist**: Eufeion 
+**Artist**: DJ DUM BOY STICKY 
 
-**Track**: Dy5oN - Control (Eufeion Remix)
+**Track**: Any (ONLY LOUD)
 
-Last updated at 03/26/2024 21:09
+Last updated at 03/26/2024 21:12
