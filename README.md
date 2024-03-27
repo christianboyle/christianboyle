@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0k3ksJiqcClPbo48-ikbp1A-t500x500.png">](https://soundcloud.com/griffon-dj/kiss-me-griffon-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MLo8w9uZmVYXDng0-VD29lg-t500x500.jpg">](https://soundcloud.com/encore-951669052/encoreseries0029yasminegardezi)
 
-**Artist**: Griffon 
+**Artist**: ENCORE LYON 
 
-**Track**: I Like The Way You Kiss Me (Griffon Remix)
+**Track**: ENCORE SERIES #0029 Yasmin Gardezi
 
-Last updated at 03/27/2024 16:29
+Last updated at 03/27/2024 16:30
