@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5CbeQqqS6YOUWSG-QRFyHQ-t500x500.jpg">](https://soundcloud.com/teksa/spice-up-therapy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uArzM6DUjhURjNey-RxFf3w-t500x500.jpg">](https://soundcloud.com/eunhae/smite-knife?in=saxurn/sets/inflaton-field)
 
-**Artist**: Teksa 
+**Artist**: eunhae 
 
-**Track**: Spice Up! - Therapy   (free download)
+**Track**: smite knife [greentop]
 
-Last updated at 03/26/2024 21:23
+Last updated at 03/26/2024 21:32
