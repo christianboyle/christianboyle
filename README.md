@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHXIjyqAV0q1xLeU-wUYIqQ-t500x500.jpg">](https://soundcloud.com/dumsticky/any-1?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzuchhpS4ZSxB5cj-vZMbkQ-t500x500.jpg">](https://soundcloud.com/datskobeats/datsko-im-on-one)
 
-**Artist**: DJ DUM BOY STICKY 
+**Artist**: DATSKO 
 
-**Track**: Any (ONLY LOUD)
+**Track**: DATSKO - I'm On One
 
-Last updated at 03/26/2024 21:15
+Last updated at 03/26/2024 21:17
