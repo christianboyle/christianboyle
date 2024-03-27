@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Ya78LDTHvyO6fBl-oNdrSQ-t500x500.jpg">](https://soundcloud.com/eufeion/stars?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cum5njz7FUUIoyGi-AaGlbQ-t500x500.jpg">](https://soundcloud.com/eufeion/control-eufeion-remix?in=saxurn/sets/tmp/)
 
 **Artist**: Eufeion 
 
-**Track**: Eufeion - Stars
+**Track**: Dy5oN - Control (Eufeion Remix)
 
-Last updated at 03/26/2024 20:35
+Last updated at 03/26/2024 20:38
