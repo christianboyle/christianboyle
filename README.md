@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tSMONM1Uzy4esUQI-1tszCA-t500x500.jpg">](https://soundcloud.com/dvdmtl/1999-d-v-d-hard-edit?in=saxurn/sets/inflaton-field)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tmPItATyYB0dx0z-GQjTgA-t500x500.jpg">](https://soundcloud.com/da-bow/butakera-dabow-remix)
 
-**Artist**: D V D 
+**Artist**: Dabow 
 
-**Track**: 1999 (D V D HARD EDIT)
+**Track**: BUTAKERA (Dabow Remix)
 
-Last updated at 03/27/2024 09:43
+Last updated at 03/27/2024 16:22
