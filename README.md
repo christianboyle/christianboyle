@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHNKqu8o8bTjqQrc-j4suLA-t500x500.jpg">](https://soundcloud.com/gangstahouserec/miih-nogueira-vibbex-i-love-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOvzzDyfqpWWypyC-RASH7A-t500x500.jpg">](https://soundcloud.com/phrva/bass-cannon)
 
-**Artist**: GANGSTA HOUSE RECORDS 
+**Artist**: Phrva 
 
-**Track**: Miih Nogueira, Vibbex - I Love Bass (Original Mix)
+**Track**: Flux Pavilion - Bass Cannon (Phrva Flip)
 
-Last updated at 03/27/2024 16:25
+Last updated at 03/27/2024 16:26
