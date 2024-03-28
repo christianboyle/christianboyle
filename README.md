@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szi7HfHU2KVZJtSO-Kadb0g-t500x500.jpg">](https://soundcloud.com/prodbyobey/obey-mystik-delusion-feat-devilish-trio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNNg5SpB0d9cciYC-fmbQJA-t500x500.jpg">](https://soundcloud.com/8balldj/guest-mix)
 
-**Artist**: obey 🌠 
+**Artist**: 8 Ball DJ 
 
-**Track**: obey & MYSTIK - delusion (feat. Devilish Trio)
+**Track**: 8 Ball - Lost Minds 2024 Promo Mix
 
-Last updated at 03/28/2024 14:40
+Last updated at 03/28/2024 14:41
