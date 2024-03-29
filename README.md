@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjV4Vl5fn3KqZ9yS-WEL7BQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-cyur-running-away-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEyzbAzj9EypVST9-ptP9oQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/dr-rude-move-your-feet)
 
-**Artist**: Rave Alert 
+**Artist**: Dirty Workz 
 
-**Track**: [PREMIERE] CYUR - Running Away (Radio Edit)
+**Track**: Dr Rude - Move Your Feet
 
-Last updated at 03/29/2024 08:12
+Last updated at 03/29/2024 08:13
