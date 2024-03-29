@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W3BvpT72BwVvMomo-Q5Nc2A-t500x500.jpg">](https://soundcloud.com/petty-passion/europa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjV4Vl5fn3KqZ9yS-WEL7BQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-cyur-running-away-radio-edit)
 
-**Artist**: Petty Passion 
+**Artist**: Rave Alert 
 
-**Track**: Europa
+**Track**: [PREMIERE] CYUR - Running Away (Radio Edit)
 
-Last updated at 03/29/2024 08:11
+Last updated at 03/29/2024 08:12
