@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0k3ksJiqcClPbo48-ikbp1A-t500x500.png">](https://soundcloud.com/griffon-dj/kiss-me-griffon-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O5PUn7maePVoU4Y4-lc7GCw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-into-your-arms)
 
-**Artist**: Griffon 
+**Artist**: Dirty Workz 
 
-**Track**: I Like The Way You Kiss Me (Griffon Remix)
+**Track**: Cyber - Into Your Arms
 
-Last updated at 03/29/2024 08:27
+Last updated at 03/29/2024 08:29
