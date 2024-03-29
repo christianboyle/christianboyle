@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNNg5SpB0d9cciYC-fmbQJA-t500x500.jpg">](https://soundcloud.com/8balldj/guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ZKf9mk3ZFDwZ048-fhBlfg-t500x500.jpg">](https://soundcloud.com/musicbynimbvs/losing-myself?in=musicbynimbvs/sets/genesis)
 
-**Artist**: 8 Ball DJ 
+**Artist**: NIMBVS 
 
-**Track**: 8 Ball - Lost Minds 2024 Promo Mix
+**Track**: Losing Myself - NIMBVS, DEEP SEE, Dani King, EK.KO
 
-Last updated at 03/28/2024 14:41
+Last updated at 03/28/2024 19:12
