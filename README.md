@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEyzbAzj9EypVST9-ptP9oQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/dr-rude-move-your-feet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0k3ksJiqcClPbo48-ikbp1A-t500x500.png">](https://soundcloud.com/griffon-dj/kiss-me-griffon-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Griffon 
 
-**Track**: Dr Rude - Move Your Feet
+**Track**: I Like The Way You Kiss Me (Griffon Remix)
 
-Last updated at 03/29/2024 08:13
+Last updated at 03/29/2024 08:27
