@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HNtj6MnNpSbAgMnb-sJaNrQ-t500x500.jpg">](https://soundcloud.com/eufeion/let-me-tell-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
 
-**Artist**: Eufeion 
+**Artist**: OneSeventy 
 
-**Track**: Eufeion - Let Me Tell U - (24/7) - OUT NOW!!
+**Track**: Technikore & Redhot - Bass Addict
 
-Last updated at 03/29/2024 17:43
+Last updated at 03/29/2024 17:46
