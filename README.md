@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaRnHmgyeyIDWPWQ-wUcFiw-t500x500.jpg">](https://soundcloud.com/hestermusic/hester-its-my-life-unreleased100)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HNtj6MnNpSbAgMnb-sJaNrQ-t500x500.jpg">](https://soundcloud.com/eufeion/let-me-tell-u)
 
-**Artist**: HESTER 
+**Artist**: Eufeion 
 
-**Track**: HESTER - ITS MY LIFE
+**Track**: Eufeion - Let Me Tell U - (24/7) - OUT NOW!!
 
-Last updated at 03/29/2024 08:37
+Last updated at 03/29/2024 17:43
