@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0k3ksJiqcClPbo48-ikbp1A-t500x500.png">](https://soundcloud.com/griffon-dj/kiss-me-griffon-remix)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: Griffon 
 
-**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
+**Track**: I Like The Way You Kiss Me (Griffon Remix)
 
-Last updated at 03/31/2024 08:47
+Last updated at 03/31/2024 08:49
