@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BYiZfGWJlpBnaTXU-xr7iZg-t500x500.jpg">](https://soundcloud.com/dj-a-k/dj-ak-mid-90s-bouncy-techno-mix-200124)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old)
 
-**Artist**: DJ A.K. 
+**Artist**: Street Ritual 
 
-**Track**: DJ A.K. - Mid 90's Bouncy Techno Mix 20.01.24
+**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
 
-Last updated at 03/30/2024 19:11
+Last updated at 03/31/2024 08:00
