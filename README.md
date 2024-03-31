@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xNu97eWM9ou7qXzD-JuzaFg-t500x500.jpg">](https://soundcloud.com/datahousecorporation/chris-lake-x-aluna-beggin-juushs-extended-remix-2)
 
-**Artist**: OneSeventy 
+**Artist**: ⠶ DATA HOUSE CORPORATION ⠶ 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: Chris Lake X Aluna - Beggin' (Juush's Extended Remix) [FREE DOWNLOAD]
 
-Last updated at 03/29/2024 17:46
+Last updated at 03/30/2024 19:05
