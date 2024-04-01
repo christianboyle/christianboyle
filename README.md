@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yOqxDxrI36lRjmkb-j6N9mQ-t500x500.jpg">](https://soundcloud.com/kassidiestirling/david-rust-mr-brightside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3H4hJ4sa2iz1FUvm-opvgUg-t500x500.jpg">](https://soundcloud.com/shugo_srd/jose-amnesia-feat-jennifer-rene-louder-shugz-remix)
 
-**Artist**: kassidiestirling 💁🏽‍♀️💁🏽‍♀️ 
+**Artist**: Shugz Music 
 
-**Track**: David Rust - Mr Brightside
+**Track**: Jose Amnesia feat. Jennifer Rene - Louder (Shugz Remix)
 
-Last updated at 04/01/2024 09:11
+Last updated at 04/01/2024 09:12
