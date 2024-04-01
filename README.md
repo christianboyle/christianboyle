@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_tech_house_11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/tmp/)
 
-**Artist**: KULA 
+**Artist**: pk (@prod_pk) 
 
-**Track**: KULA_Tech_House_11_
+**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
 
-Last updated at 04/01/2024 09:29
+Last updated at 04/01/2024 09:30
