@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2z5kxtO5P4LDQeJ-dw3mnQ-t500x500.jpg">](https://soundcloud.com/coastrmusic/austin-bones-coastr-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwDhGu8AHinEzqHP-lvqnVg-t500x500.jpg">](https://soundcloud.com/cosmicbeats/its-up)
 
-**Artist**: COASTR. 
+**Artist**: COSMIC 
 
-**Track**: Austin Bones (COASTR. Edit) [Dasha vs. Galantis, One Republic, shndo]
+**Track**: it's up
 
-Last updated at 04/01/2024 09:14
+Last updated at 04/01/2024 09:15
