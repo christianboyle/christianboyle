@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4b6bB6ALU5p5PWx-7KX3wQ-t500x500.jpg">](https://soundcloud.com/madjestickasual/lovefear-macro-mk-premiere-1?in=madjestickasual/sets/contemporary-music-march-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qppxgJUFUClV-0-t500x500.jpg">](https://soundcloud.com/tisakorean8j/ucci?in=madjestickasual/sets/contemporary-music-march-3)
 
-**Artist**: Madjestic Kasual 
+**Artist**: tisaKOREAN 
 
-**Track**: Lovefear - Macro [MK PREMIERE]
+**Track**: UCCI
 
-Last updated at 04/01/2024 09:19
+Last updated at 04/01/2024 09:21
