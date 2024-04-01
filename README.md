@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nSodMyUPvdqSu5zM-raYVgg-t500x500.jpg">](https://soundcloud.com/grazcore/graz-spring-breakcore-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMjhkpIgxPWfTxNp-1UR09A-t500x500.jpg">](https://soundcloud.com/whoiscpark/ghosts)
 
-**Artist**: Graz 
+**Artist**: CPARK 
 
-**Track**: Graz - Spring Breakcore 2024
+**Track**: GHOSTS
 
-Last updated at 04/01/2024 12:49
+Last updated at 04/01/2024 12:50
