@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0k3ksJiqcClPbo48-ikbp1A-t500x500.png">](https://soundcloud.com/griffon-dj/kiss-me-griffon-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-36ow1njm9b1wzeJI-otUA3A-t500x500.jpg">](https://soundcloud.com/covexmusic/easy-for-me?in=saxurn/sets/tmp/)
 
-**Artist**: Griffon 
+**Artist**: COVEX 
 
-**Track**: I Like The Way You Kiss Me (Griffon Remix)
+**Track**: Easy For Me
 
-Last updated at 04/01/2024 09:52
+Last updated at 04/01/2024 10:03
