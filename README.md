@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaRnHmgyeyIDWPWQ-wUcFiw-t500x500.jpg">](https://soundcloud.com/hestermusic/hester-its-my-life-unreleased100?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHo1WcqROJMRFecW-CBX8MA-t500x500.jpg">](https://soundcloud.com/bloomintoyou/need-ur-touch)
 
-**Artist**: HESTER 
+**Artist**: ❀bloom∗⁎* 
 
-**Track**: HESTER - ITS MY LIFE
+**Track**: need ur touch✾
 
-Last updated at 04/01/2024 11:05
+Last updated at 04/01/2024 12:48
