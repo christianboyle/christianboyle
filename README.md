@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/adame-the-pillars?in=saxurn/sets/tmp/)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: Awakening Records 
 
-**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
+**Track**: ADAME - The Pillars
 
-Last updated at 04/01/2024 10:26
+Last updated at 04/01/2024 10:28
