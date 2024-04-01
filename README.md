@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwbatwVnezrCI2fS-D1gMHQ-t500x500.jpg">](https://soundcloud.com/terrorgrinch/s3rl-pretty-rave-girl-terrorgrinch-uptempo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo)
 
-**Artist**: Terrorgrinch 
+**Artist**: DJ Th0t Sh0t 
 
-**Track**: S3RL - Pretty Rave Girl (Terrorgrinch Uptempo Remix)
+**Track**: collab w/ FLO
 
-Last updated at 04/01/2024 09:25
+Last updated at 04/01/2024 09:26
