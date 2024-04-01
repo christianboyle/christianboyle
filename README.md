@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/adame-the-pillars)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3CLzY1c7osMmVVy-5t2Lyg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-initial-eyes-wilderness-extended-mix-electric-impulse)
 
-**Artist**: Awakening Records 
+**Artist**: Raven Musik 
 
-**Track**: ADAME - The Pillars
+**Track**: PREMIERE: Initial Eyes - Wilderness (Extended Mix) [Electric Impulse]
 
-Last updated at 04/01/2024 09:09
+Last updated at 04/01/2024 09:10
