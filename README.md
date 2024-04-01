@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3CLzY1c7osMmVVy-5t2Lyg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-initial-eyes-wilderness-extended-mix-electric-impulse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yOqxDxrI36lRjmkb-j6N9mQ-t500x500.jpg">](https://soundcloud.com/kassidiestirling/david-rust-mr-brightside)
 
-**Artist**: Raven Musik 
+**Artist**: kassidiestirling 💁🏽‍♀️💁🏽‍♀️ 
 
-**Track**: PREMIERE: Initial Eyes - Wilderness (Extended Mix) [Electric Impulse]
+**Track**: David Rust - Mr Brightside
 
-Last updated at 04/01/2024 09:10
+Last updated at 04/01/2024 09:11
