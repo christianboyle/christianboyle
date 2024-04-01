@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O5PUn7maePVoU4Y4-lc7GCw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-into-your-arms?in=saxurn/sets/tmp/)
 
-**Artist**: DJ Th0t Sh0t 
+**Artist**: Dirty Workz 
 
-**Track**: collab w/ FLO
+**Track**: Cyber - Into Your Arms
 
-Last updated at 04/01/2024 10:17
+Last updated at 04/01/2024 10:19
