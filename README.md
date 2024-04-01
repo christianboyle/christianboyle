@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/tmp/)
 
-**Artist**: Street Ritual 
+**Artist**: DJ Th0t Sh0t 
 
-**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
+**Track**: collab w/ FLO
 
-Last updated at 04/01/2024 10:41
+Last updated at 04/01/2024 10:43
