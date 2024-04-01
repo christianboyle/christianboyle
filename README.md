@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old?in=saxurn/sets/tmp/)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: Street Ritual 
 
-**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
+**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
 
-Last updated at 04/01/2024 10:59
+Last updated at 04/01/2024 11:02
