@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i1dC2gSMzLVs8JBf-dKsffQ-t500x500.jpg">](https://soundcloud.com/karlmac/if-you-had-my-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HI5d3KRrt6sjjfk-YN2WlQ-t500x500.jpg">](https://soundcloud.com/user-419617023/april-fool-mix)
 
-**Artist**: KARL MAC 
+**Artist**: Cuter Than I Look 
 
-**Track**: If you had my love Ft - JodieG (Radio edit)
+**Track**: APRIL FOOL MIX
 
-Last updated at 04/01/2024 12:54
+Last updated at 04/01/2024 16:56
