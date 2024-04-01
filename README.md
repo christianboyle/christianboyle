@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nJYkiGWyhWwpRHJH-tUbLuA-t500x500.jpg">](https://soundcloud.com/minitbyminit/fisher-losing-it-retimed-by-minit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCsOrzSesl44KcwE-PzEXnw-t500x500.jpg">](https://soundcloud.com/ujuumusic/ujuu-hyperspace)
 
-**Artist**: Minit 
+**Artist**: Ujuu 
 
-**Track**: FISHER - Losing It (Retimed by Minit)
+**Track**: Ujuu - Hyperspace
 
-Last updated at 04/01/2024 09:05
+Last updated at 04/01/2024 09:06
