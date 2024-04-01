@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwDhGu8AHinEzqHP-lvqnVg-t500x500.jpg">](https://soundcloud.com/cosmicbeats/its-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dN0o3iihnRviZL8w-d0BTwg-t500x500.jpg">](https://soundcloud.com/raucous-music/illest-1)
 
-**Artist**: COSMIC 
+**Artist**: Raucous 
 
-**Track**: it's up
+**Track**: Illest
 
-Last updated at 04/01/2024 09:15
+Last updated at 04/01/2024 09:16
