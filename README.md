@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fUsVI5K6TlskBZm5-bbJf5g-t500x500.jpg">](https://soundcloud.com/gawmmusic/kayne-west-carnival-gawm-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/tmp/)
 
-**Artist**: GAWM 
+**Artist**: pk (@prod_pk) 
 
-**Track**: Kayne West - Carnival (GAWM Remix)
+**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
 
-Last updated at 04/01/2024 10:25
+Last updated at 04/01/2024 10:26
