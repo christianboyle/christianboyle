@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aaRnHmgyeyIDWPWQ-wUcFiw-t500x500.jpg">](https://soundcloud.com/hestermusic/hester-its-my-life-unreleased100?in=saxurn/sets/tmp/)
 
-**Artist**: Street Ritual 
+**Artist**: HESTER 
 
-**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
+**Track**: HESTER - ITS MY LIFE
 
-Last updated at 04/01/2024 11:02
+Last updated at 04/01/2024 11:05
