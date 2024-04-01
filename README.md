@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JClxBpMYTAaSd3AR-SqYGZg-t500x500.jpg">](https://soundcloud.com/trinitiii/cave-walkers?in=maxdoutextras/sets/trinitiii-cave-walkers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDUyMd1DStT0C6qn-e5L4hQ-t500x500.jpg">](https://soundcloud.com/levianth/damn-x-93-style-x-griztronics-x-no-beef-x-mo-mamba-x-running-x-error-x-harlem-shakelevianth-edit)
 
-**Artist**: TRINITIII 
+**Artist**: Levianth 
 
-**Track**: Cave Walkers
+**Track**: DAMN X 93 STYLE X GRIZTRONICS X NO BEEF X MO MAMBA X RUNNING X ERROR X HARLEM SHAKE (Levianth Edit)
 
-Last updated at 04/01/2024 09:07
+Last updated at 04/01/2024 09:08
