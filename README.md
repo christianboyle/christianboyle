@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHo1WcqROJMRFecW-CBX8MA-t500x500.jpg">](https://soundcloud.com/bloomintoyou/need-ur-touch?in=saxurn/sets/tmp/)
 
-**Artist**: Street Ritual 
+**Artist**: ❀bloom∗⁎* 
 
-**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
+**Track**: need ur touch✾
 
-Last updated at 04/02/2024 14:46
+Last updated at 04/02/2024 14:48
