@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwbatwVnezrCI2fS-D1gMHQ-t500x500.jpg">](https://soundcloud.com/terrorgrinch/s3rl-pretty-rave-girl-terrorgrinch-uptempo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aus7akCBlhUuvyCK-DfKEcA-t500x500.jpg">](https://soundcloud.com/1crusafix/problem)
 
-**Artist**: Terrorgrinch 
+**Artist**: crusafix 
 
-**Track**: S3RL - Pretty Rave Girl (Terrorgrinch Uptempo Remix)
+**Track**: ##problem w/ isai + akkiro (pk)
 
-Last updated at 04/02/2024 07:14
+Last updated at 04/02/2024 08:04
