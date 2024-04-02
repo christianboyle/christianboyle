@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3e6bllCXNzOhaOo-EePgqw-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-rj-pasin-hold-me-down?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-36ow1njm9b1wzeJI-otUA3A-t500x500.jpg">](https://soundcloud.com/covexmusic/easy-for-me?in=saxurn/sets/tmp/)
 
-**Artist**: Tom Frane 
+**Artist**: COVEX 
 
-**Track**: Tom Frane, RJ Pasin - Hold Me Down
+**Track**: Easy For Me
 
-Last updated at 04/02/2024 14:50
+Last updated at 04/02/2024 14:53
