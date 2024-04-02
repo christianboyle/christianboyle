@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CByEkaouO2KPBGR6-kEg5Qg-t500x500.jpg">](https://soundcloud.com/sam-jones-music/olive-youre-not-alone-sam-jones-reworkpreview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo/s-0dRu5ad6I3T)
 
-**Artist**: Sam Jones 
+**Artist**: DJ Th0t Sh0t 
 
-**Track**: Olive - You're Not Alone (Sam Jones Rework)[FREE DOWNLOAD]
+**Track**: collab w/ FLO
 
-Last updated at 04/02/2024 08:26
+Last updated at 04/02/2024 08:30
