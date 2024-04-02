@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/adame-the-pillars?in=saxurn/sets/big-m0000000d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O5PUn7maePVoU4Y4-lc7GCw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyber-into-your-arms?in=saxurn/sets/big-m0000000d)
 
-**Artist**: Awakening Records 
+**Artist**: Dirty Workz 
 
-**Track**: ADAME - The Pillars
+**Track**: Cyber - Into Your Arms
 
-Last updated at 04/02/2024 17:19
+Last updated at 04/02/2024 17:22
