@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gu1qYM0bIvZ0IQAW-yvbDOw-t500x500.jpg">](https://soundcloud.com/user-419617023/ambient2final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-My8LqGuc8VP3F9X0-PcoTFg-t500x500.jpg">](https://soundcloud.com/eufeion/reddeadremix)
 
-**Artist**: Cuter Than I Look 
+**Artist**: Eufeion 
 
-**Track**: AMBIENT MIX 2
+**Track**: Ade Square - Red Dead (Eufeion Remix) -(United As One)
 
-Last updated at 04/02/2024 07:04
+Last updated at 04/02/2024 07:10
