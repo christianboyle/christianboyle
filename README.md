@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F707Oga1CKkSWOba-YXxvBQ-t500x500.jpg">](https://soundcloud.com/dev1se/dod-so-much-in-love-nixy-devise-donk-remix-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmZKguOaJNX9xTyx-y4Vjew-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-sunrise)
 
-**Artist**: NIXY & DeVISe 
+**Artist**: Dirty Workz 
 
-**Track**: D.O.D - So Much in Love ( NIXY & DeVISe Donk Remix ) 2024
+**Track**: Da Tweekaz - Sunrise
 
-Last updated at 04/02/2024 11:58
+Last updated at 04/02/2024 12:03
