@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-My8LqGuc8VP3F9X0-PcoTFg-t500x500.jpg">](https://soundcloud.com/eufeion/reddeadremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LwbatwVnezrCI2fS-D1gMHQ-t500x500.jpg">](https://soundcloud.com/terrorgrinch/s3rl-pretty-rave-girl-terrorgrinch-uptempo-remix)
 
-**Artist**: Eufeion 
+**Artist**: Terrorgrinch 
 
-**Track**: Ade Square - Red Dead (Eufeion Remix) -(United As One)
+**Track**: S3RL - Pretty Rave Girl (Terrorgrinch Uptempo Remix)
 
-Last updated at 04/02/2024 07:10
+Last updated at 04/02/2024 07:14
