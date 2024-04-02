@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F707Oga1CKkSWOba-YXxvBQ-t500x500.jpg">](https://soundcloud.com/dev1se/dod-so-much-in-love-nixy-devise-donk-remix-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMfN2pZhNIuADSpU-ZHqNEg-t500x500.jpg">](https://soundcloud.com/street_ritual/blurrd-vzn-x-don-jamal-old?in=saxurn/sets/big-m0000000d)
 
-**Artist**: NIXY & DeVISe 
+**Artist**: Street Ritual 
 
-**Track**: D.O.D - So Much in Love ( NIXY & DeVISe Donk Remix ) 2024
+**Track**: BLURRD VZN X Don Jamal - OLD $KOOL
 
-Last updated at 04/02/2024 17:01
+Last updated at 04/02/2024 17:02
