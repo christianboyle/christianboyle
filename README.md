@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmZKguOaJNX9xTyx-y4Vjew-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-sunrise?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/big-m0000000d/)
 
-**Artist**: Dirty Workz 
+**Artist**: pk (@prod_pk) 
 
-**Track**: Da Tweekaz - Sunrise
+**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
 
-Last updated at 04/02/2024 15:49
+Last updated at 04/02/2024 15:50
