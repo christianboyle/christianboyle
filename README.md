@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHo1WcqROJMRFecW-CBX8MA-t500x500.jpg">](https://soundcloud.com/bloomintoyou/need-ur-touch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CByEkaouO2KPBGR6-kEg5Qg-t500x500.jpg">](https://soundcloud.com/sam-jones-music/olive-youre-not-alone-sam-jones-reworkpreview)
 
-**Artist**: ❀bloom∗⁎* 
+**Artist**: Sam Jones 
 
-**Track**: need ur touch✾
+**Track**: Olive - You're Not Alone (Sam Jones Rework)[FREE DOWNLOAD]
 
-Last updated at 04/02/2024 08:23
+Last updated at 04/02/2024 08:26
