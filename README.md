@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/big-m0000000d/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aus7akCBlhUuvyCK-DfKEcA-t500x500.jpg">](https://soundcloud.com/1crusafix/problem?in=saxurn/sets/big-m0000000d)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: crusafix 
 
-**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
+**Track**: ##problem w/ isai + akkiro (pk)
 
-Last updated at 04/02/2024 15:50
+Last updated at 04/02/2024 17:00
