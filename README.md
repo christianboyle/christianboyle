@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHo1WcqROJMRFecW-CBX8MA-t500x500.jpg">](https://soundcloud.com/bloomintoyou/need-ur-touch?in=saxurn/sets/big-m0000000d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3e6bllCXNzOhaOo-EePgqw-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-rj-pasin-hold-me-down?in=saxurn/sets/big-m0000000d)
 
-**Artist**: ❀bloom∗⁎* 
+**Artist**: Tom Frane 
 
-**Track**: need ur touch✾
+**Track**: Tom Frane, RJ Pasin - Hold Me Down
 
-Last updated at 04/02/2024 17:09
+Last updated at 04/02/2024 17:12
