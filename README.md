@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aus7akCBlhUuvyCK-DfKEcA-t500x500.jpg">](https://soundcloud.com/1crusafix/problem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRRPCnymfc4midoy-c6ERSg-t500x500.jpg">](https://soundcloud.com/hendy2017/lekkerboy-sticky-fingers-schemeboyz-remix)
 
-**Artist**: crusafix 
+**Artist**: DJ Hendy 
 
-**Track**: ##problem w/ isai + akkiro (pk)
+**Track**: Lekkerboy - Sticky Fingers (SchemeBoyz Remix)
 
-Last updated at 04/02/2024 08:49
+Last updated at 04/02/2024 11:10
