@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0iEAaSY7U7Kvkjw-WWMuxA-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F707Oga1CKkSWOba-YXxvBQ-t500x500.jpg">](https://soundcloud.com/dev1se/dod-so-much-in-love-nixy-devise-donk-remix-2024)
 
-**Artist**: Eufeion 
+**Artist**: NIXY & DeVISe 
 
-**Track**: Eufeion - Really Like You - (247)
+**Track**: D.O.D - So Much in Love ( NIXY & DeVISe Donk Remix ) 2024
 
-Last updated at 04/02/2024 08:12
+Last updated at 04/02/2024 08:15
