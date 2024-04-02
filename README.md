@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmZKguOaJNX9xTyx-y4Vjew-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-sunrise?in=saxurn/sets/big-m0000000d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYkk5B7Sh28pzzh4-MpBqaw-t500x500.jpg">](https://soundcloud.com/scantraxx/keltek-devin-wild-where-i-belong)
 
-**Artist**: Dirty Workz 
+**Artist**: Scantraxx 
 
-**Track**: Da Tweekaz - Sunrise
+**Track**: KELTEK & Devin Wild - Where I Belong
 
-Last updated at 04/02/2024 17:28
+Last updated at 04/02/2024 17:32
