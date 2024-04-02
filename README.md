@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykk7NJDzFJ7e4Fy3-Q8Q6Kw-t500x500.jpg">](https://soundcloud.com/au5/porter-robinson-cheerleader-au5-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aus7akCBlhUuvyCK-DfKEcA-t500x500.jpg">](https://soundcloud.com/1crusafix/problem)
 
-**Artist**: Au5 
+**Artist**: crusafix 
 
-**Track**: Porter Robinson - Cheerleader (Au5 Flip)
+**Track**: ##problem w/ isai + akkiro (pk)
 
-Last updated at 04/02/2024 08:41
+Last updated at 04/02/2024 08:49
