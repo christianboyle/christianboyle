@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHo1WcqROJMRFecW-CBX8MA-t500x500.jpg">](https://soundcloud.com/bloomintoyou/need-ur-touch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/big-m0000000d)
 
-**Artist**: ❀bloom∗⁎* 
+**Artist**: pk (@prod_pk) 
 
-**Track**: need ur touch✾
+**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
 
-Last updated at 04/03/2024 09:28
+Last updated at 04/03/2024 09:31
