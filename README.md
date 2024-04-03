@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYkk5B7Sh28pzzh4-MpBqaw-t500x500.jpg">](https://soundcloud.com/scantraxx/keltek-devin-wild-where-i-belong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9YdLL3WxqMyuBFN-vdwGOA-t500x500.jpg">](https://soundcloud.com/prod_pk/motion-ft-kurse11-riv-pk-brayam?in=saxurn/sets/big-m0000000d)
 
-**Artist**: Scantraxx 
+**Artist**: pk (@prod_pk) 
 
-**Track**: KELTEK & Devin Wild - Where I Belong
+**Track**: MOTION FT KURSE11 & RIV (PK & BRAYAM)
 
-Last updated at 04/02/2024 17:32
+Last updated at 04/03/2024 06:29
