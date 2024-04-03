@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYkk5B7Sh28pzzh4-MpBqaw-t500x500.jpg">](https://soundcloud.com/scantraxx/keltek-devin-wild-where-i-belong)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRRPCnymfc4midoy-c6ERSg-t500x500.jpg">](https://soundcloud.com/hendy2017/lekkerboy-sticky-fingers-schemeboyz-remix)
 
-**Artist**: Scantraxx 
+**Artist**: DJ Hendy 
 
-**Track**: KELTEK & Devin Wild - Where I Belong
+**Track**: Lekkerboy - Sticky Fingers (SchemeBoyz Remix)
 
-Last updated at 04/03/2024 09:10
+Last updated at 04/03/2024 09:11
