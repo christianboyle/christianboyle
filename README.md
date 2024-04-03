@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSQUiHtN2xYZ85Rp-qaYhtw-t500x500.jpg">](https://soundcloud.com/clubwrk/achilles-only-on-xtc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAIQOyr9OaWe72dF-20AN8A-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-chris-flannigan-the-insides-original-mix-dir026)
 
-**Artist**: CLUBWRK 
+**Artist**: Dancefloor Impact Research 
 
-**Track**: Achilles - Only On XTC
+**Track**: [PREMIERE] Chris Flannigan - The Insides (Original Mix) [DIR026]
 
-Last updated at 04/03/2024 07:08
+Last updated at 04/03/2024 07:09
