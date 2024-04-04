@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/malixe-deadman?in=awakening_records/sets/awakening-compilation-01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MD8XQCKw86L1Pipc-izyryw-t500x500.jpg">](https://soundcloud.com/bo0tyleak/vlv)
 
-**Artist**: Awakening Records 
+**Artist**: BOOTY LEAK 
 
-**Track**: Malixe - Deadman
+**Track**: Alban Chela + Booty Leak & Veronica Bravo - Viva La Vida [ FREE DOWNLOAD ]
 
-Last updated at 04/04/2024 08:43
+Last updated at 04/04/2024 08:44
