@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQgzUJFiHmhX3Ry9-FyiEfw-t500x500.jpg">](https://soundcloud.com/vandalondatrack/sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/remy-x-eternal-tell-me-master-v2)
 
-**Artist**: Vandal On Da Track 
+**Artist**: Awakening Records 
 
-**Track**: Playboi Carti - Sky (Vandal On Da Track DNB Edit)
+**Track**: Remy Heart & Eternal - Tell Me
 
-Last updated at 04/04/2024 08:41
+Last updated at 04/04/2024 08:42
