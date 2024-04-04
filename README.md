@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-bmJfTqKeL8buyzfe-zJsmKA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yntml5hyyhDTxcDm-I3Mc1w-t500x500.jpg">](https://soundcloud.com/markslamma/0800-heaven)
 
-**Artist**: Brett Cooper (Scarred DIgital) 
+**Artist**: SLAMMA 
 
-**Track**: Brett Cooper - Euphoria
+**Track**: 0800 heaven
 
-Last updated at 04/04/2024 08:24
+Last updated at 04/04/2024 08:25
