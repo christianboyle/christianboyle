@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDQg4Vz4IWlmq9ah-ydmhQQ-t500x500.jpg">](https://soundcloud.com/willsparks/rye-rye-feat-mia-sunshine-will-sparks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8aV9DmxYdgVMM3LA-FZvVhw-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-alex-otto-land-of-fire-original-mix-nuhouse)
 
-**Artist**: Will Sparks 
+**Artist**: Raven Musik 
 
-**Track**: Rye Rye feat. M.I.A. - Sunshine (Will Sparks Remix)
+**Track**: PREMIERE: Alex Otto - Land Of Fire (Original Mix) [NuHouse]
 
-Last updated at 04/04/2024 08:33
+Last updated at 04/04/2024 08:34
