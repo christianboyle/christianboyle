@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000368780535-1buray-t500x500.jpg">](https://soundcloud.com/jennifereats/jennifer-i-dont-need-you-anymore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7e9uvp3LCUlD5I6e-L8YWeA-t500x500.jpg">](https://soundcloud.com/s3rl/lovebomb-s3rl-x-bombeiexe)
 
-**Artist**: Jennifer 
+**Artist**: S3RL 
 
-**Track**: Jennifer - I Don't Need You Anymore !
+**Track**: LoveBOMB - S3RL x BOMBEI.exe
 
-Last updated at 04/04/2024 08:31
+Last updated at 04/04/2024 08:32
