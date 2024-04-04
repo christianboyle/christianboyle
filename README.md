@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzaCYGJLnYD5aMcX-0MI7aA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hard-driver-closer-closer-lust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m6uDke1TaFTTKr7h-kGrrfQ-t500x500.jpg">](https://soundcloud.com/lynzzmusic/showoff)
 
-**Artist**: Dirty Workz 
+**Artist**: 𝐋𝐘𝐍𝐙𝐙 
 
-**Track**: Hard Driver - Closer & Closer (Lust)
+**Track**: SHOWOFF
 
-Last updated at 04/04/2024 08:27
+Last updated at 04/04/2024 08:28
