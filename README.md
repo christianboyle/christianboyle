@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/adame-the-pillars?in=saxurn/sets/big-m0000000d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-bmJfTqKeL8buyzfe-zJsmKA-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-euphoria)
 
-**Artist**: Awakening Records 
+**Artist**: Brett Cooper (Scarred DIgital) 
 
-**Track**: ADAME - The Pillars
+**Track**: Brett Cooper - Euphoria
 
-Last updated at 04/03/2024 13:42
+Last updated at 04/04/2024 08:24
