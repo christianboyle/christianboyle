@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPxw0BRkN6hm6yAs-nLqx2A-t500x500.jpg">](https://soundcloud.com/jstjr/knock2-dashstar-jstjr-remix?in=saxurn/sets/grain-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2mFESDzjg54Y4KC-ymoYBA-t500x500.jpg">](https://soundcloud.com/jstjr/day-n-nite-jstjr)
 
 **Artist**: JSTJR 
 
-**Track**: Knock2 - Dashstar (JSTJR Remix)
+**Track**: Day N Nite (JSTJR Remix) [full track in download]
 
-Last updated at 04/04/2024 20:27
+Last updated at 04/04/2024 20:30
