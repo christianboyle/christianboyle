@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNHBMsJN1AM4aJRp-pDwqqw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/meet-her-at-the-love-parade-x-stompin-moji-tane-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIZ3TGnFohaypbFn-z5pW8w-t500x500.jpg">](https://soundcloud.com/thisistido/crankdat-stfu-tido-edit)
 
-**Artist**: MOJI - II 
+**Artist**: TiDo 
 
-**Track**: Meet Her At The Love Parade X Stompin (MOJI & TANE Techno Edit)
+**Track**: Crankdat - STFU (TiDo Edit) * Free Download *
 
-Last updated at 04/04/2024 20:57
+Last updated at 04/04/2024 21:00
