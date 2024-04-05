@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21SncPey4yUNEOub-D8t8mw-t500x500.jpg">](https://soundcloud.com/henryfong/chase-status-bou-baddadan-henry-fong-remix-feat-irah-flowdan-trigga-takura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGDtLnNt4Eyz4M3H-CzYmpg-t500x500.jpg">](https://soundcloud.com/dlmtmusic/carnival-dlmt-4am-remix)
 
-**Artist**: Henry Fong 
+**Artist**: DLMT 
 
-**Track**: Chase & Status, Bou - Baddadan (Henry Fong Remix) feat. IRAH, Flowdan, Trigga & Takura
+**Track**: KANYE WEST & TY DOLLA $IGN - CARNIVAL (DLMT 4AM REMIX)
 
-Last updated at 04/04/2024 21:17
+Last updated at 04/04/2024 21:19
