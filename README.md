@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txU0tNVqp5ahTwG6-T5z9KQ-t500x500.jpg">](https://soundcloud.com/jackdelulio/loney-x-jungle-notjack-nishant-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFP6RwC2pzYhqJst-jq3M1g-t500x500.jpg">](https://soundcloud.com/modeonerecords/calvin-harris-you-used-to-hold-me-control-room-remix)
 
-**Artist**: NOTJACK 
+**Artist**: Mode One Records 
 
-**Track**: Alok - Jungle (Arcando remix) vs Martin Garrix - Scared To Be Lonely (ULTRA 2024 Edit)  [FREE DL]
+**Track**: Calvin Harris - You Used To Hold Me (Control Room Remix)
 
-Last updated at 04/04/2024 21:46
+Last updated at 04/04/2024 21:48
