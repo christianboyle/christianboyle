@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-auxr2WbNqu8TgNEb-eCjyug-t500x500.png">](https://soundcloud.com/henryfong/hamdi-x-princess-superstar-x-taiki-nulight-counting-henry-fong-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNHBMsJN1AM4aJRp-pDwqqw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/meet-her-at-the-love-parade-x-stompin-moji-tane-techno-edit)
 
-**Artist**: Henry Fong 
+**Artist**: MOJI - II 
 
-**Track**: Hamdi x Princess Superstar x Taiki Nulight - Counting (Henry Fong Flip)
+**Track**: Meet Her At The Love Parade X Stompin (MOJI & TANE Techno Edit)
 
-Last updated at 04/04/2024 20:54
+Last updated at 04/04/2024 20:57
