@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjqa4kJvBJlwzjYT-eqYiOg-t500x500.jpg">](https://soundcloud.com/aabnormal/pusherman-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GWq8PdLFfRAwHv18-FO9puQ-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-retaliate-feel-it-too?in=saxurn/sets/grain-gang)
 
-**Artist**: AAbnormal 
+**Artist**: Rewired Records 
 
-**Track**: Pusherman remix
+**Track**: Infinite & Retaliate - Feel It Too
 
-Last updated at 04/05/2024 09:11
+Last updated at 04/05/2024 09:12
