@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFP6RwC2pzYhqJst-jq3M1g-t500x500.jpg">](https://soundcloud.com/modeonerecords/calvin-harris-you-used-to-hold-me-control-room-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ig1yl20faOSvyY3S-8SUHrw-t500x500.jpg">](https://soundcloud.com/yarpo/think-u-the-shit-yarpo-remix)
 
-**Artist**: Mode One Records 
+**Artist**: YARPO 
 
-**Track**: Calvin Harris - You Used To Hold Me (Control Room Remix)
+**Track**: THINK U THE SHIT (Yarpo Remix)
 
-Last updated at 04/04/2024 21:48
+Last updated at 04/04/2024 21:51
