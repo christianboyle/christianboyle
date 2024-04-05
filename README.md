@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6YsecfMAoKgEf2HO-jEjYVA-t500x500.jpg">](https://soundcloud.com/kle95dj/a-techno-edit-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mmCvbA84yPf0q0XC-RpmYHQ-t500x500.jpg">](https://soundcloud.com/tanemusic_official/skrillex-missy-elliott-mr-oizo-ratata-t-a-n-e-techno-edit)
 
-**Artist**: Kide (IT) 
+**Artist**: T A N E 
 
-**Track**: Y2K, bbno$ - Lalala (Kide Techno Edit) / FREE DOWNLOAD
+**Track**: Skrillex, Missy Elliott & Mr. Oizo - RATATA (T A N E Techno Edit)
 
-Last updated at 04/04/2024 21:06
+Last updated at 04/04/2024 21:10
