@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-807ipOP9nXAJtcQr-Apzc3A-t500x500.jpg">](https://soundcloud.com/picklesounds/to-the-beat-pickle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUlTzmmUbO6fpNj1-tOw6Hw-t500x500.jpg">](https://soundcloud.com/kvsta1/rhythm-machine-max-styler-wake-kvsta-edit)
 
-**Artist**: Pickle 
+**Artist**: KVSTA 
 
-**Track**: To The Beat (Pickle Remix)
+**Track**: Westend, Max Styler - Rhythm Machine (WAKE & KVSTA Remix)
 
-Last updated at 04/04/2024 22:34
+Last updated at 04/04/2024 22:39
