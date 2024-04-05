@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rd693pb8tpTAIyC1-DoUCTQ-t500x500.jpg">](https://soundcloud.com/ladybeeofficial/bitch-dont-kill-my-vibe-lady-bee-edit-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-STUeUzyPjQjOxZQ3-eByPng-t500x500.jpg">](https://soundcloud.com/nickjamesaus/shook-pt-3-nick-james-remix-nick-morgan)
 
-**Artist**: Lady Bee 
+**Artist**: Nick James 
 
-**Track**: Bitch, Don't Kill My Vibe (Lady Bee Club Edit) (Extended Mix)
+**Track**: Shook Pt. 3 (Nick James Remix) - Nick Morgan
 
-Last updated at 04/04/2024 21:24
+Last updated at 04/04/2024 21:27
