@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGDtLnNt4Eyz4M3H-CzYmpg-t500x500.jpg">](https://soundcloud.com/dlmtmusic/carnival-dlmt-4am-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rd693pb8tpTAIyC1-DoUCTQ-t500x500.jpg">](https://soundcloud.com/ladybeeofficial/bitch-dont-kill-my-vibe-lady-bee-edit-extended-mix)
 
-**Artist**: DLMT 
+**Artist**: Lady Bee 
 
-**Track**: KANYE WEST & TY DOLLA $IGN - CARNIVAL (DLMT 4AM REMIX)
+**Track**: Bitch, Don't Kill My Vibe (Lady Bee Club Edit) (Extended Mix)
 
-Last updated at 04/04/2024 21:19
+Last updated at 04/04/2024 21:24
