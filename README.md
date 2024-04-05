@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n4ByDq2kAD7YUTQb-DypHdg-t500x500.jpg">](https://soundcloud.com/mixmag-1/the-mix-004-tsvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GWq8PdLFfRAwHv18-FO9puQ-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-retaliate-feel-it-too?in=saxurn/sets/grain-gang)
 
-**Artist**: Mixmag 
+**Artist**: Rewired Records 
 
-**Track**: The Mix 004: TSVI
+**Track**: Infinite & Retaliate - Feel It Too
 
-Last updated at 04/05/2024 07:31
+Last updated at 04/05/2024 08:34
