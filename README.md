@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G13Id9fU5gi0qzhp-xlwNsQ-t500x500.jpg">](https://soundcloud.com/dunkmellowd/huski-be-your-fantasy-mellowd-remix?in=saxurn/sets/grain-gang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbVzcTZHtQ7fuj3U-yRzmPQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-david-rust-x-jakka-b-set-me-free-radio-edit?in=saxurn/sets/grain-gang)
 
-**Artist**: MellowD 
+**Artist**: Rave Alert 
 
-**Track**: Huski - Be Your Fantasy (MellowD Remix)
+**Track**: [PREMIERE] David Rust x Jakka-B - Set Me Free [Radio Edit]
 
-Last updated at 04/05/2024 08:49
+Last updated at 04/05/2024 08:54
