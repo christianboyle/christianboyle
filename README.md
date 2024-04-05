@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPKcyOWus1exnf8C-fZUH4w-t500x500.jpg">](https://soundcloud.com/tanemusic_official/john-summit-hayla-shiver-t-a-n-e-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UD3HXUBOXBFD4XHX-hjly9Q-t500x500.jpg">](https://soundcloud.com/7onyofficial/drums-7ony-remix)
 
-**Artist**: T A N E 
+**Artist**: 7ONY 
 
-**Track**: John Summit & Hayla - Shiver (T A N E Techno Edit)
+**Track**: DRUMS (7ONY REMIX)
 
-Last updated at 04/04/2024 22:25
+Last updated at 04/04/2024 22:29
