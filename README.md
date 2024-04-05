@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9E3B2l8vg4jj2gw6-jApFeA-t500x500.jpg">](https://soundcloud.com/djwake-320500681/rhythm-machine-max-styler-wake-kvsta-edit-prev)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hxiqmx7DurdkoclL-9bnvPQ-t500x500.png">](https://soundcloud.com/sebastianbronk/wiwek-riot-sebastian-bronk-edit-1)
 
-**Artist**: WAKE 
+**Artist**: Sebastian Bronk 
 
-**Track**: Westend, Max Styler - Rhythm Machine (WAKE & KVSTA Remix)
+**Track**: Wiwek - Riot [Sebastian Bronk HARD RAVE Edit]
 
-Last updated at 04/04/2024 21:39
+Last updated at 04/04/2024 21:42
