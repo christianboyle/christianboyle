@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3gx8VuH91MGkiCdb-5xP7MQ-t500x500.jpg">](https://soundcloud.com/thisistido/ray-volpe-laserbeam-tido-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOeDkCva8DKmA2NR-SQamxQ-t500x500.jpg">](https://soundcloud.com/groupchatrecordings/damian-avila-sra-original-mix)
 
-**Artist**: TiDo 
+**Artist**: Group Chat 
 
-**Track**: Ray Volpe - Laserbeam (TiDo Edit) * Free Download *
+**Track**: Damian Avila - SRA (Original Mix)
 
-Last updated at 04/04/2024 20:43
+Last updated at 04/04/2024 20:47
