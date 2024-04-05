@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wO5PP8UHVgysjd2j-BpHMoA-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-fighting-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAtQn7YhmSsNt03O-ORg4Bg-t500x500.jpg">](https://soundcloud.com/rmac-music/rmac-control)
 
-**Artist**: Barong Family 
+**Artist**: RMAC 
 
-**Track**: Fahjah & Oing - Fighting For
+**Track**: RMAC - Control
 
-Last updated at 04/04/2024 21:11
+Last updated at 04/04/2024 21:13
