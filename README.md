@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLF7vxHMl3bx6zpz-Z5DmOA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-amstra-see-you-in-my-dreams-ntna001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCkylKMnaxWx-0-t500x500.jpg">](https://soundcloud.com/darren-styles/so-high-feat-meryll-1)
 
-**Artist**: HATE 
+**Artist**: Darren Styles 
 
-**Track**: Premiere: Amstra - See You In My Dreams [NTNA001]
+**Track**: So High (Teaser) [feat. MERYLL]
 
-Last updated at 04/06/2024 18:29
+Last updated at 04/06/2024 18:30
