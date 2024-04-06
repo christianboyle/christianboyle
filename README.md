@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bO6GHimbxOZ1-0-t500x500.jpg">](https://soundcloud.com/panteros666/ultra-ray)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NvU6PLRTfMryjehX-hprU1A-t500x500.jpg">](https://soundcloud.com/trancestrudel/trancestrudel-wildfire)
 
-**Artist**: Panteros666 
+**Artist**: Trancestrudel 
 
-**Track**: Ultra Ray
+**Track**: Trancestrudel x Calcifer - Wildfire
 
-Last updated at 04/05/2024 18:54
+Last updated at 04/06/2024 16:12
