@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bADLQEV1tBKsbZ9H-0XYWKQ-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/ninive-rebel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOkCvCJa7P4fOXba-iYr59A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/sadbois-next-life-with-sam-varga-natalia-taylar)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Future Generation 
 
-**Track**: Ninive - Rebel
+**Track**: SadBois - Next Life (with Sam Varga & Natalia Taylar)
 
-Last updated at 04/06/2024 18:24
+Last updated at 04/06/2024 18:25
