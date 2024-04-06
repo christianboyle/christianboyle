@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMWOSE4Y9rhodjft-QEPnsw-t500x500.jpg">](https://soundcloud.com/lumberjvck/greedy-lumberjvck-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BGw1OB7MYueBrBO-cCG1wQ-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/far-east-movement-like-a-g6-breez-vip-edit-free-download?in=edmfamilyextras/sets/far-east-movement-like-a-g6)
 
-**Artist**: LUMBERJVCK 
+**Artist**: EDM FAMILY Remixes 
 
-**Track**: Tate McRae - Greedy (LUMBERJVCK FLIP)
+**Track**: Far East Movement - Like A G6 (Breez VIP Edit) [FREE DOWNLOAD]
 
-Last updated at 04/06/2024 16:17
+Last updated at 04/06/2024 16:18
