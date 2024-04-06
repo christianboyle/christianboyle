@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzvgQvE7iBJPxCdm-rPRS7A-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-november-2022-upfront-slammers?in=darn84/sets/outburst-the-monthly-burst-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SjazJdQyW5n9qAaK-Vjfyyw-t500x500.jpg">](https://soundcloud.com/ominousthespirit/nonsense)
 
-**Artist**: Outburst 
+**Artist**: Ominous The Spirit 
 
-**Track**: Outburst ~November 2022 Upfront Slammers 🔊
+**Track**: Nonsense
 
-Last updated at 04/06/2024 18:31
+Last updated at 04/06/2024 18:32
