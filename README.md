@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOkCvCJa7P4fOXba-iYr59A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/sadbois-next-life-with-sam-varga-natalia-taylar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CWYCyVGeW6vszboT-3z9HdA-t500x500.jpg">](https://soundcloud.com/stressheadmusic/sohigh)
 
-**Artist**: Future Generation 
+**Artist**: Stresshead 
 
-**Track**: SadBois - Next Life (with Sam Varga & Natalia Taylar)
+**Track**: So High
 
-Last updated at 04/06/2024 18:25
+Last updated at 04/06/2024 18:26
