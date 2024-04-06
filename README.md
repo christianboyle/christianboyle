@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAO9jyUzFOk7X5MG-52qkDg-t500x500.jpg">](https://soundcloud.com/twofoot/carmelldansen-remix-wyld-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxpJ39MxlUhN-0-t500x500.png">](https://soundcloud.com/marievaunt/the-chosen)
 
-**Artist**: Wyld (Producer) 
+**Artist**: Marie Vaunt 
 
-**Track**: Carmelldansen remix - wyld (Clip)
+**Track**: The Chosen
 
-Last updated at 04/06/2024 18:35
+Last updated at 04/06/2024 18:37
