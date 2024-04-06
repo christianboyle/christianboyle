@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNWHr6Bu73Uyf0j1-qQUcmQ-t500x500.jpg">](https://soundcloud.com/aryadubz/yung-messiah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james)
 
-**Artist**: ARYA 
+**Artist**: Awakening Records 
 
-**Track**: YUNG MESSIAH
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/06/2024 16:23
+Last updated at 04/06/2024 16:25
