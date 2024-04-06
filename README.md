@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pNPeyTzvvxgb0Azq-P4Cgyg-t500x500.jpg">](https://soundcloud.com/manifestdnb/lexed-mad1ad-its-not-over?in=manifestdnb/sets/lexed-mad1ad-its-not-over2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzjBuSwtypwyqFWz-M5LpZg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/baddadanremix)
 
-**Artist**: Manifest 
+**Artist**: MOJI - II 
 
-**Track**: Lexed, MAD1AD - It's Not Over
+**Track**: Baddadan (MOJI, Fahjah, TANE Remix) - SC Edit - Full Version in DL
 
-Last updated at 04/06/2024 17:08
+Last updated at 04/06/2024 18:21
