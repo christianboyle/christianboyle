@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhSNpU2MCNdexYHa-0u0jcA-t500x500.jpg">](https://soundcloud.com/two-friends/twofriendshiding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPpvMbs3j76WHg8f-zzzIzw-t500x500.jpg">](https://soundcloud.com/subcarbon/zurglin-animalistic)
 
-**Artist**: Two Friends 
+**Artist**: SubCarbon Records 
 
-**Track**: Two Friends ft. Arizona Zervas - Hiding
+**Track**: ZURGLIN - Animalistic
 
-Last updated at 04/06/2024 18:33
+Last updated at 04/06/2024 18:34
