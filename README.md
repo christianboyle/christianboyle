@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NvU6PLRTfMryjehX-hprU1A-t500x500.jpg">](https://soundcloud.com/trancestrudel/trancestrudel-wildfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBmhwQkACCluJyj0-al63Jw-t500x500.jpg">](https://soundcloud.com/marenda-914165269/777phonk)
 
-**Artist**: Trancestrudel 
+**Artist**: Marenda 
 
-**Track**: Trancestrudel x Calcifer - Wildfire
+**Track**: 777
 
-Last updated at 04/06/2024 16:12
+Last updated at 04/06/2024 16:13
