@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BGw1OB7MYueBrBO-cCG1wQ-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/far-east-movement-like-a-g6-breez-vip-edit-free-download?in=edmfamilyextras/sets/far-east-movement-like-a-g6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jNWHr6Bu73Uyf0j1-qQUcmQ-t500x500.jpg">](https://soundcloud.com/aryadubz/yung-messiah)
 
-**Artist**: EDM FAMILY Remixes 
+**Artist**: ARYA 
 
-**Track**: Far East Movement - Like A G6 (Breez VIP Edit) [FREE DOWNLOAD]
+**Track**: YUNG MESSIAH
 
-Last updated at 04/06/2024 16:18
+Last updated at 04/06/2024 16:23
