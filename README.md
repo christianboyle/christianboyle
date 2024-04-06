@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPpvMbs3j76WHg8f-zzzIzw-t500x500.jpg">](https://soundcloud.com/subcarbon/zurglin-animalistic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAO9jyUzFOk7X5MG-52qkDg-t500x500.jpg">](https://soundcloud.com/twofoot/carmelldansen-remix-wyld-clip)
 
-**Artist**: SubCarbon Records 
+**Artist**: Wyld (Producer) 
 
-**Track**: ZURGLIN - Animalistic
+**Track**: Carmelldansen remix - wyld (Clip)
 
-Last updated at 04/06/2024 18:34
+Last updated at 04/06/2024 18:35
