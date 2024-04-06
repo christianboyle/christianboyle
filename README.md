@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxpJ39MxlUhN-0-t500x500.png">](https://soundcloud.com/marievaunt/the-chosen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cee1ygo96y5RZ5Jf-m3WBQQ-t500x500.jpg">](https://soundcloud.com/cocobrycebeats/tov-kru-thracia)
 
-**Artist**: Marie Vaunt 
+**Artist**: cocobrycebeats 
 
-**Track**: The Chosen
+**Track**: Tov Kru - Thracia
 
-Last updated at 04/06/2024 18:37
+Last updated at 04/06/2024 18:41
