@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOkCvCJa7P4fOXba-iYr59A-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/sadbois-next-life-with-sam-varga-natalia-taylar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMdV19uOYlwKwURS-9RBu3A-t500x500.jpg">](https://soundcloud.com/antiupmusic/money)
 
-**Artist**: Future Generation 
+**Artist**: Anti Up 
 
-**Track**: SadBois - Next Life (with Sam Varga & Natalia Taylar)
+**Track**: MONEY (ft. Olly Burden)
 
-Last updated at 04/07/2024 15:11
+Last updated at 04/07/2024 15:12
