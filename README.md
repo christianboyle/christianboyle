@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLF7vxHMl3bx6zpz-Z5DmOA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-amstra-see-you-in-my-dreams-ntna001?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3ryF6DAe8y1vD8v-5BHhfg-t500x500.jpg">](https://soundcloud.com/320rip/wristboi-snowpatrolin)
 
-**Artist**: HATE 
+**Artist**: 320 RIP 
 
-**Track**: Premiere: Amstra - See You In My Dreams [NTNA001]
+**Track**: wristboi - SNOWPATROLIN
 
-Last updated at 04/06/2024 19:23
+Last updated at 04/06/2024 19:24
