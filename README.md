@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YNdy8SygMFDXpV8V-EW3tVA-t500x500.jpg">](https://soundcloud.com/carterwalsh9/intoxicated-carter-walsh-mashup-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paS2RzEAVDeBg6Pt-i6QQcg-t500x500.jpg">](https://soundcloud.com/eternalmusicc/lifeline)
 
-**Artist**: CarterWalsh (AUS) 
+**Artist**: ETERNAL 
 
-**Track**: Unwritten X Intoxicated (Carter Walsh Mashup)
+**Track**: ETERNAL - LIFELINE
 
-Last updated at 04/06/2024 19:02
+Last updated at 04/06/2024 19:05
