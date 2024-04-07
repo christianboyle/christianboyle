@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P4h1RSlyvp8F051c-LoOF6Q-t500x500.jpg">](https://soundcloud.com/djhimera/anotherliferemix?in=saxurn/sets/hitters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL7KGZ0epUUQVyX1-CJK1bA-t500x500.jpg">](https://soundcloud.com/audiobambino/dan1dang3r-for-her?in=saxurn/sets/hitters)
 
-**Artist**: Himera 
+**Artist**: audio bambino 
 
-**Track**: PinkPantheress - Another Life (Himera Remix)
+**Track**: dan1dang3r - For Her
 
-Last updated at 04/06/2024 19:46
+Last updated at 04/07/2024 08:47
