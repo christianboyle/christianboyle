@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YDNseTO3PeSJDQI-zRpbfw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-roo-honeychild-operations-of-grace-aaa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsRylqBvll4I6E45-dQR3rA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-pubas-groove-hyperfunk-hyperfunk-001)
 
 **Artist**: Four Four Magazine 
 
-**Track**: Four Four Premiere: Roo Honeychild - Operations Of Grace [AAA]
+**Track**: Four Four Premiere: Pubas Groove - Hyperfunk [HyperFunk 001]
 
-Last updated at 04/06/2024 19:18
+Last updated at 04/06/2024 19:19
