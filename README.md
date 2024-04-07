@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzjBuSwtypwyqFWz-M5LpZg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/baddadanremix?in=saxurn/sets/hitters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paS2RzEAVDeBg6Pt-i6QQcg-t500x500.jpg">](https://soundcloud.com/eternalmusicc/lifeline?in=saxurn/sets/hitters)
 
-**Artist**: MOJI - II 
+**Artist**: ETERNAL 
 
-**Track**: Baddadan (MOJI, Fahjah, TANE Remix) - SC Edit - Full Version in DL
+**Track**: ETERNAL - LIFELINE
 
-Last updated at 04/07/2024 09:04
+Last updated at 04/07/2024 09:06
