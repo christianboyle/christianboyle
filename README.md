@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e936ZQB1lsz6uCCt-8lW11Q-t500x500.jpg">](https://soundcloud.com/beatsbytor/upallnighttiltheskiesgoblack_8trk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on)
 
-**Artist**: Torbjørn 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: upallnighttiltheskiesgoblack_8trk
+**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
 
-Last updated at 04/07/2024 15:13
+Last updated at 04/07/2024 15:14
