@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P4h1RSlyvp8F051c-LoOF6Q-t500x500.jpg">](https://soundcloud.com/djhimera/anotherliferemix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOmfpNz4FFGzYKm5-w7RGrw-t500x500.jpg">](https://soundcloud.com/crescentxx/blame-prod-crescent-yandere-hiyori?in=saxurn/sets/tmp)
 
-**Artist**: Himera 
+**Artist**: crescent 
 
-**Track**: PinkPantheress - Another Life (Himera Remix)
+**Track**: Blame (prod. crescent, yandere, hiyori) **mv in desc**
 
-Last updated at 04/06/2024 19:16
+Last updated at 04/06/2024 19:17
