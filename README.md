@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL7KGZ0epUUQVyX1-CJK1bA-t500x500.jpg">](https://soundcloud.com/audiobambino/dan1dang3r-for-her?in=saxurn/sets/hitters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdLPNuhVNvofM3QQ-zrbKNQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/iloveyou?in=saxurn/sets/hitters)
 
-**Artist**: audio bambino 
+**Artist**: Justice Hardcore 
 
-**Track**: dan1dang3r - For Her
+**Track**: Who Knows - I Love You (OUT NOW)
 
-Last updated at 04/07/2024 08:47
+Last updated at 04/07/2024 08:50
