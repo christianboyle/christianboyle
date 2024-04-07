@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PsRylqBvll4I6E45-dQR3rA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-pubas-groove-hyperfunk-hyperfunk-001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOmfpNz4FFGzYKm5-w7RGrw-t500x500.jpg">](https://soundcloud.com/crescentxx/blame-prod-crescent-yandere-hiyori?in=saxurn/sets/tmp/)
 
-**Artist**: Four Four Magazine 
+**Artist**: crescent 
 
-**Track**: Four Four Premiere: Pubas Groove - Hyperfunk [HyperFunk 001]
+**Track**: Blame (prod. crescent, yandere, hiyori) **mv in desc**
 
-Last updated at 04/06/2024 19:19
+Last updated at 04/06/2024 19:20
