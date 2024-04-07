@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOY0qnNRJ1ukak6A-Sjlc3A-t500x500.jpg">](https://soundcloud.com/nickjamesaus/summertime-sadness-nick-james-artomik-remix-lana-del-rey-2?in=saxurn/sets/hitters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzjBuSwtypwyqFWz-M5LpZg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/baddadanremix?in=saxurn/sets/hitters)
 
-**Artist**: Nick James 
+**Artist**: MOJI - II 
 
-**Track**: Summertime Sadness (Nick James & Artomik Remix) - Lana Del Rey
+**Track**: Baddadan (MOJI, Fahjah, TANE Remix) - SC Edit - Full Version in DL
 
-Last updated at 04/07/2024 08:53
+Last updated at 04/07/2024 09:04
