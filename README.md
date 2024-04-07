@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nB8rcB18YjVjjYk1-pjOlZw-t500x500.jpg">](https://soundcloud.com/niall_lee/exp2-m4a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cee1ygo96y5RZ5Jf-m3WBQQ-t500x500.jpg">](https://soundcloud.com/cocobrycebeats/tov-kru-thracia)
 
-**Artist**: Niall Lee 
+**Artist**: cocobrycebeats 
 
-**Track**: Niall Lee - Makina Mix February 2024
+**Track**: Tov Kru - Thracia
 
-Last updated at 04/07/2024 15:21
+Last updated at 04/07/2024 15:32
