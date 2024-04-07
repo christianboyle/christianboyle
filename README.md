@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzD7CZzx1Q2qK6uH-Fwfe6g-t500x500.jpg">](https://soundcloud.com/bassjackers/artemas-i-like-the-way-you-kiss-me-bassjackers-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOmfpNz4FFGzYKm5-w7RGrw-t500x500.jpg">](https://soundcloud.com/crescentxx/blame-prod-crescent-yandere-hiyori)
 
-**Artist**: BASSJACKERS 
+**Artist**: crescent 
 
-**Track**: Artemas - I Like The Way You Kiss Me (Bassjackers Remix)
+**Track**: Blame (prod. crescent, yandere, hiyori) **mv in desc**
 
-Last updated at 04/06/2024 18:59
+Last updated at 04/06/2024 19:01
