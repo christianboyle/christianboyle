@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsSWQBZpbHN8DMxl-mGCUOA-t500x500.jpg">](https://soundcloud.com/meauxnas/freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzjBuSwtypwyqFWz-M5LpZg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/baddadanremix)
 
-**Artist**: Meauxnas 
+**Artist**: MOJI - II 
 
-**Track**: Freak
+**Track**: Baddadan (MOJI, Fahjah, TANE Remix) - SC Edit - Full Version in DL
 
-Last updated at 04/06/2024 19:08
+Last updated at 04/06/2024 19:09
