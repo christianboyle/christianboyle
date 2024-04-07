@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOmfpNz4FFGzYKm5-w7RGrw-t500x500.jpg">](https://soundcloud.com/crescentxx/blame-prod-crescent-yandere-hiyori?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YDNseTO3PeSJDQI-zRpbfw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-roo-honeychild-operations-of-grace-aaa)
 
-**Artist**: crescent 
+**Artist**: Four Four Magazine 
 
-**Track**: Blame (prod. crescent, yandere, hiyori) **mv in desc**
+**Track**: Four Four Premiere: Roo Honeychild - Operations Of Grace [AAA]
 
-Last updated at 04/06/2024 19:17
+Last updated at 04/06/2024 19:18
