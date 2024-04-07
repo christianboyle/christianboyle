@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOmfpNz4FFGzYKm5-w7RGrw-t500x500.jpg">](https://soundcloud.com/crescentxx/blame-prod-crescent-yandere-hiyori)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YNdy8SygMFDXpV8V-EW3tVA-t500x500.jpg">](https://soundcloud.com/carterwalsh9/intoxicated-carter-walsh-mashup-1)
 
-**Artist**: crescent 
+**Artist**: CarterWalsh (AUS) 
 
-**Track**: Blame (prod. crescent, yandere, hiyori) **mv in desc**
+**Track**: Unwritten X Intoxicated (Carter Walsh Mashup)
 
-Last updated at 04/06/2024 19:01
+Last updated at 04/06/2024 19:02
