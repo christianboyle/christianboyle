@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfxPXr7EDXlpqWvG-JQ4Ykw-t500x500.jpg">](https://soundcloud.com/marievaunt/better-off-alone-marie-vaunt-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bdOu7DxO89NvQoLY-e7G7sQ-t500x500.jpg">](https://soundcloud.com/sablevalley/damager)
 
-**Artist**: Marie Vaunt 
+**Artist**: SABLE VALLEY 
 
-**Track**: Alice Deejay - Better Off Alone - Marie Vaunt Remix
+**Track**: JAWNS - Damager
 
-Last updated at 04/07/2024 09:47
+Last updated at 04/07/2024 15:10
