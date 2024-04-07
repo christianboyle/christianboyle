@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxpJ39MxlUhN-0-t500x500.png">](https://soundcloud.com/marievaunt/the-chosen?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3ryF6DAe8y1vD8v-5BHhfg-t500x500.jpg">](https://soundcloud.com/320rip/wristboi-snowpatrolin?in=saxurn/sets/tmp/)
 
-**Artist**: Marie Vaunt 
+**Artist**: 320 RIP 
 
-**Track**: The Chosen
+**Track**: wristboi - SNOWPATROLIN
 
-Last updated at 04/06/2024 19:27
+Last updated at 04/06/2024 19:34
