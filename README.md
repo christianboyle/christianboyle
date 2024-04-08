@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0t0Jv1lMFYRFraT-1PbkEg-t500x500.jpg">](https://soundcloud.com/slangdogs/seething-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on)
 
-**Artist**: Slang Dogs 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: Seething Eyes
+**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
 
-Last updated at 04/08/2024 08:35
+Last updated at 04/08/2024 08:39
