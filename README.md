@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5flweq4lw9VK5KhH-PLDvhA-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AfjquahvuQcyFZbP-ozGEQQ-t500x500.jpg">](https://soundcloud.com/travelermusic/belafonte-original-mix-2024-remake)
 
-**Artist**: KULA 
+**Artist**: Traveler 
 
-**Track**: KULA_Breakbeat_UK_Bass _14_
+**Track**: Belafonte (Original Mix) (2024 Remake)
 
-Last updated at 04/08/2024 08:23
+Last updated at 04/08/2024 08:26
