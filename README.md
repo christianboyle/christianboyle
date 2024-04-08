@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDUyMd1DStT0C6qn-e5L4hQ-t500x500.jpg">](https://soundcloud.com/levianth/damn-x-93-style-x-griztronics-x-no-beef-x-mo-mamba-x-running-x-error-x-harlem-shakelevianth-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on)
 
-**Artist**: Levianth 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: DAMN X 93 STYLE X GRIZTRONICS X NO BEEF X MO MAMBA X RUNNING X ERROR X HARLEM SHAKE (Levianth Edit)
+**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
 
-Last updated at 04/08/2024 08:27
+Last updated at 04/08/2024 08:31
