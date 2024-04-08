@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ey5KWx6TvAAmesGh-ziJf2A-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/goblin-anthem?in=saxurn/sets/tmp/)
 
-**Artist**: Awakening Records 
+**Artist**: shadow wizard money gang 
 
-**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
+**Track**: Goblin Anthem ft CHXPO
 
-Last updated at 04/08/2024 09:00
+Last updated at 04/08/2024 09:51
