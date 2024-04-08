@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykk7NJDzFJ7e4Fy3-Q8Q6Kw-t500x500.jpg">](https://soundcloud.com/au5/porter-robinson-cheerleader-au5-flip?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/tmp/)
 
-**Artist**: Au5 
+**Artist**: DJ Th0t Sh0t 
 
-**Track**: Porter Robinson - Cheerleader (Au5 Flip)
+**Track**: collab w/ FLO
 
-Last updated at 04/08/2024 08:54
+Last updated at 04/08/2024 08:57
