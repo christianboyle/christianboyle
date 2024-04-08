@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
 
-**Artist**: DJ Th0t Sh0t 
+**Artist**: Awakening Records 
 
-**Track**: collab w/ FLO
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/08/2024 08:57
+Last updated at 04/08/2024 09:00
