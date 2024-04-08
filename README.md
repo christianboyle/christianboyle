@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ey5KWx6TvAAmesGh-ziJf2A-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/goblin-anthem?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPByLRa71V2FFkr6-lUgbqg-t500x500.jpg">](https://soundcloud.com/user-73380478/nobody-likes-the-kick-drums-skearney)
 
-**Artist**: shadow wizard money gang 
+**Artist**: Skearney 
 
-**Track**: Goblin Anthem ft CHXPO
+**Track**: Nobody Likes The Kick Drum - Skearney
 
-Last updated at 04/08/2024 09:51
+Last updated at 04/08/2024 09:52
