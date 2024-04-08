@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cee1ygo96y5RZ5Jf-m3WBQQ-t500x500.jpg">](https://soundcloud.com/cocobrycebeats/tov-kru-thracia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2g8J0vGrofYnkzo-2waEqg-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-kniagna-shanti-kinky-sound-remix-technoblazer)
 
-**Artist**: cocobrycebeats 
+**Artist**: Raven Musik 
 
-**Track**: Tov Kru - Thracia
+**Track**: PREMIERE: Kniagna - Сhanti (Kinky Sound Remix) [Technoblazer]
 
-Last updated at 04/07/2024 15:32
+Last updated at 04/08/2024 08:11
