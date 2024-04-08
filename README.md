@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0iEAaSY7U7Kvkjw-WWMuxA-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
 
-**Artist**: Eufeion 
+**Artist**: Awakening Records 
 
-**Track**: Eufeion - Really Like You - (247)
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/08/2024 09:54
+Last updated at 04/08/2024 09:55
