@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-37zONzNGymwgM1Gx-vbOiig-t500x500.jpg">](https://soundcloud.com/future-bassnet/wonteverletgo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rA0foDgKSOZn5cWk-P5Cs6A-t500x500.jpg">](https://soundcloud.com/kinbaer/supersonic)
 
-**Artist**: Future Bass Records 
+**Artist**: KINBAER 
 
-**Track**: Aluxio - Won't Ever Let Go [Future Bass Release]
+**Track**: Supersonic - PRE-SAVE LINK IN DESCRIPTION
 
-Last updated at 04/08/2024 08:14
+Last updated at 04/08/2024 08:15
