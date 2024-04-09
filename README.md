@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZgjIlZKOpcwR9j-ISF2jg-t500x500.jpg">](https://soundcloud.com/ryansneddon/sneddon-eazy-2-luv-makina-mix-1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
 
-**Artist**: SNEDDON 
+**Artist**: Awakening Records 
 
-**Track**: Easy 2 Luv
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/08/2024 09:56
+Last updated at 04/09/2024 09:09
