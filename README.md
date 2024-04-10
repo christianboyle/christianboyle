@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CnVX2zKSsv1zA5p2-cUIfzw-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-alviker-pompo-kream002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdamdUo3PGzlX9So-8yXegw-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you?in=saxurn/sets/tmp/)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Eufeion 
 
-**Track**: [PREMIERE] Alviker - Pompo [KREAM002]
+**Track**: Eufeion - Really Like You - (247) - 24/05/24
 
-Last updated at 04/10/2024 09:10
+Last updated at 04/10/2024 09:11
