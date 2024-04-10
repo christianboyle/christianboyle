@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gxp8QpuOlcNWbURd-9YToLg-t500x500.jpg">](https://soundcloud.com/enforcerecords/moonlighttechno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7w0UrEzDq6E3B1zh-GNzMgg-t500x500.jpg">](https://soundcloud.com/tony_oat/afrojack-ft-eva-simons-take-over-control-tony-oat-hard-techno-flip-1)
 
-**Artist**: ENFORCE RCRDS 
+**Artist**: TONY OAT II 
 
-**Track**: XXXTentacion - Moonlight [Ozlig Remix]
+**Track**: Afrojack Ft. Eva Simons - Take Over Control (TONY OAT Hard Techno Flip)
 
-Last updated at 04/10/2024 08:58
+Last updated at 04/10/2024 08:59
