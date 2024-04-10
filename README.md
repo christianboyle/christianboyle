@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-el6nGrHWCZ1zVxUz-yN8tzA-t500x500.jpg">](https://soundcloud.com/vastperception/analect-as-long-as-were-together-vs001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oOyS6k3iFuiQ-0-t500x500.jpg">](https://soundcloud.com/holypriest_music/agilator)
 
-**Artist**: Vast Perception 
+**Artist**: HOLY PRIEST 
 
-**Track**: Analect - As Long As We're Together [VS001]
+**Track**: Agilator
 
-Last updated at 04/10/2024 10:26
+Last updated at 04/10/2024 10:27
