@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEeCczcyIObGyAur-3zM0Uw-t500x500.jpg">](https://soundcloud.com/jamesjamesjamess/island)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bydWIsbTxMPwGyPu-Cf3WvQ-t500x500.jpg">](https://soundcloud.com/christian-krauter-1/stomp-clap-stomp)
 
-**Artist**: jamesjamesjames 
+**Artist**: Christian Krauter 
 
-**Track**: island
+**Track**: Stomp Clap Stomp
 
-Last updated at 04/10/2024 10:20
+Last updated at 04/10/2024 10:21
