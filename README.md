@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCYKwaGmgoaT-0-t500x500.jpg">](https://soundcloud.com/uttuclub/dj-physical-a-little-deeper?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on?in=saxurn/sets/tmp/)
 
-**Artist**: Unknown To The Unknown 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: DJ Physical - A Little Deeper
+**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
 
-Last updated at 04/10/2024 10:47
+Last updated at 04/10/2024 10:53
