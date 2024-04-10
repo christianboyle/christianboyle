@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l50tvkeNeh78yvmV-WJWHHg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/partycrasher?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ey5KWx6TvAAmesGh-ziJf2A-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/goblin-anthem?in=saxurn/sets/tmp)
 
-**Artist**: GEO 
+**Artist**: shadow wizard money gang 
 
-**Track**: Party Crasher
+**Track**: Goblin Anthem ft CHXPO
 
-Last updated at 04/10/2024 10:01
+Last updated at 04/10/2024 10:04
