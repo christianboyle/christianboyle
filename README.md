@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRkic1wXg9ywzza8-43tEDA-t500x500.jpg">](https://soundcloud.com/ktrl/ktrl-vice?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l50tvkeNeh78yvmV-WJWHHg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/partycrasher?in=saxurn/sets/tmp/)
 
-**Artist**: KTRL 
+**Artist**: GEO 
 
-**Track**: KTRL - VICE
+**Track**: Party Crasher
 
-Last updated at 04/10/2024 11:02
+Last updated at 04/10/2024 11:05
