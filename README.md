@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ELZS5sR49XzAdg2O-F0RuMQ-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/vkgoblin-dj-ess-mixx-khardkor-ft-bbygoyard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEeCczcyIObGyAur-3zM0Uw-t500x500.jpg">](https://soundcloud.com/jamesjamesjamess/island)
 
-**Artist**: shadow wizard money gang 
+**Artist**: jamesjamesjames 
 
-**Track**: Vkgoblin ☠︎︎ Dj Ess Mixx (хардкор) ft BBYGOYARD ⋆
+**Track**: island
 
-Last updated at 04/10/2024 10:06
+Last updated at 04/10/2024 10:20
