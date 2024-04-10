@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mK59qaG0ziqo4iPJ-GsOMzA-t500x500.jpg">](https://soundcloud.com/shvdz/artemas-i-like-the-way-you-kiss-me-shvdz-remix-2?in=saxurn/sets/tmp/)
 
-**Artist**: Awakening Records 
+**Artist**: SHVDZ 
 
-**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
+**Track**: Artemas - I Like The Way You Kiss Me (SHVDZ Remix)
 
-Last updated at 04/10/2024 10:56
+Last updated at 04/10/2024 10:59
