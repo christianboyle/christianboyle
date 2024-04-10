@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000098157525-904gc9-t500x500.jpg">](https://soundcloud.com/troubleandbass/doctor-jeep-control-flava-d-remix?in=troubleandbass/sets/doctor-jeep-angel-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l50tvkeNeh78yvmV-WJWHHg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/techno)
 
-**Artist**: Trouble & Bass 
+**Artist**: GEO 
 
-**Track**: Doctor Jeep - Control (Flava D Remix)
+**Track**: Got That Techno
 
-Last updated at 04/10/2024 09:02
+Last updated at 04/10/2024 09:03
