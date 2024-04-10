@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l50tvkeNeh78yvmV-WJWHHg-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRkic1wXg9ywzza8-43tEDA-t500x500.jpg">](https://soundcloud.com/ktrl/ktrl-vice)
 
-**Artist**: GEO 
+**Artist**: KTRL 
 
-**Track**: Got That Techno
+**Track**: KTRL - VICE
 
-Last updated at 04/10/2024 09:03
+Last updated at 04/10/2024 09:04
