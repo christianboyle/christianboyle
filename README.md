@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james?in=saxurn/sets/tmp/)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Awakening Records 
 
-**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/10/2024 10:53
+Last updated at 04/10/2024 10:56
