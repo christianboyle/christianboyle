@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0t0Jv1lMFYRFraT-1PbkEg-t500x500.jpg">](https://soundcloud.com/slangdogs/seething-eyes?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCYKwaGmgoaT-0-t500x500.jpg">](https://soundcloud.com/uttuclub/dj-physical-a-little-deeper?in=saxurn/sets/tmp/)
 
-**Artist**: Slang Dogs 
+**Artist**: Unknown To The Unknown 
 
-**Track**: Seething Eyes
+**Track**: DJ Physical - A Little Deeper
 
-Last updated at 04/10/2024 09:13
+Last updated at 04/10/2024 09:17
