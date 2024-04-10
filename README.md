@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k1zs9H9eYcPhzFpo-xtYyhw-t500x500.jpg">](https://soundcloud.com/jokerzulu/heaven-cant-wait?in=jokerzulu/sets/ikati-elimnyama)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQxIGaTpelqJoO98-TMZp9A-t500x500.jpg">](https://soundcloud.com/2spademusic/stayinit-fred-again-lil-yachty-2spade-flip)
 
-**Artist**: JoKeR Zulu 
+**Artist**: 2Spade 
 
-**Track**: Heaven Can Wait
+**Track**: Stayinit - Fred Again Lil Yachty (2Spade Flip)
 
-Last updated at 04/10/2024 09:05
+Last updated at 04/10/2024 09:06
