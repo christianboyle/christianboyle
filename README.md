@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9VSRHzBxwYLHB24-zPXCMQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/nicki-minaj-2-i-wanna-put-u-on?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdamdUo3PGzlX9So-8yXegw-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you?in=saxurn/sets/tmp/)
 
-**Artist**: Hyde Park Hi-Fi 
+**Artist**: Eufeion 
 
-**Track**: Nicki Minaj 2 - I Wanna Put U On Repeat ♫
+**Track**: Eufeion - Really Like You - (247) - 24/05/24
 
-Last updated at 04/10/2024 09:47
+Last updated at 04/10/2024 09:57
