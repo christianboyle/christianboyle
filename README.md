@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyyYXhdIzAICtFym-AHSnmg-t500x500.jpg">](https://soundcloud.com/syn-error/syntax-error-bonkers-1-tribute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUGszmw0FlNoOrbt-kLBDiw-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/ablaze-wobbing)
 
-**Artist**: Jez Toon A.K.A. Syntax  Error 
+**Artist**: Sweet Sounds Collective 
 
-**Track**: Syntax Error - Bonkers 1 Tribute
+**Track**: Ablaze - Wobbing
 
-Last updated at 04/10/2024 09:07
+Last updated at 04/10/2024 09:08
