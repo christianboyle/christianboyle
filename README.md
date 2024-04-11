@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TyGYWh3ysorLAz1D-NcecCA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-ilitsya-remembered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbG1WrAYLj9y8nLa-kmy0aw-t500x500.png">](https://soundcloud.com/satoshijpn/magnetic-satoshi-remix)
 
-**Artist**: Rewired Records 
+**Artist**: SATOSHI 
 
-**Track**: Infinite & ILITSYA - Remembered
+**Track**: ILLIT - Magnetic (SATOSHI Remix)
 
-Last updated at 04/11/2024 08:32
+Last updated at 04/11/2024 08:42
