@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/mad-dusty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000098157835-90vpmv-t500x500.jpg">](https://soundcloud.com/troubleandbass/doctor-jeep-control?in=saxurn/sets/mad-dusty)
 
-**Artist**: DJ Th0t Sh0t 
+**Artist**: Trouble & Bass 
 
-**Track**: collab w/ FLO
+**Track**: Doctor Jeep - Control
 
-Last updated at 04/11/2024 15:48
+Last updated at 04/11/2024 15:50
