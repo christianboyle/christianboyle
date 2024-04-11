@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000522866877-1lwjlg-t500x500.jpg">](https://soundcloud.com/isoxo/groundd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pldn5yiObkTnR3tH-N9OQ4g-t500x500.jpg">](https://soundcloud.com/shatteredrecs/mazi-voyager-headbang)
 
-**Artist**: ISOxo 
+**Artist**: Shattered Records 
 
-**Track**: GROUND
+**Track**: MAZI & Voyager - HEADBANG
 
-Last updated at 04/11/2024 08:30
+Last updated at 04/11/2024 08:31
