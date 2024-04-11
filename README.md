@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mK59qaG0ziqo4iPJ-GsOMzA-t500x500.jpg">](https://soundcloud.com/shvdz/artemas-i-like-the-way-you-kiss-me-shvdz-remix-2?in=saxurn/sets/mad-dusty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRkic1wXg9ywzza8-43tEDA-t500x500.jpg">](https://soundcloud.com/ktrl/ktrl-vice?in=saxurn/sets/mad-dusty)
 
-**Artist**: SHVDZ 
+**Artist**: KTRL 
 
-**Track**: Artemas - I Like The Way You Kiss Me (SHVDZ Remix)
+**Track**: KTRL - VICE
 
-Last updated at 04/11/2024 15:31
+Last updated at 04/11/2024 15:34
