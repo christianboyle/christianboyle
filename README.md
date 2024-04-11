@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HXFNnxCSxRNob6CN-ZDWqfQ-t500x500.png">](https://soundcloud.com/re-tatesedarmusic/oh-caroline-tate-sedar-remix-the-1975?in=side_fx/sets/oh-caroline-tate-sedar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2FFjkuRMc17xrb1x-rsaoFQ-t500x500.jpg">](https://soundcloud.com/baynk/dream?in=baynk/sets/dream-ldoe)
 
-**Artist**: RE: TATE SEDAR 
+**Artist**: BAYNK 
 
-**Track**: Oh Caroline (TATE SEDAR Remix) - The 1975
+**Track**: Dream
 
-Last updated at 04/11/2024 08:48
+Last updated at 04/11/2024 08:49
