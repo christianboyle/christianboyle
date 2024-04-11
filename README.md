@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPxw0BRkN6hm6yAs-nLqx2A-t500x500.jpg">](https://soundcloud.com/jstjr/knock2-dashstar-jstjr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m3UQBs5IhBFDTLmS-pEC5Fw-t500x500.jpg">](https://soundcloud.com/groupchatrecordings/desamor-whoa)
 
-**Artist**: JSTJR 
+**Artist**: Group Chat 
 
-**Track**: Knock2 - Dashstar (JSTJR Remix)
+**Track**: desamor. - WHOA (Original Mix)
 
-Last updated at 04/11/2024 16:58
+Last updated at 04/11/2024 17:01
