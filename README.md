@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPTpRi8zcP6HF158-d7E9aQ-t500x500.jpg">](https://soundcloud.com/loveparkmusic/tate-mcrae-greedy-lovepark-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MvOV7MnFxj53k8af-AuIF8A-t500x500.jpg">](https://soundcloud.com/circusrecords/phocust-x-cafe-disko-hollow-feat-audia)
 
-**Artist**: Lovepark. 
+**Artist**: Circus Records Official 
 
-**Track**: Tate McRae - Greedy (Lovepark. Remix)
+**Track**: Phocust x Cafe Disko - Hollow feat. AUDIA
 
-Last updated at 04/11/2024 08:46
+Last updated at 04/11/2024 08:47
