@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k57KyA9pQrKIeFRr-s4LVRg-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-ivan-reich-julieta-diorio-adc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdamdUo3PGzlX9So-8yXegw-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you?in=saxurn/sets/mad-dusty)
 
-**Artist**: Dabow 
+**Artist**: Eufeion 
 
-**Track**: Dabow, Iván Reich, Julieta Diorio - ADC
+**Track**: Eufeion - Really Like You - (247) - 24/05/24
 
-Last updated at 04/11/2024 08:50
+Last updated at 04/11/2024 08:51
