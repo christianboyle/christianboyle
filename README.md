@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCYKwaGmgoaT-0-t500x500.jpg">](https://soundcloud.com/uttuclub/dj-physical-a-little-deeper?in=saxurn/sets/mad-dusty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mK59qaG0ziqo4iPJ-GsOMzA-t500x500.jpg">](https://soundcloud.com/shvdz/artemas-i-like-the-way-you-kiss-me-shvdz-remix-2?in=saxurn/sets/mad-dusty)
 
-**Artist**: Unknown To The Unknown 
+**Artist**: SHVDZ 
 
-**Track**: DJ Physical - A Little Deeper
+**Track**: Artemas - I Like The Way You Kiss Me (SHVDZ Remix)
 
-Last updated at 04/11/2024 16:33
+Last updated at 04/11/2024 16:45
