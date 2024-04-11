@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7levm7kcGA37Y4LN-nlQI3w-t500x500.jpg">](https://soundcloud.com/djthera/dj-thera-vs-geck-o-give-it-all-memorax-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000522866877-1lwjlg-t500x500.jpg">](https://soundcloud.com/isoxo/groundd)
 
-**Artist**: Dj Thera 
+**Artist**: ISOxo 
 
-**Track**: Dj Thera vs Geck-o - Give It All (Memorax Remix)
+**Track**: GROUND
 
-Last updated at 04/11/2024 08:03
+Last updated at 04/11/2024 08:30
