@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DbnJy9NnZk4ttgwn-HOkc8g-t500x500.jpg">](https://soundcloud.com/quackdaddymusic/kliptic-rzrkt-havoc-quack-daddys-reducks-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPxw0BRkN6hm6yAs-nLqx2A-t500x500.jpg">](https://soundcloud.com/jstjr/knock2-dashstar-jstjr-remix)
 
-**Artist**: Quack Daddy 
+**Artist**: JSTJR 
 
-**Track**: Kliptic & RZRKT- Havoc (Quack Daddy's ReDUCKS) FREE DL
+**Track**: Knock2 - Dashstar (JSTJR Remix)
 
-Last updated at 04/11/2024 16:54
+Last updated at 04/11/2024 16:58
