@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bDu2ceJdge4F7pQT-yh07fQ-t500x500.jpg">](https://soundcloud.com/reidbabbington/3ndles5-effective-power-b4?in=hydeparkhifi/sets/hi-fest-2024-official-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3D8fDP0jeSB1UyN4-LHggxg-t500x500.jpg">](https://soundcloud.com/oliverheldens/artemas-i-like-the-way-you-kiss-me-oliver-heldens-remix)
 
-**Artist**: effective power 
+**Artist**: Oliver Heldens 
 
-**Track**: 3NDLES5 & Effective Power - B4
+**Track**: Artemas - i like the way you kiss me (Oliver Heldens Remix) [mastered by Hardwell]
 
-Last updated at 04/12/2024 10:39
+Last updated at 04/12/2024 10:40
