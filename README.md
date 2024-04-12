@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjgrSk1gEZGQ9D9z-wiyEHg-t500x500.jpg">](https://soundcloud.com/discipleroundtable/swagdads)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJI0WibyA8d2aJyl-NLYoog-t500x500.jpg">](https://soundcloud.com/lilodub/odyssey-mortal)
 
-**Artist**: Disciple Round Table 
+**Artist**: 𝙇𝙞𝙡𝙤 
 
-**Track**: SubDocta & Computa - Swag Dads
+**Track**: Odyssey - Dub Vs. Tekno
 
-Last updated at 04/12/2024 10:43
+Last updated at 04/12/2024 10:44
