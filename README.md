@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJI0WibyA8d2aJyl-NLYoog-t500x500.jpg">](https://soundcloud.com/lilodub/odyssey-mortal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CQHd1WvK38hWmm4-ZyT9qQ-t500x500.jpg">](https://soundcloud.com/lowpolysound/the-noise)
 
-**Artist**: 𝙇𝙞𝙡𝙤 
+**Artist**: Low Poly 
 
-**Track**: Odyssey - Dub Vs. Tekno
+**Track**: The Noise
 
-Last updated at 04/12/2024 10:44
+Last updated at 04/12/2024 10:45
