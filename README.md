@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GjRMWzqgQFqyQp53-UibkdA-t500x500.jpg">](https://soundcloud.com/houzmusicblog/hester-home-hzr044)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gGLdjUCyGQkrJ5jO-OPCCBg-t500x500.jpg">](https://soundcloud.com/darn84/a-sense-of-summer-easin-on)
 
-**Artist**: HOUZ 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: HESTER - HOME [HZR044]
+**Track**: A Sense of Summer - Easin On - Universal (January 1995)
 
-Last updated at 04/12/2024 10:35
+Last updated at 04/12/2024 10:36
