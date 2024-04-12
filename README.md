@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBwYXKAAOOsEBnzO-jdvcPg-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/dj-hybrid-listen-to-this?in=hardcoreenergy/sets/dj-hybrid-lock-stock-two)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GjRMWzqgQFqyQp53-UibkdA-t500x500.jpg">](https://soundcloud.com/houzmusicblog/hester-home-hzr044)
 
-**Artist**: Hardcore Energy 
+**Artist**: HOUZ 
 
-**Track**: DJ Hybrid - Listen To This
+**Track**: HESTER - HOME [HZR044]
 
-Last updated at 04/12/2024 10:34
+Last updated at 04/12/2024 10:35
