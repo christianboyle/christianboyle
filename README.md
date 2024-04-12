@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4lGYbMe3GzhFSoj-BulaGw-t500x500.jpg">](https://soundcloud.com/dukeandjones/horizon-blr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NTAb2XlsWJUU-0-t500x500.jpg">](https://soundcloud.com/itsydg/ydg-no-mercy-1)
 
-**Artist**: Duke & Jones 
+**Artist**: YDG 
 
-**Track**: Horizon (BLR Remix)
+**Track**: YDG - No Mercy
 
-Last updated at 04/12/2024 10:41
+Last updated at 04/12/2024 10:42
