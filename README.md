@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xb9J7K2SvNyc74zE-xIaMNw-t500x500.jpg">](https://soundcloud.com/iambenga/charli-xcx-the-von-dutch-remix-with-skream-and-benga)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBwYXKAAOOsEBnzO-jdvcPg-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/dj-hybrid-listen-to-this?in=hardcoreenergy/sets/dj-hybrid-lock-stock-two)
 
-**Artist**: IAMBENGA 
+**Artist**: Hardcore Energy 
 
-**Track**: Charli XCX - The von dutch remix with skream and benga
+**Track**: DJ Hybrid - Listen To This
 
-Last updated at 04/12/2024 10:33
+Last updated at 04/12/2024 10:34
