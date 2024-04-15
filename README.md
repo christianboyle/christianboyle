@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpVu2LMc9Ueuh44b-6FZjvA-t500x500.jpg">](https://soundcloud.com/disgo_music/disgo-drugs-in-the-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEVsrWIzg8iU2PR4-zzIa9g-t500x500.jpg">](https://soundcloud.com/unknownbrain/ub-ws-outtamyhead)
 
-**Artist**: DISGO 
+**Artist**: Unknown Brain 
 
-**Track**: DRUGS IN THE CLUB (FREE DL)
+**Track**: Unknown Brain - Outta My Head feat. Woodie Smalls
 
-Last updated at 04/15/2024 08:58
+Last updated at 04/15/2024 08:59
