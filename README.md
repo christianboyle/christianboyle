@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mK59qaG0ziqo4iPJ-GsOMzA-t500x500.jpg">](https://soundcloud.com/shvdz/artemas-i-like-the-way-you-kiss-me-shvdz-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R4YXqZaEwA0iP9gv-sIkmwQ-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-rj-pasin-stim-numb-1?in=saxurn/sets/tmp/)
 
-**Artist**: SHVDZ 
+**Artist**: Tom Frane 
 
-**Track**: Artemas - I Like The Way You Kiss Me (SHVDZ Remix)
+**Track**: Tom Frane, RJ Pasin & STIM - Numb
 
-Last updated at 04/15/2024 09:08
+Last updated at 04/15/2024 09:30
