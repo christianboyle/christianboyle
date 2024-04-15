@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TyGYWh3ysorLAz1D-NcecCA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-ilitsya-remembered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mK59qaG0ziqo4iPJ-GsOMzA-t500x500.jpg">](https://soundcloud.com/shvdz/artemas-i-like-the-way-you-kiss-me-shvdz-remix-2)
 
-**Artist**: Rewired Records 
+**Artist**: SHVDZ 
 
-**Track**: Infinite & ILITSYA - Remembered
+**Track**: Artemas - I Like The Way You Kiss Me (SHVDZ Remix)
 
-Last updated at 04/15/2024 09:04
+Last updated at 04/15/2024 09:08
