@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YfzDIoSgHuFfe4y2-k1Y3Rw-t500x500.jpg">](https://soundcloud.com/jeffufu/jeffufu-never-come-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TyGYWh3ysorLAz1D-NcecCA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-ilitsya-remembered)
 
-**Artist**: Jeffufu 
+**Artist**: Rewired Records 
 
-**Track**: Never Come Down
+**Track**: Infinite & ILITSYA - Remembered
 
-Last updated at 04/15/2024 09:03
+Last updated at 04/15/2024 09:04
