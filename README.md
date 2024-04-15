@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4lGYbMe3GzhFSoj-BulaGw-t500x500.jpg">](https://soundcloud.com/dukeandjones/horizon-blr-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNRxjozOXNjJHl0J-bX897Q-t500x500.png">](https://soundcloud.com/remyheartmusic/shm-one-rh-flip?in=saxurn/sets/tmp/)
 
-**Artist**: Duke & Jones 
+**Artist**: Remy Heart 
 
-**Track**: Horizon (BLR Remix)
+**Track**: Swedish House Mafia - One (Remy Heart Flip)
 
-Last updated at 04/15/2024 15:23
+Last updated at 04/15/2024 15:27
