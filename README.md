@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CQHd1WvK38hWmm4-ZyT9qQ-t500x500.jpg">](https://soundcloud.com/lowpolysound/the-noise?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iHIYgOxziWYVVNei-wRDM7g-t500x500.jpg">](https://soundcloud.com/sonxc/miracle?in=saxurn/sets/tmp/)
 
-**Artist**: Low Poly 
+**Artist**: Sonxc 
 
-**Track**: The Noise
+**Track**: MIRACLE
 
-Last updated at 04/15/2024 15:30
+Last updated at 04/15/2024 15:32
