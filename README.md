@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YfzDIoSgHuFfe4y2-k1Y3Rw-t500x500.jpg">](https://soundcloud.com/jeffufu/jeffufu-never-come-down?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iHIYgOxziWYVVNei-wRDM7g-t500x500.jpg">](https://soundcloud.com/sonxc/miracle?in=saxurn/sets/tmp/)
 
-**Artist**: Jeffufu 
+**Artist**: Sonxc 
 
-**Track**: Never Come Down
+**Track**: MIRACLE
 
-Last updated at 04/16/2024 09:19
+Last updated at 04/16/2024 09:23
