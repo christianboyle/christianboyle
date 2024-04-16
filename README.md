@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y411LN1vvh2w-0-t500x500.jpg">](https://soundcloud.com/oneseventy/technikore-redhot-bass-addict)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u6OzYCPcFFRgm77Y-HyCsKQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/drop2/s-kaKzLVpoZqc)
 
-**Artist**: OneSeventy 
+**Artist**: Justice Hardcore 
 
-**Track**: Technikore & Redhot - Bass Addict
+**Track**: EzKill & PaperKrayne - Drop 2Tha Beat (OUT NOW)
 
-Last updated at 04/16/2024 09:32
+Last updated at 04/16/2024 09:34
