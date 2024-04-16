@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shtyadWzGwexRSgt-dRHojA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-tinex-rock-the-disko-trsn022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMYd6zTbDsBftkHk-xypZSQ-t500x500.jpg">](https://soundcloud.com/nightbassrecords/badjokes-madness)
 
-**Artist**: HATE 
+**Artist**: Night Bass 
 
-**Track**: Premiere: TineX - Rock The Disko [TRSN022]
+**Track**: Badjokes - Madness
 
-Last updated at 04/16/2024 14:36
+Last updated at 04/16/2024 14:37
