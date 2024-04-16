@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R4YXqZaEwA0iP9gv-sIkmwQ-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-rj-pasin-stim-numb-1?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4lGYbMe3GzhFSoj-BulaGw-t500x500.jpg">](https://soundcloud.com/dukeandjones/horizon-blr-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Tom Frane 
+**Artist**: Duke & Jones 
 
-**Track**: Tom Frane, RJ Pasin & STIM - Numb
+**Track**: Horizon (BLR Remix)
 
-Last updated at 04/16/2024 08:50
+Last updated at 04/16/2024 08:53
