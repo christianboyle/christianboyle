@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S56bylJ4rspMI1Tw-Ov2n4A-t500x500.jpg">](https://soundcloud.com/scantraxx/imthox-let-the-bass-call)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWsHzlidjLRyVuaf-GND3eA-t500x500.jpg">](https://soundcloud.com/mediiofficial/medii-wisner-when-u-need-somebody-master)
 
-**Artist**: Scantraxx 
+**Artist**: Medii 
 
-**Track**: Imthox - Let The Bass Call
+**Track**: Medii & Wisner - When U Need Somebody
 
-Last updated at 04/16/2024 08:16
+Last updated at 04/16/2024 08:18
