@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzD7CZzx1Q2qK6uH-Fwfe6g-t500x500.jpg">](https://soundcloud.com/bassjackers/artemas-i-like-the-way-you-kiss-me-bassjackers-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CECVRitZ4ezQ774K-WtThfA-t500x500.jpg">](https://soundcloud.com/trapicalmusic/treasure)
 
-**Artist**: BASSJACKERS 
+**Artist**: Trapical Music 
 
-**Track**: Artemas - I Like The Way You Kiss Me (Bassjackers Remix)
+**Track**: Bromar & sebabrazy - Treasure (Prod. T. Matthias)
 
-Last updated at 04/16/2024 14:43
+Last updated at 04/16/2024 14:47
