@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOTRQy7ZYFh1ynzG-EF5y4w-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/tryst-temps-lost-media)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wokIjlkUHcyObGT0-0XbjPA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/bustaclip)
 
-**Artist**: Forbidden Frequencies 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Tryst Temps - Lost Media [Free Download]
+**Track**: The Big Wig - BUST A CLIP
 
-Last updated at 04/16/2024 08:21
+Last updated at 04/16/2024 08:32
