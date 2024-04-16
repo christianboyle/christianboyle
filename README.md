@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wokIjlkUHcyObGT0-0XbjPA-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/bustaclip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NSzvs6mqzZD2zRDW-PKKuTg-t500x500.jpg">](https://soundcloud.com/basscon/basscon-radio-054-feat-mariana-bo)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: BASSCON 
 
-**Track**: The Big Wig - BUST A CLIP
+**Track**: BASSCON RADIO #054 (FEAT MARIANA BO)
 
-Last updated at 04/16/2024 08:32
+Last updated at 04/16/2024 08:36
