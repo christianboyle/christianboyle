@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNRxjozOXNjJHl0J-bX897Q-t500x500.png">](https://soundcloud.com/remyheartmusic/shm-one-rh-flip?in=saxurn/sets/304s-on-the-blade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CQHd1WvK38hWmm4-ZyT9qQ-t500x500.jpg">](https://soundcloud.com/lowpolysound/the-noise?in=saxurn/sets/304s-on-the-blade)
 
-**Artist**: Remy Heart 
+**Artist**: Low Poly 
 
-**Track**: Swedish House Mafia - One (Remy Heart Flip)
+**Track**: The Noise
 
-Last updated at 04/17/2024 10:37
+Last updated at 04/17/2024 10:40
