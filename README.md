@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzkusNIvDNIXlymU-vYINvQ-t500x500.jpg">](https://soundcloud.com/bridgeyb14/bridgey-b-kinn-desire-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lEd1kc7EjPcXlGyp-5UrhOA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-moteka-exploration07-skrpt87)
 
-**Artist**: BRIDGEY-B 
+**Artist**: HATE 
 
-**Track**: Calvin Harris & Sam Smith- Desire (KINN & BRIDGEY REMIX) Radio Edit
+**Track**: Premiere: Moteka - Exploration07 [SKRPT87]
 
-Last updated at 04/17/2024 08:18
+Last updated at 04/17/2024 08:19
