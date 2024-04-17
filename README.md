@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZUcB1KIz6DJKO0H-S7KQxw-t500x500.jpg">](https://soundcloud.com/aaronhyper/i-like-the-way-you-kiss-me-baye-aaron-hyper-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rR3yzjTQz3ooSTWH-A5mw7Q-t500x500.jpg">](https://soundcloud.com/killparis/let-me-pour-you-some-fire)
 
-**Artist**: AARON HYPER 
+**Artist**: Kill Paris 
 
-**Track**: I Like The Way You Kiss Me (BAYÉ & Aaron Hyper Edit)
+**Track**: Let Me Pour You Some Fire
 
-Last updated at 04/16/2024 14:49
+Last updated at 04/17/2024 08:17
