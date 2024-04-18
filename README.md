@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZQL46hWpCDyWobN-8JdwJQ-t500x500.jpg">](https://soundcloud.com/kxchr/darude-sandstorm-kx-chr-hard-techno-edit?in=saxurn/sets/304s-on-the-blade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i34A4ZXE96yZ5Sot-WeER0Q-t500x500.jpg">](https://soundcloud.com/ktkrecords/cadzow-all-day-all-night-ktk049)
 
-**Artist**: KX CHR 
+**Artist**: KTK RECORDS 
 
-**Track**: DARUDE - SANDSTORM (KX CHR Hard Techno Edit) FREE DL EXTENDED
+**Track**: CADZOW - All Day All Night [KTK049]
 
-Last updated at 04/17/2024 10:57
+Last updated at 04/18/2024 06:45
