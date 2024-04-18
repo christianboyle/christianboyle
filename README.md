@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7kIfyQ88Ipl-0-t500x500.jpg">](https://soundcloud.com/alliexandra/john-and-jonathan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XSDo7beRXSz-0-t500x500.jpg">](https://soundcloud.com/alliexandra/black-eye?in=alliexandra/sets/weird-world-34916600)
 
 **Artist**: ALLIE X 
 
-**Track**: John and Jonathan
+**Track**: Black Eye
 
-Last updated at 04/18/2024 06:50
+Last updated at 04/18/2024 06:51
