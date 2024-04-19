@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8f5TePn5VABX-0-t500x500.jpg">](https://soundcloud.com/smrtdeath-music/sad-crown?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4lGYbMe3GzhFSoj-BulaGw-t500x500.jpg">](https://soundcloud.com/dukeandjones/horizon-blr-remix?in=saxurn/sets/tmp/)
 
-**Artist**: SMRTDEATH 
+**Artist**: Duke & Jones 
 
-**Track**: sad crown
+**Track**: Horizon (BLR Remix)
 
-Last updated at 04/19/2024 10:14
+Last updated at 04/19/2024 10:17
