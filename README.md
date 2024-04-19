@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzfVZevSk7Ediyex-F2vBSg-t500x500.jpg">](https://soundcloud.com/dropcentral/thiefofhearts?in=hybridhouse/sets/thiefofhearts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james)
 
-**Artist**: Drop Central 💧 
+**Artist**: Awakening Records 
 
-**Track**: Karner H  - Thief of Hearts
+**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
 
-Last updated at 04/19/2024 08:19
+Last updated at 04/19/2024 08:20
