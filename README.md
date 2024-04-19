@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/cure97-rsun-takeover-feat-nat-james)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqdilpgM4zzOVRLN-mhaJkQ-t500x500.jpg">](https://soundcloud.com/devaultmusic/cant-be-the-only-one)
 
-**Artist**: Awakening Records 
+**Artist**: DEVAULT 
 
-**Track**: CURE97 & rSUN - TAKEOVER (feat. Nat James)
+**Track**: Can’t Be The Only One
 
-Last updated at 04/19/2024 08:20
+Last updated at 04/19/2024 08:21
