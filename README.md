@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BkMHcaCGhUqf-0-t500x500.jpg">](https://soundcloud.com/wearewavedash/b-alright?in=wearewavedash/sets/b-alright-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ybOAdJr5kZvXb7o-Ijh9mQ-t500x500.jpg">](https://soundcloud.com/bvrnd/fergie-glamorous-ft-ludacris-bvrnout-remix)
 
-**Artist**: Wavedash 
+**Artist**: BVRN'D 
 
-**Track**: b Alright!
+**Track**: Fergie - Glamorous ft. Ludacris (BVRNOUT Remix)
 
-Last updated at 04/19/2024 08:23
+Last updated at 04/19/2024 08:24
