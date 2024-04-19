@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gfyziWktYB0gof49-51cKYw-t500x500.jpg">](https://soundcloud.com/souljunk/what-i-want-souljunk-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ta0ktdbecXkayOtB-nu7e4g-t500x500.jpg">](https://soundcloud.com/sam-segan/kissmeremix)
 
-**Artist**: Souljunk 
+**Artist**: Segan 
 
-**Track**: What I Want (Souljunk Bootleg)
+**Track**: Artemas - I Like The Way You Kiss Me (Segan Remix)
 
-Last updated at 04/19/2024 08:25
+Last updated at 04/19/2024 08:28
