@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3L4nu1oWUhkDEPkS-IqLZeg-t500x500.jpg">](https://soundcloud.com/g4-770578076/tokischa-daddy-feat-sexyy-red-dj-woe-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynbGy91arV5UxfGw-SNKhUg-t500x500.jpg">](https://soundcloud.com/luca-t-1/jora-oversky-luca-testa-shine-on-hardstyle-remix?in=saxurn/sets/tmp/)
 
-**Artist**: DJ Woe 
+**Artist**: Luca Testa 
 
-**Track**: Tokischa - Daddy (feat. Sexyy Red) - DJ Woe Remix
+**Track**: Jora, Oversky, Luca Testa, - Shine On [Hardstyle Remix]
 
-Last updated at 04/19/2024 10:23
+Last updated at 04/19/2024 10:26
