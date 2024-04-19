@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYdcwyUHVp5u-0-t500x500.jpg">](https://soundcloud.com/kapuzenmusic/dropping-that-beat?in=hysteriarecords/sets/kapuzen-dropping-that-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WNXAvNDNSGwGd563-fi4TOw-t500x500.jpg">](https://soundcloud.com/carouseedinburgh/sikoti-all-the-way-dxpe-1?in=carouseedinburgh/sets/crs010-sikoti-forever-in-motion-ep)
 
-**Artist**: KAPUZEN 
+**Artist**: ᴄᴀʀᴏᴜsᴇ 
 
-**Track**: Dropping That Beat
+**Track**: SIKOTI - All The Way (DXPE Remix) [CRS010]
 
-Last updated at 04/19/2024 08:16
+Last updated at 04/19/2024 08:17
