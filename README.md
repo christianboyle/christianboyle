@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3L4nu1oWUhkDEPkS-IqLZeg-t500x500.jpg">](https://soundcloud.com/g4-770578076/tokischa-daddy-feat-sexyy-red-dj-woe-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjmihzKxK24fpXzT-zUPRLQ-t500x500.png">](https://soundcloud.com/onlytom-extras/lollipop-onlytom-160-edit?in=saxurn/sets/tmp/)
 
-**Artist**: DJ Woe 
+**Artist**: onlytom ♴ 
 
-**Track**: Tokischa - Daddy (feat. Sexyy Red) - DJ Woe Remix
+**Track**: Lollipop (onlytom 160 edit)
 
-Last updated at 04/19/2024 10:12
+Last updated at 04/19/2024 10:13
