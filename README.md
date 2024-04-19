@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bPy8bLVzoi4FjxZL-4aSR5w-t500x500.jpg">](https://soundcloud.com/rejectionjp/wedieyoungvol4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzfVZevSk7Ediyex-F2vBSg-t500x500.jpg">](https://soundcloud.com/dropcentral/thiefofhearts?in=hybridhouse/sets/thiefofhearts)
 
-**Artist**: rejection 
+**Artist**: Drop Central 💧 
 
-**Track**: 【2024春M3】rejection presents WE DIE YOUNG vol.4【XFD】
+**Track**: Karner H  - Thief of Hearts
 
-Last updated at 04/19/2024 08:18
+Last updated at 04/19/2024 08:19
