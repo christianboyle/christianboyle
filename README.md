@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQQyOie4a9rrzgO1-Ul1JJQ-t500x500.jpg">](https://soundcloud.com/soundsofmayhem/misery)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjILPSTUeBgbddQ2-Q8z3YA-t500x500.jpg">](https://soundcloud.com/interval-audio/emurse-x-kyller-devotion)
 
-**Artist**: Sounds Of Mayhem 
+**Artist**: Interval Audio 
 
-**Track**: PONI - MISERY
+**Track**: Emurse X KYLLER - Devotion
 
-Last updated at 04/20/2024 09:06
+Last updated at 04/20/2024 09:07
