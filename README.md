@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjQThtKZ1g7nDf9i-CQIxgw-t500x500.jpg">](https://soundcloud.com/lowhighpresents/quite-possibly-a-bicycle-day-mix-lysergic-discoveries-vol-04)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8f5TePn5VABX-0-t500x500.jpg">](https://soundcloud.com/smrtdeath-music/sad-crown?in=saxurn/sets/tmp/)
 
-**Artist**: Low & High 
+**Artist**: SMRTDEATH 
 
-**Track**: Quite Possibly A Bicycle Day Mix [Lysergic Discoveries Vol. 04]
+**Track**: sad crown
 
-Last updated at 04/20/2024 09:11
+Last updated at 04/20/2024 10:05
