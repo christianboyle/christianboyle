@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ql81z1dzG0Q05TFx-qi4juA-t500x500.jpg">](https://soundcloud.com/yerbownik/broken-promise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gfyziWktYB0gof49-51cKYw-t500x500.jpg">](https://soundcloud.com/souljunk/what-i-want-souljunk-bootleg)
 
-**Artist**: yerbby 
+**Artist**: Souljunk 
 
-**Track**: broken promise 🌊𓇼 ⋆｡˚ 𓆝⋆｡˚
+**Track**: What I Want (Souljunk Bootleg)
 
-Last updated at 04/20/2024 08:53
+Last updated at 04/20/2024 08:54
