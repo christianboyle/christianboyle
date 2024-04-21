@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k4yh2PcubxAxqMY-CmdKQw-t500x500.png">](https://soundcloud.com/satoshijpn/keha-die-young-satoshi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUgGNU9ItK9Knmyl-Mdytsg-t500x500.jpg">](https://soundcloud.com/tobago-tracks/north-e-site)
 
-**Artist**: SATOSHI 
+**Artist**: TT 
 
-**Track**: Ke$ha - Die Young (SATOSHI Remix)
+**Track**: North E Site
 
-Last updated at 04/21/2024 09:38
+Last updated at 04/21/2024 09:39
