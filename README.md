@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8f5TePn5VABX-0-t500x500.jpg">](https://soundcloud.com/smrtdeath-music/sad-crown?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6HFk1UagX5SmtMy-g5tEfQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkersbeats147)
 
-**Artist**: SMRTDEATH 
+**Artist**: Beat 106 Scotland 
 
-**Track**: sad crown
+**Track**: Bonkers Beats #147 on Beat 106 Scotland with Sharkey/Rob IYF/Jack Small [Angerfist Special] (120424)
 
-Last updated at 04/20/2024 10:05
+Last updated at 04/21/2024 06:19
