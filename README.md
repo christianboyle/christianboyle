@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R7DMtXmPFIQzgpkm-D2UJCQ-t500x500.jpg">](https://soundcloud.com/darn84/brisk-sound-of-happycore-97?in=darn84/sets/the-sound-of-happycore-97)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k4yh2PcubxAxqMY-CmdKQw-t500x500.png">](https://soundcloud.com/satoshijpn/keha-die-young-satoshi-remix)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: SATOSHI 
 
-**Track**: Brisk - Sound of Happycore '97 - Volume 1 (1997)
+**Track**: Ke$ha - Die Young (SATOSHI Remix)
 
-Last updated at 04/21/2024 06:21
+Last updated at 04/21/2024 09:38
