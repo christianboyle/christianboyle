@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6HFk1UagX5SmtMy-g5tEfQ-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkersbeats147)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R7DMtXmPFIQzgpkm-D2UJCQ-t500x500.jpg">](https://soundcloud.com/darn84/brisk-sound-of-happycore-97?in=darn84/sets/the-sound-of-happycore-97)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Bonkers Beats #147 on Beat 106 Scotland with Sharkey/Rob IYF/Jack Small [Angerfist Special] (120424)
+**Track**: Brisk - Sound of Happycore '97 - Volume 1 (1997)
 
-Last updated at 04/21/2024 06:19
+Last updated at 04/21/2024 06:21
