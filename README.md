@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugSupL7L5ITs0qDD-2GdzJw-t500x500.jpg">](https://soundcloud.com/alexisbmusic/yoshi-todo-alexis-b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mXjMTrjxNKiQr7GK-dzMAlw-t500x500.jpg">](https://soundcloud.com/cyrilriley/taylor-swift-fortnight-feat-post-malone-cyril-remix)
 
-**Artist**: Alexis B 
+**Artist**: CYRIL 
 
-**Track**: YOSHI - TODO (Alexis B Remix)
+**Track**: Taylor Swift - Fortnight (Feat. Post Malone) (CYRIL REMIX)
 
-Last updated at 04/22/2024 08:28
+Last updated at 04/22/2024 08:29
