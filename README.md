@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQPYSpjSMZYnVlGP-0X4WIg-t500x500.jpg">](https://soundcloud.com/reefuh/lavigne-prod-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1TYEWdiLkgzVhK5z-CsbggQ-t500x500.jpg">](https://soundcloud.com/whatafuckingbitch/scream)
 
-**Artist**: reef 
+**Artist**: whatafuckingbitch 
 
-**Track**: lavigne prod me
+**Track**: Scream ft. tobaccobowl
 
-Last updated at 04/22/2024 11:42
+Last updated at 04/22/2024 11:43
