@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUVvA9WO6ghSubmo-PkZw1w-t500x500.jpg">](https://soundcloud.com/rynsmusic/saturna-why-u-wanna-ryns-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sR5Dc5Zdm7PXBsDQ-LdKYLg-t500x500.jpg">](https://soundcloud.com/gspacemusic/g-space-x-saint-miller-why-tf-is-u-mad-rip-young-dolph-3-free-dl)
 
-**Artist**: RYNS 
+**Artist**: G-Space 
 
-**Track**: Saturna - Why U Wanna? (RYNS Remix)
+**Track**: G-Space x Saint Miller - Why Tf Is U Mad (RIP YOUNG DOLPH <3 FREE DL)
 
-Last updated at 04/22/2024 11:32
+Last updated at 04/22/2024 11:34
