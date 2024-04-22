@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsRUGH0RxWAO3ChC-j5mkoA-t500x500.jpg">](https://soundcloud.com/laehymusic/take-it-laehy-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhzGyVMNCZhMjlvW-vtvBHg-t500x500.jpg">](https://soundcloud.com/jasemoney/fairytales?in=jasemoney/sets/superchronic)
 
-**Artist**: LAEHY 
+**Artist**: Jase Money 
 
-**Track**: Take It (Radio Edit) - Laehy
+**Track**: Fairy Tales
 
-Last updated at 04/22/2024 11:39
+Last updated at 04/22/2024 11:40
