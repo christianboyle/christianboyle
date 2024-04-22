@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vimljoh0y5SyMPON-cqplpA-t500x500.jpg">](https://soundcloud.com/whatafuckingbitch/imsorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qrMyKW2QxVZR3NYp-cKao1A-t500x500.jpg">](https://soundcloud.com/forbiddenfrequenciesdnb/serpnt-becoming-something)
 
-**Artist**: whatafuckingbitch 
+**Artist**: Forbidden Frequencies 
 
-**Track**: Yeah I Can Get It Done Dont Worry
+**Track**: Serpnt - Becoming Something
 
-Last updated at 04/22/2024 11:44
+Last updated at 04/22/2024 11:45
