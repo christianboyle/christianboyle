@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nDj8di5bWLkAyjaU-q0UyTA-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/le-sserafim-easy-inquisitive-blink-remix?in=inquizzy/sets/le-sserafim-easy-inquisitive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoyLnc6t6ZIBibS4-8qGbQg-t500x500.jpg">](https://soundcloud.com/wubaholics/adame-face-slam?in=wubaholics/sets/adame-emotional-energy-ep)
 
-**Artist**: Inquisitive [Remixes] 2 
+**Artist**: Wubaholics 
 
-**Track**: LE SSERAFIM - EASY (INQUISITIVE & BLINK REMIX)
+**Track**: ADAME - Face Slam
 
-Last updated at 04/22/2024 08:30
+Last updated at 04/22/2024 08:33
