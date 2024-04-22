@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoyLnc6t6ZIBibS4-8qGbQg-t500x500.jpg">](https://soundcloud.com/wubaholics/adame-face-slam?in=wubaholics/sets/adame-emotional-energy-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOtszBwVK5LMPRrp-oFVjSg-t500x500.jpg">](https://soundcloud.com/darn84/sunshine-productions-take-me)
 
-**Artist**: Wubaholics 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: ADAME - Face Slam
+**Track**: Sunshine Productions - Take Me To The Top - Just Another Label (1993)
 
-Last updated at 04/22/2024 08:33
+Last updated at 04/22/2024 08:35
