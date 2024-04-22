@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1TYEWdiLkgzVhK5z-CsbggQ-t500x500.jpg">](https://soundcloud.com/whatafuckingbitch/scream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vimljoh0y5SyMPON-cqplpA-t500x500.jpg">](https://soundcloud.com/whatafuckingbitch/imsorry)
 
 **Artist**: whatafuckingbitch 
 
-**Track**: Scream ft. tobaccobowl
+**Track**: Yeah I Can Get It Done Dont Worry
 
-Last updated at 04/22/2024 11:43
+Last updated at 04/22/2024 11:44
