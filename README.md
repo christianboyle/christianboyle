@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQxIGaTpelqJoO98-TMZp9A-t500x500.jpg">](https://soundcloud.com/2spademusic/stayinit-fred-again-lil-yachty-2spade-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUVvA9WO6ghSubmo-PkZw1w-t500x500.jpg">](https://soundcloud.com/rynsmusic/saturna-why-u-wanna-ryns-remix)
 
-**Artist**: 2Spade 
+**Artist**: RYNS 
 
-**Track**: Stayinit - Fred Again Lil Yachty (2Spade Flip)
+**Track**: Saturna - Why U Wanna? (RYNS Remix)
 
-Last updated at 04/22/2024 11:31
+Last updated at 04/22/2024 11:32
