@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zw16eW6j5ETjtqIu-dz5gfw-t500x500.jpg">](https://soundcloud.com/darn84/dj-vibes-mix-platinum-happy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gfyziWktYB0gof49-51cKYw-t500x500.jpg">](https://soundcloud.com/souljunk/what-i-want-souljunk-bootleg)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Souljunk 
 
-**Track**: DJ Vibes Mix - Platinum Happy Hardcore (2006)
+**Track**: What I Want (Souljunk Bootleg)
 
-Last updated at 04/22/2024 11:29
+Last updated at 04/22/2024 11:30
