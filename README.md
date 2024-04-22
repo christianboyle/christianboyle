@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhzGyVMNCZhMjlvW-vtvBHg-t500x500.jpg">](https://soundcloud.com/jasemoney/fairytales?in=jasemoney/sets/superchronic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fjx6pMWosAGomR0s-MmLUyA-t500x500.jpg">](https://soundcloud.com/darn84/darren-styles-cuttin-deep)
 
-**Artist**: Jase Money 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Fairy Tales
+**Track**: Darren Styles - Cuttin deep - Raverbaby (2005)
 
-Last updated at 04/22/2024 11:40
+Last updated at 04/22/2024 11:41
