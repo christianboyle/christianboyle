@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VdqTK3dWyq8gctY9-sxjxcA-t500x500.jpg">](https://soundcloud.com/buzzjuniortoo/sexyy-redd-skeeyee-buzz-junior-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mJLyMR3XyG7VDiMd-UXzQ6Q-t500x500.jpg">](https://soundcloud.com/thealteredsoul/emotion-engine-interval-audio)
 
-**Artist**: buzz junior too 
+**Artist**: Altered Soul 
 
-**Track**: Sexyy Redd - Skeeyee (Buzz Junior Remix)
+**Track**: Emotion Engine
 
-Last updated at 04/22/2024 11:37
+Last updated at 04/22/2024 11:38
