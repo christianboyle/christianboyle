@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PANoq7EARwptC3n1-Oz6yjQ-t500x500.jpg">](https://soundcloud.com/user-484501021/dez1-dru-astrobag-travis-scott)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGrzHjdg9lUZAflF-PzaWOQ-t500x500.jpg">](https://soundcloud.com/justicehardcore/psroi1)
 
-**Artist**: DËZ1 n DRÜ 
+**Artist**: Justice Hardcore 
 
-**Track**: DEZ1 & DRU - TRAVIS TEKK
+**Track**: Nobody - Put Some Respect On It Vol.1 ✅FREE DOWNLOAD✅
 
-Last updated at 04/23/2024 08:30
+Last updated at 04/23/2024 08:31
