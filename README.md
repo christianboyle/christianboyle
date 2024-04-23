@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hs7z2D2JpwHP9zyc-99vrqg-t500x500.jpg">](https://soundcloud.com/agatkaaa/nadia-oh-got-your-number-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkhUfeUJxo1Me92F-nxmJEA-t500x500.jpg">](https://soundcloud.com/itsnathanhoe/got-your-number-x-forever)
 
-**Artist**: Agatka Iskra 
+**Artist**: ☆ nathan ☆ 
 
-**Track**: Nadia Oh - Got Your Number (Remix)
+**Track**: GOT YOUR NUMBER X FOREVER
 
-Last updated at 04/23/2024 13:49
+Last updated at 04/23/2024 13:50
