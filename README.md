@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NKnkfq8pniWAB09e-0hMLZg-t500x500.jpg">](https://soundcloud.com/am04034/got-ur-number-among-us-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
 
-**Artist**: lane📂② 
+**Artist**: Rinse France 
 
-**Track**: got ur number (among us remix)
+**Track**: Shampain invite DJ Something - 22 Avril 2024
 
-Last updated at 04/23/2024 08:52
+Last updated at 04/23/2024 08:57
