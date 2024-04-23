@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPzeeEHl567w08Ix-xmHhKw-t500x500.jpg">](https://soundcloud.com/hrly11/tate-mcrae-greedy-hrly-eternity-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PANoq7EARwptC3n1-Oz6yjQ-t500x500.jpg">](https://soundcloud.com/user-484501021/dez1-dru-astrobag-travis-scott)
 
-**Artist**: HRLY 
+**Artist**: DËZ1 n DRÜ 
 
-**Track**: Tate McRae - Greedy (HRLY 'Eternity' Edit)[FREE DOWNLOAD]
+**Track**: DEZ1 & DRU - TRAVIS TEKK
 
-Last updated at 04/22/2024 11:47
+Last updated at 04/23/2024 08:30
