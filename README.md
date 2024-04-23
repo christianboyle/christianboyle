@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000046623727-ia6uey-t500x500.jpg">](https://soundcloud.com/dicegabo/nadia-oh-featuring-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
 
-**Artist**: EDLESS 
+**Artist**: Rinse France 
 
-**Track**: Nadia Oh featuring Space Cowboy - Got Your Number
+**Track**: Shampain invite DJ Something - 22 Avril 2024
 
-Last updated at 04/23/2024 13:51
+Last updated at 04/23/2024 13:52
