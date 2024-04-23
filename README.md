@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMVRjN01k8lA3ges-GvrEvg-t500x500.jpg">](https://soundcloud.com/evelyn-caudillo/got-your-number-sped-up)
 
-**Artist**: Rinse France 
+**Artist**: ♡ tulipbasil ♡ 
 
-**Track**: Shampain invite DJ Something - 22 Avril 2024
+**Track**: Got your number - Nadia oh sped up ♡
 
-Last updated at 04/23/2024 08:45
+Last updated at 04/23/2024 08:48
