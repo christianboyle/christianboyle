@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkhUfeUJxo1Me92F-nxmJEA-t500x500.jpg">](https://soundcloud.com/itsnathanhoe/got-your-number-x-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000046623727-ia6uey-t500x500.jpg">](https://soundcloud.com/dicegabo/nadia-oh-featuring-space)
 
-**Artist**: ☆ nathan ☆ 
+**Artist**: EDLESS 
 
-**Track**: GOT YOUR NUMBER X FOREVER
+**Track**: Nadia Oh featuring Space Cowboy - Got Your Number
 
-Last updated at 04/23/2024 13:50
+Last updated at 04/23/2024 13:51
