@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5pinGSyxsqKjoZC-f2OmkQ-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-where-you-been)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R78lTfdyX9pjsiYF-Fwm0tw-t500x500.jpg">](https://soundcloud.com/minitbyminit/sctt-f31n-retimed-by-minit)
 
-**Artist**: Barong Family 
+**Artist**: Minit 
 
-**Track**: Fahjah & Oing - Where You Been
+**Track**: sctt - f31n (Retimed by Minit)
 
-Last updated at 04/24/2024 13:49
+Last updated at 04/24/2024 13:50
