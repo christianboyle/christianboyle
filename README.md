@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Jmif6hgbDmvzVCS-9ZiQIg-t500x500.jpg">](https://soundcloud.com/basiliskbass/creatures-joe-raygun-strix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuWe5dkpyynK3EdY-oeClBA-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-ikkhi-freak-outt)
 
-**Artist**: Basilisk Bass 
+**Artist**: Techno Wereld 
 
-**Track**: Creatures & Joe Raygun - Strix
+**Track**: Premiere: Ikkhi - Freak Out!
 
-Last updated at 04/24/2024 10:37
+Last updated at 04/24/2024 10:38
