@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R78lTfdyX9pjsiYF-Fwm0tw-t500x500.jpg">](https://soundcloud.com/minitbyminit/sctt-f31n-retimed-by-minit?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-suAXBIidc8z15thw-UjBzVw-t500x500.jpg">](https://soundcloud.com/culture-shock/artemas-flip?in=saxurn/sets/tmp2/)
 
-**Artist**: Minit 
+**Artist**: CULTURE SHOCK 
 
-**Track**: sctt - f31n (Retimed by Minit)
+**Track**: Artemas - i like the way you kiss me (Culture Shock's D&B Flip)
 
-Last updated at 04/24/2024 14:28
+Last updated at 04/24/2024 14:29
