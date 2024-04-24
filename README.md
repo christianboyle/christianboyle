@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/just-like-this)
 
-**Artist**: Rinse France 
+**Artist**: dj something 
 
-**Track**: Shampain invite DJ Something - 22 Avril 2024
+**Track**: Just like this
 
-Last updated at 04/23/2024 14:24
+Last updated at 04/24/2024 08:34
