@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YA26F41EycNS11CP-ASlMtg-t500x500.jpg">](https://soundcloud.com/fryarmusic/w-venture5-melody-in-my-head?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPzeeEHl567w08Ix-xmHhKw-t500x500.jpg">](https://soundcloud.com/hrly11/tate-mcrae-greedy-hrly-eternity-edit?in=saxurn/sets/tmp2/)
 
-**Artist**: Fryar 
+**Artist**: Pete Summers 
 
-**Track**: w/ Venture5 - Melody In My Head
+**Track**: Tate McRae - Greedy (Pete Summers 'Eternity' Edit)[FREE DOWNLOAD]
 
-Last updated at 04/24/2024 14:30
+Last updated at 04/24/2024 14:32
