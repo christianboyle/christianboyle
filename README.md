@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k4yh2PcubxAxqMY-CmdKQw-t500x500.png">](https://soundcloud.com/satoshijpn/keha-die-young-satoshi-remix?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMkFup6wNzi1UgxN-3IzPSQ-t500x500.jpg">](https://soundcloud.com/blackworksclub/angel-cannon-hit-the-speaker?in=saxurn/sets/tmp2/)
 
-**Artist**: SATOSHI 
+**Artist**: Blackworks 
 
-**Track**: Ke$ha - Die Young (SATOSHI Remix)
+**Track**: ANGEL CANNON - HIT THE SPEAKER (Original Mix)
 
-Last updated at 04/24/2024 14:48
+Last updated at 04/24/2024 14:51
