@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMkFup6wNzi1UgxN-3IzPSQ-t500x500.jpg">](https://soundcloud.com/blackworksclub/angel-cannon-aether-original?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjmihzKxK24fpXzT-zUPRLQ-t500x500.png">](https://soundcloud.com/onlytom-extras/lollipop-onlytom-160-edit?in=saxurn/sets/tmp/)
 
-**Artist**: Blackworks 
+**Artist**: onlytom ♴ 
 
-**Track**: ANGEL CANNON - AETHER (Original Mix)
+**Track**: Lollipop (onlytom 160 edit)
 
-Last updated at 04/24/2024 08:51
+Last updated at 04/24/2024 08:57
