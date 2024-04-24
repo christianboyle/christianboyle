@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPzeeEHl567w08Ix-xmHhKw-t500x500.jpg">](https://soundcloud.com/hrly11/tate-mcrae-greedy-hrly-eternity-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ua5f8ywHGdgF5ifl-tTM93w-t500x500.jpg">](https://soundcloud.com/aceonearth/conscious-evolvers-vol-3)
 
-**Artist**: Pete Summers 
+**Artist**: Ace On Earth 
 
-**Track**: Tate McRae - Greedy (Pete Summers 'Eternity' Edit)[FREE DOWNLOAD]
+**Track**: Conscious Evolvers Vol 3 (All Original, Unreleased Mix)
 
-Last updated at 04/24/2024 10:33
+Last updated at 04/24/2024 10:34
