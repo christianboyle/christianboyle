@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/untitled)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8f5TePn5VABX-0-t500x500.jpg">](https://soundcloud.com/smrtdeath-music/sad-crown?in=saxurn/sets/tmp/)
 
-**Artist**: dj something 
+**Artist**: SMRTDEATH 
 
-**Track**: Untitled
+**Track**: sad crown
 
-Last updated at 04/24/2024 08:39
+Last updated at 04/24/2024 08:40
