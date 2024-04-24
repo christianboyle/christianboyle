@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKJix4hzP9scptfD-53R2Ow-t500x500.jpg">](https://soundcloud.com/karezza_beatz/magic-mixtape-vol-2-charm-all-original-unreleased)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-suAXBIidc8z15thw-UjBzVw-t500x500.jpg">](https://soundcloud.com/culture-shock/artemas-flip?in=saxurn/sets/tmp2/)
 
-**Artist**: Karezza 
+**Artist**: CULTURE SHOCK 
 
-**Track**: Magic Mixtape Vol. 2: Charm (All Original Unreleased)
+**Track**: Artemas - i like the way you kiss me (Culture Shock's D&B Flip)
 
-Last updated at 04/24/2024 13:51
+Last updated at 04/24/2024 13:54
