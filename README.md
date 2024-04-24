@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BkMHcaCGhUqf-0-t500x500.jpg">](https://soundcloud.com/wearewavedash/b-alright?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3L4nu1oWUhkDEPkS-IqLZeg-t500x500.jpg">](https://soundcloud.com/g4-770578076/tokischa-daddy-feat-sexyy-red-dj-woe-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Wavedash 
+**Artist**: DJ Woe 
 
-**Track**: b Alright!
+**Track**: Tokischa - Daddy (feat. Sexyy Red) - DJ Woe Remix
 
-Last updated at 04/24/2024 08:46
+Last updated at 04/24/2024 08:49
