@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/bushwick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zpzagKnzDS1TWaJM-HLRr8g-t500x500.jpg">](https://soundcloud.com/djsmth/house-demo?in=djsmth/sets/every-track-dj-something-uses)
 
 **Artist**: dj something 
 
-**Track**: Bushwick
+**Track**: house demo
 
-Last updated at 04/24/2024 08:36
+Last updated at 04/24/2024 08:37
