@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fNxps9yfDI3wE9wp-tgmSwA-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/four-four-premiere-datsko-wait-for-me-reboot-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVtEKz5LodzGWsbO-X9ayJQ-t500x500.jpg">](https://soundcloud.com/rationalsoul/rational-soul-turntable-assassin-rsrc002)
 
-**Artist**: Four Four Magazine 
+**Artist**: RATIONAL SOUL 
 
-**Track**: Four Four Premiere: DATSKO - Wait For Me [Reboot Records]
+**Track**: RATIONAL SOUL - TURNTABLE ASSASSIN [RSRC002]
 
-Last updated at 04/24/2024 10:35
+Last updated at 04/24/2024 10:36
