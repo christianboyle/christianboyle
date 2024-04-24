@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMkFup6wNzi1UgxN-3IzPSQ-t500x500.jpg">](https://soundcloud.com/blackworksclub/angel-cannon-hit-the-speaker?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R78lTfdyX9pjsiYF-Fwm0tw-t500x500.jpg">](https://soundcloud.com/minitbyminit/sctt-f31n-retimed-by-minit?in=saxurn/sets/tmp2/)
 
-**Artist**: Blackworks 
+**Artist**: Minit 
 
-**Track**: ANGEL CANNON - HIT THE SPEAKER (Original Mix)
+**Track**: sctt - f31n (Retimed by Minit)
 
-Last updated at 04/24/2024 14:17
+Last updated at 04/24/2024 14:22
