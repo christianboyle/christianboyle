@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uW5bz3R2t90vCbeg-3zpFOw-t500x500.jpg">](https://soundcloud.com/apticellscape/unfinished-dont-leave-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edNEcP3ufPSVRsyw-KXlcSw-t500x500.jpg">](https://soundcloud.com/darkyycomet/darkyycomet-newfangled-darkyycomet-remix)
 
-**Artist**: HapticHellscape 
+**Artist**: DarKYYComet 
 
-**Track**: Unfinished (Don't Leave Me)
+**Track**: DarKYYComet - Newfangled (DarKYYComet Remix)
 
-Last updated at 04/25/2024 18:07
+Last updated at 04/25/2024 18:08
