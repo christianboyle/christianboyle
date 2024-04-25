@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLZMVFN8dx2JCLzW-lOWE0Q-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-aleya?in=saxurn/sets/permutes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-suAXBIidc8z15thw-UjBzVw-t500x500.jpg">](https://soundcloud.com/culture-shock/artemas-flip?in=saxurn/sets/permutes)
 
-**Artist**: M-Project 
+**Artist**: CULTURE SHOCK 
 
-**Track**: M-Project - Aleya
+**Track**: Artemas - i like the way you kiss me (Culture Shock's D&B Flip)
 
-Last updated at 04/24/2024 15:39
+Last updated at 04/24/2024 20:46
