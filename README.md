@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPxHIeaKzyWimAmw-ProV5A-t500x500.jpg">](https://soundcloud.com/rydie/public-domain-operation-blade-bass-in-the-place-prydie-hard-edit?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i34A4ZXE96yZ5Sot-WeER0Q-t500x500.jpg">](https://soundcloud.com/ktkrecords/cadzow-all-day-all-night-ktk049/s-BUDYwSrrx63?in=saxurn/sets/hot-and-cool)
 
-**Artist**: PRYDIE 
+**Artist**: KTK RECORDS 
 
-**Track**: Public Domain - Operation Blade "Bass In The Place" [PRYDIE HARD EDIT] FREE DOWNLOAD
+**Track**: CADZOW - All Day All Night [KTK049]
 
-Last updated at 04/26/2024 16:17
+Last updated at 04/26/2024 16:26
