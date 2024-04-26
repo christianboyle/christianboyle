@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yG4gYsr9quNw7A6b-20MRbw-t500x500.jpg">](https://soundcloud.com/mark-smith-322079849/hardy-m-mark-smith-ilogic)
 
-**Artist**: DJGEMINI 
+**Artist**: Mark Smith 
 
-**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
+**Track**: Hardy M & Mark Smith - iLogic [Sample]
 
-Last updated at 04/26/2024 08:44
+Last updated at 04/26/2024 08:45
