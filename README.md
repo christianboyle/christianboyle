@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEWmGjFX2CXYFyIS-8yM0GQ-t500x500.jpg">](https://soundcloud.com/belavie/howtosavealife)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample)
 
-**Artist**: Bélavie 
+**Artist**: DJGEMINI 
 
-**Track**: The Fray - How To Save A Life (Bélavie Edit) | Free DL
+**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
 
-Last updated at 04/26/2024 10:54
+Last updated at 04/26/2024 11:00
