@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edNEcP3ufPSVRsyw-KXlcSw-t500x500.jpg">](https://soundcloud.com/darkyycomet/darkyycomet-newfangled-darkyycomet-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample)
 
-**Artist**: DarKYYComet 
+**Artist**: DJGEMINI 
 
-**Track**: DarKYYComet - Newfangled (DarKYYComet Remix)
+**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
 
-Last updated at 04/25/2024 18:08
+Last updated at 04/26/2024 08:44
