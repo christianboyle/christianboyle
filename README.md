@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHZrSg8xwKhoiXH9-K8zdnQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/stringtheory?in=spaceshipearthmusix/sets/string-theory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ve9S6mWPQkeT-0-t500x500.png">](https://soundcloud.com/maudevos/maude-vos-nocturnal-catharsis)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: Maude Vôs 
 
-**Track**: Psyoptic & Spaceship Earth - String Theory
+**Track**: Maude Vôs - Nocturnal Catharsis
 
-Last updated at 04/26/2024 08:52
+Last updated at 04/26/2024 08:53
