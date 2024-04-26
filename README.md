@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pGzRqRGPBt4y4Qb5-8LGYpA-t500x500.jpg">](https://soundcloud.com/awakening_records/ekali-lizdek-forget-about-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LWNwxG8LBibYDoBf-YqPkkw-t500x500.jpg">](https://soundcloud.com/nghthyp/vay-1)
 
-**Artist**: Awakening Records 
+**Artist**: NGHTHYP 
 
-**Track**: Ekali & Lizdek - Forget About You
+**Track**: VAY
 
-Last updated at 04/26/2024 08:46
+Last updated at 04/26/2024 08:47
