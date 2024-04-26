@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FfFxP7bFmiQrcWH-e1GxXQ-t500x500.jpg">](https://soundcloud.com/sekta/sekta-marzo-carnival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aV9KtUufNiH6WQ3a-QXbvtA-t500x500.jpg">](https://soundcloud.com/picklesounds/rumble-pickle-remix)
 
-**Artist**: SEKTA 
+**Artist**: Pickle 
 
-**Track**: SEKTA & MARZO - CARNIVAL
+**Track**: Rumble (Pickle Remix)
 
-Last updated at 04/26/2024 10:41
+Last updated at 04/26/2024 10:51
