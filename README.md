@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yG4gYsr9quNw7A6b-20MRbw-t500x500.jpg">](https://soundcloud.com/mark-smith-322079849/hardy-m-mark-smith-ilogic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pGzRqRGPBt4y4Qb5-8LGYpA-t500x500.jpg">](https://soundcloud.com/awakening_records/ekali-lizdek-forget-about-you)
 
-**Artist**: Mark Smith 
+**Artist**: Awakening Records 
 
-**Track**: Hardy M & Mark Smith - iLogic [Sample]
+**Track**: Ekali & Lizdek - Forget About You
 
-Last updated at 04/26/2024 08:45
+Last updated at 04/26/2024 08:46
