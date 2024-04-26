@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iekYpyLNUaXwOP8g-zlJf3g-t500x500.jpg">](https://soundcloud.com/makewavs/wibezz-this-what-they-want-feat-rabbithole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mCcl87P3ap1Lzoam-YELkDA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/adam-mohican-can-you-feel-it-your-body-move-orignal-mix?in=fatalenergyrecords/sets/600th-release-album-teamfatal)
 
-**Artist**: Make Wavs 
+**Artist**: Fatal Energy Records 
 
-**Track**: WibeZz - This what they want (feat. Rabbithole)
+**Track**: Adam Mohican - Can You Feel It (Your Body Move) (Orignal Mix)
 
-Last updated at 04/26/2024 08:59
+Last updated at 04/26/2024 09:07
