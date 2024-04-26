@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mCcl87P3ap1Lzoam-YELkDA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/adam-mohican-can-you-feel-it-your-body-move-orignal-mix?in=fatalenergyrecords/sets/600th-release-album-teamfatal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000560949843-yyvemn-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/we-rob-rave-hypnotyze)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Hardcore Energy 
 
-**Track**: Adam Mohican - Can You Feel It (Your Body Move) (Orignal Mix)
+**Track**: We Rob Rave  - Hypnotyze
 
-Last updated at 04/26/2024 09:07
+Last updated at 04/26/2024 09:58
