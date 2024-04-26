@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GJWorSN6pWFcJQBc-IecWoA-t500x500.jpg">](https://soundcloud.com/clubwrk/olivine-calling-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iekYpyLNUaXwOP8g-zlJf3g-t500x500.jpg">](https://soundcloud.com/makewavs/wibezz-this-what-they-want-feat-rabbithole)
 
-**Artist**: CLUBWRK 
+**Artist**: Make Wavs 
 
-**Track**: Olivine - Calling For You
+**Track**: WibeZz - This what they want (feat. Rabbithole)
 
-Last updated at 04/26/2024 08:58
+Last updated at 04/26/2024 08:59
