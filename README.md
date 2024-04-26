@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oybKjfFt86ZWsQ71-LTwC6w-t500x500.jpg">](https://soundcloud.com/popthatrunk/pop-tha-trunk-icewear-vezzo-mudd-baby-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nHZrSg8xwKhoiXH9-K8zdnQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/stringtheory?in=spaceshipearthmusix/sets/string-theory)
 
-**Artist**: POP THA TRUNK 
+**Artist**: Psychocybin Recordings 
 
-**Track**: POP THA TRUNK - ICEWEAR VEZZO - MUDD BABY [FLIP]
+**Track**: Psyoptic & Spaceship Earth - String Theory
 
-Last updated at 04/26/2024 08:51
+Last updated at 04/26/2024 08:52
