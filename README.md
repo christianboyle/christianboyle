@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uW5bz3R2t90vCbeg-3zpFOw-t500x500.jpg">](https://soundcloud.com/apticellscape/unfinished-dont-leave-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8f5TePn5VABX-0-t500x500.jpg">](https://soundcloud.com/smrtdeath-music/sad-crown?in=saxurn/sets/tmp/)
 
-**Artist**: HapticHellscape 
+**Artist**: SMRTDEATH 
 
-**Track**: Unfinished (Don't Leave Me)
+**Track**: sad crown
 
-Last updated at 04/26/2024 11:41
+Last updated at 04/26/2024 15:55
