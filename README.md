@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rF55L2eJJ1WER2XP-hZ7YXw-t500x500.jpg">](https://soundcloud.com/dropunited/drake-one-dance-pietro-giacobbi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEWO90ozuDXzTgFi-zUrZdw-t500x500.jpg">](https://soundcloud.com/officialneoqor/welcometothejungle)
 
-**Artist**: DropUnited 
+**Artist**: NeoQor 
 
-**Track**: Drake - One Dance (Pietro Giacobbi Remix) [DropUnited Exclusive]
+**Track**: NeoQor - Welcome To The Jungle (DJ Tool)
 
-Last updated at 04/26/2024 08:55
+Last updated at 04/26/2024 08:56
