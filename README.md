@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ve9S6mWPQkeT-0-t500x500.png">](https://soundcloud.com/maudevos/maude-vos-nocturnal-catharsis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pqy1V8NtXrJmRxdv-ZfJAxg-t500x500.jpg">](https://soundcloud.com/blazingbeatzz/mercury)
 
-**Artist**: Maude Vôs 
+**Artist**: BlazinG 
 
-**Track**: Maude Vôs - Nocturnal Catharsis
+**Track**: Mercury
 
-Last updated at 04/26/2024 08:53
+Last updated at 04/26/2024 08:54
