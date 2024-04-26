@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4lGYbMe3GzhFSoj-BulaGw-t500x500.jpg">](https://soundcloud.com/dukeandjones/horizon-blr-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BkMHcaCGhUqf-0-t500x500.jpg">](https://soundcloud.com/wearewavedash/b-alright?in=saxurn/sets/tmp/)
 
-**Artist**: Duke & Jones 
+**Artist**: Wavedash 
 
-**Track**: Horizon (BLR Remix)
+**Track**: b Alright!
 
-Last updated at 04/26/2024 15:57
+Last updated at 04/26/2024 16:00
