@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzD7CZzx1Q2qK6uH-Fwfe6g-t500x500.jpg">](https://soundcloud.com/bassjackers/artemas-i-like-the-way-you-kiss-me-bassjackers-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ZvJzrmiXHEnvLuc-3tfnGw-t500x500.png">](https://soundcloud.com/midmag/midmag-presents-the-trash-magic-manifesto-interview)
 
-**Artist**: BASSJACKERS 
+**Artist**: Mid Magazine 
 
-**Track**: Artemas - I Like The Way You Kiss Me (Bassjackers Remix)
+**Track**: Midmag Presents: The Trash Magic Manifesto Interview
 
-Last updated at 04/27/2024 08:58
+Last updated at 04/27/2024 08:59
