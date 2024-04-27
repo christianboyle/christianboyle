@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4lhda5Dr44uILYZ-zA9dtw-t500x500.jpg">](https://soundcloud.com/2spademusic/yellow-claw-crush-2spade-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hTiWRpTwsrTg-0-t500x500.jpg">](https://soundcloud.com/hardelements/ryan-ganar-i-believe-in-you)
 
-**Artist**: 2Spade 
+**Artist**: Hard Elements 
 
-**Track**: Yellow Claw - CRUSH (2Spade Flip)
+**Track**: Ryan Ganar - I Believe In You (Radio Edit)
 
-Last updated at 04/27/2024 09:00
+Last updated at 04/27/2024 09:01
