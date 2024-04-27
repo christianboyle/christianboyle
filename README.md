@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LAldfZcVkAAZLUj1-ZhPg2w-t500x500.jpg">](https://soundcloud.com/runnitofficial/backonmybullshit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2Rwk2cDzCOvXEZa-fXyMzg-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/lee-pollitt-wilson-horny-horns-sample)
 
-**Artist**: Runnit 
+**Artist**: Dj Wilson (official) 
 
-**Track**: back on my bullshit
+**Track**: Lee Pollitt & Wilson- Horny Horns (sample)
 
-Last updated at 04/27/2024 09:07
+Last updated at 04/27/2024 09:08
