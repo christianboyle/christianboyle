@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/dabow-phydra-wilin-final-master-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzD7CZzx1Q2qK6uH-Fwfe6g-t500x500.jpg">](https://soundcloud.com/bassjackers/artemas-i-like-the-way-you-kiss-me-bassjackers-bootleg)
 
-**Artist**: Awakening Records 
+**Artist**: BASSJACKERS 
 
-**Track**: Dabow & Phydra - Wilin
+**Track**: Artemas - I Like The Way You Kiss Me (Bassjackers Remix)
 
-Last updated at 04/27/2024 08:57
+Last updated at 04/27/2024 08:58
