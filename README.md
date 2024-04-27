@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i34A4ZXE96yZ5Sot-WeER0Q-t500x500.jpg">](https://soundcloud.com/ktkrecords/cadzow-all-day-all-night-ktk049/s-BUDYwSrrx63?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZxwHHa0ULb4oDvO-AXynEw-t500x500.jpg">](https://soundcloud.com/awakening_records/dabow-phydra-wilin-final-master-1)
 
-**Artist**: KTK RECORDS 
+**Artist**: Awakening Records 
 
-**Track**: CADZOW - All Day All Night [KTK049]
+**Track**: Dabow & Phydra - Wilin
 
-Last updated at 04/26/2024 16:26
+Last updated at 04/27/2024 08:57
