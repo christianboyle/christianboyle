@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ZvJzrmiXHEnvLuc-3tfnGw-t500x500.png">](https://soundcloud.com/midmag/midmag-presents-the-trash-magic-manifesto-interview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4lhda5Dr44uILYZ-zA9dtw-t500x500.jpg">](https://soundcloud.com/2spademusic/yellow-claw-crush-2spade-flip-1)
 
-**Artist**: Mid Magazine 
+**Artist**: 2Spade 
 
-**Track**: Midmag Presents: The Trash Magic Manifesto Interview
+**Track**: Yellow Claw - CRUSH (2Spade Flip)
 
-Last updated at 04/27/2024 08:59
+Last updated at 04/27/2024 09:00
