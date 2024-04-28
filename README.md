@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bfc6vFTMZRFzrQz3-9YrfAA-t500x500.jpg">](https://soundcloud.com/angelcore1/mirai)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gNkErnCyUstQB9CN-GFM48w-t500x500.jpg">](https://soundcloud.com/sablevalley/harness)
 
-**Artist**: angelcore.exe 
+**Artist**: SABLE VALLEY 
 
-**Track**: mirai
+**Track**: Moore Kismet - HARNESS (feat. Wavedash)
 
-Last updated at 04/28/2024 13:19
+Last updated at 04/28/2024 13:20
