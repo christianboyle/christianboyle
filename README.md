@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLZMVFN8dx2JCLzW-lOWE0Q-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-aleya?in=saxurn/sets/permutes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k4yh2PcubxAxqMY-CmdKQw-t500x500.png">](https://soundcloud.com/satoshijpn/keha-die-young-satoshi-remix?in=saxurn/sets/permutes)
 
-**Artist**: M-Project 
+**Artist**: SATOSHI 
 
-**Track**: M-Project - Aleya
+**Track**: Ke$ha - Die Young (SATOSHI Remix)
 
-Last updated at 04/29/2024 10:35
+Last updated at 04/29/2024 10:39
