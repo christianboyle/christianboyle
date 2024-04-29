@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ste2eawmNC2-0-t500x500.jpg">](https://soundcloud.com/lauren-auder/we2assume2many2roles-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnwWaxruQJWuuBHo-4M9tHw-t500x500.jpg">](https://soundcloud.com/brokawmusic/ghost-brokaw-urban-essence-final)
 
-**Artist**: lauren auder 
+**Artist**: Brokaw 
 
-**Track**: we2assume2many2roles (Aamourocean Remix)
+**Track**: Ghost W/ Urban Essence
 
-Last updated at 04/29/2024 07:43
+Last updated at 04/29/2024 07:44
