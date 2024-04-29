@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5pinGSyxsqKjoZC-f2OmkQ-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-where-you-been?in=saxurn/sets/permutes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLZMVFN8dx2JCLzW-lOWE0Q-t500x500.jpg">](https://soundcloud.com/m-project_suzumoto/m-project-aleya?in=saxurn/sets/permutes)
 
-**Artist**: Barong Family 
+**Artist**: M-Project 
 
-**Track**: Fahjah & Oing - Where You Been
+**Track**: M-Project - Aleya
 
-Last updated at 04/29/2024 10:33
+Last updated at 04/29/2024 10:35
