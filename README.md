@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnwWaxruQJWuuBHo-4M9tHw-t500x500.jpg">](https://soundcloud.com/brokawmusic/ghost-brokaw-urban-essence-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HiVuZOQGtmzJStbg-RhoSzA-t500x500.jpg">](https://soundcloud.com/almek_music/almek-benatti-best-be-believing-remix)
 
-**Artist**: Brokaw 
+**Artist**: ALMEK 
 
-**Track**: Ghost W/ Urban Essence
+**Track**: Almek, BENATTI - Best Be Believing (remix)
 
-Last updated at 04/29/2024 07:44
+Last updated at 04/29/2024 07:45
