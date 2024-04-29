@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zEWO90ozuDXzTgFi-zUrZdw-t500x500.jpg">](https://soundcloud.com/officialneoqor/welcometothejungle?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FfFxP7bFmiQrcWH-e1GxXQ-t500x500.jpg">](https://soundcloud.com/sekta/sekta-marzo-carnival?in=saxurn/sets/hot-and-cool)
 
-**Artist**: NeoQor 
+**Artist**: SEKTA 
 
-**Track**: NeoQor - Welcome To The Jungle (DJ Tool)
+**Track**: SEKTA & MARZO - CARNIVAL
 
-Last updated at 04/29/2024 09:43
+Last updated at 04/29/2024 09:45
