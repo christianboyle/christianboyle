@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i34A4ZXE96yZ5Sot-WeER0Q-t500x500.jpg">](https://soundcloud.com/ktkrecords/cadzow-all-day-all-night-ktk049?in=saxurn/sets/hot-and-cool)
 
-**Artist**: DJGEMINI 
+**Artist**: KTK RECORDS 
 
-**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
+**Track**: CADZOW - All Day All Night [KTK049]
 
-Last updated at 04/29/2024 08:35
+Last updated at 04/29/2024 09:10
