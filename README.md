@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0t0Jv1lMFYRFraT-1PbkEg-t500x500.jpg">](https://soundcloud.com/slangdogs/seething-eyes?in=saxurn/sets/mad-dusty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJf4oYTjJpUcLUs3-q3UIvg-t500x500.jpg">](https://soundcloud.com/dj-thot-shot/collab-w-flo?in=saxurn/sets/mad-dusty)
 
-**Artist**: Slang Dogs 
+**Artist**: DJ Th0t Sh0t 
 
-**Track**: Seething Eyes
+**Track**: collab w/ FLO
 
-Last updated at 04/29/2024 11:24
+Last updated at 04/29/2024 11:28
