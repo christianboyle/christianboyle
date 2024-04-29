@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FM2bdRnwx12CEUJG-y4UZjA-t500x500.jpg">](https://soundcloud.com/cascine/casey-mq-celebrity-crush-lobsta-bs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVNVH1Sh3IpHNjfp-PBwPbw-t500x500.jpg">](https://soundcloud.com/lobsta-b/angels)
 
-**Artist**: CASCINE 
+**Artist**: LOBSTA B 
 
-**Track**: Casey MQ - Celebrity Crush (Lobsta B’s Remix)
+**Track**: ANGELS
 
-Last updated at 04/29/2024 08:26
+Last updated at 04/29/2024 08:29
