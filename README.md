@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PANoq7EARwptC3n1-Oz6yjQ-t500x500.jpg">](https://soundcloud.com/user-484501021/dez1-dru-astrobag-travis-scott?in=saxurn/sets/304s-on-the-blade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdamdUo3PGzlX9So-8yXegw-t500x500.jpg">](https://soundcloud.com/eufeion/really-like-you?in=saxurn/sets/mad-dusty)
 
-**Artist**: DËZ1 n DRÜ 
+**Artist**: Eufeion 
 
-**Track**: DEZ1 & DRU - TRAVIS TEKK
+**Track**: Eufeion - Really Like You - (247) - 24/05/24
 
-Last updated at 04/29/2024 11:19
+Last updated at 04/29/2024 11:21
