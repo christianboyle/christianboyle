@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BkMHcaCGhUqf-0-t500x500.jpg">](https://soundcloud.com/wearewavedash/b-alright?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aV9KtUufNiH6WQ3a-QXbvtA-t500x500.jpg">](https://soundcloud.com/picklesounds/rumble-pickle-remix?in=saxurn/sets/hot-and-cool)
 
-**Artist**: Wavedash 
+**Artist**: Pickle 
 
-**Track**: b Alright!
+**Track**: Rumble (Pickle Remix)
 
-Last updated at 04/29/2024 09:50
+Last updated at 04/29/2024 09:53
