@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssgpXPn4TtKYI3g5-cFPYSQ-t500x500.jpg">](https://soundcloud.com/lobsta-b/mark-blair-rave-donk-101-lobsta-b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65OcsqPpyYUYAHe4-OpXCgw-t500x500.jpg">](https://soundcloud.com/illegaldata/swan-meat-blood-supernova)
 
-**Artist**: LOBSTA B 
+**Artist**: ILLEGAL DATA 
 
-**Track**: MARK BLAIR - RAVE DONK 101 (LOBSTA B REMIX)
+**Track**: SWAN MEAT - BLOOD SUPERNOVA (LOBSTA B REMIX)
 
-Last updated at 04/29/2024 08:16
+Last updated at 04/29/2024 08:17
