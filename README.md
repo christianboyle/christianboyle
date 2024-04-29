@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzzliotHCtdoJcKH-irorew-t500x500.jpg">](https://soundcloud.com/sheytamusic/sheyta-spajra-lions-gatej)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ste2eawmNC2-0-t500x500.jpg">](https://soundcloud.com/lauren-auder/we2assume2many2roles-1)
 
-**Artist**: SHEYTA 
+**Artist**: lauren auder 
 
-**Track**: SHEYTA/ Spajra-- Lions Gate--
+**Track**: we2assume2many2roles (Aamourocean Remix)
 
-Last updated at 04/29/2024 07:42
+Last updated at 04/29/2024 07:43
