@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FEWmGjFX2CXYFyIS-8yM0GQ-t500x500.jpg">](https://soundcloud.com/belavie/howtosavealife?in=saxurn/sets/hot-and-cool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IIRbm6eOvxiHzLHR-cJatPQ-t500x500.jpg">](https://soundcloud.com/nothingxhurts/outkast-andre-3000-hey-ya?in=saxurn/sets/hot-and-cool)
 
-**Artist**: Bélavie 
+**Artist**: Nothing x Hurts 
 
-**Track**: The Fray - How To Save A Life (Bélavie Edit) | Free DL
+**Track**: OutKast/Andre 3000 - Hey Ya! (Nothing x Hurts Flip)
 
-Last updated at 04/29/2024 09:56
+Last updated at 04/29/2024 10:01
