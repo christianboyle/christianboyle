@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVNVH1Sh3IpHNjfp-PBwPbw-t500x500.jpg">](https://soundcloud.com/lobsta-b/up-to-no-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample?in=saxurn/sets/hot-and-cool)
 
-**Artist**: LOBSTA B 
+**Artist**: DJGEMINI 
 
-**Track**: UP TO NO GOOD
+**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
 
-Last updated at 04/29/2024 08:32
+Last updated at 04/29/2024 08:35
