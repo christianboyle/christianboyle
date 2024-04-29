@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcP2wiy8vyyoyyB3-eGyDHQ-t500x500.jpg">](https://soundcloud.com/dj_kosho/first-kiss-at-the-rave-unreleased?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2Rwk2cDzCOvXEZa-fXyMzg-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/lee-pollitt-wilson-horny-horns-sample?in=saxurn/sets/tmp/)
 
-**Artist**: DJ Kosho 
+**Artist**: Dj Wilson (official) 
 
-**Track**: @DJKOSHO | First Kiss At The Rave (Unreleased)
+**Track**: Lee Pollitt & Wilson- Horny Horns (sample)
 
-Last updated at 04/29/2024 09:25
+Last updated at 04/29/2024 09:30
