@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmx2lLykDfhBjlzQ-cxNYyg-t500x500.jpg">](https://soundcloud.com/sachsentrance/st009-alex-c-ft-yass?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI9XSKEOBlh4RixR-IBOiPw-t500x500.jpg">](https://soundcloud.com/gemini2010/beachbirds-sample?in=saxurn/sets/hot-and-cool)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: DJGEMINI 
 
-**Track**: [ST009] Alex C Ft. Yass - Trancespiele (RENZO Edit)
+**Track**: Gemini & Poomstyles - Beachbirds (SAMPLE)
 
-Last updated at 04/29/2024 09:36
+Last updated at 04/29/2024 09:41
