@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dA1f9tHlpb6pKU97-m0yF3A-t500x500.jpg">](https://soundcloud.com/slimprodmusic/artemas-i-love-the-way-you-kiss-me-slimprod-bootlegfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzzliotHCtdoJcKH-irorew-t500x500.jpg">](https://soundcloud.com/sheytamusic/sheyta-spajra-lions-gatej)
 
-**Artist**: Slim Prod. 
+**Artist**: SHEYTA 
 
-**Track**: Artemas -  i like the way you kiss me (SLIMPROD BOOTLEG)(FREE DL)
+**Track**: SHEYTA/ Spajra-- Lions Gate--
 
-Last updated at 04/28/2024 15:20
+Last updated at 04/29/2024 07:42
