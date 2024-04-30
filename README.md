@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dA1f9tHlpb6pKU97-m0yF3A-t500x500.jpg">](https://soundcloud.com/slimprodmusic/artemas-i-love-the-way-you-kiss-me-slimprod-bootlegfree-dl?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gykygBiIyXKyzfdk-7FjgDA-t500x500.jpg">](https://soundcloud.com/revoxxmusik/fuck-tha-police-revoxx-edit-free-dl)
 
-**Artist**: Slim Prod. 
+**Artist**: Revoxx 
 
-**Track**: Artemas -  i like the way you kiss me (SLIMPROD BOOTLEG)(FREE DL)
+**Track**: Fuck Tha Police (Revoxx Edit) [FREE DL]
 
-Last updated at 04/29/2024 13:23
+Last updated at 04/30/2024 06:48
