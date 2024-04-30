@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVNVH1Sh3IpHNjfp-PBwPbw-t500x500.jpg">](https://soundcloud.com/lobsta-b/angels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jz64Y2U9uh4qMz7R-nz9BrQ-t500x500.jpg">](https://soundcloud.com/djsmth/2-da-boyz?in=saxurn/sets/tmp/)
 
-**Artist**: LOBSTA B 
+**Artist**: dj something 
 
-**Track**: ANGELS
+**Track**: 2 Da Boyz [@djsomething HARDSTYLE EDIT]
 
-Last updated at 04/30/2024 09:38
+Last updated at 04/30/2024 09:43
