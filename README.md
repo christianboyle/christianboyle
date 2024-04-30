@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2Rwk2cDzCOvXEZa-fXyMzg-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/lee-pollitt-wilson-horny-horns-sample?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jDMyYHwdzPF2AIxy-ZBgPeQ-t500x500.jpg">](https://soundcloud.com/s3rl/pretty-rave-girl-bombeiexe-remix-s3rl?in=saxurn/sets/tmp/)
 
-**Artist**: Dj Wilson (official) 
+**Artist**: S3RL 
 
-**Track**: Lee Pollitt & Wilson- Horny Horns (sample)
+**Track**: Pretty Rave Girl (BOMBEI.exe Remix) - S3RL
 
-Last updated at 04/30/2024 09:53
+Last updated at 04/30/2024 09:55
