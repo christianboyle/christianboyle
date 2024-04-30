@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMkFup6wNzi1UgxN-3IzPSQ-t500x500.jpg">](https://soundcloud.com/blackworksclub/angel-cannon-gloomtek-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uAgX3gY3Mt8BBWd7-Sb7ZyA-t500x500.jpg">](https://soundcloud.com/lobsta-b/hard-bounce)
 
-**Artist**: Blackworks 
+**Artist**: LOBSTA B 
 
-**Track**: ANGEL CANNON - GLOOMTEK (Original Mix)
+**Track**: HARD BOUNCE
 
-Last updated at 04/30/2024 09:16
+Last updated at 04/30/2024 09:17
