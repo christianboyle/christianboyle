@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVNVH1Sh3IpHNjfp-PBwPbw-t500x500.jpg">](https://soundcloud.com/lobsta-b/angels?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMkFup6wNzi1UgxN-3IzPSQ-t500x500.jpg">](https://soundcloud.com/blackworksclub/angel-cannon-gloomtek-original?in=saxurn/sets/tmp/)
 
-**Artist**: LOBSTA B 
+**Artist**: Blackworks 
 
-**Track**: ANGELS
+**Track**: ANGEL CANNON - GLOOMTEK (Original Mix)
 
-Last updated at 05/01/2024 14:56
+Last updated at 05/01/2024 14:59
