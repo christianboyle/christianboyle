@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W8kWWLQ50EcC4wRZ-9s6INg-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/warble-not-the-last-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qKO6iObSO95SVlD-N2jKbA-t500x500.jpg">](https://soundcloud.com/solgoodmusic/swonk)
 
-**Artist**: No Hype Music 
+**Artist**: Sol Good 
 
-**Track**: Warble - Not the Last Time
+**Track**: Swonk
 
-Last updated at 05/02/2024 16:08
+Last updated at 05/02/2024 16:11
