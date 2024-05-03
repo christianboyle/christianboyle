@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qKO6iObSO95SVlD-N2jKbA-t500x500.jpg">](https://soundcloud.com/solgoodmusic/swonk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAfXm4jwVj1w-0-t500x500.jpg">](https://soundcloud.com/lobsta-b/everybody-bounce-now)
 
-**Artist**: Sol Good 
+**Artist**: LOBSTA B 
 
-**Track**: Swonk
+**Track**: Everybody Bounce Now
 
-Last updated at 05/02/2024 16:11
+Last updated at 05/03/2024 05:58
