@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vs0XoVL3mJQmAtSL-VNUIFQ-t500x500.jpg">](https://soundcloud.com/secretrecipemusic/secret-recipe-play-hard-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LFG1AEGNbzo-0-t500x500.jpg">](https://soundcloud.com/purefilthdnb/blkout-a-lovely-place)
 
-**Artist**: Secret Recipe 
+**Artist**: Pure Filth 
 
-**Track**: Secret Recipe - PLAY HARD
+**Track**: blkout. - a lovely place
 
-Last updated at 05/03/2024 09:03
+Last updated at 05/03/2024 09:04
