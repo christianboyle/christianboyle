@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LFG1AEGNbzo-0-t500x500.jpg">](https://soundcloud.com/purefilthdnb/blkout-a-lovely-place)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nNIVERcKxmzWX7As-FMn29g-t500x500.jpg">](https://soundcloud.com/rebelscummusic/tokyo-drift)
 
-**Artist**: Pure Filth 
+**Artist**: Rebel Scum 
 
-**Track**: blkout. - a lovely place
+**Track**: Teriyaki Boyz - Tokyo Drift (Rebel Scum Bootleg)
 
-Last updated at 05/03/2024 09:04
+Last updated at 05/03/2024 09:05
