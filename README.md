@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qUW2lfxsvfA6-0-t500x500.jpg">](https://soundcloud.com/davidguetta/david-guetta-onerepublic-i-3?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BExVwkOfojlf-0-t500x500.jpg">](https://soundcloud.com/breathecarolina/long-night?in=saxurn/sets/tmp2/)
 
-**Artist**: David Guetta 
+**Artist**: BREATHE CAROLINA 
 
-**Track**: David Guetta & OneRepublic - I Don't Wanna Wait (Hardwell & Olly James Remix)
+**Track**: Long Night
 
-Last updated at 05/03/2024 09:24
+Last updated at 05/03/2024 09:27
