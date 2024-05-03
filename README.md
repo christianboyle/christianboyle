@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66S9HE0d9Kj4onUY-TrbAbw-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-rptr-let-the-bass-kick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPpvMbs3j76WHg8f-zzzIzw-t500x500.jpg">](https://soundcloud.com/subcarbon/zurglin-the-big-up)
 
-**Artist**: Rave Alert 
+**Artist**: SubCarbon Records 
 
-**Track**: [PREMIERE] RPTR - Let The Bass Kick
+**Track**: ZURGLIN - The Big Up
 
-Last updated at 05/03/2024 06:00
+Last updated at 05/03/2024 06:01
