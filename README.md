@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vs0XoVL3mJQmAtSL-VNUIFQ-t500x500.jpg">](https://soundcloud.com/secretrecipemusic/secret-recipe-play-hard-1?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ABC5opbK72pD8z0P-VUhV4A-t500x500.jpg">](https://soundcloud.com/komplvintmusic/komplvint-weapons-activated-up?in=saxurn/sets/tmp2/)
 
-**Artist**: Secret Recipe 
+**Artist**: KOMPLVINT 
 
-**Track**: Secret Recipe - PLAY HARD
+**Track**: KOMPLVINT - WEAPONS ACTIVATED (UP THERE REMIX)
 
-Last updated at 05/03/2024 09:48
+Last updated at 05/03/2024 09:50
