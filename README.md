@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nNIVERcKxmzWX7As-FMn29g-t500x500.jpg">](https://soundcloud.com/rebelscummusic/tokyo-drift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8xRZjFVEHMvsPGr-ZI1hTQ-t500x500.jpg">](https://soundcloud.com/user-93052946-374174492/love-the-way-you-lie?in=saxurn/sets/tmp2/)
 
-**Artist**: Rebel Scum 
+**Artist**: Azteck 
 
-**Track**: Teriyaki Boyz - Tokyo Drift (Rebel Scum Bootleg)
+**Track**: Eminem x Rihanna LOVE THE WAY YOU LIE (Azteck Hard Trance Mix)
 
-Last updated at 05/03/2024 09:05
+Last updated at 05/03/2024 09:08
