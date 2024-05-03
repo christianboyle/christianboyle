@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xbApBb2CcdsB-0-t500x500.jpg">](https://soundcloud.com/1991_music/worlds-apart?in=1991_music/sets/1991-goodboys-worlds-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gs6iD7R1F9zOZVsW-Ij8OhQ-t500x500.jpg">](https://soundcloud.com/officialnohero/nanobii-ravinfection-no-hero-remix)
 
-**Artist**: 1991 
+**Artist**: No Hero 
 
-**Track**: 1991, Goodboys - Worlds Apart
+**Track**: nanobii - RAViNFECTION (No Hero Remix)
 
-Last updated at 05/03/2024 06:58
+Last updated at 05/03/2024 08:59
