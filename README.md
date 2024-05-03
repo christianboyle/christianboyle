@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5YN2DSPkYJYK-0-t500x500.jpg">](https://soundcloud.com/1985music1985/paige-julia-indisputable?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ABC5opbK72pD8z0P-VUhV4A-t500x500.jpg">](https://soundcloud.com/komplvintmusic/komplvint-weapons-activated-up?in=saxurn/sets/tmp2/)
 
-**Artist**: 1985  |  Music 
+**Artist**: KOMPLVINT 
 
-**Track**: Paige Julia - Indisputable
+**Track**: KOMPLVINT - WEAPONS ACTIVATED (UP THERE REMIX)
 
-Last updated at 05/03/2024 09:17
+Last updated at 05/03/2024 09:22
