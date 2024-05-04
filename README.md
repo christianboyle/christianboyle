@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8xRZjFVEHMvsPGr-ZI1hTQ-t500x500.jpg">](https://soundcloud.com/user-93052946-374174492/love-the-way-you-lie?in=saxurn/sets/tmp2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2ZNA8yXzYs4qvVn-wmN9uQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/26-04a)
 
-**Artist**: Azteck 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: Eminem x Rihanna LOVE THE WAY YOU LIE (Azteck Hard Trance Mix)
+**Track**: 26-04
 
-Last updated at 05/03/2024 13:29
+Last updated at 05/04/2024 08:08
