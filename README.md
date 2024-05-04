@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGNVpWTwi4kepUCn-L0BwTw-t500x500.jpg">](https://soundcloud.com/playmerecords/bel-air-witch-villain-era)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SLYGOe7vzq9qAtbG-iKqWwA-t500x500.jpg">](https://soundcloud.com/atcg_music/i-like-the-way-you-kiss-me-x-better-off-alone-atcg-edit)
 
-**Artist**: Play Me Records 
+**Artist**: ATCG 
 
-**Track**: BEL AIR WITCH - Villain Era
+**Track**: I LIKE THE WAY YOU KISS ME X BETTER OFF ALONE (ATCG EDIT)
 
-Last updated at 05/04/2024 08:10
+Last updated at 05/04/2024 08:11
