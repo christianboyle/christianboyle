@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6pQTPkqZaMywBQvp-hfMRFw-t500x500.jpg">](https://soundcloud.com/ramonpang/four-tet-love-cry-ramonpang-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RfVi13JZApnhB3H-hV8trg-t500x500.jpg">](https://soundcloud.com/disciple/convergence)
 
-**Artist**: RamonPang 
+**Artist**: Disciple ♛ ♜ ♞ 
 
-**Track**: Four Tet - Love Cry (RamonPang remix)
+**Track**: NVADRZ & NRVE - Convergence
 
-Last updated at 05/04/2024 08:14
+Last updated at 05/04/2024 08:23
