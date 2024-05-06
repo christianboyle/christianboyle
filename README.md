@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2qbXFafnSkZhFYx-zrozQA-t500x500.jpg">](https://soundcloud.com/countrynxc/i-luv-harajuku-texas-baby-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jz64Y2U9uh4qMz7R-nz9BrQ-t500x500.jpg">](https://soundcloud.com/djsmth/2-da-boyz?in=saxurn/sets/tmp/)
 
-**Artist**: texas baby 
+**Artist**: dj something 
 
-**Track**: alice longyu gao f/ fraxiom - i <3 harajuku [texas baby jamster ringtone]
+**Track**: 2 Da Boyz [@djsomething HARDSTYLE EDIT]
 
-Last updated at 05/04/2024 08:24
+Last updated at 05/06/2024 08:33
