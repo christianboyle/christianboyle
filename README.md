@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fcpLvea5RWVy7ynL-mUBW9A-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-paul-gavronsky-universe-orginal-mix-freegrant-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kc8BjkLGhPvGfhOf-sz9h1w-t500x500.jpg">](https://soundcloud.com/karl-guapo/joyner-lucas-lotto-l3nny-remix)
 
-**Artist**: Raven Musik 
+**Artist**: L3NNY 
 
-**Track**: PREMIERE: Paul Gavronsky - Universe (Orginal Mix) [Freegrant Music]
+**Track**: Joyner Lucas - Lotto (L3NNY REMIX)
 
-Last updated at 05/07/2024 15:47
+Last updated at 05/07/2024 15:48
