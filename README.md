@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4udC0zxjGZ5WYH7g-VyvVtQ-t500x500.jpg">](https://soundcloud.com/lucasn-music/faithless-insomnia-lucas-n-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mmi57KqliUUh2g3u-Z7hfvQ-t500x500.jpg">](https://soundcloud.com/marksherrydj/the-killers-mr-brightside-mark-sherry-remix)
 
-**Artist**: ♦ Lucas N. 
+**Artist**: Mark Sherry 
 
-**Track**: Faithless - Insomnia (Lucas N. Extended Bootleg)
+**Track**: The Killers - Mr Brightside (Mark Sherry Remix) PREVIEW
 
-Last updated at 05/07/2024 15:36
+Last updated at 05/07/2024 15:37
