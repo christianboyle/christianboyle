@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o4KE7IaRgUSc66II-EDZmvA-t500x500.jpg">](https://soundcloud.com/peroxiide/jus-better-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5GKGhKJlsQHczDc1-jsyv6A-t500x500.jpg">](https://soundcloud.com/big-fish-recordings/eddy-black-deep-pressure-1)
 
-**Artist**: ♫✚² 
+**Artist**: Big Fish Recordings 
 
-**Track**: YEAT ― JUS BËTTER [♫✚² ED!!T]
+**Track**: Eddy Black - Deep Pressure
 
-Last updated at 05/07/2024 15:53
+Last updated at 05/07/2024 15:54
