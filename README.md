@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gs6iD7R1F9zOZVsW-Ij8OhQ-t500x500.jpg">](https://soundcloud.com/officialnohero/nanobii-ravinfection-no-hero-remix?in=saxurn/sets/working-on-the-1s-and-0s-ones-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYwPRvG6cgYN9ccO-T3PQTQ-t500x500.jpg">](https://soundcloud.com/effin/effin-down-town)
 
-**Artist**: No Hero 
+**Artist**: Effin 
 
-**Track**: nanobii - RAViNFECTION (No Hero Remix)
+**Track**: Effin - Down Town
 
-Last updated at 05/07/2024 09:29
+Last updated at 05/07/2024 15:25
