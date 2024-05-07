@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2PIqBFXYgv3a7iz-y3aadA-t500x500.jpg">](https://soundcloud.com/street_ritual/realms-skrongus-collector-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3paoU3WiTXA6tXI-nqb5QQ-t500x500.jpg">](https://soundcloud.com/crush_3d/mannys-apartment-penthouse-mix)
 
-**Artist**: Street Ritual 
+**Artist**: CRUSH3d 
 
-**Track**: REALMS - Skrongus Collector
+**Track**: Manny's Apartment (Penthouse Mix)
 
-Last updated at 05/07/2024 15:33
+Last updated at 05/07/2024 15:34
