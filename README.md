@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfVeV4QYCpkBioGw-sgH91Q-t500x500.jpg">](https://soundcloud.com/subraver/subraver-attix-just-be-mine-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8eIJemoCUlSMBdA-Yh3cDg-t500x500.jpg">](https://soundcloud.com/gombocrec/craaig-kiss-it-better-hard-psy-edit?in=craighughesdj/sets/kiss-it-better-hard-psy-edit)
 
-**Artist**: Subraver 
+**Artist**: Gomboc Records 
 
-**Track**: Subraver & Attix - Just Be Mine (Radio Mix)
+**Track**: CRAAIG - KISS IT BETTER (HARD PSY EDIT)
 
-Last updated at 05/07/2024 15:28
+Last updated at 05/07/2024 15:29
