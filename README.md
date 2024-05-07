@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000102613844-33xoyc-t500x500.jpg">](https://soundcloud.com/noisey/ilovemakonnen-super-clean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryrrHTX0Hd6bsGoe-yYf0NA-t500x500.jpg">](https://soundcloud.com/beatteamsupreme/teamsupreme-recharged-vol-3-feat-dome-of-doom-lord-genmu)
 
-**Artist**: Noisey 
+**Artist**: TeamSupreme 
 
-**Track**: iLoveMakonnen - "Super Clean"
+**Track**: TeamSupreme ReCharged - Vol. 3 Feat. Dome Of Doom & Lord Genmu
 
-Last updated at 05/07/2024 15:40
+Last updated at 05/07/2024 15:41
