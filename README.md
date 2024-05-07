@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kc8BjkLGhPvGfhOf-sz9h1w-t500x500.jpg">](https://soundcloud.com/karl-guapo/joyner-lucas-lotto-l3nny-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5FiCeF3cHcHNzJX-gLAyXw-t500x500.jpg">](https://soundcloud.com/egothadestroya/blow-tha-fuck-up-new-final-streaming-wave)
 
-**Artist**: L3NNY 
+**Artist**: EGO 
 
-**Track**: Joyner Lucas - Lotto (L3NNY REMIX)
+**Track**: BLOW THA F*CK UP
 
-Last updated at 05/07/2024 15:48
+Last updated at 05/07/2024 15:49
