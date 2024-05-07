@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y3paoU3WiTXA6tXI-nqb5QQ-t500x500.jpg">](https://soundcloud.com/crush_3d/mannys-apartment-penthouse-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ki1aF0ajfVJmbwjS-1klzuw-t500x500.jpg">](https://soundcloud.com/orangejuiceasia/pf3)
 
-**Artist**: CRUSH3d 
+**Artist**: ORANGE JUICE ASIA 
 
-**Track**: Manny's Apartment (Penthouse Mix)
+**Track**: SANTO - SANTO's Festival Tools (EP) [PF003]
 
-Last updated at 05/07/2024 15:50
+Last updated at 05/07/2024 15:51
