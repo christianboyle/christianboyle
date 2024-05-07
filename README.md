@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GdhUj1PdPYNc-0-t500x500.jpg">](https://soundcloud.com/slowpalace/close-your-eyes-feat-bachyard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azNhmWws4BDKemaI-F6hxAg-t500x500.png">](https://soundcloud.com/squired/rtc)
 
-**Artist**: Slowpalace 
+**Artist**: Squired 
 
-**Track**: close your eyes (feat. Bachyard Ghost)
+**Track**: RTC
 
-Last updated at 05/07/2024 15:55
+Last updated at 05/07/2024 15:56
