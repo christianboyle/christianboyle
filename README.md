@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mmi57KqliUUh2g3u-Z7hfvQ-t500x500.jpg">](https://soundcloud.com/marksherrydj/the-killers-mr-brightside-mark-sherry-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ad0EN4gqEAzHWWQL-MX8O6Q-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/o-zone-dragostea-din-tei-tatsunoshin-festival-mix)
 
-**Artist**: Mark Sherry 
+**Artist**: Tatsunoshin 
 
-**Track**: The Killers - Mr Brightside (Mark Sherry Remix) PREVIEW
+**Track**: O - ZONE - Dragostea Din Tei (Tatsunoshin Festival Mix)
 
-Last updated at 05/08/2024 08:06
+Last updated at 05/08/2024 08:07
