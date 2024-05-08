@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utrAUgTei6XJLCJo-BgiC6g-t500x500.jpg">](https://soundcloud.com/eufeion/euro-love-eufeion-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFynHY7uE9u5psC0-kTNo1g-t500x500.jpg">](https://soundcloud.com/onlytr4nce/mza-dj-overclock-would-you-be-free-dl)
 
-**Artist**: Eufeion 
+**Artist**: ONLYTRANCE 
 
-**Track**: Brisk & Trixxy - Euro Love (Eufeion Remix)
+**Track**: MZA & DJ Overclock - Would You Be | Free DL
 
-Last updated at 05/08/2024 10:33
+Last updated at 05/08/2024 10:34
