@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0IyEbfz6BUgYrzc-QyKaMg-t500x500.jpg">](https://soundcloud.com/user-522593969-22472142/one-could-say?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utrAUgTei6XJLCJo-BgiC6g-t500x500.jpg">](https://soundcloud.com/eufeion/euro-love-eufeion-remix?in=saxurn/sets/tmp/)
 
-**Artist**: ANXMALY 
+**Artist**: Eufeion 
 
-**Track**: One Could Say
+**Track**: Brisk & Trixxy - Euro Love (Eufeion Remix)
 
-Last updated at 05/08/2024 10:32
+Last updated at 05/08/2024 10:33
