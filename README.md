@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8eIJemoCUlSMBdA-Yh3cDg-t500x500.jpg">](https://soundcloud.com/gombocrec/craaig-kiss-it-better-hard-psy-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9iVfUFTE6GkCm2C-pL9biA-t500x500.jpg">](https://soundcloud.com/obscuurrecords/premiere-twokiks-no-more-free-download)
 
-**Artist**: Gomboc Records 
+**Artist**: OBSCUUR 
 
-**Track**: CRAAIG - KISS IT BETTER (HARD PSY EDIT)
+**Track**: Premiere: TwoKiks - No More [Free Download]
 
-Last updated at 05/08/2024 11:20
+Last updated at 05/08/2024 11:25
