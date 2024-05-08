@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyxh6ubFwd4OGRSB-qjP17g-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/gettingolder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJKdtlikpYpS9I4t-nnK9bA-t500x500.jpg">](https://soundcloud.com/brokawmusic/otherside-brokawakimbo-final-project)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Brokaw 
 
-**Track**: Stephanno - Getting Older
+**Track**: Otherside W/ Akimbo
 
-Last updated at 05/08/2024 08:17
+Last updated at 05/08/2024 08:18
