@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFynHY7uE9u5psC0-kTNo1g-t500x500.jpg">](https://soundcloud.com/onlytr4nce/mza-dj-overclock-would-you-be-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2ZNA8yXzYs4qvVn-wmN9uQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/26-04a)
 
-**Artist**: ONLYTRANCE 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: MZA & DJ Overclock - Would You Be | Free DL
+**Track**: 26-04
 
-Last updated at 05/08/2024 10:34
+Last updated at 05/08/2024 10:36
