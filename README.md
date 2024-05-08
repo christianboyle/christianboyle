@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ix74MXi5OA5tiXbH-jUodZg-t500x500.jpg">](https://soundcloud.com/destinuna/eris-sleep-walking)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g4nDsukrcQfvMv0W-FD8vrA-t500x500.jpg">](https://soundcloud.com/666cmg/666cmg-take-me-away)
 
-**Artist**: Destinuna 
+**Artist**: 666cmg 
 
-**Track**: Eris Sounds - Sleep Walking
+**Track**: Take Me Away
 
-Last updated at 05/08/2024 08:09
+Last updated at 05/08/2024 08:10
