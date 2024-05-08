@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WvcGvQMRyvE8w05X-xxKzGw-t500x500.jpg">](https://soundcloud.com/officialrampant/dj-khaled-x-drake-greece-rampant-extended-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFynHY7uE9u5psC0-kTNo1g-t500x500.jpg">](https://soundcloud.com/onlytr4nce/mza-dj-overclock-would-you-be-free-dl?in=saxurn/sets/tmp/)
 
-**Artist**: Rampant 
+**Artist**: ONLYTRANCE 
 
-**Track**: DJ Khaled X Drake - GREECE (Rampant Remix)
+**Track**: MZA & DJ Overclock - Would You Be | Free DL
 
-Last updated at 05/08/2024 10:44
+Last updated at 05/08/2024 10:48
