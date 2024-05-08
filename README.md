@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-snt99BKzN34MUXgc-zI5oaQ-t500x500.jpg">](https://soundcloud.com/itsydg/you-me-ydg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmp7ujQoqMB5AWnn-RnreBA-t500x500.jpg">](https://soundcloud.com/mesmeristmusic/porter-robinson-cheerleader-mesmerist-hands-up-remix)
 
-**Artist**: YDG 
+**Artist**: Mesmerist 
 
-**Track**: You & Me (YDG Remix)
+**Track**: Porter Robinson - Cheerleader (Mesmerist Hands Up Remix)
 
-Last updated at 05/08/2024 08:14
+Last updated at 05/08/2024 08:15
