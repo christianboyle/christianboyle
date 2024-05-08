@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2ZNA8yXzYs4qvVn-wmN9uQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/26-04a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wjXVKlXsKzzh3djU-Cbw3Og-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-junkie-kid-gravedgr-give-me-a-break-gravekid)
 
-**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
+**Artist**: Rave Alert 
 
-**Track**: 26-04
+**Track**: [PREMIERE] Junkie Kid, Gravedgr - Give Me A Break (GRAVEKID)
 
-Last updated at 05/08/2024 10:36
+Last updated at 05/08/2024 10:40
