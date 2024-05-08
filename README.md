@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCnjDsU1F2fh-0-t500x500.jpg">](https://soundcloud.com/jaxjones/jax-jones-zoe-wees-arcando)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyxh6ubFwd4OGRSB-qjP17g-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/gettingolder)
 
-**Artist**: Jax Jones 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: Jax Jones, Zoe Wees, Arcando - Never Be Lonely (Arcando Remix)
+**Track**: Stephanno - Getting Older
 
-Last updated at 05/08/2024 08:16
+Last updated at 05/08/2024 08:17
