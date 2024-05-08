@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ad0EN4gqEAzHWWQL-MX8O6Q-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/o-zone-dragostea-din-tei-tatsunoshin-festival-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDyLYEHbZsJkXts5-odrzhw-t500x500.jpg">](https://soundcloud.com/pls-ty/overdrive1)
 
-**Artist**: Tatsunoshin 
+**Artist**: PLS&TY 
 
-**Track**: O - ZONE - Dragostea Din Tei (Tatsunoshin Festival Mix)
+**Track**: PLS&TY - Overdrive
 
-Last updated at 05/08/2024 08:07
+Last updated at 05/08/2024 08:08
