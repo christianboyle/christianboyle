@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azNhmWws4BDKemaI-F6hxAg-t500x500.png">](https://soundcloud.com/squired/rtc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mmi57KqliUUh2g3u-Z7hfvQ-t500x500.jpg">](https://soundcloud.com/marksherrydj/the-killers-mr-brightside-mark-sherry-remix)
 
-**Artist**: Squired 
+**Artist**: Mark Sherry 
 
-**Track**: RTC
+**Track**: The Killers - Mr Brightside (Mark Sherry Remix) PREVIEW
 
-Last updated at 05/07/2024 15:56
+Last updated at 05/08/2024 08:06
