@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8eIJemoCUlSMBdA-Yh3cDg-t500x500.jpg">](https://soundcloud.com/gombocrec/craaig-kiss-it-better-hard-psy-edit?in=saxurn/sets/glass-pipe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PAY11PVqbzIA4aS4-fg6G9Q-t500x500.jpg">](https://soundcloud.com/technogermany/n00m1-palo-dimension-tg26)
 
-**Artist**: Gomboc Records 
+**Artist**: Techno Germany 
 
-**Track**: CRAAIG - KISS IT BETTER (HARD PSY EDIT)
+**Track**: N00M1 & PALØ - Dimension [TG26]
 
-Last updated at 05/09/2024 08:40
+Last updated at 05/09/2024 08:44
