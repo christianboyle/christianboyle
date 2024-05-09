@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utrAUgTei6XJLCJo-BgiC6g-t500x500.jpg">](https://soundcloud.com/eufeion/euro-love-eufeion-remix?in=saxurn/sets/glass-pipe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnlFb0T9hgEwbJO7-VvOTsg-t500x500.jpg">](https://soundcloud.com/paulxedwards/i-dont-want-your-love?in=saxurn/sets/glass-pipe)
 
-**Artist**: Eufeion 
+**Artist**: Paul Edwards 
 
-**Track**: Brisk & Trixxy - Euro Love (Eufeion Remix)
+**Track**: I Don't Want Your Love
 
-Last updated at 05/09/2024 08:57
+Last updated at 05/09/2024 09:01
