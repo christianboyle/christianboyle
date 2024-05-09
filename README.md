@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ad0EN4gqEAzHWWQL-MX8O6Q-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/o-zone-dragostea-din-tei-tatsunoshin-festival-mix?in=saxurn/sets/glass-pipe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8eIJemoCUlSMBdA-Yh3cDg-t500x500.jpg">](https://soundcloud.com/gombocrec/craaig-kiss-it-better-hard-psy-edit?in=saxurn/sets/glass-pipe)
 
-**Artist**: Tatsunoshin 
+**Artist**: Gomboc Records 
 
-**Track**: O - ZONE - Dragostea Din Tei (Tatsunoshin Festival Mix)
+**Track**: CRAAIG - KISS IT BETTER (HARD PSY EDIT)
 
-Last updated at 05/09/2024 08:37
+Last updated at 05/09/2024 08:40
