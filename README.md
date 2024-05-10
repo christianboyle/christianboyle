@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcMFyxkUglRn51H5-6kovvw-t500x500.jpg">](https://soundcloud.com/annixuk/annix-phace-dawgs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LXEMa87b2qDv-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-britpop?in=agcook/sets/britpop-5)
 
-**Artist**: Annix 
+**Artist**: A. G. Cook 
 
-**Track**: Annix & Phace - DAWGS
+**Track**: A.G. Cook - Britpop
 
-Last updated at 05/10/2024 10:11
+Last updated at 05/10/2024 17:57
