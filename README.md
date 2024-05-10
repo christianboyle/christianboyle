@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-URus6iMc5DpU-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-prismatic-1?in=agcook/sets/britpop-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gSOVLTWdisCq-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-lucifer-1?in=agcook/sets/britpop-5)
 
 **Artist**: A. G. Cook 
 
-**Track**: A. G. Cook - Prismatic
+**Track**: A. G. Cook - Lucifer
 
-Last updated at 05/10/2024 18:00
+Last updated at 05/10/2024 18:01
