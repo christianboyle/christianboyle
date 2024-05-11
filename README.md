@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iUlQUeZLTHz4Lhfe-l9Po7Q-t500x500.jpg">](https://soundcloud.com/basiliskbass/molecular-levitate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epldsA2E5vSiRK8h-I92MgA-t500x500.jpg">](https://soundcloud.com/doofdoofmusic/david-rust-uberjakd-ft-ella-young-go-insane-preview)
 
-**Artist**: Basilisk Bass 
+**Artist**: doof 
 
-**Track**: Molecular - Levitate
+**Track**: David Rust, Uberjak'd Ft. Ella Young - Go Insane
 
-Last updated at 05/11/2024 06:28
+Last updated at 05/11/2024 06:29
