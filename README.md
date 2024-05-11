@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jxpejl0IBokZaMbF-eUcuFQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/dj-wifi-mega-boost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Ty1hlJtmy4yAUH1-4izXkw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/eyezic-no-good-reason)
 
-**Artist**: TETE VIDE 
+**Artist**: Quality Goods Records 
 
-**Track**: DJ WIFI - Mega Boost
+**Track**: QGR-033S | Eyezic - No Good Reason
 
-Last updated at 05/11/2024 06:32
+Last updated at 05/11/2024 06:33
