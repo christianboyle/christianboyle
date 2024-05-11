@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epldsA2E5vSiRK8h-I92MgA-t500x500.jpg">](https://soundcloud.com/doofdoofmusic/david-rust-uberjakd-ft-ella-young-go-insane-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdrzaVQT1dyDIwDX-75Z3WQ-t500x500.jpg">](https://soundcloud.com/minnesota/pit-viper-2021)
 
-**Artist**: doof 
+**Artist**: Minnesota 
 
-**Track**: David Rust, Uberjak'd Ft. Ella Young - Go Insane
+**Track**: Pit Viper
 
-Last updated at 05/11/2024 06:29
+Last updated at 05/11/2024 06:30
