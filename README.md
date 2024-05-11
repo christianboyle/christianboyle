@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdrzaVQT1dyDIwDX-75Z3WQ-t500x500.jpg">](https://soundcloud.com/minnesota/pit-viper-2021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f7UuDB9Q8QcPyd89-kcRrzQ-t500x500.jpg">](https://soundcloud.com/sidestagecollective614/sidestage-radio-vol22-edmel-diaz)
 
-**Artist**: Minnesota 
+**Artist**: Sidestage Collective 
 
-**Track**: Pit Viper
+**Track**: Sidestage Radio Vol.22 - Edmel Diaz
 
-Last updated at 05/11/2024 06:30
+Last updated at 05/11/2024 06:31
