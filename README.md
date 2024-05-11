@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itJ6ftbooKaeTE0x-9w7M6Q-t500x500.jpg">](https://soundcloud.com/samo5techno/be-scared-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wO5PP8UHVgysjd2j-BpHMoA-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-fighting-for?in=fahjahmusic/sets/fahjah-oing-barong-ep)
 
-**Artist**: SAMO5 
+**Artist**: Barong Family 
 
-**Track**: Be Scared - Original Mix
+**Track**: Fahjah & Oing - Fighting For
 
-Last updated at 05/11/2024 06:36
+Last updated at 05/11/2024 06:37
