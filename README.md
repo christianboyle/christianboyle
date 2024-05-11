@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vFvXjrQAQqDOALk6-OOTDig-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/mr-jennings-bounce-to-the-future-pt-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itJ6ftbooKaeTE0x-9w7M6Q-t500x500.jpg">](https://soundcloud.com/samo5techno/be-scared-original-mix)
 
-**Artist**: Wormhole Music Group 
+**Artist**: SAMO5 
 
-**Track**: Mr Jennings - Bounce to the Future Pt 1
+**Track**: Be Scared - Original Mix
 
-Last updated at 05/11/2024 06:35
+Last updated at 05/11/2024 06:36
