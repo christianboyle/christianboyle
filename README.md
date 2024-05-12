@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJKdtlikpYpS9I4t-nnK9bA-t500x500.jpg">](https://soundcloud.com/brokawmusic/otherside-brokawakimbo-final-project)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tR0FjAdlMkLAMo7e-WCQCzQ-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-76-prescience)
 
-**Artist**: Brokaw 
+**Artist**: SoCal Nightcore Podcast 
 
-**Track**: Otherside W/ Akimbo
+**Track**: Episode 76 - Prescience
 
-Last updated at 05/12/2024 18:13
+Last updated at 05/12/2024 18:14
