@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tR0FjAdlMkLAMo7e-WCQCzQ-t500x500.jpg">](https://soundcloud.com/socalnightcore/episode-76-prescience)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gKdz0bPXN7MzZwGZ-1QDwNQ-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc187)
 
-**Artist**: SoCal Nightcore Podcast 
+**Artist**: NON STOP NXC® 
 
-**Track**: Episode 76 - Prescience
+**Track**: NXC187 - Cool Teens - The World To You
 
-Last updated at 05/12/2024 18:14
+Last updated at 05/12/2024 18:17
