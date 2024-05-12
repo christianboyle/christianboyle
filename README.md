@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTxIDS0PTAaioXl-nQLL1A-t500x500.jpg">](https://soundcloud.com/basiliskbass/ben-soundscape-youre-finished?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJKdtlikpYpS9I4t-nnK9bA-t500x500.jpg">](https://soundcloud.com/brokawmusic/otherside-brokawakimbo-final-project)
 
-**Artist**: Basilisk Bass 
+**Artist**: Brokaw 
 
-**Track**: Ben Soundscape - You're Finished
+**Track**: Otherside W/ Akimbo
 
-Last updated at 05/12/2024 18:11
+Last updated at 05/12/2024 18:13
