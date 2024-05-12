@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c6zfVCoY7Wln-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-lucifer-1?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo)
 
-**Artist**: A. G. Cook 
+**Artist**: Darren Omnet 
 
-**Track**: A. G. Cook - Lucifer
+**Track**: Umbrella (Darren Omnet Edit)
 
-Last updated at 05/12/2024 13:46
+Last updated at 05/12/2024 15:12
