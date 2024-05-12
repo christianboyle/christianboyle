@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzuJ8FyrnrVga2AR-VkrXmA-t500x500.jpg">](https://soundcloud.com/hptgmusic/alaguan-lets-go?in=saxurn/sets/evo)
 
-**Artist**: Darren Omnet 
+**Artist**: HPTG Music 
 
-**Track**: Umbrella (Darren Omnet Edit)
+**Track**: Alaguan - Let's Go
 
-Last updated at 05/12/2024 15:12
+Last updated at 05/12/2024 15:13
