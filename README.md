@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzuJ8FyrnrVga2AR-VkrXmA-t500x500.jpg">](https://soundcloud.com/hptgmusic/maxi-malone-feeling-high-daniel-seven-makina-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAwNEy7OP5wYxpAP-DgBqMg-t500x500.jpg">](https://soundcloud.com/darryl-wright-285141158/snipered-1)
 
-**Artist**: HPTG Music 
+**Artist**: Dee.Wright 
 
-**Track**: Maxi Malone - Feeling High (Daniel Seven Makina Remix)
+**Track**: Snipered
 
-Last updated at 05/12/2024 09:37
+Last updated at 05/12/2024 09:42
