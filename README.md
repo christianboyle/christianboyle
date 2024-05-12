@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDPiWGfxMuo6SEWs-KSKTYg-t500x500.jpg">](https://soundcloud.com/yerbownik/recharge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo/)
 
-**Artist**: yerbby 
+**Artist**: Darren Omnet 
 
-**Track**: RECHARGE
+**Track**: Umbrella (Darren Omnet Edit)
 
-Last updated at 05/12/2024 12:28
+Last updated at 05/12/2024 13:01
