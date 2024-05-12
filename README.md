@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAwNEy7OP5wYxpAP-DgBqMg-t500x500.jpg">](https://soundcloud.com/darryl-wright-285141158/snipered-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHb432iLL43DMAny-hKS8sQ-t500x500.jpg">](https://soundcloud.com/eyezic-music/eyezic-demotapes-part-of-me-edit-master)
 
-**Artist**: Dee.Wright 
+**Artist**: Eyezic 
 
-**Track**: Snipered
+**Track**: Eyezic & demotapes - Part Of Me (edit)
 
-Last updated at 05/12/2024 09:42
+Last updated at 05/12/2024 12:27
