@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000352638834-5auyii-t500x500.jpg">](https://soundcloud.com/nonstopnxc/nxc111)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fESaiZa53ebAM0dt-LA47Jg-t500x500.jpg">](https://soundcloud.com/oli_west/oli-west-second-death?in=saxurn/sets/evo)
 
-**Artist**: NON STOP NXC® 
+**Artist**: Oli West 
 
-**Track**: NXC111 - Milk & Honey - give it up
+**Track**: Oli West - Second Death
 
-Last updated at 05/12/2024 18:18
+Last updated at 05/12/2024 18:19
