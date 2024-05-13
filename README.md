@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTxIDS0PTAaioXl-nQLL1A-t500x500.jpg">](https://soundcloud.com/basiliskbass/ben-soundscape-youre-finished?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DbhcyYd6W6hNOIMz-EoltFg-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-put-em-up?in=saxurn/sets/evo)
 
-**Artist**: Basilisk Bass 
+**Artist**: Barong Family 
 
-**Track**: Ben Soundscape - You're Finished
+**Track**: Fahjah & Oing - Put Em Up
 
-Last updated at 05/12/2024 19:37
+Last updated at 05/12/2024 19:42
