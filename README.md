@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DbhcyYd6W6hNOIMz-EoltFg-t500x500.jpg">](https://soundcloud.com/barongfamily/fahjah-oing-put-em-up?in=saxurn/sets/evo)
 
-**Artist**: Darren Omnet 
+**Artist**: Barong Family 
 
-**Track**: Umbrella (Darren Omnet Edit)
+**Track**: Fahjah & Oing - Put Em Up
 
-Last updated at 05/13/2024 09:26
+Last updated at 05/13/2024 09:27
