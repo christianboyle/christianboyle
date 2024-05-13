@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzTxIDS0PTAaioXl-nQLL1A-t500x500.jpg">](https://soundcloud.com/basiliskbass/ben-soundscape-youre-finished?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo)
 
-**Artist**: Basilisk Bass 
+**Artist**: Darren Omnet 
 
-**Track**: Ben Soundscape - You're Finished
+**Track**: Umbrella (Darren Omnet Edit)
 
-Last updated at 05/13/2024 09:22
+Last updated at 05/13/2024 09:26
