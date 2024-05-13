@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PWhCvB3R4LJxy32R-xjbz3Q-t500x500.jpg">](https://soundcloud.com/minitbyminit/aap-rocky-praise-the-lord-retimed-by-minit?in=saxurn/sets/evo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzuJ8FyrnrVga2AR-VkrXmA-t500x500.jpg">](https://soundcloud.com/hptgmusic/maxi-malone-feeling-high-daniel-seven-makina-remix?in=saxurn/sets/evo)
 
-**Artist**: Minit 
+**Artist**: HPTG Music 
 
-**Track**: A$AP Rocky - Praise The Lord (Retimed by Minit)
+**Track**: Maxi Malone - Feeling High (Daniel Seven Makina Remix)
 
-Last updated at 05/13/2024 09:11
+Last updated at 05/13/2024 09:13
