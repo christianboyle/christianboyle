@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIYZm3CyhjLt-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-equine-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Llhw0GTrRSBsph83-lzAWPg-t500x500.jpg">](https://soundcloud.com/acris-official-music/i-like-the-way-you-kiss-me-acris-bootleg-1)
 
-**Artist**: A. G. Cook 
+**Artist**: ACRIS 
 
-**Track**: A. G. Cook - Equine
+**Track**: i like the way you kiss me (acris d&b bootleg)
 
-Last updated at 05/13/2024 09:39
+Last updated at 05/14/2024 08:05
