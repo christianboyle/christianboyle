@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VC29zHEyCth5r4XR-l5hRRg-t500x500.jpg">](https://soundcloud.com/inrotationrecs/tcts-desire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u4Nlyk97q7FjDgsJ-H13b3g-t500x500.jpg">](https://soundcloud.com/adamenoise/under-pressure)
 
-**Artist**: IN / ROTATION 
+**Artist**: ADAME 
 
-**Track**: TCTS - Desire
+**Track**: Under Pressure
 
-Last updated at 05/14/2024 08:11
+Last updated at 05/14/2024 08:12
