@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u4Nlyk97q7FjDgsJ-H13b3g-t500x500.jpg">](https://soundcloud.com/adamenoise/under-pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJ9uvy3XSKzvTGCB-QDtqUA-t500x500.jpg">](https://soundcloud.com/jake-towlson-92311052/jt-forever)
 
-**Artist**: ADAME 
+**Artist**: Jt 
 
-**Track**: Under Pressure
+**Track**: Loreen - Forever (Jt remix)
 
-Last updated at 05/14/2024 08:12
+Last updated at 05/14/2024 08:13
