@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVlIeTbXyik62fGF-cG2IZQ-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/idontcare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nXyK3pP7wrKp-0-t500x500.jpg">](https://soundcloud.com/nirvana/smells-like-teen-spirit-1)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Nirvana 
 
-**Track**: Icona Pop - I Don't Care (Ezra Hazard x MakeYouFreak x Roxy June Hard Mix)
+**Track**: Smells Like Teen Spirit
 
-Last updated at 05/14/2024 08:07
+Last updated at 05/14/2024 08:08
