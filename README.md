@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1STffxuwCiIU0aZG-Xmk4mw-t500x500.jpg">](https://soundcloud.com/mystical7778/mean-girl-feat-joeyy-ricky-chixpmax2k10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6vXmlTHMYYxhmUyP-uk4DnA-t500x500.jpg">](https://soundcloud.com/kollaba/backr00ms)
 
-**Artist**: phreshboyswag 
+**Artist**: kollaba 
 
-**Track**: mean girl feat joeyy & ricky chix (max2k10)
+**Track**: BACKR00MS KOLLABA FLIP
 
-Last updated at 05/14/2024 08:09
+Last updated at 05/14/2024 08:10
