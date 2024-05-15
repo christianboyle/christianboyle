@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VWBy2iNuuDOFEt1I-adNEHQ-t500x500.jpg">](https://soundcloud.com/k1n_music/betteroffalone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HOAsQn6b8Zjx-0-t500x500.jpg">](https://soundcloud.com/evnne/ugly-will-not-fear-remix)
 
-**Artist**: K1N 
+**Artist**: EVNNE 
 
-**Track**: Alice Deejay - Better Off Alone (K1N REMIX)
+**Track**: UGLY (Will Not Fear Remix)
 
-Last updated at 05/15/2024 08:34
+Last updated at 05/15/2024 08:35
