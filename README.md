@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzCr03BgfE0IN3NR-zDi1nA-t500x500.jpg">](https://soundcloud.com/bagggggg/deadmau5-ft-rob-swire-ghosts-n-stuff-jauz-remix-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E7r9z4YphANwkpXJ-2zKO3Q-t500x500.jpg">](https://soundcloud.com/futurehousemusic/lady-bee-wingman-feat-bleu-summer)
 
-**Artist**: BAGG 
+**Artist**: Future House Music 
 
-**Track**: deadmau5 Ft. Rob Swire - Ghosts n' Stuff (Jauz Remix) (Hardstyle Remix)
+**Track**: Lady Bee - Wingman (feat. Bleu Summer)
 
-Last updated at 05/15/2024 08:37
+Last updated at 05/15/2024 08:38
