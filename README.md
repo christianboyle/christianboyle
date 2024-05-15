@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t9dodRBstSKBxrU-Bngvhw-t500x500.jpg">](https://soundcloud.com/acidsouljah/ifeelcrazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DselcO8XPnKrK4Y1-mTIf2w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-move-your-body-audiophetamine?in=saxurn/sets/tmp/)
 
-**Artist**: Acid Souljah 
+**Artist**: Dirty Workz 
 
-**Track**: (SWMG) Acid Souljah - I Take Drugs & I Feel Weird (Prod. Ticox)
+**Track**: Crypton - MOVE YOUR BODY (Audiophetamine)
 
-Last updated at 05/15/2024 09:11
+Last updated at 05/15/2024 09:12
