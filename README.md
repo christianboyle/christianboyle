@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zegt4RBa0mkLaB0L-K4xvKA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/sevsky-pressure?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsUhocePjcG1tj2G-zecvkg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/madeinchina?in=saxurn/sets/tmp)
 
-**Artist**: Sweet Sounds Collective 
+**Artist**: MOJI - II 
 
-**Track**: SEVSKY - Pressure
+**Track**: Made In China (MOJI & TwinTigerz Remix)
 
-Last updated at 05/15/2024 09:02
+Last updated at 05/15/2024 09:06
