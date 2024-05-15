@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHngVbwb8PSLdTwI-L3dSSg-t500x500.jpg">](https://soundcloud.com/awakening_records/lizdek-burn-it-down?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DselcO8XPnKrK4Y1-mTIf2w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-move-your-body-audiophetamine?in=saxurn/sets/tmp/)
 
-**Artist**: Awakening Records 
+**Artist**: Dirty Workz 
 
-**Track**: Lizdek - Burn It Down
+**Track**: Crypton - MOVE YOUR BODY (Audiophetamine)
 
-Last updated at 05/15/2024 09:09
+Last updated at 05/15/2024 09:10
