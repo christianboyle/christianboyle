@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0EKNvO64JnzO0wN-Dj87Rg-t500x500.jpg">](https://soundcloud.com/invaders_jp/nghthyp-vuki-vip-v-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nbcOHClvsga9gsuU-mwuixQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-gigi-fm-tempelhof-srn002)
 
-**Artist**: Invaders 
+**Artist**: HATE 
 
-**Track**: NGHTHYP - Vuki(VIP) [V.A. / #Invaders0428 EXCLUSIVE TRACKS]
+**Track**: Premiere: GiGi FM - Tempelhof [SRN002]
 
-Last updated at 05/15/2024 08:28
+Last updated at 05/15/2024 08:29
