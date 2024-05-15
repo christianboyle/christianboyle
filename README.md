@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ftJzPkOLEhPEpJyq-5aDvJw-t500x500.jpg">](https://soundcloud.com/justicehardcore/nanoknife-dj-king-et-moonless-vip-mix-out-now?in=justicehardcore/sets/nanoknife-dj-king-et-moonless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8eRQFQCTPkQHeFnl-P3Kg8Q-t500x500.jpg">](https://soundcloud.com/bassjackers/kendrick-lamar-humble-bassjackers-remix-1)
 
-**Artist**: Justice Hardcore 
+**Artist**: BASSJACKERS 
 
-**Track**: NanoKnife, Dj King Et - Moonless (VIP MIX) [OUT NOW]
+**Track**: Kendrick Lamar - HUMBLE. (Bassjackers Remix)
 
-Last updated at 05/15/2024 08:39
+Last updated at 05/15/2024 08:40
