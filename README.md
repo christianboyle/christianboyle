@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOh1CmqIUWa1qieB-Ab2QDQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/ankou-the-future?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHngVbwb8PSLdTwI-L3dSSg-t500x500.jpg">](https://soundcloud.com/awakening_records/lizdek-burn-it-down?in=saxurn/sets/tmp/)
 
-**Artist**: Wavecraft Collective 
+**Artist**: Awakening Records 
 
-**Track**: Ankou - The Future
+**Track**: Lizdek - Burn It Down
 
-Last updated at 05/15/2024 09:08
+Last updated at 05/15/2024 09:09
