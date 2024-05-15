@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHngVbwb8PSLdTwI-L3dSSg-t500x500.jpg">](https://soundcloud.com/awakening_records/lizdek-burn-it-down?in=saxurn/sets/twisted-metal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0EKNvO64JnzO0wN-Dj87Rg-t500x500.jpg">](https://soundcloud.com/invaders_jp/nghthyp-vuki-vip-v-a?in=saxurn/sets/twisted-metal)
 
-**Artist**: Awakening Records 
+**Artist**: Invaders 
 
-**Track**: Lizdek - Burn It Down
+**Track**: NGHTHYP - Vuki(VIP) [V.A. / #Invaders0428 EXCLUSIVE TRACKS]
 
-Last updated at 05/15/2024 09:40
+Last updated at 05/15/2024 09:42
