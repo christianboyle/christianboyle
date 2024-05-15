@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnCIncGwQXvPlGzy-VPnz7Q-t500x500.jpg">](https://soundcloud.com/reddspins/bbl-drizzy-redd-house-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykoY1UvzvUHX9Qsu-IShISQ-t500x500.jpg">](https://soundcloud.com/tsunamimusicx/cheerleader-edit?in=saxurn/sets/tmp/)
 
-**Artist**: REDD 
+**Artist**: TSU NAMI 
 
-**Track**: BBL Drizzy (REDD House Edit)
+**Track**: Porter Robinson - Cheerleader (CHROMENAMI EDIT)
 
-Last updated at 05/15/2024 08:45
+Last updated at 05/15/2024 08:47
