@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DselcO8XPnKrK4Y1-mTIf2w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-move-your-body-audiophetamine?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2mLEmO6No4YF25l-Ac4mXA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/umbrella-darren-omnet-edit?in=saxurn/sets/evo)
 
-**Artist**: Dirty Workz 
+**Artist**: Darren Omnet 
 
-**Track**: Crypton - MOVE YOUR BODY (Audiophetamine)
+**Track**: Umbrella (Darren Omnet Edit)
 
-Last updated at 05/15/2024 09:12
+Last updated at 05/15/2024 09:14
