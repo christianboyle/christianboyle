@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXmPXqL7NWVRNhLA-09MjLA-t500x500.jpg">](https://soundcloud.com/leftunsaidofficial/feel-this-way)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t9dodRBstSKBxrU-Bngvhw-t500x500.jpg">](https://soundcloud.com/acidsouljah/michael?in=acidsouljah/sets/inbredmethaddictmusic)
 
-**Artist**: LEFT UNSAID 
+**Artist**: Acid Souljah 
 
-**Track**: Feel This Way
+**Track**: (SWMG) Acid Souljah - Michael Myers (Prod. Ticox)
 
-Last updated at 05/15/2024 08:31
+Last updated at 05/15/2024 08:32
