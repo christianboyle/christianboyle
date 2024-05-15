@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0EKNvO64JnzO0wN-Dj87Rg-t500x500.jpg">](https://soundcloud.com/invaders_jp/nghthyp-vuki-vip-v-a?in=saxurn/sets/twisted-metal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DselcO8XPnKrK4Y1-mTIf2w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-move-your-body-audiophetamine?in=saxurn/sets/twisted-metal)
 
-**Artist**: Invaders 
+**Artist**: Dirty Workz 
 
-**Track**: NGHTHYP - Vuki(VIP) [V.A. / #Invaders0428 EXCLUSIVE TRACKS]
+**Track**: Crypton - MOVE YOUR BODY (Audiophetamine)
 
-Last updated at 05/15/2024 09:42
+Last updated at 05/15/2024 09:47
