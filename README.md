@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HOAsQn6b8Zjx-0-t500x500.jpg">](https://soundcloud.com/evnne/ugly-will-not-fear-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MdrzaVQT1dyDIwDX-75Z3WQ-t500x500.jpg">](https://soundcloud.com/minnesota/00-minnesota-wonder-2021)
 
-**Artist**: EVNNE 
+**Artist**: Minnesota 
 
-**Track**: UGLY (Will Not Fear Remix)
+**Track**: Wonder
 
-Last updated at 05/15/2024 08:35
+Last updated at 05/15/2024 08:36
