@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsUhocePjcG1tj2G-zecvkg-t500x500.jpg">](https://soundcloud.com/mojibootlegs/madeinchina?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOh1CmqIUWa1qieB-Ab2QDQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/ankou-the-future?in=saxurn/sets/tmp/)
 
-**Artist**: MOJI - II 
+**Artist**: Wavecraft Collective 
 
-**Track**: Made In China (MOJI & TwinTigerz Remix)
+**Track**: Ankou - The Future
 
-Last updated at 05/15/2024 09:06
+Last updated at 05/15/2024 09:08
