@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DselcO8XPnKrK4Y1-mTIf2w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crypton-move-your-body-audiophetamine?in=saxurn/sets/twisted-metal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykoY1UvzvUHX9Qsu-IShISQ-t500x500.jpg">](https://soundcloud.com/tsunamimusicx/cheerleader-edit?in=saxurn/sets/twisted-metal)
 
-**Artist**: Dirty Workz 
+**Artist**: TSU NAMI 
 
-**Track**: Crypton - MOVE YOUR BODY (Audiophetamine)
+**Track**: Porter Robinson - Cheerleader (CHROMENAMI EDIT)
 
-Last updated at 05/15/2024 09:47
+Last updated at 05/16/2024 08:25
