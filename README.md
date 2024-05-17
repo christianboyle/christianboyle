@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmTizNGzGiVILW93-wLzOcg-t500x500.jpg">](https://soundcloud.com/rivoices/i-said-it-w-almogfx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pCBXh688xS21iaqy-DItlIw-t500x500.png">](https://soundcloud.com/sts67/perfect-day-mv1)
 
-**Artist**: rivoices 
+**Artist**: Scratch the Surface 
 
-**Track**: i said it w/ almogfx
+**Track**: Perfect Day
 
-Last updated at 05/17/2024 08:14
+Last updated at 05/17/2024 08:15
