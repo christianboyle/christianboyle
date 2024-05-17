@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbOmxfHPoaHjzAcR-WKcsNA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/adrenalize-faded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xGHDbSUSXxWM-0-t500x500.png">](https://soundcloud.com/odesza/say-my-name-darby-remix-feat)
 
-**Artist**: Dirty Workz 
+**Artist**: ODESZA 
 
-**Track**: Adrenalize - Faded
+**Track**: Say My Name (feat. Zyra) (Darby Remix)
 
-Last updated at 05/17/2024 08:16
+Last updated at 05/17/2024 08:17
