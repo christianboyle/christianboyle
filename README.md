@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ya0ypfyloRHRWbb-K9HvJQ-t500x500.jpg">](https://soundcloud.com/papajay7/runaway-minus-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pvK1H2J1ejGVExFt-2pZQnA-t500x500.jpg">](https://soundcloud.com/obscuurrecords/ika-sile-never-locked-up-free-download)
 
-**Artist**: PapaJay 
+**Artist**: OBSCUUR 
 
-**Track**: GALANTIS - RUNAWAY (YOU & I)  [ETERNAL & PAPAJAY REMIX]
+**Track**: Ika Sile - Never Locked Up [Free Download]
 
-Last updated at 05/18/2024 07:36
+Last updated at 05/18/2024 07:57
