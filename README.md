@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-837NErWnuU4RyaqV-qidU7g-t500x500.jpg">](https://soundcloud.com/blancaudio/premiere-coldplay-adventure-of-a-lifetime-giovanni-foggetta-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5k9Bix2HXxvCj0f-ELdi1g-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/aatw-classics-the-faster-bouncy-mix)
 
-**Artist**: blanc 
+**Artist**: Dj Des 
 
-**Track**: Premiere: Coldplay - Adventure Of A Lifetime (Giovanni Foggetta Remix)
+**Track**: AATW Classics  ( The Faster Bouncier Mix )
 
-Last updated at 05/18/2024 07:33
+Last updated at 05/18/2024 07:34
