@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S48WEyRB3aGO-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-one-cry-feat-rosa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrXfNOJiUVdG-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-dust-1?in=wearegalantis/sets/rx-85474527)
 
 **Artist**: Galantis 
 
-**Track**: Galantis - One Cry (feat. Rosa Linn)
+**Track**: Galantis - Dust
 
-Last updated at 05/18/2024 08:05
+Last updated at 05/18/2024 08:09
