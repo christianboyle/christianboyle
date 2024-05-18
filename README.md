@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nys37gjOz5z05XT2-ZmyXuQ-t500x500.jpg">](https://soundcloud.com/fervormusic/emergence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I2ywGNyhoXzjoENL-W6XDyA-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/guo-pigeondope)
 
-**Artist**: Fervor 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: Emergence
+**Track**: Guo - Pigeon Dope [Gold Digger]
 
-Last updated at 05/18/2024 07:13
+Last updated at 05/18/2024 07:22
