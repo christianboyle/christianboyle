@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Drc1czTpZWn0K2I-HCfR1w-t500x500.jpg">](https://soundcloud.com/fifthdensity/never-stay-silent-wardubresponse-to-dangermusic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-837NErWnuU4RyaqV-qidU7g-t500x500.jpg">](https://soundcloud.com/blancaudio/premiere-coldplay-adventure-of-a-lifetime-giovanni-foggetta-remix)
 
-**Artist**: FIFTHDENSITY 
+**Artist**: blanc 
 
-**Track**: NEVER STAY SILENT (Wardub response to DangerMusic, Send to SilentSyn, Luminyst, SIEGE MUSIC)
+**Track**: Premiere: Coldplay - Adventure Of A Lifetime (Giovanni Foggetta Remix)
 
-Last updated at 05/18/2024 07:32
+Last updated at 05/18/2024 07:33
