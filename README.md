@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yMZ8KTgBkk2ZVq9-ebOaIw-t500x500.jpg">](https://soundcloud.com/lovedeejayofficial/samuel-love-hasta-que-salga-el-sol-180bpm?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8muVXo7WVYdC4eNe-7PlNTQ-t500x500.jpg">](https://soundcloud.com/wearestudio/coido-7th-movement-premiere?in=saxurn/sets/proggies)
 
-**Artist**: SamuelLove_Official 
+**Artist**: STUDIO 
 
-**Track**: Samuel Love - Hasta Que Salga El Sol (180BPM)__FREEDOWNLOAD
+**Track**: COIDO - 7th Movement [Premiere]
 
-Last updated at 05/20/2024 16:25
+Last updated at 05/20/2024 16:26
