@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzmK01mzReUyHPs0-3UArZg-t500x500.jpg">](https://soundcloud.com/rave_alert/travis-scott-goosebumps-ft-kendrick-lamar-indepth-hard-techno-edit?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-96gzI1acYEgkx88t-kHGOSA-t500x500.jpg">](https://soundcloud.com/ajakk/ajak-like-that-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Rave Alert 
+**Artist**: AJAK 
 
-**Track**: Travis Scott - Goosebumps Ft. Kendrick Lamar (Indepth Hard Techno Edit)
+**Track**: AJAK - Like That (remix)
 
-Last updated at 05/20/2024 14:31
+Last updated at 05/20/2024 14:32
