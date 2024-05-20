@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-96gzI1acYEgkx88t-kHGOSA-t500x500.jpg">](https://soundcloud.com/ajakk/ajak-like-that-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzX8WZrGhJ0z45BZ-RozITQ-t500x500.jpg">](https://soundcloud.com/beauzworld/stereo-love-beauz-hard-techno-remix?in=saxurn/sets/tmp/)
 
-**Artist**: AJAK 
+**Artist**: BEAUZ 
 
-**Track**: AJAK - Like That (remix)
+**Track**: Stereo Love (BEAUZ Hard Techno Remix)
 
-Last updated at 05/20/2024 13:28
+Last updated at 05/20/2024 13:41
