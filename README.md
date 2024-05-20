@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mktxiHdvWZgUjgxL-esRL5g-t500x500.jpg">](https://soundcloud.com/josephgdj/forgotten-90s-00s-hard-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykoY1UvzvUHX9Qsu-IShISQ-t500x500.jpg">](https://soundcloud.com/tsunamimusicx/cheerleader-edit?in=saxurn/sets/twisted-metal)
 
-**Artist**: J.O.E. 
+**Artist**: TSU NAMI 
 
-**Track**: Forgotten 90's/00's Hard Trance
+**Track**: Porter Robinson - Cheerleader (CHROMENAMI EDIT)
 
-Last updated at 05/20/2024 08:47
+Last updated at 05/20/2024 10:47
