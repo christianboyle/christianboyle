@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbOmxfHPoaHjzAcR-WKcsNA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/adrenalize-faded?in=saxurn/sets/tmp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yv4IL4MK1DeCrxI-ryKEkw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-something-new)
 
-**Artist**: Dirty Workz 
+**Artist**: I AM HARDSTYLE 
 
-**Track**: Adrenalize - Faded
+**Track**: Brennan Heart - Something New
 
-Last updated at 05/20/2024 14:10
+Last updated at 05/20/2024 14:14
