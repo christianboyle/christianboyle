@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8muVXo7WVYdC4eNe-7PlNTQ-t500x500.jpg">](https://soundcloud.com/wearestudio/coido-7th-movement-premiere?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPh9c2R4wRC1mzSB-uoLOIw-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/jid-surround-sound-rexydexy-flip?in=saxurn/sets/tmp/)
 
-**Artist**: STUDIO 
+**Artist**: REXY=DEXY 
 
-**Track**: COIDO - 7th Movement [Premiere]
+**Track**: JID - Surround Sound (REXY=DEXY Flip)
 
-Last updated at 05/20/2024 14:29
+Last updated at 05/20/2024 14:30
