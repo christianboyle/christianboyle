@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NX8ho3WI4HZ9-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-david-guetta-little-3?in=wearegalantis/sets/rx-85474527)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8eRQFQCTPkQHeFnl-P3Kg8Q-t500x500.jpg">](https://soundcloud.com/bassjackers/kendrick-lamar-humble-bassjackers-remix-1)
 
-**Artist**: Galantis 
+**Artist**: BASSJACKERS 
 
-**Track**: Galantis, David Guetta & Little Mix - Heartbreak Anthem
+**Track**: Kendrick Lamar - HUMBLE. (Bassjackers Remix)
 
-Last updated at 05/18/2024 16:14
+Last updated at 05/20/2024 08:44
