@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TzIsH8Si2ZQ7Jm0Y-i1AnkQ-t500x500.jpg">](https://soundcloud.com/iamhardstyle/thyron-never-surrender-the-xtreme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-96gzI1acYEgkx88t-kHGOSA-t500x500.jpg">](https://soundcloud.com/ajakk/ajak-like-that-remix?in=saxurn/sets/tmp/)
 
-**Artist**: I AM HARDSTYLE 
+**Artist**: AJAK 
 
-**Track**: Thyron & Never Surrender - THE XTREME
+**Track**: AJAK - Like That (remix)
 
-Last updated at 05/20/2024 14:15
+Last updated at 05/20/2024 14:16
