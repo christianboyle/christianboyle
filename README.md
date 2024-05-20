@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbOmxfHPoaHjzAcR-WKcsNA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/adrenalize-faded?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2qbXFafnSkZhFYx-zrozQA-t500x500.jpg">](https://soundcloud.com/countrynxc/i-luv-harajuku-texas-baby-remix?in=saxurn/sets/tmp/)
 
-**Artist**: Dirty Workz 
+**Artist**: texas baby 
 
-**Track**: Adrenalize - Faded
+**Track**: alice longyu gao f/ fraxiom - i <3 harajuku [texas baby jamster ringtone]
 
-Last updated at 05/20/2024 14:01
+Last updated at 05/20/2024 14:05
