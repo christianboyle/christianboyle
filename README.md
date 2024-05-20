@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dzX8WZrGhJ0z45BZ-RozITQ-t500x500.jpg">](https://soundcloud.com/beauzworld/stereo-love-beauz-hard-techno-remix?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2ZNA8yXzYs4qvVn-wmN9uQ-t500x500.jpg">](https://soundcloud.com/rxflxct2/26-04a?in=saxurn/sets/tmp/)
 
-**Artist**: BEAUZ 
+**Artist**: 𝙧𝙚𝙛𝙡𝙚𝙘𝙩 
 
-**Track**: Stereo Love (BEAUZ Hard Techno Remix)
+**Track**: 26-04
 
-Last updated at 05/20/2024 13:41
+Last updated at 05/20/2024 13:43
