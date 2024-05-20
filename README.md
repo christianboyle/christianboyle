@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iU6DW8sOWvH9wIBH-eMQHnw-t500x500.jpg">](https://soundcloud.com/mart-x-dj/skrillex-aluna-kito-inhale-exhale-martx-edit?in=saxurn/sets/twisted-metal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2qbXFafnSkZhFYx-zrozQA-t500x500.jpg">](https://soundcloud.com/countrynxc/i-luv-harajuku-texas-baby-remix)
 
-**Artist**: Mart!x 
+**Artist**: texas baby 
 
-**Track**: Skrillex, Aluna & Kito - Inhale Exhale (Mart!x Edit)
+**Track**: alice longyu gao f/ fraxiom - i <3 harajuku [texas baby jamster ringtone]
 
-Last updated at 05/20/2024 10:54
+Last updated at 05/20/2024 13:23
