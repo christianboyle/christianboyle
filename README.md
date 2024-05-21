@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzmK01mzReUyHPs0-3UArZg-t500x500.jpg">](https://soundcloud.com/rave_alert/travis-scott-goosebumps-ft-kendrick-lamar-indepth-hard-techno-edit?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbOmxfHPoaHjzAcR-WKcsNA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/adrenalize-faded?in=saxurn/sets/proggies)
 
-**Artist**: Rave Alert 
+**Artist**: Dirty Workz 
 
-**Track**: Travis Scott - Goosebumps Ft. Kendrick Lamar (Indepth Hard Techno Edit)
+**Track**: Adrenalize - Faded
 
-Last updated at 05/21/2024 13:05
+Last updated at 05/21/2024 13:11
