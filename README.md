@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8muVXo7WVYdC4eNe-7PlNTQ-t500x500.jpg">](https://soundcloud.com/wearestudio/coido-7th-movement-premiere?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqQWJdmo8Tki06pV-tEMyLA-t500x500.jpg">](https://soundcloud.com/scarfiemusic/feeling?in=saxurn/sets/proggies)
 
-**Artist**: STUDIO 
+**Artist**: SCARFIE 
 
-**Track**: COIDO - 7th Movement [Premiere]
+**Track**: FEELING
 
-Last updated at 05/21/2024 09:59
+Last updated at 05/21/2024 11:43
