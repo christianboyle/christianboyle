@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hHbpiycSigkxi0Fw-eaLFMw-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-sully-wild-shanghai-doom-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qhm01se7XWWfI2b-L5wzWA-t500x500.jpg">](https://soundcloud.com/mand_0/mand0-terminator)
 
-**Artist**: Wakaan 
+**Artist**: Mand0 
 
-**Track**: Ravenscoon, Sully - Wild [Shanghai Doom Remix]
+**Track**: Terminator
 
-Last updated at 05/21/2024 08:46
+Last updated at 05/21/2024 08:47
