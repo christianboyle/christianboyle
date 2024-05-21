@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8muVXo7WVYdC4eNe-7PlNTQ-t500x500.jpg">](https://soundcloud.com/wearestudio/coido-7th-movement-premiere?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hHbpiycSigkxi0Fw-eaLFMw-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-sully-wild-shanghai-doom-remix)
 
-**Artist**: STUDIO 
+**Artist**: Wakaan 
 
-**Track**: COIDO - 7th Movement [Premiere]
+**Track**: Ravenscoon, Sully - Wild [Shanghai Doom Remix]
 
-Last updated at 05/20/2024 16:26
+Last updated at 05/21/2024 08:46
