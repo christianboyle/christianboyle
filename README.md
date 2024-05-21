@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPh9c2R4wRC1mzSB-uoLOIw-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/jid-surround-sound-rexydexy-flip?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2qbXFafnSkZhFYx-zrozQA-t500x500.jpg">](https://soundcloud.com/countrynxc/i-luv-harajuku-texas-baby-remix?in=saxurn/sets/proggies)
 
-**Artist**: REXY=DEXY 
+**Artist**: texas baby 
 
-**Track**: JID - Surround Sound (REXY=DEXY Flip)
+**Track**: alice longyu gao f/ fraxiom - i <3 harajuku [texas baby jamster ringtone]
 
-Last updated at 05/21/2024 13:00
+Last updated at 05/21/2024 13:02
