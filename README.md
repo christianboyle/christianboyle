@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrFrz9mH0INIRTgk-jnLytw-t500x500.jpg">](https://soundcloud.com/darn84/producer-big-nasty-dragon-vol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GOtwP5rOxqqLyFW-Mq6xhw-t500x500.jpg">](https://soundcloud.com/juniorstate/charlie?in=juniorstate/sets/from-california)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: junior state 
 
-**Track**: Producer - Big Nasty Dragon - Vol 1 (1996)
+**Track**: Charlie
 
-Last updated at 05/22/2024 07:05
+Last updated at 05/22/2024 07:06
