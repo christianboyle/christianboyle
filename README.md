@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yI71UPFN4rrX-0-t500x500.png">](https://soundcloud.com/axel-boy/diamond-in-the-rough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RmamCjw77GmOrX7S-cHrygA-t500x500.jpg">](https://soundcloud.com/tsoumusic/kendrick-lamar-dna-tsou-flip)
 
-**Artist**: Axel Boy 
+**Artist**: tsou 
 
-**Track**: Diamond in the Rough
+**Track**: Kendrick Lamar - DNA. (tsou Flip)
 
-Last updated at 05/22/2024 06:39
+Last updated at 05/22/2024 06:56
