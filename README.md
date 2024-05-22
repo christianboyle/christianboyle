@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3lEynGVeAUPqtedN-T2J2Jw-t500x500.jpg">](https://soundcloud.com/audiobambino/the-endbringer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bayjW2asHMlxgSND-tjfRoA-t500x500.jpg">](https://soundcloud.com/audiobambino/dj-coldsteel-consumer-magick)
 
 **Artist**: audio bambino 
 
-**Track**: EraTek - The Endbringer (Album Edit)
+**Track**: dJ ColdsteeL - Consumer Magick
 
-Last updated at 05/22/2024 08:47
+Last updated at 05/22/2024 08:52
