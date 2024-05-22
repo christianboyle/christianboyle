@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xA3kz0noFq1gEFzV-4jHZSQ-t500x500.png">](https://soundcloud.com/niraya/preconceived-notions)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bYtbfwLGImd5-0-t500x500.jpg">](https://soundcloud.com/wearewavedash/coming-out-hot?in=wearewavedash/sets/tempo-121988574)
 
-**Artist**: Niraya 
+**Artist**: Wavedash 
 
-**Track**: Preconceived Notions
+**Track**: COMING OUT HOT!
 
-Last updated at 05/22/2024 07:00
+Last updated at 05/22/2024 07:01
