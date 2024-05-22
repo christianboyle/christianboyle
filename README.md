@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbOmxfHPoaHjzAcR-WKcsNA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/adrenalize-faded?in=saxurn/sets/proggies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yI71UPFN4rrX-0-t500x500.png">](https://soundcloud.com/axel-boy/diamond-in-the-rough)
 
-**Artist**: Dirty Workz 
+**Artist**: Axel Boy 
 
-**Track**: Adrenalize - Faded
+**Track**: Diamond in the Rough
 
-Last updated at 05/21/2024 13:16
+Last updated at 05/22/2024 06:39
