@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/big-is-moving-to-paris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yI71UPFN4rrX-0-t500x500.png">](https://soundcloud.com/axel-boy/diamond-in-the-rough)
 
-**Artist**: beverly hills mom 
+**Artist**: Axel Boy 
 
-**Track**: big is moving to paris
+**Track**: Diamond in the Rough
 
-Last updated at 05/22/2024 08:11
+Last updated at 05/22/2024 08:13
