@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q1eqgzJUy03NND1m-RiQhJQ-t500x500.jpg">](https://soundcloud.com/zoinks_mp3/wiz-khalifa-black-and-yellow-zoinks-sicari-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/big-is-moving-to-paris)
 
-**Artist**: Zoinks 
+**Artist**: beverly hills mom 
 
-**Track**: Wiz Khalifa - Black And Yellow (Zoinks & Sicari Flip) (FREE DOWNLOAD)
+**Track**: big is moving to paris
 
-Last updated at 05/22/2024 07:02
+Last updated at 05/22/2024 07:03
