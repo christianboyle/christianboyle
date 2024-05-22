@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yv4IL4MK1DeCrxI-ryKEkw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-something-new?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoHZOcBwUVrby838-OjJ4Yw-t500x500.jpg">](https://soundcloud.com/hexed-official/key-glock-broccoli-cheese-labs-hexed-flip?in=saxurn/sets/tmp/)
 
-**Artist**: I AM HARDSTYLE 
+**Artist**: HEXED 
 
-**Track**: Brennan Heart - Something New
+**Track**: KEY GLOCK - BROCCOLI & CHEESE (LABS X HEXED FLIP)
 
-Last updated at 05/22/2024 09:03
+Last updated at 05/22/2024 09:07
