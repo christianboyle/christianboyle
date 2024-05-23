@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SGlyJ3KqTCRtZmZk-Lzpl8w-t500x500.jpg">](https://soundcloud.com/solo-suspex/blanq-minds-conor-maynard-how-will-i-love-you-solo-suspex-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uUiE0hYRSYJSzDD0-hO2uOg-t500x500.jpg">](https://soundcloud.com/venture5/venture-5-nat-james-every-move)
 
-**Artist**: Solo Suspex 
+**Artist**: Venture 5 
 
-**Track**: Blanq Minds & Conor Maynard - How Will I Love You (Solo Suspex Remix) [FREE DOWNLOAD]
+**Track**: Venture 5, Nat James - Every Move
 
-Last updated at 05/23/2024 09:16
+Last updated at 05/23/2024 09:17
