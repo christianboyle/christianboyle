@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAnvUj9RllHtZmHm-FR4zLQ-t500x500.jpg">](https://soundcloud.com/itsgoonmusic/marshmello-x-infekt-loaded-goon-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yc8gD5b17OysAxB3-B4JJfA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/smart)
 
-**Artist**: GooN🥷 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Marshmello X INFEKT - LOADED (GooN Flip) [Free Download]
+**Track**: LE SSERAFIM - SMART (Ezra Hazard Tech Mix)
 
-Last updated at 05/23/2024 09:26
+Last updated at 05/23/2024 09:28
