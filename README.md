@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tTRycLZ7bQyY6ghL-ZBEUzQ-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/valentine-4am-us-feat-naji-kotori-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yc8gD5b17OysAxB3-B4JJfA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/smart)
 
-**Artist**: Best Dubstep Remixes 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: VALENTINE & 4AM - Us (feat. Naji) (Kotori Remix)
+**Track**: LE SSERAFIM - SMART (Ezra Hazard Tech Mix)
 
-Last updated at 05/23/2024 09:14
+Last updated at 05/23/2024 09:15
