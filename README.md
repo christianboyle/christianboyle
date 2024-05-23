@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3KV2pueGKgUeF3Sc-uZig3w-t500x500.jpg">](https://soundcloud.com/ninajirachi/ninacamina?in=ninajirachi/sets/girl-edm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4PP9BBHTONSoswN-9gd3EQ-t500x500.png">](https://soundcloud.com/tnt_ofc/traumer-hoodlum-kasell-2024)
 
-**Artist**: Ninajirachi 
+**Artist**: TNT 
 
-**Track**: Ninacamina (Ninajirachi & Izzy Camina)
+**Track**: Traumer - Hoodlum (KASELL 2024 EDIT) [TNT014]
 
-Last updated at 05/23/2024 09:18
+Last updated at 05/23/2024 09:19
