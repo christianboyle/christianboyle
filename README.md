@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yLnhwfDbeuscdZY-1BxlEw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/pala-chrome-concrete-jungle-feat-the-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tTRycLZ7bQyY6ghL-ZBEUzQ-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/valentine-4am-us-feat-naji-kotori-remix)
 
-**Artist**: Quality Goods Records 
+**Artist**: Best Dubstep Remixes 
 
-**Track**: QGR-035S | Pala Chrome - Concrete Jungle feat. The Moon
+**Track**: VALENTINE & 4AM - Us (feat. Naji) (Kotori Remix)
 
-Last updated at 05/23/2024 09:13
+Last updated at 05/23/2024 09:14
