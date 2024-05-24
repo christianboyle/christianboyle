@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58S7qxzlLGyXfYGH-4hSqaQ-t500x500.jpg">](https://soundcloud.com/producerjustpedro/baauer-harlem-shake-just-pedro-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCrP45RP3ByqXXqR-eaHi5A-t500x500.jpg">](https://soundcloud.com/dj4b/4b-mdw-2024)
 
-**Artist**: Just Pedro 
+**Artist**: 4B 
 
-**Track**: Baauer - Harlem Shake (Just Pedro Techno Edit)
+**Track**: 4B MDW 2024
 
-Last updated at 05/24/2024 08:09
+Last updated at 05/24/2024 08:10
