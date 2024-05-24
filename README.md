@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yc8gD5b17OysAxB3-B4JJfA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/smart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pqb2ZnTi1cNNBBih-QJeChg-t500x500.jpg">](https://soundcloud.com/sasumamusic/sasuma-round-round-ppmstr-4416)
 
-**Artist**: Ezra Hazard Extra 
+**Artist**: Sasuma 
 
-**Track**: LE SSERAFIM - SMART (Ezra Hazard Tech Mix)
+**Track**: Round Round
 
-Last updated at 05/23/2024 09:28
+Last updated at 05/24/2024 08:06
