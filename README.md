@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yv4IL4MK1DeCrxI-ryKEkw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-something-new?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdOtfvufs5pINgKy-Scew0w-t500x500.jpg">](https://soundcloud.com/audiobambino/bitmapping-feat-nujioh-c-z-1?in=saxurn/sets/tmp/)
 
-**Artist**: I AM HARDSTYLE 
+**Artist**: audio bambino 
 
-**Track**: Brennan Heart - Something New
+**Track**: VR Chads - Bitmapping (C.Z. Remix)
 
-Last updated at 05/24/2024 13:17
+Last updated at 05/24/2024 13:20
