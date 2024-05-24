@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAkXfxv3uYg0-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-get-you-alone-1?in=wearegalantis/sets/rx-85474527)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pqb2ZnTi1cNNBBih-QJeChg-t500x500.jpg">](https://soundcloud.com/sasumamusic/sasuma-round-round-ppmstr-4416)
 
-**Artist**: Galantis 
+**Artist**: Sasuma 
 
-**Track**: Galantis - Get You Alone
+**Track**: Round Round
 
-Last updated at 05/24/2024 12:58
+Last updated at 05/24/2024 12:59
