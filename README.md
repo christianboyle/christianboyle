@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORohUEYrQI8G-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-neon-trees?in=saxurn/sets/tmp/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yc8gD5b17OysAxB3-B4JJfA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/smart?in=saxurn/sets/tmp/)
 
-**Artist**: Galantis 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Galantis x Neon Trees - Dreamteam
+**Track**: LE SSERAFIM - SMART (Ezra Hazard Tech Mix)
 
-Last updated at 05/24/2024 13:11
+Last updated at 05/24/2024 13:14
