@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JWzpxfdzx5zywQzu-astNmQ-t500x500.jpg">](https://soundcloud.com/afik-2/2003-temp-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yWjAvCGqrIKY0J3-bmkLzw-t500x500.jpg">](https://soundcloud.com/esca_kassel/kitty)
 
-**Artist**: KIRK 
+**Artist**: ESCA 
 
-**Track**: 2003 (KIRK Re-work)
+**Track**: KITTY
 
-Last updated at 05/24/2024 08:07
+Last updated at 05/24/2024 08:08
