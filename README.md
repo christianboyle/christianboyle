@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORohUEYrQI8G-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-neon-trees?in=wearegalantis/sets/rx-85474527)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKgABZVrDSvC-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-koala?in=wearegalantis/sets/rx-85474527)
 
 **Artist**: Galantis 
 
-**Track**: Galantis x Neon Trees - Dreamteam
+**Track**: Galantis - Koala
 
-Last updated at 05/24/2024 12:50
+Last updated at 05/24/2024 12:53
