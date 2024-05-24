@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yWjAvCGqrIKY0J3-bmkLzw-t500x500.jpg">](https://soundcloud.com/esca_kassel/kitty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58S7qxzlLGyXfYGH-4hSqaQ-t500x500.jpg">](https://soundcloud.com/producerjustpedro/baauer-harlem-shake-just-pedro-techno-edit)
 
-**Artist**: ESCA 
+**Artist**: Just Pedro 
 
-**Track**: KITTY
+**Track**: Baauer - Harlem Shake (Just Pedro Techno Edit)
 
-Last updated at 05/24/2024 08:08
+Last updated at 05/24/2024 08:09
