@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCrP45RP3ByqXXqR-eaHi5A-t500x500.jpg">](https://soundcloud.com/dj4b/4b-mdw-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwA62mjvYNAxlR2F-XU1FYA-t500x500.jpg">](https://soundcloud.com/lowpolysound/automatic)
 
-**Artist**: 4B 
+**Artist**: Low Poly 
 
-**Track**: 4B MDW 2024
+**Track**: Automatic
 
-Last updated at 05/24/2024 14:07
+Last updated at 05/28/2024 09:13
