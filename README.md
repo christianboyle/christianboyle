@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdOtfvufs5pINgKy-Scew0w-t500x500.jpg">](https://soundcloud.com/audiobambino/forsythia-glb-bk-beats-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YmUL6MTLsjJPypKg-yRGgWw-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/sol-good-frantic-sc-master)
 
-**Artist**: audio bambino 
+**Artist**: Wormhole Music Group 
 
-**Track**: VR Chads - Forsythia.glb (BK Beats Remix)
+**Track**: Sol Good - Frantic
 
-Last updated at 05/29/2024 11:03
+Last updated at 05/29/2024 11:04
