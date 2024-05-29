@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ys7jC1rtqs9rRJny-f2yTJA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/aztronaut-dream-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNG4jNzflyQRzXEV-tk9Cqg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-boys-noize-svndy-hector-oaks-dirty-rave-mix-rawhs1)
 
-**Artist**: Dirty Workz 
+**Artist**: HATE 
 
-**Track**: Aztronaut - Dream (DWX Copyright Free)
+**Track**: Premiere: Boys Noize - SVNDY (Hector Oaks Dirty Rave Mix) [RAWHS1]
 
-Last updated at 05/29/2024 10:59
+Last updated at 05/29/2024 11:00
