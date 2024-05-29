@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpAxdrsqVS2PaH7b-FhDlhA-t500x500.jpg">](https://soundcloud.com/rinsefm/scuffedrecordings270524)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xfqc1WQYhD23sEWr-1y8K0Q-t500x500.jpg">](https://soundcloud.com/basiliskbass/des-mcmahon-slow-burn)
 
-**Artist**: Rinse FM 
+**Artist**: Basilisk Bass 
 
-**Track**: Scuffed Recordings - 27 May 2024
+**Track**: Des McMahon - Slow Burn
 
-Last updated at 05/29/2024 10:16
+Last updated at 05/29/2024 10:17
