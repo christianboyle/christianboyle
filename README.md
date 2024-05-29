@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hg7ADnJqyJS0yfqk-W27ADQ-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/toxic-wraith-gabriel-nait-lane-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oqSzypsWwqo0qQ9c-bmyJqQ-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-479)
 
-**Artist**: EDM FAMILY 
+**Artist**: Dj EZC 
 
-**Track**: Toxic Wraith & Gabriel NAIT - Lane [FREE DOWNLOAD]
+**Track**: Hardcore Will Never Die Episode 479
 
-Last updated at 05/29/2024 10:23
+Last updated at 05/29/2024 10:57
