@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qoY93ybzNsP9r62Q-Huij4w-t500x500.jpg">](https://soundcloud.com/wubaholics/mesophonic-undead-frequencies?in=wubaholics/sets/mesophonic-dead-presidents-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYvjLtkK1ul63pyY-cwpjQQ-t500x500.jpg">](https://soundcloud.com/chozenofficial/chozen-i-wanna-dance)
 
-**Artist**: Wubaholics 
+**Artist**: CHOZEN 
 
-**Track**: Mesophonic - Undead Frequencies
+**Track**: CHOZEN - I Wanna Dance [Free Download]
 
-Last updated at 05/29/2024 10:07
+Last updated at 05/29/2024 10:10
