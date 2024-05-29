@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNG4jNzflyQRzXEV-tk9Cqg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-boys-noize-svndy-hector-oaks-dirty-rave-mix-rawhs1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HiWVLpGBoyOOA7c-xoR9lg-t500x500.jpg">](https://soundcloud.com/saidjpn/taka-said-remix?in=saxurn/sets/tmp/)
 
-**Artist**: HATE 
+**Artist**: SA!D 
 
-**Track**: Premiere: Boys Noize - SVNDY (Hector Oaks Dirty Rave Mix) [RAWHS1]
+**Track**: Ahadadream, Skrillex, Priya Ragu - TAKA (SA!D Remix)
 
-Last updated at 05/29/2024 11:00
+Last updated at 05/29/2024 11:01
