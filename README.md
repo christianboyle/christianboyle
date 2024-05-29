@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYvjLtkK1ul63pyY-cwpjQQ-t500x500.jpg">](https://soundcloud.com/chozenofficial/chozen-i-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpAxdrsqVS2PaH7b-FhDlhA-t500x500.jpg">](https://soundcloud.com/rinsefm/scuffedrecordings270524)
 
-**Artist**: CHOZEN 
+**Artist**: Rinse FM 
 
-**Track**: CHOZEN - I Wanna Dance [Free Download]
+**Track**: Scuffed Recordings - 27 May 2024
 
-Last updated at 05/29/2024 10:10
+Last updated at 05/29/2024 10:16
