@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bB7kHHIFhCGB75Wy-gTVQAg-t500x500.jpg">](https://soundcloud.com/itscopycatt/cruel-like-flint-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55u9NoHiHzZW2QrN-YsLpkA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/dictiondj-sam-dillon-epic-original-mix)
 
-**Artist**: COPYCATT 
+**Artist**: Fatal Energy Records 
 
-**Track**: Cruel Like Flint (COPYCATT Bootleg)
+**Track**: Dictiondj & Sam Dillon - Epic (Original Mix)
 
-Last updated at 05/29/2024 10:18
+Last updated at 05/29/2024 10:19
