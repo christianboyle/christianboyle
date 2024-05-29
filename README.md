@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55u9NoHiHzZW2QrN-YsLpkA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/dictiondj-sam-dillon-epic-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PFdBZqfYYRS0CDKy-3Ai7pA-t500x500.jpg">](https://soundcloud.com/bestdnbremixes/tokyo-drift-teriyaki-boyz-bish-bootleg)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Best Drum & Bass Remixes 
 
-**Track**: Dictiondj & Sam Dillon - Epic (Original Mix)
+**Track**: Tokyo Drift - Teriyaki Boyz (Bish Bootleg)
 
-Last updated at 05/29/2024 10:19
+Last updated at 05/29/2024 10:20
