@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JEsFx9rAzZbpJv2H-3iLx8w-t500x500.jpg">](https://soundcloud.com/dkmntl/dekmantel-podcast-467-nick-leon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fZVBtyJK6UmD-0-t500x500.jpg">](https://soundcloud.com/weareklown/distress-2)
 
-**Artist**: dekmantel 
+**Artist**: KLOWN 
 
-**Track**: Dekmantel Podcast 467 - Nick León
+**Track**: Distress
 
-Last updated at 05/28/2024 09:21
+Last updated at 05/29/2024 10:04
