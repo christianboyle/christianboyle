@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xfqc1WQYhD23sEWr-1y8K0Q-t500x500.jpg">](https://soundcloud.com/basiliskbass/des-mcmahon-slow-burn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bB7kHHIFhCGB75Wy-gTVQAg-t500x500.jpg">](https://soundcloud.com/itscopycatt/cruel-like-flint-bootleg)
 
-**Artist**: Basilisk Bass 
+**Artist**: COPYCATT 
 
-**Track**: Des McMahon - Slow Burn
+**Track**: Cruel Like Flint (COPYCATT Bootleg)
 
-Last updated at 05/29/2024 10:17
+Last updated at 05/29/2024 10:18
