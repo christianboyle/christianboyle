@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTspTKdBspo3-0-t500x500.png">](https://soundcloud.com/thobyofficial/hands-in-the-air)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yc8gD5b17OysAxB3-B4JJfA-t500x500.jpg">](https://soundcloud.com/ezrahazardextra/smart)
 
-**Artist**: THOBY 
+**Artist**: Ezra Hazard Extra 
 
-**Track**: Hands In The Air
+**Track**: LE SSERAFIM - SMART (Ezra Hazard Tech Mix)
 
-Last updated at 05/30/2024 09:38
+Last updated at 05/30/2024 09:43
