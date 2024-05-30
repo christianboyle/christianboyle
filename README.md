@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WN3kWXP1TBk01pjw-wQQz4w-t500x500.jpg">](https://soundcloud.com/zynall/learvolume6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toK09xOztThw7CEa-6CcTrw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/cardi-b-enough-iffound-flip)
 
-**Artist**: zynal 
+**Artist**: if found 
 
-**Track**: LEAR VOL. 6 (GYM EDITION)
+**Track**: Cardi B - Enough (if found Flip)
 
-Last updated at 05/30/2024 08:08
+Last updated at 05/30/2024 08:09
