@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0dLyM95Ie3ms5g5-1CZphA-t500x500.jpg">](https://soundcloud.com/jaronsteele/369-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQHmgKV1LbzSpYC7-Pjh0gQ-t500x500.jpg">](https://soundcloud.com/exnoiz/urban-legend)
 
-**Artist**: jaron 
+**Artist**: exnoiz 
 
-**Track**: 369GOD
+**Track**: Urban legend
 
-Last updated at 05/30/2024 08:26
+Last updated at 05/30/2024 08:27
