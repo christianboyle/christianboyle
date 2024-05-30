@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzlnyNgKzcqoRasy-B9oWLA-t500x500.jpg">](https://soundcloud.com/23oddcats/tscarred)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcBUs1eZbqTG1F9Y-ATaVNQ-t500x500.jpg">](https://soundcloud.com/earth-hz/ryns-wrongwithu?in=rynsmusic/sets/ryns-wrongwithu)
 
-**Artist**: 23 Odd Cats 
+**Artist**: earth Hz 
 
-**Track**: Tscarred
+**Track**: RYNS - Wrongwithu
 
-Last updated at 05/30/2024 09:45
+Last updated at 05/30/2024 09:49
