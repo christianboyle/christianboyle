@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgHj4pRytBXjlkrY-PFnYFg-t500x500.jpg">](https://soundcloud.com/weareclosr/lost-time-vocal-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qKH6G3efH7m3tMhN-vedt1A-t500x500.jpg">](https://soundcloud.com/diicey_music/haze)
 
-**Artist**: closr 
+**Artist**: DI::ICEY 
 
-**Track**: Lost Time (Vocal Mix)
+**Track**: Haze
 
-Last updated at 05/30/2024 08:12
+Last updated at 05/30/2024 08:13
