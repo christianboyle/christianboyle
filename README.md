@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toK09xOztThw7CEa-6CcTrw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/cardi-b-enough-iffound-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0D8rXfX3JkhNaim-5gGrkw-t500x500.jpg">](https://soundcloud.com/yougle/i-want-your-soul-yougle-jayybub-2)
 
-**Artist**: if found 
+**Artist**: Yougle. 
 
-**Track**: Cardi B - Enough (if found Flip)
+**Track**: I Want Your Soul (Yougle. & Jayybub) FREE DOWNLOAD
 
-Last updated at 05/30/2024 09:22
+Last updated at 05/30/2024 09:23
