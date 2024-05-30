@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8aMXc7lnFF76-0-t500x500.png">](https://soundcloud.com/arty_music/arty-favorite-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DJu4Tbu9xzKHzeOL-OS5b8g-t500x500.jpg">](https://soundcloud.com/barongfamily/wiwek-crash-the-party)
 
-**Artist**: ARTY 
+**Artist**: Barong Family 
 
-**Track**: ARTY - Favorite Sound
+**Track**: Wiwek - Crash The Party
 
-Last updated at 05/30/2024 09:09
+Last updated at 05/30/2024 09:19
