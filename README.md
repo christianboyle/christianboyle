@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qKH6G3efH7m3tMhN-vedt1A-t500x500.jpg">](https://soundcloud.com/diicey_music/haze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6TZfsdczvdfZrdt6-oVNyGQ-t500x500.jpg">](https://soundcloud.com/nokae/nokae-x-kora-deity)
 
-**Artist**: DI::ICEY 
+**Artist**: Nokae 
 
-**Track**: Haze
+**Track**: Nokae & KORA - DEITY
 
-Last updated at 05/30/2024 08:13
+Last updated at 05/30/2024 08:14
