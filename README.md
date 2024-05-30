@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55u9NoHiHzZW2QrN-YsLpkA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/dictiondj-ljh-the-rat-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uPZu5BrzDPRhIlBe-aUnmOA-t500x500.jpg">](https://soundcloud.com/bestdubstepremixes/quix-stronger-dynvmic-remix)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Best Dubstep Remixes 
 
-**Track**: Dictiondj & LJH - The Rat (Original Mix)
+**Track**: QUIX - Stronger (DYNVMIC Remix)
 
-Last updated at 05/30/2024 08:03
+Last updated at 05/30/2024 08:04
