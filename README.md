@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toK09xOztThw7CEa-6CcTrw-t500x500.jpg">](https://soundcloud.com/iffoundmusic/cardi-b-enough-iffound-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sisRURhuSnXZ6zZU-1HEhJg-t500x500.jpg">](https://soundcloud.com/puppet/bittersweetsymphony)
 
-**Artist**: if found 
+**Artist**: Puppet 
 
-**Track**: Cardi B - Enough (if found Flip)
+**Track**: Bittersweet Symphony
 
-Last updated at 05/30/2024 08:09
+Last updated at 05/30/2024 08:10
