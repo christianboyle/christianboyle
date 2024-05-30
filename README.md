@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgHj4pRytBXjlkrY-PFnYFg-t500x500.jpg">](https://soundcloud.com/weareclosr/lost-time-vocal-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8AA8YR9kKgizVZoD-3BUXLg-t500x500.jpg">](https://soundcloud.com/skankandbass/gyrofield-harsh-sun)
 
-**Artist**: closr 
+**Artist**: Skankandbass 
 
-**Track**: Lost Time (Vocal Mix)
+**Track**: gyrofield - Harsh Sun
 
-Last updated at 05/30/2024 08:20
+Last updated at 05/30/2024 08:21
