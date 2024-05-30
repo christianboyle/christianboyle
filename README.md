@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vX3QyEzxMV5hG8ti-Gh57Ow-t500x500.jpg">](https://soundcloud.com/ta1lsd0ll/the-most-filler-song-in-the-entire-comp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBhOHdAyzh2KS0da-5yXzyQ-t500x500.jpg">](https://soundcloud.com/casualgabberz/aamourocean-i-did-all-my-1)
 
-**Artist**: ta1lsd0ll 
+**Artist**: CASUAL GABBERZ RECORDS 
 
-**Track**: ta1lsd022
+**Track**: aamourocean - I Did All My Best To Smile
 
-Last updated at 05/30/2024 08:22
+Last updated at 05/30/2024 08:23
