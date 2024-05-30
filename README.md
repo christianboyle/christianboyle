@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5S58gODsRrYbhQU3-uMg72g-t500x500.jpg">](https://soundcloud.com/patrick-lai-969943797/sabai-x-hoang-million-daydreams-patrick-lai-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55u9NoHiHzZW2QrN-YsLpkA-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/dictiondj-ljh-the-rat-original-mix)
 
-**Artist**: Patrick Lai 
+**Artist**: Fatal Energy Records 
 
-**Track**: Sabai X Hoang - Million Daydreams (Patrick Lai Mashup)
+**Track**: Dictiondj & LJH - The Rat (Original Mix)
 
-Last updated at 05/30/2024 08:02
+Last updated at 05/30/2024 08:03
