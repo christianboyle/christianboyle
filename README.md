@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcBUs1eZbqTG1F9Y-ATaVNQ-t500x500.jpg">](https://soundcloud.com/earth-hz/ryns-wrongwithu?in=rynsmusic/sets/ryns-wrongwithu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8o7PQXHv8tJE9qD-Fl2XkQ-t500x500.jpg">](https://soundcloud.com/wongomusic/free-dl-par-t-one-im-so-crazy-wongo-re-rub)
 
-**Artist**: earth Hz 
+**Artist**: Wongo 
 
-**Track**: RYNS - Wrongwithu
+**Track**: Free DL Par-T-One - I'm So Crazy (Wongo Re Rub)
 
-Last updated at 05/30/2024 09:49
+Last updated at 05/30/2024 09:53
