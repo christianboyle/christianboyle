@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGI0O2z5gdmRdg6x-AYyjiA-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/fifty-fifty-cupid-inquisitive-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0dLyM95Ie3ms5g5-1CZphA-t500x500.jpg">](https://soundcloud.com/jaronsteele/369-god)
 
-**Artist**: Inquisitive [Remixes] 2 
+**Artist**: jaron 
 
-**Track**: FIFTY FIFTY - Cupid (Inquisitive Remix)
+**Track**: 369GOD
 
-Last updated at 05/30/2024 08:25
+Last updated at 05/30/2024 08:26
