@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wn0TOpE7BZXt7lYj-rSdG0A-t500x500.jpg">](https://soundcloud.com/bloomintoyou/inside-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GVEBq2h5UcgWzgYW-lCurag-t500x500.jpg">](https://soundcloud.com/snowlightt/outta-my-head-snowlight-nxc)
 
-**Artist**: ❀bloom∗⁎* 
+**Artist**: snowlight 
 
-**Track**: inside my heart❀
+**Track**: outta my head [snowlight nxc]
 
-Last updated at 05/30/2024 08:52
+Last updated at 05/30/2024 08:55
