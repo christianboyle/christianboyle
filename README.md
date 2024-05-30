@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6hT3xgZTb6Q3kcKF-DjIDBA-t500x500.jpg">](https://soundcloud.com/bestdnbremixes/dodge-fuski-phaseone-the-arcturians-mistakes-the-fryks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5S58gODsRrYbhQU3-uMg72g-t500x500.jpg">](https://soundcloud.com/patrick-lai-969943797/sabai-x-hoang-million-daydreams-patrick-lai-mashup)
 
-**Artist**: Best Drum & Bass Remixes 
+**Artist**: Patrick Lai 
 
-**Track**: Dodge & Fuski, PhaseOne & The Arcturians - Mistakes (The Fryks Remix)
+**Track**: Sabai X Hoang - Million Daydreams (Patrick Lai Mashup)
 
-Last updated at 05/30/2024 08:01
+Last updated at 05/30/2024 08:02
