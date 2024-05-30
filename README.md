@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzLI6kw9Po9zR68N-kVEIvQ-t500x500.jpg">](https://soundcloud.com/djbrooklyndj/big-booty-language)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgHj4pRytBXjlkrY-PFnYFg-t500x500.jpg">](https://soundcloud.com/weareclosr/lost-time-vocal-mix)
 
-**Artist**: DJ BROOKLYN DJ 
+**Artist**: closr 
 
-**Track**: BIG BOOTY LANGUAGE
+**Track**: Lost Time (Vocal Mix)
 
-Last updated at 05/30/2024 08:11
+Last updated at 05/30/2024 08:12
