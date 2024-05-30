@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ts9KZ4vFaAg5qjja-vsQn3Q-t500x500.jpg">](https://soundcloud.com/ariaveil/fluxxx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wn0TOpE7BZXt7lYj-rSdG0A-t500x500.jpg">](https://soundcloud.com/bloomintoyou/inside-my-heart)
 
-**Artist**: ARIA VEIL 
+**Artist**: ❀bloom∗⁎* 
 
-**Track**: FLUXxx
+**Track**: inside my heart❀
 
-Last updated at 05/30/2024 08:39
+Last updated at 05/30/2024 08:52
