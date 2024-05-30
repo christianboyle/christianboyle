@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6TZfsdczvdfZrdt6-oVNyGQ-t500x500.jpg">](https://soundcloud.com/nokae/nokae-x-kora-deity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JY4fZyp6uyVw7te-Z9JA9w-t500x500.jpg">](https://soundcloud.com/djmischkonsum/dj-mischkonsum-kushhunterdave-underneath-your-clothes?in=saxurn/sets/tmp/)
 
-**Artist**: Nokae 
+**Artist**: DJ Mischkonsum 
 
-**Track**: Nokae & KORA - DEITY
+**Track**: DJ MISCHKONSUM & KUSHHUNTERDAVE - UNDERNEATH YOUR CLOTHES(FREE DL!!)
 
-Last updated at 05/30/2024 08:14
+Last updated at 05/30/2024 08:15
