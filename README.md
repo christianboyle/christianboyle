@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8o7PQXHv8tJE9qD-Fl2XkQ-t500x500.jpg">](https://soundcloud.com/wongomusic/free-dl-par-t-one-im-so-crazy-wongo-re-rub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wTPySF27aLUBN6oT-dWh7qA-t500x500.jpg">](https://soundcloud.com/pausedpilot/celestial-hierarchy)
 
-**Artist**: Wongo 
+**Artist**: Paused Pilot 
 
-**Track**: Free DL Par-T-One - I'm So Crazy (Wongo Re Rub)
+**Track**: Celestial Hierarchy
 
-Last updated at 05/30/2024 09:53
+Last updated at 05/31/2024 09:36
