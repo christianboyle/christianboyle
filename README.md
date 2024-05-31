@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lt1fC38uVAtflMvs-ZiMllA-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcast-048-might-be-twins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/norest)
 
-**Artist**: Techno Wereld 
+**Artist**: Squired 
 
-**Track**: TW PODCAST 048 - Might Be Twins
+**Track**: NOREST w/ Cerdin
 
-Last updated at 05/31/2024 09:38
+Last updated at 05/31/2024 09:45
