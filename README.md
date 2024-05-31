@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yLnhwfDbeuscdZY-1BxlEw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/pala-chrome-concrete-jungle-feat-the-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ts9KZ4vFaAg5qjja-vsQn3Q-t500x500.jpg">](https://soundcloud.com/ariaveil/fluxxx?in=saxurn/sets/tmp2/)
 
-**Artist**: Quality Goods Records 
+**Artist**: ARIA VEIL 
 
-**Track**: QGR-035S | Pala Chrome - Concrete Jungle feat. The Moon
+**Track**: FLUXxx
 
-Last updated at 05/31/2024 09:48
+Last updated at 05/31/2024 12:48
