@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM7Tkh2bcvonJn2I-FPL7Gw-t500x500.jpg">](https://soundcloud.com/freejimi/free-jimi-i-took-a-pill-in-ibiza-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyI6f6z94uwfabtY-INbeUg-t500x500.jpg">](https://soundcloud.com/subcarbon/mikes-revenge-vision?in=mikesrevenge/sets/refuge-subcarbon)
 
-**Artist**: FREExJIMI 
+**Artist**: SubCarbon Records 
 
-**Track**: FREE JIMI - i took a pill in ibiza
+**Track**: Mikes Revenge - Vision
 
-Last updated at 06/01/2024 09:39
+Last updated at 06/01/2024 09:40
