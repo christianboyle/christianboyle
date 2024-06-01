@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydam4B5TEYuUV2Hl-p3dhcQ-t500x500.jpg">](https://soundcloud.com/djbrettcooper/brett-cooper-over-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zgMF8CYTZMShx2rv-MjgYoA-t500x500.jpg">](https://soundcloud.com/hubzy/running?in=hubzy/sets/cold-air)
 
-**Artist**: Brett Cooper (Scarred DIgital) 
+**Artist**: HUBZY 
 
-**Track**: Brett Cooper - Over Now
+**Track**: running
 
-Last updated at 06/01/2024 09:55
+Last updated at 06/01/2024 09:56
