@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJAOW0OgH3YXpPXP-z4sRkw-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/kuhlosul-empty-promises)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2B4e7mFmfVyMWWGc-y6ex6g-t500x500.jpg">](https://soundcloud.com/laylabenitez/01-no-place-to-go-original-mix)
 
-**Artist**: High Caliber Records 
+**Artist**: Layla Benitez 
 
-**Track**: Kuhlosul - Empty Promises
+**Track**: No Place To Go (Original Mix) - Layla Benitez, Eynka
 
-Last updated at 06/01/2024 09:35
+Last updated at 06/01/2024 09:36
