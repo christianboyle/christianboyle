@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qdZOQuqkON0YwuCo-Y64Yyw-t500x500.jpg">](https://soundcloud.com/alterslashego/2nite?in=acyanmusic/sets/2nite-w-ovrladn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FoqgW246bOICaoJg-WnzCcA-t500x500.jpg">](https://soundcloud.com/voartyx-music/pressure)
 
-**Artist**: Alter/Ego 
+**Artist**: Voartyx 
 
-**Track**: Acyan & OVRLADN - 2NITE
+**Track**: Pressure
 
-Last updated at 06/01/2024 09:52
+Last updated at 06/01/2024 09:54
