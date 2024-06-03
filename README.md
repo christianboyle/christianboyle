@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yaPx1ouikOQveXQ7-caRYzQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/d-railed-energy-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mHOFHUY5OPtR2CBh-BdByWg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/poison)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Hybrid Trap 🔥 
 
-**Track**: D-Railed - Energy (Original Mix)
+**Track**: The Big Wig - Poison
 
-Last updated at 06/03/2024 08:05
+Last updated at 06/03/2024 08:06
