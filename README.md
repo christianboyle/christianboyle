@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3kmgk2aGeA4-0-t500x500.png">](https://soundcloud.com/vegyn/in-the-front-feat-john-glacier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBEPKOkhXwzYcoGk-lttsFQ-t500x500.jpg">](https://soundcloud.com/zovahofficial/like-a-dream)
 
-**Artist**: Vegyn 
+**Artist**: Zovah 
 
-**Track**: In the Front (feat. John Glacier)
+**Track**: LIKE A DREAM
 
-Last updated at 06/03/2024 08:00
+Last updated at 06/03/2024 08:01
