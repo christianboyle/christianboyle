@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6d35Wb4tjMF9Mbk1-z4lIFg-t500x500.jpg">](https://soundcloud.com/hybridtrapmusic/spitfist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyXz2ROhaFszEnaf-IPmhpQ-t500x500.jpg">](https://soundcloud.com/user-318466967/alvi-l-a-good-day-deep-tribal-house-mix-v1)
 
-**Artist**: Hybrid Trap 🔥 
+**Artist**: Alvi L 
 
-**Track**: INTERLINK x Malefik - System Failure (SPITFIST Remix)
+**Track**: just a Good Day (Deep Tribal House Mix) V3
 
-Last updated at 06/04/2024 07:35
+Last updated at 06/04/2024 07:36
