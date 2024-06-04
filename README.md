@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYhfFrj9fJGH4WiY-7j9WUA-t500x500.jpg">](https://soundcloud.com/darn84/dj-magical-rush-hour-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xl4ejjRV8UPloc7i-PXIf6g-t500x500.jpg">](https://soundcloud.com/dem2music/akon-right-now-dem2-edit)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: DEM2 
 
-**Track**: DJ Magical - Rush Hour - Remix Records (1996)
+**Track**: Akon - Right Now (DEM2 Edit)
 
-Last updated at 06/04/2024 07:55
+Last updated at 06/04/2024 07:57
