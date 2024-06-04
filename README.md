@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-2zIl0sqAQWMn2aRf-yPZBtA-t500x500.jpg">](https://soundcloud.com/snarewaves/down-w-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTWyzcRt778FzKdw-RZN68w-t500x500.jpg">](https://soundcloud.com/canotodubz/for-us-1)
 
-**Artist**: snarewaves 
+**Artist**: CANOTO 
 
-**Track**: down w u
+**Track**: For Us
 
-Last updated at 06/04/2024 07:52
+Last updated at 06/04/2024 07:53
