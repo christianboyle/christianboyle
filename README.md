@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyXz2ROhaFszEnaf-IPmhpQ-t500x500.jpg">](https://soundcloud.com/user-318466967/alvi-l-a-good-day-deep-tribal-house-mix-v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgNyBmgWI0QkqkJR-vFuqLw-t500x500.jpg">](https://soundcloud.com/thelotradio/totally-enormous-extinct-dinosaurs-the-lot-radio-06-01-2024)
 
-**Artist**: Alvi L 
+**Artist**: The Lot Radio 
 
-**Track**: just a Good Day (Deep Tribal House Mix) V3
+**Track**: Totally Enormous Extinct Dinosaurs @ The Lot Radio 06-01-2024
 
-Last updated at 06/04/2024 07:36
+Last updated at 06/04/2024 07:37
