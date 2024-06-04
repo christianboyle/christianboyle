@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgNyBmgWI0QkqkJR-vFuqLw-t500x500.jpg">](https://soundcloud.com/thelotradio/totally-enormous-extinct-dinosaurs-the-lot-radio-06-01-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-efUQHfm0tvvx-0-t500x500.png">](https://soundcloud.com/rustie/black-ice-mudra)
 
-**Artist**: The Lot Radio 
+**Artist**: Rustie 
 
-**Track**: Totally Enormous Extinct Dinosaurs @ The Lot Radio 06-01-2024
+**Track**: Black Ice Mudra
 
-Last updated at 06/04/2024 07:37
+Last updated at 06/04/2024 07:40
