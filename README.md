@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxftMr7m5tPHmBtU-hC8I3A-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-trust-true-bond-with-button-dir027)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM7Tkh2bcvonJn2I-FPL7Gw-t500x500.jpg">](https://soundcloud.com/freejimi/free-jimi-i-took-a-pill-in-ibiza-1)
 
-**Artist**: Techno Wereld 
+**Artist**: FREExJIMI 
 
-**Track**: Premiere: Trust True - Bond With Button [DIR027]
+**Track**: FREE JIMI - i took a pill in ibiza
 
-Last updated at 06/05/2024 10:38
+Last updated at 06/05/2024 10:39
