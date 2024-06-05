@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAvBNKagdDPUbvxz-YNhmzg-t500x500.jpg">](https://soundcloud.com/razzix/brennan-heart-trevor-guthrie-lose-you-tonight-razzix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/norest)
 
-**Artist**: Razzix 
+**Artist**: Squired 
 
-**Track**: Brennan Heart & Trevor Guthrie - Lose You Tonight (Razzix Remix)
+**Track**: NOREST w/ Cerdin
 
-Last updated at 06/05/2024 10:42
+Last updated at 06/05/2024 10:45
