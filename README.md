@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM7Tkh2bcvonJn2I-FPL7Gw-t500x500.jpg">](https://soundcloud.com/freejimi/free-jimi-i-took-a-pill-in-ibiza-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nAvBNKagdDPUbvxz-YNhmzg-t500x500.jpg">](https://soundcloud.com/razzix/brennan-heart-trevor-guthrie-lose-you-tonight-razzix-remix)
 
-**Artist**: FREExJIMI 
+**Artist**: Razzix 
 
-**Track**: FREE JIMI - i took a pill in ibiza
+**Track**: Brennan Heart & Trevor Guthrie - Lose You Tonight (Razzix Remix)
 
-Last updated at 06/05/2024 10:39
+Last updated at 06/05/2024 10:42
