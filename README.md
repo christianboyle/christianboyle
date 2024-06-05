@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B3kZZYQhE7DisOQJ-qaTRVQ-t500x500.jpg">](https://soundcloud.com/concinnitycollective/mixikins-no-light-no-spark)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgHj4pRytBXjlkrY-PFnYFg-t500x500.jpg">](https://soundcloud.com/weareclosr/lost-time-vocal-mix)
 
-**Artist**: Concinnity 
+**Artist**: closr 
 
-**Track**: |MIXIKINS| - No Light No Spark
+**Track**: Lost Time (Vocal Mix)
 
-Last updated at 06/05/2024 10:50
+Last updated at 06/05/2024 10:52
