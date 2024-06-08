@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YfSpcAET4blvEt94-cySYWg-t500x500.jpg">](https://soundcloud.com/thebirdhouserecords/mrvlz-nico-crespo-all-around-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcXstyJWnEwBcElL-t55Kww-t500x500.jpg">](https://soundcloud.com/unitkai/i-like-you-i-love-you)
 
-**Artist**: The Birdhouse Records 
+**Artist**: UNIT KAI 
 
-**Track**: MRVLZ, Nico Crespo - All Around Me
+**Track**: すすすす、すき、だあいすき (tjweaver & UNIT KAI cover)
 
-Last updated at 06/08/2024 10:07
+Last updated at 06/08/2024 10:08
