@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j2yc3yMoI97F8Qu4-WbCQGw-t500x500.jpg">](https://soundcloud.com/travelermusic/haddaway-what-is-love-traveler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dpc5uJI8tpQESiMY-mHGB8Q-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/i-had-some-help-paul-gannon-bootleg-free-download)
 
-**Artist**: Traveler 
+**Artist**: Paul Gannon 
 
-**Track**: Haddaway - What Is Love (Traveler Remix)
+**Track**: I Had Some Help (Paul Gannon Bootleg) [Free Download]
 
-Last updated at 06/08/2024 10:03
+Last updated at 06/08/2024 10:04
