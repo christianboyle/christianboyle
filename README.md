@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000601624915-1dkmrc-t500x500.jpg">](https://soundcloud.com/lil-soda-boi/mixing-medications)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-fhGcrgTCtqesIQMS-KRSszA-t500x500.jpg">](https://soundcloud.com/djsmth/american-dreamer)
 
-**Artist**: lil soda boi 
+**Artist**: dj something 
 
-**Track**: mixing medications ft. lil yu [prod. lil soda boi]
+**Track**: american dreamer
 
-Last updated at 06/08/2024 10:09
+Last updated at 06/08/2024 10:10
