@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dpc5uJI8tpQESiMY-mHGB8Q-t500x500.jpg">](https://soundcloud.com/paul-gannon-2nd-account/i-had-some-help-paul-gannon-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTdxyyF1lhR9mb06-vIYzLQ-t500x500.jpg">](https://soundcloud.com/yerbownik/surrender-yerbby-remix)
 
-**Artist**: Paul Gannon 
+**Artist**: yerbby 
 
-**Track**: I Had Some Help (Paul Gannon Bootleg) [Free Download]
+**Track**: surrender (yerbby remix)
 
-Last updated at 06/08/2024 10:04
+Last updated at 06/08/2024 10:05
