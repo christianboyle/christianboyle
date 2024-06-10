@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hfMYFTG0TswIqkdf-hA0aQA-t500x500.jpg">](https://soundcloud.com/darn84/slipmatt-universe-tribal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gh3YEMNpA4v0-0-t500x500.jpg">](https://soundcloud.com/charlixcx/hello-goodbye)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: charlixcx 
 
-**Track**: Slipmatt @ Universe - Tribal Gathering (30/04/1993)
+**Track**: Hello goodbye
 
-Last updated at 06/10/2024 08:25
+Last updated at 06/10/2024 08:26
