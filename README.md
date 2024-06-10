@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4t9hjX0o3tw-0-t500x500.jpg">](https://soundcloud.com/charlixcx/spring-breakers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRnZ73ZScw939hIj-201uyg-t500x500.jpg">](https://soundcloud.com/dnzrecords/the-bounce-brothers-blue-roses)
 
-**Artist**: charlixcx 
+**Artist**: DNZ Records 
 
-**Track**: Spring breakers
+**Track**: The Bounce Brothers - Blue Roses
 
-Last updated at 06/10/2024 10:06
+Last updated at 06/10/2024 10:08
