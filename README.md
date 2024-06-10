@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7VAIUz1fyEl1QFIz-yyHTEA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-endlec-existence-rm11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70LLOSENBmxGLzSu-8TT9Qw-t500x500.jpg">](https://soundcloud.com/contagious-records/riko-james-k-alone)
 
-**Artist**: HATE 
+**Artist**: CONTAGIOUS RECORDS 
 
-**Track**: Premiere: Endlec - Existence [RM11]
+**Track**: [CR261] Riko & James K - Alone (OUT NOW)
 
-Last updated at 06/08/2024 10:11
+Last updated at 06/10/2024 08:19
