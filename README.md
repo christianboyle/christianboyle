@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A10eMIJM6jU3DAUl-SKJeCQ-t500x500.jpg">](https://soundcloud.com/goodsociety/rsun-been-about?in=goodsociety/sets/good-society-volume-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vGVWWhA2vmJGy5jw-758lVA-t500x500.jpg">](https://soundcloud.com/dylanskyler/fire-desire-lil-live-remix)
 
-**Artist**: Good Society 
+**Artist**: LiL LIVE 
 
-**Track**: rSUN - Been About
+**Track**: Fire & Desire (LiL LIVE Remix) @skylerislive
 
-Last updated at 06/10/2024 08:21
+Last updated at 06/10/2024 08:22
