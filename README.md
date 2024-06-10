@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qt6SoOvRwxoecHxN-ywQBgw-t500x500.jpg">](https://soundcloud.com/jojo_wubz/rich-boy-throw-some-ds-jojo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLSU4fGIAixRMWAb-x5aYtg-t500x500.jpg">](https://soundcloud.com/txrecords/premiere-rockstar-post-malone-x-21-savage-grym-hard-edit)
 
-**Artist**: JOJO 
+**Artist**: Tx Records 
 
-**Track**: Rich boy - THROW SOME DS (JOJO FLIP)
+**Track**: PREMIERE: Rockstar - Post Malone X 21 Savage (GRYM Hard Edit)
 
-Last updated at 06/10/2024 10:15
+Last updated at 06/10/2024 10:17
