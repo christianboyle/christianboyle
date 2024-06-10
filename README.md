@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ecZaTAklkeR84pAu-O4so3A-t500x500.jpg">](https://soundcloud.com/rawsomerecords/dr-greco-drip-dj-wifi-remix-rr003r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geK2EgtxXZhXKSvu-mRkhVQ-t500x500.jpg">](https://soundcloud.com/sandsconnection/recon-demand-ft-mandy-edge-am-sorry-gaz-summers-remix)
 
-**Artist**: Rawsome Recordings 
+**Artist**: S And S Connection (uk hardcore dj/producer) 
 
-**Track**: DR. GRECO - DRIP (DJ WIFI Remix) [RR003R]
+**Track**: Recon & Demand Ft Mandy Edge - Am Sorry (Gaz Summers Remix)
 
-Last updated at 06/10/2024 10:20
+Last updated at 06/10/2024 10:25
