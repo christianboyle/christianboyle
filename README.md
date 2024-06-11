@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1lMlEDMwAD1rzLLu-1vwGLg-t500x500.jpg">](https://soundcloud.com/tabularasarecords/gaszia-gene-gmgy-tenshi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooRm9JB7Xiux7zBL-3bf9Qg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/leeh-only-you-vocal-mix)
 
-**Artist**: Tabula Rasa Records 
+**Artist**: Fatal Energy Records 
 
-**Track**: Gaszia, Gene GMGY, Tenshi - Dogmath
+**Track**: LeeH - Only You (Vocal Mix)
 
-Last updated at 06/11/2024 09:42
+Last updated at 06/11/2024 09:43
