@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4t9hjX0o3tw-0-t500x500.jpg">](https://soundcloud.com/charlixcx/spring-breakers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c0xl6soBKUFTOODh-ipHEHw-t500x500.jpg">](https://soundcloud.com/emphermusic/empher-lalzin-easy-to-love-radio-edit-1)
 
-**Artist**: charlixcx 
+**Artist**: EMPHER 
 
-**Track**: Spring breakers
+**Track**: Empher & Lalzin - Easy To Love (Radio Edit)
 
-Last updated at 06/10/2024 10:38
+Last updated at 06/11/2024 09:33
