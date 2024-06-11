@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62X1nlA0N1D3zTmY-oBl97Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/adame-times-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rvzFQy8TrhJwgTdG-npUi8w-t500x500.jpg">](https://soundcloud.com/soavedusk/mare-los-padres-opa)
 
-**Artist**: Sweet Sounds Collective 
+**Artist**: Dusk 
 
-**Track**: ADAME - Time's Up
+**Track**: MARE & Los Padres - OPA!
 
-Last updated at 06/11/2024 09:39
+Last updated at 06/11/2024 09:40
