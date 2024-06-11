@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ytsp8tOHbXVDKDbX-Inz0cg-t500x500.jpg">](https://soundcloud.com/syence/syence-juuku-take-me-to-the-stars-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKALaUUPHTvNe9RU-qXVSOQ-t500x500.jpg">](https://soundcloud.com/dj-ray-hislop/uutg-100624-djs-factory-live)
 
-**Artist**: syence 
+**Artist**: R4Y V - The Bounce Brothers 
 
-**Track**: syence, juuku - take me to the stars
+**Track**: UUTG 09.06.24 Djs Factory Live
 
-Last updated at 06/11/2024 09:45
+Last updated at 06/11/2024 09:46
