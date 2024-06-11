@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z9dLXZbtxbCdrJSy-eNfAzw-t500x500.jpg">](https://soundcloud.com/wearestudio/bastard-sp-401k-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62X1nlA0N1D3zTmY-oBl97Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/adame-times-up)
 
-**Artist**: STUDIO 
+**Artist**: Sweet Sounds Collective 
 
-**Track**: BASTARD - SP-401k [Premiere]
+**Track**: ADAME - Time's Up
 
-Last updated at 06/11/2024 09:38
+Last updated at 06/11/2024 09:39
