@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rvzFQy8TrhJwgTdG-npUi8w-t500x500.jpg">](https://soundcloud.com/soavedusk/mare-los-padres-opa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KYM5xufDgkG8MqNj-5MAkYQ-t500x500.jpg">](https://soundcloud.com/lammermusic/wft)
 
-**Artist**: Dusk 
+**Artist**: LAMMER 
 
-**Track**: MARE & Los Padres - OPA!
+**Track**: LAMMER - Waiting For Tonight (Euro Trance Mix)
 
-Last updated at 06/11/2024 09:40
+Last updated at 06/11/2024 09:41
