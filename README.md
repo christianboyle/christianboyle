@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtvOSzQx0RiKz0tf-fIgBzw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-sonik-straight-from-the-underground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJPmT4kCPhyx7H6u-WBPKwA-t500x500.jpg">](https://soundcloud.com/ruxxi/nonstop)
 
-**Artist**: Dirty Workz 
+**Artist**: Ruxxi 
 
-**Track**: Sub Sonik - Straight From The Underground
+**Track**: Nonstop
 
-Last updated at 06/12/2024 07:36
+Last updated at 06/12/2024 08:56
