@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UPUdZNUtNjU9Q2aq-cAj4tw-t500x500.jpg">](https://soundcloud.com/julien000000000/u-make-me-feel-good-cz-remix-final-master-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqHYs4yNROQxmJJl-wEcNHA-t500x500.jpg">](https://soundcloud.com/wubaholics/rankz-hold-my-breath-1)
 
-**Artist**: Julien Andreas 
+**Artist**: Wubaholics 
 
-**Track**: U Make Me Feel Good C.Z. Remix
+**Track**: RANKZ - Hold My Breath
 
-Last updated at 06/12/2024 07:34
+Last updated at 06/12/2024 07:35
