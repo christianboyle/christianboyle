@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqHYs4yNROQxmJJl-wEcNHA-t500x500.jpg">](https://soundcloud.com/wubaholics/rankz-hold-my-breath-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtvOSzQx0RiKz0tf-fIgBzw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-sonik-straight-from-the-underground)
 
-**Artist**: Wubaholics 
+**Artist**: Dirty Workz 
 
-**Track**: RANKZ - Hold My Breath
+**Track**: Sub Sonik - Straight From The Underground
 
-Last updated at 06/12/2024 07:35
+Last updated at 06/12/2024 07:36
