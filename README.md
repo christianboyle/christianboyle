@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-clSjTfQnb7RAHmie-lavoHA-t500x500.jpg">](https://soundcloud.com/kid_jvz/kid-jvz-dont-miss-unreleased)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDWZFXQmW1VQsCOl-cERD9A-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cyndi-burn-it-up-dwx-copyright-free)
 
-**Artist**: KID JVZ 🐉 
+**Artist**: Dirty Workz 
 
-**Track**: KID JVZ - DON’T MISS (1K EP)
+**Track**: Cyndi - Burn It Up (DWX Copyright Free)
 
-Last updated at 06/14/2024 20:08
+Last updated at 06/14/2024 20:09
