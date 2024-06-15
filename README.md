@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CN4H2R7QB6Fsqg9U-ymWAoQ-t500x500.jpg">](https://soundcloud.com/bernzikial/front-to-back-bernzikial-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fgL7QgSmmxSONne1-9bL0wA-t500x500.jpg">](https://soundcloud.com/thiccfreqness/uknew-can-you-feel-it-original-mix)
 
-**Artist**: BERNZIKIAL 🧬 
+**Artist**: Thiccfreqness 
 
-**Track**: Levity - Front to Back (BERNZIKIAL Remix)
+**Track**: Uknew - Can You Feel It (Original Mix)
 
-Last updated at 06/14/2024 20:14
+Last updated at 06/14/2024 20:16
