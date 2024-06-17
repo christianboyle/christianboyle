@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtnKQB39AQwRmzU6-ZFnYew-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/happy-hardcore-mental-health-2022-dj-ste-major-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ynqeNcUrLeyFyOz-uzabDg-t500x500.jpg">](https://soundcloud.com/satoshijpn/dimitri-vegas-like-mike-the-hum-satoshi-2024-remix-1)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: SATOSHI 
 
-**Track**: HAPPY HARDCORE MENTAL HEALTH 2022 DJ STE MAJOR MIX
+**Track**: Dimitri Vegas & Like Mike - The Hum (SATOSHI 2024 Remix)
 
-Last updated at 06/17/2024 09:54
+Last updated at 06/17/2024 13:39
