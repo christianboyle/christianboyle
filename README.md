@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fgL7QgSmmxSONne1-9bL0wA-t500x500.jpg">](https://soundcloud.com/thiccfreqness/uknew-can-you-feel-it-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfBcFU0zNH9yuz6J-kSL7PQ-t500x500.jpg">](https://soundcloud.com/djcakebaby/im-all-in)
 
-**Artist**: Thiccfreqness 
+**Artist**: Cakebaby 
 
-**Track**: Uknew - Can You Feel It (Original Mix)
+**Track**: I'M ALL IN [FREE DL]
 
-Last updated at 06/14/2024 20:16
+Last updated at 06/17/2024 09:41
