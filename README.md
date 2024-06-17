@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yp0dd96FmFZA-0-t500x500.png">](https://soundcloud.com/tweekacore-music/down-with-the-e-tatsunoshin?in=hard-playlists/sets/hard-rave-2024-by-bonkers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e61VIsOQNx7z9yNF-8XsHIw-t500x500.jpg">](https://soundcloud.com/beaconftp/bensley-justin-hawkes-kumarion)
 
-**Artist**: Tweekacore 
+**Artist**: BEACON 
 
-**Track**: Down With The E (Tatsunoshin Remix)
+**Track**: Bensley, Justin Hawkes, & Kumarion - Sell My Soul
 
-Last updated at 06/17/2024 09:48
+Last updated at 06/17/2024 09:49
