@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e61VIsOQNx7z9yNF-8XsHIw-t500x500.jpg">](https://soundcloud.com/beaconftp/bensley-justin-hawkes-kumarion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-otAFIus1ZT04bOIT-VrvEPA-t500x500.jpg">](https://soundcloud.com/whosbaclash/what-so-not-divide-conquer-baclash-flashbac)
 
-**Artist**: BEACON 
+**Artist**: BACLASH 
 
-**Track**: Bensley, Justin Hawkes, & Kumarion - Sell My Soul
+**Track**: What So Not -  Divide & Conquer  [Flashbac]
 
-Last updated at 06/17/2024 09:49
+Last updated at 06/17/2024 09:50
