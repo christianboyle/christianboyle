@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2y1atA7nukz1G7We-GCxKyA-t500x500.jpg">](https://soundcloud.com/nickhavsen/argy-omnya-aria-nick-havsen-mainstage-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6PQQ5Cr3xgrIj1L4-NUjfog-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-gallo-meltx-intuition-scva002)
 
-**Artist**: Nick Havsen 
+**Artist**: Techno Wereld 
 
-**Track**: Argy & Omnya - Aria (Nick Havsen Mainstage Edit)
+**Track**: Premiere: Gallø & MeltX - Intuition [SCVA002]
 
-Last updated at 06/19/2024 13:11
+Last updated at 06/19/2024 13:12
