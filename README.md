@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zht9hratcfdEUywo-73HUNg-t500x500.jpg">](https://soundcloud.com/nettspend/nothing-like-uuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8a2De94FV9Uz2ey-PFrNjQ-t500x500.jpg">](https://soundcloud.com/dmoneydidthat/dmoney-raxkies)
 
-**Artist**: Nettspend 
+**Artist**: DMONEY X FILES 
 
-**Track**: nothing like uuu
+**Track**: Dmoney - Raxkies (Prod. Sebxtc)
 
-Last updated at 06/19/2024 13:15
+Last updated at 06/19/2024 13:16
