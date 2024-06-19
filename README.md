@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfBcFU0zNH9yuz6J-kSL7PQ-t500x500.jpg">](https://soundcloud.com/djcakebaby/im-all-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrkuvEkx4DxxhacQ-QLZFNw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/local-selection-241-calum-connell)
 
-**Artist**: Cakebaby 
+**Artist**: Four Four Magazine 
 
-**Track**: I'M ALL IN [FREE DL]
+**Track**: Local Selection 241: Calum Connell
 
-Last updated at 06/19/2024 13:13
+Last updated at 06/19/2024 13:14
