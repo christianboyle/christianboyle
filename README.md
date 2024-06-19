@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8a2De94FV9Uz2ey-PFrNjQ-t500x500.jpg">](https://soundcloud.com/dmoneydidthat/dmoney-raxkies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AS5LwIxFKyjyFyb4-s2zo3w-t500x500.jpg">](https://soundcloud.com/axdreth/bruno-mars-talking-to-the-moon-axdreth-euro-techno-mix)
 
-**Artist**: DMONEY X FILES 
+**Artist**: Axdreth 
 
-**Track**: Dmoney - Raxkies (Prod. Sebxtc)
+**Track**: Bruno Mars - Talking To The Moon (Axdreth Euro Techno Mix)
 
-Last updated at 06/19/2024 13:16
+Last updated at 06/19/2024 15:40
