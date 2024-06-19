@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrkuvEkx4DxxhacQ-QLZFNw-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/local-selection-241-calum-connell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zht9hratcfdEUywo-73HUNg-t500x500.jpg">](https://soundcloud.com/nettspend/nothing-like-uuu)
 
-**Artist**: Four Four Magazine 
+**Artist**: Nettspend 
 
-**Track**: Local Selection 241: Calum Connell
+**Track**: nothing like uuu
 
-Last updated at 06/19/2024 13:14
+Last updated at 06/19/2024 13:15
