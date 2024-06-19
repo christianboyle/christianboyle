@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fcNVA83Lbpd7-0-t500x500.jpg">](https://soundcloud.com/djprinsh/never-say-never?in=lowbrmafia/sets/prinsh-project-gemini-never)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IF7aEUMz05Etjh0h-WKM2ng-t500x500.jpg">](https://soundcloud.com/wubaholics/yewz-unstoppable)
 
-**Artist**: PRINSH 
+**Artist**: Wubaholics 
 
-**Track**: Never Say Never
+**Track**: Yewz - Unstoppable
 
-Last updated at 06/19/2024 13:07
+Last updated at 06/19/2024 13:08
