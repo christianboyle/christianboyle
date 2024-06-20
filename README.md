@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2txF840UvcOfgmf-pbpY0Q-t500x500.jpg">](https://soundcloud.com/2facemp3/2face-friends-edit-pack-t-mo-edition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TriOR4y5mXZ59YRA-CnZpbQ-t500x500.jpg">](https://soundcloud.com/franksburner/warp)
 
-**Artist**: 2FACE 
+**Artist**: Frank Williams Burner 
 
-**Track**: 2FACE + Friends Edit Pack: T-MO Edition - #1 HYPEDDIT
+**Track**: Steve Aoki, Westend & Cherry Tooth X Diplo & SIDEPIECE - Warp 1.9 On My Mind (Frank Williams Edit)
 
-Last updated at 06/20/2024 08:47
+Last updated at 06/20/2024 08:51
