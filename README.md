@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgAmKaKe6sYnBvzg-KloAdQ-t500x500.jpg">](https://soundcloud.com/user-229206177/kanye-west-love-lockdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2txF840UvcOfgmf-pbpY0Q-t500x500.jpg">](https://soundcloud.com/2facemp3/2face-friends-edit-pack-t-mo-edition)
 
-**Artist**: Seeing Double 
+**Artist**: 2FACE 
 
-**Track**: Kanye West - Love Lockdown (Seeing Double edit)
+**Track**: 2FACE + Friends Edit Pack: T-MO Edition - #1 HYPEDDIT
 
-Last updated at 06/20/2024 08:45
+Last updated at 06/20/2024 08:47
