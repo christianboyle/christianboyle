@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AS5LwIxFKyjyFyb4-s2zo3w-t500x500.jpg">](https://soundcloud.com/axdreth/bruno-mars-talking-to-the-moon-axdreth-euro-techno-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Wkzx5KUw1MhrrOq-PBAhtw-t500x500.jpg">](https://soundcloud.com/wearefreaksrecords/justin-fahrmer-need-your-groove-original-mix)
 
-**Artist**: Axdreth 
+**Artist**: We Are Freaks 
 
-**Track**: Bruno Mars - Talking To The Moon (Axdreth Euro Techno Mix)
+**Track**: Justin Fahrmer - Need Your Groove (Original Mix)
 
-Last updated at 06/19/2024 15:40
+Last updated at 06/20/2024 08:39
