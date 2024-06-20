@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F2Oa8AzGS0ZxIOGF-FkW9yA-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-481)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWqkAv7PeCjdNVcI-FZCbTA-t500x500.jpg">](https://soundcloud.com/wakaan/ravenscoon-boundary-vip?in=wakaan/sets/ravenscoon-periphery-remix-lp)
 
-**Artist**: Dj EZC 
+**Artist**: Wakaan 
 
-**Track**: Hardcore Will Never Die Episode 481
+**Track**: Ravenscoon - Boundary [VIP]
 
-Last updated at 06/20/2024 09:25
+Last updated at 06/20/2024 09:26
