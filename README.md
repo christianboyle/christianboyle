@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyNJmTcEaby6sXD3-cSTziw-t500x500.jpg">](https://soundcloud.com/scantraxx/nightcraft-dvastate-so-alive-radio-mix-master270524)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgAmKaKe6sYnBvzg-KloAdQ-t500x500.jpg">](https://soundcloud.com/user-229206177/kanye-west-love-lockdown)
 
-**Artist**: SCANTRAXX 
+**Artist**: Seeing Double 
 
-**Track**: Nightcraft & Dvastate - So Alive
+**Track**: Kanye West - Love Lockdown (Seeing Double edit)
 
-Last updated at 06/20/2024 08:44
+Last updated at 06/20/2024 08:45
