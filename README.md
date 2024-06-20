@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mz1oAwbsR6b7oF4f-v7aNOA-t500x500.jpg">](https://soundcloud.com/speedworldrecs/n20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbJP3KPhzhxyyOdy-PQOmDA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/audiofreq-i-need-u-audiophetamine)
 
-**Artist**: SPEED WORLD RECS 
+**Artist**: Dirty Workz 
 
-**Track**: Kaku & Woof Logik - N2O
+**Track**: Audiofreq - I NEED U (Audiophetamine)
 
-Last updated at 06/20/2024 08:41
+Last updated at 06/20/2024 08:43
