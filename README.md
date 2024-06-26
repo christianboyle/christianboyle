@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rwKzBMIiXhQoAlA-Mv9mIQ-t500x500.jpg">](https://soundcloud.com/amrk1805/dj-bobo-let-the-dream-come-true-amrk-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62X1nlA0N1D3zTmY-oBl97Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/adame-times-up)
 
-**Artist**: AMRK 
+**Artist**: Sweet Sounds Collective 
 
-**Track**: DJ Bobo - Let The Dream Come True (AMRK Edit) [FREE DL]
+**Track**: ADAME - Time's Up
 
-Last updated at 06/26/2024 17:40
+Last updated at 06/26/2024 17:42
