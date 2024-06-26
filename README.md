@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JBU6AFL1BJ0wZqS-Izjamg-t500x500.jpg">](https://soundcloud.com/iamwuki/reading-rainbow-on-lsd-wukileak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sJIbHWPxJtoq0Ynk-4mqyCQ-t500x500.jpg">](https://soundcloud.com/technogermany/premiere-noise-mafia-jor-everything-done-tx047)
 
-**Artist**: wuki 
+**Artist**: Techno Germany 
 
-**Track**: Reading Rainbow On LSD [Wukileak]
+**Track**: Premiere: Noise Mafia & JØR - Everything Done [TX047]
 
-Last updated at 06/26/2024 17:50
+Last updated at 06/26/2024 18:05
