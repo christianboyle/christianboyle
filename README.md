@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pc5XpILD1sS7-0-t500x500.jpg">](https://soundcloud.com/1991_music/1991-mugatu-rova-cyclone-rova)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2JBU6AFL1BJ0wZqS-Izjamg-t500x500.jpg">](https://soundcloud.com/iamwuki/reading-rainbow-on-lsd-wukileak)
 
-**Artist**: 1991 
+**Artist**: wuki 
 
-**Track**: 1991, Mugatu, Rova - Cyclone (Rova Remix)
+**Track**: Reading Rainbow On LSD [Wukileak]
 
-Last updated at 06/26/2024 17:48
+Last updated at 06/26/2024 17:50
