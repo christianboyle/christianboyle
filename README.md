@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fbjf19IA5fueGSYL-xvoiOg-t500x500.jpg">](https://soundcloud.com/clubwrk/faustix-all-my-friends-are-hot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pc5XpILD1sS7-0-t500x500.jpg">](https://soundcloud.com/1991_music/1991-mugatu-rova-cyclone-rova)
 
-**Artist**: CLUBWRK 
+**Artist**: 1991 
 
-**Track**: Faustix - All My Friends Are Hot
+**Track**: 1991, Mugatu, Rova - Cyclone (Rova Remix)
 
-Last updated at 06/26/2024 17:47
+Last updated at 06/26/2024 17:48
