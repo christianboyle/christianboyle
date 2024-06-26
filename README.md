@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e2DHuQpItwKkDtGX-KyKPWg-t500x500.jpg">](https://soundcloud.com/sorry-records/sr58-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fbjf19IA5fueGSYL-xvoiOg-t500x500.jpg">](https://soundcloud.com/clubwrk/faustix-all-my-friends-are-hot)
 
-**Artist**: Sorry Records 
+**Artist**: CLUBWRK 
 
-**Track**: Seimei - Freaks Come Out
+**Track**: Faustix - All My Friends Are Hot
 
-Last updated at 06/26/2024 17:46
+Last updated at 06/26/2024 17:47
