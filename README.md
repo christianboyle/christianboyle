@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bfDirblBQzFhbMkB-SGvkkw-t500x500.jpg">](https://soundcloud.com/isladen/longestnight-airynore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BX8WlGLmvDSWhCdy-ag1CZA-t500x500.jpg">](https://soundcloud.com/phrva/lunch)
 
-**Artist**: Isla Den 
+**Artist**: Phrva 
 
-**Track**: After The Longest Night – Airynore outro
+**Track**: Billie Eilish - LUNCH (Phrva Flip)
 
-Last updated at 06/26/2024 17:37
+Last updated at 06/26/2024 17:38
