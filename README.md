@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xdHeEyKNFeISaW49-4KIGMg-t500x500.jpg">](https://soundcloud.com/kneptunes/kneptunes-the-record)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mArgMHRFSnud8tx-GSQJnA-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/seaofvoices)
 
-**Artist**: kneptunes 
+**Artist**: Reheated By Tuna Melt 
 
-**Track**: kneptunes - The Record
+**Track**: Porter Robinson - Sea Of Voices (Tuna Melt Remix)
 
-Last updated at 06/28/2024 11:15
+Last updated at 06/28/2024 11:17
