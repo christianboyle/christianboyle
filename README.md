@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvQyQBnVJqAVy4Eo-vlLqkA-t500x500.jpg">](https://soundcloud.com/eufeion/discoland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k1GhdPpThXLGreXQ-8cEDog-t500x500.jpg">](https://soundcloud.com/loudxfout/the-nights-zany-x-loud-fout-remix)
 
-**Artist**: Eufeion 
+**Artist**: LOUD & FOUT 
 
-**Track**: DurkDawg & Eufeion - Discoland - (Excore) - OUT NOW!!
+**Track**: The Nights (Zany X Loud & Fout Remix)
 
-Last updated at 06/28/2024 12:52
+Last updated at 06/28/2024 13:17
