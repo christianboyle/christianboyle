@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NY2Tm5Z7NNdz7RBM-d89CKA-t500x500.jpg">](https://soundcloud.com/b-pomp/starman-dont-be-afriad-ben)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VopgqxquTYg0ebdB-f76jKw-t500x500.jpg">](https://soundcloud.com/farrahsounds/how2fly)
 
-**Artist**: Ben Journiee 
+**Artist**: Farrah 
 
-**Track**: Starman - Don't be afraid Ben Journee remix
+**Track**: ISOxo - how2fly (Farrah Flip)
 
-Last updated at 06/28/2024 11:20
+Last updated at 06/28/2024 12:50
