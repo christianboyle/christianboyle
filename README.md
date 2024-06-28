@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz2od6kzANZDyy07-R5w9Zw-t500x500.jpg">](https://soundcloud.com/marlomusic/marlo-oceans?in=sc-stories23/sets/voice-notes-marlo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fs7x0ED7khXyRnkl-7kDuRw-t500x500.jpg">](https://soundcloud.com/pedicure-records/mschickensandwich-you-want-it-bad-i-wanna-know?in=pedicure-records/sets/pd167-mschickensandwich-you)
 
-**Artist**: MaRLo 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: MaRLo - Oceans
+**Track**: MsChickenSandwich - YOU WANT IT BAD (I WANNA KNOW)
 
-Last updated at 06/27/2024 07:27
+Last updated at 06/28/2024 11:14
