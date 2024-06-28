@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xCUi3S2yPij755n7-d3Gvng-t500x500.jpg">](https://soundcloud.com/schemarecs/derek-vo-deroia-the-proof-ft-govan-jones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eHd7bl0fJrQTxbFQ-mTUQJg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/phunkbiaswonderkid)
 
-**Artist**: Schema 
+**Artist**: Psychocybin Recordings 
 
-**Track**: Derek Vo, DEROIA, Govan Jones, Schema - The Proof
+**Track**: Phunk Bias - Wonder Kid
 
-Last updated at 06/28/2024 13:25
+Last updated at 06/28/2024 13:26
