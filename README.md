@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mArgMHRFSnud8tx-GSQJnA-t500x500.jpg">](https://soundcloud.com/reheatedtunamelt/seaofvoices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sxd9BprNmcote7Rd-V4HQQw-t500x500.jpg">](https://soundcloud.com/all172things/parallel-exception-premiere)
 
-**Artist**: Reheated By Tuna Melt 
+**Artist**: All172Things 
 
-**Track**: Porter Robinson - Sea Of Voices (Tuna Melt Remix)
+**Track**: Parallel - Exception [Premiere]
 
-Last updated at 06/28/2024 11:17
+Last updated at 06/28/2024 11:18
