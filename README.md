@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-at9cOpptkngIpHVU-nMhfGg-t500x500.jpg">](https://soundcloud.com/pausedpilot/code-pandorum-homesick-paused-pilot-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJAPnGII8KfxBviJ-VvEo6w-t500x500.jpg">](https://soundcloud.com/syzymusic/dancing-on-my-own)
 
-**Artist**: Paused Pilot 
+**Artist**: Syzy 
 
-**Track**: INHUMAN - HOMESICK (Paused Pilot Remix)
+**Track**: Dancing on my own
 
-Last updated at 06/28/2024 13:23
+Last updated at 06/28/2024 13:24
