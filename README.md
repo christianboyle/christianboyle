@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCvGzTfbdSoOCTGW-ENmhTQ-t500x500.jpg">](https://soundcloud.com/houzmusicblog/scizzie-aquatic-ambience-ausmax-edit-hzrx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sokThJH35SikVg6X-YHiIfw-t500x500.jpg">](https://soundcloud.com/tsimba/bodega-dreams)
 
-**Artist**: HOUZ 
+**Artist**: tsimba 
 
-**Track**: Scizzie - Aquatic Ambience (AUSMAX Edit) [HZRX]
+**Track**: 𓃠 ɃøđɇǥȺ ĐɍɇȺms 𓃠
 
-Last updated at 06/30/2024 11:11
+Last updated at 06/30/2024 11:12
