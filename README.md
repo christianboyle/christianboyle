@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eHd7bl0fJrQTxbFQ-mTUQJg-t500x500.jpg">](https://soundcloud.com/psychocybinrec/phunkbiaswonderkid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KFsX5bosD7bsrBrS-Cs4nTQ-t500x500.jpg">](https://soundcloud.com/rssj9yodgfad/kino-hard-dance-mashup-pack-vol1)
 
-**Artist**: Psychocybin Recordings 
+**Artist**: KINO 
 
-**Track**: Phunk Bias - Wonder Kid
+**Track**: Kino Hard Dance Mashup Pack Vol.1 (It's true)
 
-Last updated at 06/28/2024 13:26
+Last updated at 06/30/2024 11:05
