@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xOJyn33FN00lhXWK-xsGnFg-t500x500.jpg">](https://soundcloud.com/futuregenerationofficial/arcando-when-im-gone-with-micah-martin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9eQYB7S4SR49-0-t500x500.jpg">](https://soundcloud.com/jaxjones/jax-jones-zoe-wees-arcando)
 
-**Artist**: Future Generation 
+**Artist**: Jax Jones 
 
-**Track**: Arcando - When I'm Gone (with Micah Martin)
+**Track**: Jax Jones, Zoe Wees, Arcando - Never Be Lonely (Arcando Remix)
 
-Last updated at 07/02/2024 12:50
+Last updated at 07/02/2024 12:51
