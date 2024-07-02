@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sokThJH35SikVg6X-YHiIfw-t500x500.jpg">](https://soundcloud.com/tsimba/bodega-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s27sh4V0whA5yPPE-UxZSoQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dwams-heartbeats)
 
-**Artist**: tsimba 
+**Artist**: ONLYTRANCE 
 
-**Track**: 𓃠 ɃøđɇǥȺ ĐɍɇȺms 𓃠
+**Track**: DWAMS - heartbeats
 
-Last updated at 06/30/2024 11:12
+Last updated at 07/02/2024 09:48
