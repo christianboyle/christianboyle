@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9eQYB7S4SR49-0-t500x500.jpg">](https://soundcloud.com/jaxjones/jax-jones-zoe-wees-arcando)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3cwV6xEEUypV496T-2aVuUg-t500x500.jpg">](https://soundcloud.com/arcando-official/there-for-you)
 
-**Artist**: Jax Jones 
+**Artist**: Arcando 
 
-**Track**: Jax Jones, Zoe Wees, Arcando - Never Be Lonely (Arcando Remix)
+**Track**: Arcando - There For You
 
-Last updated at 07/02/2024 12:51
+Last updated at 07/02/2024 12:52
