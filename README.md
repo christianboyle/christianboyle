@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aOhGbHXIAOZRpDX4-S3hNKA-t500x500.jpg">](https://soundcloud.com/wylinmusic/levity-flip-it-wylin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGkE4cyCz6xJjI7O-K9s6nw-t500x500.jpg">](https://soundcloud.com/adum_brate/thankful-for-my-dad-454-x-sun)
 
-**Artist**: WYLIN 
+**Artist**: Adum Brate 
 
-**Track**: Levity - Flip It (WYLIN Remix)
+**Track**: THANKFUL FOR MY DAD [454 X SUN KIL MOON]
 
-Last updated at 07/03/2024 09:28
+Last updated at 07/03/2024 09:29
