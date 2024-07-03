@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLSU4fGIAixRMWAb-x5aYtg-t500x500.jpg">](https://soundcloud.com/txrecords/premiere-rockstar-post-malone-x-21-savage-grym-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t0qMjECENLZnezv-C4v9FA-t500x500.jpg">](https://soundcloud.com/hypersoft_bln/nmx-008)
 
-**Artist**: Tx Records 
+**Artist**: Hypersoft 
 
-**Track**: PREMIERE: Rockstar - Post Malone X 21 Savage (GRYM Hard Edit)
+**Track**: Inner Zone [008]
 
-Last updated at 07/03/2024 07:56
+Last updated at 07/03/2024 07:59
