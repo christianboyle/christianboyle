@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mNCL6HByO6HRuDz4-XvF7Lw-t500x500.jpg">](https://soundcloud.com/livefromearth/b2-mcr-t-og-loc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txjGlSfzgGE0lfGt-0Y0BnA-t500x500.jpg">](https://soundcloud.com/rushmoredjs/rushmore-pres-s-pack-vol3)
 
-**Artist**: Live From Earth 
+**Artist**: RUSHMORE 
 
-**Track**: B2) MCR-T - OG LOC
+**Track**: RUSHMORE pres. S-PACK Vol.3
 
-Last updated at 07/03/2024 09:30
+Last updated at 07/03/2024 09:34
