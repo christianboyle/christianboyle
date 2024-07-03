@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEbCIHpAzrofCejb-NSqeTA-t500x500.jpg">](https://soundcloud.com/dessignertoys/glorilla-tgif-dessigner-toys-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s27sh4V0whA5yPPE-UxZSoQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dwams-and-the-sky)
 
-**Artist**: DESSIGNER TOYS 
+**Artist**: ONLYTRANCE 
 
-**Track**: Glorilla - TGIF (Dessigner Toys Flip)
+**Track**: DWAMS - and the sky
 
-Last updated at 07/03/2024 07:40
+Last updated at 07/03/2024 07:41
