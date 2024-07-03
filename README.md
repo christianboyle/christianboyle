@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X65ZbrMbrPBsguvB-moy2Ew-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/thew-pav4n-megatronic-tulip?in=thewbass/sets/tulip-with-pav4n-megatronic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4FSJ9RLhpzY205r0-YSZHEA-t500x500.jpg">](https://soundcloud.com/discolines/disco-lines-live-bonnaroo-2024)
 
-**Artist**: Wormhole Music Group 
+**Artist**: Disco Lines 
 
-**Track**: Thew, PAV4N, & Megatronic - Tulip
+**Track**: Disco Lines Live @ Bonnaroo 2024
 
-Last updated at 07/03/2024 09:35
+Last updated at 07/03/2024 09:36
