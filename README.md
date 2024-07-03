@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLSU4fGIAixRMWAb-x5aYtg-t500x500.jpg">](https://soundcloud.com/txrecords/premiere-rockstar-post-malone-x-21-savage-grym-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1AjLLd2xxSt5reI2-tTqD2g-t500x500.jpg">](https://soundcloud.com/weareriot/misery-business)
 
-**Artist**: Tx Records 
+**Artist**: RIOT 
 
-**Track**: PREMIERE: Rockstar - Post Malone X 21 Savage (GRYM Hard Edit)
+**Track**: Paramore - Misery Business (RIOT REMIX)
 
-Last updated at 07/03/2024 07:51
+Last updated at 07/03/2024 07:55
