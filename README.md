@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t0qMjECENLZnezv-C4v9FA-t500x500.jpg">](https://soundcloud.com/hypersoft_bln/nmx-008)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0x3QNolzfkVOSGpv-PbFrTA-t500x500.jpg">](https://soundcloud.com/picklesounds/pursuit-of-happiness-pickle-steve-aoki-redux)
 
-**Artist**: Hypersoft 
+**Artist**: Pickle 
 
-**Track**: Inner Zone [008]
+**Track**: Kid Cudi - Pursuit Of Happiness (Pickle x Steve Aoki Redux)
 
-Last updated at 07/03/2024 07:59
+Last updated at 07/03/2024 08:16
