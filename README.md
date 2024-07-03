@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uw5qsXhygBMbbIwT-8zkryg-t500x500.jpg">](https://soundcloud.com/justicehardcore/backinone?in=justicehardcore/sets/chan-we-back-in-one-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aOhGbHXIAOZRpDX4-S3hNKA-t500x500.jpg">](https://soundcloud.com/wylinmusic/levity-flip-it-wylin-remix)
 
-**Artist**: Justice Hardcore 
+**Artist**: WYLIN 
 
-**Track**: ChAn. - We Back In One (OUT NOW)
+**Track**: Levity - Flip It (WYLIN Remix)
 
-Last updated at 07/02/2024 20:32
+Last updated at 07/03/2024 07:39
