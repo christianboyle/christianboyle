@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzy5woYoEKjVMmKC-BpPYzg-t500x500.jpg">](https://soundcloud.com/livefromearth/mrd-let-her-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aOhGbHXIAOZRpDX4-S3hNKA-t500x500.jpg">](https://soundcloud.com/wylinmusic/levity-flip-it-wylin-remix)
 
-**Artist**: Live From Earth 
+**Artist**: WYLIN 
 
-**Track**: MRD - Let Her Go
+**Track**: Levity - Flip It (WYLIN Remix)
 
-Last updated at 07/03/2024 09:49
+Last updated at 07/03/2024 09:59
