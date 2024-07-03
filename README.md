@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txjGlSfzgGE0lfGt-0Y0BnA-t500x500.jpg">](https://soundcloud.com/rushmoredjs/rushmore-pres-s-pack-vol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X65ZbrMbrPBsguvB-moy2Ew-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/thew-pav4n-megatronic-tulip?in=thewbass/sets/tulip-with-pav4n-megatronic)
 
-**Artist**: RUSHMORE 
+**Artist**: Wormhole Music Group 
 
-**Track**: RUSHMORE pres. S-PACK Vol.3
+**Track**: Thew, PAV4N, & Megatronic - Tulip
 
-Last updated at 07/03/2024 09:34
+Last updated at 07/03/2024 09:35
