@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0x3QNolzfkVOSGpv-PbFrTA-t500x500.jpg">](https://soundcloud.com/picklesounds/pursuit-of-happiness-pickle-steve-aoki-redux)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s27sh4V0whA5yPPE-UxZSoQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dwams-and-the-sky?in=onlytr4nce/sets/ep-ii-and-the-sky)
 
-**Artist**: Pickle 
+**Artist**: ONLYTRANCE 
 
-**Track**: Kid Cudi - Pursuit Of Happiness (Pickle x Steve Aoki Redux)
+**Track**: DWAMS - and the sky
 
-Last updated at 07/03/2024 08:16
+Last updated at 07/03/2024 09:27
