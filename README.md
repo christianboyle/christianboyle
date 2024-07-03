@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C2SOtzCC6mY9BGyl-kpyjbQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/carlos-tafalla-dj-timmy-dj-dario-fly-away-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uw5qsXhygBMbbIwT-8zkryg-t500x500.jpg">](https://soundcloud.com/justicehardcore/backinone?in=justicehardcore/sets/chan-we-back-in-one-out-now)
 
-**Artist**: DNZ Records 
+**Artist**: Justice Hardcore 
 
-**Track**: Carlos Tafalla, DJ Timmy, DJ Dario - Fly Away With Me
+**Track**: ChAn. - We Back In One (OUT NOW)
 
-Last updated at 07/02/2024 20:31
+Last updated at 07/02/2024 20:32
