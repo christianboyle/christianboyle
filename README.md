@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mNCL6HByO6HRuDz4-XvF7Lw-t500x500.jpg">](https://soundcloud.com/livefromearth/b2-mcr-t-og-loc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTfdkBbfMm3Ayphn-H0Ly8Q-t500x500.jpg">](https://soundcloud.com/mcr-t/speed-drive-mcr-ken-remix)
 
-**Artist**: Live From Earth 
+**Artist**: MCR-T 
 
-**Track**: B2) MCR-T - OG LOC
+**Track**: Speed Drive (MCR-Ken Remix)
 
-Last updated at 07/04/2024 08:32
+Last updated at 07/04/2024 08:33
