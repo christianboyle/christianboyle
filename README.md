@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-plbvD47fOprfG4lr-E1x1Qw-t500x500.jpg">](https://soundcloud.com/darn84/dougal-fusion-iii-farnborough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJ8ptaYjxL7K-0-t500x500.png">](https://soundcloud.com/trivectamusic/trivecta-feat-casey-cook)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Trivecta 
 
-**Track**: Dougal @ Fusion III - Farnborough Recreation Centre (22/10/1994)
+**Track**: Trivecta feat. Casey Cook - Alaska
 
-Last updated at 07/05/2024 13:29
+Last updated at 07/05/2024 13:30
