@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsbPh1h5QxePdTtU-YerEJA-t500x500.jpg">](https://soundcloud.com/dnzrecords/garbie-project-feel-so-right-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5mnUrrEw3GpFCeg6-TbjSOg-t500x500.png">](https://soundcloud.com/tonevizion/bluntz-n-bangers-rooftop-collective-exclusive)
 
-**Artist**: DNZ Records 
+**Artist**: ToneVizion 
 
-**Track**: Garbie Project - Feel So Right
+**Track**: Bluntz & Bangers (Rooftop Collective Exclusive)
 
-Last updated at 07/05/2024 14:00
+Last updated at 07/05/2024 14:01
