@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bWmfhrSrGUyRGut-jDg2sQ-t500x500.jpg">](https://soundcloud.com/the-birdhouse-bootlegs/terror-squad-fat-joe-lean-back-jay-bird-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-plbvD47fOprfG4lr-E1x1Qw-t500x500.jpg">](https://soundcloud.com/darn84/dougal-fusion-iii-farnborough)
 
-**Artist**: The Birdhouse Bootlegs 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Terror Squad, Fat Joe - Lean Back (Jay Bird Remix)
+**Track**: Dougal @ Fusion III - Farnborough Recreation Centre (22/10/1994)
 
-Last updated at 07/05/2024 13:28
+Last updated at 07/05/2024 13:29
