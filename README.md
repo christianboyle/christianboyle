@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mNCL6HByO6HRuDz4-XvF7Lw-t500x500.jpg">](https://soundcloud.com/livefromearth/b2-mcr-t-og-loc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6weydscPyJfpPgp7-qKQXzw-t500x500.jpg">](https://soundcloud.com/jokessonyou/jokesonyou-get-personal-1)
 
-**Artist**: Live From Earth 
+**Artist**: JOKESONYOU 
 
-**Track**: B2) MCR-T - OG LOC
+**Track**: JOKESONYOU - Get Personal
 
-Last updated at 07/05/2024 14:10
+Last updated at 07/05/2024 14:11
