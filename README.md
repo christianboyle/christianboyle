@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzRxUMMRpjji6M2Q-nwuTZQ-t500x500.jpg">](https://soundcloud.com/lister_aus/when-love-takes-over-lister-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwzSZRGX3KIBBrrh-URoSXg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/davyroe-every-super-hero-needs?in=tnt_ofc/sets/davyroe-4xid-ep-tnt017)
 
-**Artist**: Lister 
+**Artist**: TNT 
 
-**Track**: When Love Takes Over [Lister Edit]
+**Track**: DAVYROE – Every Super Hero Needs Their Theme Music (Tool) [TNT017]
 
-Last updated at 07/05/2024 14:05
+Last updated at 07/05/2024 14:06
