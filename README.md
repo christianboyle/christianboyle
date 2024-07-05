@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8VlXHnNQnqCAZ3uf-Alcp2w-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/dubscribe-oxegen-destroyer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000482789208-lx2sr5-t500x500.jpg">](https://soundcloud.com/artbyform/dossyx-sleep-deprived?in=dossyx/sets/form-releases)
 
-**Artist**: Dancing Dead 
+**Artist**: FORM 
 
-**Track**: Dubscribe - Oxegen Destroyer
+**Track**: DossyX - Sleep Deprived
 
-Last updated at 07/05/2024 13:54
+Last updated at 07/05/2024 13:55
