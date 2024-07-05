@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBOHAhd7cvyytR5f-7cQ0rA-t500x500.jpg">](https://soundcloud.com/techno-remix-sc/techno-better-off-alone-pt-iii-paolo-ortelli-max-mylian-bootleg-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2KUI4NG3ZoK5r51A-ct9dXg-t500x500.jpg">](https://soundcloud.com/ninajirachi/be-quiet)
 
-**Artist**: Techno 
+**Artist**: Ninajirachi 
 
-**Track**: Techno | Better Off (Alone, Pt. III) [Paolo Ortelli & Max Mylian Bootleg] *FREE DL*
+**Track**: Be quiet (with frog chaser)
 
-Last updated at 07/05/2024 13:56
+Last updated at 07/05/2024 13:57
