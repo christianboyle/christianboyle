@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wyAfIw7atJo815v2-z4a7uA-t500x500.jpg">](https://soundcloud.com/lilicalways/cant-say)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rWVRxVQCnKBMLgFO-Uulbfg-t500x500.jpg">](https://soundcloud.com/studiobarnhus/david-jackson-we-never-talk-ep-megamix)
 
-**Artist**: Lilic 
+**Artist**: Studio Barnhus 
 
-**Track**: Can't Say
+**Track**: David Jackson - We Never Talk EP ♾️ MEGAMIX 💖
 
-Last updated at 07/05/2024 13:51
+Last updated at 07/05/2024 13:52
