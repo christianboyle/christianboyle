@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8pyXAWnX0D8D9m4Y-YxendQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/benny-benassi-cinema-skrillex-remix-maple-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mNCL6HByO6HRuDz4-XvF7Lw-t500x500.jpg">](https://soundcloud.com/livefromearth/b2-mcr-t-og-loc)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Live From Earth 
 
-**Track**: BENNY BENASSI - CINEMA (SKRILLEX REMIX) [MAPLE EDIT]
+**Track**: B2) MCR-T - OG LOC
 
-Last updated at 07/05/2024 14:09
+Last updated at 07/05/2024 14:10
