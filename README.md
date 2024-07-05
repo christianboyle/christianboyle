@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tOyJZRq4eJxTHaeU-c1miAg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/ark8-ft-mark-vayne-summer-jam-hardstyle-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzRxUMMRpjji6M2Q-nwuTZQ-t500x500.jpg">](https://soundcloud.com/lister_aus/when-love-takes-over-lister-edit-1)
 
-**Artist**: Dirty Workz 
+**Artist**: Lister 
 
-**Track**: ARK8 ft. Mark Vayne - Summer Jam (Hardstyle Edit)
+**Track**: When Love Takes Over [Lister Edit]
 
-Last updated at 07/05/2024 14:04
+Last updated at 07/05/2024 14:05
