@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rWVRxVQCnKBMLgFO-Uulbfg-t500x500.jpg">](https://soundcloud.com/studiobarnhus/david-jackson-we-never-talk-ep-megamix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8VlXHnNQnqCAZ3uf-Alcp2w-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/dubscribe-oxegen-destroyer)
 
-**Artist**: Studio Barnhus 
+**Artist**: Dancing Dead 
 
-**Track**: David Jackson - We Never Talk EP ♾️ MEGAMIX 💖
+**Track**: Dubscribe - Oxegen Destroyer
 
-Last updated at 07/05/2024 13:52
+Last updated at 07/05/2024 13:54
