@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2KUI4NG3ZoK5r51A-ct9dXg-t500x500.jpg">](https://soundcloud.com/ninajirachi/be-quiet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ZMp7xiOVE9CaNjp-kthbZw-t500x500.jpg">](https://soundcloud.com/johnnychay/easy)
 
-**Artist**: Ninajirachi 
+**Artist**: Johnny Chay 
 
-**Track**: Be quiet (with frog chaser)
+**Track**: LE SSERAFIM - EASY (Johnny Chay Remix) [Melodic Bass]
 
-Last updated at 07/05/2024 13:57
+Last updated at 07/05/2024 13:58
