@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5phNO19UK62IvKo-cK36UA-t500x500.jpg">](https://soundcloud.com/h3aly/funk-tribu-feat-lucy-dye-all-of-it-healy-donk-flip-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000356907807-023kyx-t500x500.jpg">](https://soundcloud.com/ariannanxc/turrrn)
 
-**Artist**: HEALY 
+**Artist**: arianna (retired) 
 
-**Track**: Funk Tribu feat. LUCY DYE - All Of It (HEALY Hard Flip) (FREE DOWNLOAD)
+**Track**: turn
 
-Last updated at 07/05/2024 14:07
+Last updated at 07/05/2024 14:08
