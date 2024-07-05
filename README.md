@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ZMp7xiOVE9CaNjp-kthbZw-t500x500.jpg">](https://soundcloud.com/johnnychay/easy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk)
 
-**Artist**: Johnny Chay 
+**Artist**: pk (@prod_pk) 
 
-**Track**: LE SSERAFIM - EASY (Johnny Chay Remix) [Melodic Bass]
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 07/05/2024 13:58
+Last updated at 07/05/2024 13:59
