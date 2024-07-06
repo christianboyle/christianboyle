@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-60JU2o7llctUPEU7-89XQLg-t500x500.jpg">](https://soundcloud.com/parsaintlaurent/floats)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BX8WlGLmvDSWhCdy-ag1CZA-t500x500.jpg">](https://soundcloud.com/phrva/lunch)
 
-**Artist**: ᠅ SAINTLAURENT ᠅ 
+**Artist**: Phrva 
 
-**Track**: FLOATS
+**Track**: Billie Eilish - LUNCH (Phrva Flip)
 
-Last updated at 07/06/2024 16:25
+Last updated at 07/06/2024 16:26
