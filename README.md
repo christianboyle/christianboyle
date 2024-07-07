@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwwaRSG4bLQTeCHn-tQyfKA-t500x500.jpg">](https://soundcloud.com/alterslashego/lose-control?in=acyanmusic/sets/lose-control-2nite-via-alter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1OwBm10YwzGi6Vi-bBc44w-t500x500.jpg">](https://soundcloud.com/oddlanguage/overmono-so-u-kno-odd-language-remix)
 
-**Artist**: Alter/Ego 
+**Artist**: Odd Language 
 
-**Track**: Hex Cougar & Acyan - LOSE CONTROL
+**Track**: overmono - so u kno (odd language remix)
 
-Last updated at 07/07/2024 08:02
+Last updated at 07/07/2024 08:03
