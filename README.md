@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbJmqsVJH8xMuPLt-yfXx4Q-t500x500.jpg">](https://soundcloud.com/frasathy-lab/artemas-i-like-the-way-you-kiss-me-frasathy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-79NrxOucVwzzDorv-4fMrHA-t500x500.jpg">](https://soundcloud.com/camgirl/on-and-on)
 
-**Artist**: FRASATHY LAB 
+**Artist**: CAM GIRL 
 
-**Track**: Artemas - i like the way you kiss me (FRASATHY REMIX)
+**Track**: on & on
 
-Last updated at 07/07/2024 07:57
+Last updated at 07/07/2024 07:58
