@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06ELVE0378I1Dtqx-3kcOJw-t500x500.jpg">](https://soundcloud.com/squired/princess-sonar-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbJmqsVJH8xMuPLt-yfXx4Q-t500x500.jpg">](https://soundcloud.com/frasathy-lab/artemas-i-like-the-way-you-kiss-me-frasathy-remix)
 
-**Artist**: Squired 
+**Artist**: FRASATHY LAB 
 
-**Track**: PRINCESS SONAR (VIP edit)
+**Track**: Artemas - i like the way you kiss me (FRASATHY REMIX)
 
-Last updated at 07/06/2024 16:27
+Last updated at 07/07/2024 07:57
