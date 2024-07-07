@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8VlXHnNQnqCAZ3uf-Alcp2w-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/dubscribe-quarter-note-is-dead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5lrcK2ZWhQ5Wo27-HdGqBA-t500x500.jpg">](https://soundcloud.com/basiliskbass/grey-code-aches-anthem)
 
-**Artist**: Dancing Dead 
+**Artist**: Basilisk Bass 
 
-**Track**: Dubscribe - Quarter Note Is Dead
+**Track**: Grey Code - Aches Anthem
 
-Last updated at 07/07/2024 08:00
+Last updated at 07/07/2024 08:01
