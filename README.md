@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5lrcK2ZWhQ5Wo27-HdGqBA-t500x500.jpg">](https://soundcloud.com/basiliskbass/grey-code-aches-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwwaRSG4bLQTeCHn-tQyfKA-t500x500.jpg">](https://soundcloud.com/alterslashego/lose-control?in=acyanmusic/sets/lose-control-2nite-via-alter)
 
-**Artist**: Basilisk Bass 
+**Artist**: Alter/Ego 
 
-**Track**: Grey Code - Aches Anthem
+**Track**: Hex Cougar & Acyan - LOSE CONTROL
 
-Last updated at 07/07/2024 08:01
+Last updated at 07/07/2024 08:02
