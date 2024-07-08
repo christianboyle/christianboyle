@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZubB1XYBz2zhVV93-9HX0OA-t500x500.jpg">](https://soundcloud.com/grandalliancemusic/dysphemic-cat-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VthCJSwCNfvQN5jr-WP8i7w-t500x500.jpg">](https://soundcloud.com/onlytr4nce/celmar-itzavibe)
 
-**Artist**: Grand Alliance Music 
+**Artist**: ONLYTRANCE 
 
-**Track**: Dysphemic - Cat Bass
+**Track**: CELMAR - Itzavibe
 
-Last updated at 07/08/2024 09:45
+Last updated at 07/08/2024 09:46
