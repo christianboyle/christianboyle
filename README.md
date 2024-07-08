@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JZ177TaoyeI2InXS-EFWHgg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/niviro-ft-justin-j-moore-without-you-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53v3q9sWbf9URNvR-6Hl76w-t500x500.jpg">](https://soundcloud.com/monker178/red-sky-faded-hawaii)
 
-**Artist**: NCS 
+**Artist**: monker178 
 
-**Track**: NIVIRO ft. Justin J. Moore - Without You [NCS Release]
+**Track**: Red Sky Faded Hawaii [Dementia] [Original Audio Visual Experience Coming Soon]
 
-Last updated at 07/08/2024 09:41
+Last updated at 07/08/2024 09:43
