@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PUaq0vyDoU0hyNSD-o8PQEQ-t500x500.jpg">](https://soundcloud.com/undergroundemerge/alpha-transmission-to-ya-dome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykXBFepCTtkEp26S-YKMngA-t500x500.jpg">](https://soundcloud.com/rawppl/bae-blade-hot-girl-summer-rawsh5)
 
-**Artist**: Underground Emerge 
+**Artist**: RAW 
 
-**Track**: ALPHA TRANSMISSION - TO YA DOME
+**Track**: Bae Blade - Hot Girl Summer [RAWSH5]
 
-Last updated at 07/08/2024 09:48
+Last updated at 07/08/2024 09:49
