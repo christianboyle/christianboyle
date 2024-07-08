@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53v3q9sWbf9URNvR-6Hl76w-t500x500.jpg">](https://soundcloud.com/monker178/red-sky-faded-hawaii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhmcyE4AnwouYHEw-yBZ7Vg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-worship-ncs-release)
 
-**Artist**: monker178 
+**Artist**: NCS 
 
-**Track**: Red Sky Faded Hawaii [Dementia] [Original Audio Visual Experience Coming Soon]
+**Track**: Diamond Eyes - Worship [NCS Release]
 
-Last updated at 07/08/2024 09:43
+Last updated at 07/08/2024 09:44
