@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9y7qcetzZpbuSjH-f4jGXg-t500x500.jpg">](https://soundcloud.com/zutodubz/zuto-pull-up-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JZ177TaoyeI2InXS-EFWHgg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/niviro-ft-justin-j-moore-without-you-ncs-release)
 
-**Artist**: Zuto.Dubz 
+**Artist**: NCS 
 
-**Track**: ZUTO - PULL UP (FREE)
+**Track**: NIVIRO ft. Justin J. Moore - Without You [NCS Release]
 
-Last updated at 07/08/2024 09:36
+Last updated at 07/08/2024 09:41
