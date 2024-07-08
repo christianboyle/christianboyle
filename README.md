@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhmcyE4AnwouYHEw-yBZ7Vg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-worship-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZubB1XYBz2zhVV93-9HX0OA-t500x500.jpg">](https://soundcloud.com/grandalliancemusic/dysphemic-cat-bass)
 
-**Artist**: NCS 
+**Artist**: Grand Alliance Music 
 
-**Track**: Diamond Eyes - Worship [NCS Release]
+**Track**: Dysphemic - Cat Bass
 
-Last updated at 07/08/2024 09:44
+Last updated at 07/08/2024 09:45
