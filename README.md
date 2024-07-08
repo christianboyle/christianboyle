@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKXRJx2hTV9fzDzZ-D0IzUQ-t500x500.jpg">](https://soundcloud.com/skysia/skysia-memory-phurn-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1krI9QfGAD6f4utZ-W1zfuw-t500x500.jpg">](https://soundcloud.com/fakeamirislides/walk-in-w-tera-prod-pk)
 
-**Artist**: Skysia 
+**Artist**: scart 
 
-**Track**: Skysia - Memory (Phurn Remix)
+**Track**: walk in w/ tera prod pk
 
-Last updated at 07/08/2024 09:54
+Last updated at 07/08/2024 09:55
