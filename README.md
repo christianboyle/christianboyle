@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7j9IiujyM2gxhgHh-MNQu3Q-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-157-on-beat-106-scotland-with-rob-iyf-050724)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlBScer5kykCtyyQ-yiaocg-t500x500.jpg">](https://soundcloud.com/omunit/dj-set-radiate-calgary-june-15th-2024)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Om Unit 
 
-**Track**: Bonkers Beats #157 on Beat 106 Scotland with Rob IYF 050724
+**Track**: DJ Set @ Radiate, Calgary June 15th 2024
 
-Last updated at 07/07/2024 08:06
+Last updated at 07/08/2024 09:35
