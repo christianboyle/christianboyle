@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YlBScer5kykCtyyQ-yiaocg-t500x500.jpg">](https://soundcloud.com/omunit/dj-set-radiate-calgary-june-15th-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9y7qcetzZpbuSjH-f4jGXg-t500x500.jpg">](https://soundcloud.com/zutodubz/zuto-pull-up-1)
 
-**Artist**: Om Unit 
+**Artist**: Zuto.Dubz 
 
-**Track**: DJ Set @ Radiate, Calgary June 15th 2024
+**Track**: ZUTO - PULL UP (FREE)
 
-Last updated at 07/08/2024 09:35
+Last updated at 07/08/2024 09:36
