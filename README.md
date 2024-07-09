@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7jEftnO0slJ-0-t500x500.png">](https://soundcloud.com/datweekaz/satellite-tweekacore-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-07hB7jXSMXKMjyhh-akfcDQ-t500x500.jpg">](https://soundcloud.com/oxygenetix/reallywanttostay)
 
-**Artist**: Da Tweekaz 
+**Artist**: oxygenetiX 
 
-**Track**: Satellite (Tweekacore Remix)
+**Track**: I Really Want to Stay at Your House (oxygenetiX Remix)
 
-Last updated at 07/09/2024 14:22
+Last updated at 07/09/2024 14:24
