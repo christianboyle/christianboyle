@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCrP45RP3ByqXXqR-eaHi5A-t500x500.jpg">](https://soundcloud.com/dj4b/4b-mdw-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/norest)
 
-**Artist**: 4B 
+**Artist**: Squired 
 
-**Track**: 4B MDW 2024
+**Track**: NOREST w/ Cerdin
 
-Last updated at 07/09/2024 14:28
+Last updated at 07/09/2024 14:29
