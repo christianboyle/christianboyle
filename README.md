@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGrqzQCex713-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-better-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7jEftnO0slJ-0-t500x500.png">](https://soundcloud.com/datweekaz/satellite-tweekacore-remix)
 
-**Artist**: Gearbox Digital 
+**Artist**: Da Tweekaz 
 
-**Track**: Avi8 - Better Now
+**Track**: Satellite (Tweekacore Remix)
 
-Last updated at 07/09/2024 14:18
+Last updated at 07/09/2024 14:22
