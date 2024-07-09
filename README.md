@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06ELVE0378I1Dtqx-3kcOJw-t500x500.jpg">](https://soundcloud.com/squired/princess-sonar-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGrqzQCex713-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/avi8-better-now)
 
-**Artist**: Squired 
+**Artist**: Gearbox Digital 
 
-**Track**: PRINCESS SONAR (VIP edit)
+**Track**: Avi8 - Better Now
 
-Last updated at 07/09/2024 14:17
+Last updated at 07/09/2024 14:18
