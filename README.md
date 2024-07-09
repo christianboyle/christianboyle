@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wAPq3mW0gImY-0-t500x500.jpg">](https://soundcloud.com/wearegalantis/galantis-x-neon-trees)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCrP45RP3ByqXXqR-eaHi5A-t500x500.jpg">](https://soundcloud.com/dj4b/4b-mdw-2024)
 
-**Artist**: Galantis 
+**Artist**: 4B 
 
-**Track**: Galantis x Neon Trees - Dreamteam
+**Track**: 4B MDW 2024
 
-Last updated at 07/09/2024 14:25
+Last updated at 07/09/2024 14:28
