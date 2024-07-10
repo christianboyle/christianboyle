@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/watchmetakeit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk)
 
-**Artist**: Squired 
+**Artist**: pk (@prod_pk) 
 
-**Track**: Watch Me Take It
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 07/10/2024 09:45
+Last updated at 07/10/2024 09:47
