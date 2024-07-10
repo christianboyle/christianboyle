@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06ELVE0378I1Dtqx-3kcOJw-t500x500.jpg">](https://soundcloud.com/squired/princess-sonar-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hJuCdQXleORrkBy2-iHo5sg-t500x500.jpg">](https://soundcloud.com/domeofdoom/jordnmoody-zenith)
 
-**Artist**: Squired 
+**Artist**: DOMEOFDOOM 
 
-**Track**: PRINCESS SONAR (VIP edit)
+**Track**: jordnmoody - Zenith
 
-Last updated at 07/09/2024 14:33
+Last updated at 07/10/2024 08:21
