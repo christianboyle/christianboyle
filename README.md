@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZIt6nepbx42vWpQ4-c6ALJQ-t500x500.jpg">](https://soundcloud.com/karibu-official/artemas-i-like-the-way-you-kiss-me-karibu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yvAhRNmp7HVF6zGB-l9uvzQ-t500x500.jpg">](https://soundcloud.com/wakyin/wakyin-fruta-fresca-preview)
 
-**Artist**: Karibu Official 
+**Artist**: WAKYIN 
 
-**Track**: Artemas - I Like The Way You Kiss Me (Karibu Remix)
+**Track**: Beso (Fruta Fresca) [feat. Carlos Vives]
 
-Last updated at 07/10/2024 08:23
+Last updated at 07/10/2024 08:24
