@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ao1Tz5LOmtrTLQ2X-vVqyoQ-t500x500.jpg">](https://soundcloud.com/aajaradio/ware-w-joel-eb-aaja-channel-2-05-07-24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
 
-**Artist**: Aaja Music 
+**Artist**: Eater Extras 
 
-**Track**: Ware w/ Joel EB - Aaja Channel 2 - 05 07 24
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 07/10/2024 08:28
+Last updated at 07/10/2024 09:39
