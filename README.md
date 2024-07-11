@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RiimPom47b5jH3GK-SGJLcQ-t500x500.jpg">](https://soundcloud.com/p3pper/02-360a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyT20gjV4hgCWzkb-FePLBg-t500x500.png">](https://soundcloud.com/starmonsterofficial/kendrick-lamar-swimming-pools-star-monster-flip)
 
-**Artist**: P3PPER 
+**Artist**: Star Monster 
 
-**Track**: Charli XCX - 360 (P3PPER ✨Edit)
+**Track**: Kendrick Lamar- Swimming Pools {Star Monster Flip}
 
-Last updated at 07/10/2024 09:50
+Last updated at 07/11/2024 12:48
