@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xUPog9zOlXAA48Z-dwaLeA-t500x500.jpg">](https://soundcloud.com/daggz/duffrey-froth-daggz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9payRDjJ8IoEjz4-srSnuw-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-020-lisene)
 
-**Artist**: DAGGZ 
+**Artist**: space lab 
 
-**Track**: Duffrey - Froth (Daggz Remix)
+**Track**: space•cast 020 - Lisene
 
-Last updated at 07/11/2024 14:22
+Last updated at 07/11/2024 14:23
