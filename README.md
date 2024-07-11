@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTDSvSxnVOnFFmuL-gtnMng-t500x500.jpg">](https://soundcloud.com/wubaholics/myrias-unconditional-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7VSzkhuBFD1zHHKk-CIsMuw-t500x500.jpg">](https://soundcloud.com/jabbsofficial/low-snap-1)
 
-**Artist**: Wubaholics 
+**Artist**: JABBS 
 
-**Track**: MYRIAS - UNCONDITIONAL
+**Track**: Low Snap
 
-Last updated at 07/11/2024 17:52
+Last updated at 07/11/2024 17:53
