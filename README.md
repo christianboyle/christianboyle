@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nReqX4yNBygs8VBx-pCbLrA-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/charli-xcx-guess-dj-daddy-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fj4iFGz2cqEzjLbI-zdPokg-t500x500.jpg">](https://soundcloud.com/wubaholics/shanghai-doom-visitors?in=wubaholics/sets/shanghai-doom-visitors-ep-1)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Wubaholics 
 
-**Track**: Charli XCX - Guess (DJ Daddy Trance Edit)
+**Track**: Shanghai Doom - Visitors
 
-Last updated at 07/11/2024 12:52
+Last updated at 07/11/2024 12:57
