@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9payRDjJ8IoEjz4-srSnuw-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-020-lisene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzTNyuIeDIqWquz9-r6CSPw-t500x500.jpg">](https://soundcloud.com/on-rotation-music/lisene-science-friction-onro07-clips)
 
-**Artist**: space lab 
+**Artist**: On Rotation 
 
-**Track**: space•cast 020 - Lisene
+**Track**: Lisene - Science Friction [ONRO07] - CLIPS
 
-Last updated at 07/11/2024 14:23
+Last updated at 07/11/2024 14:33
