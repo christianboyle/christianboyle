@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NRHiA0HU9bI22Ck4-BWnh2g-t500x500.jpg">](https://soundcloud.com/margwa/exodia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTDSvSxnVOnFFmuL-gtnMng-t500x500.jpg">](https://soundcloud.com/wubaholics/myrias-unconditional-1)
 
-**Artist**: MARGWA 
+**Artist**: Wubaholics 
 
-**Track**: EXODIA (PATREON EXCLUSIVE + STEMS) ⚔️
+**Track**: MYRIAS - UNCONDITIONAL
 
-Last updated at 07/11/2024 17:50
+Last updated at 07/11/2024 17:52
