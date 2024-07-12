@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xh1zYIY1hEyy7AyB-hyQi8Q-t500x500.jpg">](https://soundcloud.com/ukf/maduk-lexurus-follow-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
 
-**Artist**: UKF 
+**Artist**: Eater Extras 
 
-**Track**: Maduk & Lexurus - Follow My Heart (ft. Crooked Bangs)
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 07/12/2024 16:36
+Last updated at 07/12/2024 16:39
