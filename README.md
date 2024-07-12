@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4GooleYAAM9DRyq-PZGFMg-t500x500.jpg">](https://soundcloud.com/mojimusicxx/heaven)
 
-**Artist**: Eater Extras 
+**Artist**: MOJI 
 
-**Track**: Gunna - fukumean (Digested By Eater)
+**Track**: MOJI & T A N E - Heaven Ft. Pink Yusin
 
-Last updated at 07/12/2024 16:39
+Last updated at 07/12/2024 16:57
