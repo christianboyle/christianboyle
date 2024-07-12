@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0jNqWmcnCotFMXE-CKC97g-t500x500.jpg">](https://soundcloud.com/warehouse_rave/barnsley-is-the-new-venice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9payRDjJ8IoEjz4-srSnuw-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spacecast-020-lisene)
 
-**Artist**: Warehouse_rave 
+**Artist**: space lab 
 
-**Track**: Losssy - Barnsley Is The New Venice
+**Track**: space•cast 020 - Lisene
 
-Last updated at 07/12/2024 16:14
+Last updated at 07/12/2024 16:18
