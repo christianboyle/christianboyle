@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-48d8elyzrYxWVMMa-Ty1sHA-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcast-054-sanchez-jr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oK9ujQFzsjKe950v-FJf1tw-t500x500.jpg">](https://soundcloud.com/dj_reiz/dj-reiz-trance-summer-mix-24-l)
 
-**Artist**: Techno Wereld 
+**Artist**: DJ Reiz 
 
-**Track**: TW PODCAST 054 - Sánchez Jr.
+**Track**: DJ REIZ // ☼ TRANCE SUMMER MIX '24 ☼  ᕕ(⌐■_■)ᕗ ♪♬
 
-Last updated at 07/12/2024 08:46
+Last updated at 07/12/2024 10:53
