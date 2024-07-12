@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqFsLBz62I7nhF13-w8FnXw-t500x500.jpg">](https://soundcloud.com/billykinn/rcon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xg5eW00NPg5hRyVu-YOsUew-t500x500.jpg">](https://soundcloud.com/winksounds/clubclassics)
 
-**Artist**: KINN 
+**Artist**: WINK 
 
-**Track**: Re-Con - Ignite - KINN Remix **FREE DOWNLOAD**
+**Track**: Charli xcx - Club classics (WINK & borne Edit)
 
-Last updated at 07/11/2024 18:24
+Last updated at 07/12/2024 08:41
