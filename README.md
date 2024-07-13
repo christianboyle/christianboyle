@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IO2csu2arC5GDpI-8cuiqA-t500x500.jpg">](https://soundcloud.com/official-rooftop/ulagumo-come-alive?in=official-rooftop/sets/speedway-serenade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0uOyMDPlarD7ETq-8a7ifw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/paul-pedock-cim-dreaming-of-you)
 
-**Artist**: Rooftop Official 
+**Artist**: ONLYTRANCE 
 
-**Track**: Ulagumo - Come Alive
+**Track**: Paul Pedock, CIM - Dreaming Of You
 
-Last updated at 07/13/2024 15:38
+Last updated at 07/13/2024 15:39
