@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/i-fffee3l-like-decapitationj-something)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqFNyGgKXddSYfQU-NtF4Yg-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-david-rust-in-the-place?in=rave_alert/sets/various-artists-the-neorave)
 
-**Artist**: beverly hills mom 
+**Artist**: Rave Alert 
 
-**Track**: i fffee3L like... d(ecapitation)j something
+**Track**: [PREMIERE] David Rust - In The Place
 
-Last updated at 07/13/2024 16:11
+Last updated at 07/13/2024 16:12
