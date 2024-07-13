@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhvPJgkUeP0UBpjx-WDlbCQ-t500x500.jpg">](https://soundcloud.com/basscon/basscon-radio-057-feat-tbr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7kr6qzkm7a3b-0-t500x500.png">](https://soundcloud.com/juicyjmusic/the-truth?in=juicyjmusic/sets/memphis-zoo-1)
 
-**Artist**: BASSCON 
+**Artist**: Juicy J 
 
-**Track**: BASSCON RADIO #057 (FEAT TBR)
+**Track**: Juicy J and Xavier Wulf - The Truth
 
-Last updated at 07/13/2024 16:08
+Last updated at 07/13/2024 16:09
