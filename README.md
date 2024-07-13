@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4GooleYAAM9DRyq-PZGFMg-t500x500.jpg">](https://soundcloud.com/mojimusicxx/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T202CuaZskiygyvu-wt3l2A-t500x500.jpg">](https://soundcloud.com/idkymusic/the-killers-mr-brightside-idk-y-hypertechno-remix)
 
-**Artist**: MOJI 
+**Artist**: IDK-Y 
 
-**Track**: MOJI & T A N E - Heaven Ft. Pink Yusin
+**Track**: The Killers - Mr. Brightside (IDK-Y HYPERTECHNO Remix)
 
-Last updated at 07/12/2024 16:57
+Last updated at 07/13/2024 15:07
