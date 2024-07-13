@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zczKsRwP1B2D26ii-qOqOXw-t500x500.jpg">](https://soundcloud.com/dstutz678/closer-x-lets-go-re-edit-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/dj-something-is-playing-elsewhere-on-july-27-2024)
 
-**Artist**: STUDZ 
+**Artist**: dj something 
 
-**Track**: Closer x Let's Go (STUDZ EDIT) [Ne-Yo vs. Calvin Harris - Club Edit]
+**Track**: dj something is playing elsewhere on july 27 2024
 
-Last updated at 07/13/2024 15:36
+Last updated at 07/13/2024 15:37
