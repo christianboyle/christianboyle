@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2p2Ks76OLewHVT4V-bf1JNw-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/2-below-dont-wait)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rsx4SUdso38wbnne-hU8FZg-t500x500.jpg">](https://soundcloud.com/aesthetic_bitch/can-u-feel-the-touch-of-the-sun-on-ur-skin)
 
-**Artist**: High Caliber Records 
+**Artist**: Aesthetic Bitch 
 
-**Track**: 2 Below- Don't Wait
+**Track**: Can U feel the touch of the sun on Ur skin?
 
-Last updated at 07/15/2024 09:26
+Last updated at 07/15/2024 09:28
