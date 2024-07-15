@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oK9ujQFzsjKe950v-FJf1tw-t500x500.jpg">](https://soundcloud.com/dj_reiz/dj-reiz-trance-summer-mix-24-l)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RVL21UVeWk3Srnqr-r6M1uQ-t500x500.png">](https://soundcloud.com/resident-advisor/ra944-tsvi)
 
-**Artist**: DJ Reiz 
+**Artist**: Resident Advisor 
 
-**Track**: DJ REIZ // ☼ TRANCE SUMMER MIX '24 ☼  ᕕ(⌐■_■)ᕗ ♪♬
+**Track**: RA.944 TSVI
 
-Last updated at 07/13/2024 16:14
+Last updated at 07/15/2024 08:47
