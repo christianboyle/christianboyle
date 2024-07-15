@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rsx4SUdso38wbnne-hU8FZg-t500x500.jpg">](https://soundcloud.com/aesthetic_bitch/can-u-feel-the-touch-of-the-sun-on-ur-skin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d1i927nTCUuKuYld-u5ikOg-t500x500.jpg">](https://soundcloud.com/hate_music/non-cyclic-hate-podcast-394)
 
-**Artist**: Aesthetic Bitch 
+**Artist**: HATE 
 
-**Track**: Can U feel the touch of the sun on Ur skin?
+**Track**: Non Cyclic - HATE Podcast 394
 
-Last updated at 07/15/2024 09:39
+Last updated at 07/15/2024 12:44
