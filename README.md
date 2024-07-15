@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RVL21UVeWk3Srnqr-r6M1uQ-t500x500.png">](https://soundcloud.com/resident-advisor/ra944-tsvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQISt0vkHaaQ78y6-64aLFg-t500x500.jpg">](https://soundcloud.com/user-680145125/hawk-tuah)
 
-**Artist**: Resident Advisor 
+**Artist**: not SnuGz 
 
-**Track**: RA.944 TSVI
+**Track**: HAWK TUAH
 
-Last updated at 07/15/2024 08:47
+Last updated at 07/15/2024 09:23
