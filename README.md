@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1o80QLkoS8PKUGqC-nATMJA-t500x500.jpg">](https://soundcloud.com/cheyennegilesmusic/creepin-cheyenne-giles-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lBoLPNLLPHv-0-t500x500.jpg">](https://soundcloud.com/lookasmusic/dollaz-1)
 
-**Artist**: Cheyenne Giles 
+**Artist**: Lookas 
 
-**Track**: CREEPIN (Cheyenne Giles Remix)
+**Track**: DOLLAZ
 
-Last updated at 07/16/2024 08:41
+Last updated at 07/16/2024 08:42
