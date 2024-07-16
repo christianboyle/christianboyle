@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHFzFTonrYLcKwxh-s8pkXg-t500x500.jpg">](https://soundcloud.com/musiciloveofficial/hardcore-vocalist-spotlight-lisa-marie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQTzFUFXVYIkVF51-rxQmWw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/kill-the-vibe)
 
-**Artist**: Music I Love 
+**Artist**: MOJI - II 
 
-**Track**: Hardcore Vocalist Spotlight - Lisa Marie
+**Track**: Kill The Vibe (MOJI, Fahjah, TANE - Hard Techno Remix)
 
-Last updated at 07/15/2024 12:45
+Last updated at 07/16/2024 08:39
