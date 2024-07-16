@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33DAkAbtLppL3prG-aaltIA-t500x500.jpg">](https://soundcloud.com/killinvoid/owl-city-fireflies-killin-void-remixfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s27sh4V0whA5yPPE-UxZSoQ-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dwams-heartbeats)
 
-**Artist**: KILLIN' VOID 
+**Artist**: ONLYTRANCE 
 
-**Track**: Owl City - Fireflies (Killin' Void Remix)[FREE DL]
+**Track**: DWAMS - heartbeats
 
-Last updated at 07/16/2024 15:11
+Last updated at 07/16/2024 15:15
