@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4GooleYAAM9DRyq-PZGFMg-t500x500.jpg">](https://soundcloud.com/mojimusicxx/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/watchmetakeit)
 
-**Artist**: MOJI 
+**Artist**: Squired 
 
-**Track**: MOJI & T A N E - Heaven Ft. Pink Yusin
+**Track**: Watch Me Take It
 
-Last updated at 07/16/2024 14:51
+Last updated at 07/16/2024 14:56
