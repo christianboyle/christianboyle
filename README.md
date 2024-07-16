@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S20Ja9QM7HI4-0-t500x500.png">](https://soundcloud.com/djgammer/sugar-were-going-down)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: Gammer 
 
-**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
+**Track**: Sugar, We're Going Down
 
-Last updated at 07/16/2024 15:02
+Last updated at 07/16/2024 15:04
