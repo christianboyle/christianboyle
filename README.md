@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S20Ja9QM7HI4-0-t500x500.png">](https://soundcloud.com/djgammer/sugar-were-going-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F9lXFBjjVz9tRodq-7AzfqQ-t500x500.jpg">](https://soundcloud.com/late-checkout-991938367/chris-lorenzo-pump-1991-remix)
 
-**Artist**: Gammer 
+**Artist**: LATE CHECKOUT 
 
-**Track**: Sugar, We're Going Down
+**Track**: Chris Lorenzo - Pump (1991 Remix)
 
-Last updated at 07/16/2024 15:04
+Last updated at 07/16/2024 15:07
