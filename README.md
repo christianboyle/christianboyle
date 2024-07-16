@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzRxUMMRpjji6M2Q-nwuTZQ-t500x500.jpg">](https://soundcloud.com/lister_aus/when-love-takes-over-lister-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk)
 
-**Artist**: Lister 
+**Artist**: pk (@prod_pk) 
 
-**Track**: When Love Takes Over [Lister Edit]
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 07/16/2024 14:58
+Last updated at 07/16/2024 15:02
