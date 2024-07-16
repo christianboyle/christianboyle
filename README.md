@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUx7DO9tHBquWgvX-SWJAyw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jakka-b-tambat-dagger-in-my-heart-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1o80QLkoS8PKUGqC-nATMJA-t500x500.jpg">](https://soundcloud.com/cheyennegilesmusic/creepin-cheyenne-giles-remix)
 
-**Artist**: Dirty Workz 
+**Artist**: Cheyenne Giles 
 
-**Track**: Jakka-B & Tambat - Dagger In My Heart (Electric Fox)
+**Track**: CREEPIN (Cheyenne Giles Remix)
 
-Last updated at 07/16/2024 08:40
+Last updated at 07/16/2024 08:41
