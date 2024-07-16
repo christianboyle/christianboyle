@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHFzFTonrYLcKwxh-s8pkXg-t500x500.jpg">](https://soundcloud.com/musiciloveofficial/hardcore-vocalist-spotlight-lisa-marie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
 
-**Artist**: Music I Love 
+**Artist**: Eater Extras 
 
-**Track**: Hardcore Vocalist Spotlight - Lisa Marie
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 07/16/2024 08:44
+Last updated at 07/16/2024 14:48
