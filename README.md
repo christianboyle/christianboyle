@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lBoLPNLLPHv-0-t500x500.jpg">](https://soundcloud.com/lookasmusic/dollaz-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHFzFTonrYLcKwxh-s8pkXg-t500x500.jpg">](https://soundcloud.com/musiciloveofficial/hardcore-vocalist-spotlight-lisa-marie)
 
-**Artist**: Lookas 
+**Artist**: Music I Love 
 
-**Track**: DOLLAZ
+**Track**: Hardcore Vocalist Spotlight - Lisa Marie
 
-Last updated at 07/16/2024 08:42
+Last updated at 07/16/2024 08:44
