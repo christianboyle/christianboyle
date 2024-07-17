@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xXv8oyHtTHK4a50I-3jyewg-t500x500.jpg">](https://soundcloud.com/djsmth/i-got-pulled-over-but-the-cops-let-me-go-when-they-heard-this-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrFmWljRZ8jqzEEU-omBynw-t500x500.jpg">](https://soundcloud.com/hundaes/eenie-meenie-hundaes-edit)
 
-**Artist**: dj something 
+**Artist**: hundaes 
 
-**Track**: i got pulled over but the cops let me go when they heard this remix
+**Track**: Justin Bieber + Sean Kingston - Eenie Meenie (Hundaes Edit)
 
-Last updated at 07/17/2024 09:30
+Last updated at 07/17/2024 09:33
