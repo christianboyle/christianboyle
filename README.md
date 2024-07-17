@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vM4BZHe3if87tdcZ-z9ERXw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jade-key-ft-aye-forever-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rsx4SUdso38wbnne-hU8FZg-t500x500.jpg">](https://soundcloud.com/aesthetic_bitch/can-u-feel-the-touch-of-the-sun-on-ur-skin)
 
-**Artist**: Dirty Workz 
+**Artist**: Aesthetic Bitch 
 
-**Track**: Jade Key ft. AYE - Forever (DWX Copyright Free)
+**Track**: Can U feel the touch of the sun on Ur skin?
 
-Last updated at 07/17/2024 10:28
+Last updated at 07/17/2024 13:48
