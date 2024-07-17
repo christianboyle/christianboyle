@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrFmWljRZ8jqzEEU-omBynw-t500x500.jpg">](https://soundcloud.com/hundaes/eenie-meenie-hundaes-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
 
-**Artist**: hundaes 
+**Artist**: Eater Extras 
 
-**Track**: Justin Bieber + Sean Kingston - Eenie Meenie (Hundaes Edit)
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 07/17/2024 09:33
+Last updated at 07/17/2024 09:35
