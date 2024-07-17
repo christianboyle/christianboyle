@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-efUQHfm0tvvx-0-t500x500.png">](https://soundcloud.com/rustie/black-ice-mudra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjZkk5NMBhcQsSqJ-ZTJ0oA-t500x500.jpg">](https://soundcloud.com/dnzrecords/pump-action-runaway)
 
-**Artist**: Rustie 
+**Artist**: DNZ Records 
 
-**Track**: Black Ice Mudra
+**Track**: Pump Action - Runaway
 
-Last updated at 07/17/2024 10:23
+Last updated at 07/17/2024 10:25
