@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p4GooleYAAM9DRyq-PZGFMg-t500x500.jpg">](https://soundcloud.com/mojimusicxx/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk)
 
-**Artist**: MOJI 
+**Artist**: pk (@prod_pk) 
 
-**Track**: MOJI & T A N E - Heaven Ft. Pink Yusin
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 07/17/2024 09:38
+Last updated at 07/17/2024 09:39
