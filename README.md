@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFdYU2wv219Dd7Ey-eYOCBg-t500x500.jpg">](https://soundcloud.com/nytramusic/faster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gPrWB7WjM5VlxNy4-SquXGQ-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/thew-cheq)
 
-**Artist**: Nytra 
+**Artist**: Wormhole Music Group 
 
-**Track**: Faster
+**Track**: Thew - Cheq
 
-Last updated at 07/19/2024 18:41
+Last updated at 07/19/2024 18:42
