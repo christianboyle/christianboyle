@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rsx4SUdso38wbnne-hU8FZg-t500x500.jpg">](https://soundcloud.com/aesthetic_bitch/can-u-feel-the-touch-of-the-sun-on-ur-skin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000236485662-76d2yy-t500x500.jpg">](https://soundcloud.com/brosafari/bro-safari-etcetc-moombahseason-vol-2-free-download)
 
-**Artist**: Aesthetic Bitch 
+**Artist**: BRO SAFARI 
 
-**Track**: Can U feel the touch of the sun on Ur skin?
+**Track**: Bro Safari & ETC!ETC! - #Moombahseason Vol. 2 (Free Download)
 
-Last updated at 07/17/2024 13:48
+Last updated at 07/19/2024 16:12
