@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000236485662-76d2yy-t500x500.jpg">](https://soundcloud.com/brosafari/bro-safari-etcetc-moombahseason-vol-2-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFdYU2wv219Dd7Ey-eYOCBg-t500x500.jpg">](https://soundcloud.com/nytramusic/faster)
 
-**Artist**: BRO SAFARI 
+**Artist**: Nytra 
 
-**Track**: Bro Safari & ETC!ETC! - #Moombahseason Vol. 2 (Free Download)
+**Track**: Faster
 
-Last updated at 07/19/2024 16:12
+Last updated at 07/19/2024 18:41
