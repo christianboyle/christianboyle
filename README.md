@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ynfVtPEyCU2XRk9-H9zstw-t500x500.png">](https://soundcloud.com/equatosrec/puko-hide-away-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvfzawTluq6C51OQ-gh6PPQ-t500x500.jpg">](https://soundcloud.com/blyssfulmusic/blyssapes-001)
 
-**Artist**: Equatos Recordings 
+**Artist**: Blyssful 
 
-**Track**: Puko - Hide Away (Extended Mix)
+**Track**: Blysstapes 001
 
-Last updated at 07/20/2024 10:58
+Last updated at 07/20/2024 11:01
