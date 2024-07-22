@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZFS1XhZGYuWvq2u9-rbjGyQ-t500x500.jpg">](https://soundcloud.com/laperlerecords/byleo-maru-dolbytall-remix-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1y4I01qtLYKHGAHz-qLWozQ-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/hyperion-the-artifact-o-m-g)
 
-**Artist**: La Perle Records 
+**Artist**: O.M.G (Oblysk Music Group) 
 
-**Track**: BYLEO - Maru (Dolbytall Remix) [La Perle Records]
+**Track**: Hyperion - The Artifact (O.M.G Premiere)
 
-Last updated at 07/22/2024 08:50
+Last updated at 07/22/2024 08:51
