@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ehYdmLRYxuwOnjB-8tE50w-t500x500.jpg">](https://soundcloud.com/trndytrndy/pangea-wide-open-sea)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqYT3IcRihYrzYlh-PeIhhQ-t500x500.jpg">](https://soundcloud.com/metafract/i-went-crazy-on-the-kicks)
 
-**Artist**: trndytrndy 
+**Artist**: astroblur 
 
-**Track**: Pangea (Wide Open Sea)
+**Track**: lost creek (npg_proto_vers)
 
-Last updated at 07/22/2024 11:02
+Last updated at 07/22/2024 11:05
