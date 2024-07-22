@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c6zfVCoY7Wln-0-t500x500.jpg">](https://soundcloud.com/agcook/a-g-cook-lucifer-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9eQYB7S4SR49-0-t500x500.jpg">](https://soundcloud.com/jaxjones/jax-jones-zoe-wees-arcando)
 
-**Artist**: A. G. Cook 
+**Artist**: Jax Jones 
 
-**Track**: A. G. Cook - Lucifer
+**Track**: Jax Jones, Zoe Wees, Arcando - Never Be Lonely (Arcando Remix)
 
-Last updated at 07/22/2024 14:33
+Last updated at 07/22/2024 14:36
