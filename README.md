@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1y4I01qtLYKHGAHz-qLWozQ-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/hyperion-the-artifact-o-m-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IRAN4rjHE7nFdDIE-6beVcg-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/will-carrera-hehn-power-within?in=hardcoreenergy/sets/will-carrera-hehn-nightscape)
 
-**Artist**: O.M.G (Oblysk Music Group) 
+**Artist**: Hardcore Energy 
 
-**Track**: Hyperion - The Artifact (O.M.G Premiere)
+**Track**: Will Carrera, Hehn - Power Within
 
-Last updated at 07/22/2024 08:51
+Last updated at 07/22/2024 08:52
