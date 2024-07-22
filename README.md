@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9eQYB7S4SR49-0-t500x500.jpg">](https://soundcloud.com/jaxjones/jax-jones-zoe-wees-arcando)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utrAUgTei6XJLCJo-BgiC6g-t500x500.jpg">](https://soundcloud.com/eufeion/euro-love-eufeion-remix)
 
-**Artist**: Jax Jones 
+**Artist**: Eufeion 
 
-**Track**: Jax Jones, Zoe Wees, Arcando - Never Be Lonely (Arcando Remix)
+**Track**: Brisk & Trixxy - Euro Love (Eufeion Remix)
 
-Last updated at 07/22/2024 14:36
+Last updated at 07/22/2024 14:38
