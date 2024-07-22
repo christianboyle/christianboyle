@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93Tmd9lnom9SFEH5-Bl6SSg-t500x500.jpg">](https://soundcloud.com/bennett-gauthier/mommm-dipprs-doing-360s-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvfzawTluq6C51OQ-gh6PPQ-t500x500.jpg">](https://soundcloud.com/blyssfulmusic/blyssapes-001)
 
-**Artist**: dippr 
+**Artist**: Blyssful 
 
-**Track**: mommm dipprs doing 360s again!!
+**Track**: Blysstapes 001
 
-Last updated at 07/22/2024 09:16
+Last updated at 07/22/2024 09:18
