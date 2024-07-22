@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKSzyAVaiOKwy6oz-Pgh8zA-t500x500.jpg">](https://soundcloud.com/from_downtown/balaclava-talk-get-u-sum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93Tmd9lnom9SFEH5-Bl6SSg-t500x500.jpg">](https://soundcloud.com/bennett-gauthier/mommm-dipprs-doing-360s-again)
 
-**Artist**: Jakobe 
+**Artist**: dippr 
 
-**Track**: BALACLAVA TALK (GET U SUM)
+**Track**: mommm dipprs doing 360s again!!
 
-Last updated at 07/22/2024 08:44
+Last updated at 07/22/2024 08:45
