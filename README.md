@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93Tmd9lnom9SFEH5-Bl6SSg-t500x500.jpg">](https://soundcloud.com/bennett-gauthier/mommm-dipprs-doing-360s-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ehYdmLRYxuwOnjB-8tE50w-t500x500.jpg">](https://soundcloud.com/trndytrndy/pangea-wide-open-sea?in=trndytrndy/sets/virtua)
 
-**Artist**: dippr 
+**Artist**: trndytrndy 
 
-**Track**: mommm dipprs doing 360s again!!
+**Track**: Pangea (Wide Open Sea)
 
-Last updated at 07/22/2024 09:48
+Last updated at 07/22/2024 10:28
