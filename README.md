@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqYT3IcRihYrzYlh-PeIhhQ-t500x500.jpg">](https://soundcloud.com/metafract/i-went-crazy-on-the-kicks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7b83hZelReA9lRh-KyV88g-t500x500.jpg">](https://soundcloud.com/s3rl/history-maker-vital-force-remix)
 
-**Artist**: astroblur 
+**Artist**: S3RL 
 
-**Track**: lost creek (npg_proto_vers)
+**Track**: History Maker (Vital Force Remix) - Brisk & S3RL
 
-Last updated at 07/22/2024 11:05
+Last updated at 07/22/2024 14:15
