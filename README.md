@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODO8aI8eA4ycMyvH-cAXyqQ-t500x500.jpg">](https://soundcloud.com/s3rl/techno-kitty-corexa-remix?in=s3rl/sets/remix-ep-20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqs1h8lZuyZOA9CP-2lbsUg-t500x500.jpg">](https://soundcloud.com/user-547402554/boom-boom-pow-k3oni-edit)
 
-**Artist**: S3RL 
+**Artist**: K3ONI 
 
-**Track**: Techno Kitty (Corexa Remix) - S3RL
+**Track**: BOOM BOOM POW (K3ONI CLUB WEAPON EDIT)
 
-Last updated at 07/22/2024 08:56
+Last updated at 07/22/2024 08:57
