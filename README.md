@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUE6B1gayc7CQIlp-8yVeHQ-t500x500.jpg">](https://soundcloud.com/onetruegod/one-true-god-x-st-mary-sippin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjooDj70KzWzUYma-FMlCtA-t500x500.jpg">](https://soundcloud.com/shadowwizardmoneygang13/nuclear-winterx-ghetto-warlock)
 
-**Artist**: One True God 
+**Artist**: shadow wizard money gang 
 
-**Track**: One True God x St. Mary - Sippin
+**Track**: NUCLEAR WINTERX GHETTO WARLOCK ЯДЕРНЫЙ ВИНТЕРКС ГЕТТО ЧАРЛОК
 
-Last updated at 07/22/2024 07:58
+Last updated at 07/22/2024 07:59
