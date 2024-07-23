@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/dj-something-is-playing-elsewhere-on-july-27-2024?in=djsmth/sets/dj-something-is-playing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNLJE9dCyz2GNfAI-6fhcQw-t500x500.jpg">](https://soundcloud.com/prada2000/get-busy?in=prada2000/sets/clearing)
 
-**Artist**: dj something 
+**Artist**: PRADA2000 
 
-**Track**: dj something is playing elsewhere on july 27 2024
+**Track**: Sean Paul - Get Busy (PRADA2000 Trance Edit)
 
-Last updated at 07/23/2024 08:41
+Last updated at 07/23/2024 08:42
