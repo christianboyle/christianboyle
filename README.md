@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93Tmd9lnom9SFEH5-Bl6SSg-t500x500.jpg">](https://soundcloud.com/bennett-gauthier/mommm-dipprs-doing-360s-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKMpjIhw35dVJzCV-lf8llg-t500x500.jpg">](https://soundcloud.com/81zaki/dusbtep-mix)
 
-**Artist**: dippr 
+**Artist**: 81zaki 
 
-**Track**: mommm dipprs doing 360s again!!
+**Track**: 7/23/24
 
-Last updated at 07/22/2024 17:38
+Last updated at 07/23/2024 06:58
