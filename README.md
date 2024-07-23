@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vag21zcqscxsUE2o-J1Ezmg-t500x500.jpg">](https://soundcloud.com/deemzoo/delphinus-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
 
-**Artist**: DeemZoo 
+**Artist**: Da’Quay Beats 
 
-**Track**: Delphinus (VIP)
+**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
 
-Last updated at 07/23/2024 13:14
+Last updated at 07/23/2024 13:15
