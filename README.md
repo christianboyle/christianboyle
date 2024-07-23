@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gg8b1C9Wm117QyxJ-nXvO2Q-t500x500.jpg">](https://soundcloud.com/diakronik/summer-2024-mini-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vag21zcqscxsUE2o-J1Ezmg-t500x500.jpg">](https://soundcloud.com/deemzoo/delphinus-vip)
 
-**Artist**: Diakronik 
+**Artist**: DeemZoo 
 
-**Track**: Summer 2024 Mini Mix
+**Track**: Delphinus (VIP)
 
-Last updated at 07/23/2024 09:39
+Last updated at 07/23/2024 13:14
