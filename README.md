@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNLJE9dCyz2GNfAI-6fhcQw-t500x500.jpg">](https://soundcloud.com/prada2000/get-busy?in=prada2000/sets/clearing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gg8b1C9Wm117QyxJ-nXvO2Q-t500x500.jpg">](https://soundcloud.com/diakronik/summer-2024-mini-mix)
 
-**Artist**: PRADA2000 
+**Artist**: Diakronik 
 
-**Track**: Sean Paul - Get Busy (PRADA2000 Trance Edit)
+**Track**: Summer 2024 Mini Mix
 
-Last updated at 07/23/2024 08:42
+Last updated at 07/23/2024 08:43
