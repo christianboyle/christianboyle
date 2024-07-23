@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKMpjIhw35dVJzCV-lf8llg-t500x500.jpg">](https://soundcloud.com/81zaki/dusbtep-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qE3jqrZwkHqOGJtA-9md94w-t500x500.jpg">](https://soundcloud.com/defineeverythingfuture/mijas-hot-sweaty-club-set-from-def-austin-sxsw)
 
-**Artist**: 81zaki 
+**Artist**: DEF 
 
-**Track**: 7/23/24
+**Track**: Mija's Hot & Sweaty Club Set from DEF: Austin (SXSW)
 
-Last updated at 07/23/2024 06:58
+Last updated at 07/23/2024 06:59
