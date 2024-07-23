@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GlGog0y4MRzFVOjb-eQDpJw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-belsonic-2024-belfast)
 
-**Artist**: Da’Quay Beats 
+**Artist**: Ben Nicky 
 
-**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
+**Track**: Ben Nicky Live @ Belsonic 2024, Belfast
 
-Last updated at 07/23/2024 13:15
+Last updated at 07/23/2024 15:49
