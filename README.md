@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qE3jqrZwkHqOGJtA-9md94w-t500x500.jpg">](https://soundcloud.com/defineeverythingfuture/mijas-hot-sweaty-club-set-from-def-austin-sxsw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/dj-something-is-playing-elsewhere-on-july-27-2024?in=djsmth/sets/dj-something-is-playing)
 
-**Artist**: DEF 
+**Artist**: dj something 
 
-**Track**: Mija's Hot & Sweaty Club Set from DEF: Austin (SXSW)
+**Track**: dj something is playing elsewhere on july 27 2024
 
-Last updated at 07/23/2024 06:59
+Last updated at 07/23/2024 08:41
