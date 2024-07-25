@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LDAu9UeRU0Yw-0-t500x500.jpg">](https://soundcloud.com/jxxyy/thanks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
 
-**Artist**: Joeyy 
+**Artist**: Da’Quay Beats 
 
-**Track**: Thanks
+**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
 
-Last updated at 07/25/2024 07:37
+Last updated at 07/25/2024 07:40
