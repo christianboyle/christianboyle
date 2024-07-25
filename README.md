@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AeU90jxhKdkxKE6-qqDH8A-t500x500.jpg">](https://soundcloud.com/ninajirachi/hand-on-my-heart-miss-jay-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCI4lD8559FdCHf0-lODvOg-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/twice-i-got-you-inquisitive-x-tatsunoshin-remix)
 
-**Artist**: Ninajirachi 
+**Artist**: Inquisitive [Remixes] 2 
 
-**Track**: Hand on my heart (Miss Jay Remix)
+**Track**: TWICE - I GOT YOU (Inquisitive & Tatsunoshin Remix)
 
-Last updated at 07/25/2024 08:29
+Last updated at 07/25/2024 08:33
