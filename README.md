@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCI4lD8559FdCHf0-lODvOg-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes2/twice-i-got-you-inquisitive-x-tatsunoshin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHFzFTonrYLcKwxh-s8pkXg-t500x500.jpg">](https://soundcloud.com/musiciloveofficial/hardcore-vocalist-spotlight-lisa-marie)
 
-**Artist**: Inquisitive [Remixes] 2 
+**Artist**: Music I Love 
 
-**Track**: TWICE - I GOT YOU (Inquisitive & Tatsunoshin Remix)
+**Track**: Hardcore Vocalist Spotlight - Lisa Marie
 
-Last updated at 07/25/2024 08:33
+Last updated at 07/25/2024 08:36
