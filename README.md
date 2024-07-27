@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aDF7ZTuhYz9SAlUl-7uHEKA-t500x500.jpg">](https://soundcloud.com/mukwa-dodem-records/g-dubz-x-makade-dead-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Lm8rHYp2Eb3NuaZ-OUJyfg-t500x500.jpg">](https://soundcloud.com/black-octopus-sound/jump-up-all-stars-by-the-lions-den-demo)
 
-**Artist**: BearClanRecords 
+**Artist**: Black Octopus Sound 
 
-**Track**: G Dubz x Makade - DEAD (Original Mix)
+**Track**: Jump Up All Stars By The Lion's Den - Demo
 
-Last updated at 07/27/2024 09:40
+Last updated at 07/27/2024 09:41
