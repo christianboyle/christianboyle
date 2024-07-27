@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7wZIU2GXk2bKGGo-i3eTEQ-t500x500.jpg">](https://soundcloud.com/999999999music/jason-cluff-blippy-hardcore-ntnd019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
 
-**Artist**: 999999999 
+**Artist**: Da’Quay Beats 
 
-**Track**: Jason Cluff - Blippy Hardcore [NTND019]
+**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
 
-Last updated at 07/27/2024 10:22
+Last updated at 07/27/2024 10:31
