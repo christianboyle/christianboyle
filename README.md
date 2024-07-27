@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWeDb2EM3dbqkvX3-VlPk1A-t500x500.jpg">](https://soundcloud.com/calicosea/club-party-function-onlytom)
 
-**Artist**: Da’Quay Beats 
+**Artist**: Calico 
 
-**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
+**Track**: Club Party Function (onlytom Remix)
 
-Last updated at 07/27/2024 10:31
+Last updated at 07/27/2024 10:33
