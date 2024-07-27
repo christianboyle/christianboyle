@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97mncAJ49gcsDPIz-pZBuZg-t500x500.jpg">](https://soundcloud.com/dirtyaudio/hear-the-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IXyMlZKczjtwCqjz-ofTijw-t500x500.jpg">](https://soundcloud.com/rennz/kids)
 
-**Artist**: Dirty Audio 
+**Artist**: Rennz 
 
-**Track**: Dirty Audio - Hear The Bass (feat. 24hrs)
+**Track**: Kids **FREE DOWNLOAD**
 
-Last updated at 07/27/2024 09:36
+Last updated at 07/27/2024 09:37
