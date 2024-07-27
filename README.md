@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iloy7zRXBuAb1Qg-uHw8Xg-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/hardcore-fantasy-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWeDb2EM3dbqkvX3-VlPk1A-t500x500.jpg">](https://soundcloud.com/calicosea/club-party-function-onlytom)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: Calico 
 
-**Track**: HARDCORE - TIMELESS - 2024 -    DJ STE MAJOR MIX
+**Track**: Club Party Function (onlytom Remix)
 
-Last updated at 07/27/2024 09:43
+Last updated at 07/27/2024 10:02
