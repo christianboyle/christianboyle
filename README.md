@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lA7Nx90wZXDza97y-zrFX0A-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-antide-gag-tool-inspva001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97mncAJ49gcsDPIz-pZBuZg-t500x500.jpg">](https://soundcloud.com/dirtyaudio/hear-the-bass)
 
-**Artist**: Techno Wereld 
+**Artist**: Dirty Audio 
 
-**Track**: Premiere: Antide - Gag Tool [INSPVA001]
+**Track**: Dirty Audio - Hear The Bass (feat. 24hrs)
 
-Last updated at 07/27/2024 09:35
+Last updated at 07/27/2024 09:36
