@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzX9uxWop6Kziir7-HwYqMQ-t500x500.jpg">](https://soundcloud.com/sabbathsound/onthefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin)
 
-**Artist**: sabbath 
+**Artist**: TETE VIDE 
 
-**Track**: sabbath - on the floor ッ
+**Track**: BURY2K - Kickin & Drummin
 
-Last updated at 07/27/2024 10:05
+Last updated at 07/27/2024 10:17
