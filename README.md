@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHFzFTonrYLcKwxh-s8pkXg-t500x500.jpg">](https://soundcloud.com/musiciloveofficial/hardcore-vocalist-spotlight-lisa-marie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6sMTtSieTrU7Fcuq-RdX4ZA-t500x500.jpg">](https://soundcloud.com/ronanlegacy/relaxation-0)
 
-**Artist**: Music I Love 
+**Artist**: RØNAN 
 
-**Track**: Hardcore Vocalist Spotlight - Lisa Marie
+**Track**: RELAXATION
 
-Last updated at 07/25/2024 08:36
+Last updated at 07/27/2024 09:34
