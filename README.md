@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wTzUVKp4zMN0AhB7-sWOUhg-t500x500.jpg">](https://soundcloud.com/definitepartymaterial/max-ulis-adam-2-ft-nina-testify)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iloy7zRXBuAb1Qg-uHw8Xg-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/hardcore-fantasy-2024)
 
-**Artist**: definite party material 
+**Artist**: DJ STE MAJOR 
 
-**Track**: PREMIERE: Max Ulis & Adam 2 ft. Nina - Testify [Faux Poly]
+**Track**: HARDCORE - TIMELESS - 2024 -    DJ STE MAJOR MIX
 
-Last updated at 07/27/2024 09:42
+Last updated at 07/27/2024 09:43
