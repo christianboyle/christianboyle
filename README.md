@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWeDb2EM3dbqkvX3-VlPk1A-t500x500.jpg">](https://soundcloud.com/calicosea/club-party-function-onlytom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydEsdYof0KfnB9U6-QYEhVA-t500x500.jpg">](https://soundcloud.com/darn84/dougal-gammer-hardcore-heaven?in=darn84/sets/hardcore-heaven-summer-madness)
 
-**Artist**: Calico 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Club Party Function (onlytom Remix)
+**Track**: Dougal & Gammer - Hardcore Heaven Summer Madness (August 2011)
 
-Last updated at 07/27/2024 10:33
+Last updated at 07/28/2024 10:02
