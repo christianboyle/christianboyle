@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pi1zrs3VWUXCzr2e-NzqSuA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/hauntme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jjUEvVVtZKFf7bgF-sRo4WQ-t500x500.jpg">](https://soundcloud.com/medicineplacedub/dreams)
 
-**Artist**: NIGHTMODE 
+**Artist**: Medicine Place 
 
-**Track**: Arya - HAUNT ME (ft. artemis orion)
+**Track**: DREAMS
 
-Last updated at 07/28/2024 10:04
+Last updated at 07/28/2024 10:29
