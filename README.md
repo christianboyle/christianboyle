@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jjUEvVVtZKFf7bgF-sRo4WQ-t500x500.jpg">](https://soundcloud.com/medicineplacedub/dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvzy9uIedT28jrNN-JKIaaQ-t500x500.jpg">](https://soundcloud.com/bitbird/klaxx-tunnelvision)
 
-**Artist**: Medicine Place 
+**Artist**: bitbird 
 
-**Track**: DREAMS
+**Track**: KLAXX - TUNNELVISION
 
-Last updated at 07/28/2024 10:29
+Last updated at 07/28/2024 10:30
