@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvzy9uIedT28jrNN-JKIaaQ-t500x500.jpg">](https://soundcloud.com/bitbird/klaxx-tunnelvision)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pcUNnmjOQjSUQUBr-WC7Lvw-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/jimmer-love-sensation-sample)
 
-**Artist**: bitbird 
+**Artist**: Jimmer // DJs Factory 
 
-**Track**: KLAXX - TUNNELVISION
+**Track**: Jimmer - Love Sensation [sample]
 
-Last updated at 07/28/2024 10:30
+Last updated at 07/29/2024 08:21
