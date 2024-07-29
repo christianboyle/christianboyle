@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38uEyjdjGJovWpl5-rdEnjw-t500x500.jpg">](https://soundcloud.com/technogermany/premiere-bad-boombox-alba-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6n9zXsJ68hldfFQ9-Fzm9HA-t500x500.jpg">](https://soundcloud.com/obscuurrecords/premiere-isaiah-tool-w-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
 
-**Artist**: Techno Germany 
+**Artist**: OBSCUUR 
 
-**Track**: Premiere: Bad Boombox - Alba [TRSN025]
+**Track**: Premiere: Isaiah - Tool W [TRSN025]
 
-Last updated at 07/29/2024 09:14
+Last updated at 07/29/2024 09:19
