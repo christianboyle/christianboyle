@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6n9zXsJ68hldfFQ9-Fzm9HA-t500x500.jpg">](https://soundcloud.com/transition_ofc/david-moleon-span-trsn025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lI96fK6H0IR3Z3uj-rNGbxg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-ollie-lishman-scarymode-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
 
-**Artist**: TRANSITION 
+**Artist**: HATE 
 
-**Track**: David Moleon – Span [TRSN025]
+**Track**: Premiere: Ollie Lishman – SCARYMODE [TRSN025]
 
-Last updated at 07/29/2024 08:25
+Last updated at 07/29/2024 08:30
