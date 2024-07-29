@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6n9zXsJ68hldfFQ9-Fzm9HA-t500x500.jpg">](https://soundcloud.com/transition_ofc/alec-dienaar-make-my-body-move-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38uEyjdjGJovWpl5-rdEnjw-t500x500.jpg">](https://soundcloud.com/technogermany/premiere-bad-boombox-alba-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
 
-**Artist**: TRANSITION 
+**Artist**: Techno Germany 
 
-**Track**: Alec Dienaar – Make My Body Move [TRSN025]
+**Track**: Premiere: Bad Boombox - Alba [TRSN025]
 
-Last updated at 07/29/2024 09:09
+Last updated at 07/29/2024 09:14
