@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GlGog0y4MRzFVOjb-eQDpJw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-belsonic-2024-belfast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jEYcoGBVf9e6QYhX-zcAqqQ-t500x500.jpg">](https://soundcloud.com/david-rust-dj/casso-prada-david-rust-x-uberjakd-remix)
 
-**Artist**: Ben Nicky 
+**Artist**: David Rust DJ 
 
-**Track**: Ben Nicky Live @ Belsonic 2024, Belfast
+**Track**: Casso - Prada (David Rust x Uberjak'd Remix)
 
-Last updated at 07/30/2024 15:09
+Last updated at 07/30/2024 15:25
