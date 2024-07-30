@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6n9zXsJ68hldfFQ9-Fzm9HA-t500x500.jpg">](https://soundcloud.com/antidoteamsterdam/antidote-premiere-vilchezz-kartoons-head-trsn025?in=transition_ofc/sets/va-delirium-vol-ii-trsn025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GlGog0y4MRzFVOjb-eQDpJw-t500x500.jpg">](https://soundcloud.com/bennicky/ben-nicky-live-belsonic-2024-belfast)
 
-**Artist**: ANTIDOTE 
+**Artist**: Ben Nicky 
 
-**Track**: ANTIDOTE Premiere: Vilchezz - Whippin [TRSN025]
+**Track**: Ben Nicky Live @ Belsonic 2024, Belfast
 
-Last updated at 07/30/2024 14:58
+Last updated at 07/30/2024 15:09
