@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-81D9jMbXUKI42yIo-OPYxbA-t500x500.jpg">](https://soundcloud.com/defineeverythingfuture/habstrakts-energetic-bass-house-set-from-def-austin-sxsw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-il0VxmrgeYIy9zLa-IooyJA-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-x-awesome-3-stay-dont-go)
 
-**Artist**: DEF 
+**Artist**: Shugz Music 
 
-**Track**: Habstrakt's Energetic Bass House Set From DEF: Austin (SXSW)
+**Track**: Shugz x Awesome 3 - Stay (Don't Go)
 
-Last updated at 07/31/2024 08:19
+Last updated at 07/31/2024 08:23
