@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kzj68JoaF7ngUckb-Zl1IMw-t500x500.jpg">](https://soundcloud.com/v1xmusic/v-1x-piss3d-0ff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqur6aygq2Bjt0SG-G8539w-t500x500.jpg">](https://soundcloud.com/cloudnone/cloudnone-linney-quiet-of-my-mind)
 
-**Artist**: V-1X 
+**Artist**: CloudNone 
 
-**Track**: V-1X - PISS3D 0FF (CLIP)
+**Track**: CloudNone & Linney - Quiet Of My Mind
 
-Last updated at 07/31/2024 10:29
+Last updated at 07/31/2024 10:30
