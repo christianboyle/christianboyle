@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iW0xzlNMzWJNub1E-0dnERw-t500x500.jpg">](https://soundcloud.com/rockstigma/bobby-dellarocco-bare-it-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sDOmWNJVcxJIY2Hr-GpFCDQ-t500x500.jpg">](https://soundcloud.com/izzibeats/izzi-stupid)
 
-**Artist**: Rock Stigma 
+**Artist**: IZZI 
 
-**Track**: Bobby Dellarocco - Bare It All
+**Track**: IZZI - Stupid
 
-Last updated at 07/31/2024 08:15
+Last updated at 07/31/2024 08:17
