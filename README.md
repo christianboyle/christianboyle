@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkPk1eqEAMJFRjmn-AWuKNw-t500x500.jpg">](https://soundcloud.com/monikasantucci/monika-santucci-miss-the-days-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
 
-**Artist**: MonikaSantucci 
+**Artist**: Eater Extras 
 
-**Track**: Monika Santucci - Miss The Days
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 07/31/2024 10:17
+Last updated at 07/31/2024 10:20
