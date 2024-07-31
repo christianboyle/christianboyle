@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0H7NEdosk3TRbq6-XwKTdQ-t500x500.jpg">](https://soundcloud.com/feestdjruud/prada-feestdjruud-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKsYjqWhRsDIS3xB-RFqs6g-t500x500.jpg">](https://soundcloud.com/saint-baek/xxxtentacion-lookatme-saint-miller-flip-rip)
 
-**Artist**: feestdjruud 
+**Artist**: SAINT MILLER 
 
-**Track**: PRADA - FeestDJRuud edit
+**Track**: XXXTENTACION - LOOKATME (SAINT MILLER FLIP) RIP
 
-Last updated at 07/31/2024 13:57
+Last updated at 07/31/2024 13:59
