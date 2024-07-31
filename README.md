@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m5YSnxQxUZByghFE-IMQSQQ-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-la-2024-official-mixtape-series-panteros666)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0H7NEdosk3TRbq6-XwKTdQ-t500x500.jpg">](https://soundcloud.com/feestdjruud/prada-feestdjruud-edit-1)
 
-**Artist**: HARD hardfest.com 
+**Artist**: feestdjruud 
 
-**Track**: HARD Summer LA 2024 Official Mixtape Series: Panteros666
+**Track**: PRADA - FeestDJRuud edit
 
-Last updated at 07/31/2024 10:42
+Last updated at 07/31/2024 13:57
