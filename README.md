@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKsYjqWhRsDIS3xB-RFqs6g-t500x500.jpg">](https://soundcloud.com/saint-baek/xxxtentacion-lookatme-saint-miller-flip-rip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iW0xzlNMzWJNub1E-0dnERw-t500x500.jpg">](https://soundcloud.com/rockstigma/bobby-dellarocco-bare-it-all)
 
-**Artist**: SAINT MILLER 
+**Artist**: Rock Stigma 
 
-**Track**: XXXTENTACION - LOOKATME (SAINT MILLER FLIP) RIP
+**Track**: Bobby Dellarocco - Bare It All
 
-Last updated at 07/31/2024 08:13
+Last updated at 07/31/2024 08:15
