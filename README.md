@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32EUlr0Jzcyn1Fqi-gvFoEA-t500x500.jpg">](https://soundcloud.com/interiorsemiotics/james-ferraro-city-smells-house-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6PGvpQmuM5GIszV-NSGLew-t500x500.jpg">](https://soundcloud.com/dnzrecords/rik-shaw-big-ric-ecstasy-donk-mix)
 
-**Artist**: dj interior semiotics 
+**Artist**: DNZ Records 
 
-**Track**: james ferraro - city smells (house bootleg)
+**Track**: Rik Shaw & Big Ric - Ecstasy Donk Mix
 
-Last updated at 07/31/2024 07:49
+Last updated at 07/31/2024 07:52
