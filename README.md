@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DmqA6vYSyN4Dwodr-i9ym6Q-t500x500.jpg">](https://soundcloud.com/ghost-dance-1/ghost-dance-embrace-madness-dns001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4RDyhNWmTYSSpHXZ-6Kmt6Q-t500x500.jpg">](https://soundcloud.com/remyheartmusic/reload-rh-remix)
 
-**Artist**: GHOST DANCE 
+**Artist**: Remy Heart 
 
-**Track**: Ghost Dance - Embrace Madness (DNS001)
+**Track**: Reload (Remy Heart Remix)
 
-Last updated at 07/31/2024 08:08
+Last updated at 07/31/2024 08:09
