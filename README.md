@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqur6aygq2Bjt0SG-G8539w-t500x500.jpg">](https://soundcloud.com/cloudnone/cloudnone-linney-quiet-of-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZXjbzDfNg2jUWEvP-TPhbig-t500x500.jpg">](https://soundcloud.com/futurehousemusic/clmd-tobtok-find-my-way-home)
 
-**Artist**: CloudNone 
+**Artist**: Future House Music 
 
-**Track**: CloudNone & Linney - Quiet Of My Mind
+**Track**: CLMD & Tobtok - Find My Way Home
 
-Last updated at 07/31/2024 10:30
+Last updated at 07/31/2024 10:31
