@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-il0VxmrgeYIy9zLa-IooyJA-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-x-awesome-3-stay-dont-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AE3Rfm1jdzKes6AK-JHYGDg-t500x500.jpg">](https://soundcloud.com/slangdogs/slang-dogs-live-blaq-void-x-maybe-forever-slc)
 
-**Artist**: Shugz Music 
+**Artist**: Slang Dogs 
 
-**Track**: Shugz x Awesome 3 - Stay (Don't Go)
+**Track**: Slang Dogs LIVE @ Blaq Void x Maybe Forever SLC
 
-Last updated at 07/31/2024 08:23
+Last updated at 07/31/2024 09:18
