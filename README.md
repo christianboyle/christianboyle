@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fbm48Tzim01ABfr-yE23eg-t500x500.jpg">](https://soundcloud.com/djmag/premiere-nectax-body-talk?in=nectax/sets/body-talk-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UTIWdbFxUatLQJ3-ayy7Qg-t500x500.jpg">](https://soundcloud.com/earth-hz/hustle?in=earth-hz/sets/stamoulo-hustle-ep)
 
-**Artist**: djmag 
+**Artist**: earth Hz 
 
-**Track**: Premiere: Nectax ‘Body Talk’
+**Track**: Stamoulo - Hustle
 
-Last updated at 07/31/2024 10:33
+Last updated at 07/31/2024 10:34
