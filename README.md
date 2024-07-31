@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrFmWljRZ8jqzEEU-omBynw-t500x500.jpg">](https://soundcloud.com/hundaes/eenie-meenie-hundaes-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkPk1eqEAMJFRjmn-AWuKNw-t500x500.jpg">](https://soundcloud.com/monikasantucci/monika-santucci-miss-the-days-2)
 
-**Artist**: Hundaes 
+**Artist**: MonikaSantucci 
 
-**Track**: Justin Bieber + Sean Kingston - Eenie Meenie (Hundaes Edit)
+**Track**: Monika Santucci - Miss The Days
 
-Last updated at 07/31/2024 10:15
+Last updated at 07/31/2024 10:17
