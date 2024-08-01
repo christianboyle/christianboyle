@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKsYjqWhRsDIS3xB-RFqs6g-t500x500.jpg">](https://soundcloud.com/saint-baek/xxxtentacion-lookatme-saint-miller-flip-rip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWeDb2EM3dbqkvX3-VlPk1A-t500x500.jpg">](https://soundcloud.com/calicosea/club-party-function-onlytom)
 
-**Artist**: SAINT MILLER 
+**Artist**: Calico 
 
-**Track**: XXXTENTACION - LOOKATME (SAINT MILLER FLIP) RIP
+**Track**: Club Party Function (onlytom Remix)
 
-Last updated at 07/31/2024 13:59
+Last updated at 08/01/2024 08:40
