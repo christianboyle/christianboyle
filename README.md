@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y4Yq64bZCCzYKxix-N81Nsw-t500x500.jpg">](https://soundcloud.com/mudzzy/rec-2024-07-29)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip)
 
-**Artist**: Modox 
+**Artist**: rSUN 
 
-**Track**: It's In My Head.. Pt.3
+**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
 
-Last updated at 08/01/2024 15:27
+Last updated at 08/01/2024 15:28
