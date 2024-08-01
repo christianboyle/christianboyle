@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azNyz8U72ggTNC8F-JyuAJg-t500x500.jpg">](https://soundcloud.com/stessiebootlegs/touchthesky-hardstyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y4Yq64bZCCzYKxix-N81Nsw-t500x500.jpg">](https://soundcloud.com/mudzzy/rec-2024-07-29)
 
-**Artist**: Stessie's Bootlegs 
+**Artist**: Modox 
 
-**Track**: Touch The Sky (feat. Melissa Brooks) [Hardstyle Edit]
+**Track**: It's In My Head.. Pt.3
 
-Last updated at 08/01/2024 09:01
+Last updated at 08/01/2024 15:27
