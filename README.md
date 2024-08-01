@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfqeqVqXPSyKB2eS-BgGCBw-t500x500.jpg">](https://soundcloud.com/dnzrecords/dj-chris-davies-all-night-all-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m5YSnxQxUZByghFE-IMQSQQ-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-la-2024-official-mixtape-series-panteros666)
 
-**Artist**: DNZ Records 
+**Artist**: HARD hardfest.com 
 
-**Track**: DJ Chris Davies - All Night All Summer
+**Track**: HARD Summer LA 2024 Official Mixtape Series: Panteros666
 
-Last updated at 08/01/2024 16:49
+Last updated at 08/01/2024 16:51
