@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b4yu9U54Qce8Ue0a-L9U0Ng-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/s-p-l-i-t-killers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip)
 
-**Artist**: No Hype Music 
+**Artist**: rSUN 
 
-**Track**: S P L i T - Killers
+**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
 
-Last updated at 08/01/2024 15:33
+Last updated at 08/01/2024 15:48
