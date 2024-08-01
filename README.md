@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UTIWdbFxUatLQJ3-ayy7Qg-t500x500.jpg">](https://soundcloud.com/earth-hz/to-the-death)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkPk1eqEAMJFRjmn-AWuKNw-t500x500.jpg">](https://soundcloud.com/monikasantucci/monika-santucci-miss-the-days-2)
 
-**Artist**: earth Hz 
+**Artist**: MonikaSantucci 
 
-**Track**: Stamoulo - To the Death
+**Track**: Monika Santucci - Miss The Days
 
-Last updated at 08/01/2024 08:46
+Last updated at 08/01/2024 08:49
