@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zunDplIYKYZVSEMq-Oy37iQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/sethrow-kirstie-smiler-you-are-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RdhzRclJuq0hGs2s-h434BQ-t500x500.jpg">](https://soundcloud.com/aryadubz/aryas-arsenal-vol1)
 
-**Artist**: DNZ Records 
+**Artist**: ARYA 
 
-**Track**: SethroW & Kirstie Smiler - You Are Enough
+**Track**: ARYA'S ARSENAL VOL.1
 
-Last updated at 08/01/2024 15:30
+Last updated at 08/01/2024 15:32
