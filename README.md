@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uF3m1h6N4ky1cShK-pGS84A-t500x500.jpg">](https://soundcloud.com/shuffa/kettama-rok-da-house-shuffa-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAc4Vfn0Ld1t9Ja-aWvvnQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-sweet-but-psycho)
 
-**Artist**: SHUFFA 
+**Artist**: Dirty Workz 
 
-**Track**: KETTAMA - ROK DA HOUSE! (SHUFFA Edit)
+**Track**: Sub Zero Project - Sweet but Psycho
 
-Last updated at 08/02/2024 10:12
+Last updated at 08/02/2024 10:15
