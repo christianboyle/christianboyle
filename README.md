@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvrIVNVWatz2PiRx-oFVoHw-t500x500.jpg">](https://soundcloud.com/riddypop/dummy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4haOVwwJxHfTjar7-V74znA-t500x500.jpg">](https://soundcloud.com/rhythmics/citylights)
 
-**Artist**: RiddyPop 
+**Artist**: Rhythmics 
 
-**Track**: RHYTHMICS X XTASEA - DUMMY
+**Track**: Rhythmics, Xtasea & Skeets - City Lights
 
-Last updated at 08/02/2024 12:53
+Last updated at 08/02/2024 12:54
