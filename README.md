@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKxTC1KWeI0RfKXo-BMe1mA-t500x500.jpg">](https://soundcloud.com/realartixmusic-archive-04/heavenly-sentinel-ep011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvrIVNVWatz2PiRx-oFVoHw-t500x500.jpg">](https://soundcloud.com/riddypop/dummy)
 
-**Artist**: Artix's ARCHIVE 04 
+**Artist**: RiddyPop 
 
-**Track**: Heavenly Sentinel EP.011
+**Track**: RHYTHMICS X XTASEA - DUMMY
 
-Last updated at 08/02/2024 10:16
+Last updated at 08/02/2024 12:53
