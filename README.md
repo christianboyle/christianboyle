@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AKYFhv5rqXWiMAlM-PxCpmA-t500x500.jpg">](https://soundcloud.com/dsrdigital/hellbound-pop-it-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvYCXMgkaaVJz30d-f7sDiw-t500x500.jpg">](https://soundcloud.com/justicehardcore/flywithme?in=justicehardcore/sets/hoodzie-undefined-ft-marie)
 
-**Artist**: DSR Digital / DOPE 
+**Artist**: Justice Hardcore 
 
-**Track**: HELLBOUND! - Pop It (Original Mix)
+**Track**: Hoodzie & Undefined Ft. Marie Louise - Fly With Me [Rob IYF & Nobody Remix] (NEW ALBUM / OUT NOW)
 
-Last updated at 08/02/2024 10:10
+Last updated at 08/02/2024 10:11
