@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAc4Vfn0Ld1t9Ja-aWvvnQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-sweet-but-psycho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IKxTC1KWeI0RfKXo-BMe1mA-t500x500.jpg">](https://soundcloud.com/realartixmusic-archive-04/heavenly-sentinel-ep011)
 
-**Artist**: Dirty Workz 
+**Artist**: Artix's ARCHIVE 04 
 
-**Track**: Sub Zero Project - Sweet but Psycho
+**Track**: Heavenly Sentinel EP.011
 
-Last updated at 08/02/2024 10:15
+Last updated at 08/02/2024 10:16
