@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvYCXMgkaaVJz30d-f7sDiw-t500x500.jpg">](https://soundcloud.com/justicehardcore/flywithme?in=justicehardcore/sets/hoodzie-undefined-ft-marie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uF3m1h6N4ky1cShK-pGS84A-t500x500.jpg">](https://soundcloud.com/shuffa/kettama-rok-da-house-shuffa-edit)
 
-**Artist**: Justice Hardcore 
+**Artist**: SHUFFA 
 
-**Track**: Hoodzie & Undefined Ft. Marie Louise - Fly With Me [Rob IYF & Nobody Remix] (NEW ALBUM / OUT NOW)
+**Track**: KETTAMA - ROK DA HOUSE! (SHUFFA Edit)
 
-Last updated at 08/02/2024 10:11
+Last updated at 08/02/2024 10:12
