@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m5YSnxQxUZByghFE-IMQSQQ-t500x500.jpg">](https://soundcloud.com/hardfest/hard-summer-la-2024-official-mixtape-series-panteros666)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b9JympVsELeej6p0-RTnqCg-t500x500.jpg">](https://soundcloud.com/paracek/tag-team-paracek-wilderich-radio-remix)
 
-**Artist**: HARD hardfest.com 
+**Artist**: Paraçek 
 
-**Track**: HARD Summer LA 2024 Official Mixtape Series: Panteros666
+**Track**: B.Bilbo, Master Niggel - Tag Team (Paraçek & WILDERÍCH Radio Remix)
 
-Last updated at 08/01/2024 16:51
+Last updated at 08/02/2024 10:07
