@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b9JympVsELeej6p0-RTnqCg-t500x500.jpg">](https://soundcloud.com/paracek/tag-team-paracek-wilderich-radio-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ApRzadzOPYfuv5a-2kjBWw-t500x500.jpg">](https://soundcloud.com/kiko-tesla/kiko-tesla-reebok-or-nike)
 
-**Artist**: Paraçek 
+**Artist**: KIKO TESLA 
 
-**Track**: B.Bilbo, Master Niggel - Tag Team (Paraçek & WILDERÍCH Radio Remix)
+**Track**: KIKO TESLA - REEBOK OR NIKE
 
-Last updated at 08/02/2024 10:07
+Last updated at 08/02/2024 10:08
