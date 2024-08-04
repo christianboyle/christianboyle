@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jidXaygL5sWtb6cK-tfakUw-t500x500.jpg">](https://soundcloud.com/darn84/food-junky-labrynth-february)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-avfWiVWmadfkXaZm-Nvzk3g-t500x500.jpg">](https://soundcloud.com/darn84/dj-stef-warlock-diehard)
 
 **Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Food Junky @ Labrynth   (February 1994)
+**Track**: DJ Stef & Warlock @ Diehard - Dielectric Club (NYE 93/94)
 
-Last updated at 08/04/2024 10:10
+Last updated at 08/04/2024 10:11
