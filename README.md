@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BuwooAbGCtKuI3Lu-puobBQ-t500x500.jpg">](https://soundcloud.com/noss-label/free-dl-gnro-arkade-nss007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NoPfQywZx8c9Bl3L-IbAjzw-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-august-2024-upfront-bangers)
 
-**Artist**: NOSS 
+**Artist**: Outburst 
 
-**Track**: GNRØ - Arkade [NSS007] | Free DL
+**Track**: Outburst - August 2024 Upfront Bangers
 
-Last updated at 08/04/2024 10:07
+Last updated at 08/04/2024 10:08
