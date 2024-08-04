@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSBuuLigXP8tyzMu-zo8bUA-t500x500.jpg">](https://soundcloud.com/technowereld/instead-of-7-poison-cult-let-you-go-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jidXaygL5sWtb6cK-tfakUw-t500x500.jpg">](https://soundcloud.com/darn84/food-junky-labrynth-february)
 
-**Artist**: Techno Wereld 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Instead Of 7, Poison Cult - Let You Go [Free Download]
+**Track**: Food Junky @ Labrynth   (February 1994)
 
-Last updated at 08/04/2024 10:09
+Last updated at 08/04/2024 10:10
