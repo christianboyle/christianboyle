@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4haOVwwJxHfTjar7-V74znA-t500x500.jpg">](https://soundcloud.com/rhythmics/citylights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xLazAb6y6zy1Id3i-CXQTUw-t500x500.jpg">](https://soundcloud.com/danlrk/hdserumpresets)
 
-**Artist**: Rhythmics 
+**Artist**: Dan Larkin 
 
-**Track**: Rhythmics, Xtasea & Skeets - City Lights
+**Track**: Hard Dance Serum Presets - BUY LINK IN DESCRIPTION
 
-Last updated at 08/02/2024 12:54
+Last updated at 08/04/2024 08:28
