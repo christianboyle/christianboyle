@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZ8qqySi3a8eYSF6-gnoN7w-t500x500.jpg">](https://soundcloud.com/loj-2/id-showcase-mix-202425-high-society-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXyj4h8aH8PKqs2P-KWrL1Q-t500x500.jpg">](https://soundcloud.com/error105music/msft-inthedark-error105-remix)
 
-**Artist**: L*o*J 
+**Artist**: error105 
 
-**Track**: ID SHOWCASE MIX 2024/25 || HIGH SOCIETY VOL. 3
+**Track**: Msft - InthedarK (error105 Remix)
 
-Last updated at 08/04/2024 10:12
+Last updated at 08/04/2024 10:15
