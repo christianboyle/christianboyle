@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xLazAb6y6zy1Id3i-CXQTUw-t500x500.jpg">](https://soundcloud.com/danlrk/hdserumpresets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EF8yjS2IZjmETGAx-gCIdHQ-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/dj-trixy-clublandhisteria-re-record)
 
-**Artist**: Dan Larkin 
+**Artist**: TRIXY 
 
-**Track**: Hard Dance Serum Presets - BUY LINK IN DESCRIPTION
+**Track**: DJ Trixy - Clubland/Histeria (Re - Record)
 
-Last updated at 08/04/2024 08:28
+Last updated at 08/04/2024 10:06
