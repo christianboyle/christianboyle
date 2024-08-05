@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUl2EbsmVDulo22R-HkG7Vw-t500x500.jpg">](https://soundcloud.com/wearebadfriends/games-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fej7fGWHdB59QBUG-2qrG8g-t500x500.jpg">](https://soundcloud.com/81zaki/survivors-guilt-1?in=81zaki/sets/end-of-part-1-ep)
 
-**Artist**: Bad Friends 
+**Artist**: 81zaki 
 
-**Track**: Dina Ayada - Games (BAD FRIENDS REMIX)
+**Track**: Survivors Guilt
 
-Last updated at 08/04/2024 10:47
+Last updated at 08/05/2024 07:57
