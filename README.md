@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BX8WlGLmvDSWhCdy-ag1CZA-t500x500.jpg">](https://soundcloud.com/phrva/lunch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8t5yTVTSjQzPiVI-T9NwzQ-t500x500.jpg">](https://soundcloud.com/rsun_music/chris-lorenzo-mc-buzzz-bota-bota-rsun-flip)
 
-**Artist**: Phrva 
+**Artist**: rSUN 
 
-**Track**: Billie Eilish - LUNCH (Phrva Flip)
+**Track**: Chris Lorenzo, MC Buzzz - Bota Bota (rSUN Flip)
 
-Last updated at 08/05/2024 07:59
+Last updated at 08/05/2024 08:00
