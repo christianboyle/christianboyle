@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qt6SoOvRwxoecHxN-ywQBgw-t500x500.jpg">](https://soundcloud.com/jojo_wubz/rich-boy-throw-some-ds-jojo-flip?in=saxurn/sets/tmp3/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk?in=saxurn/sets/tmp3/)
 
-**Artist**: JOJO 
+**Artist**: pk (@prod_pk) 
 
-**Track**: Rich boy - THROW SOME DS (JOJO FLIP)
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 08/05/2024 16:45
+Last updated at 08/05/2024 16:46
