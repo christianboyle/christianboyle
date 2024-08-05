@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7stElRcwcFLRZ8UF-sE4zSQ-t500x500.jpg">](https://soundcloud.com/jamesjamesjamess/eternalsummer001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1OglS3yzrE4Zt62b-XZeXUw-t500x500.jpg">](https://soundcloud.com/nightmoderecs/dance)
 
-**Artist**: jamesjamesjames 
+**Artist**: NIGHTMODE 
 
-**Track**: eternal:summer 001
+**Track**: TWERL - DANCE
 
-Last updated at 08/05/2024 08:33
+Last updated at 08/05/2024 16:40
