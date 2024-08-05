@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8t5yTVTSjQzPiVI-T9NwzQ-t500x500.jpg">](https://soundcloud.com/rsun_music/chris-lorenzo-mc-buzzz-bota-bota-rsun-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsasupyQW3hpM31w-e5qNqg-t500x500.jpg">](https://soundcloud.com/3000blog/miido-leftright-memory-the-3000-network-premiere?in=leftrightmusic/sets/new-uk-funky-track-w-miido)
 
-**Artist**: rSUN 
+**Artist**: The Reaction 
 
-**Track**: Chris Lorenzo, MC Buzzz - Bota Bota (rSUN Flip)
+**Track**: miido, Left/Right - Memory [The 3000 Network Premiere]
 
-Last updated at 08/05/2024 08:00
+Last updated at 08/05/2024 08:01
