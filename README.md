@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/norest)
 
-**Artist**: Eater Extras 
+**Artist**: Squired 
 
-**Track**: Gunna - fukumean (Digested By Eater)
+**Track**: NOREST w/ Cerdin
 
-Last updated at 08/05/2024 16:43
+Last updated at 08/05/2024 16:44
