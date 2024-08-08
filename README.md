@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TVvE4BgU19zsR1JF-ekWzbw-t500x500.jpg">](https://soundcloud.com/iammanada/bumper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sH3ab7HEn8pk0Kxh-l4MIHA-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-megamix-yerbby)
 
-**Artist**: MANADA 
+**Artist**: hulaHOOP 
 
-**Track**: MANADA - BUMPER
+**Track**: hulaHOOP.fm: yerbby megamix
 
-Last updated at 08/07/2024 10:25
+Last updated at 08/08/2024 07:40
