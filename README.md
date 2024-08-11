@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2VkohuChBlWS7Y6W-ckNtFw-t500x500.jpg">](https://soundcloud.com/user-828800932/how-low-tristanahu-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R0WIFdetBtKB35y8-ju7R7Q-t500x500.jpg">](https://soundcloud.com/basiliskbass/dunk-bada-bing)
 
-**Artist**: tristanahu 
+**Artist**: Basilisk Bass 
 
-**Track**: HOW LOW?
+**Track**: Dunk - Bada Bing
 
-Last updated at 08/11/2024 09:49
+Last updated at 08/11/2024 09:50
