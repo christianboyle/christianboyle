@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WojL7QwcHmFkVn6d-ry0vRA-t500x500.jpg">](https://soundcloud.com/nrgtrax/nrg-trax-live-at-coloursfest-3824)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aG09FDqW9yfszgW-gbKTrg-t500x500.png">](https://soundcloud.com/user-592506003/forgiven)
 
-**Artist**: NRG Trax 
+**Artist**: YEAH MAN 
 
-**Track**: NRG TRAX LIVE AT COLOURSFEST - 3/8/24
+**Track**: FORGIVEN -  YEAH MAN
 
-Last updated at 08/09/2024 14:01
+Last updated at 08/11/2024 09:45
