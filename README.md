@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCNSjlRNaMxiBo4e-LMxGoQ-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/jimmer-djs-factory-ubr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0eCKJBfTAz8tI4Zs-0OTYMQ-t500x500.jpg">](https://soundcloud.com/samlaxton/4-strings-take-me-away-sam-laxton-x-lonskii-hard-trance-flip)
 
-**Artist**: Jimmer // DJs Factory 
+**Artist**: Sam Laxton 
 
-**Track**: Jimmer - DJs Factory UBR Takeover.mp3
+**Track**: 4 Strings - Take Me Away (Sam Laxton x Lonskii Hard Trance Flip) [FREE DL]
 
-Last updated at 08/11/2024 09:51
+Last updated at 08/11/2024 09:53
