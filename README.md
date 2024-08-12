@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0cXyA7ANlrZR6K6-ZRiGIw-t500x500.jpg">](https://soundcloud.com/sfamofficial/that-mexican-ot-ft-moneybagg-yo-twisting-fingers-sfam-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSXrBQuZKLjh-0-t500x500.png">](https://soundcloud.com/no_chasa/shake-that)
 
-**Artist**: sfam 
+**Artist**: No Chasa 
 
-**Track**: that mexican ot (ft. moneybagg yo) - twisting fingers (sfam remix)
+**Track**: Shake That
 
-Last updated at 08/12/2024 09:27
+Last updated at 08/12/2024 09:34
