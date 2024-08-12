@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Juqw9pqRcfMzQP5L-s9dzqQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/vncnt-still-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-odmDtaRRPbmyGUwa-T4au9g-t500x500.jpg">](https://soundcloud.com/humblehouserec/stubo-no-frontin)
 
-**Artist**: Chill Planet 
+**Artist**: Humble House Records 
 
-**Track**: VNCNT - Still Alive
+**Track**: Stubo - No Frontin'
 
-Last updated at 08/12/2024 11:34
+Last updated at 08/12/2024 11:35
