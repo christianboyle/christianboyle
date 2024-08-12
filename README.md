@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hLAyg3XJAWlEhgRs-8A6rQA-t500x500.jpg">](https://soundcloud.com/ruiscollective076/entasia-govnah-i-want-your-love-rfd004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Juqw9pqRcfMzQP5L-s9dzqQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/vncnt-still-alive)
 
-**Artist**: RUIS.Collective 
+**Artist**: Chill Planet 
 
-**Track**: Entasia & GOVNAH - I Want Your Love {RFD004}
+**Track**: VNCNT - Still Alive
 
-Last updated at 08/12/2024 11:33
+Last updated at 08/12/2024 11:34
