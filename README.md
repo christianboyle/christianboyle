@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqFsLBz62I7nhF13-w8FnXw-t500x500.jpg">](https://soundcloud.com/billykinn/rcon)
 
-**Artist**: rSUN 
+**Artist**: KINN 
 
-**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
+**Track**: Re-Con - Ignite - KINN Remix **FREE DOWNLOAD**
 
-Last updated at 08/13/2024 12:57
+Last updated at 08/13/2024 14:35
