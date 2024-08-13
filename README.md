@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBu7SrVVY2p3pBZ8-qA1yrA-t500x500.jpg">](https://soundcloud.com/saint-baek/charli-xcx-guess-featuring-billie-eilish-flip-saint-miller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0cXyA7ANlrZR6K6-ZRiGIw-t500x500.jpg">](https://soundcloud.com/sfamofficial/that-mexican-ot-ft-moneybagg-yo-twisting-fingers-sfam-remix)
 
-**Artist**: SAINT MILLER 
+**Artist**: sfam 
 
-**Track**: Charli Xcx - Guess Featuring Billie Eilish Flip (SAINT MILLER)
+**Track**: that mexican ot (ft. moneybagg yo) - twisting fingers (sfam remix)
 
-Last updated at 08/13/2024 09:39
+Last updated at 08/13/2024 09:47
