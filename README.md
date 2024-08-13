@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbJR3h380gF05GJa-zNkZRg-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-mercy-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCWq66bph3Xt0jV9-CfLo7w-t500x500.jpg">](https://soundcloud.com/odyzeymusic/flora-black-dhalia-1)
 
-**Artist**: Lister 
+**Artist**: Odyzey Music 
 
-**Track**: Lister - MERCY [Edit]
+**Track**: FLORA - BLACK DHALIA
 
-Last updated at 08/13/2024 08:42
+Last updated at 08/13/2024 08:47
