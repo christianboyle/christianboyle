@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azNyz8U72ggTNC8F-JyuAJg-t500x500.jpg">](https://soundcloud.com/stessiebootlegs/touchthesky-hardstyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/norest?in=saxurn/sets/team-serene)
 
-**Artist**: Stessie's Bootlegs 
+**Artist**: Squired 
 
-**Track**: Touch The Sky (feat. Melissa Brooks) [Hardstyle Edit]
+**Track**: NOREST w/ Cerdin
 
-Last updated at 08/13/2024 16:50
+Last updated at 08/13/2024 16:56
