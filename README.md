@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wxp1MKvxH7DsPMSe-XiqTyQ-t500x500.jpg">](https://soundcloud.com/masayoshi-iimori/hita-masayoshi-iimori-remix-flosstradamus-x-viperactive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cjQgircPmIoRlnv0-Drgx1w-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/beats-running-through-my-mind)
 
-**Artist**: MASAYOSHI IIMORI 
+**Artist**: MCCREA 
 
-**Track**: HITA (Masayoshi Iimori Remix) - FLOSSTRADAMUS X VIPERACTIVE
+**Track**: Beats Running Through My Mind
 
-Last updated at 08/13/2024 08:58
+Last updated at 08/13/2024 09:00
