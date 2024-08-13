@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKsYjqWhRsDIS3xB-RFqs6g-t500x500.jpg">](https://soundcloud.com/saint-baek/xxxtentacion-lookatme-saint-miller-flip-rip?in=saxurn/sets/team-serene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06ELVE0378I1Dtqx-3kcOJw-t500x500.jpg">](https://soundcloud.com/squired/princess-sonar-vip?in=saxurn/sets/team-serene/)
 
-**Artist**: SAINT MILLER 
+**Artist**: Squired 
 
-**Track**: XXXTENTACION - LOOKATME (SAINT MILLER FLIP) RIP
+**Track**: PRINCESS SONAR (VIP edit)
 
-Last updated at 08/13/2024 16:57
+Last updated at 08/13/2024 16:58
