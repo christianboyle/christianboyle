@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-nUnleic1hD4a8oGM-DF1qGA-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-mix-for-ubr-slay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s8DjYKbqGQH7-0-t500x500.png">](https://soundcloud.com/ferry-corsten/out-of-the-blue-mauro-picotto)
 
-**Artist**: YEAH MAN 
+**Artist**: ferry-corsten 
 
-**Track**: UBR  140bpm to 150bpm MIX 🔥🔥
+**Track**: System F - Out Of The Blue (Mauro Picotto Remix)
 
-Last updated at 08/13/2024 09:50
+Last updated at 08/13/2024 12:11
