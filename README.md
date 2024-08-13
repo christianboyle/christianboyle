@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-80FfmWdjarAfWmLZ-5EVo8Q-t500x500.jpg">](https://soundcloud.com/giuseppeisgone/high)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbJR3h380gF05GJa-zNkZRg-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-mercy-edit)
 
-**Artist**: Giuseppe Luke 
+**Artist**: Lister 
 
-**Track**: high
+**Track**: Lister - MERCY [Edit]
 
-Last updated at 08/13/2024 08:40
+Last updated at 08/13/2024 08:42
