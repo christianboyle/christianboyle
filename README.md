@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okFZ2vVRy2Zp7w3t-a42O7Q-t500x500.jpg">](https://soundcloud.com/barongfamily/bailo-rexydexy-be-free)
 
-**Artist**: rSUN 
+**Artist**: Barong Family 
 
-**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
+**Track**: BAILO & REXY=DEXY - Be Free
 
-Last updated at 08/13/2024 16:44
+Last updated at 08/13/2024 16:47
