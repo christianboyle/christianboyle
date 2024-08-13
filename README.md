@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0cXyA7ANlrZR6K6-ZRiGIw-t500x500.jpg">](https://soundcloud.com/sfamofficial/that-mexican-ot-ft-moneybagg-yo-twisting-fingers-sfam-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bDeBnQAUeKnrn62R-4s79MQ-t500x500.jpg">](https://soundcloud.com/junglecakes/t-phonic-al-storm-elevate)
 
-**Artist**: sfam 
+**Artist**: Jungle Cakes 
 
-**Track**: that mexican ot (ft. moneybagg yo) - twisting fingers (sfam remix)
+**Track**: T - Phonic & Al Storm - Elevate
 
-Last updated at 08/13/2024 12:52
+Last updated at 08/13/2024 12:53
