@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0cXyA7ANlrZR6K6-ZRiGIw-t500x500.jpg">](https://soundcloud.com/sfamofficial/that-mexican-ot-ft-moneybagg-yo-twisting-fingers-sfam-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-nUnleic1hD4a8oGM-DF1qGA-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-mix-for-ubr-slay)
 
-**Artist**: sfam 
+**Artist**: YEAH MAN 
 
-**Track**: that mexican ot (ft. moneybagg yo) - twisting fingers (sfam remix)
+**Track**: UBR  140bpm to 150bpm MIX 🔥🔥
 
-Last updated at 08/13/2024 09:49
+Last updated at 08/13/2024 09:50
