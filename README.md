@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CTT1ouwb1lM4AtfD-W6IBCg-t500x500.jpg">](https://soundcloud.com/scantraxx/audionoizer-watch-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7aRSi1DHofayVSay-chdU1A-t500x500.jpg">](https://soundcloud.com/giuseppeisgone/change)
 
-**Artist**: SCANTRAXX 
+**Artist**: Giuseppe Luke 
 
-**Track**: Audionoizer - Watch Me
+**Track**: change
 
-Last updated at 08/13/2024 08:36
+Last updated at 08/13/2024 08:37
