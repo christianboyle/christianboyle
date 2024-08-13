@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06ELVE0378I1Dtqx-3kcOJw-t500x500.jpg">](https://soundcloud.com/squired/princess-sonar-vip?in=saxurn/sets/team-serene/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0jNqWmcnCotFMXE-CKC97g-t500x500.jpg">](https://soundcloud.com/warehouse_rave/barnsley-is-the-new-venice)
 
-**Artist**: Squired 
+**Artist**: Warehouse_rave 
 
-**Track**: PRINCESS SONAR (VIP edit)
+**Track**: Losssy - Barnsley Is The New Venice
 
-Last updated at 08/13/2024 16:58
+Last updated at 08/13/2024 16:59
