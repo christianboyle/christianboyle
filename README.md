@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yQL2HZVrlXdYwfv-5qBfYg-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-chalo-metalmetal-marinexp-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uMGC1ufYHdkCz8Mi-ruyQbw-t500x500.jpg">](https://soundcloud.com/transition_ofc/premiere-lysander-the-aztec-beauty-dylan-fogarty-remix-dlr12)
 
-**Artist**: Mixmag 
+**Artist**: TRANSITION 
 
-**Track**: Premiere: Chalo & MetalMetal 'MarinExp' (Club Edit)
+**Track**: PREMIERE: Lysander – The Aztec Beauty (Dylan Fogarty Remix) [DLR12]
 
-Last updated at 08/13/2024 08:31
+Last updated at 08/13/2024 08:32
