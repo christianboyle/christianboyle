@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCWq66bph3Xt0jV9-CfLo7w-t500x500.jpg">](https://soundcloud.com/odyzeymusic/ujuu-myrias-celestia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wk1xLy7hOplizKs4-V7rqDQ-t500x500.jpg">](https://soundcloud.com/street_ritual/trouble)
 
-**Artist**: Odyzey Music 
+**Artist**: Street Ritual 
 
-**Track**: Ujuu & Myrias - Celestia
+**Track**: KTRL - Trouble [Headbang Society Premiere]
 
-Last updated at 08/13/2024 08:49
+Last updated at 08/13/2024 08:50
