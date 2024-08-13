@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfqeqVqXPSyKB2eS-BgGCBw-t500x500.jpg">](https://soundcloud.com/dnzrecords/dj-chris-davies-all-night-all-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azNyz8U72ggTNC8F-JyuAJg-t500x500.jpg">](https://soundcloud.com/stessiebootlegs/touchthesky-hardstyle)
 
-**Artist**: DNZ Records 
+**Artist**: Stessie's Bootlegs 
 
-**Track**: DJ Chris Davies - All Night All Summer
+**Track**: Touch The Sky (feat. Melissa Brooks) [Hardstyle Edit]
 
-Last updated at 08/13/2024 16:49
+Last updated at 08/13/2024 16:50
