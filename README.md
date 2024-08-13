@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CfETYxNaqhSN-0-t500x500.jpg">](https://soundcloud.com/mauro_picotto/like-this-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s8DjYKbqGQH7-0-t500x500.png">](https://soundcloud.com/ferry-corsten/out-of-the-blue-mauro-picotto)
 
-**Artist**: Mauro Picotto 
+**Artist**: ferry-corsten 
 
-**Track**: Like This Like That
+**Track**: System F - Out Of The Blue (Mauro Picotto Remix)
 
-Last updated at 08/13/2024 12:17
+Last updated at 08/13/2024 12:47
