@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjzW17W9ugD4C7bh-TJx1LA-t500x500.jpg">](https://soundcloud.com/aekaemusic/hollowheart-aekae-c-zer-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s8DjYKbqGQH7-0-t500x500.png">](https://soundcloud.com/ferry-corsten/out-of-the-blue-mauro-picotto)
 
-**Artist**: Aekae 
+**Artist**: System F 
 
-**Track**: Porter Robinson - Hollowheart (Aekae & C-ZER Remix)
+**Track**: System F - Out Of The Blue (Mauro Picotto Remix)
 
-Last updated at 08/14/2024 10:31
+Last updated at 08/14/2024 10:34
