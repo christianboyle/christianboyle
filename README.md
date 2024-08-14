@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sw7aaC5oIbevuxsB-ilSb8g-t500x500.jpg">](https://soundcloud.com/slangdogs/sub-zero?in=slangdogs/sets/slang-dogs-sub-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsMIGFnzRuq7NyHC-WyDsCg-t500x500.jpg">](https://soundcloud.com/prod_pk/investor-ft-rl-rice-prod-pk?in=saxurn/sets/team-serene)
 
-**Artist**: Slang Dogs 
+**Artist**: pk (@prod_pk) 
 
-**Track**: Sub Zero
+**Track**: INVESTOR FT RL & RICE PROD PK & SHALLI.mp3
 
-Last updated at 08/14/2024 07:23
+Last updated at 08/14/2024 07:38
