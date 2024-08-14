@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cjQgircPmIoRlnv0-Drgx1w-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/beats-running-through-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvrIVNVWatz2PiRx-oFVoHw-t500x500.jpg">](https://soundcloud.com/riddypop/dummy)
 
-**Artist**: MCCREA 
+**Artist**: RiddyPop 
 
-**Track**: Beats Running Through My Mind
+**Track**: RHYTHMICS X XTASEA - DUMMY
 
-Last updated at 08/14/2024 10:40
+Last updated at 08/14/2024 10:44
