@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BX8WlGLmvDSWhCdy-ag1CZA-t500x500.jpg">](https://soundcloud.com/phrva/lunch?in=saxurn/sets/team-serene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1OglS3yzrE4Zt62b-XZeXUw-t500x500.jpg">](https://soundcloud.com/nightmoderecs/dance?in=saxurn/sets/team-serene)
 
-**Artist**: Phrva 
+**Artist**: TWERL 
 
-**Track**: Billie Eilish - LUNCH (Phrva Flip)
+**Track**: TWERL - DANCE
 
-Last updated at 08/14/2024 07:39
+Last updated at 08/14/2024 07:42
