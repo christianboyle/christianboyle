@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1OglS3yzrE4Zt62b-XZeXUw-t500x500.jpg">](https://soundcloud.com/nightmoderecs/dance?in=saxurn/sets/team-serene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip?in=saxurn/sets/team-serene)
 
-**Artist**: TWERL 
+**Artist**: rSUN 
 
-**Track**: TWERL - DANCE
+**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
 
-Last updated at 08/14/2024 07:42
+Last updated at 08/14/2024 07:45
