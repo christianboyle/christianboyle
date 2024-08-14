@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybs6qvh930biOyyB-4yiqhg-t500x500.jpg">](https://soundcloud.com/rebirth-xanax/epic-brakebeat-pbod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0G0SuyYTyiUQy3HZ-nA0bLw-t500x500.png">](https://soundcloud.com/user-643553014/beach-noir-w-nick-leon-160724)
 
-**Artist**: M 
+**Artist**: NTS Latest 
 
-**Track**: Epic Brakebeat PBOD
+**Track**: BEACH NOIR W/ NICK LEÓN 160724
 
-Last updated at 08/14/2024 08:23
+Last updated at 08/14/2024 08:28
