@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000307799902-ayf8a4-t500x500.jpg">](https://soundcloud.com/weareclosr/weareclosr-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsfzDGmnon2iAKMd-yTz7Ew-t500x500.jpg">](https://soundcloud.com/mart-x-dj/listen)
 
-**Artist**: closr 
+**Artist**: Mart!x 
 
-**Track**: weareclosr (extended)
+**Track**: LISTEN
 
-Last updated at 08/14/2024 14:12
+Last updated at 08/14/2024 14:22
