@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBaR2aRs20Cii2zu-puBy9A-t500x500.jpg">](https://soundcloud.com/rsun_music/madeintyo-ft-aap-ferg-ned-flanders-rsun-flip?in=saxurn/sets/team-serene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i02rTl2F0XCfripG-BqqV6g-t500x500.jpg">](https://soundcloud.com/eaterextras/gunna-fukumean-digested-by-eater?in=saxurn/sets/team-serene)
 
-**Artist**: rSUN 
+**Artist**: Eater 
 
-**Track**: MADEINTYO ft. A$AP FERG - NED FLANDERS (rSUN Flip)
+**Track**: Gunna - fukumean (Digested By Eater)
 
-Last updated at 08/14/2024 07:45
+Last updated at 08/14/2024 08:04
