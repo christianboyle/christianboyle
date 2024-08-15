@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGzNPyyVsFKTgGDl-KjfUcg-t500x500.jpg">](https://soundcloud.com/scottattrill/drifting-in-the-dark-hellfire-vinylgroover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QN4RgP1HHAkHzauL-9yqypg-t500x500.jpg">](https://soundcloud.com/wllwsofficial/something-good)
 
-**Artist**: Scott Attrill aka Vinylgroover 
+**Artist**: WLLWS 
 
-**Track**: Drifting In The Dark (Hellfire)- Vinylgroover
+**Track**: Something Good
 
-Last updated at 08/15/2024 14:48
+Last updated at 08/15/2024 14:49
