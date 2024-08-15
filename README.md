@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmyn7aBoTesRM8JJ-uVoNeA-t500x500.jpg">](https://soundcloud.com/pasti-recordings/free-dl-ponky-like-that-4all-series)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nGzNPyyVsFKTgGDl-KjfUcg-t500x500.jpg">](https://soundcloud.com/scottattrill/drifting-in-the-dark-hellfire-vinylgroover)
 
-**Artist**: Ponky 
+**Artist**: Scott Attrill aka Vinylgroover 
 
-**Track**: FREE DL | Pōnky - THIS MY CHIP (4ALL Series)
+**Track**: Drifting In The Dark (Hellfire)- Vinylgroover
 
-Last updated at 08/15/2024 14:46
+Last updated at 08/15/2024 14:48
