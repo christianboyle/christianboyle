@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sH3ab7HEn8pk0Kxh-l4MIHA-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-megamix-yerbby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vXG2PdzhSUXUcrba-8qQRwg-t500x500.jpg">](https://soundcloud.com/frooot/new-phone-who-dis)
 
-**Artist**: hulaHOOP 
+**Artist**: frooot 
 
-**Track**: hulaHOOP.fm: yerbby megamix
+**Track**: new phone who dis
 
-Last updated at 08/14/2024 14:27
+Last updated at 08/15/2024 08:41
