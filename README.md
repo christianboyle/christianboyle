@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH3h9BVqFsUM-0-t500x500.jpg">](https://soundcloud.com/donatachi/dont-wait)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9lZrBlCnT670zMl-NKLzzA-t500x500.jpg">](https://soundcloud.com/subversecollective/antinegative-no-idols)
 
-**Artist**: Donatachi, D V D 
+**Artist**: SUBVERSE 
 
-**Track**: Don't Wait
+**Track**: anti.negative - no idols
 
-Last updated at 08/15/2024 08:52
+Last updated at 08/15/2024 08:53
