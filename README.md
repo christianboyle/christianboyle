@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9lZrBlCnT670zMl-NKLzzA-t500x500.jpg">](https://soundcloud.com/subversecollective/antinegative-no-idols)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZBa02NDqpMRC37Y-dv7w5A-t500x500.jpg">](https://soundcloud.com/c8o/2me)
 
-**Artist**: SUBVERSE 
+**Artist**: c8o 
 
-**Track**: anti.negative - no idols
+**Track**: 2me (free dl)
 
-Last updated at 08/15/2024 08:53
+Last updated at 08/15/2024 08:55
