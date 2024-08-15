@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vXG2PdzhSUXUcrba-8qQRwg-t500x500.jpg">](https://soundcloud.com/frooot/new-phone-who-dis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GQzTYVgzjOKhppR-a7QdiQ-t500x500.jpg">](https://soundcloud.com/gooddub-bmc/m-stic-tippin)
 
-**Artist**: frooot 
+**Artist**: good dub. 
 
-**Track**: new phone who dis
+**Track**: M?STIC - TIPPIN'
 
-Last updated at 08/15/2024 08:41
+Last updated at 08/15/2024 08:43
