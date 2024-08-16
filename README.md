@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u6VyPr9ThduwiRi6-WUeZhw-t500x500.jpg">](https://soundcloud.com/raveyard-sounds/go-insanev9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozl2Z8zyes30KOjR-5v3alw-t500x500.jpg">](https://soundcloud.com/flashgea/360-party-girl-trance-mix)
 
-**Artist**: Raveyard Sounds 
+**Artist**: Flash 
 
-**Track**: (Hard Techno) Diablo Hard Techno Essentials Demo #3
+**Track**: 360 PARTY GIRL (TRANCE MIX)
 
-Last updated at 08/16/2024 14:32
+Last updated at 08/16/2024 14:33
