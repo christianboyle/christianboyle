@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sH3ab7HEn8pk0Kxh-l4MIHA-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-megamix-yerbby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMzPzFKoDpezoUq7-OYjUHQ-t500x500.jpg">](https://soundcloud.com/lunaa1/lunaa-jagger-better-draft)
 
-**Artist**: hulaHOOP 
+**Artist**: Lunaa 
 
-**Track**: hulaHOOP.fm: yerbby megamix
+**Track**: Lunaa - Jagger
 
-Last updated at 08/17/2024 14:35
+Last updated at 08/17/2024 14:43
