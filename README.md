@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PfWMDzP9A01qF3Ca-brkQ3g-t500x500.jpg">](https://soundcloud.com/bomaus/language-bom-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UdgTzzmgTGSHdI36-kNqKrw-t500x500.jpg">](https://soundcloud.com/user743518617/harder-vol-2)
 
-**Artist**: B.O.M 
+**Artist**: dj moca 
 
-**Track**: LANGUAGE (B.O.M BOOTLEG)
+**Track**: harder vol 2
 
-Last updated at 08/17/2024 16:32
+Last updated at 08/17/2024 16:43
