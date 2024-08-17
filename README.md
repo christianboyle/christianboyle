@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozl2Z8zyes30KOjR-5v3alw-t500x500.jpg">](https://soundcloud.com/flashgea/360-party-girl-trance-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXuUYHwQwyf7-0-t500x500.png">](https://soundcloud.com/ferry-corsten/out-of-the-blue-mauro-picotto)
 
-**Artist**: Flash 
+**Artist**: System F 
 
-**Track**: 360 PARTY GIRL (TRANCE MIX)
+**Track**: Out Of The Blue (Mauro Picotto Remix)
 
-Last updated at 08/17/2024 14:22
+Last updated at 08/17/2024 14:25
