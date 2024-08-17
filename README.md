@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ij44ebGYYwMIMai-PcleNw-t500x500.jpg">](https://soundcloud.com/slangdogs/uicideboy-for-the-last-time-slang-dogs-remix?in=slangdogs/sets/shadow-casket-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abvrAV3rNy90EecL-gEWN5g-t500x500.jpg">](https://soundcloud.com/makewavs/shwilly-x-viskus-airplaned?in=makewavs/sets/homies-vol-3)
 
-**Artist**: Slang Dogs 
+**Artist**: shwILLy x Viskus 
 
-**Track**: $UICIDEBOY$ - For The Last Time (Slang Dogs Remix)
+**Track**: shwILLy x Viskus - Airplaned
 
-Last updated at 08/17/2024 10:12
+Last updated at 08/17/2024 10:13
