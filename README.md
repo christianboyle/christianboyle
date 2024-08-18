@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UdgTzzmgTGSHdI36-kNqKrw-t500x500.jpg">](https://soundcloud.com/user743518617/harder-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jhu58RV5uuzxvNyz-jhNZ6g-t500x500.jpg">](https://soundcloud.com/phuturecollective/varien-warrior-poet)
 
-**Artist**: dj moca 
+**Artist**: Varien 
 
-**Track**: harder vol 2
+**Track**: Varien - Warrior Poet
 
-Last updated at 08/17/2024 16:43
+Last updated at 08/18/2024 09:19
