@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jhu58RV5uuzxvNyz-jhNZ6g-t500x500.jpg">](https://soundcloud.com/phuturecollective/varien-warrior-poet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EE9fpilcNV9GSy59-otJtCg-t500x500.jpg">](https://soundcloud.com/houseviewsmusic/fireball)
 
-**Artist**: Varien 
+**Artist**: Andryx 
 
-**Track**: Varien - Warrior Poet
+**Track**: Andryx - Fireball
 
-Last updated at 08/18/2024 09:19
+Last updated at 08/18/2024 09:20
