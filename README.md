@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wFczKqYLeGvCKy3q-kHBzWg-t500x500.jpg">](https://soundcloud.com/definitepartymaterial/field-motion-nodal-swim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9i1Qo2RzAmI2SBH3-tuqiMw-t500x500.jpg">](https://soundcloud.com/justicehardcore/rob-iyf-nobody-hold-me-new-album-out-now)
 
-**Artist**: definite party material 
+**Artist**: Justice Hardcore 
 
-**Track**: PREMIERE: Field Motion - Nodal Swim [Cloudcore]
+**Track**: Rob IYF & Nobody - Hold Me (NEW ALBUM / OUT NOW)
 
-Last updated at 08/19/2024 11:14
+Last updated at 08/19/2024 12:38
