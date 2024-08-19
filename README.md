@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqNwTZGOS2dgWHFx-1Sd3qQ-t500x500.jpg">](https://soundcloud.com/joveishere/charli-xcx-360-jove-liletski-brat-szn-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1GaZhMHULsPte4e-jmcVqg-t500x500.jpg">](https://soundcloud.com/thatboibailo/acraze-heard-it-like-this-bailo-dabow-remix)
 
-**Artist**: JOVE 
+**Artist**: BAILO 
 
-**Track**: Charli XCX - 360 (JOVE & Liletski BRAT SZN Remix)
+**Track**: Acraze - Heard It Like This (Bailo & Dabow Remix)
 
-Last updated at 08/19/2024 12:44
+Last updated at 08/19/2024 12:49
