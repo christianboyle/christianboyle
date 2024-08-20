@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0nbdOGbwgCQu2BdZ-ZmDHaw-t500x500.jpg">](https://soundcloud.com/officialwerdna/tate-mcrae-greedy-dna-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqNwTZGOS2dgWHFx-1Sd3qQ-t500x500.jpg">](https://soundcloud.com/joveishere/charli-xcx-360-jove-liletski-brat-szn-remix-1)
 
-**Artist**: 𝘿𝙉𝘼 
+**Artist**: JOVE 
 
-**Track**: Tate Mcrae - Greedy (DNA REMIX)
+**Track**: Charli XCX - 360 (JOVE & Liletski BRAT SZN Remix)
 
-Last updated at 08/20/2024 15:39
+Last updated at 08/20/2024 15:42
