@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqNwTZGOS2dgWHFx-1Sd3qQ-t500x500.jpg">](https://soundcloud.com/joveishere/charli-xcx-360-jove-liletski-brat-szn-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXuUYHwQwyf7-0-t500x500.png">](https://soundcloud.com/ferry-corsten/out-of-the-blue-mauro-picotto)
 
-**Artist**: JOVE 
+**Artist**: System F 
 
-**Track**: Charli XCX - 360 (JOVE & Liletski BRAT SZN Remix)
+**Track**: Out Of The Blue (Mauro Picotto Remix)
 
-Last updated at 08/20/2024 15:42
+Last updated at 08/20/2024 15:46
