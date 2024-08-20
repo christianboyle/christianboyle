@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uihDMeBrLRIgik5y-p4Es2w-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/audioscribe-codeswitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzKtzMwVtvzZPky7-IUVk0w-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stogie)
 
-**Artist**: Audioscribe 
+**Artist**: YUSSI 
 
-**Track**: Codeswitch (ft. Dylan Longworth)
+**Track**: YUSSI - STOGIE [FREE DOWNLOAD]
 
-Last updated at 08/20/2024 08:17
+Last updated at 08/20/2024 08:18
