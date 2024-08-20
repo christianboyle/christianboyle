@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cjQgircPmIoRlnv0-Drgx1w-t500x500.jpg">](https://soundcloud.com/jamesmccrea98/beats-running-through-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VRAa2XqTlCVOpkK8-tA02SA-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-d-v-d-megamix)
 
-**Artist**: MCCREA 
+**Artist**: hulaHOOP 
 
-**Track**: Beats Running Through My Mind
+**Track**: hulaHOOP.fm: D V D megamix
 
-Last updated at 08/20/2024 15:53
+Last updated at 08/20/2024 15:56
