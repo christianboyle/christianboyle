@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-nUnleic1hD4a8oGM-DF1qGA-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-mix-for-ubr-slay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uihDMeBrLRIgik5y-p4Es2w-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/audioscribe-codeswitch)
 
-**Artist**: YEAH MAN 
+**Artist**: Audioscribe 
 
-**Track**: UBR  140bpm to 150bpm MIX 🔥🔥
+**Track**: Codeswitch (ft. Dylan Longworth)
 
-Last updated at 08/20/2024 08:15
+Last updated at 08/20/2024 08:17
