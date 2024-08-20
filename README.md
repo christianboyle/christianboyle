@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzKtzMwVtvzZPky7-IUVk0w-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stogie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4tR59SppPCPrjaf-5xCarw-t500x500.jpg">](https://soundcloud.com/trxggx/ratata-trxggx-flip)
 
-**Artist**: YUSSI 
+**Artist**: TRXGGX 
 
-**Track**: YUSSI - STOGIE [FREE DOWNLOAD]
+**Track**: RATATA [TRXGGX Flip]
 
-Last updated at 08/20/2024 08:18
+Last updated at 08/20/2024 08:19
