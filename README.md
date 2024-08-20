@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DjayIK7Nm5ozaNIy-MigeMw-t500x500.jpg">](https://soundcloud.com/woddofficial/song-request-wodd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VRAa2XqTlCVOpkK8-tA02SA-t500x500.jpg">](https://soundcloud.com/hulahoop-nyc/hulahoopfm-d-v-d-megamix)
 
-**Artist**: WODD 
+**Artist**: hulaHOOP 
 
-**Track**: Ray Volpe - SONG REQUEST (WODD REMIX)
+**Track**: hulaHOOP.fm: D V D megamix
 
-Last updated at 08/20/2024 13:54
+Last updated at 08/20/2024 13:55
