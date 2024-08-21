@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7eseBJTdDc5Zwcp1-sXWkeg-t500x500.jpg">](https://soundcloud.com/official-rooftop/hexacube-summer-in-fukuoka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GCSQGD487Hvzz2p8-C8reZg-t500x500.jpg">](https://soundcloud.com/kula_1/kula_breakbeat_uk_bass_17)
 
-**Artist**: Hexacube 
+**Artist**: KULA 
 
-**Track**: Hexacube - Summer in Fukuoka 2048
+**Track**: KULA_Breakbeat_UK_Bass_17_
 
-Last updated at 08/21/2024 08:50
+Last updated at 08/21/2024 08:51
