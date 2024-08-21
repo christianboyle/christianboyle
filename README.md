@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4tR59SppPCPrjaf-5xCarw-t500x500.jpg">](https://soundcloud.com/trxggx/ratata-trxggx-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOlyTwFHdJVZUJZK-UvlPdA-t500x500.jpg">](https://soundcloud.com/chris-champagne-816999085/scott-brown-special-d-elysium-champagne-edit-wip)
 
-**Artist**: TRXGGX 
+**Artist**: Chris Champagne 
 
-**Track**: RATATA [TRXGGX Flip]
+**Track**: Scott Brown & Special D- Elysium (Champagne Edit) WIP
 
-Last updated at 08/20/2024 16:27
+Last updated at 08/21/2024 08:45
