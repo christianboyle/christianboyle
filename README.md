@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6eSDEJVDpgmdsU1d-FiHg3g-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/bnzn-x-softdrive-nights-like-this2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xlHs5DeaBsNE-0-t500x500.png">](https://soundcloud.com/karl-bzdusek/lose-control)
 
-**Artist**: polyamor 
+**Artist**: Hyper-X 
 
-**Track**: Softdrive, BNZN - Nights Like This
+**Track**: Lose Control
 
-Last updated at 08/22/2024 07:20
+Last updated at 08/22/2024 07:21
