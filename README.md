@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrLEm66xnkt156zo-cGn4vw-t500x500.jpg">](https://soundcloud.com/officialflozone/fred-again-x-lil-yachty-x-overmono-stayinit-flozone-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix)
 
-**Artist**: flozone 
+**Artist**: Avril Lavigne, Gin and Sonic 
 
-**Track**: fred again x lil yachty x overmono - stayinit (flozone flip)
+**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
 
-Last updated at 08/23/2024 10:50
+Last updated at 08/23/2024 10:51
