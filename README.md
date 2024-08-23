@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzKtzMwVtvzZPky7-IUVk0w-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stogie?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6COLPh7W1Ljy-0-t500x500.jpg">](https://soundcloud.com/jxxyy/anglerfish?in=jxxyy/sets/try-853834938)
 
-**Artist**: YUSSI 
+**Artist**: Joeyy 
 
-**Track**: YUSSI - STOGIE [FREE DOWNLOAD]
+**Track**: Anglerfish
 
-Last updated at 08/23/2024 15:57
+Last updated at 08/23/2024 16:38
