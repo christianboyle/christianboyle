@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsHGRe4aEF4iIAKk-DxrxsQ-t500x500.png">](https://soundcloud.com/clubheartbroken/surf-2-glory-faf-maruwa-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFgoplivDaOLzzrN-wUXyIg-t500x500.jpg">](https://soundcloud.com/alterslashego/lizdek-lindie-not-enough)
 
-**Artist**: Surf 2 Glory 
+**Artist**: Alter/Ego 
 
-**Track**: Surf 2 Glory - FAF (Maruwa Remix)
+**Track**: Lizdek & Lindie - Not Enough
 
-Last updated at 08/23/2024 08:16
+Last updated at 08/23/2024 08:17
