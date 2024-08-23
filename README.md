@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmwzuCKSahPzkziU-XzvhgA-t500x500.jpg">](https://soundcloud.com/dopaminewifi/t-e-s-t-p-r-e-s-s-ibiza2024?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U6kegzfrJoyM9F7E-qS6qnA-t500x500.jpg">](https://soundcloud.com/thefactory93/vntm-the-swarm?in=saxurn/sets/drop-that-zero)
 
-**Artist**: DopamineWIFI 
+**Artist**: VNTM 
 
-**Track**: t e s t p r e s s - Ibiza2024
+**Track**: VNTM - The Swarm
 
-Last updated at 08/23/2024 14:32
+Last updated at 08/23/2024 14:37
