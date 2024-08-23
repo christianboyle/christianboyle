@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6taYmWo3kAt-0-t500x500.jpg">](https://soundcloud.com/fracture-official/clissold-2024-remaster?in=saxurn/sets/drop-that-zero)
 
-**Artist**: Avril Lavigne, Gin and Sonic 
+**Artist**: Fracture, Neptune 
 
-**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
+**Track**: Clissold (2024 Remaster)
 
-Last updated at 08/23/2024 17:17
+Last updated at 08/23/2024 18:53
