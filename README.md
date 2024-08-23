@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6COLPh7W1Ljy-0-t500x500.jpg">](https://soundcloud.com/jxxyy/anglerfish?in=jxxyy/sets/try-853834938)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcD3VeShGtdq-0-t500x500.jpg">](https://soundcloud.com/jxxyy/tsa?in=jxxyy/sets/try-853834938)
 
 **Artist**: Joeyy 
 
-**Track**: Anglerfish
+**Track**: TSA
 
-Last updated at 08/23/2024 16:38
+Last updated at 08/23/2024 16:42
