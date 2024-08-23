@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrLEm66xnkt156zo-cGn4vw-t500x500.jpg">](https://soundcloud.com/officialflozone/fred-again-x-lil-yachty-x-overmono-stayinit-flozone-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIMhuEunt5RV-0-t500x500.png">](https://soundcloud.com/taylortorrencemusic/to-the-underground)
 
-**Artist**: flozone 
+**Artist**: Taylor Torrence and Kristian Llov 
 
-**Track**: fred again x lil yachty x overmono - stayinit (flozone flip)
+**Track**: To The Underground
 
-Last updated at 08/23/2024 08:18
+Last updated at 08/23/2024 08:19
