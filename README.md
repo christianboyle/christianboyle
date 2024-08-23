@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWsXY05YqzKqC2eT-mwTaXw-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/dali-x-tatsunoshin-remix-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix?in=saxurn/sets/drop-that-zero)
 
-**Artist**: Tatsunoshin 
+**Artist**: Avril Lavigne, Gin and Sonic 
 
-**Track**: DALI -  ムーンライト伝説 (藍良あれれ X Tatsunoshin Remix) [Extended Mix]
+**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
 
-Last updated at 08/23/2024 14:11
+Last updated at 08/23/2024 14:26
