@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6taYmWo3kAt-0-t500x500.jpg">](https://soundcloud.com/fracture-official/clissold-2024-remaster?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9toolQY0YlE-0-t500x500.png">](https://soundcloud.com/r4kidormusic/miss-you-1?in=saxurn/sets/drop-that-zero)
 
-**Artist**: Fracture, Neptune 
+**Artist**: R4KIDOR 
 
-**Track**: Clissold (2024 Remaster)
+**Track**: Miss You
 
-Last updated at 08/23/2024 18:53
+Last updated at 08/23/2024 18:59
