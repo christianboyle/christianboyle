@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U6kegzfrJoyM9F7E-qS6qnA-t500x500.jpg">](https://soundcloud.com/thefactory93/vntm-the-swarm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrLEm66xnkt156zo-cGn4vw-t500x500.jpg">](https://soundcloud.com/officialflozone/fred-again-x-lil-yachty-x-overmono-stayinit-flozone-flip-1)
 
-**Artist**: VNTM 
+**Artist**: flozone 
 
-**Track**: VNTM - The Swarm
+**Track**: fred again x lil yachty x overmono - stayinit (flozone flip)
 
-Last updated at 08/23/2024 09:57
+Last updated at 08/23/2024 10:50
