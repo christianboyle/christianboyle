@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmwzuCKSahPzkziU-XzvhgA-t500x500.jpg">](https://soundcloud.com/dopaminewifi/t-e-s-t-p-r-e-s-s-ibiza2024?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lE5qNLQxkIkL4xlA-3sFoRQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/supercell-x-tatsunoshin-remix-extended-mix)
 
-**Artist**: DopamineWIFI 
+**Artist**: Tatsunoshin 
 
-**Track**: t e s t p r e s s - Ibiza2024
+**Track**: supercell - 君の知らない物語 (藍良あれれ x Tatsunoshin Remix) [Extended Mix]
 
-Last updated at 08/23/2024 13:59
+Last updated at 08/23/2024 14:09
