@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9toolQY0YlE-0-t500x500.png">](https://soundcloud.com/r4kidormusic/miss-you-1?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWaFvCltSWTXJHE3-qHstJw-t500x500.jpg">](https://soundcloud.com/iamwolfmagic/dog-blood-break-law-wolfmagic-edit?in=saxurn/sets/drop-that-zero)
 
-**Artist**: R4KIDOR 
+**Artist**: wolfmagic 
 
-**Track**: Miss You
+**Track**: DOG BLOOD - BREAK LAW [wolfmagic edit]
 
-Last updated at 08/23/2024 14:48
+Last updated at 08/23/2024 15:25
