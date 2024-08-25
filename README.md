@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wZxiIjUyKTJt8TM9-8YptfQ-t500x500.jpg">](https://soundcloud.com/user-732083412/soft-weather-aya-vybz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oGbQ0lmw90zYqg2f-zFccvw-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-redwave-disrespect)
 
-**Artist**: bino's bin 
+**Artist**: M?STIC & REDWAVE. 
 
-**Track**: Soft Weather (Aya & Vybz)
+**Track**: M?STIC & REDWAVE. - DISRESPECT
 
-Last updated at 08/25/2024 12:58
+Last updated at 08/25/2024 14:52
