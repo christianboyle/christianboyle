@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y8edMlPDpMzykoKF-zg3afA-t500x500.jpg">](https://soundcloud.com/badrops/benassi-bros-feat-dhany-hit-my-heart-badrops-x-wrigley-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abvrAV3rNy90EecL-gEWN5g-t500x500.jpg">](https://soundcloud.com/makewavs/jakattak-tuk-n-duk)
 
-**Artist**: Badrops 
+**Artist**: Jakattak 
 
-**Track**: Benassi Bros Feat. Dhany - Hit My Heart (BADROPS x WRIGLEY Remix)
+**Track**: JakAttak - Tuk N' Duk
 
-Last updated at 08/25/2024 14:55
+Last updated at 08/25/2024 14:57
