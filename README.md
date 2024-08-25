@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrjfdpMTuDQhEmEu-jncGzQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/evolushawn-phydra-nitro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ziVdTjyj8AoHLoY-I9tQzA-t500x500.jpg">](https://soundcloud.com/senditsquad/metamorphix-consciousness)
 
-**Artist**: EvoluShawn, Phydra 
+**Artist**: Metamorphix 
 
-**Track**: EvoluShawn & Phydra - Nitro
+**Track**: Metamorphix - Consciousness
 
-Last updated at 08/25/2024 15:00
+Last updated at 08/25/2024 15:03
