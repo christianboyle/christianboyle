@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IkUids74IlwKdysE-yUl6TA-t500x500.jpg">](https://soundcloud.com/nazaar-waves/brokix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y8edMlPDpMzykoKF-zg3afA-t500x500.jpg">](https://soundcloud.com/badrops/benassi-bros-feat-dhany-hit-my-heart-badrops-x-wrigley-remix)
 
-**Artist**: NAZAAR 
+**Artist**: Badrops 
 
-**Track**: SUEÑOS PERDIDOS (NAZAAR REMIX)
+**Track**: Benassi Bros Feat. Dhany - Hit My Heart (BADROPS x WRIGLEY Remix)
 
-Last updated at 08/25/2024 14:54
+Last updated at 08/25/2024 14:55
