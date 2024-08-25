@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ziVdTjyj8AoHLoY-I9tQzA-t500x500.jpg">](https://soundcloud.com/senditsquad/metamorphix-consciousness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jm000cFBTFP9uKH-GWxSwQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/wyndeupclownflower)
 
-**Artist**: Metamorphix 
+**Artist**: Wynde Up 
 
-**Track**: Metamorphix - Consciousness
+**Track**: Wynde Up - Clown Flower
 
-Last updated at 08/25/2024 15:03
+Last updated at 08/25/2024 15:06
