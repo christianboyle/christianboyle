@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abvrAV3rNy90EecL-gEWN5g-t500x500.jpg">](https://soundcloud.com/makewavs/jakattak-tuk-n-duk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q53CntY6MtSPfjYw-9myXag-t500x500.jpg">](https://soundcloud.com/drippinginroses/tuneyvy-solina-forever)
 
-**Artist**: Jakattak 
+**Artist**: Tuneyvy, Solina 
 
-**Track**: JakAttak - Tuk N' Duk
+**Track**: Tuneyvy, Solina - forever.
 
-Last updated at 08/25/2024 14:57
+Last updated at 08/25/2024 14:58
