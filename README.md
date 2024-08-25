@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Md9l9QvsKvc8zq97-dvl0rA-t500x500.jpg">](https://soundcloud.com/darren-omnet-account/alleine-darren-omnet-schranz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q53CntY6MtSPfjYw-9myXag-t500x500.jpg">](https://soundcloud.com/drippinginroses/tuneyvy-solina-forever)
 
-**Artist**: Darren Omnet 
+**Artist**: Tuneyvy, Solina 
 
-**Track**: ALLEINE (Darren Omnet Schranz Edit)
+**Track**: Tuneyvy, Solina - forever.
 
-Last updated at 08/25/2024 15:07
+Last updated at 08/25/2024 15:11
