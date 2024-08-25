@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q53CntY6MtSPfjYw-9myXag-t500x500.jpg">](https://soundcloud.com/drippinginroses/tuneyvy-solina-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrjfdpMTuDQhEmEu-jncGzQ-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/evolushawn-phydra-nitro)
 
-**Artist**: Tuneyvy, Solina 
+**Artist**: EvoluShawn, Phydra 
 
-**Track**: Tuneyvy, Solina - forever.
+**Track**: EvoluShawn & Phydra - Nitro
 
-Last updated at 08/25/2024 14:58
+Last updated at 08/25/2024 15:00
