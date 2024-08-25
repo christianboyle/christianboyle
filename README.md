@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FhugNFfkefpAme0W-66RjFQ-t500x500.jpg">](https://soundcloud.com/beatlabradio/kurei-live-from-shambhala-exclusive-mix-beat-lab-radio-477)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BM3TdSnfpxkHkXWu-qSQO8Q-t500x500.jpg">](https://soundcloud.com/jadudala/alexis-b-holding-on-jadu248)
 
-**Artist**: Beat Lab Radio 
+**Artist**: Alexis B 
 
-**Track**: KUREI (Live From Shambhala) - Exclusive Mix - Beat Lab Radio 477
+**Track**: Alexis B - Holding On (JADŪ248)
 
-Last updated at 08/24/2024 10:00
+Last updated at 08/25/2024 12:55
