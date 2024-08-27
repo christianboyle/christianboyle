@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EHuQZ6EX6RygnKx7-X0AFoQ-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-featuring-maralara-guestmix-08252024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KziRCtH5jEmUrNen-NvLcKA-t500x500.png">](https://soundcloud.com/user-643553014/field-research-w-gyrofield-3)
 
-**Artist**: datafruits 
+**Artist**: NTS Latest 
 
-**Track**: Radio Show With Cralias (featuring Maralara Guestmix) 08252024
+**Track**: Field Research w/ Gyrofield: These Heavens 260824
 
-Last updated at 08/27/2024 17:32
+Last updated at 08/27/2024 18:03
