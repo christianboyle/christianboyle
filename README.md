@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUD86W9Vl5tgrAMX-bp7Slg-t500x500.jpg">](https://soundcloud.com/uberjakd/off-the-radar-uberjakd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LP1vwG9gwsDzZOi5-6WLl5w-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/cardination-moshpit)
 
-**Artist**: Uberjakd 
+**Artist**: Cardination 
 
-**Track**: Off The Radar
+**Track**: Cardination - Moshpit
 
-Last updated at 08/27/2024 17:26
+Last updated at 08/27/2024 17:27
