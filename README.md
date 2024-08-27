@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SmCAS7ZpaRXZPsp2-wIAwMQ-t500x500.jpg">](https://soundcloud.com/rhinobetatron/15-rhino-betatron-mikerohdos)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XLQ80Itklgz80rfW-UCgmaQ-t500x500.jpg">](https://soundcloud.com/whosag/rufus-du-sol-innerbloom-ag-reboot)
 
-**Artist**: Rhino Betatron 
+**Artist**: AG 
 
-**Track**: 15 Rhino Betatron & Mikerohdos - Reverse Psychology
+**Track**: Rufus Du Sol - Innerbloom (AG Reboot)
 
-Last updated at 08/27/2024 17:30
+Last updated at 08/27/2024 17:31
