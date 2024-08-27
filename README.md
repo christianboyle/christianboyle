@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BM3TdSnfpxkHkXWu-qSQO8Q-t500x500.jpg">](https://soundcloud.com/jadudala/alexis-b-holding-on-jadu248)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4eKMiqORYaoa7UHo-VU76GA-t500x500.jpg">](https://soundcloud.com/camouflybeats/b2b)
 
-**Artist**: Alexis B 
+**Artist**: camoufly 
 
-**Track**: Alexis B - Holding On (JADŪ248)
+**Track**: Charli xcx - B2b (camoufly Remix)
 
-Last updated at 08/25/2024 15:13
+Last updated at 08/27/2024 16:43
