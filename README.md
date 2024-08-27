@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGF4qzVOzdho-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/lost-in-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dbj5MXWFyzM5us2b-RaDNUw-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/alice-deejay-better-off-alone-olly-james-techno-rework-1)
 
-**Artist**: Avi8 
+**Artist**: Olly James 
 
-**Track**: Lost In Time
+**Track**: Alice Deejay - Better Off Alone (Olly James Techno Rework)
 
-Last updated at 08/27/2024 17:24
+Last updated at 08/27/2024 17:25
