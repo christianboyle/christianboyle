@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XLQ80Itklgz80rfW-UCgmaQ-t500x500.jpg">](https://soundcloud.com/whosag/rufus-du-sol-innerbloom-ag-reboot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EHuQZ6EX6RygnKx7-X0AFoQ-t500x500.jpg">](https://soundcloud.com/datafruits/radio-show-with-cralias-featuring-maralara-guestmix-08252024)
 
-**Artist**: AG 
+**Artist**: datafruits 
 
-**Track**: Rufus Du Sol - Innerbloom (AG Reboot)
+**Track**: Radio Show With Cralias (featuring Maralara Guestmix) 08252024
 
-Last updated at 08/27/2024 17:31
+Last updated at 08/27/2024 17:32
