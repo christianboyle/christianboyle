@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9tSfQNB8YXv0iuR-gEj8fg-t500x500.jpg">](https://soundcloud.com/darn84/gouryella-gouryella-tsunami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vwiBy3Qv7JhkKlXb-tvkjVg-t500x500.jpg">](https://soundcloud.com/eatermusic/diplo-gta-boy-oh-boy-digested-by-eater)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Eater 
 
-**Track**: Gouryella - Gouryella - Tsunami (May 1999)
+**Track**: Diplo & GTA - Boy Oh Boy (Digested By Eater)
 
-Last updated at 08/28/2024 13:31
+Last updated at 08/28/2024 13:39
