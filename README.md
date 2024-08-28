@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VdL315mn8POd03Vf-wSP3wQ-t500x500.jpg">](https://soundcloud.com/geminithealchemist/breaking-strongholds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9tSfQNB8YXv0iuR-gEj8fg-t500x500.jpg">](https://soundcloud.com/darn84/gouryella-gouryella-tsunami)
 
-**Artist**: GEMiNi THE ALCHEMiST 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: BREAKiNG STRONGHOLDS (prod. delusionalpath)
+**Track**: Gouryella - Gouryella - Tsunami (May 1999)
 
-Last updated at 08/27/2024 18:07
+Last updated at 08/28/2024 13:31
