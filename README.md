@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvrIVNVWatz2PiRx-oFVoHw-t500x500.jpg">](https://soundcloud.com/rhythmics/dummy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIklJRQAxm8Z0k26-1o1XCA-t500x500.jpg">](https://soundcloud.com/helixtears/2st)
 
-**Artist**: Rhythmics & Xtasea 
+**Artist**: helix tears 
 
-**Track**: RHYTHMICS x XTASEA - DUMMY
+**Track**: rhythmics + 8485 - 2steps
 
-Last updated at 08/30/2024 14:29
+Last updated at 08/30/2024 14:30
