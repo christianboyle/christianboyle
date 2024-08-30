@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ij44ebGYYwMIMai-PcleNw-t500x500.jpg">](https://soundcloud.com/slangdogs/fat-nick-x-shakewell-pemex-slang-dogs-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Xa2EpNT69ygrUgz-Uu2ZBQ-t500x500.jpg">](https://soundcloud.com/cozykevvv/ignite)
 
-**Artist**: Slang Dogs 
+**Artist**: cozy kev 
 
-**Track**: Fat Nick x Shakewell - Pemex (Slang Dogs Remix)
+**Track**: IGNITE
 
-Last updated at 08/30/2024 18:03
+Last updated at 08/30/2024 18:05
