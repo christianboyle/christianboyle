@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S7b83hZelReA9lRh-KyV88g-t500x500.jpg">](https://soundcloud.com/s3rl/history-maker-vital-force-remix)
 
-**Artist**: Da’Quay Beats 
+**Artist**: S3RL 
 
-**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
+**Track**: History Maker (Vital Force Remix) - Brisk & S3RL
 
-Last updated at 08/30/2024 18:11
+Last updated at 08/30/2024 18:14
