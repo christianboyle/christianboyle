@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LrmPqLLzJdJOU8ne-j7amgA-t500x500.jpg">](https://soundcloud.com/rhythmics/nextstay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XFyGyHEnyCntqHcM-lkpJyA-t500x500.jpg">](https://soundcloud.com/rhythmics/sunshine)
 
 **Artist**: Rhythmics 
 
-**Track**: 源屋 - NEXT STAY (Rhythmics 2024 Remix)
+**Track**: Sunshine (feat. Xtasea)
 
-Last updated at 08/30/2024 17:37
+Last updated at 08/30/2024 17:48
