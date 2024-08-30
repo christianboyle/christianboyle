@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QYsuzatzMZ9xVCbf-Hpr0xw-t500x500.jpg">](https://soundcloud.com/uprecords2/knas-24-richtanner-santo-hedspin-and-thugli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZwRv8Rwsv5Lcrt3-MysQUQ-t500x500.jpg">](https://soundcloud.com/ruxxi/fighting-my-demons-vanda-x-ruxxi)
 
-**Artist**: Up. Records 
+**Artist**: VANDA & Ruxxi 
 
-**Track**: KNAS 24’ - RICHTANNER®, SANTO, HEDSPIN AND THUGLI
+**Track**: Fighting My Demons (VANDA & Ruxxi Remix)
 
-Last updated at 08/30/2024 14:16
+Last updated at 08/30/2024 14:17
