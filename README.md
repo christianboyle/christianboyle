@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lwZguEC6q3SEaofS-v3nymg-t500x500.jpg">](https://soundcloud.com/underd0ge/888style)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKpC3FCx2jSy-0-t500x500.png">](https://soundcloud.com/bladee1000/mean-girls)
 
-**Artist**: underd0g 
+**Artist**: Bladee 
 
-**Track**: 888style w/ lustrafemme
+**Track**: Mean Girls
 
-Last updated at 08/30/2024 17:28
+Last updated at 08/30/2024 17:29
