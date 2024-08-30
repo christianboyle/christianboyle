@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BM3TdSnfpxkHkXWu-qSQO8Q-t500x500.jpg">](https://soundcloud.com/jadudala/alexis-b-holding-on-jadu248)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HauoW0k6Kouyb9hp-U8b86A-t500x500.jpg">](https://soundcloud.com/daquaybeats/sam-hyde-christ-dillinger)
 
-**Artist**: Alexis B 
+**Artist**: Da’Quay Beats 
 
-**Track**: Alexis B - Holding On (JADŪ248)
+**Track**: Sam Hyde & Christ Dillinger - Bouncin N Zoomin (Prod. Danny G)
 
-Last updated at 08/30/2024 18:10
+Last updated at 08/30/2024 18:11
