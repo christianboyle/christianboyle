@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGF4qzVOzdho-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/lost-in-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/thewayweusedtobe)
 
-**Artist**: Avi8 
+**Artist**: Squired 
 
-**Track**: Lost In Time
+**Track**: the way we used to be
 
-Last updated at 08/30/2024 18:06
+Last updated at 08/30/2024 18:08
