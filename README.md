@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hccTyeOgcVpKMge-6LwNVg-t500x500.jpg">](https://soundcloud.com/weirdnxc/call-m3-m4yb?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nECunL3zcxKjj7J9-Bve2OQ-t500x500.jpg">](https://soundcloud.com/gasoiid/heartskipppp?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: gasoiid 
 
-**Track**: call m3 m4yb⠀(+ ѕєяισυѕ)
+**Track**: ponibbi - HEARTSKIP (purityleech & gasoiid flip) [FULL ALBUM OUT NOW]
 
-Last updated at 08/30/2024 17:13
+Last updated at 08/30/2024 17:16
