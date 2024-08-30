@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f0Gd8Jqbb1tvdrFs-yX0w6A-t500x500.jpg">](https://soundcloud.com/mia-163231659/guess-x-new-bottega-mashup-charli-xcx-x-azealia-banks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/mssg-in-a-bottl)
 
-**Artist**: DUTCH COYOTE 
+**Artist**: nightcore4totalsluts 
 
-**Track**: GUESS X NEW BOTTEGA MASHUP CHARLI XCX X AZEALIA BANKS
+**Track**: mssg In A Bottl⠀(+ιᥲᥒ ᑲυᑯᑯιє)
 
-Last updated at 08/30/2024 18:49
+Last updated at 08/30/2024 18:50
