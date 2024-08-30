@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93Tmd9lnom9SFEH5-Bl6SSg-t500x500.jpg">](https://soundcloud.com/bennett-gauthier/mommm-dipprs-doing-360s-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKpC3FCx2jSy-0-t500x500.png">](https://soundcloud.com/bladee1000/mean-girls)
 
-**Artist**: dippr 
+**Artist**: Bladee 
 
-**Track**: mommm dipprs doing 360s again!!
+**Track**: Mean Girls
 
-Last updated at 08/30/2024 18:27
+Last updated at 08/30/2024 18:29
