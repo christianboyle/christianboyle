@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/thewayweusedtobe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IkUids74IlwKdysE-yUl6TA-t500x500.jpg">](https://soundcloud.com/nazaar-waves/brokix)
 
-**Artist**: Squired 
+**Artist**: NAZAAR 
 
-**Track**: the way we used to be
+**Track**: SUEÑOS PERDIDOS (NAZAAR REMIX)
 
-Last updated at 08/30/2024 09:18
+Last updated at 08/30/2024 09:21
