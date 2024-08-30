@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KziRCtH5jEmUrNen-NvLcKA-t500x500.png">](https://soundcloud.com/user-643553014/field-research-w-gyrofield-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VdL315mn8POd03Vf-wSP3wQ-t500x500.jpg">](https://soundcloud.com/geminithealchemist/breaking-strongholds)
 
-**Artist**: NTS Latest 
+**Artist**: GEMiNi THE ALCHEMIST 
 
-**Track**: Field Research w/ Gyrofield: These Heavens 260824
+**Track**: BREAKiNG STRONGHOLDS (prod. delusionalpath)
 
-Last updated at 08/30/2024 09:24
+Last updated at 08/30/2024 09:57
