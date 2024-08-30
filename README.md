@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/n0b0dys-perf?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qiexOA8otA0KsNyi-u1jxVA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-ferg-aap-rocky-shabba-mstic-remix-3)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: M?STIC 
 
-**Track**: n0b0dy's perf
+**Track**: A$AP FERG & A$AP ROCKY - SHABBA (M?STIC REMIX)
 
-Last updated at 08/30/2024 17:22
+Last updated at 08/30/2024 17:23
