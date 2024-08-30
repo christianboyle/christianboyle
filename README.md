@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kycnQ3Wfjqyaww9v-G31bPQ-t500x500.jpg">](https://soundcloud.com/longjawns/dogwater-la-warehouse-live-6-15-24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HhJpk1rIyXDJMqUN-L3kUfw-t500x500.jpg">](https://soundcloud.com/sumsimpl/tdro)
 
-**Artist**: JAWNS 
+**Artist**: sum.simpl 
 
-**Track**: Dogwater LA Warehouse Live 6-15-24
+**Track**: Busta Flip
 
-Last updated at 08/30/2024 10:01
+Last updated at 08/30/2024 14:15
