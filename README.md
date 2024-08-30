@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XFyGyHEnyCntqHcM-lkpJyA-t500x500.jpg">](https://soundcloud.com/rhythmics/sunshine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/redddd?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
 
-**Artist**: Rhythmics 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Sunshine (feat. Xtasea)
+**Track**: redddd⠀(+ sєяισυѕ)
 
-Last updated at 08/30/2024 18:41
+Last updated at 08/30/2024 18:45
