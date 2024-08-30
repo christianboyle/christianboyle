@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HhJpk1rIyXDJMqUN-L3kUfw-t500x500.jpg">](https://soundcloud.com/sumsimpl/tdro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QYsuzatzMZ9xVCbf-Hpr0xw-t500x500.jpg">](https://soundcloud.com/uprecords2/knas-24-richtanner-santo-hedspin-and-thugli)
 
-**Artist**: sum.simpl 
+**Artist**: Up. Records 
 
-**Track**: Busta Flip
+**Track**: KNAS 24’ - RICHTANNER®, SANTO, HEDSPIN AND THUGLI
 
-Last updated at 08/30/2024 14:15
+Last updated at 08/30/2024 14:16
