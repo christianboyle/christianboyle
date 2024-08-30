@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQXWVBYieyDyPWW1-pajPBQ-t500x500.jpg">](https://soundcloud.com/thefactory93/connor-mikami-live-skyline-festival-arts-district-stage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ENHgu18LBXwrTeiX-Q2ySjA-t500x500.jpg">](https://soundcloud.com/squired/thewayweusedtobe)
 
-**Artist**: Factory 93 
+**Artist**: Squired 
 
-**Track**: Connor Mikami Live @ Skyline Festival (Arts District Stage)
+**Track**: the way we used to be
 
-Last updated at 08/28/2024 13:41
+Last updated at 08/30/2024 09:18
