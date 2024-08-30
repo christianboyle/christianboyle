@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/sh0werrrz?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBR5qqrj5LtWKx6u-dxdykA-t500x500.jpg">](https://soundcloud.com/twonski/charli-xcx-club-classics-twonski-edit)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: TWONSKi 
 
-**Track**: sh0werrrz
+**Track**: Charli XCX - Club Classics (TWONSKi REMiX)
 
-Last updated at 08/30/2024 18:47
+Last updated at 08/30/2024 18:48
