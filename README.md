@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCpYdkeKPDDoXrc3-N7Jyeg-t500x500.jpg">](https://soundcloud.com/rhythmics/rooftopsremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M5CsrfP38CTgjRbR-bUwGeg-t500x500.jpg">](https://soundcloud.com/future-bassnet/xewn-falling-deeper-future-bass-release)
 
-**Artist**: Xtasea 
+**Artist**: xewn 
 
-**Track**: Xtasea- Rooftops (Rhythmics Remix)
+**Track**: Xewn - Falling Deeper [Future Bass Release]
 
-Last updated at 08/30/2024 14:20
+Last updated at 08/30/2024 14:21
