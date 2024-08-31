@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hh3xUkuKczyFEM5z-zMAAZw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-marcel-reix-backroom-version-3-mrx01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZXailyl4QPvDlLwe-rxkZuw-t500x500.jpg">](https://soundcloud.com/cosmicbeats/laughing-w-the-stick)
 
-**Artist**: Marcel Reix 
+**Artist**: COSMIC 
 
-**Track**: Premiere: Marcel Reix - Backroom (Version 3) [MRX01]
+**Track**: LAUGHING W THE STICK
 
-Last updated at 08/31/2024 11:08
+Last updated at 08/31/2024 11:14
