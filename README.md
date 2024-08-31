@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPdbRwClOZOC0gIz-m0ajtQ-t500x500.jpg">](https://soundcloud.com/bafubeats/stay-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xRw74Em45uK8-0-t500x500.jpg">](https://soundcloud.com/sonnyfodera/sonny-fodera-jazzy-dod-somedays-mk-dub)
 
-**Artist**: Bafu 
+**Artist**: Sonny Fodera, Jazzy & D.O.D 
 
-**Track**: Stay Forever
+**Track**: Somedays (MK Dub)
 
-Last updated at 08/31/2024 11:17
+Last updated at 08/31/2024 11:21
