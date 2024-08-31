@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-McMv4hBOMOzxYzM1-VS3Ajw-t500x500.jpg">](https://soundcloud.com/cheensound/rebound-x-rhythm-gash-cheen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3PNd1IjP5Bmevky-uye8UQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/internalfrequencylockstep)
 
-**Artist**: Cheen 
+**Artist**: Internal Frequency 
 
-**Track**: Rebound X - Rhythm & Gash (Cheen Remix)
+**Track**: Internal Frequency - LockStep
 
-Last updated at 08/31/2024 12:59
+Last updated at 08/31/2024 13:01
