@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZXailyl4QPvDlLwe-rxkZuw-t500x500.jpg">](https://soundcloud.com/cosmicbeats/laughing-w-the-stick)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPdbRwClOZOC0gIz-m0ajtQ-t500x500.jpg">](https://soundcloud.com/bafubeats/stay-forever)
 
-**Artist**: COSMIC 
+**Artist**: Bafu 
 
-**Track**: LAUGHING W THE STICK
+**Track**: Stay Forever
 
-Last updated at 08/31/2024 11:14
+Last updated at 08/31/2024 11:17
