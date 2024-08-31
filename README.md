@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xRw74Em45uK8-0-t500x500.jpg">](https://soundcloud.com/sonnyfodera/sonny-fodera-jazzy-dod-somedays-mk-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QN4RgP1HHAkHzauL-9yqypg-t500x500.jpg">](https://soundcloud.com/wllwsofficial/something-good)
 
-**Artist**: Sonny Fodera, Jazzy & D.O.D 
+**Artist**: WLLWS 
 
-**Track**: Somedays (MK Dub)
+**Track**: Something Good
 
-Last updated at 08/31/2024 11:21
+Last updated at 08/31/2024 12:48
