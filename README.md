@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6VolpGL7xzbo-0-t500x500.png">](https://soundcloud.com/eskr_music/static-route)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rc5ygSj7fUrtWGhN-BPbyMA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dj-ali-stolen-sun-bluehour10yrs)
 
-**Artist**: ESKR 
+**Artist**: DJ Ali 
 
-**Track**: Static Route
+**Track**: Premiere: DJ Ali - Stolen Sun [BLUEHOUR10YRS]
 
-Last updated at 08/31/2024 12:49
+Last updated at 08/31/2024 12:50
