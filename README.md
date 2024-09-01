@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGF4qzVOzdho-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/lost-in-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHq9z6mlqqoNjgi2-tRwFMw-t500x500.jpg">](https://soundcloud.com/noetika/wiz-khalifa-we-dem-boyz-noetika-remix-free-dl?in=saxurn/sets/plaesthetics)
 
-**Artist**: Avi8 
+**Artist**: Noetika 
 
-**Track**: Lost In Time
+**Track**: Wiz Khalifa - We Dem Boyz (Noetika Remix) Free DL
 
-Last updated at 09/01/2024 14:03
+Last updated at 09/01/2024 14:06
