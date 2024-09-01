@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LrmPqLLzJdJOU8ne-j7amgA-t500x500.jpg">](https://soundcloud.com/rhythmics/nextstay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BM3TdSnfpxkHkXWu-qSQO8Q-t500x500.jpg">](https://soundcloud.com/jadudala/alexis-b-holding-on-jadu248)
 
-**Artist**: Rhythmics 
+**Artist**: Alexis B 
 
-**Track**: 源屋 - NEXT STAY (Rhythmics 2024 Remix)
+**Track**: Alexis B - Holding On (JADŪ248)
 
-Last updated at 09/01/2024 13:58
+Last updated at 09/01/2024 13:59
