@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bFJrqBn5ytLAxUv-1x8yLQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/hagane-shizuka-at-the-gate-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDQmzWx8VfYu7RTB-ykBqvA-t500x500.jpg">](https://soundcloud.com/vincent_official/fallingstars)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Vincent 
 
-**Track**: Hagane Shizuka - At The Gate (Original Mix)
+**Track**: Falling Stars (feat. Nevve)
 
-Last updated at 09/02/2024 10:58
+Last updated at 09/02/2024 11:14
