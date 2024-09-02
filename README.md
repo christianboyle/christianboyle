@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNQJ1piWuZxBegnC-LsxZ5w-t500x500.jpg">](https://soundcloud.com/user-557532689/govnah-kick-it-wit-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bFJrqBn5ytLAxUv-1x8yLQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/hagane-shizuka-at-the-gate-original-mix)
 
-**Artist**: GOVNAH 
+**Artist**: Fatal Energy Records 
 
-**Track**: KICK IT WITH U
+**Track**: Hagane Shizuka - At The Gate (Original Mix)
 
-Last updated at 09/02/2024 09:57
+Last updated at 09/02/2024 10:58
