@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jRy5LnHD3eQyOvg-RtEMIw-t500x500.jpg">](https://soundcloud.com/presentlylifted/rederick-lit-it-up-feat-guff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gBu7SrVVY2p3pBZ8-qA1yrA-t500x500.jpg">](https://soundcloud.com/saint-baek/charli-xcx-guess-featuring-billie-eilish-flip-saint-miller)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: SAINT MILLER 
 
-**Track**: Rederick - Lit It Up (feat. GUFF)
+**Track**: Charli Xcx - Guess Featuring Billie Eilish Flip (SAINT MILLER)
 
-Last updated at 09/02/2024 09:17
+Last updated at 09/02/2024 09:21
