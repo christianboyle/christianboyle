@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jr16z8pUCw1PIzzK-9V52zg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/hrts-no-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNQJ1piWuZxBegnC-LsxZ5w-t500x500.jpg">](https://soundcloud.com/user-557532689/govnah-kick-it-wit-u)
 
-**Artist**: ONLYTRANCE 
+**Artist**: GOVNAH 
 
-**Track**: Hurts - No More
+**Track**: KICK IT WITH U
 
-Last updated at 09/02/2024 09:52
+Last updated at 09/02/2024 09:57
