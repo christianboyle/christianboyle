@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nECunL3zcxKjj7J9-Bve2OQ-t500x500.jpg">](https://soundcloud.com/gasoiid/heartskipppp?in=saxurn/sets/plaesthetics/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpienKlIEHW5kqF3-Huc7hg-t500x500.jpg">](https://soundcloud.com/lynyofficial/basscannon)
 
-**Artist**: gasoiid 
+**Artist**: LYNY 
 
-**Track**: ponibbi - HEARTSKIP (purityleech & gasoiid flip) [FULL ALBUM OUT NOW]
+**Track**: Bass Cannon (LYNY Flip)
 
-Last updated at 09/01/2024 14:10
+Last updated at 09/02/2024 09:05
