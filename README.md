@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jux3ZznUBtEPS3T4-4eesWQ-t500x500.jpg">](https://soundcloud.com/adamenoise/chasing-cars-like-a-dog)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0jRy5LnHD3eQyOvg-RtEMIw-t500x500.jpg">](https://soundcloud.com/presentlylifted/rederick-lit-it-up-feat-guff)
 
-**Artist**: ADAME 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: Chasing Cars Like A Dog
+**Track**: Rederick - Lit It Up (feat. GUFF)
 
-Last updated at 09/02/2024 09:16
+Last updated at 09/02/2024 09:17
