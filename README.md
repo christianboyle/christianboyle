@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ySj3cmlTssRU0inz-a47VyQ-t500x500.jpg">](https://soundcloud.com/kkoosk/we-want-hardcore-pokkun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000298262929-vvcubi-t500x500.jpg">](https://soundcloud.com/claxton/00svocalanthems)
 
-**Artist**: Pokkun 
+**Artist**: claxton 
 
-**Track**: We Want Hardcore (Pokkun Remix)
+**Track**: Claxton - 00s Vocal Power Anthems
 
-Last updated at 09/03/2024 09:50
+Last updated at 09/03/2024 09:51
