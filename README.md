@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000298262929-vvcubi-t500x500.jpg">](https://soundcloud.com/claxton/00svocalanthems)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xn48Yx7zkFGJxcaI-MuCnYA-t500x500.jpg">](https://soundcloud.com/darkrebelrecords/kayros-come-to-dominate?in=kayros_dub/sets/dark-rebel-records-bad-company)
 
-**Artist**: claxton 
+**Artist**: KAYROS 
 
-**Track**: Claxton - 00s Vocal Power Anthems
+**Track**: KAYROS - Come To Dominate
 
-Last updated at 09/03/2024 09:51
+Last updated at 09/04/2024 09:17
