@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B8LILpb4AlEEcuVE-T23y2Q-t500x500.jpg">](https://soundcloud.com/sex-magazine/sex-mix-010-madjestic-kasual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-561xQi25lOxJbdLd-lHr2rA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/resensed-breathin-dwx-copyright-free)
 
-**Artist**: Sex Magazine 
+**Artist**: Resensed 
 
-**Track**: Sex Mix 010: Madjestic Kasual
+**Track**: Resensed - Breathin (DWX Copyright Free)
 
-Last updated at 09/04/2024 09:18
+Last updated at 09/04/2024 09:19
