@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ySj3cmlTssRU0inz-a47VyQ-t500x500.jpg">](https://soundcloud.com/kkoosk/we-want-hardcore-pokkun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sfzoQYbrkjMbSqLC-ESrRRg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sda017-sethrow-re-vamped)
 
-**Artist**: Pokkun 
+**Artist**: Sethrow 
 
-**Track**: We Want Hardcore (Pokkun Remix)
+**Track**: SDA017 SethroW - Re-Vamped (artist album Promo Mix)
 
-Last updated at 09/04/2024 09:29
+Last updated at 09/04/2024 09:30
