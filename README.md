@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3PNd1IjP5Bmevky-uye8UQ-t500x500.jpg">](https://soundcloud.com/psychocybinrec/internalfrequencylockstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xI5Hf7UGmIPtNFfR-8TzMzg-t500x500.png">](https://soundcloud.com/flosstradamus/hita-bvnished-remix)
 
-**Artist**: Internal Frequency 
+**Artist**: Flosstradamus 
 
-**Track**: Internal Frequency - LockStep
+**Track**: HITA - BVNISHED Remix
 
-Last updated at 09/05/2024 18:15
+Last updated at 09/05/2024 18:16
