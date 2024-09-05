@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sfzoQYbrkjMbSqLC-ESrRRg-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sda017-sethrow-re-vamped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dquCo5rnKsoQcEnW-Zz6VVg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-villa-astral-projection-obscure-shape-cc-remix-okt006)
 
-**Artist**: Sethrow 
+**Artist**: VILLA 
 
-**Track**: SDA017 SethroW - Re-Vamped (artist album Promo Mix)
+**Track**: Premiere: VILLA - Astral Projection (Obscure Shape & CC Remix) [OKT006]
 
-Last updated at 09/04/2024 09:30
+Last updated at 09/05/2024 09:13
