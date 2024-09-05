@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkJMR1np7oyf0hER-XKqHuQ-t500x500.jpg">](https://soundcloud.com/kenetic-kannibalz/kenetic-kannibalz-x-mikes-revenge-let-em-notice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ctEI4TViVdxzJe4-jEyP6w-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-papa-roach-last-resort-gimon-edit)
 
-**Artist**: Kenetic Kannibalz 
+**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: Let Em Notice- ( Kenetic Kannibalz & Mikes Revenge)
+**Track**: [PREMIERE] Papa Roach - Last Resort [gimon edit]
 
-Last updated at 09/05/2024 09:15
+Last updated at 09/05/2024 09:16
