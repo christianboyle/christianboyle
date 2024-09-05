@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1wl0w7AFEfs-0-t500x500.jpg">](https://soundcloud.com/s3rl/castle-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQp6o49XmNS1NPNz-ILeyPA-t500x500.jpg">](https://soundcloud.com/bounceandbass/sp3ctrum-dance-therapy)
 
-**Artist**: S3RL 
+**Artist**: Bounce & Bass 
 
-**Track**: Castle in the Sky
+**Track**: SP3CTRUM - Dance Therapy
 
-Last updated at 09/05/2024 18:08
+Last updated at 09/05/2024 18:10
