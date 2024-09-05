@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xI5Hf7UGmIPtNFfR-8TzMzg-t500x500.png">](https://soundcloud.com/flosstradamus/hita-bvnished-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5w2ztKWMtPlEzchS-xZpx4w-t500x500.jpg">](https://soundcloud.com/cabxdm/control-freak-we-run-this-cab-flip-1)
 
-**Artist**: Flosstradamus 
+**Artist**: CAB 
 
-**Track**: HITA - BVNISHED Remix
+**Track**: CONTROL FREAK - WE RUN THIS (cab flip)
 
-Last updated at 09/05/2024 18:16
+Last updated at 09/05/2024 18:17
