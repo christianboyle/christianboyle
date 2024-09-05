@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FhYnNQZxgXIpLfxX-rD5VMg-t500x500.jpg">](https://soundcloud.com/cloudstechno/jammin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ySj3cmlTssRU0inz-a47VyQ-t500x500.jpg">](https://soundcloud.com/kkoosk/we-want-hardcore-pokkun-remix)
 
-**Artist**: Clouds 
+**Artist**: Pokkun 
 
-**Track**: Jammin'
+**Track**: We Want Hardcore (Pokkun Remix)
 
-Last updated at 09/05/2024 09:44
+Last updated at 09/05/2024 09:49
