@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vwiBy3Qv7JhkKlXb-tvkjVg-t500x500.jpg">](https://soundcloud.com/eatermusic/diplo-gta-boy-oh-boy-digested-by-eater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2uLX8lHVz0hVHS3m-d2pllg-t500x500.jpg">](https://soundcloud.com/strobez-music/replica)
 
-**Artist**: Eater 
+**Artist**: Strobez 
 
-**Track**: Diplo & GTA - Boy Oh Boy (Digested By Eater)
+**Track**: Replica
 
-Last updated at 09/05/2024 18:13
+Last updated at 09/05/2024 18:14
