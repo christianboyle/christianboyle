@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ctEI4TViVdxzJe4-jEyP6w-t500x500.jpg">](https://soundcloud.com/sachsentrance/premiere-papa-roach-last-resort-gimon-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wzMrcpz2QzAaLAG-uDGezA-t500x500.jpg">](https://soundcloud.com/rave_alert/linkin-park-in-the-end-indepth-edit)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: INDEPTH 
 
-**Track**: [PREMIERE] Papa Roach - Last Resort [gimon edit]
+**Track**: Linkin Park - In The End (INDEPTH Edit)
 
-Last updated at 09/05/2024 09:29
+Last updated at 09/05/2024 09:34
