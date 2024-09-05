@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQp6o49XmNS1NPNz-ILeyPA-t500x500.jpg">](https://soundcloud.com/bounceandbass/sp3ctrum-dance-therapy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f1aD7BK4julj-0-t500x500.jpg">](https://soundcloud.com/irichhomiequan/flex-ooh-ooh-ooh-1)
 
-**Artist**: Bounce & Bass 
+**Artist**: Rich Homie Quan 
 
-**Track**: SP3CTRUM - Dance Therapy
+**Track**: Flex (Ooh, Ooh, Ooh)
 
-Last updated at 09/05/2024 18:10
+Last updated at 09/05/2024 18:11
