@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SInvtypJpmpJj4zL-yaMyLA-t500x500.jpg">](https://soundcloud.com/wearelostkings/sad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIe3RlbmuFAAuNBL-L2pBaw-t500x500.jpg">](https://soundcloud.com/s3rl/rave-angel-s3rl-ft-ella)
 
-**Artist**: Lost Kings 
+**Artist**: S3RL 
 
-**Track**: XXXTENTACION - Sad! (Lost Kings Remix)
+**Track**: Rave Angel - S3RL ft Ella
 
-Last updated at 09/05/2024 18:00
+Last updated at 09/05/2024 18:05
