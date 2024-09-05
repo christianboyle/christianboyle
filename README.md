@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bFJrqBn5ytLAxUv-1x8yLQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/hagane-shizuka-at-the-gate-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SInvtypJpmpJj4zL-yaMyLA-t500x500.jpg">](https://soundcloud.com/wearelostkings/sad)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Lost Kings 
 
-**Track**: Hagane Shizuka - At The Gate (Original Mix)
+**Track**: XXXTENTACION - Sad! (Lost Kings Remix)
 
-Last updated at 09/05/2024 09:57
+Last updated at 09/05/2024 18:00
