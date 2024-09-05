@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5w2ztKWMtPlEzchS-xZpx4w-t500x500.jpg">](https://soundcloud.com/cabxdm/control-freak-we-run-this-cab-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qpi9oCT7krIzd1v4-cGtxVA-t500x500.jpg">](https://soundcloud.com/gunpointmusic/rl-grime-x-infekt-acrylics-x-knockout-gunpoint-edit-2)
 
-**Artist**: CAB 
+**Artist**: Gunpoint 
 
-**Track**: CONTROL FREAK - WE RUN THIS (cab flip)
+**Track**: RL Grime x Infekt - Acrylics x Knockout (Gunpoint Edit)
 
-Last updated at 09/05/2024 18:17
+Last updated at 09/05/2024 18:18
