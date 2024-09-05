@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylwiu6WphU1wSrg1-WdWjlQ-t500x500.jpg">](https://soundcloud.com/subversecollective/pit-lord-eighteen-inch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bFJrqBn5ytLAxUv-1x8yLQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/hagane-shizuka-together-in-tranquility-original-mix)
 
-**Artist**: PIT LORD 
+**Artist**: Fatal Energy Records 
 
-**Track**: PIT LORD - Eighteen Inch
+**Track**: Hagane Shizuka - Together In Tranquility (Original Mix)
 
-Last updated at 09/05/2024 09:19
+Last updated at 09/05/2024 09:20
