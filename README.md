@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijfTZ0WBKvgyK2TD-bzU1YA-t500x500.jpg">](https://soundcloud.com/thecaracalproject/stone-cold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ex9yvBJmakYdFfQ3-OyQ9Vg-t500x500.jpg">](https://soundcloud.com/slswp/nick-leon-bubble-acid)
 
-**Artist**: The Caracal Project 
+**Artist**: VA 
 
-**Track**: Stone cold.
+**Track**: Nick León - Bubble Acid
 
-Last updated at 09/06/2024 13:47
+Last updated at 09/06/2024 13:48
