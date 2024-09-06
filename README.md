@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bFJrqBn5ytLAxUv-1x8yLQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/hagane-shizuka-different-frequency-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CrrWzdv5thTR-0-t500x500.jpg">](https://soundcloud.com/jxxyy/my-name-is-earl?in=jxxyy/sets/try-853834938)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Joeyy 
 
-**Track**: Hagane Shizuka - Different Frequency (Original Mix)
+**Track**: My Name Is Earl
 
-Last updated at 09/06/2024 13:49
+Last updated at 09/06/2024 13:51
