@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIgaYnUxJyaccLKC-jzQfBQ-t500x500.jpg">](https://soundcloud.com/djmischkonsum/player-baby-come-back-dj-mischkonsum-tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uL8zk0HhaGietsMm-iWQAlQ-t500x500.jpg">](https://soundcloud.com/scourgeone/mc-kaique-da-vp-taka-a-xereca-pra-mim-lvgo-edit)
 
-**Artist**: DJ Mischkonsum 
+**Artist**: LVGŌ 
 
-**Track**: Player - Baby Come Back (DJ Mischkonsum TOOL)
+**Track**: LVGŌ  - Taka A Xereca  #FREE DOWNLOAD#
 
-Last updated at 09/09/2024 08:56
+Last updated at 09/09/2024 08:58
