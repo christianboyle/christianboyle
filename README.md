@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AwJoBXTODrvrb3FO-hSYPBA-t500x500.jpg">](https://soundcloud.com/devaultmusic/guess-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yz27cBTPNxVUq0p-TEbnlw-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-september-2024-classics-mix)
 
-**Artist**: DEVAULT 
+**Artist**: Outburst 
 
-**Track**: GUESS RMX
+**Track**: Outburst - September 2024 Classics Mix
 
-Last updated at 09/09/2024 09:02
+Last updated at 09/09/2024 09:03
