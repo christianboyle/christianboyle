@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzKUubFtYUt0bKeX-0TIlvg-t500x500.jpg">](https://soundcloud.com/rit_hk/paint-the-sky-k1r0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiknTNdN5Ukr6bGY-VYwYJg-t500x500.jpg">](https://soundcloud.com/speedooo/scream-shout-speedo-x-je-remix)
 
-**Artist**: Rit 
+**Artist**: Speedoo 
 
-**Track**: Paint The Sky [k1r0]
+**Track**: Scream & Shout (Speedo x JE Remix) [FREE DL]
 
-Last updated at 09/09/2024 08:54
+Last updated at 09/09/2024 08:55
