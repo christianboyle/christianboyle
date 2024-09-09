@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qL756KWYeTMGaOfq-hJHfNA-t500x500.jpg">](https://soundcloud.com/kyra-bass-collective/new-moon-mix-006-ratchael-live-from-camp-q)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPTymN8KpsoVHtRs-dAOXOg-t500x500.jpg">](https://soundcloud.com/dukeandjones/teenage-crime)
 
-**Artist**: Kyra Collective 
+**Artist**: Duke & Jones 
 
-**Track**: New Moon Mix 006: Ratchael (Live from Camp Q)
+**Track**: Teenage Crime
 
-Last updated at 09/09/2024 08:52
+Last updated at 09/09/2024 08:53
