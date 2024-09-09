@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMghqtDzEAzrT28t-tGLNbQ-t500x500.jpg">](https://soundcloud.com/beatsfordayz23/zah-boh-tmh2d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rro4XoEyuWHbNxzL-V115iA-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/benson-boone-beautiful-things-gin-and-sonic-remix-1?in=gin_and_sonic/sets/benson-boone-beautiful-things)
 
-**Artist**: zah boh 
+**Artist**: Gin and Sonic 
 
-**Track**: zah boh - TMH2D
+**Track**: Benson Boone - Beautiful Things (Gin and Sonic Remix)
 
-Last updated at 09/09/2024 08:45
+Last updated at 09/09/2024 08:47
