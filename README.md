@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2uLX8lHVz0hVHS3m-d2pllg-t500x500.jpg">](https://soundcloud.com/strobez-music/replica)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BAQlcMlwyu4BeV1R-WzuJ2Q-t500x500.jpg">](https://soundcloud.com/whalesfm/backbone-remix)
 
-**Artist**: Strobez 
+**Artist**: WHALES 
 
-**Track**: Replica
+**Track**: CHASE & STATUS, STORMZY - BACKBONE (WHALES REMIX)
 
-Last updated at 09/09/2024 08:50
+Last updated at 09/09/2024 08:51
