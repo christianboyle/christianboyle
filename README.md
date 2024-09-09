@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uL8zk0HhaGietsMm-iWQAlQ-t500x500.jpg">](https://soundcloud.com/scourgeone/mc-kaique-da-vp-taka-a-xereca-pra-mim-lvgo-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ktfdv47HXtNtP9Iz-lksPWQ-t500x500.jpg">](https://soundcloud.com/musicbyczr/skrillex-hamdi-taichu-offaiah-push-czr-flip)
 
-**Artist**: LVGŌ 
+**Artist**: CZR 
 
-**Track**: LVGŌ  - Taka A Xereca  #FREE DOWNLOAD#
+**Track**: Skrillex, Hamdi, TAICHU & OFFAIAH - Push (CZR Flip)
 
-Last updated at 09/09/2024 08:58
+Last updated at 09/09/2024 08:59
