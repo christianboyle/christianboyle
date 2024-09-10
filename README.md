@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P0brM9s0aAIukFPR-Ecdrug-t500x500.jpg">](https://soundcloud.com/dnbspread/noise-parfumerie-eoom-premiere?in=phaserecordsdnb/sets/noise-parfumerie-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5YNduxU7a9Q3kgIg-MuybhA-t500x500.jpg">](https://soundcloud.com/datskobeats/beat-again-datsko-remix-1)
 
-**Artist**: DNB Spread 
+**Artist**: DATSKO 
 
-**Track**: Noise Parfumerie - Chessboard [Premiere]
+**Track**: DATSKO - Beat Again (Remix)
 
-Last updated at 09/10/2024 09:15
+Last updated at 09/10/2024 09:16
