@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nD87gStjcUoGw1mR-FBpOBA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jsprv35-process-gp02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qAblOFjotHSOx1e-2C5APA-t500x500.jpg">](https://soundcloud.com/lussomusicx/adam-port-stryv-keinemusik-orso-malachiii-move-lusso-remix)
 
-**Artist**: JSPRV35 
+**Artist**: LUSSO 
 
-**Track**: Premiere: JSPRV35 - Process [GP02]
+**Track**: Adam Port, Stryv, Keinemusik, Orso & Malachiii - MOVE (LUSSO Remix)
 
-Last updated at 09/09/2024 09:39
+Last updated at 09/10/2024 09:06
