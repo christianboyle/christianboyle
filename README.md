@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxeTXVYnzJhRB3Lh-JZc9Dg-t500x500.jpg">](https://soundcloud.com/arya51/ice-spice-princess-diana-arya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQ5RVz1gKqeZPfYW-8NlGyA-t500x500.jpg">](https://soundcloud.com/stunnapossecult/subsicc-stunna-posse-cult-mix)
 
-**Artist**: Arya 
+**Artist**: STUNNA POSSE 
 
-**Track**: Ice Spice - Princess Diana (Arya Remix)
+**Track**: SUBSICC STUNNA POSSE CULT MIX
 
-Last updated at 09/10/2024 09:19
+Last updated at 09/10/2024 09:20
