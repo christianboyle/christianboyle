@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qAblOFjotHSOx1e-2C5APA-t500x500.jpg">](https://soundcloud.com/lussomusicx/adam-port-stryv-keinemusik-orso-malachiii-move-lusso-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwWJLyKEK5iA-0-t500x500.jpg">](https://soundcloud.com/alexandarsmash/rocket-1)
 
-**Artist**: LUSSO 
+**Artist**: Alexandar Smash 
 
-**Track**: Adam Port, Stryv, Keinemusik, Orso & Malachiii - MOVE (LUSSO Remix)
+**Track**: Rocket
 
-Last updated at 09/10/2024 09:06
+Last updated at 09/10/2024 09:07
