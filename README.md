@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bdhq5t1jz2x8hx5z-sUP6oA-t500x500.jpg">](https://soundcloud.com/slswp/lil-m-acid-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zRrODqY5eHq1iKa-425a5g-t500x500.jpg">](https://soundcloud.com/rejectionjp/kingdom)
 
-**Artist**: Soul Swap 
+**Artist**: rejection 
 
-**Track**: lil m - Acid Rain
+**Track**: Kingdom 【CHOMPO release】
 
-Last updated at 09/10/2024 09:13
+Last updated at 09/10/2024 09:14
