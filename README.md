@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FhYnNQZxgXIpLfxX-rD5VMg-t500x500.jpg">](https://soundcloud.com/cloudstechno/jammin-1?in=saxurn/sets/zaza-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxeTXVYnzJhRB3Lh-JZc9Dg-t500x500.jpg">](https://soundcloud.com/arya51/ice-spice-princess-diana-arya-remix?in=saxurn/sets/zaza-planet)
 
-**Artist**: Clouds 
+**Artist**: Arya 
 
-**Track**: Jammin'
+**Track**: Ice Spice - Princess Diana (Arya Remix)
 
-Last updated at 09/10/2024 11:42
+Last updated at 09/10/2024 11:46
