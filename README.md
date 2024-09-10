@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bmlnkvWeqeFheWlZ-MCaxow-t500x500.jpg">](https://soundcloud.com/barongfamily/mike-cervello-your-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyeq1sz5DclCpyOM-ILC5dQ-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-yrsen-synaptic-cascade-fzntr001)
 
-**Artist**: Mike Cervello 
+**Artist**: Yrsen 
 
-**Track**: Mike Cervello - Your Mind
+**Track**: [PREMIERE] | Yrsen - Synaptic Cascade [FZNTR001]
 
-Last updated at 09/10/2024 09:23
+Last updated at 09/10/2024 09:24
