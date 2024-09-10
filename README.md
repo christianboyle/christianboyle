@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1zRrODqY5eHq1iKa-425a5g-t500x500.jpg">](https://soundcloud.com/rejectionjp/kingdom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P0brM9s0aAIukFPR-Ecdrug-t500x500.jpg">](https://soundcloud.com/dnbspread/noise-parfumerie-eoom-premiere?in=phaserecordsdnb/sets/noise-parfumerie-ep)
 
-**Artist**: rejection 
+**Artist**: DNB Spread 
 
-**Track**: Kingdom 【CHOMPO release】
+**Track**: Noise Parfumerie - Chessboard [Premiere]
 
-Last updated at 09/10/2024 09:14
+Last updated at 09/10/2024 09:15
