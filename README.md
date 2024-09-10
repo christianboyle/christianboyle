@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CMyOrIFSgkILp3Zc-NZ6FHw-t500x500.jpg">](https://soundcloud.com/dalfinmusic/wav-pool-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKIgxOzo2hNybPDB-mZXYjg-t500x500.jpg">](https://soundcloud.com/alex_m_aus/radio-love-alex-m-edit)
 
-**Artist**: Dalfin 🐬 
+**Artist**: ALEX M OFFICIAL 
 
-**Track**: WAV Pool Vol. 4
+**Track**: Radio Love - Firelite & DNA (Alex M Edit)
 
-Last updated at 09/10/2024 09:08
+Last updated at 09/10/2024 09:09
