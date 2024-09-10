@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpienKlIEHW5kqF3-Huc7hg-t500x500.jpg">](https://soundcloud.com/lynyofficial/basscannon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPTymN8KpsoVHtRs-dAOXOg-t500x500.jpg">](https://soundcloud.com/dukeandjones/teenage-crime)
 
-**Artist**: LYNY 
+**Artist**: Duke & Jones 
 
-**Track**: Bass Cannon (LYNY Flip)
+**Track**: Teenage Crime
 
-Last updated at 09/10/2024 09:17
+Last updated at 09/10/2024 09:18
