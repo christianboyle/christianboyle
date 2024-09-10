@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6TG8b3SqSs7cF5yB-lv5lyQ-t500x500.png">](https://soundcloud.com/houreleven/dj-snake-talk-ft-george-maple-hour-11-congratsonnothing-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qz5rdpCWzbb0j5bp-ngzxwA-t500x500.jpg">](https://soundcloud.com/uberjakd/smack-my-vegas-uberjakd-free-download)
 
-**Artist**: Hour 11 
+**Artist**: Uberjak'd 
 
-**Track**: DJ Snake - Talk (ft. George Maple) (Hour 11 & Congrats On Nothing Remix)
+**Track**: Smack My Vegas - Uberjakd
 
-Last updated at 09/10/2024 09:31
+Last updated at 09/10/2024 09:33
