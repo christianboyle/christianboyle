@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPTymN8KpsoVHtRs-dAOXOg-t500x500.jpg">](https://soundcloud.com/dukeandjones/teenage-crime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxeTXVYnzJhRB3Lh-JZc9Dg-t500x500.jpg">](https://soundcloud.com/arya51/ice-spice-princess-diana-arya-remix)
 
-**Artist**: Duke & Jones 
+**Artist**: Arya 
 
-**Track**: Teenage Crime
+**Track**: Ice Spice - Princess Diana (Arya Remix)
 
-Last updated at 09/10/2024 09:18
+Last updated at 09/10/2024 09:19
