@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bmlnkvWeqeFheWlZ-MCaxow-t500x500.jpg">](https://soundcloud.com/barongfamily/mike-cervello-your-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1IHSEZaLbyIy0az-oLBrog-t500x500.jpg">](https://soundcloud.com/wearestudio/dj-ride-void-part-i-part-ii?in=wearestudio/sets/dj-ride-yume-studio)
 
-**Artist**: Mike Cervello 
+**Artist**: Dj Ride 
 
-**Track**: Mike Cervello - Your Mind
+**Track**: Dj Ride - Void Part I & Part II
 
-Last updated at 09/11/2024 11:20
+Last updated at 09/11/2024 11:21
