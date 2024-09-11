@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jhoL0z9xgSC4Sgb-szPLDw-t500x500.jpg">](https://soundcloud.com/getbackintune/john-summit-eat-the-bass-get-back-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsOvjBDgA5FqUdxt-AUuVzA-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/automatic-problematic)
 
-**Artist**: GET BACK 
+**Artist**: Farrah & Ooah 
 
-**Track**: John Summit - EAT THE BASS [GET BACK FLIP]
+**Track**: Automatic Problematic
 
-Last updated at 09/11/2024 11:26
+Last updated at 09/11/2024 11:27
