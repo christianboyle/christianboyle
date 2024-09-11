@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L9CwoMyiJOTTNDiK-cwNBLg-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-darude-sandstorm-hard-techno-remix?in=saxurn/sets/zaza-planet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K48OUsvI7Z2bCvkA-TfZV6A-t500x500.jpg">](https://soundcloud.com/bassgazm/murdaaa)
 
-**Artist**: GEWOONRAVES 
+**Artist**: Bassgazm 
 
-**Track**: [FREE DL] Darude - Sandstorm (Hard Techno Remix)
+**Track**: Bassgazm - Murdaaa (Monsoon Season Premiere)
 
-Last updated at 09/10/2024 11:48
+Last updated at 09/11/2024 10:44
