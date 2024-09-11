@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-382lF2tsd6bJ8855-k1018Q-t500x500.jpg">](https://soundcloud.com/fracusanddarwin/fracus-darwin-live-bonkers-ministry-of-sound-london-070924)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hccTyeOgcVpKMge-6LwNVg-t500x500.jpg">](https://soundcloud.com/weirdnxc/rlly-dnt-care?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
 
-**Artist**: Fracus & Darwin 
+**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
 
-**Track**: Fracus & Darwin - Live @ Bonkers, Ministry Of Sound, London (07.09.24)
+**Track**: rlly dnt care ... ( ˣ>.<)
 
-Last updated at 09/11/2024 10:50
+Last updated at 09/11/2024 10:52
