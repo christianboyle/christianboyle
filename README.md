@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
 
-**Artist**: Avril Lavigne, Gin and Sonic 
+**Artist**: Rinse France 
 
-**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
+**Track**: Shampain invite DJ Something - 22 Avril 2024
 
-Last updated at 09/11/2024 16:22
+Last updated at 09/11/2024 16:24
