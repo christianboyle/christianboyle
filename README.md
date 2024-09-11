@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qz5rdpCWzbb0j5bp-ngzxwA-t500x500.jpg">](https://soundcloud.com/uberjakd/smack-my-vegas-uberjakd-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUD86W9Vl5tgrAMX-bp7Slg-t500x500.jpg">](https://soundcloud.com/uberjakd/off-the-radar-uberjakd)
 
-**Artist**: Uberjak'd 
+**Artist**: Uberjakd 
 
-**Track**: Smack My Vegas - Uberjakd
+**Track**: Off The Radar
 
-Last updated at 09/11/2024 14:31
+Last updated at 09/11/2024 14:36
