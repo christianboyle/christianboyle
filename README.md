@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hccTyeOgcVpKMge-6LwNVg-t500x500.jpg">](https://soundcloud.com/weirdnxc/rlly-dnt-care?in=nightcore4totalsluts/sets/gasoiid-slumberparty-dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mxFWensGehBg-0-t500x500.jpg">](https://soundcloud.com/chappellroan/good-luck-babe)
 
-**Artist**: 𝙬𝙚𝙞𝙧𝙙 𝙣𝙭𝙘® 
+**Artist**: Chappell Roan 
 
-**Track**: rlly dnt care ... ( ˣ>.<)
+**Track**: Good Luck, Babe!
 
-Last updated at 09/11/2024 10:52
+Last updated at 09/11/2024 10:53
