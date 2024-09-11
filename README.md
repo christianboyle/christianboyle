@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mwgx8pg2x5hFt2x1-F03npA-t500x500.jpg">](https://soundcloud.com/slydelvecchio/sly-delvecchio-dance-all-night-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix?in=saxurn/sets/drop-that-zero)
 
-**Artist**: Sly Delvecchio 
+**Artist**: Avril Lavigne, Gin and Sonic 
 
-**Track**: Sly Delvecchio - Dance All Night (OUT NOW)
+**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
 
-Last updated at 09/11/2024 14:39
+Last updated at 09/11/2024 16:22
