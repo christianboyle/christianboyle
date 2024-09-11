@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gmz9UPvptzhp7otn-FiynOA-t500x500.jpg">](https://soundcloud.com/astralbandit/faded-astral-bandit-atlantean-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7jhoL0z9xgSC4Sgb-szPLDw-t500x500.jpg">](https://soundcloud.com/getbackintune/john-summit-eat-the-bass-get-back-flip)
 
-**Artist**: Astral Bandit 
+**Artist**: GET BACK 
 
-**Track**: Faded - Astral Bandit Atlantean Club Edit
+**Track**: John Summit - EAT THE BASS [GET BACK FLIP]
 
-Last updated at 09/11/2024 11:25
+Last updated at 09/11/2024 11:26
