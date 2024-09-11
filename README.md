@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvPNUGLdlzRojnei-7UWIyA-t500x500.jpg">](https://soundcloud.com/onlytr4nce/dj-rent-a-tent-keep-on-running)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/good-time-pk-sabrr-flip?in=saxurn/sets/zaza-planet)
 
-**Artist**: ONLYTRANCE 
+**Artist**: DJ PK 
 
-**Track**: DJ RENT A TENT - KEEP ON RUNNING
+**Track**: good time (pk + sabrr flip)
 
-Last updated at 09/11/2024 11:28
+Last updated at 09/11/2024 11:29
