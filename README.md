@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HTtZw6p5xIR1-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/mark-breeze-im-falling-in-love?in=hard-playlists/sets/uk-happy-hardcore-24-by)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jRkKPLfZjgSg-0-t500x500.jpg">](https://soundcloud.com/hixxy-official/more-more-1?in=hard-playlists/sets/uk-happy-hardcore-24-by)
 
-**Artist**: Mark Breeze 
+**Artist**: Hixxy, Jomarijan 
 
-**Track**: I'm Falling In Love
+**Track**: More & More
 
-Last updated at 09/11/2024 10:56
+Last updated at 09/11/2024 10:57
