@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SUnIDBElkQc62lK-1o1dtA-t500x500.jpg">](https://soundcloud.com/rinse_france/shampain-invite-dj-something-22-avril-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SDIFzLgIm6fmxyNd-3udk3w-t500x500.jpg">](https://soundcloud.com/jamesjamesjamess/breathein-jjjrmx)
 
-**Artist**: Rinse France 
+**Artist**: jamesjamesjames 
 
-**Track**: Shampain invite DJ Something - 22 Avril 2024
+**Track**: frou frou - breathe in (jamesjamesjames remix)
 
-Last updated at 09/11/2024 16:24
+Last updated at 09/12/2024 09:03
