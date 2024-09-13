@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puSzW2NJIxaJFm66-jAsjhA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-disguised-curious-concepts-trsn027?in=transition_ofc/sets/disguised-23-oil-street-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/neon-tearz)
 
-**Artist**: Disguised 
+**Artist**: Strobez, Diana Starshine, TWONSK 
 
-**Track**: Premiere: Disguised – Curious Concepts [TRSN027]
+**Track**: Strobez, diana starshine, TWONSKi - NEON TEARZ
 
-Last updated at 09/13/2024 10:18
+Last updated at 09/13/2024 10:19
