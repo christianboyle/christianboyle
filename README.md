@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMjmK8JfK6Mbq1pP-zZRZrQ-t500x500.jpg">](https://soundcloud.com/ospreydnb/osprey-nothing-to-lose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
 
-**Artist**: Osprey 
+**Artist**: Tree Gaud 
 
-**Track**: Osprey - Nothing To Lose
+**Track**: For The Last Time Gaud FLiP
 
-Last updated at 09/13/2024 15:44
+Last updated at 09/13/2024 15:46
