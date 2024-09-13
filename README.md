@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwiDAZ3m2BpTkgVe-NxkfqA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-reverie-matty-metrix-harmony-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxeTXVYnzJhRB3Lh-JZc9Dg-t500x500.jpg">](https://soundcloud.com/arya51/ice-spice-princess-diana-arya-remix)
 
-**Artist**: Mike Reverie & Matty Metrix 
+**Artist**: Arya 
 
-**Track**: Mike Reverie & Matty Metrix - Harmony (Electric Fox)
+**Track**: Ice Spice - Princess Diana (Arya Remix)
 
-Last updated at 09/13/2024 14:05
+Last updated at 09/13/2024 14:09
