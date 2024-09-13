@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gmz9UPvptzhp7otn-FiynOA-t500x500.jpg">](https://soundcloud.com/astralbandit/faded-astral-bandit-atlantean-club-edit?in=saxurn/sets/crushin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqFsLBz62I7nhF13-w8FnXw-t500x500.jpg">](https://soundcloud.com/billykinn/rcon?in=saxurn/sets/crushin/)
 
-**Artist**: Astral Bandit 
+**Artist**: KINN 
 
-**Track**: Faded - Astral Bandit Atlantean Club Edit
+**Track**: Re-Con - Ignite - KINN Remix **FREE DOWNLOAD**
 
-Last updated at 09/13/2024 16:32
+Last updated at 09/13/2024 16:33
