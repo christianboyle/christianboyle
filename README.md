@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxJtN5HW3ANpol4e-gBZ0nQ-t500x500.jpg">](https://soundcloud.com/43u/decay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
 
-**Artist**: 2040x2040 
+**Artist**: Tree Gaud 
 
-**Track**: Decay feat. 80gawd
+**Track**: For The Last Time Gaud FLiP
 
-Last updated at 09/12/2024 09:08
+Last updated at 09/13/2024 10:15
