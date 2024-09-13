@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOAik4toXVv4eNhk-cuQfVA-t500x500.jpg">](https://soundcloud.com/laviermusic/2024-unreleased-mixtape)
 
-**Artist**: Tree Gaud 
+**Artist**: Lavier 
 
-**Track**: For The Last Time Gaud FLiP
+**Track**: 2024 Unreleased Mixtape
 
-Last updated at 09/13/2024 10:15
+Last updated at 09/13/2024 10:16
