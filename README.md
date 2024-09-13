@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0y2lmlna6bGBxx3y-fAe4pg-t500x500.jpg">](https://soundcloud.com/davyroe/its-like-that-edit)
 
-**Artist**: TETE VIDE 
+**Artist**: DAVYROE 
 
-**Track**: BURY2K - Kickin & Drummin
+**Track**: IT’S LIKE THAT (EDIT)
 
-Last updated at 09/13/2024 14:50
+Last updated at 09/13/2024 14:54
