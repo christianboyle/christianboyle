@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ol5Gm9JlWTVyAfKv-ezuEuQ-t500x500.jpg">](https://soundcloud.com/lobono/fantaisie-2000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwz5XrF1HIRfn0MM-W6clnw-t500x500.jpg">](https://soundcloud.com/gurfmusic/pizzeriapack)
 
-**Artist**: lobono 
+**Artist**: Gurf 
 
-**Track**: Fantaisie 2000
+**Track**: THE PIZZERIA PACK (Trap/HipHop/Bass Sample Pack)
 
-Last updated at 09/13/2024 15:34
+Last updated at 09/13/2024 15:35
