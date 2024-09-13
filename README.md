@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVbN2Um1OjNvAcbK-jsEpyg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IOrJkB9LCQCTK9fh-F6yCYg-t500x500.jpg">](https://soundcloud.com/ben_mrgnstrn/get-this)
 
-**Artist**: WINK, nikko 
+**Artist**: mrgnstrn 
 
-**Track**: WINK & nikko - MERCY
+**Track**: mrgnstrn - GET THIS
 
-Last updated at 09/13/2024 15:41
+Last updated at 09/13/2024 15:42
