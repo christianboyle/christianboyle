@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPNSrGHDhAqlQjBS-vBTASg-t500x500.jpg">](https://soundcloud.com/billykinn/teledildonics-s3rl-ft-virgen-maria-kinn-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMjmK8JfK6Mbq1pP-zZRZrQ-t500x500.jpg">](https://soundcloud.com/ospreydnb/osprey-nothing-to-lose)
 
-**Artist**: KINN 
+**Artist**: Osprey 
 
-**Track**: Teledildonics - S3RL Ft Virgen María (KINN Remix) **FREE DOWNLOAD**
+**Track**: Osprey - Nothing To Lose
 
-Last updated at 09/13/2024 15:43
+Last updated at 09/13/2024 15:44
