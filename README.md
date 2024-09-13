@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/glory?in=sablevalley/sets/sable-valley-summer-vol-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wMCdkPb7yjrrwFeW-7WGAZA-t500x500.jpg">](https://soundcloud.com/rebbuu/can-u-hear-me)
 
-**Artist**: Odd Language 
+**Artist**: rebbuu 
 
-**Track**: Odd Language - Glory
+**Track**: CAN U HEAR ME
 
-Last updated at 09/13/2024 10:20
+Last updated at 09/13/2024 10:21
