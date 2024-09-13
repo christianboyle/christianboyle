@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZ2mpvPsMKepxNMt-KfPgow-t500x500.jpg">](https://soundcloud.com/drgmusic/way-of-the-underground?in=saxurn/sets/crushin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin)
 
-**Artist**: Dr. G 
+**Artist**: TETE VIDE 
 
-**Track**: Way Of The Underground
+**Track**: BURY2K - Kickin & Drummin
 
-Last updated at 09/13/2024 14:46
+Last updated at 09/13/2024 14:50
