@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5E9Py6epO0WG8KkL-SpwTLQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/yves-labordus-last-call-ft-sarah-anglionin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwiDAZ3m2BpTkgVe-NxkfqA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-reverie-matty-metrix-harmony-electric-fox)
 
-**Artist**: Yves Labordus (ft. Sarah Anglionin) 
+**Artist**: Mike Reverie & Matty Metrix 
 
-**Track**: Yves Labordus - Last Call (ft. Sarah Anglionin)
+**Track**: Mike Reverie & Matty Metrix - Harmony (Electric Fox)
 
-Last updated at 09/13/2024 14:04
+Last updated at 09/13/2024 14:05
