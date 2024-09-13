@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxJtN5HW3ANpol4e-gBZ0nQ-t500x500.jpg">](https://soundcloud.com/43u/decay?in=saxurn/sets/crushin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gmz9UPvptzhp7otn-FiynOA-t500x500.jpg">](https://soundcloud.com/astralbandit/faded-astral-bandit-atlantean-club-edit?in=saxurn/sets/crushin/)
 
-**Artist**: 2040x2040 
+**Artist**: Astral Bandit 
 
-**Track**: Decay feat. 80gawd
+**Track**: Faded - Astral Bandit Atlantean Club Edit
 
-Last updated at 09/13/2024 14:36
+Last updated at 09/13/2024 14:40
