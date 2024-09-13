@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI5KqE3r4Q5c-0-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/twister)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7hkKyNWRMyD15Cm-Nfy7DQ-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/moji-altitude-showcase-radio-episode-006)
 
-**Artist**: Oskah 
+**Artist**: Reaching Altitude Records 
 
-**Track**: Twister
+**Track**: MOJI | Altitude Showcase Radio - Episode #006
 
-Last updated at 09/13/2024 13:50
+Last updated at 09/13/2024 13:53
