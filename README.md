@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI5KqE3r4Q5c-0-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/twister?in=saxurn/sets/crushin/)
 
-**Artist**: Tree Gaud 
+**Artist**: Oskah 
 
-**Track**: For The Last Time Gaud FLiP
+**Track**: Twister
 
-Last updated at 09/13/2024 15:46
+Last updated at 09/13/2024 16:30
