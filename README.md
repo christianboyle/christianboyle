@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxeTXVYnzJhRB3Lh-JZc9Dg-t500x500.jpg">](https://soundcloud.com/arya51/ice-spice-princess-diana-arya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wMCdkPb7yjrrwFeW-7WGAZA-t500x500.jpg">](https://soundcloud.com/rebbuu/can-u-hear-me?in=saxurn/sets/crushin/)
 
-**Artist**: Arya 
+**Artist**: rebbuu 
 
-**Track**: Ice Spice - Princess Diana (Arya Remix)
+**Track**: CAN U HEAR ME
 
-Last updated at 09/13/2024 14:09
+Last updated at 09/13/2024 14:10
