@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/neon-tearz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5E9Py6epO0WG8KkL-SpwTLQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/yves-labordus-last-call-ft-sarah-anglionin)
 
-**Artist**: Strobez, Diana Starshine, TWONSK 
+**Artist**: Yves Labordus (ft. Sarah Anglionin) 
 
-**Track**: Strobez, diana starshine, TWONSKi - NEON TEARZ
+**Track**: Yves Labordus - Last Call (ft. Sarah Anglionin)
 
-Last updated at 09/13/2024 14:02
+Last updated at 09/13/2024 14:04
