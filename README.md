@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZLNlZ5sctxDaLQN9-Jq0arA-t500x500.jpg">](https://soundcloud.com/vinceedward/punky-brewstar-imagine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVbN2Um1OjNvAcbK-jsEpyg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/mercy)
 
-**Artist**: Punky Brewstar/Vince Edward/vin-E 
+**Artist**: WINK, nikko 
 
-**Track**: Punky Brewstar Imagine
+**Track**: WINK & nikko - MERCY
 
-Last updated at 09/13/2024 15:36
+Last updated at 09/13/2024 15:41
