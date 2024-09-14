@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gb5N035ef9oajzon-zbMtYA-t500x500.jpg">](https://soundcloud.com/jeanpastordj/4libi-pt2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KCjE1CtdTfTjSJB-uiklMg-t500x500.jpg">](https://soundcloud.com/darn84/brisk-trixxy-eyeopener-m)
 
-**Artist**: DJ JEAN PASTOR 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: [FREE DOWNLOAD] - 4LIBI PT2 FT. 4NITT4 (JEAN PASTOR INTRO REMIX)
+**Track**: Brisk & Trixxy - Eyeopener (M-Project Powerstomp Remix)
 
-Last updated at 09/14/2024 10:03
+Last updated at 09/14/2024 10:04
