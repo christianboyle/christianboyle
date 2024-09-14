@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7TA6Kv2ZelBGqTZ-8OELnA-t500x500.jpg">](https://soundcloud.com/babypinkgf/champion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/pushstart)
 
-**Artist**: 𝘣𝘢𝘣𝘺𝘱𝘪𝘯𝘬 💗 
+**Artist**: Lizdek 
 
-**Track**: Champion!
+**Track**: Lizdek - PUSHSTART
 
-Last updated at 09/14/2024 10:05
+Last updated at 09/14/2024 13:56
