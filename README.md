@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/pushstart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqGTRwZ4yiQM37yg-6iyFEg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/sonic-i-wanna-dance-right-now-original-mix)
 
-**Artist**: Lizdek 
+**Artist**: Fatal Energy Records 
 
-**Track**: Lizdek - PUSHSTART
+**Track**: Sonic - I Wanna Dance Right Now (Original Mix)
 
-Last updated at 09/14/2024 13:56
+Last updated at 09/14/2024 13:57
