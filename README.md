@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KCjE1CtdTfTjSJB-uiklMg-t500x500.jpg">](https://soundcloud.com/darn84/brisk-trixxy-eyeopener-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7TA6Kv2ZelBGqTZ-8OELnA-t500x500.jpg">](https://soundcloud.com/babypinkgf/champion)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: 𝘣𝘢𝘣𝘺𝘱𝘪𝘯𝘬 💗 
 
-**Track**: Brisk & Trixxy - Eyeopener (M-Project Powerstomp Remix)
+**Track**: Champion!
 
-Last updated at 09/14/2024 10:04
+Last updated at 09/14/2024 10:05
