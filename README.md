@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wqGTRwZ4yiQM37yg-6iyFEg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/sonic-i-wanna-dance-right-now-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsMa0HkTw5J27pyk-OisrYA-t500x500.jpg">](https://soundcloud.com/darbysounds/jjjmixup)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Darby 
 
-**Track**: Sonic - I Wanna Dance Right Now (Original Mix)
+**Track**: Darby Triple J Mixup 2024
 
-Last updated at 09/14/2024 13:57
+Last updated at 09/14/2024 13:58
