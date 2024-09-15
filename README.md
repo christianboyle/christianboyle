@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnctIMzF0SWj66At-nzKRrg-t500x500.jpg">](https://soundcloud.com/tars_music/tars-so-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTGX7yGKWqj7J7dq-D7GIQQ-t500x500.jpg">](https://soundcloud.com/darn84/slipmatt-eruption-sunshine)
 
-**Artist**: TARS 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: TARS - So Rave! (FREE DL)
+**Track**: Slipmatt & Eruption - Sunshine - White Label (1997)
 
-Last updated at 09/15/2024 08:23
+Last updated at 09/15/2024 08:24
