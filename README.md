@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsMa0HkTw5J27pyk-OisrYA-t500x500.jpg">](https://soundcloud.com/darbysounds/jjjmixup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnctIMzF0SWj66At-nzKRrg-t500x500.jpg">](https://soundcloud.com/tars_music/tars-so-rave)
 
-**Artist**: Darby 
+**Artist**: TARS 
 
-**Track**: Darby Triple J Mixup 2024
+**Track**: TARS - So Rave! (FREE DL)
 
-Last updated at 09/14/2024 13:58
+Last updated at 09/15/2024 08:23
