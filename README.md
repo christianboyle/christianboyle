@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTGX7yGKWqj7J7dq-D7GIQQ-t500x500.jpg">](https://soundcloud.com/darn84/slipmatt-eruption-sunshine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FZ6zX7HimZ8SDeyB-klTF0g-t500x500.jpg">](https://soundcloud.com/biophaze/jubilex-dislocated)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Jubilex 
 
-**Track**: Slipmatt & Eruption - Sunshine - White Label (1997)
+**Track**: Jubilex - Dislocated
 
-Last updated at 09/15/2024 08:24
+Last updated at 09/15/2024 08:25
