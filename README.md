@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBD0IcuAwwG1VoYN-zsyEHw-t500x500.jpg">](https://soundcloud.com/starxvi/melrose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nGzBYQG4N7zORRE-Qp5nVQ-t500x500.jpg">](https://soundcloud.com/celestegla/voices_celeste_jude_adb)
 
-**Artist**: star(xvi) 
+**Artist**: Céleste, Jude Bradshaw & ADB 
 
-**Track**: melrose w/ prkr blu [pk]
+**Track**: Voices
 
-Last updated at 09/15/2024 08:28
+Last updated at 09/15/2024 08:37
