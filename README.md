@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1nGzBYQG4N7zORRE-Qp5nVQ-t500x500.jpg">](https://soundcloud.com/celestegla/voices_celeste_jude_adb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIrxDnkoBPRyaNE9-vWFAPw-t500x500.jpg">](https://soundcloud.com/sonoroussoundsofficial/ice-spice-deli-sonorous-flip)
 
-**Artist**: Céleste, Jude Bradshaw & ADB 
+**Artist**: Sonorous 
 
-**Track**: Voices
+**Track**: Ice Spice - Deli (Sonorous Flip)
 
-Last updated at 09/15/2024 08:37
+Last updated at 09/15/2024 10:40
