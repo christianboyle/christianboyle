@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KCjE1CtdTfTjSJB-uiklMg-t500x500.jpg">](https://soundcloud.com/darn84/brisk-trixxy-eyeopener-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Tree Gaud 
 
-**Track**: Brisk & Trixxy - Eyeopener (M-Project Powerstomp Remix)
+**Track**: For The Last Time Gaud FLiP
 
-Last updated at 09/16/2024 10:21
+Last updated at 09/16/2024 10:26
