@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJN94BE8FplTLKoK-QNxqzQ-t500x500.jpg">](https://soundcloud.com/jtstanhope/beat-protocol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBD0IcuAwwG1VoYN-zsyEHw-t500x500.jpg">](https://soundcloud.com/starxvi/melrose)
 
-**Artist**: JTS 
+**Artist**: star(xvi) 
 
-**Track**: Beat Protocol Mixed By JTS
+**Track**: melrose w/ prkr blu [pk]
 
-Last updated at 09/16/2024 08:22
+Last updated at 09/16/2024 10:18
