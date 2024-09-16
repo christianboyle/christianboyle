@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fEBbrnXjoqyRczyb-Dzrb9g-t500x500.jpg">](https://soundcloud.com/lio_music/billie-eilish-skinny-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJN94BE8FplTLKoK-QNxqzQ-t500x500.jpg">](https://soundcloud.com/jtstanhope/beat-protocol)
 
-**Artist**: Lost in Orbit 
+**Artist**: JTS 
 
-**Track**: Billie Eilish - Skinny (Lost in Orbit Flip)
+**Track**: Beat Protocol Mixed By JTS
 
-Last updated at 09/16/2024 08:21
+Last updated at 09/16/2024 08:22
