@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BXBOezfiGy7WA2pp-rZYNWA-t500x500.jpg">](https://soundcloud.com/onlytr4nce/davyboi-x-listenblondie-u-gotta-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H4nQjWX2ttaXrJ5R-LmPafw-t500x500.jpg">](https://soundcloud.com/rynsmusic/juice)
 
-**Artist**: ONLYTRANCE 
+**Artist**: RYNS 
 
-**Track**: Davyboi x Listenblondie - U Gotta Love (feat. Marlis)
+**Track**: Juice
 
-Last updated at 09/16/2024 08:18
+Last updated at 09/16/2024 08:20
