@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZ2mpvPsMKepxNMt-KfPgow-t500x500.jpg">](https://soundcloud.com/drgmusic/way-of-the-underground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5E9Py6epO0WG8KkL-SpwTLQ-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/yves-labordus-last-call-ft-sarah-anglionin)
 
-**Artist**: Dr. G 
+**Artist**: Yves Labordus (ft. Sarah Anglionin) 
 
-**Track**: Way Of The Underground
+**Track**: Yves Labordus - Last Call (ft. Sarah Anglionin)
 
-Last updated at 09/16/2024 11:09
+Last updated at 09/16/2024 11:13
