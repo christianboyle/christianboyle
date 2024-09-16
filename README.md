@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBD0IcuAwwG1VoYN-zsyEHw-t500x500.jpg">](https://soundcloud.com/starxvi/melrose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMiQa0ezd52e6LLS-zbcfdw-t500x500.jpg">](https://soundcloud.com/v6y/aug24)
 
-**Artist**: star(xvi) 
+**Artist**: vrai 
 
-**Track**: melrose w/ prkr blu [pk]
+**Track**: @psvrai aug24༯
 
-Last updated at 09/15/2024 12:20
+Last updated at 09/15/2024 19:09
