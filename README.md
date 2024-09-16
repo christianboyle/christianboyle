@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fMiQa0ezd52e6LLS-zbcfdw-t500x500.jpg">](https://soundcloud.com/v6y/aug24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41fUqiC1zi36x7xk-zpbXaw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-relyve-artificial-invasion-ntnd020)
 
-**Artist**: vrai 
+**Artist**: Relyve 
 
-**Track**: @psvrai aug24༯
+**Track**: Premiere: Relyve - Artificial Invasion [NTND020]
 
-Last updated at 09/15/2024 19:09
+Last updated at 09/16/2024 07:39
