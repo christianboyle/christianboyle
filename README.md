@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBD0IcuAwwG1VoYN-zsyEHw-t500x500.jpg">](https://soundcloud.com/starxvi/melrose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KCjE1CtdTfTjSJB-uiklMg-t500x500.jpg">](https://soundcloud.com/darn84/brisk-trixxy-eyeopener-m)
 
-**Artist**: star(xvi) 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: melrose w/ prkr blu [pk]
+**Track**: Brisk & Trixxy - Eyeopener (M-Project Powerstomp Remix)
 
-Last updated at 09/16/2024 10:18
+Last updated at 09/16/2024 10:21
