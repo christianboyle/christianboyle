@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwiDAZ3m2BpTkgVe-NxkfqA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/mike-reverie-matty-metrix-harmony-electric-fox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3b0xjAPN5IkNpDj-tugknA-t500x500.jpg">](https://soundcloud.com/huskibass/ignis-zaruflo-collapse-huski-bass-011)
 
-**Artist**: Mike Reverie & Matty Metrix 
+**Artist**: ignis. & Zaruflo 
 
-**Track**: Mike Reverie & Matty Metrix - Harmony (Electric Fox)
+**Track**: ignis. & Zaruflo - COLLAPSE (HUSKI BASS 011)
 
-Last updated at 09/16/2024 11:16
+Last updated at 09/17/2024 08:55
