@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVzS4ueavkIT92wu-VX3PzA-t500x500.jpg">](https://soundcloud.com/novembrmusic/travis-scott-5-novembr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNfME6YQ08f46PnE-n80UAg-t500x500.jpg">](https://soundcloud.com/terrydeevey/witchblades-lil-peep-deevey-edit-mstr)
 
-**Artist**: NOVEMBR 
+**Artist**: DEEVEY 
 
-**Track**: Travis Scott - 5% TINT (NOVEMBR & REDAKTED FLIP)
+**Track**: Lil Peep - Witchblades (Deevey Edit)
 
-Last updated at 09/17/2024 09:52
+Last updated at 09/17/2024 09:54
