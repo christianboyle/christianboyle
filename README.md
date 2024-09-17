@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UR9HeWYoe29a-0-t500x500.jpg">](https://soundcloud.com/r3hab-sc/are-you-happy-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQC3drnuyZB97IeI-38mYBg-t500x500.jpg">](https://soundcloud.com/playmerecords/kbyat-again-exile-remix)
 
-**Artist**: R3HAB, 希林娜依高, Crazy Donkey 
+**Artist**: Kbyat 
 
-**Track**: Are You Happy Now
+**Track**: Kbyat - Again (Exile Remix)
 
-Last updated at 09/17/2024 09:00
+Last updated at 09/17/2024 09:01
