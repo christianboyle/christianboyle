@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41fUqiC1zi36x7xk-zpbXaw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-relyve-artificial-invasion-ntnd020)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0KpcrWkVFF4jIlh-KweKHg-t500x500.jpg">](https://soundcloud.com/gimela/charli-xcx-360-gimela-remix-free-dl)
 
-**Artist**: Relyve 
+**Artist**: GIMELA 
 
-**Track**: Premiere: Relyve - Artificial Invasion [NTND020]
+**Track**: CHARLI XCX - 360 (GIMELA REMIX) [FREE DL]
 
-Last updated at 09/17/2024 09:12
+Last updated at 09/17/2024 09:40
