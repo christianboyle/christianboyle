@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0KpcrWkVFF4jIlh-KweKHg-t500x500.jpg">](https://soundcloud.com/gimela/charli-xcx-360-gimela-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SsZ9dmNomgorSdy-tfYJhQ-t500x500.jpg">](https://soundcloud.com/triptropmusic/henry-fong-rave-tool-trip-trop-twist)
 
-**Artist**: GIMELA 
+**Artist**: Trip Trop 
 
-**Track**: CHARLI XCX - 360 (GIMELA REMIX) [FREE DL]
+**Track**: Henry Fong - Rave Tool (Trip Trop Twist)
 
-Last updated at 09/17/2024 11:23
+Last updated at 09/18/2024 08:29
