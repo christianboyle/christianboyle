@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kalC89aE08l4mAaG-7Bnu7g-t500x500.png">](https://soundcloud.com/marettamusic/tyla-water-maretta-harajukuray-hardedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGttw9zUravpvtlX-9xLvPg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/robert-curtis-leroy-beats-collide-original-mix)
 
-**Artist**: MARETTA, HarajukuRay 
+**Artist**: Fatal Energy Records 
 
-**Track**: Tyla - Water (Maretta & HarajukuRay Hard Edit) 140 Bpm
+**Track**: Robert Curtis & Leroy - Beats Collide (Original Mix)
 
-Last updated at 09/18/2024 10:14
+Last updated at 09/18/2024 10:18
