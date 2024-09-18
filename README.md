@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGttw9zUravpvtlX-9xLvPg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/robert-curtis-leroy-beats-collide-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUuus2vWIKyy7nq4-t2FZlw-t500x500.jpg">](https://soundcloud.com/subcarbon/blasta)
 
-**Artist**: Fatal Energy Records 
+**Artist**: 2TD 
 
-**Track**: Robert Curtis & Leroy - Beats Collide (Original Mix)
+**Track**: 2TD - Blasta
 
-Last updated at 09/18/2024 10:18
+Last updated at 09/18/2024 11:05
