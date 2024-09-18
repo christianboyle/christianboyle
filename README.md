@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGttw9zUravpvtlX-9xLvPg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/robert-curtis-leroy-beats-collide-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wI0PXvk0OBRemBI-corUTw-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/touch-inquisitive-remix)
 
-**Artist**: Fatal Energy Records 
+**Artist**: KATSEYE 
 
-**Track**: Robert Curtis & Leroy - Beats Collide (Original Mix)
+**Track**: Touch (Inquisitive Remix)
 
-Last updated at 09/18/2024 09:14
+Last updated at 09/18/2024 09:15
