@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIrxDnkoBPRyaNE9-vWFAPw-t500x500.jpg">](https://soundcloud.com/sonoroussoundsofficial/ice-spice-deli-sonorous-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMAmMxyELbjQnUR3-XujF8Q-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-save-me-final-master-2)
 
-**Artist**: Sonorous 
+**Artist**: Tom Frane 
 
-**Track**: Ice Spice - Deli (Sonorous Flip)
+**Track**: Tom Frane - Save Me
 
-Last updated at 09/18/2024 10:00
+Last updated at 09/18/2024 10:02
