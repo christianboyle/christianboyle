@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyqSrWbPbW86DcyB-zZFzsw-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/secret-recipe-thug-shells-braaap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUuus2vWIKyy7nq4-t2FZlw-t500x500.jpg">](https://soundcloud.com/subcarbon/blasta)
 
-**Artist**: Secret Recipe, Thug Shells 
+**Artist**: 2TD 
 
-**Track**: Secret Recipe & Thug Shells - BRAAAP
+**Track**: 2TD - Blasta
 
-Last updated at 09/18/2024 08:43
+Last updated at 09/18/2024 08:44
