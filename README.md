@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5sETvVrazCzDV4zZ-51LoAA-t500x500.jpg">](https://soundcloud.com/entasiaaa/entasia-rec002wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhbywNhX8kcAWzZT-iqCC7Q-t500x500.jpg">](https://soundcloud.com/face-flip-records/akolyte-back-to-the-front)
 
-**Artist**: Entasia 
+**Artist**: AKOLYTE 
 
-**Track**: Entasia • REC002.WAV
+**Track**: AKOLYTE - Back To The Front
 
-Last updated at 09/18/2024 08:30
+Last updated at 09/18/2024 08:31
