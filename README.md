@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzxCoQRhAHZnrtng-HxEmMg-t500x500.jpg">](https://soundcloud.com/dnzrecords/the-bounce-brothers-sorry-i-let-you-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wI0PXvk0OBRemBI-corUTw-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/touch-inquisitive-remix)
 
-**Artist**: The Bounce Brothers 
+**Artist**: KATSEYE 
 
-**Track**: The Bounce Brothers - Sorry I Let You Down
+**Track**: Touch (Inquisitive Remix)
 
-Last updated at 09/18/2024 15:52
+Last updated at 09/18/2024 16:20
