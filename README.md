@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdW9bJRwrdQZ45tV-JKTvtg-t500x500.jpg">](https://soundcloud.com/djrikouk/sonny-fodera-feat-blythe-mind-still-riko-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIrxDnkoBPRyaNE9-vWFAPw-t500x500.jpg">](https://soundcloud.com/sonoroussoundsofficial/ice-spice-deli-sonorous-flip)
 
-**Artist**: Riko 
+**Artist**: Sonorous 
 
-**Track**: Sonny Fodera Feat. Blythe - Mind Still (Riko Remix)
+**Track**: Ice Spice - Deli (Sonorous Flip)
 
-Last updated at 09/18/2024 09:59
+Last updated at 09/18/2024 10:00
