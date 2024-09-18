@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGttw9zUravpvtlX-9xLvPg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/robert-curtis-leroy-beats-collide-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JF7Q9ll2iYDzSnjj-fQkADg-t500x500.jpg">](https://soundcloud.com/dj-a-k/dj-ak-90s-bouncy-hardcore-mix-200724)
 
-**Artist**: Fatal Energy Records 
+**Artist**: DJ A.K. 
 
-**Track**: Robert Curtis & Leroy - Beats Collide (Original Mix)
+**Track**: DJ A.K. - 90's Bouncy Hardcore Mix 20.07.24
 
-Last updated at 09/18/2024 11:14
+Last updated at 09/18/2024 15:44
