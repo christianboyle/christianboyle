@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gmz9UPvptzhp7otn-FiynOA-t500x500.jpg">](https://soundcloud.com/astralbandit/faded-astral-bandit-atlantean-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/neon-tearz)
 
-**Artist**: Astral Bandit 
+**Artist**: Strobez, Diana Starshine, TWONSK 
 
-**Track**: Faded - Astral Bandit Atlantean Club Edit
+**Track**: Strobez, diana starshine, TWONSKi - NEON TEARZ
 
-Last updated at 09/19/2024 12:40
+Last updated at 09/19/2024 12:45
