@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVbN2Um1OjNvAcbK-jsEpyg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JudaaIJlCheywOgM-QR8Nkw-t500x500.jpg">](https://soundcloud.com/drakkofficial/darude-feel-the-beat-drakk-edit-5)
 
-**Artist**: WINK, nikko 
+**Artist**: 𝐃𝐑𝐀𝐊𝐊 
 
-**Track**: WINK & nikko - MERCY
+**Track**: Darude - Feel The Beat (DRAKK EDIT)
 
-Last updated at 09/19/2024 12:06
+Last updated at 09/19/2024 12:10
