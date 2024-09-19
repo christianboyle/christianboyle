@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FCrcQEHsxLpeNA2m-iU5BcA-t500x500.jpg">](https://soundcloud.com/benniednb/hanumankind-big-dawgs-bennie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUuus2vWIKyy7nq4-t2FZlw-t500x500.jpg">](https://soundcloud.com/subcarbon/blasta)
 
-**Artist**: Bennie 
+**Artist**: 2TD 
 
-**Track**: hanumankind - big dawgs (bennie flip) [FREE]
+**Track**: 2TD - Blasta
 
-Last updated at 09/19/2024 09:43
+Last updated at 09/19/2024 09:46
