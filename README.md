@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/neon-tearz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WzKtzMwVtvzZPky7-IUVk0w-t500x500.jpg">](https://soundcloud.com/officialyussi/yussi-stogie)
 
-**Artist**: Strobez, Diana Starshine, TWONSK 
+**Artist**: YUSSI 
 
-**Track**: Strobez, diana starshine, TWONSKi - NEON TEARZ
+**Track**: YUSSI - STOGIE [FREE DOWNLOAD]
 
-Last updated at 09/19/2024 12:45
+Last updated at 09/19/2024 12:46
