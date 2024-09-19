@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oVzS4ueavkIT92wu-VX3PzA-t500x500.jpg">](https://soundcloud.com/novembrmusic/travis-scott-5-novembr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdW9bJRwrdQZ45tV-JKTvtg-t500x500.jpg">](https://soundcloud.com/djrikouk/sonny-fodera-feat-blythe-mind-still-riko-remix-free-download)
 
-**Artist**: NOVEMBR 
+**Artist**: Riko 
 
-**Track**: Travis Scott - 5% TINT (NOVEMBR & REDAKTED FLIP)
+**Track**: Sonny Fodera Feat. Blythe - Mind Still (Riko Remix)
 
-Last updated at 09/19/2024 11:48
+Last updated at 09/19/2024 11:50
