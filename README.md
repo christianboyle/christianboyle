@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbH4arT8wWF1k4gN-RiY9OQ-t500x500.jpg">](https://soundcloud.com/ipsiom/ipsiom-presents-hypertrance-mix-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gd6ood4uRQ8yabxc-XmgZXw-t500x500.jpg">](https://soundcloud.com/mcgrizzofficial/all-of-the-lights-mc-grizz-remix)
 
-**Artist**: Ipsiom 
+**Artist**: Mc Grizz 
 
-**Track**: Ipsiom Presents - Hypertrance Mix 002
+**Track**: Kanye West - All Of The Lights (Mc Grizz Remix)
 
-Last updated at 09/19/2024 08:22
+Last updated at 09/19/2024 09:29
