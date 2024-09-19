@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JudaaIJlCheywOgM-QR8Nkw-t500x500.jpg">](https://soundcloud.com/drakkofficial/darude-feel-the-beat-drakk-edit-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NI5KqE3r4Q5c-0-t500x500.jpg">](https://soundcloud.com/reachingaltituderecords/twister)
 
-**Artist**: 𝐃𝐑𝐀𝐊𝐊 
+**Artist**: Oskah 
 
-**Track**: Darude - Feel The Beat (DRAKK EDIT)
+**Track**: Twister
 
-Last updated at 09/19/2024 12:10
+Last updated at 09/19/2024 12:16
