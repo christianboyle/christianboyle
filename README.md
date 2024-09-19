@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4QWjMfkTLvRpkcz-8igaKg-t500x500.jpg">](https://soundcloud.com/1800blkout/drowning-pool-bodies-blkout-bootleg-masterv2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4ke1ZCqGLz2OycV-kYGL1g-t500x500.jpg">](https://soundcloud.com/jomarijan/touch)
 
-**Artist**: blkout. 
+**Artist**: Jomarijan 
 
-**Track**: drowning pool - bodies [blkout. bootleg]
+**Track**: KATSEYE - Touch (Jomarijan X KICKCHEEZE Hardstyle Bootleg)
 
-Last updated at 09/19/2024 12:48
+Last updated at 09/19/2024 12:49
