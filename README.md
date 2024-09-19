@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmwQryKECiNzEs9e-s4p4MA-t500x500.jpg">](https://soundcloud.com/treegaud/for-the-last-time-gaud-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVbN2Um1OjNvAcbK-jsEpyg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/mercy)
 
-**Artist**: Tree Gaud 
+**Artist**: WINK, nikko 
 
-**Track**: For The Last Time Gaud FLiP
+**Track**: WINK & nikko - MERCY
 
-Last updated at 09/19/2024 12:03
+Last updated at 09/19/2024 12:06
