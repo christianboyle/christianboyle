@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KCjE1CtdTfTjSJB-uiklMg-t500x500.jpg">](https://soundcloud.com/darn84/brisk-trixxy-eyeopener-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VV0wRYSJSwCLO0bF-0Z8SqA-t500x500.jpg">](https://soundcloud.com/jordnmoody/otra)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: jordnmoody 
 
-**Track**: Brisk & Trixxy - Eyeopener (M-Project Powerstomp Remix)
+**Track**: OTRA
 
-Last updated at 09/19/2024 09:59
+Last updated at 09/19/2024 10:44
