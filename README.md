@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4ke1ZCqGLz2OycV-kYGL1g-t500x500.jpg">](https://soundcloud.com/jomarijan/touch?in=kickcheeze/sets/katseye-touch-jomarijan-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UR9HeWYoe29a-0-t500x500.jpg">](https://soundcloud.com/r3hab-sc/are-you-happy-now)
 
-**Artist**: Jomarijan 
+**Artist**: R3HAB, 希林娜依高, Crazy Donkey 
 
-**Track**: KATSEYE - Touch (Jomarijan X KICKCHEEZE Hardstyle Bootleg)
+**Track**: Are You Happy Now
 
-Last updated at 09/19/2024 10:50
+Last updated at 09/19/2024 10:53
