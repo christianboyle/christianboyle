@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/neon-tearz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nxJtN5HW3ANpol4e-gBZ0nQ-t500x500.jpg">](https://soundcloud.com/43u/decay)
 
-**Artist**: Strobez, Diana Starshine, TWONSK 
+**Artist**: 2040x2040 
 
-**Track**: Strobez, diana starshine, TWONSKi - NEON TEARZ
+**Track**: Decay feat. 80gawd
 
-Last updated at 09/19/2024 12:32
+Last updated at 09/19/2024 12:36
