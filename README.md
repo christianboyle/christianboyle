@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wI0PXvk0OBRemBI-corUTw-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/touch-inquisitive-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-95UAZeoCAUswMLqR-XbzO0g-t500x500.jpg">](https://soundcloud.com/wubaholics/ag-funk-like-ag)
 
-**Artist**: KATSEYE 
+**Artist**: AG 
 
-**Track**: Touch (Inquisitive Remix)
+**Track**: AG - Funk Like AG
 
-Last updated at 09/18/2024 16:20
+Last updated at 09/19/2024 08:16
