@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0KpcrWkVFF4jIlh-KweKHg-t500x500.jpg">](https://soundcloud.com/gimela/charli-xcx-360-gimela-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TNfME6YQ08f46PnE-n80UAg-t500x500.jpg">](https://soundcloud.com/terrydeevey/witchblades-lil-peep-deevey-edit-mstr)
 
-**Artist**: GIMELA 
+**Artist**: DEEVEY 
 
-**Track**: CHARLI XCX - 360 (GIMELA REMIX) [FREE DL]
+**Track**: Lil Peep - Witchblades (Deevey Edit)
 
-Last updated at 09/19/2024 11:37
+Last updated at 09/19/2024 11:43
