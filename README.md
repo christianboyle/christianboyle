@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1z47xSWlSIJckz6E-LoaBLQ-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-small-crab-dosa-dosa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbH4arT8wWF1k4gN-RiY9OQ-t500x500.jpg">](https://soundcloud.com/ipsiom/ipsiom-presents-hypertrance-mix-002)
 
-**Artist**: Mixmag 
+**Artist**: Ipsiom 
 
-**Track**: Premiere: Small Crab 'Dosa Dosa'
+**Track**: Ipsiom Presents - Hypertrance Mix 002
 
-Last updated at 09/19/2024 08:21
+Last updated at 09/19/2024 08:22
