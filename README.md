@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eq4ed5yseVozlpxr-XzzcaQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jay-reeve-geck-o-feel-the-music?in=saxurn/sets/zzz/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBD0IcuAwwG1VoYN-zsyEHw-t500x500.jpg">](https://soundcloud.com/starxvi/melrose)
 
-**Artist**: Jay Reeve & Geck-o 
+**Artist**: starxvi, prkr blu 
 
-**Track**: Jay Reeve & Geck-o - Feel The Music
+**Track**: melrose w/ prkr blu [pk]
 
-Last updated at 09/20/2024 18:54
+Last updated at 09/20/2024 18:58
