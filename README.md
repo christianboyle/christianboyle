@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVbN2Um1OjNvAcbK-jsEpyg-t500x500.jpg">](https://soundcloud.com/nightmoderecs/mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzRt2z0ULsSh1rzh-NOZkOw-t500x500.jpg">](https://soundcloud.com/ortisei/yerbby-lazarus-ortisei-x-earthangelbaby-remix?in=saxurn/sets/zzz/)
 
-**Artist**: WINK, nikko 
+**Artist**: ortisei 
 
-**Track**: WINK & nikko - MERCY
+**Track**: yerbby - lazarus (ortisei x earthangelbaby remix)
 
-Last updated at 09/20/2024 10:31
+Last updated at 09/20/2024 18:50
