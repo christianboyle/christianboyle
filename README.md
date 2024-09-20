@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kTyDy6L1LI3dAoH7-NmRpeA-t500x500.jpg">](https://soundcloud.com/pradaaslife/pradaaslife-drux-lunaa-im-on-one-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzRt2z0ULsSh1rzh-NOZkOw-t500x500.jpg">](https://soundcloud.com/ortisei/yerbby-lazarus-ortisei-x-earthangelbaby-remix)
 
-**Artist**: Pradaaslife 
+**Artist**: ortisei 
 
-**Track**: Pradaaslife, Drux & Lunaa - I'm on one
+**Track**: yerbby - lazarus (ortisei x earthangelbaby remix)
 
-Last updated at 09/20/2024 10:06
+Last updated at 09/20/2024 10:09
