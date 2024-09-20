@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/maria-nayler-naked-sacred-hendy-remix?in=user-484501021/sets/new-years-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kTyDy6L1LI3dAoH7-NmRpeA-t500x500.jpg">](https://soundcloud.com/pradaaslife/pradaaslife-drux-lunaa-im-on-one-1)
 
-**Artist**: DJ Hendy 
+**Artist**: Pradaaslife 
 
-**Track**: Maria Nayler - Naked & Sacred (Hendy Remix) FREE DOWNLOAD
+**Track**: Pradaaslife, Drux & Lunaa - I'm on one
 
-Last updated at 09/20/2024 09:44
+Last updated at 09/20/2024 09:45
