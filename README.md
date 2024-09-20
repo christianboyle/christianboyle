@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kalC89aE08l4mAaG-7Bnu7g-t500x500.png">](https://soundcloud.com/marettamusic/tyla-water-maretta-harajukuray-hardedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wI0PXvk0OBRemBI-corUTw-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/touch-inquisitive-remix)
 
-**Artist**: MARETTA, HarajukuRay 
+**Artist**: KATSEYE 
 
-**Track**: Tyla - Water (Maretta & HarajukuRay Hard Edit) 140 Bpm
+**Track**: Touch (Inquisitive Remix)
 
-Last updated at 09/20/2024 10:26
+Last updated at 09/20/2024 10:30
