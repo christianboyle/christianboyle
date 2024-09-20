@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIE2elxxEylFrSwc-E4Lfmg-t500x500.jpg">](https://soundcloud.com/sablevalley/glory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G4sxp6C1cSWNzdZR-kQHR4Q-t500x500.jpg">](https://soundcloud.com/aylen/aylen-bad-btches)
 
-**Artist**: Odd Language 
+**Artist**: Aylen 
 
-**Track**: Odd Language - Glory
+**Track**: Aylen - Bad B*tches
 
-Last updated at 09/20/2024 09:52
+Last updated at 09/20/2024 09:53
