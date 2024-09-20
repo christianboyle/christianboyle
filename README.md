@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUuus2vWIKyy7nq4-t2FZlw-t500x500.jpg">](https://soundcloud.com/subcarbon/blasta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kalC89aE08l4mAaG-7Bnu7g-t500x500.png">](https://soundcloud.com/marettamusic/tyla-water-maretta-harajukuray-hardedit)
 
-**Artist**: 2TD 
+**Artist**: MARETTA, HarajukuRay 
 
-**Track**: 2TD - Blasta
+**Track**: Tyla - Water (Maretta & HarajukuRay Hard Edit) 140 Bpm
 
-Last updated at 09/20/2024 10:24
+Last updated at 09/20/2024 10:26
