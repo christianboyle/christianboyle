@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0KpcrWkVFF4jIlh-KweKHg-t500x500.jpg">](https://soundcloud.com/gimela/charli-xcx-360-gimela-remix-free-dl?in=saxurn/sets/htft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzUiCw732MHRPi79-ZssDjA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/inmymind)
 
-**Artist**: GIMELA 
+**Artist**: longstoryshort 
 
-**Track**: CHARLI XCX - 360 (GIMELA REMIX) [FREE DL]
+**Track**: longstoryshort - In My Mind
 
-Last updated at 09/21/2024 19:37
+Last updated at 09/22/2024 13:00
