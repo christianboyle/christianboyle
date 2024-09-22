@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2qV9HDkzGlYwY9Zl-LNmhNQ-t500x500.jpg">](https://soundcloud.com/saturaterecords/smokestax-stuntin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s2PmJdu1WGKgNThB-iilMJQ-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-its-a-fine-day-hard-techno-remix-grym-x-moxius)
 
-**Artist**: Smokestax 
+**Artist**: GEWOONRAVES 
 
-**Track**: Smokestax - Stuntin'
+**Track**: [FREE DL] It's A Fine Day (Hard Techno Remix) - Grym X Moxius
 
-Last updated at 09/22/2024 13:01
+Last updated at 09/22/2024 13:02
