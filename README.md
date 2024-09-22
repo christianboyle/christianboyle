@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3thx7IXH8SJEDO2a-YrJSmg-t500x500.jpg">](https://soundcloud.com/jusbetter-danyiu/nettspend-deftones-new-snippet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSyPxiUk5TWktQrg-WdGCdw-t500x500.jpg">](https://soundcloud.com/dalfinmusic/wav-pool-vol-4)
 
-**Artist**: Iblamekareem 
+**Artist**: Dalfin 🐬 
 
-**Track**: Nettspend - That one song
+**Track**: WAV Pool Vol. 3
 
-Last updated at 09/22/2024 13:03
+Last updated at 09/22/2024 13:04
