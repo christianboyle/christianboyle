@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KzUiCw732MHRPi79-ZssDjA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/inmymind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2qV9HDkzGlYwY9Zl-LNmhNQ-t500x500.jpg">](https://soundcloud.com/saturaterecords/smokestax-stuntin)
 
-**Artist**: longstoryshort 
+**Artist**: Smokestax 
 
-**Track**: longstoryshort - In My Mind
+**Track**: Smokestax - Stuntin'
 
-Last updated at 09/22/2024 13:00
+Last updated at 09/22/2024 13:01
