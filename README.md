@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wI0PXvk0OBRemBI-corUTw-t500x500.jpg">](https://soundcloud.com/inquisitiveremixes/touch-inquisitive-remix?in=saxurn/sets/htft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0KpcrWkVFF4jIlh-KweKHg-t500x500.jpg">](https://soundcloud.com/gimela/charli-xcx-360-gimela-remix-free-dl?in=saxurn/sets/htft)
 
-**Artist**: KATSEYE 
+**Artist**: GIMELA 
 
-**Track**: Touch (Inquisitive Remix)
+**Track**: CHARLI XCX - 360 (GIMELA REMIX) [FREE DL]
 
-Last updated at 09/21/2024 19:34
+Last updated at 09/21/2024 19:37
