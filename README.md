@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ABPdHJzmiMLqaSXG-B6asKw-t500x500.jpg">](https://soundcloud.com/noiseprn/lagnaf-vortex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JzRt2z0ULsSh1rzh-NOZkOw-t500x500.jpg">](https://soundcloud.com/ortisei/yerbby-lazarus-ortisei-x-earthangelbaby-remix?in=saxurn/sets/htft)
 
-**Artist**: Lagnaf 
+**Artist**: ortisei 
 
-**Track**: LAGnaf - VORtex
+**Track**: yerbby - lazarus (ortisei x earthangelbaby remix)
 
-Last updated at 09/23/2024 08:38
+Last updated at 09/23/2024 08:44
