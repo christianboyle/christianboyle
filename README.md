@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTvrx56BzokF63Pp-w7txRw-t500x500.jpg">](https://soundcloud.com/drewthearchitect/openhouse?in=drewthearchitect/sets/modernarchitecture)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9Yek2syHQcVgMiq-5DPR9A-t500x500.jpg">](https://soundcloud.com/daniel7official/redline-grinders-tatsunoshin-remix)
 
-**Artist**: drew the architect 
+**Artist**: Daniel Seven 
 
-**Track**: bones & drew the architect - openhouse
+**Track**: Redline Grinders (Tatsunoshin Remix)
 
-Last updated at 09/22/2024 13:42
+Last updated at 09/23/2024 08:20
