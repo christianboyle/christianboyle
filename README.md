@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NKPmM0G4o2oc6aYJ-f5pihw-t500x500.jpg">](https://soundcloud.com/dor1s/party-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3PKMZlTibAuJzRW-NzhiLA-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-manex-x-gewoonraves-sound-of-the-underground)
 
-**Artist**: DORIS 
+**Artist**: GEWOONRAVES 
 
-**Track**: Party 2
+**Track**: [FREE DL] MANEX x GEWOONRAVES - SOUND OF THE UNDERGROUND
 
-Last updated at 09/23/2024 08:24
+Last updated at 09/23/2024 08:25
