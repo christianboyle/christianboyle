@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BLnrB32LsS51Vid-wWGiHQ-t500x500.jpg">](https://soundcloud.com/smilesonlymusic/artemas-i-like-the-way-you-kiss-me-smiles-only-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NKPmM0G4o2oc6aYJ-f5pihw-t500x500.jpg">](https://soundcloud.com/dor1s/party-2)
 
-**Artist**: Smiles Only 
+**Artist**: DORIS 
 
-**Track**: Artemas - i like the way you kiss me (Smiles Only Remix)
+**Track**: Party 2
 
-Last updated at 09/23/2024 08:23
+Last updated at 09/23/2024 08:24
