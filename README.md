@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z9Yek2syHQcVgMiq-5DPR9A-t500x500.jpg">](https://soundcloud.com/daniel7official/redline-grinders-tatsunoshin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lTrdTyAHB6ryob5o-EPrjUQ-t500x500.jpg">](https://soundcloud.com/zuzeofficial/killa-remix)
 
-**Artist**: Daniel Seven 
+**Artist**: ZUZE 
 
-**Track**: Redline Grinders (Tatsunoshin Remix)
+**Track**: KILLA (REMIX)
 
-Last updated at 09/23/2024 08:20
+Last updated at 09/23/2024 08:21
