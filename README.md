@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUuus2vWIKyy7nq4-t2FZlw-t500x500.jpg">](https://soundcloud.com/subcarbon/blasta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMAmMxyELbjQnUR3-XujF8Q-t500x500.jpg">](https://soundcloud.com/tomfrane/tom-frane-save-me-final-master-2)
 
-**Artist**: 2TD 
+**Artist**: Tom Frane 
 
-**Track**: 2TD - Blasta
+**Track**: Tom Frane - Save Me
 
-Last updated at 09/24/2024 08:41
+Last updated at 09/24/2024 08:44
