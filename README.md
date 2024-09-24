@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaWll3TyK1yJKoYq-LgMzcg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/xenotype-interstellar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vdp8cp3xmBrzs0Gs-fzO9Mg-t500x500.jpg">](https://soundcloud.com/danazar-edm/danazar-stellar-waves)
 
-**Artist**: Xenotype 
+**Artist**: Danazar 
 
-**Track**: Xenotype - Interstellar
+**Track**: Stellar Waves
 
-Last updated at 09/24/2024 08:19
+Last updated at 09/24/2024 08:20
