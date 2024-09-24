@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ABPdHJzmiMLqaSXG-B6asKw-t500x500.jpg">](https://soundcloud.com/noiseprn/lagnaf-vortex?in=saxurn/sets/htft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VaWll3TyK1yJKoYq-LgMzcg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/xenotype-interstellar)
 
-**Artist**: Lagnaf 
+**Artist**: Xenotype 
 
-**Track**: LAGnaf - VORtex
+**Track**: Xenotype - Interstellar
 
-Last updated at 09/23/2024 14:11
+Last updated at 09/24/2024 08:19
