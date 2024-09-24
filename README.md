@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kCwDiJ8YVEyeXDjr-FrnIZw-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/djs-factory-missing-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hGSgNUBxkdq0rd73-rygJ2g-t500x500.jpg">](https://soundcloud.com/dirtyaudio/hold-on-dirty-audio-remix)
 
-**Artist**: Jimmer // DJs Factory 
+**Artist**: Dirty Audio 
 
-**Track**: DJS Factory - Missing [sample]
+**Track**: Kygo - Hold On (Dirty Audio Remix)
 
-Last updated at 09/24/2024 08:23
+Last updated at 09/24/2024 08:24
