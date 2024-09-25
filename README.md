@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yR7lorMlx0YIivaq-tkJaIw-t500x500.jpg">](https://soundcloud.com/darbysounds/partyvip?in=darbysounds/sets/what-you-waiting-for-party-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JZaNznFAtA4Qz5Nh-WZTjHQ-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/amaru-converge-original-mix)
 
-**Artist**: Darby 
+**Artist**: Fatal Energy Records 
 
-**Track**: Darby & OOTORO - PARTY (VIP)
+**Track**: Amaru - Converge (Original Mix)
 
-Last updated at 09/25/2024 08:44
+Last updated at 09/25/2024 08:45
