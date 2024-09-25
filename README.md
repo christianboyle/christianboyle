@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yssKGylh6MrXVhtQ-8HgHuA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/psyko-punkz-human)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weindjWcqp2FCs7A-xfuxFA-t500x500.jpg">](https://soundcloud.com/discolemusic/discole-zombie-in-your-head-techno)
 
-**Artist**: Psyko Punkz 
+**Artist**: Discole 
 
-**Track**: Psyko Punkz - Human
+**Track**: Discole - Zombie (In Your Head) [SPOTIFY]
 
-Last updated at 09/25/2024 11:17
+Last updated at 09/25/2024 11:19
