@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5NqyfjLGQFyaLaLr-fdgiYA-t500x500.jpg">](https://soundcloud.com/hemi-wav/slayde-i-made-a-cicada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weindjWcqp2FCs7A-xfuxFA-t500x500.jpg">](https://soundcloud.com/discolemusic/discole-zombie-in-your-head-techno)
 
-**Artist**: SLAYDE 
+**Artist**: Discole 
 
-**Track**: SLAYDE - I Made A Cicada
+**Track**: Discole - Zombie (In Your Head) [SPOTIFY]
 
-Last updated at 09/25/2024 08:33
+Last updated at 09/25/2024 08:34
