@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzr1Fbo1kQEhF8zC-6yhEOQ-t500x500.png">](https://soundcloud.com/geckonl/tfc18-geck-o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yR7lorMlx0YIivaq-tkJaIw-t500x500.jpg">](https://soundcloud.com/darbysounds/partyvip)
 
-**Artist**: Geck-o 
+**Artist**: Darby 
 
-**Track**: Geck-o @ The Funky Cat #18 DAYTIME RAVE 👑 set recording
+**Track**: Darby & OOTORO - PARTY (VIP)
 
-Last updated at 09/25/2024 09:42
+Last updated at 09/25/2024 11:07
