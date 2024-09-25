@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I6IQY0YLAD7KqDZI-Wu0CFA-t500x500.jpg">](https://soundcloud.com/electrostepnetwork/boost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yR7lorMlx0YIivaq-tkJaIw-t500x500.jpg">](https://soundcloud.com/darbysounds/partyvip?in=darbysounds/sets/what-you-waiting-for-party-vip)
 
-**Artist**: Electrostep Network 
+**Artist**: Darby 
 
-**Track**: Gawtbass - Boost [Electrostep Network & Big Impact EXCLUSIVE]
+**Track**: Darby & OOTORO - PARTY (VIP)
 
-Last updated at 09/25/2024 08:43
+Last updated at 09/25/2024 08:44
