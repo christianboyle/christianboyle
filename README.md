@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCbeOBXyUbddA2Ly-m4d9Cw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/firelite-redhot-fast-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yssKGylh6MrXVhtQ-8HgHuA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/psyko-punkz-human)
 
-**Artist**: Firelite & RedHot 
+**Artist**: Psyko Punkz 
 
-**Track**: Firelite & Redhot - Fast Love
+**Track**: Psyko Punkz - Human
 
-Last updated at 09/25/2024 09:20
+Last updated at 09/25/2024 09:23
