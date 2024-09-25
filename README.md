@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o1YXH4FdAlG7LHYN-6W6evw-t500x500.jpg">](https://soundcloud.com/mikereveriemr/mike-reverie-x-matty-metrix-harmony)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCbeOBXyUbddA2Ly-m4d9Cw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/firelite-redhot-fast-love)
 
-**Artist**: Mike Reverie 
+**Artist**: Firelite & RedHot 
 
-**Track**: Mike Reverie X Matty Metrix - Harmony
+**Track**: Firelite & Redhot - Fast Love
 
-Last updated at 09/25/2024 09:17
+Last updated at 09/25/2024 09:20
