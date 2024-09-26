@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ABPdHJzmiMLqaSXG-B6asKw-t500x500.jpg">](https://soundcloud.com/noiseprn/lagnaf-vortex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pc4B0MZsPzmi7Xig-3BEtyg-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/duality-crazy-o-m-g-premiere)
 
-**Artist**: Lagnaf 
+**Artist**: O.M.G (Oblysk Music Group) 
 
-**Track**: LAGnaf - VORtex
+**Track**: Duality - Crazy (O.M.G Premiere)
 
-Last updated at 09/25/2024 11:24
+Last updated at 09/26/2024 08:50
