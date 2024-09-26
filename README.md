@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u3Bum6LO9J2vb11O-ZixOoA-t500x500.jpg">](https://soundcloud.com/darn84/andy-c-mc-5ive-o-bbc-radio-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzr1Fbo1kQEhF8zC-6yhEOQ-t500x500.png">](https://soundcloud.com/geckonl/tfc18-geck-o)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Geck-o 
 
-**Track**: Andy C & MC 5ive-O @ BBC Radio - One In the Jungle (28/02/1997)
+**Track**: Geck-o @ The Funky Cat #18 DAYTIME RAVE 👑 set recording
 
-Last updated at 09/26/2024 08:54
+Last updated at 09/26/2024 14:24
