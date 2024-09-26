@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VZ6BS4Cu93EUhLQg-y26cCA-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-jack-jennings-burning-lies-rys15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FT4Rad6PMndkVIA-egfatQ-t500x500.jpg">](https://soundcloud.com/all172things/typecell-delusional-premiere)
 
-**Artist**: Techno Wereld 
+**Artist**: All172Things 
 
-**Track**: Premiere: Jack Jennings - Burning Lies [RYS15]
+**Track**: Typecell - Delusional [Premiere]
 
-Last updated at 09/26/2024 08:51
+Last updated at 09/26/2024 08:52
