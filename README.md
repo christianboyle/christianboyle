@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z84k6dQT9xOd5yTX-83mvQQ-t500x500.jpg">](https://soundcloud.com/prodelxnce/telephone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk0EBKmj9zFFgs1Q-IyrqaQ-t500x500.jpg">](https://soundcloud.com/outerskies/flume-rushing-back-outerskies-remix)
 
-**Artist**: elxnce 
+**Artist**: Outerskies 
 
-**Track**: Telephone (feat. Cece Natalie)
+**Track**: Flume - Rushing Back (Outerskies Remix)
 
-Last updated at 09/27/2024 11:00
+Last updated at 09/27/2024 11:02
