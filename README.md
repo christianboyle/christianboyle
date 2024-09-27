@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CWW8yHK6gdIzJ1J-Zg2aZg-t500x500.jpg">](https://soundcloud.com/ruby-1-glo/trancemission-2-nrg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-YwHlvJjkpyTCMfCt-w86HqQ-t500x500.jpg">](https://soundcloud.com/darkvelvetbass/fibonaccibeat2)
 
-**Artist**: ruby 
+**Artist**: Dark Velvet 
 
-**Track**: TranceMission 2: Pure Classic NRG
+**Track**: 1(2)
 
-Last updated at 09/27/2024 10:57
+Last updated at 09/27/2024 10:58
