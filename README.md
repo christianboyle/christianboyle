@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-89WeENFaXfhCadQr-BneERg-t500x500.jpg">](https://soundcloud.com/joytimecollective/crazy-in-the-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-jonathan-mendelsohn-better-day?in=iamhardstyle/sets/brennan-heart-save-euphoric)
 
-**Artist**: Viperactive, DIMEPIECE 
+**Artist**: Brennan Heart | Jonathan Mendelsohn 
 
-**Track**: Viperactive & DIMEPIECE - Crazy In The Club
+**Track**: Brennan Heart & Jonathan Mendelsohn - Better Day
 
-Last updated at 09/27/2024 07:42
+Last updated at 09/27/2024 07:43
