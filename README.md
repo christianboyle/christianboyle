@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk0EBKmj9zFFgs1Q-IyrqaQ-t500x500.jpg">](https://soundcloud.com/outerskies/flume-rushing-back-outerskies-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-phmjvawFarlCzB4m-yVGk3g-t500x500.jpg">](https://soundcloud.com/kollaba/function)
 
-**Artist**: Outerskies 
+**Artist**: kollaba 
 
-**Track**: Flume - Rushing Back (Outerskies Remix)
+**Track**: FUNCTION FLIP
 
-Last updated at 09/27/2024 07:46
+Last updated at 09/27/2024 07:47
