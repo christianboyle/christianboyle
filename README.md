@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-25LwIwWCFmnw-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-euphoric-stutter)
 
-**Artist**: Brett Cooper 
+**Artist**: Brennan Heart 
 
-**Track**: Heaven
+**Track**: Brennan Heart - Euphoric Stutter
 
-Last updated at 09/27/2024 11:17
+Last updated at 09/27/2024 11:19
