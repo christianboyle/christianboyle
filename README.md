@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6P9mqGnmacTibnGq-7NUMxw-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/deathpact)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1UqECzeCFeQjIPB-Jd6EDw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-michael-ius-transmitter-va005)
 
-**Artist**: Dancing Dead 
+**Artist**: Techno Wereld 
 
-**Track**: Damn Low X Vladimir Cauchemar - Death Pact
+**Track**: Premiere: Michael Ius - Transmitter [EvilGroove VA005]
 
-Last updated at 09/27/2024 07:36
+Last updated at 09/27/2024 07:38
