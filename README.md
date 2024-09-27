@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-euphoric-stutter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzr1Fbo1kQEhF8zC-6yhEOQ-t500x500.png">](https://soundcloud.com/geckonl/tfc18-geck-o)
 
-**Artist**: Brennan Heart 
+**Artist**: Geck-o 
 
-**Track**: Brennan Heart - Euphoric Stutter
+**Track**: Geck-o @ The Funky Cat #18 DAYTIME RAVE 👑 set recording
 
-Last updated at 09/27/2024 11:19
+Last updated at 09/27/2024 11:22
