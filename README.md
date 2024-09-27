@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTo5sewKXBRs2002-j6uGPg-t500x500.jpg">](https://soundcloud.com/amspritzer/luid-tal-egg-picnics-on-a-cold-morning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-clockartz-sacrifice-one-thing)
 
-**Artist**: tal egg + lui:d 
+**Artist**: Brennan Heart | Clockartz 
 
-**Track**: lui:d + tal egg - picnics on a cold morning
+**Track**: Brennan Heart & Clockartz - Sacrifice One Thing
 
-Last updated at 09/27/2024 06:52
+Last updated at 09/27/2024 06:53
