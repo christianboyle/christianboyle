@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-YwHlvJjkpyTCMfCt-w86HqQ-t500x500.jpg">](https://soundcloud.com/darkvelvetbass/fibonaccibeat2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z84k6dQT9xOd5yTX-83mvQQ-t500x500.jpg">](https://soundcloud.com/prodelxnce/telephone)
 
-**Artist**: Dark Velvet 
+**Artist**: elxnce 
 
-**Track**: 1(2)
+**Track**: Telephone (feat. Cece Natalie)
 
-Last updated at 09/27/2024 10:58
+Last updated at 09/27/2024 11:00
