@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzr1Fbo1kQEhF8zC-6yhEOQ-t500x500.png">](https://soundcloud.com/geckonl/tfc18-geck-o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z84k6dQT9xOd5yTX-83mvQQ-t500x500.jpg">](https://soundcloud.com/prodelxnce/telephone)
 
-**Artist**: Geck-o 
+**Artist**: elxnce 
 
-**Track**: Geck-o @ The Funky Cat #18 DAYTIME RAVE 👑 set recording
+**Track**: Telephone (feat. Cece Natalie)
 
-Last updated at 09/27/2024 11:22
+Last updated at 09/27/2024 13:30
