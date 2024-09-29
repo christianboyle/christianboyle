@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dVIojsGUo6KL3kE6-hBkyJQ-t500x500.jpg">](https://soundcloud.com/jstjr/jstjr-never-stay-high-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RKA0V1pe6bbnKrdh-0VZZnA-t500x500.jpg">](https://soundcloud.com/lochhaven/i-miss-how-you-talked-to-me)
 
-**Artist**: JSTJR 
+**Artist**: LochHaven 
 
-**Track**: JSTJR - Never Stay High
+**Track**: i miss how you talked to me w/ mentally i’m here
 
-Last updated at 09/29/2024 08:08
+Last updated at 09/29/2024 08:09
