@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twLl19QUe3Tyiqzi-0AGFyA-t500x500.jpg">](https://soundcloud.com/manifestdnb/10xx-keep-dropping-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZlWvXnXjFH8dAqi-nRauUA-t500x500.jpg">](https://soundcloud.com/luhvmusic/promotion-future-luhv-remix)
 
-**Artist**: 10xx 
+**Artist**: Luhv 
 
-**Track**: 10xx - Keep Dropping It
+**Track**: PROMOTION (¥$ & Future) [Luhv Remix]
 
-Last updated at 09/29/2024 08:10
+Last updated at 09/29/2024 08:11
