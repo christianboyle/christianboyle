@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-euphoric-stutter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3epiKUEU37uw9oC-FvQ7ww-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-167-on-beat-106-scotland-with-rob-iyf-270924)
 
-**Artist**: Brennan Heart 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Brennan Heart - Euphoric Stutter
+**Track**: Bonkers Beats #167 on Beat 106 Scotland with Rob IYF 270924
 
-Last updated at 09/27/2024 13:50
+Last updated at 09/29/2024 07:45
