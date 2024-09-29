@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5e8BhvP7BVb42i5L-Z9B8CQ-t500x500.jpg">](https://soundcloud.com/tanemusic_official/t-a-n-e-money-right-sc-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUCSGDEsHoKO-0-t500x500.png">](https://soundcloud.com/gyrofieldmusic/cold-cases-1)
 
-**Artist**: T A N E 
+**Artist**: gyrofield 
 
-**Track**: T A N E - MONEY RIGHT
+**Track**: Cold Cases
 
-Last updated at 09/29/2024 07:47
+Last updated at 09/29/2024 07:48
