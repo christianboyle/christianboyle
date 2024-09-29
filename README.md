@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQj2TBuoFRFdUiri-CkOzrQ-t500x500.jpg">](https://soundcloud.com/ktrl/charli-xcx-guess-ktrl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1)
 
-**Artist**: KTRL 
+**Artist**: sfam 
 
-**Track**: Charli XCX - Guess (KTRL Remix)
+**Track**: jid x lil yachty - van gogh (sfam remix)
 
-Last updated at 09/29/2024 08:20
+Last updated at 09/29/2024 08:22
