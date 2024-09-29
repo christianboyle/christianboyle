@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qv7ZRDZFTZCXV6P5-cnZm5A-t500x500.jpg">](https://soundcloud.com/yerbownik/sonofabeach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBZbJ5WYQGjcyDGd-dNSyfg-t500x500.jpg">](https://soundcloud.com/basswell-2/basswell-bass-down-low)
 
-**Artist**: yerbby 
+**Artist**: Basswell 
 
-**Track**: son of a beach
+**Track**: Basswell - Bass Down Low (Rave Edit)
 
-Last updated at 09/29/2024 08:24
+Last updated at 09/29/2024 08:25
