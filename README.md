@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsEdXsT9wj6n6Qge-SmqzXg-t500x500.jpg">](https://soundcloud.com/dj-colin-bell/classic-90s-hard-trance-vol12-vinyl-only-mix)
 
-**Artist**: sfam 
+**Artist**: DJ Colin Bell 
 
-**Track**: jid x lil yachty - van gogh (sfam remix)
+**Track**: Classic 90's Hard Trance Vol.12 - Vinyl Only Mix
 
-Last updated at 09/29/2024 08:22
+Last updated at 09/29/2024 08:23
