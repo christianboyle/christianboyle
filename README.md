@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeEaHXxYR4Vbl72O-XzvJdw-t500x500.jpg">](https://soundcloud.com/saint-baek/miss-the-rage-saint-miller-flip-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3649ZTY1r9ZoDMt-EpsvcQ-t500x500.jpg">](https://soundcloud.com/2summusic/2sum-x-lost-rejects-messiah)
 
-**Artist**: SAINT MILLER 
+**Artist**: 2SUM 
 
-**Track**: Miss The Rage (saint Miller Flip)
+**Track**: 2SUM X LOST REJECTS - MESSIAH
 
-Last updated at 09/29/2024 07:49
+Last updated at 09/29/2024 08:06
