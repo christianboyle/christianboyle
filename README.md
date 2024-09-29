@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K3649ZTY1r9ZoDMt-EpsvcQ-t500x500.jpg">](https://soundcloud.com/2summusic/2sum-x-lost-rejects-messiah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-clwZfBLhdPyBM2NC-LBh6nw-t500x500.jpg">](https://soundcloud.com/mfinityofficial/everything-in-time-1)
 
-**Artist**: 2SUM 
+**Artist**: Mfinity 
 
-**Track**: 2SUM X LOST REJECTS - MESSIAH
+**Track**: Everything, In Time
 
-Last updated at 09/29/2024 08:06
+Last updated at 09/29/2024 08:07
