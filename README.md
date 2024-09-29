@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9VGAcCbQkrUtTfW3-GjZDDQ-t500x500.jpg">](https://soundcloud.com/dj-iyf/rob-iyf-the-notorious-p-i-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3epiKUEU37uw9oC-FvQ7ww-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-167-on-beat-106-scotland-with-rob-iyf-270924)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Rob IYF - The Notorious P.I.G (The Pig STYle 3)
+**Track**: Bonkers Beats #167 on Beat 106 Scotland with Rob IYF 270924
 
-Last updated at 09/29/2024 09:15
+Last updated at 09/29/2024 09:16
