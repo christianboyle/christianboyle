@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ay3wvlWcasV1kea2-Jad1XQ-t500x500.jpg">](https://soundcloud.com/user-493803559/dancing-through-the-night-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dkpyv6vhMXiriSyN-fFqXzQ-t500x500.jpg">](https://soundcloud.com/user-720309049/rob-iyf-x-sdj-dubs)
 
-**Artist**: Some Core Stuff 
+**Artist**: SDJ 
 
-**Track**: Dancing Through The Night
+**Track**: Rob IYF x SDJ Dubs
 
-Last updated at 09/29/2024 08:27
+Last updated at 09/29/2024 08:28
