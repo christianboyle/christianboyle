@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RKA0V1pe6bbnKrdh-0VZZnA-t500x500.jpg">](https://soundcloud.com/lochhaven/i-miss-how-you-talked-to-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twLl19QUe3Tyiqzi-0AGFyA-t500x500.jpg">](https://soundcloud.com/manifestdnb/10xx-keep-dropping-it)
 
-**Artist**: LochHaven 
+**Artist**: 10xx 
 
-**Track**: i miss how you talked to me w/ mentally i’m here
+**Track**: 10xx - Keep Dropping It
 
-Last updated at 09/29/2024 08:09
+Last updated at 09/29/2024 08:10
