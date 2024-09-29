@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZlWvXnXjFH8dAqi-nRauUA-t500x500.jpg">](https://soundcloud.com/luhvmusic/promotion-future-luhv-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5RsntThgqygQnnoa-BczGgg-t500x500.jpg">](https://soundcloud.com/tape-b-official/ganja-white-night-x-tape-b-ganja-tape)
 
-**Artist**: Luhv 
+**Artist**: Ganja White Night & Tape B 
 
-**Track**: PROMOTION (¥$ & Future) [Luhv Remix]
+**Track**: Ganja White Night x Tape B - Ganja Tape
 
-Last updated at 09/29/2024 08:11
+Last updated at 09/29/2024 08:13
