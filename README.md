@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vGZgMccvo7FVOdVE-wWVGdQ-t500x500.jpg">](https://soundcloud.com/crycity/castle-crashers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rrut0blmWNza8Udl-AiTYIA-t500x500.jpg">](https://soundcloud.com/lyqd/kryo-yar-lyqd-flip)
 
-**Artist**: ##CRYCITY 
+**Artist**: LYQD 
 
-**Track**: CASTLE CRASHERS [kloesure]
+**Track**: Kryo - Yar (LYQD Flip)
 
-Last updated at 09/30/2024 10:15
+Last updated at 09/30/2024 10:16
