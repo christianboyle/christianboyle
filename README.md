@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aWzVhG1zuNJY7T5r-Vav6zw-t500x500.jpg">](https://soundcloud.com/diakronik/diakronik-ocean-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1)
 
-**Artist**: Diakronik 
+**Artist**: sfam 
 
-**Track**: Diakronik - Ocean Eyes (Preview)
+**Track**: jid x lil yachty - van gogh (sfam remix)
 
-Last updated at 09/30/2024 10:44
+Last updated at 09/30/2024 10:46
