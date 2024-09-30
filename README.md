@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rrut0blmWNza8Udl-AiTYIA-t500x500.jpg">](https://soundcloud.com/lyqd/kryo-yar-lyqd-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uMkozJ8HTkxJhXd6-Wp7SVA-t500x500.jpg">](https://soundcloud.com/zero_uk/baby-girl-zero-bootleg)
 
-**Artist**: LYQD 
+**Artist**: Zero 
 
-**Track**: Kryo - Yar (LYQD Flip)
+**Track**: Disco Lines - Baby Girl (Zero Bootleg)
 
-Last updated at 09/30/2024 10:16
+Last updated at 09/30/2024 10:17
