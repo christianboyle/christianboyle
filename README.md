@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vGZgMccvo7FVOdVE-wWVGdQ-t500x500.jpg">](https://soundcloud.com/crycity/castle-crashers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuis7SMfJQDiGQkz-vtkezg-t500x500.jpg">](https://soundcloud.com/soundsbyaether/skrillex-inhale-exhale-aether-flip-1)
 
-**Artist**: ##CRYCITY 
+**Artist**: aether 
 
-**Track**: CASTLE CRASHERS [kloesure]
+**Track**: Skrillex - Inhale Exhale [aether Flip]
 
-Last updated at 09/30/2024 12:56
+Last updated at 09/30/2024 12:58
