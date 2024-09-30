@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjQqJgeXsWz79iBV-Ky8E4g-t500x500.jpg">](https://soundcloud.com/ed_e_t_uk/ed-et-drop-the-bomb-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aWzVhG1zuNJY7T5r-Vav6zw-t500x500.jpg">](https://soundcloud.com/diakronik/diakronik-ocean-eyes)
 
-**Artist**: Ed E.T 
+**Artist**: Diakronik 
 
-**Track**: Ed E.T - Drop The Bomb (Out Now)
+**Track**: Diakronik - Ocean Eyes (Preview)
 
-Last updated at 09/30/2024 10:40
+Last updated at 09/30/2024 10:44
