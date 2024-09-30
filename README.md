@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuis7SMfJQDiGQkz-vtkezg-t500x500.jpg">](https://soundcloud.com/soundsbyaether/skrillex-inhale-exhale-aether-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3epiKUEU37uw9oC-FvQ7ww-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-167-on-beat-106-scotland-with-rob-iyf-270924)
 
-**Artist**: aether 
+**Artist**: Beat 106 Scotland 
 
-**Track**: Skrillex - Inhale Exhale [aether Flip]
+**Track**: Bonkers Beats #167 on Beat 106 Scotland with Rob IYF 270924
 
-Last updated at 09/30/2024 12:58
+Last updated at 09/30/2024 13:02
