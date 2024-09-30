@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpTFJw3swRsHkPQt-pW8S0w-t500x500.jpg">](https://soundcloud.com/dj-iyf/lewis-capaldi-wish-you-the-best-rob-iyf-fatz-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjQqJgeXsWz79iBV-Ky8E4g-t500x500.jpg">](https://soundcloud.com/ed_e_t_uk/ed-et-drop-the-bomb-out-now)
 
-**Artist**: Rob IYF (24/7 Hardcore) 
+**Artist**: Ed E.T 
 
-**Track**: Lewis Capaldi - Wish You The Best (Rob IYF & Fatz Bootleg) ***FREE DOWNLOAD***
+**Track**: Ed E.T - Drop The Bomb (Out Now)
 
-Last updated at 09/30/2024 10:37
+Last updated at 09/30/2024 10:40
