@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6k8lYuinNj7zrpRq-1VJaTw-t500x500.jpg">](https://soundcloud.com/trapsounds/godz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuis7SMfJQDiGQkz-vtkezg-t500x500.jpg">](https://soundcloud.com/soundsbyaether/skrillex-inhale-exhale-aether-flip-1)
 
-**Artist**: Trap Sounds 
+**Artist**: aether 
 
-**Track**: Zonii & Baylienz - Godz [Electrostep Network & Trap Sounds EXCLUSIVE]
+**Track**: Skrillex - Inhale Exhale [aether Flip]
 
-Last updated at 09/30/2024 10:13
+Last updated at 09/30/2024 10:14
