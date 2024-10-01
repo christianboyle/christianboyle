@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3epiKUEU37uw9oC-FvQ7ww-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-167-on-beat-106-scotland-with-rob-iyf-270924)
 
-**Artist**: sfam 
+**Artist**: Beat 106 Scotland 
 
-**Track**: jid x lil yachty - van gogh (sfam remix)
+**Track**: Bonkers Beats #167 on Beat 106 Scotland with Rob IYF 270924
 
-Last updated at 10/01/2024 07:01
+Last updated at 10/01/2024 07:02
