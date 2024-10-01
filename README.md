@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cTqFnxktfVwvgtaV-u2U7Jw-t500x500.jpg">](https://soundcloud.com/cheetoed/icewater-prd-kloesure-nt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQj2TBuoFRFdUiri-CkOzrQ-t500x500.jpg">](https://soundcloud.com/ktrl/charli-xcx-guess-ktrl-remix)
 
-**Artist**: cheeto 
+**Artist**: KTRL 
 
-**Track**: icewater (prd. kloesure & nt)
+**Track**: Charli XCX - Guess (KTRL Remix)
 
-Last updated at 10/01/2024 08:28
+Last updated at 10/01/2024 08:33
