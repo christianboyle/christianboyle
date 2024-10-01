@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-solstice-we-are-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vGZgMccvo7FVOdVE-wWVGdQ-t500x500.jpg">](https://soundcloud.com/crycity/castle-crashers?in=saxurn/sets/snowbow/)
 
-**Artist**: Brennan Heart | Solstice 
+**Artist**: ##CRYCITY 
 
-**Track**: Brennan Heart & Solstice - We Are Alive
+**Track**: CASTLE CRASHERS [kloesure]
 
-Last updated at 10/01/2024 14:46
+Last updated at 10/01/2024 14:47
