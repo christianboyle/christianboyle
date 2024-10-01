@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C3epiKUEU37uw9oC-FvQ7ww-t500x500.jpg">](https://soundcloud.com/beat106scotland/bonkers-beats-167-on-beat-106-scotland-with-rob-iyf-270924)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzQXv3WtBNgbmXnl-yJjbVg-t500x500.jpg">](https://soundcloud.com/madjestickasual/ben-bondy-bend-mk-premiere?in=madjestickasual/sets/contemporary-music-september-7)
 
-**Artist**: Beat 106 Scotland 
+**Artist**: Madjestic Kasual 
 
-**Track**: Bonkers Beats #167 on Beat 106 Scotland with Rob IYF 270924
+**Track**: Ben Bondy - Bend [MK PREMIERE] *vid in desc*
 
-Last updated at 09/30/2024 13:02
+Last updated at 10/01/2024 07:00
