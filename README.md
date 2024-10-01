@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LjACMc86uCdn0x8s-zXqtrw-t500x500.jpg">](https://soundcloud.com/ariaveil/moonbeams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vGZgMccvo7FVOdVE-wWVGdQ-t500x500.jpg">](https://soundcloud.com/crycity/castle-crashers?in=saxurn/sets/zzz/)
 
-**Artist**: ARIA VEIL 
+**Artist**: ##CRYCITY 
 
-**Track**: moonbeams
+**Track**: CASTLE CRASHERS [kloesure]
 
-Last updated at 10/01/2024 14:01
+Last updated at 10/01/2024 14:02
