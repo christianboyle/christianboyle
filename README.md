@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1?in=saxurn/sets/zzz/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNi0AvJ25DlVQkz9-ibVrEQ-t500x500.png">](https://soundcloud.com/saint-baek/oh-shit11?in=saxurn/sets/zzz/)
 
-**Artist**: sfam 
+**Artist**: SAINT MILLER 
 
-**Track**: jid x lil yachty - van gogh (sfam remix)
+**Track**: OH SHIT!
 
-Last updated at 10/01/2024 08:54
+Last updated at 10/01/2024 10:53
