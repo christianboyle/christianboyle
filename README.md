@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1?in=saxurn/sets/zzz/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk0EBKmj9zFFgs1Q-IyrqaQ-t500x500.jpg">](https://soundcloud.com/outerskies/flume-rushing-back-outerskies-remix)
 
-**Artist**: sfam 
+**Artist**: Outerskies 
 
-**Track**: jid x lil yachty - van gogh (sfam remix)
+**Track**: Flume - Rushing Back (Outerskies Remix)
 
-Last updated at 10/01/2024 14:19
+Last updated at 10/01/2024 14:45
