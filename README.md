@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-solstice-we-are-alive?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weindjWcqp2FCs7A-xfuxFA-t500x500.jpg">](https://soundcloud.com/discolemusic/discole-zombie-in-your-head-techno)
 
-**Artist**: Brennan Heart | Solstice 
+**Artist**: Discole 
 
-**Track**: Brennan Heart & Solstice - We Are Alive
+**Track**: Discole - Zombie (In Your Head) [SPOTIFY]
 
-Last updated at 10/02/2024 08:22
+Last updated at 10/02/2024 08:23
