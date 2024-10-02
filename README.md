@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNi0AvJ25DlVQkz9-ibVrEQ-t500x500.png">](https://soundcloud.com/saint-baek/oh-shit11?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vGZgMccvo7FVOdVE-wWVGdQ-t500x500.jpg">](https://soundcloud.com/crycity/castle-crashers?in=saxurn/sets/gassed-up)
 
-**Artist**: SAINT MILLER 
+**Artist**: ##CRYCITY 
 
-**Track**: OH SHIT!
+**Track**: CASTLE CRASHERS [kloesure]
 
-Last updated at 10/02/2024 10:37
+Last updated at 10/02/2024 10:39
