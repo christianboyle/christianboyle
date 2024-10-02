@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlHIxU0Lgc0Disll-6irlPQ-t500x500.jpg">](https://soundcloud.com/trekkie-trax/dayzero-the-sixth-sense-ep-official-teaser?in=trekkie-trax/sets/dayzero-the-sixth-sense-ep-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJqsiCVxtdYcd4Nj-pvByLg-t500x500.jpg">](https://soundcloud.com/trekkie-trax/hodge-everyday-in-the-club-bounce-on-the-water-remixes-official-teaser?in=trekkie-trax/sets/hodge-nakamura-minami-1)
 
-**Artist**: Dayzero 
+**Artist**: Hodge & なかむらみなみ 
 
-**Track**: Dayzero - The Sixth Sense EP [Official Teaser]
+**Track**: Hodge & Nakamura Minami - Everyday in the Club / Bounce on the Water Remixes [Official Teaser]
 
-Last updated at 10/02/2024 06:47
+Last updated at 10/02/2024 06:48
