@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZWT9dQJ3iIiRb0c-R8zm6A-t500x500.jpg">](https://soundcloud.com/trekkie-trax/seimei-do-this-shit-official-teaser?in=trekkie-trax/sets/seimei-do-this-shit-official)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZwZsRszNr9usy6n-DrUzlw-t500x500.jpg">](https://soundcloud.com/trekkie-trax/trekkie-trax-crew-fire-boys-smile-for-smile-official-teaser?in=trekkie-trax/sets/trekkie-trax-crew-fire-boys)
 
-**Artist**: Seimei 
+**Artist**: TREKKIE TRAX CREW, FIRE BOYS 
 
-**Track**: Seimei - Do This Shit [Official Teaser]
+**Track**: TREKKIE TRAX CREW, FIRE BOYS - Smile for Smile [Official Teaser]
 
-Last updated at 10/02/2024 06:45
+Last updated at 10/02/2024 06:46
