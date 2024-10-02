@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2fBlja0ngfBJEO8-AUOWmQ-t500x500.jpg">](https://soundcloud.com/sachsentrance/dekerim-all-my-friends-are-dead-karim-tabarki?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cuis7SMfJQDiGQkz-vtkezg-t500x500.jpg">](https://soundcloud.com/soundsbyaether/skrillex-inhale-exhale-aether-flip-1?in=saxurn/sets/gassed-up)
 
-**Artist**: 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: aether 
 
-**Track**: [PREMIERE] Dekerim -  All My Friends Are Dead :(( (Edit)
+**Track**: Skrillex - Inhale Exhale [aether Flip]
 
-Last updated at 10/02/2024 07:20
+Last updated at 10/02/2024 07:25
