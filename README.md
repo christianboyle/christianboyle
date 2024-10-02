@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk0EBKmj9zFFgs1Q-IyrqaQ-t500x500.jpg">](https://soundcloud.com/outerskies/flume-rushing-back-outerskies-remix?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izzYXYM1ED8tGlRC-1aMczA-t500x500.jpg">](https://soundcloud.com/iamhardstyle/brennan-heart-solstice-we-are-alive?in=saxurn/sets/gassed-up)
 
-**Artist**: Outerskies 
+**Artist**: Brennan Heart | Solstice 
 
-**Track**: Flume - Rushing Back (Outerskies Remix)
+**Track**: Brennan Heart & Solstice - We Are Alive
 
-Last updated at 10/02/2024 08:18
+Last updated at 10/02/2024 08:22
