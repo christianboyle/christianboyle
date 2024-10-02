@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dVIojsGUo6KL3kE6-hBkyJQ-t500x500.jpg">](https://soundcloud.com/jstjr/jstjr-never-stay-high-1?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hk0EBKmj9zFFgs1Q-IyrqaQ-t500x500.jpg">](https://soundcloud.com/outerskies/flume-rushing-back-outerskies-remix?in=saxurn/sets/gassed-up)
 
-**Artist**: JSTJR 
+**Artist**: Outerskies 
 
-**Track**: JSTJR - Never Stay High
+**Track**: Flume - Rushing Back (Outerskies Remix)
 
-Last updated at 10/02/2024 08:46
+Last updated at 10/02/2024 08:49
