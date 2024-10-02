@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNi0AvJ25DlVQkz9-ibVrEQ-t500x500.png">](https://soundcloud.com/saint-baek/oh-shit11?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8kie1a3wPA2orRzz-EnGChw-t500x500.jpg">](https://soundcloud.com/sfamofficial/jid-x-lil-yachty-van-gogh-sfam-remix-1?in=saxurn/sets/gassed-up)
 
-**Artist**: SAINT MILLER 
+**Artist**: sfam 
 
-**Track**: OH SHIT!
+**Track**: jid x lil yachty - van gogh (sfam remix)
 
-Last updated at 10/02/2024 07:50
+Last updated at 10/02/2024 08:11
