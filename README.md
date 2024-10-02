@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-weindjWcqp2FCs7A-xfuxFA-t500x500.jpg">](https://soundcloud.com/discolemusic/discole-zombie-in-your-head-techno?in=saxurn/sets/gassed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNi0AvJ25DlVQkz9-ibVrEQ-t500x500.png">](https://soundcloud.com/saint-baek/oh-shit11?in=saxurn/sets/gassed-up)
 
-**Artist**: Discole 
+**Artist**: SAINT MILLER 
 
-**Track**: Discole - Zombie (In Your Head) [SPOTIFY]
+**Track**: OH SHIT!
 
-Last updated at 10/02/2024 10:34
+Last updated at 10/02/2024 10:37
