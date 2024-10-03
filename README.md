@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zElUpM6HTfqNuG4T-Qd0m1Q-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-rebelion-save-me-acid-reign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvhuCjGFmey8q2oB-CaeVyA-t500x500.jpg">](https://soundcloud.com/darn84/impact-resist-sunrise-breeze)
 
-**Artist**: Sub Zero Project & Rebelion 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Sub Zero Project & Rebelion - Save Me (Acid Reign)
+**Track**: Impact & Resist - Sunrise (Breeze & Styles Remix) - Infexious Audio (2005)
 
-Last updated at 10/03/2024 07:20
+Last updated at 10/03/2024 07:21
