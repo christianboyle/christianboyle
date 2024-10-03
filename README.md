@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGiI0cr7P9QACTU0-LveGvw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-beautiful-days-feat-sam-lemay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZDbGzta742Yyqfh-nUsA6g-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-salt-ashes-time)
 
-**Artist**: The Pitcher 
+**Artist**: The Pitcher | Salt Ashes 
 
-**Track**: The Pitcher - Beautiful Days (feat. Sam LeMay)
+**Track**: The Pitcher & Salt Ashes - Time
 
-Last updated at 10/03/2024 10:33
+Last updated at 10/03/2024 10:46
