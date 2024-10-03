@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSTm3v8OzhJu2T7y-GwhQ3A-t500x500.jpg">](https://soundcloud.com/dnzrecords/kritikal-mass-garbie-project-never-stop-that-feeling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mo0hXHja7UvMyO7K-JfQ9mQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/sadbois-gabriel-eli-happier-now-ncs-release)
 
-**Artist**: Kritikal Mass & Garbie Project 
+**Artist**: SadBois, Gabriel Eli 
 
-**Track**: Kritikal Mass & Garbie Project - Never Stop That Feeling
+**Track**: SadBois & Gabriel Eli - Happier Now [NCS Release]
 
-Last updated at 10/03/2024 07:14
+Last updated at 10/03/2024 07:17
