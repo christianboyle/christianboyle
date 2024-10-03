@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttJDCOpMRWyEyLCS-VJ0gxA-t500x500.jpg">](https://soundcloud.com/d1vwv/m3ssup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2GKicczGxrYTENKk-IALhTA-t500x500.jpg">](https://soundcloud.com/martinspicer/tribal-fever)
 
-**Artist**: d1v 
+**Artist**: Martin Spicer 
 
-**Track**: m3ss up [177p+iel
+**Track**: TRIBAL FEVER
 
-Last updated at 10/03/2024 10:28
+Last updated at 10/03/2024 10:30
