@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I4KWbfKPzlbMYJHz-Qkp2ow-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-i-miss-your-love-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VwGxjHM8SbWDeu9Z-1szyqQ-t500x500.jpg">](https://soundcloud.com/prodbypvti/cold-outside)
 
-**Artist**: Shugz Music 
+**Artist**: PVTI, réwqu 
 
-**Track**: Shugz - I Miss Your Love 💔
+**Track**: cold outside (w/ réwqu)
 
-Last updated at 10/03/2024 07:32
+Last updated at 10/03/2024 07:48
