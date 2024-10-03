@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zt8cvnZXiPwAHFTH-3utmNg-t500x500.jpg">](https://soundcloud.com/milano/eprom-zeke-beats-humanoid-20-milano-edit-ft-lyny)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttJDCOpMRWyEyLCS-VJ0gxA-t500x500.jpg">](https://soundcloud.com/d1vwv/m3ssup)
 
-**Artist**: Milano 
+**Artist**: d1v 
 
-**Track**: Eprom & Zeke Beats - Humanoid 2.0 (Milano edit ft. LYNY)
+**Track**: m3ss up [177p+iel
 
-Last updated at 10/03/2024 08:09
+Last updated at 10/03/2024 08:10
