@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nIocTxLnnybLAot7-A87law-t500x500.jpg">](https://soundcloud.com/willnotfear/chung-ha-will-not-fear-algorithm-will-not-fear-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGiI0cr7P9QACTU0-LveGvw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-beautiful-days-feat-sam-lemay)
 
-**Artist**: CHUNG HA, Will Not Fear 
+**Artist**: The Pitcher 
 
-**Track**: CHUNG HA, Will Not Fear - Algorithm (Will Not Fear Remix)
+**Track**: The Pitcher - Beautiful Days (feat. Sam LeMay)
 
-Last updated at 10/03/2024 10:32
+Last updated at 10/03/2024 10:33
