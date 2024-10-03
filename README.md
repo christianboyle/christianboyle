@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mo0hXHja7UvMyO7K-JfQ9mQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/sadbois-gabriel-eli-happier-now-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZDbGzta742Yyqfh-nUsA6g-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-salt-ashes-time?in=iamhardstyle/sets/this-is-my-life-ep)
 
-**Artist**: SadBois, Gabriel Eli 
+**Artist**: The Pitcher | Salt Ashes 
 
-**Track**: SadBois & Gabriel Eli - Happier Now [NCS Release]
+**Track**: The Pitcher & Salt Ashes - Time
 
-Last updated at 10/03/2024 07:17
+Last updated at 10/03/2024 07:18
