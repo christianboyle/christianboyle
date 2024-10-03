@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F9kw0jEL4bzu5oom-pWUzbA-t500x500.jpg">](https://soundcloud.com/hobibeats/structure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttJDCOpMRWyEyLCS-VJ0gxA-t500x500.jpg">](https://soundcloud.com/d1vwv/m3ssup)
 
-**Artist**: hobi 
+**Artist**: d1v 
 
-**Track**: Structure
+**Track**: m3ss up [177p+iel
 
-Last updated at 10/03/2024 08:12
+Last updated at 10/03/2024 10:28
