@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VwGxjHM8SbWDeu9Z-1szyqQ-t500x500.jpg">](https://soundcloud.com/prodbypvti/cold-outside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6GnQSWaFt1sioJaN-c3PvLw-t500x500.jpg">](https://soundcloud.com/siobhankramer/ray-1?in=siobhankramer/sets/howthedeadspeaktotheliving)
 
-**Artist**: PVTI, réwqu 
+**Artist**: Siobhan Kramer 
 
-**Track**: cold outside (w/ réwqu)
+**Track**: Ray
 
-Last updated at 10/03/2024 07:48
+Last updated at 10/03/2024 07:51
