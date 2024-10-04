@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RH9zRi1PvkIetoNe-sjwOew-t500x500.jpg">](https://soundcloud.com/speedworldrecs/oing-trydeny-witda?in=saxurn/sets/scammin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9qWU4Aey4c9yZjMm-FhkceQ-t500x500.jpg">](https://soundcloud.com/drrux/woo-girl?in=saxurn/sets/scammin/)
 
-**Artist**: SPEED WORLD RECS 
+**Artist**: Drux 
 
-**Track**: Oing & TRYDENY - Witda
+**Track**: Woo girl (Drux & Lunaa)
 
-Last updated at 10/04/2024 14:52
+Last updated at 10/04/2024 17:53
