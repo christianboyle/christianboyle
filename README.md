@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qnl8QYw2LpKLug2C-r6UWYQ-t500x500.jpg">](https://soundcloud.com/omunit/ternion-sound-looking-up-om-unit-remix?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YfqrclsPZ4mfRbz3-eVTomA-t500x500.jpg">](https://soundcloud.com/officialsullymusic/hotone?in=saxurn/sets/scammin)
 
-**Artist**: Ternion Sound 
+**Artist**: Sully 
 
-**Track**: Ternion Sound - Looking Up (Om Unit Remix)
+**Track**: Denzel Curry, A$AP Ferg, TiaCorine - Hot One (Sully X Dêtre Flip)
 
-Last updated at 10/04/2024 14:43
+Last updated at 10/04/2024 14:47
