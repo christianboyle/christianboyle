@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zA3pvTnKjHO3Ntm-BI7KTA-t500x500.jpg">](https://soundcloud.com/sportmodemusic/bailo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9qWU4Aey4c9yZjMm-FhkceQ-t500x500.jpg">](https://soundcloud.com/drrux/woo-girl)
 
-**Artist**: SPORTMODE 
+**Artist**: Drux 
 
-**Track**: SPORTMODE - BAILO
+**Track**: Woo girl (Drux & Lunaa)
 
-Last updated at 10/04/2024 09:58
+Last updated at 10/04/2024 13:10
