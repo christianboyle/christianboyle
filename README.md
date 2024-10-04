@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UjzZ1dLWWfUiIEmM-4Cf8Kg-t500x500.jpg">](https://soundcloud.com/ascentrecordings/n-sking-dynamica-casepeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yU7EyJodmNx-0-t500x500.jpg">](https://soundcloud.com/1991_music/jungle-colin-hennerz-remix?in=1991_music/sets/jungle)
 
-**Artist**: N-sKing 
+**Artist**: 1991, Alex Hosking, Colin Hennerz 
 
-**Track**: N-sKing - Dynamica (Casepeat Remix)
+**Track**: Jungle (Colin Hennerz Remix)
 
-Last updated at 10/04/2024 09:27
+Last updated at 10/04/2024 09:31
