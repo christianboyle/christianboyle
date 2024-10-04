@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSTm3v8OzhJu2T7y-GwhQ3A-t500x500.jpg">](https://soundcloud.com/dnzrecords/kritikal-mass-garbie-project-never-stop-that-feeling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIU0zHsaJPJwhsgP-HIXjhQ-t500x500.jpg">](https://soundcloud.com/critical-music/gyrofield-dirac-rhythm)
 
-**Artist**: Kritikal Mass & Garbie Project 
+**Artist**: gyrofield 
 
-**Track**: Kritikal Mass & Garbie Project - Never Stop That Feeling
+**Track**: gyrofield - Dirac Rhythm
 
-Last updated at 10/03/2024 10:49
+Last updated at 10/04/2024 08:34
