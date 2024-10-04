@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qnl8QYw2LpKLug2C-r6UWYQ-t500x500.jpg">](https://soundcloud.com/omunit/ternion-sound-looking-up-om-unit-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ojF6HrEXD6iJalG8-wImZ9g-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/21ror-anybody-knows)
 
-**Artist**: Ternion Sound 
+**Artist**: 21RoR 
 
-**Track**: Ternion Sound - Looking Up (Om Unit Remix)
+**Track**: 21RoR - Anybody Knows
 
-Last updated at 10/04/2024 09:42
+Last updated at 10/04/2024 09:46
