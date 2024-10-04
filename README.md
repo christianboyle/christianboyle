@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSTm3v8OzhJu2T7y-GwhQ3A-t500x500.jpg">](https://soundcloud.com/dnzrecords/kritikal-mass-garbie-project-never-stop-that-feeling?in=saxurn/sets/scammin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKftw7Fs4EzVWdLE-eVqdnw-t500x500.jpg">](https://soundcloud.com/thefinesttechno/premiere-3amdisco-get-loose-rave90?in=saxurn/sets/scammin/)
 
-**Artist**: Kritikal Mass & Garbie Project 
+**Artist**: 3amdisco 
 
-**Track**: Kritikal Mass & Garbie Project - Never Stop That Feeling
+**Track**: Premiere: 3amdisco - Get Loose [RAVE90]
 
-Last updated at 10/04/2024 17:55
+Last updated at 10/04/2024 17:56
