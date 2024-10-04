@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zA3pvTnKjHO3Ntm-BI7KTA-t500x500.jpg">](https://soundcloud.com/sportmodemusic/bailo?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RH9zRi1PvkIetoNe-sjwOew-t500x500.jpg">](https://soundcloud.com/speedworldrecs/oing-trydeny-witda?in=saxurn/sets/scammin/)
 
-**Artist**: SPORTMODE 
+**Artist**: SPEED WORLD RECS 
 
-**Track**: SPORTMODE - BAILO
+**Track**: Oing & TRYDENY - Witda
 
-Last updated at 10/04/2024 14:50
+Last updated at 10/04/2024 14:52
