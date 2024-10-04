@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ja2z3Xy9VKdyzhBw-rAkprA-t500x500.jpg">](https://soundcloud.com/traviswahlremixer/caroline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HyzHbspYE6j43GvS-ZRJPBQ-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/deekline-monkey-flip-em)
 
-**Artist**: Travis Wahl 
+**Artist**: Hardcore Energy 
 
-**Track**: Symmetrik - Caroline (Travis Wahl Remix)
+**Track**: Deekline - Monkey Flip 'Em!
 
-Last updated at 10/04/2024 08:38
+Last updated at 10/04/2024 08:39
