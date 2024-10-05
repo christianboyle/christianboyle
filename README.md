@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qnl8QYw2LpKLug2C-r6UWYQ-t500x500.jpg">](https://soundcloud.com/omunit/ternion-sound-looking-up-om-unit-remix?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9qWU4Aey4c9yZjMm-FhkceQ-t500x500.jpg">](https://soundcloud.com/drrux/woo-girl?in=saxurn/sets/scammin)
 
-**Artist**: Ternion Sound 
+**Artist**: Drux 
 
-**Track**: Ternion Sound - Looking Up (Om Unit Remix)
+**Track**: Woo girl (Drux & Lunaa)
 
-Last updated at 10/04/2024 19:08
+Last updated at 10/05/2024 08:16
