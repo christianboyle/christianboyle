@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58fUsVB6Z0CBtUFP-guHzfQ-t500x500.jpg">](https://soundcloud.com/tafkaine/notype)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JjWi60OvfdDQvHYy-aazKdQ-t500x500.jpg">](https://soundcloud.com/pingstarr/my-fault)
 
-**Artist**: duwap kaine 
+**Artist**: pingstar 
 
-**Track**: No Type (Marc x Grim x Rxdixnt)
+**Track**: no worry
 
-Last updated at 10/06/2024 10:07
+Last updated at 10/06/2024 10:08
