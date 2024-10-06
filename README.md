@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u6PQAtnvqLrMmZzg-kjaY1A-t500x500.jpg">](https://soundcloud.com/bitbird/molly-otto-these-things-sam-day-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58fUsVB6Z0CBtUFP-guHzfQ-t500x500.jpg">](https://soundcloud.com/tafkaine/notype)
 
-**Artist**: Molly Otto, Sam Day 
+**Artist**: duwap kaine 
 
-**Track**: Molly Otto - These Things (Sam Day Remix)
+**Track**: No Type (Marc x Grim x Rxdixnt)
 
-Last updated at 10/06/2024 10:06
+Last updated at 10/06/2024 10:07
