@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGiI0cr7P9QACTU0-LveGvw-t500x500.jpg">](https://soundcloud.com/iamhardstyle/the-pitcher-beautiful-days-feat-sam-lemay?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ay7eIKk41Yco42Ue-HhjH0w-t500x500.jpg">](https://soundcloud.com/azulo-69161669/azulo-say-you-love-me)
 
-**Artist**: The Pitcher 
+**Artist**: Azulo 
 
-**Track**: The Pitcher - Beautiful Days (feat. Sam LeMay)
+**Track**: Azulo - Say You Love Me (Zentryc) [FREE DOWNLOAD]
 
-Last updated at 10/05/2024 10:56
+Last updated at 10/06/2024 09:56
