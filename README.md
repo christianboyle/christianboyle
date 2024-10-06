@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1miICY6yBXsFloY-djU5oA-t500x500.jpg">](https://soundcloud.com/djryanganar/symmetrik-caroline-ryan-ganar-remix-radio-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u6PQAtnvqLrMmZzg-kjaY1A-t500x500.jpg">](https://soundcloud.com/bitbird/molly-otto-these-things-sam-day-remix)
 
-**Artist**: Ryan Ganar 
+**Artist**: Molly Otto, Sam Day 
 
-**Track**: Symmetrik - Caroline (Ryan Ganar Remix) [Radio Edit]
+**Track**: Molly Otto - These Things (Sam Day Remix)
 
-Last updated at 10/06/2024 10:03
+Last updated at 10/06/2024 10:06
