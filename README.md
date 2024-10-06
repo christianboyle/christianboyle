@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LipnyK8cI0bj0yOC-pGcCpw-t500x500.jpg">](https://soundcloud.com/all172things/basshunterz-phobia-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWpC0wXNzk2p4iGh-cWShlw-t500x500.jpg">](https://soundcloud.com/soundcloud-stories/voice-notes-chromeo-on-justify?in=soundcloud-stories/sets/voice-notes-chromeo)
 
-**Artist**: All172Things 
+**Artist**: SoundCloud Stories 
 
-**Track**: BASSHUNTERZ - Phobia [Premiere]
+**Track**: Voice Notes: Chromeo on "Justify"
 
-Last updated at 10/06/2024 10:09
+Last updated at 10/06/2024 10:10
