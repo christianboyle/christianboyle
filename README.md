@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iWpC0wXNzk2p4iGh-cWShlw-t500x500.jpg">](https://soundcloud.com/soundcloud-stories/voice-notes-chromeo-on-justify?in=soundcloud-stories/sets/voice-notes-chromeo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnrVC7y2q50u3Ig8-FCJ1UQ-t500x500.jpg">](https://soundcloud.com/noisy-loud/noisy-boi-brest-bay-dub-freedownload)
 
-**Artist**: SoundCloud Stories 
+**Artist**: Noisy Boï 
 
-**Track**: Voice Notes: Chromeo on "Justify"
+**Track**: Noisy Boï - Brest Bay (dub) [FREE DOWNLOAD]
 
-Last updated at 10/06/2024 10:10
+Last updated at 10/07/2024 08:15
