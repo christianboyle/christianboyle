@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPTymN8KpsoVHtRs-dAOXOg-t500x500.jpg">](https://soundcloud.com/dukeandjones/teenage-crime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njBgTT4QqdcP-0-t500x500.png">](https://soundcloud.com/tomfrane/dance-in-the-rain?in=tomfrane/sets/dance-in-the-rain-11817490)
 
-**Artist**: Duke & Jones 
+**Artist**: Tom Frane and Flawed Mangoes 
 
-**Track**: Teenage Crime
+**Track**: Dance in the Rain
 
-Last updated at 10/07/2024 13:46
+Last updated at 10/07/2024 13:48
