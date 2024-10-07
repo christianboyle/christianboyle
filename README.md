@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEOvG1mLWGfDWdmG-EwynHA-t500x500.jpg">](https://soundcloud.com/elvis-ma-162262106/maroon-5-payphone-ft-wiz-khalifa-elvisk-shu-hard-remix?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPTymN8KpsoVHtRs-dAOXOg-t500x500.jpg">](https://soundcloud.com/dukeandjones/teenage-crime)
 
-**Artist**: ElvisK 
+**Artist**: Duke & Jones 
 
-**Track**: Maroon 5 - Payphone Ft. Wiz Khalifa (ElvisK & SHU - Hard Remix)
+**Track**: Teenage Crime
 
-Last updated at 10/07/2024 11:13
+Last updated at 10/07/2024 13:46
