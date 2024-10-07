@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kts0A8FCNc2N6GH1-rAy0fA-t500x500.jpg">](https://soundcloud.com/thefactory93/factory93-radio-017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vb8PGGVouxC0OM7D-iNyseg-t500x500.jpg">](https://soundcloud.com/ontherecradio/ninajirachi-b2b-brux-on-the-record-243)
 
-**Artist**: Factory 93 
+**Artist**: On The Record 
 
-**Track**: factory93 radio #017
+**Track**: Ninajirachi b2b BRUX - On The Record #243
 
-Last updated at 10/07/2024 13:50
+Last updated at 10/07/2024 14:27
