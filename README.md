@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZhgrGGW95mJrS0j6-3ex71g-t500x500.jpg">](https://soundcloud.com/deadweightus/dead-weight-lethal-dose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxzMtNikcljOOgCk-eeVyJA-t500x500.jpg">](https://soundcloud.com/espforever/break-free-2)
 
-**Artist**: Dead Weight 
+**Artist**: ESP 
 
-**Track**: Dead Weight - Lethal Dose
+**Track**: Break Free
 
-Last updated at 10/07/2024 08:18
+Last updated at 10/07/2024 08:19
