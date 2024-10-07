@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njBgTT4QqdcP-0-t500x500.png">](https://soundcloud.com/tomfrane/dance-in-the-rain?in=tomfrane/sets/dance-in-the-rain-11817490)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kts0A8FCNc2N6GH1-rAy0fA-t500x500.jpg">](https://soundcloud.com/thefactory93/factory93-radio-017)
 
-**Artist**: Tom Frane and Flawed Mangoes 
+**Artist**: Factory 93 
 
-**Track**: Dance in the Rain
+**Track**: factory93 radio #017
 
-Last updated at 10/07/2024 13:48
+Last updated at 10/07/2024 13:50
