@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faHxzHfTAH3Uqz7M-6m6CpA-t500x500.jpg">](https://soundcloud.com/foolsgoldrecs/brux-embers?in=whoisbrux/sets/new-releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s3uzGP3Y17JoNTXK-a8kGEw-t500x500.jpg">](https://soundcloud.com/whoisbrux/brux-elsewhere-brooklyn-wdusky-march-30-2024)
 
-**Artist**: Fool's Gold Records 
+**Artist**: BRUX 
 
-**Track**: BRUX - EMBERS
+**Track**: BRUX @ Elsewhere, Brooklyn w/Dusky March 30, 2024
 
-Last updated at 10/07/2024 14:30
+Last updated at 10/07/2024 14:31
