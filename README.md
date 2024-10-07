@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IhLpEPkzzm6iAm1-arf6Mg-t500x500.jpg">](https://soundcloud.com/nikko/creator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBCy52hYGJp7QBiO-63PaiQ-t500x500.jpg">](https://soundcloud.com/acyanmusic/ferg-future-allure-acyan-flip)
 
-**Artist**: nikko 
+**Artist**: Acyan 
 
-**Track**: SANTIGOLD - CREATOR [NIKKO RMX]
+**Track**: FERG & Future - Allure (Acyan Flip)
 
-Last updated at 10/07/2024 08:22
+Last updated at 10/07/2024 08:25
