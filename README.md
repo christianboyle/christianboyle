@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qnl8QYw2LpKLug2C-r6UWYQ-t500x500.jpg">](https://soundcloud.com/omunit/ternion-sound-looking-up-om-unit-remix?in=saxurn/sets/scammin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttJDCOpMRWyEyLCS-VJ0gxA-t500x500.jpg">](https://soundcloud.com/d1vwv/m3ssup?in=saxurn/sets/scammin)
 
-**Artist**: Ternion Sound 
+**Artist**: d1v 
 
-**Track**: Ternion Sound - Looking Up (Om Unit Remix)
+**Track**: m3ss up [177p+iel
 
-Last updated at 10/07/2024 11:05
+Last updated at 10/07/2024 11:09
