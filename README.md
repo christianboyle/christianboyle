@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V412pi8XGz3ks1i7-o1xlHA-t500x500.jpg">](https://soundcloud.com/feistling-mp3/kidsgonemad-dnb-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zw5eSRrx8arav5OA-B0Bf8g-t500x500.jpg">](https://soundcloud.com/claxton/vanguard)
 
-**Artist**: FEISTLING 
+**Artist**: claxton 
 
-**Track**: ISOxo - kidsgonemad! (FEISTLING DnB Flip) [FREE DL]
+**Track**: Claxton - Hardcore Vanguard - Autumn 24
 
-Last updated at 10/08/2024 07:32
+Last updated at 10/08/2024 07:41
