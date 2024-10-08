@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dFVpSw6TfjRwnFeT-z0MAsw-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/nik-p-nascent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SIFgTXSHzhUBfKbc-Q1EPLQ-t500x500.jpg">](https://soundcloud.com/festivaltrap/dovahkyn-valorian-dissenter-feat-offeror)
 
-**Artist**: NIK P 
+**Artist**: FESTIVAL TRAP 
 
-**Track**: NIK P - Nascent
+**Track**: Dovahkyn & Valorian - Dissenter (feat. Offeror)
 
-Last updated at 10/08/2024 08:27
+Last updated at 10/08/2024 08:30
