@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKpC3FCx2jSy-0-t500x500.png">](https://soundcloud.com/bladee1000/mean-girls?in=saxurn/sets/plaesthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nvrIVNVWatz2PiRx-oFVoHw-t500x500.jpg">](https://soundcloud.com/rhythmics/dummy?in=saxurn/sets/plaesthetics)
 
-**Artist**: Bladee 
+**Artist**: Rhythmics & Xtasea 
 
-**Track**: Mean Girls
+**Track**: RHYTHMICS x XTASEA - DUMMY
 
-Last updated at 10/08/2024 14:32
+Last updated at 10/08/2024 14:35
