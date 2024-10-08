@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsGDj2JgO37mk5QH-79xA1g-t500x500.jpg">](https://soundcloud.com/pure100/bring-me-the-horizon-throne-pure-100-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LWp2sO6OOy6rH1AL-8bzXBw-t500x500.jpg">](https://soundcloud.com/ravenscoon/ray-volpe-see-you-drop-ravenscoon-re-think)
 
-**Artist**: Pure 100% 
+**Artist**: RAVENSCOON 
 
-**Track**: BRING ME THE HORIZON - THRONE (Pure 100% Remix)
+**Track**: RAY VOLPE - SEE YOU DROP (RAVENSCOON RE-THINK)
 
-Last updated at 10/08/2024 08:25
+Last updated at 10/08/2024 08:26
