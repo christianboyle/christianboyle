@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZwRv8Rwsv5Lcrt3-MysQUQ-t500x500.jpg">](https://soundcloud.com/ruxxi/fighting-my-demons-vanda-x-ruxxi?in=saxurn/sets/plaesthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ij44ebGYYwMIMai-PcleNw-t500x500.jpg">](https://soundcloud.com/slangdogs/fat-nick-x-shakewell-pemex-slang-dogs-remix?in=saxurn/sets/plaesthetics)
 
-**Artist**: VANDA & Ruxxi 
+**Artist**: Slang Dogs 
 
-**Track**: Fighting My Demons (VANDA & Ruxxi Remix)
+**Track**: Fat Nick x Shakewell - Pemex (Slang Dogs Remix)
 
-Last updated at 10/08/2024 14:41
+Last updated at 10/08/2024 14:44
