@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r1buKB2hSiusVUv6-KTvytQ-t500x500.jpg">](https://soundcloud.com/seven-france/seven-spirit-of-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qv7ZRDZFTZCXV6P5-cnZm5A-t500x500.jpg">](https://soundcloud.com/yerbownik/sonofabeach)
 
-**Artist**: SeVeN 
+**Artist**: yerbby 
 
-**Track**: SeVeN - Spirit Of Trance
+**Track**: son of a beach
 
-Last updated at 10/08/2024 08:40
+Last updated at 10/08/2024 08:41
