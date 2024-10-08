@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCpYdkeKPDDoXrc3-N7Jyeg-t500x500.jpg">](https://soundcloud.com/rhythmics/rooftopsremix?in=saxurn/sets/plaesthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZwRv8Rwsv5Lcrt3-MysQUQ-t500x500.jpg">](https://soundcloud.com/ruxxi/fighting-my-demons-vanda-x-ruxxi?in=saxurn/sets/plaesthetics)
 
-**Artist**: Xtasea 
+**Artist**: VANDA & Ruxxi 
 
-**Track**: Xtasea- Rooftops (Rhythmics Remix)
+**Track**: Fighting My Demons (VANDA & Ruxxi Remix)
 
-Last updated at 10/08/2024 14:38
+Last updated at 10/08/2024 14:41
