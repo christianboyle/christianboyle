@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Ij44ebGYYwMIMai-PcleNw-t500x500.jpg">](https://soundcloud.com/slangdogs/fat-nick-x-shakewell-pemex-slang-dogs-remix?in=saxurn/sets/plaesthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjM6A1ODlurV09e8-lkzeIw-t500x500.jpg">](https://soundcloud.com/h33records/yonder-brace-yourself-h33r069?in=saxurn/sets/plaesthetics)
 
-**Artist**: Slang Dogs 
+**Artist**: YØNDER 
 
-**Track**: Fat Nick x Shakewell - Pemex (Slang Dogs Remix)
+**Track**: YØNDER - Brace Yourself [H33R069]
 
-Last updated at 10/08/2024 14:44
+Last updated at 10/08/2024 14:48
