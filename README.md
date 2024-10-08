@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qv7ZRDZFTZCXV6P5-cnZm5A-t500x500.jpg">](https://soundcloud.com/yerbownik/sonofabeach)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byQdZWTLw6ZoPz7H-PSF2ow-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-x-up-there-choke)
 
-**Artist**: yerbby 
+**Artist**: Komplvint, Up There 
 
-**Track**: son of a beach
+**Track**: KOMPLVINT X UP THERE - CHOKE
 
-Last updated at 10/08/2024 08:41
+Last updated at 10/08/2024 08:45
