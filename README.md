@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHq9z6mlqqoNjgi2-tRwFMw-t500x500.jpg">](https://soundcloud.com/noetika/wiz-khalifa-we-dem-boyz-noetika-remix-free-dl?in=saxurn/sets/plaesthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/sh0werrrz?in=saxurn/sets/plaesthetics)
 
-**Artist**: Noetika 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Wiz Khalifa - We Dem Boyz (Noetika Remix) Free DL
+**Track**: sh0werrrz
 
-Last updated at 10/08/2024 14:22
+Last updated at 10/08/2024 14:24
