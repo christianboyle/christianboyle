@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SIFgTXSHzhUBfKbc-Q1EPLQ-t500x500.jpg">](https://soundcloud.com/festivaltrap/dovahkyn-valorian-dissenter-feat-offeror)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZfJ84P4ygIdewwNK-1DT0vg-t500x500.jpg">](https://soundcloud.com/injuredpablo/midnight-xtc)
 
-**Artist**: FESTIVAL TRAP 
+**Artist**: Melinoe 
 
-**Track**: Dovahkyn & Valorian - Dissenter (feat. Offeror)
+**Track**: Midnight XTC (Free- non profit)
 
-Last updated at 10/08/2024 08:30
+Last updated at 10/08/2024 08:31
