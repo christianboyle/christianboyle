@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s3uzGP3Y17JoNTXK-a8kGEw-t500x500.jpg">](https://soundcloud.com/whoisbrux/brux-elsewhere-brooklyn-wdusky-march-30-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4FAexGyylW4R1e10-HXl52g-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/jgs-intent-philanthropy)
 
-**Artist**: BRUX 
+**Artist**: Rewired Records 
 
-**Track**: BRUX @ Elsewhere, Brooklyn w/Dusky March 30, 2024
+**Track**: JGS & INTENT - Philanthropy
 
-Last updated at 10/07/2024 14:31
+Last updated at 10/08/2024 07:31
