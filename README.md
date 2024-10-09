@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qp0sa5PmmxT8ac5-5zsDww-t500x500.jpg">](https://soundcloud.com/dnzrecords/polo-feel-me-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0qiIAqTWXwSsFWH-Wd0eHA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-philip-jax-golden-years)
 
-**Artist**: Polo 
+**Artist**: Crystal Lake ft. Philip Jax 
 
-**Track**: Polo - Feel Me Now
+**Track**: Crystal Lake ft. Philip Jax - Golden Years
 
-Last updated at 10/09/2024 08:56
+Last updated at 10/09/2024 08:57
