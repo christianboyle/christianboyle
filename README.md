@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vlzaitUTPng8E9by-xqM2OQ-t500x500.jpg">](https://soundcloud.com/syence/fire-feat-jake-neumar-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypH1GChBecEoEmRB-236Wqg-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-clozee-itll-be-okay)
 
-**Artist**: syence, Jake Neumar 
+**Artist**: TVBOO, CloZee 
 
-**Track**: fire (feat. Jake Neumar)
+**Track**: TVBOO, CloZee - It'll Be Okay
 
-Last updated at 10/09/2024 08:59
+Last updated at 10/09/2024 09:00
