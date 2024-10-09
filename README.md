@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0qiIAqTWXwSsFWH-Wd0eHA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-philip-jax-golden-years)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MEeO3aw2CSLVDdSc-L1bnjg-t500x500.jpg">](https://soundcloud.com/t-mass/t-mass-better-off-alone-ft-lapetite)
 
-**Artist**: Crystal Lake ft. Philip Jax 
+**Artist**: T-Mass 
 
-**Track**: Crystal Lake ft. Philip Jax - Golden Years
+**Track**: T-Mass - Better Off Alone (Ft. Lapetite)
 
-Last updated at 10/09/2024 08:57
+Last updated at 10/09/2024 08:58
