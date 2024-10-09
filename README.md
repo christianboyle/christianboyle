@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypH1GChBecEoEmRB-236Wqg-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-clozee-itll-be-okay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csAvG8HHJGk2XGVn-Z5gCsA-t500x500.jpg">](https://soundcloud.com/vincent_official/surrounded)
 
-**Artist**: TVBOO, CloZee 
+**Artist**: Vincent 
 
-**Track**: TVBOO, CloZee - It'll Be Okay
+**Track**: Surrounded
 
-Last updated at 10/09/2024 09:00
+Last updated at 10/09/2024 09:01
