@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MEeO3aw2CSLVDdSc-L1bnjg-t500x500.jpg">](https://soundcloud.com/t-mass/t-mass-better-off-alone-ft-lapetite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vlzaitUTPng8E9by-xqM2OQ-t500x500.jpg">](https://soundcloud.com/syence/fire-feat-jake-neumar-1)
 
-**Artist**: T-Mass 
+**Artist**: syence, Jake Neumar 
 
-**Track**: T-Mass - Better Off Alone (Ft. Lapetite)
+**Track**: fire (feat. Jake Neumar)
 
-Last updated at 10/09/2024 08:58
+Last updated at 10/09/2024 08:59
