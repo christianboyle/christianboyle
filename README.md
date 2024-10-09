@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tzkRDH3DbL7Irxa-XTCzfQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/avril-lavigne-what-the-hell-gin-and-sonic-remix?in=saxurn/sets/drop-that-zero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U35UwFV6lzTJSlRt-DftQXg-t500x500.jpg">](https://soundcloud.com/ah-nice_music/150924-studio-sesh-2-light-in-the-darkness)
 
-**Artist**: Avril Lavigne, Gin and Sonic 
+**Artist**: AH-NICE 
 
-**Track**: Avril Lavigne - What The Hell (Gin and Sonic Remix)
+**Track**: 150924 STUDIO SESH 2 - Light in the darkness
 
-Last updated at 10/08/2024 14:52
+Last updated at 10/09/2024 08:55
