@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MbpO4FWGMIBr9JPx-JOO5oA-t500x500.jpg">](https://soundcloud.com/wubaholics/don-jamal-my-ones-ft-rakjay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UQiH4NYjqxYnDQpv-SLvMjw-t500x500.jpg">](https://soundcloud.com/gianni-478471524/you)
 
-**Artist**: Don Jamal, Rakjay 
+**Artist**: gianni 
 
-**Track**: Don Jamal - My Ones (Ft. Rakjay)
+**Track**: you
 
-Last updated at 10/10/2024 08:15
+Last updated at 10/10/2024 08:16
