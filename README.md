@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypH1GChBecEoEmRB-236Wqg-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-clozee-itll-be-okay?in=saxurn/sets/natty-ice/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byQdZWTLw6ZoPz7H-PSF2ow-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-x-up-there-choke?in=saxurn/sets/natty-ice/)
 
-**Artist**: TVBOO, CloZee 
+**Artist**: Komplvint, Up There 
 
-**Track**: TVBOO, CloZee - It'll Be Okay
+**Track**: KOMPLVINT X UP THERE - CHOKE
 
-Last updated at 10/10/2024 08:26
+Last updated at 10/10/2024 08:27
