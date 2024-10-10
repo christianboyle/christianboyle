@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-865grJy4BlEChyap-mQA8hg-t500x500.jpg">](https://soundcloud.com/suara/suara521-6-sense-pulse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byQdZWTLw6ZoPz7H-PSF2ow-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-x-up-there-choke)
 
-**Artist**: 6 SENSE 
+**Artist**: Komplvint, Up There 
 
-**Track**: [SUARA521] 6 SENSE - Pulse Development (Original Mix)
+**Track**: KOMPLVINT X UP THERE - CHOKE
 
-Last updated at 10/10/2024 08:23
+Last updated at 10/10/2024 08:24
