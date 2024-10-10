@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-byQdZWTLw6ZoPz7H-PSF2ow-t500x500.jpg">](https://soundcloud.com/holytrapmusic/komplvint-x-up-there-choke?in=saxurn/sets/natty-ice/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxzMtNikcljOOgCk-eeVyJA-t500x500.jpg">](https://soundcloud.com/espforever/break-free-2?in=saxurn/sets/natty-ice/)
 
-**Artist**: Komplvint, Up There 
+**Artist**: ESP 
 
-**Track**: KOMPLVINT X UP THERE - CHOKE
+**Track**: Break Free
 
-Last updated at 10/10/2024 08:27
+Last updated at 10/10/2024 08:30
