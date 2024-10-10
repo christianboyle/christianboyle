@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1wl0w7AFEfs-0-t500x500.jpg">](https://soundcloud.com/s3rl/castle-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3yQ3L3vwxlcrSAa-paj34w-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/mssg-in-a-bottl?in=saxurn/sets/natty-ice/)
 
-**Artist**: S3RL 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Castle in the Sky
+**Track**: mssg In A Bottl⠀(+ιᥲᥒ ᑲυᑯᑯιє)
 
-Last updated at 10/10/2024 08:39
+Last updated at 10/10/2024 08:40
