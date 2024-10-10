@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0qiIAqTWXwSsFWH-Wd0eHA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-philip-jax-golden-years?in=saxurn/sets/natty-ice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zICGOaozuRhm-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/believe?in=saxurn/sets/natty-ice)
 
-**Artist**: Crystal Lake ft. Philip Jax 
+**Artist**: Andy Whitby 
 
-**Track**: Crystal Lake ft. Philip Jax - Golden Years
+**Track**: Believe
 
-Last updated at 10/10/2024 08:50
+Last updated at 10/10/2024 08:54
