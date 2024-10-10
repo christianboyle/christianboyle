@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OM971mxDX8KyVExp-OnzBew-t500x500.jpg">](https://soundcloud.com/manifestdnb/manifest-mix-series-006-feed-the-fire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUX9OzuKnlyUUPJE-PDaOJw-t500x500.jpg">](https://soundcloud.com/rubberworks/princess-elf-bar-flurbz-birthday-trance)
 
-**Artist**: Manifest 
+**Artist**: rubber works 
 
-**Track**: Manifest Mix Series - 006 - Feed The Fire
+**Track**: Princess Elf Bar, flurbz - birthday trance
 
-Last updated at 10/10/2024 08:18
+Last updated at 10/10/2024 08:21
