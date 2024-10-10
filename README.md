@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ke2mZhYwj8S1cdtP-ZMm6Nw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fadeaway-the-club-is-open)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-865grJy4BlEChyap-mQA8hg-t500x500.jpg">](https://soundcloud.com/suara/suara521-6-sense-pulse)
 
-**Artist**: Fadeaway 
+**Artist**: 6 SENSE 
 
-**Track**: Fadeaway - The Club Is Open
+**Track**: [SUARA521] 6 SENSE - Pulse Development (Original Mix)
 
-Last updated at 10/10/2024 08:22
+Last updated at 10/10/2024 08:23
