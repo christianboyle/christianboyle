@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqiKWzSWIKEBRoxE-3kDftw-t500x500.jpg">](https://soundcloud.com/helloego/coming-in-hot-andy-mineo-lecrae-hello-ego-flip?in=saxurn/sets/natty-ice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypH1GChBecEoEmRB-236Wqg-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-clozee-itll-be-okay?in=saxurn/sets/natty-ice)
 
-**Artist**: Hello Ego 
+**Artist**: TVBOO, CloZee 
 
-**Track**: Coming In Hot - Andy Mineo, Lecrae (Hello Ego Flip)
+**Track**: TVBOO, CloZee - It'll Be Okay
 
-Last updated at 10/10/2024 09:23
+Last updated at 10/10/2024 09:27
