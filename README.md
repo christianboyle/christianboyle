@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUX9OzuKnlyUUPJE-PDaOJw-t500x500.jpg">](https://soundcloud.com/rubberworks/princess-elf-bar-flurbz-birthday-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ke2mZhYwj8S1cdtP-ZMm6Nw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fadeaway-the-club-is-open)
 
-**Artist**: rubber works 
+**Artist**: Fadeaway 
 
-**Track**: Princess Elf Bar, flurbz - birthday trance
+**Track**: Fadeaway - The Club Is Open
 
-Last updated at 10/10/2024 08:21
+Last updated at 10/10/2024 08:22
