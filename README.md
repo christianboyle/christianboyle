@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ki1yDfVSBOGj-0-t500x500.jpg">](https://soundcloud.com/charlixcx/i-might-say-something-stupid?in=charlixcx/sets/brat-and-its-completely-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4YDsQVVO5Rz-0-t500x500.jpg">](https://soundcloud.com/charlixcx/so-i-featuring-a-g-cook)
 
-**Artist**: Charli xcx 
+**Artist**: Charli xcx & A. G. Cook 
 
-**Track**: I might say something stupid
+**Track**: So I featuring a. g. cook
 
-Last updated at 10/11/2024 08:50
+Last updated at 10/11/2024 08:51
