@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XCzgCRvzzmt8Bl0J-jYpKDQ-t500x500.jpg">](https://soundcloud.com/all172things/gravit-e-break-em-down-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-evDRqy8sLl9Qjaip-wESvYA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/ecstatic-audiotricz-promise-me?in=dirtyworkzofficial/sets/audiotricz-ecstatic-progressive-hardstyle)
 
-**Artist**: All172Things 
+**Artist**: Ecstatic & Audiotricz 
 
-**Track**: GRAVIT-E - Break Em Down [Premiere]
+**Track**: Ecstatic & Audiotricz - Promise Me
 
-Last updated at 10/11/2024 08:41
+Last updated at 10/11/2024 08:42
