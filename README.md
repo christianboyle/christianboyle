@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWxxFRle6XVs9cnm-Kj5zlg-t500x500.jpg">](https://soundcloud.com/bauti_music/bauti-ziv-pasa1?in=bauti_music/sets/pasa-w-z-i-v)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbpkKbUqQiwwJzPB-2GZ35A-t500x500.jpg">](https://soundcloud.com/boogaardmusic/sabrina-carpenter-espresso-boogaard-flip)
 
-**Artist**: bauti 
+**Artist**: Boogaard 
 
-**Track**: bauti & Z-I-V - PASA
+**Track**: Espresso (Boogaard Flip)
 
-Last updated at 10/11/2024 08:39
+Last updated at 10/11/2024 08:40
