@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4YDsQVVO5Rz-0-t500x500.jpg">](https://soundcloud.com/charlixcx/so-i-featuring-a-g-cook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qrWV5Nbtdosd3way-NF4jDw-t500x500.jpg">](https://soundcloud.com/cheekytracks/ribbons)
 
-**Artist**: Charli xcx & A. G. Cook 
+**Artist**: Gav Adam 
 
-**Track**: So I featuring a. g. cook
+**Track**: Gav Adam - Ribbons - release date 11/10/2024
 
-Last updated at 10/11/2024 08:51
+Last updated at 10/11/2024 15:12
