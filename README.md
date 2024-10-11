@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qrWV5Nbtdosd3way-NF4jDw-t500x500.jpg">](https://soundcloud.com/cheekytracks/ribbons)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zICGOaozuRhm-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/believe)
 
-**Artist**: Gav Adam 
+**Artist**: Andy Whitby 
 
-**Track**: Gav Adam - Ribbons - release date 11/10/2024
+**Track**: Believe
 
-Last updated at 10/11/2024 15:12
+Last updated at 10/11/2024 15:17
