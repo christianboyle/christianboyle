@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wjzqsL9FOF8-0-t500x500.jpg">](https://soundcloud.com/1glaive/count-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DZozRMzZaVUhNxCT-12Gukg-t500x500.jpg">](https://soundcloud.com/yashbansalmusic/clubparade)
 
-**Artist**: glaive 
+**Artist**: Yash Bansal 
 
-**Track**: Count It Up
+**Track**: Club Classics At The Love Parade (Yash Bansal's DnB Remix) - Charli XCX Vs Da Hool
 
-Last updated at 10/11/2024 08:45
+Last updated at 10/11/2024 08:46
