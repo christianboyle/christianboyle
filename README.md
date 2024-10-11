@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVZWE84g7cd3Yrn3-bz9NcA-t500x500.jpg">](https://soundcloud.com/wearestudio/k-a-g-e-t-e-n-d-e-r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mzw7XovvFyyviPPh-B0IMMg-t500x500.jpg">](https://soundcloud.com/heyitsliron/its-a-mashup-pack-6-ft-kyle-mckay)
 
-**Artist**: STUDIO 
+**Artist**: HEY IT'S LIRON 
 
-**Track**: K A G E - T E N D E R
+**Track**: It's A Mashup Pack 6 Ft. Kyle Mckay
 
-Last updated at 10/11/2024 08:43
+Last updated at 10/11/2024 08:44
