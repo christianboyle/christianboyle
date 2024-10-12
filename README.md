@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zICGOaozuRhm-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jch0zgbPIMd2yBKT-PQ4UBA-t500x500.jpg">](https://soundcloud.com/dalfinmusic/bigxthaplug-texas-dalfin-flip)
 
-**Artist**: Andy Whitby 
+**Artist**: Dalfin 🐬 
 
-**Track**: Believe
+**Track**: Bigxthaplug - Texas (Dalfin Flip)
 
-Last updated at 10/11/2024 15:17
+Last updated at 10/12/2024 08:22
