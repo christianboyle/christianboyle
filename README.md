@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6dzN6zg6U63OJjey-xEKRrQ-t500x500.jpg">](https://soundcloud.com/souljunk/redwine-supernova-souljunk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIdYjQwDB5Vya8mN-yGcDDw-t500x500.jpg">](https://soundcloud.com/user-475609531-144776679/flosstradamus-2-much-ft-24hrs-exoform-bootleg)
 
-**Artist**: Souljunk 
+**Artist**: Exoform 
 
-**Track**: Redwine Supernova (Souljunk Bootleg)
+**Track**: Flosstradamus - 2 MUCH ft. 24hrs (Exoform Bootleg) [FREE DL]
 
-Last updated at 10/14/2024 08:33
+Last updated at 10/14/2024 08:34
