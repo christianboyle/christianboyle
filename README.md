@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0qiIAqTWXwSsFWH-Wd0eHA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/crystal-lake-ft-philip-jax-golden-years)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqiKWzSWIKEBRoxE-3kDftw-t500x500.jpg">](https://soundcloud.com/helloego/coming-in-hot-andy-mineo-lecrae-hello-ego-flip)
 
-**Artist**: Crystal Lake ft. Philip Jax 
+**Artist**: Hello Ego 
 
-**Track**: Crystal Lake ft. Philip Jax - Golden Years
+**Track**: Coming In Hot - Andy Mineo, Lecrae (Hello Ego Flip)
 
-Last updated at 10/14/2024 11:07
+Last updated at 10/14/2024 11:10
