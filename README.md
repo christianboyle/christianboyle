@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VSSRfG4rTWTb-0-t500x500.jpg">](https://soundcloud.com/boogaardmusic/artificial-intelligence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2A6FSI0kHQzOgVp-yOTS0A-t500x500.jpg">](https://soundcloud.com/huzzy_kr/hanumankind-big-dawgs-huzzy-remix)
 
-**Artist**: Boogaard 
+**Artist**: Huzzy 
 
-**Track**: Artificial Intelligence
+**Track**: Hanumankind - Big Dawgs (HUZZY REMIX)
 
-Last updated at 10/14/2024 08:45
+Last updated at 10/14/2024 08:47
