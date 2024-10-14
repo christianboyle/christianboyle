@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyYRnCJDpzVTGFzx-7AgcGg-t500x500.jpg">](https://soundcloud.com/mikereveriemr/rain-radio-x-shugz-feat-caitlyn-scarlett-baby-im-bad-mike-reverie-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jch0zgbPIMd2yBKT-PQ4UBA-t500x500.jpg">](https://soundcloud.com/dalfinmusic/bigxthaplug-texas-dalfin-flip)
 
-**Artist**: Rain Radio x Shugz feat. Caitlyn Scarlett, Mike Reverie 
+**Artist**: Dalfin 🐬 
 
-**Track**: Rain Radio X Shugz Feat. Caitlyn Scarlett - Baby I'm Bad (Mike Reverie Remix)
+**Track**: Bigxthaplug - Texas (Dalfin Flip)
 
-Last updated at 10/14/2024 09:50
+Last updated at 10/14/2024 09:53
