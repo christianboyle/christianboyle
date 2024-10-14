@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-grcSfSURwysQTJkD-j1cGzg-t500x500.jpg">](https://soundcloud.com/itsmesurati/nightcore-minimix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gysgvrj0MB7lYZnu-xQu6AA-t500x500.png">](https://soundcloud.com/craigsmartuk/cas-thumpinpromo-mix)
 
-**Artist**: Surati 
+**Artist**: Craig Smart UK 
 
-**Track**: Nightcore MiniMix
+**Track**: CAS Thumpin Promo Mix
 
-Last updated at 10/14/2024 08:53
+Last updated at 10/14/2024 09:07
