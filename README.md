@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxzMtNikcljOOgCk-eeVyJA-t500x500.jpg">](https://soundcloud.com/espforever/break-free-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IhLpEPkzzm6iAm1-arf6Mg-t500x500.jpg">](https://soundcloud.com/nikko/creator)
 
-**Artist**: ESP 
+**Artist**: nikko 
 
-**Track**: Break Free
+**Track**: SANTIGOLD - CREATOR [NIKKO RMX]
 
-Last updated at 10/14/2024 11:20
+Last updated at 10/14/2024 11:23
