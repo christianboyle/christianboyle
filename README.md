@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIdYjQwDB5Vya8mN-yGcDDw-t500x500.jpg">](https://soundcloud.com/user-475609531-144776679/flosstradamus-2-much-ft-24hrs-exoform-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UyYRnCJDpzVTGFzx-7AgcGg-t500x500.jpg">](https://soundcloud.com/mikereveriemr/rain-radio-x-shugz-feat-caitlyn-scarlett-baby-im-bad-mike-reverie-remix)
 
-**Artist**: Exoform 
+**Artist**: Rain Radio x Shugz feat. Caitlyn Scarlett, Mike Reverie 
 
-**Track**: Flosstradamus - 2 MUCH ft. 24hrs (Exoform Bootleg) [FREE DL]
+**Track**: Rain Radio X Shugz Feat. Caitlyn Scarlett - Baby I'm Bad (Mike Reverie Remix)
 
-Last updated at 10/14/2024 12:18
+Last updated at 10/14/2024 12:20
