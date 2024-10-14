@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cBMJYm3IX3ZNB558-Z3JrPA-t500x500.jpg">](https://soundcloud.com/jukaamusic/nasty-jukaa-rohaan-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypH1GChBecEoEmRB-236Wqg-t500x500.jpg">](https://soundcloud.com/wakaan/tvboo-clozee-itll-be-okay)
 
-**Artist**: Jukaa 
+**Artist**: TVBOO, CloZee 
 
-**Track**: Tinashe - Nasty (Jukaa & Rohaan Bootleg)
+**Track**: TVBOO, CloZee - It'll Be Okay
 
-Last updated at 10/14/2024 11:01
+Last updated at 10/14/2024 11:03
