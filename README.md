@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyzH8yOuXpiz0cAA-OTy5Jw-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-037-gawm-feed-the-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4O5CexiE3c3gzcJ-IkJh4A-t500x500.jpg">](https://soundcloud.com/eliminamusic/frame-imperfect?in=eliminamusic/sets/frame-imperfect-lost-in-a-void)
 
-**Artist**: GAWM 
+**Artist**: ELIMINA 
 
-**Track**: QGR-037 | GAWM - Feed The Soul
+**Track**: Frame Imperfect
 
-Last updated at 10/14/2024 08:36
+Last updated at 10/14/2024 08:38
