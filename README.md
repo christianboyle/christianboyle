@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zA3pvTnKjHO3Ntm-BI7KTA-t500x500.jpg">](https://soundcloud.com/sportmodemusic/bailo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IizsZHzlWKM4ujIO-Mb31uQ-t500x500.jpg">](https://soundcloud.com/shizzlomusic/charli-xcx-apple-shizz-lo-flip)
 
-**Artist**: SPORTMODE 
+**Artist**: SHIZZ LO 
 
-**Track**: SPORTMODE - BAILO
+**Track**: CHARLI XCX - APPLE (SHIZZ LO FLIP)
 
-Last updated at 10/14/2024 11:42
+Last updated at 10/14/2024 12:12
