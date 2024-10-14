@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2A6FSI0kHQzOgVp-yOTS0A-t500x500.jpg">](https://soundcloud.com/huzzy_kr/hanumankind-big-dawgs-huzzy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Lq5V5hFyB6bq5Az-NT4OKg-t500x500.jpg">](https://soundcloud.com/ayyofree/lib-selecta-1?in=ayyofree/sets/lib-selecta-1)
 
-**Artist**: Huzzy 
+**Artist**: LiB 
 
-**Track**: Hanumankind - Big Dawgs (HUZZY REMIX)
+**Track**: LiB - Selecta
 
-Last updated at 10/14/2024 08:47
+Last updated at 10/14/2024 08:50
