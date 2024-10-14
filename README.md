@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gysgvrj0MB7lYZnu-xQu6AA-t500x500.png">](https://soundcloud.com/craigsmartuk/cas-thumpinpromo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IizsZHzlWKM4ujIO-Mb31uQ-t500x500.jpg">](https://soundcloud.com/shizzlomusic/charli-xcx-apple-shizz-lo-flip)
 
-**Artist**: Craig Smart UK 
+**Artist**: SHIZZ LO 
 
-**Track**: CAS Thumpin Promo Mix
+**Track**: CHARLI XCX - APPLE (SHIZZ LO FLIP)
 
-Last updated at 10/14/2024 09:07
+Last updated at 10/14/2024 09:43
