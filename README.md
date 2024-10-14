@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8qoCe7PmMMC2szy-VzPRyA-t500x500.jpg">](https://soundcloud.com/buster_nut00/90s-happy-hardcore-volume-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6dzN6zg6U63OJjey-xEKRrQ-t500x500.jpg">](https://soundcloud.com/souljunk/redwine-supernova-souljunk)
 
-**Artist**: Ian Cowley 
+**Artist**: Souljunk 
 
-**Track**: Happy Hardcore - Volume 7
+**Track**: Redwine Supernova (Souljunk Bootleg)
 
-Last updated at 10/12/2024 08:25
+Last updated at 10/14/2024 08:33
