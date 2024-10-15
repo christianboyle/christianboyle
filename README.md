@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziOIEIc4YBbj7jlE-wsiPPQ-t500x500.jpg">](https://soundcloud.com/jeonghyeonmusic/avicii-vs-nicky-romero-i-could-be-the-one-jeonghyeon-noisy-choice-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PcFWknNPJNfr7n2l-3LFzLg-t500x500.jpg">](https://soundcloud.com/dubbeldutch/my-way)
 
-**Artist**: jeonghyeon 
+**Artist**: Dubbel Dutch 
 
-**Track**: Avicii vs Nicky Romero - I Could Be The One (jeonghyeon & Noisy Choice Flip)
+**Track**: My Way
 
-Last updated at 10/15/2024 08:45
+Last updated at 10/15/2024 08:46
