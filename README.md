@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqiKWzSWIKEBRoxE-3kDftw-t500x500.jpg">](https://soundcloud.com/helloego/coming-in-hot-andy-mineo-lecrae-hello-ego-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ec6QvF2zFeeGDw6w-My2AqQ-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/head-at-club-11k-freebie)
 
-**Artist**: Hello Ego 
+**Artist**: Smokestax 
 
-**Track**: Coming In Hot - Andy Mineo, Lecrae (Hello Ego Flip)
+**Track**: Head At (11k Freebie)
 
-Last updated at 10/14/2024 13:44
+Last updated at 10/15/2024 08:43
