@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpjywZzfGZYsS3oS-ANwUTw-t500x500.jpg">](https://soundcloud.com/djryanganar/ganar-i-want-to-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j4LIkQjpUm68QWGb-4si9dw-t500x500.jpg">](https://soundcloud.com/onlytom-extras/confetti)
 
-**Artist**: Ganar 
+**Artist**: Hilary Duff 
 
-**Track**: Ganar - I Want To (Preview) **OUT NOW**
+**Track**: Confetti (onlytom bootleg)
 
-Last updated at 10/16/2024 17:55
+Last updated at 10/16/2024 17:57
