@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcCk1JYrOfUWpwhR-Zj2skQ-t500x500.jpg">](https://soundcloud.com/seek-n-destroy/the-veronicas-untouched-seek-n-destroy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqlHOdsndbyWFQgb-gIyj0g-t500x500.jpg">](https://soundcloud.com/prodnyu/battle-for-cyberia-2024)
 
-**Artist**: Seek N Destroy 
+**Artist**: NYU☆☆☆☆ / / / 
 
-**Track**: The Veronicas - Untouched (Seek N Destroy Remix)
+**Track**: BATTLE FOR CYBERIA (2024)
 
-Last updated at 10/15/2024 14:46
+Last updated at 10/16/2024 13:43
