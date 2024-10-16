@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2A6FSI0kHQzOgVp-yOTS0A-t500x500.jpg">](https://soundcloud.com/huzzy_kr/hanumankind-big-dawgs-huzzy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCIzfGLyfcU1dZEM-dH30Qg-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-493)
 
-**Artist**: Huzzy 
+**Artist**: hwnd493 
 
-**Track**: Hanumankind - Big Dawgs (HUZZY REMIX)
+**Track**: Hardcore Will Never Die Episode 493
 
-Last updated at 10/16/2024 13:44
+Last updated at 10/16/2024 13:45
