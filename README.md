@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KCIzfGLyfcU1dZEM-dH30Qg-t500x500.jpg">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-493)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6tQZD4K4xLLAK3B-XSeVQw-t500x500.jpg">](https://soundcloud.com/scarreddigital-com/sd237-kaylenescar-eazyvibe-feat-lindsey-marie-be-mine-scott-bounce-remix)
 
-**Artist**: hwnd493 
+**Artist**: Kaylene Sc@r, Eazyvibe, Lindsey Marie, Scott Bounce 
 
-**Track**: Hardcore Will Never Die Episode 493
+**Track**: SD237 Kaylene Sc@r & Eazyvibe Feat Lindsey Marie - Be Mine (Scott Bounce Remix) Release 18/09/2024
 
-Last updated at 10/16/2024 13:45
+Last updated at 10/16/2024 17:36
