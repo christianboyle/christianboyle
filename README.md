@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcCk1JYrOfUWpwhR-Zj2skQ-t500x500.jpg">](https://soundcloud.com/seek-n-destroy/the-veronicas-untouched-seek-n-destroy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IizsZHzlWKM4ujIO-Mb31uQ-t500x500.jpg">](https://soundcloud.com/shizzlomusic/charli-xcx-apple-shizz-lo-flip)
 
-**Artist**: Seek N Destroy 
+**Artist**: SHIZZ LO 
 
-**Track**: The Veronicas - Untouched (Seek N Destroy Remix)
+**Track**: CHARLI XCX - APPLE (SHIZZ LO FLIP)
 
-Last updated at 10/16/2024 17:45
+Last updated at 10/16/2024 17:49
