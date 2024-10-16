@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AqlHOdsndbyWFQgb-gIyj0g-t500x500.jpg">](https://soundcloud.com/prodnyu/battle-for-cyberia-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2A6FSI0kHQzOgVp-yOTS0A-t500x500.jpg">](https://soundcloud.com/huzzy_kr/hanumankind-big-dawgs-huzzy-remix)
 
-**Artist**: NYU☆☆☆☆ / / / 
+**Artist**: Huzzy 
 
-**Track**: BATTLE FOR CYBERIA (2024)
+**Track**: Hanumankind - Big Dawgs (HUZZY REMIX)
 
-Last updated at 10/16/2024 13:43
+Last updated at 10/16/2024 13:44
