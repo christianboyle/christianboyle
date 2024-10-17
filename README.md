@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ouf45EDMmIDMFyyg-xxJN2g-t500x500.jpg">](https://soundcloud.com/pankaj-joshi-572138522/vengaboys-boom-boom-boom-boom-p4nkz-rg-festival-mixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqzhZm7QUfJQNrEK-SYR7DQ-t500x500.jpg">](https://soundcloud.com/adamenoise/traitor)
 
-**Artist**: P4NKZ 
+**Artist**: ADAME 
 
-**Track**: Vengaboys - Boom, Boom, Boom, Boom [P4NKZ & R.G Festival Mix]***FREE DOWNLOAD***
+**Track**: Traitor
 
-Last updated at 10/17/2024 13:40
+Last updated at 10/17/2024 13:41
