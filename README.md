@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BAfzNsQsrKdE-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/make-your-move?in=ravelifemusic/sets/make-your-move-301764869)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zS8WWftShtwRjkTY-ftpnZQ-t500x500.jpg">](https://soundcloud.com/rejectionjp/pump-it-up)
 
-**Artist**: Klubfiller 
+**Artist**: rejection 
 
-**Track**: Make Your Move
+**Track**: Pump It Up 【WE DIE YOUNG vol.5】
 
-Last updated at 10/17/2024 07:33
+Last updated at 10/17/2024 07:34
