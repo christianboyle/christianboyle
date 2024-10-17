@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVeIjSGqBDQztsDi-J9xYtA-t500x500.jpg">](https://soundcloud.com/maakg/talk-talk-but-its-a-maakg-remix?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeEvjiNlBMyQAD0Y-LItsYg-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-take-my-energy-valerine-prisma-jersey-edit?in=saxurn/sets/tranceylvania)
 
-**Artist**: Maāk.G 
+**Artist**: Syzy, Valerine Prisma 
 
-**Track**: talk talk by charli xcx, but it's a maāk.g remix
+**Track**: Syzy - Take my energy! (Valerine Prisma Jersey Club Edit)
 
-Last updated at 10/17/2024 14:07
+Last updated at 10/17/2024 14:44
