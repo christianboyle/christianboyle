@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2TBQytoERf9u59Th-Vflf5Q-t500x500.jpg">](https://soundcloud.com/mannie-sapra/travis-scott-goosebumps-ft-kendrick-lamar-mannie-sapra-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5gyalDCR3HQNwv9e-7mekAg-t500x500.jpg">](https://soundcloud.com/djarmanaveiru/dmp)
 
-**Artist**: Mannie Sapra 
+**Artist**: DJ Arman Aveiru - Mashup Pack 
 
-**Track**: Travis Scott - Goosebumps ft. Kendrick Lamar (Mannie Sapra Remix)
+**Track**: Digital Music Pool Pack vol.14 (Supported by: Diplo , MATTN , Dillion Francis , Burak Yeter)
 
-Last updated at 10/17/2024 07:30
+Last updated at 10/17/2024 07:31
