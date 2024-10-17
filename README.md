@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iik0JzOfEvM5S9ox-0bObng-t500x500.jpg">](https://soundcloud.com/ayyofree/dranxx-the-jibryy-bright-euphoria-crwell-remix?in=ayyofree/sets/dranxx-the-jibryy-bright-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGCVinvptd6HOyET-Ii2BcA-t500x500.jpg">](https://soundcloud.com/smashthehouse/bassjackers-bla-bla-bla/s-ncRubxfT7h0)
 
-**Artist**: CRWELL 
+**Artist**: Bassjackers 
 
-**Track**: Dranxx & The Jibryy - Bright Euphoria (CRWELL Remix)
+**Track**: Bassjackers - Bla Bla Bla
 
-Last updated at 10/17/2024 08:47
+Last updated at 10/17/2024 08:49
