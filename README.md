@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6XEpV83QIc0u0OIy-7yaccQ-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-kmoe-heart123-valerine-prisma-jersey-club-edit?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJvIuHZ365P8fv2r-cK3ZCg-t500x500.jpg">](https://soundcloud.com/djdriiift/yglabn?in=saxurn/sets/tranceylvania)
 
-**Artist**: Syzy, kmoe, Valerine Prisma 
+**Artist**: DRIIIFT 
 
-**Track**: Syzy & kmoe - HEART123 (Valerine Prisma Jersey Club Edit)
+**Track**: Bon Jovi - YGLABN (DRIIIFT Festival Edition)[SUPPORTED BY W&W, MAURICE WEST AND JAXX & VEGA]
 
-Last updated at 10/17/2024 14:46
+Last updated at 10/17/2024 14:47
