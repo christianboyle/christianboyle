@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmQypEdBskpTw6mq-PWblQw-t500x500.jpg">](https://soundcloud.com/djcollusion/collusion-torture-it)
 
-**Artist**: Storah 
+**Artist**: Collusion 
 
-**Track**: Tatanka - Afrika (STORAH Edit)
+**Track**: Collusion - TORTURE IT
 
-Last updated at 10/17/2024 08:55
+Last updated at 10/17/2024 08:56
