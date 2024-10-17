@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ec6QvF2zFeeGDw6w-My2AqQ-t500x500.jpg">](https://soundcloud.com/smokestaxmusic/head-at-club-11k-freebie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVWByqXdaVXG839H-7A649Q-t500x500.jpg">](https://soundcloud.com/sythen_sound/salty)
 
-**Artist**: Smokestax 
+**Artist**: Sythen 
 
-**Track**: Head At (11k Freebie)
+**Track**: SALTY - (Free Download)
 
-Last updated at 10/17/2024 08:37
+Last updated at 10/17/2024 08:38
