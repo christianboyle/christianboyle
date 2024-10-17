@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j4LIkQjpUm68QWGb-4si9dw-t500x500.jpg">](https://soundcloud.com/onlytom-extras/confetti?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1?in=saxurn/sets/tranceylvania)
 
-**Artist**: Hilary Duff 
+**Artist**: Storah 
 
-**Track**: Confetti (onlytom bootleg)
+**Track**: Tatanka - Afrika (STORAH Edit)
 
-Last updated at 10/17/2024 13:56
+Last updated at 10/17/2024 14:00
