@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fVWByqXdaVXG839H-7A649Q-t500x500.jpg">](https://soundcloud.com/sythen_sound/salty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUSzcwmyC5wSPCVa-WATvAA-t500x500.jpg">](https://soundcloud.com/sicari_official/sicari-pull-up-final)
 
-**Artist**: Sythen 
+**Artist**: SICARI 
 
-**Track**: SALTY - (Free Download)
+**Track**: Sicari - Pull Up [Free Download]
 
-Last updated at 10/17/2024 08:38
+Last updated at 10/17/2024 08:45
