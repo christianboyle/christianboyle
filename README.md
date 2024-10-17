@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeEvjiNlBMyQAD0Y-LItsYg-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-take-my-energy-valerine-prisma-jersey-edit?in=saxurn/sets/8a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jch0zgbPIMd2yBKT-PQ4UBA-t500x500.jpg">](https://soundcloud.com/dalfinmusic/bigxthaplug-texas-dalfin-flip?in=saxurn/sets/8a1/)
 
-**Artist**: Syzy, Valerine Prisma 
+**Artist**: Dalfin 🐬 
 
-**Track**: Syzy - Take my energy! (Valerine Prisma Jersey Club Edit)
+**Track**: Bigxthaplug - Texas (Dalfin Flip)
 
-Last updated at 10/17/2024 08:51
+Last updated at 10/17/2024 08:53
