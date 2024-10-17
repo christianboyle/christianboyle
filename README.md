@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmQypEdBskpTw6mq-PWblQw-t500x500.jpg">](https://soundcloud.com/djcollusion/collusion-torture-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeEvjiNlBMyQAD0Y-LItsYg-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-take-my-energy-valerine-prisma-jersey-edit)
 
-**Artist**: Collusion 
+**Artist**: Syzy, Valerine Prisma 
 
-**Track**: Collusion - TORTURE IT
+**Track**: Syzy - Take my energy! (Valerine Prisma Jersey Club Edit)
 
-Last updated at 10/17/2024 08:56
+Last updated at 10/17/2024 08:57
