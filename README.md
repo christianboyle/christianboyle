@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUSzcwmyC5wSPCVa-WATvAA-t500x500.jpg">](https://soundcloud.com/sicari_official/sicari-pull-up-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6dzN6zg6U63OJjey-xEKRrQ-t500x500.jpg">](https://soundcloud.com/souljunk/redwine-supernova-souljunk)
 
-**Artist**: SICARI 
+**Artist**: Souljunk 
 
-**Track**: Sicari - Pull Up [Free Download]
+**Track**: Redwine Supernova (Souljunk Bootleg)
 
-Last updated at 10/17/2024 08:45
+Last updated at 10/17/2024 08:46
