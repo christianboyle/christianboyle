@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzU6DApudQ3edVbz-4oVtwg-t500x500.jpg">](https://soundcloud.com/user-223972761/fisher-x-flowdan-boost-up-frnkrok-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-5pykDduuNPqH4zJc-I1rrOA-t500x500.jpg">](https://soundcloud.com/sipx113/chella-ride-milkfish-and-katt-remix)
 
-**Artist**: FRNKROK's FREEBIES 
+**Artist**: sipx113 
 
-**Track**: Fisher X Flowdan - Boost Up (FRNKROK Remix)
+**Track**: Dog Blood - Chella Ride (Milkfish and KaTT Remix)
 
-Last updated at 10/17/2024 08:34
+Last updated at 10/17/2024 08:35
