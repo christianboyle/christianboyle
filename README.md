@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIdYjQwDB5Vya8mN-yGcDDw-t500x500.jpg">](https://soundcloud.com/user-475609531-144776679/flosstradamus-2-much-ft-24hrs-exoform-bootleg?in=saxurn/sets/8a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1)
 
-**Artist**: Exoform 
+**Artist**: Storah 
 
-**Track**: Flosstradamus - 2 MUCH ft. 24hrs (Exoform Bootleg) [FREE DL]
+**Track**: Tatanka - Afrika (STORAH Edit)
 
-Last updated at 10/17/2024 08:54
+Last updated at 10/17/2024 08:55
