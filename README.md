@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGCVinvptd6HOyET-Ii2BcA-t500x500.jpg">](https://soundcloud.com/smashthehouse/bassjackers-bla-bla-bla?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVeIjSGqBDQztsDi-J9xYtA-t500x500.jpg">](https://soundcloud.com/maakg/talk-talk-but-its-a-maakg-remix?in=saxurn/sets/tranceylvania)
 
-**Artist**: Bassjackers 
+**Artist**: Maāk.G 
 
-**Track**: Bassjackers - Bla Bla Bla
+**Track**: talk talk by charli xcx, but it's a maāk.g remix
 
-Last updated at 10/17/2024 14:52
+Last updated at 10/18/2024 09:05
