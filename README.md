@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVeIjSGqBDQztsDi-J9xYtA-t500x500.jpg">](https://soundcloud.com/maakg/talk-talk-but-its-a-maakg-remix?in=saxurn/sets/tranceylvania)
 
-**Artist**: Storah 
+**Artist**: Maāk.G 
 
-**Track**: Tatanka - Afrika (STORAH Edit)
+**Track**: talk talk by charli xcx, but it's a maāk.g remix
 
-Last updated at 10/18/2024 09:18
+Last updated at 10/19/2024 14:12
