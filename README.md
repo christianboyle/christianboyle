@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6XEpV83QIc0u0OIy-7yaccQ-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-kmoe-heart123-valerine-prisma-jersey-club-edit?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jch0zgbPIMd2yBKT-PQ4UBA-t500x500.jpg">](https://soundcloud.com/dalfinmusic/bigxthaplug-texas-dalfin-flip?in=saxurn/sets/tranceylvania)
 
-**Artist**: Syzy, kmoe, Valerine Prisma 
+**Artist**: Dalfin 🐬 
 
-**Track**: Syzy & kmoe - HEART123 (Valerine Prisma Jersey Club Edit)
+**Track**: Bigxthaplug - Texas (Dalfin Flip)
 
-Last updated at 10/19/2024 14:34
+Last updated at 10/19/2024 14:36
