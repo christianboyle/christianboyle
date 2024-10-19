@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VeI7LZpVk5QkIbX7-cvJnhg-t500x500.jpg">](https://soundcloud.com/zemeksmusic/zemeks-break-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1)
 
-**Artist**: Zemeks 
+**Artist**: sfam 
 
-**Track**: Zemeks-Break Shit
+**Track**: wiz khalifa - cabin fever (sfam remix)
 
-Last updated at 10/19/2024 16:03
+Last updated at 10/19/2024 16:04
