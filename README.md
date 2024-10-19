@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJvIuHZ365P8fv2r-cK3ZCg-t500x500.jpg">](https://soundcloud.com/djdriiift/yglabn?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n8odofAdXr54zTs7-zaBxyg-t500x500.jpg">](https://soundcloud.com/shizzlomusic/charli-xcx-apple-shizz-lo-flip?in=saxurn/sets/tranceylvania)
 
-**Artist**: DRIIIFT 
+**Artist**: SHIZZ LO 
 
-**Track**: Bon Jovi - YGLABN (DRIIIFT Festival Edition)[SUPPORTED BY W&W, MAURICE WEST AND JAXX & VEGA]
+**Track**: CHARLI XCX - APPLE (SHIZZ LO FLIP)
 
-Last updated at 10/19/2024 15:18
+Last updated at 10/19/2024 15:21
