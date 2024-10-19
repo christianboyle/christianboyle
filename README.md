@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcCk1JYrOfUWpwhR-Zj2skQ-t500x500.jpg">](https://soundcloud.com/seek-n-destroy/the-veronicas-untouched-seek-n-destroy-remix?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJvIuHZ365P8fv2r-cK3ZCg-t500x500.jpg">](https://soundcloud.com/djdriiift/yglabn?in=saxurn/sets/tranceylvania)
 
-**Artist**: Seek N Destroy 
+**Artist**: DRIIIFT 
 
-**Track**: The Veronicas - Untouched (Seek N Destroy Remix)
+**Track**: Bon Jovi - YGLABN (DRIIIFT Festival Edition)[SUPPORTED BY W&W, MAURICE WEST AND JAXX & VEGA]
 
-Last updated at 10/19/2024 15:13
+Last updated at 10/19/2024 15:18
