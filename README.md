@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A8sYtdsVXoYvBSRo-88p9zg-t500x500.jpg">](https://soundcloud.com/tsoumusic/saka-movelikethis-tsou-refix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8R5SgEmGXJM1pS7Q-WjbHFw-t500x500.jpg">](https://soundcloud.com/atliens/atliens-yookie-soul-on-fire-feat-cara-kay)
 
-**Artist**: tsou 
+**Artist**: ATLiens 
 
-**Track**: saka - movelikethis (tsou refix)
+**Track**: ATLiens & YOOKiE - SOUL ON FIRE (feat. Cara Kay)
 
-Last updated at 10/19/2024 16:06
+Last updated at 10/19/2024 16:07
