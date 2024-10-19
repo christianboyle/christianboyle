@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJvIuHZ365P8fv2r-cK3ZCg-t500x500.jpg">](https://soundcloud.com/djdriiift/yglabn?in=saxurn/sets/tranceylvania)
 
-**Artist**: Storah 
+**Artist**: DRIIIFT 
 
-**Track**: Tatanka - Afrika (STORAH Edit)
+**Track**: Bon Jovi - YGLABN (DRIIIFT Festival Edition)[SUPPORTED BY W&W, MAURICE WEST AND JAXX & VEGA]
 
-Last updated at 10/19/2024 14:16
+Last updated at 10/19/2024 14:18
