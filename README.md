@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1?in=saxurn/sets/tranceylvania)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzeOz7gOSOL2gqqx-euNfxQ-t500x500.jpg">](https://soundcloud.com/savagesquadrecordings/caracel-rage)
 
-**Artist**: Storah 
+**Artist**: CaraCel 
 
-**Track**: Tatanka - Afrika (STORAH Edit)
+**Track**: CaraCel - RAGE
 
-Last updated at 10/19/2024 14:53
+Last updated at 10/19/2024 14:55
