@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywnoCa0sKN7wtWq2-oKzaiA-t500x500.png">](https://soundcloud.com/kompanymusic/jackpot?in=ivorydubz/sets/jackpot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXoT8RoQi3asKgbq-mCTEKQ-t500x500.jpg">](https://soundcloud.com/futurehousemusic/marc-benjamin-ansun-keyton-sleep-better)
 
-**Artist**: Kompany , IVORY 
+**Artist**: Marc Benjamin, Ansun, KEYTON 
 
-**Track**: Kompany & Ivory - Jackpot (feat. Raxdflipnote)
+**Track**: Marc Benjamin, Ansun & KEYTON - Sleep Better
 
-Last updated at 10/20/2024 17:43
+Last updated at 10/20/2024 17:44
