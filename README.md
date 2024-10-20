@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-URg5DvN1HE9W87E6-uecCvw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/trancemaster-krause-morty-til-infini?in=teedeejayyy/sets/spf-infini-genesis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SSHtalZr67vA-0-t500x500.jpg">](https://soundcloud.com/hardelementsmusic/show-me-your-heart-radio-edit)
 
-**Artist**: TDJ 
+**Artist**: Ryan Ganar 
 
-**Track**: Trancemaster Krause, Morty - Til' Infini
+**Track**: Show Me Your Heart (Radio Edit)
 
-Last updated at 10/20/2024 17:56
+Last updated at 10/20/2024 17:57
