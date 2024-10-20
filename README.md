@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trzAQkHBBAyHgDB5-sROdJA-t500x500.jpg">](https://soundcloud.com/onyrix/i-am-not-a-dancer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z3hTMF1yLotQEeCX-8M2qmA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/sage-sunsetsmemories)
 
-**Artist**: Dino Olivieri, Onyrix 
+**Artist**: TDJ 
 
-**Track**: I Am Not A Dancer
+**Track**: SAGE - sunsets+memories
 
-Last updated at 10/20/2024 17:45
+Last updated at 10/20/2024 17:46
