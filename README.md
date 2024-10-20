@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1o1z99vphJA9UTap-iQJYdA-t500x500.jpg">](https://soundcloud.com/bonkers-rave/sharkey-dj-force-jakka-b-bonkers-beats-9a-040621-hour-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIGQyoQmG3OT2twG-2RrDhg-t500x500.jpg">](https://soundcloud.com/jadudala/so-sus-quackson-goons-jadu252)
 
-**Artist**: Sharkey, Force and Jakka B 
+**Artist**: So Sus, Quackson 
 
-**Track**: Sharkey, DJ Force & Jakka B - Bonkers Beats 9A - 04.06.21 (Hour 1)
+**Track**: So Sus & Quackson - Goons (JADŪ252)
 
-Last updated at 10/20/2024 17:35
+Last updated at 10/20/2024 17:42
