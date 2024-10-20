@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPmGJXSBzYQIXllH-sq0vqw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/dj-sharpnel-moonship)
 
-**Artist**: sfam 
+**Artist**: TDJ 
 
-**Track**: wiz khalifa - cabin fever (sfam remix)
+**Track**: DJ SHARPNEL - MOONSHIP
 
-Last updated at 10/20/2024 18:00
+Last updated at 10/20/2024 18:03
