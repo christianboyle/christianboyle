@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIGQyoQmG3OT2twG-2RrDhg-t500x500.jpg">](https://soundcloud.com/jadudala/so-sus-quackson-goons-jadu252)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywnoCa0sKN7wtWq2-oKzaiA-t500x500.png">](https://soundcloud.com/kompanymusic/jackpot?in=ivorydubz/sets/jackpot)
 
-**Artist**: So Sus, Quackson 
+**Artist**: Kompany , IVORY 
 
-**Track**: So Sus & Quackson - Goons (JADŪ252)
+**Track**: Kompany & Ivory - Jackpot (feat. Raxdflipnote)
 
-Last updated at 10/20/2024 17:42
+Last updated at 10/20/2024 17:43
