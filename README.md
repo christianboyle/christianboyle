@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uEtMXB3RJUHV8pV-R3iKKw-t500x500.jpg">](https://soundcloud.com/zacharystime/get-dat-money)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgI4NczKov47SM8N-f9wcbg-t500x500.jpg">](https://soundcloud.com/user-732083412/fleshless-motion-keith-kenniff-ml-buch?in=user-732083412/sets/dots-n-pads)
 
-**Artist**: Zachary 
+**Artist**: bino's bin 
 
-**Track**: JOEY VALENCE & BRAE W/ TERROR REID  - DOUGHBOY (Zachary Remix)
+**Track**: Fleshless Motion (Hollie & Keith Kenniff+ML Buch)
 
-Last updated at 10/20/2024 17:32
+Last updated at 10/20/2024 17:33
