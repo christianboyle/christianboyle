@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yrz87daH15GB3W8K-wIomdw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-dlr-groove-night-mantrava003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8uEtMXB3RJUHV8pV-R3iKKw-t500x500.jpg">](https://soundcloud.com/zacharystime/get-dat-money)
 
-**Artist**: Techno Wereld 
+**Artist**: Zachary 
 
-**Track**: Premiere: DLR - Groove Night [MANTRAVA003]
+**Track**: JOEY VALENCE & BRAE W/ TERROR REID  - DOUGHBOY (Zachary Remix)
 
-Last updated at 10/19/2024 16:13
+Last updated at 10/20/2024 17:32
