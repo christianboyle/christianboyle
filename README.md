@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5iPzGHoLIkj6B8d3-NzyWig-t500x500.jpg">](https://soundcloud.com/dnzrecords/spanish-hard-dance-vol-14-incl-13-extended-tracks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dJVaLNsZltGyRfET-a8WGpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/amaru-sweetheart-original-mix)
 
-**Artist**: Various Artists 
+**Artist**: Fatal Energy Records 
 
-**Track**: Spanish Hard Dance Vol. 14 / Incl. 13 Extended Tracks
+**Track**: Amaru - Sweetheart (Original Mix)
 
-Last updated at 10/21/2024 07:17
+Last updated at 10/21/2024 07:18
