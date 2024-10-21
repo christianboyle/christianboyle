@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2kYvdNORQvwaxnbp-1xef9w-t500x500.jpg">](https://soundcloud.com/arachnid999/arachnid-sit-down-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgI4NczKov47SM8N-f9wcbg-t500x500.jpg">](https://soundcloud.com/user-732083412/fleshless-motion-keith-kenniff-ml-buch?in=user-732083412/sets/dots-n-pads)
 
-**Artist**: Arachnid 
+**Artist**: bino's bin 
 
-**Track**: ARACHNID - SIT DOWN ( Birthday Freebie <3 )
+**Track**: Fleshless Motion (Hollie & Keith Kenniff+ML Buch)
 
-Last updated at 10/21/2024 07:20
+Last updated at 10/21/2024 07:21
