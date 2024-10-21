@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zScVMYEZM8i1ZqLB-I10KcQ-t500x500.jpg">](https://soundcloud.com/teletechuk/e2-aamourocean-baby-work-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zY4qLxKpc6Z3JNJ3-VuyAKA-t500x500.jpg">](https://soundcloud.com/slangdogs/skrillex-x-hamdi-push-slang-dogs-remix-1)
 
-**Artist**: Teletech 
+**Artist**: Slang Dogs 
 
-**Track**: Aamourocean - Baby Work It
+**Track**: Skrillex x Hamdi - Push (Slang Dogs Remix)
 
-Last updated at 10/21/2024 09:36
+Last updated at 10/21/2024 09:39
