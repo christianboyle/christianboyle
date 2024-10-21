@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/mindless-chatter?in=user-732083412/sets/dots-n-pads)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPmGJXSBzYQIXllH-sq0vqw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/dj-sharpnel-moonship)
 
-**Artist**: bino's bin 
+**Artist**: TDJ 
 
-**Track**: market chatter (2018)
+**Track**: DJ SHARPNEL - MOONSHIP
 
-Last updated at 10/21/2024 09:25
+Last updated at 10/21/2024 09:27
