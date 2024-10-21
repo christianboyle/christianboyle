@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgI4NczKov47SM8N-f9wcbg-t500x500.jpg">](https://soundcloud.com/user-732083412/fleshless-motion-keith-kenniff-ml-buch?in=user-732083412/sets/dots-n-pads)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvSSOzbI6zOWEbWP-en76XA-t500x500.jpg">](https://soundcloud.com/user-732083412/solastalgie?in=user-732083412/sets/dots-n-pads)
 
 **Artist**: bino's bin 
 
-**Track**: Fleshless Motion (Hollie & Keith Kenniff+ML Buch)
+**Track**: Solastalgia
 
-Last updated at 10/21/2024 08:49
+Last updated at 10/21/2024 09:04
