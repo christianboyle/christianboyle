@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPmGJXSBzYQIXllH-sq0vqw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/dj-sharpnel-moonship)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNvr9zCzs9LkbgUj-q8R1Bg-t500x500.jpg">](https://soundcloud.com/rave_alert/mero-brazano?in=rave_alert/sets/mero-brazano-chemistry)
 
-**Artist**: TDJ 
+**Artist**: MERO 
 
-**Track**: DJ SHARPNEL - MOONSHIP
+**Track**: MERO - Brazano
 
-Last updated at 10/20/2024 20:21
+Last updated at 10/21/2024 07:16
