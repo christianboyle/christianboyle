@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zY4qLxKpc6Z3JNJ3-VuyAKA-t500x500.jpg">](https://soundcloud.com/slangdogs/skrillex-x-hamdi-push-slang-dogs-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6eO4ct4RpDHytIa-L5lTOw-t500x500.jpg">](https://soundcloud.com/interval-audio/now-ur-just-someone-else)
 
-**Artist**: Slang Dogs 
+**Artist**: Interval Audio 
 
-**Track**: Skrillex x Hamdi - Push (Slang Dogs Remix)
+**Track**: wessley - now ur just someone else
 
-Last updated at 10/21/2024 09:39
+Last updated at 10/22/2024 08:41
