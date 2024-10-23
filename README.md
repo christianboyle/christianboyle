@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgI4NczKov47SM8N-f9wcbg-t500x500.jpg">](https://soundcloud.com/user-732083412/fleshless-motion-keith-kenniff-ml-buch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fzQLlo5xog3vVUul-sjT2Og-t500x500.jpg">](https://soundcloud.com/user-732083412/binoklou)
 
 **Artist**: bino's bin 
 
-**Track**: Fleshless Motion (Hollie & Keith Kenniff+ML Buch)
+**Track**: binoklou__
 
-Last updated at 10/23/2024 11:30
+Last updated at 10/23/2024 11:34
