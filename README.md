@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJvIuHZ365P8fv2r-cK3ZCg-t500x500.jpg">](https://soundcloud.com/djdriiift/yglabn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vaKXGnDGarwiiZrS-GYE3hg-t500x500.jpg">](https://soundcloud.com/toocan_music/david-guetta-onerepublic-i-dont-wanna-wait-toocan-festival-remix)
 
-**Artist**: DRIIIFT 
+**Artist**: Toocan 
 
-**Track**: Bon Jovi - YGLABN (DRIIIFT Festival Edition)[SUPPORTED BY W&W, MAURICE WEST AND JAXX & VEGA]
+**Track**: David Guetta & OneRepublic - I Don't Wanna Wait (Toocan Festival Remix)
 
-Last updated at 10/23/2024 11:43
+Last updated at 10/23/2024 11:45
