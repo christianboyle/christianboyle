@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mD5Baw86D1QAQYeN-LNPkiw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-portex-listen-eoa009)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin)
 
-**Artist**: Techno Wereld 
+**Artist**: Too Kind, MADB 
 
-**Track**: Premiere: Portex - Listen [EOA009]
+**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
 
-Last updated at 10/23/2024 09:01
+Last updated at 10/23/2024 09:07
