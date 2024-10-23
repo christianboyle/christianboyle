@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zS8WWftShtwRjkTY-ftpnZQ-t500x500.jpg">](https://soundcloud.com/rejectionjp/pump-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpjywZzfGZYsS3oS-ANwUTw-t500x500.jpg">](https://soundcloud.com/djryanganar/ganar-i-want-to-preview)
 
-**Artist**: rejection 
+**Artist**: Ganar 
 
-**Track**: Pump It Up 【WE DIE YOUNG vol.5】
+**Track**: Ganar - I Want To (Preview) **OUT NOW**
 
-Last updated at 10/23/2024 12:01
+Last updated at 10/23/2024 12:03
