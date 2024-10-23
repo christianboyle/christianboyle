@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UI31fWcn3lkLpei7-APlpJA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/niko-demus-ruby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zScVMYEZM8i1ZqLB-I10KcQ-t500x500.jpg">](https://soundcloud.com/teletechuk/e2-aamourocean-baby-work-it)
 
-**Artist**: TDJ 
+**Artist**: Teletech 
 
-**Track**: Niko Demus - Ruby
+**Track**: Aamourocean - Baby Work It
 
-Last updated at 10/23/2024 11:20
+Last updated at 10/23/2024 11:24
