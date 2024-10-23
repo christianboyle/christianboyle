@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vaKXGnDGarwiiZrS-GYE3hg-t500x500.jpg">](https://soundcloud.com/toocan_music/david-guetta-onerepublic-i-dont-wanna-wait-toocan-festival-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1)
 
-**Artist**: Toocan 
+**Artist**: Storah 
 
-**Track**: David Guetta & OneRepublic - I Don't Wanna Wait (Toocan Festival Remix)
+**Track**: Tatanka - Afrika (STORAH Edit)
 
-Last updated at 10/23/2024 11:45
+Last updated at 10/23/2024 11:47
