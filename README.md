@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zPmGJXSBzYQIXllH-sq0vqw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/dj-sharpnel-moonship)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UI31fWcn3lkLpei7-APlpJA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/niko-demus-ruby)
 
 **Artist**: TDJ 
 
-**Track**: DJ SHARPNEL - MOONSHIP
+**Track**: Niko Demus - Ruby
 
-Last updated at 10/23/2024 09:10
+Last updated at 10/23/2024 09:16
