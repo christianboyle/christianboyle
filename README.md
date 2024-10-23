@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeEvjiNlBMyQAD0Y-LItsYg-t500x500.jpg">](https://soundcloud.com/valerineprisma/syzy-take-my-energy-valerine-prisma-jersey-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zS8WWftShtwRjkTY-ftpnZQ-t500x500.jpg">](https://soundcloud.com/rejectionjp/pump-it-up)
 
-**Artist**: Syzy, Valerine Prisma 
+**Artist**: rejection 
 
-**Track**: Syzy - Take my energy! (Valerine Prisma Jersey Club Edit)
+**Track**: Pump It Up 【WE DIE YOUNG vol.5】
 
-Last updated at 10/23/2024 11:59
+Last updated at 10/23/2024 12:01
