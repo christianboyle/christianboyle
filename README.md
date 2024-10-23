@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ksLWPIpEiiXzFvSG-NmCj0Q-t500x500.jpg">](https://soundcloud.com/festivaltrap/lagnaf-invisible)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ieStCKwlr3MMg3PW-Qyws3Q-t500x500.jpg">](https://soundcloud.com/beansclub/needyoubeansclubbootleg)
 
-**Artist**: FESTIVAL TRAP 
+**Artist**: beansclub 
 
-**Track**: LAGnaf - Invisible
+**Track**: Meg McHugh & Paul Maddox - Need You (beansclub bootleg)
 
-Last updated at 10/23/2024 08:43
+Last updated at 10/23/2024 08:57
