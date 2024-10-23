@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6eO4ct4RpDHytIa-L5lTOw-t500x500.jpg">](https://soundcloud.com/interval-audio/now-ur-just-someone-else)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWTIWsBZoNKXktGU-ASsA8Q-t500x500.jpg">](https://soundcloud.com/mybadmusic/my-bad-x-soul-valient-fallout)
 
-**Artist**: Interval Audio 
+**Artist**: MY BAD 
 
-**Track**: wessley - now ur just someone else
+**Track**: MY BAD x SOUL VALIENT - Fallout
 
-Last updated at 10/22/2024 08:41
+Last updated at 10/23/2024 08:39
