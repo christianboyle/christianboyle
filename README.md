@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj8V6ib8mtdBzV3Y-yQzKdQ-t500x500.jpg">](https://soundcloud.com/txrecords/premiere-dollhouse-watch-ya-mouth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ksLWPIpEiiXzFvSG-NmCj0Q-t500x500.jpg">](https://soundcloud.com/festivaltrap/lagnaf-invisible)
 
-**Artist**: Tx Records 
+**Artist**: FESTIVAL TRAP 
 
-**Track**: PREMIERE: Dollhouse - Watch Ya Mouth
+**Track**: LAGnaf - Invisible
 
-Last updated at 10/23/2024 08:42
+Last updated at 10/23/2024 08:43
