@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zScVMYEZM8i1ZqLB-I10KcQ-t500x500.jpg">](https://soundcloud.com/teletechuk/e2-aamourocean-baby-work-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZpU1F7c31UU0c06-kRAwAQ-t500x500.jpg">](https://soundcloud.com/safecloudrecs/olmatri-torpedo)
 
-**Artist**: Teletech 
+**Artist**: Olmatri 
 
-**Track**: Aamourocean - Baby Work It
+**Track**: Olmatri - Torpedo
 
-Last updated at 10/23/2024 10:22
+Last updated at 10/23/2024 11:03
