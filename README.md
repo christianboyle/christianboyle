@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UI31fWcn3lkLpei7-APlpJA-t500x500.jpg">](https://soundcloud.com/teedeejayyy/niko-demus-ruby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgI4NczKov47SM8N-f9wcbg-t500x500.jpg">](https://soundcloud.com/user-732083412/fleshless-motion-keith-kenniff-ml-buch)
 
-**Artist**: TDJ 
+**Artist**: bino's bin 
 
-**Track**: Niko Demus - Ruby
+**Track**: Fleshless Motion (Hollie & Keith Kenniff+ML Buch)
 
-Last updated at 10/23/2024 09:16
+Last updated at 10/23/2024 09:19
