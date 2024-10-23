@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-TQKehC3eqKzjq1Ie-CM04EQ-t500x500.jpg">](https://soundcloud.com/storah_raw/tatanka-afrika-storah-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UjMLkmnthsiKGNYz-CwBzHQ-t500x500.jpg">](https://soundcloud.com/syzymusic/take-my-energy)
 
-**Artist**: Storah 
+**Artist**: Syzy 
 
-**Track**: Tatanka - Afrika (STORAH Edit)
+**Track**: Take my energy!
 
-Last updated at 10/23/2024 11:47
+Last updated at 10/23/2024 11:49
