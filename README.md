@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ieStCKwlr3MMg3PW-Qyws3Q-t500x500.jpg">](https://soundcloud.com/beansclub/needyoubeansclubbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mD5Baw86D1QAQYeN-LNPkiw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-portex-listen-eoa009)
 
-**Artist**: beansclub 
+**Artist**: Techno Wereld 
 
-**Track**: Meg McHugh & Paul Maddox - Need You (beansclub bootleg)
+**Track**: Premiere: Portex - Listen [EOA009]
 
-Last updated at 10/23/2024 08:57
+Last updated at 10/23/2024 09:01
