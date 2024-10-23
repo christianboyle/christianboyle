@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zScVMYEZM8i1ZqLB-I10KcQ-t500x500.jpg">](https://soundcloud.com/teletechuk/e2-aamourocean-baby-work-it)
 
-**Artist**: sfam 
+**Artist**: Teletech 
 
-**Track**: wiz khalifa - cabin fever (sfam remix)
+**Track**: Aamourocean - Baby Work It
 
-Last updated at 10/23/2024 09:29
+Last updated at 10/23/2024 10:22
