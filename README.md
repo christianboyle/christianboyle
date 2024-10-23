@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SSHtalZr67vA-0-t500x500.jpg">](https://soundcloud.com/hardelementsmusic/show-me-your-heart-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1)
 
-**Artist**: Ryan Ganar 
+**Artist**: sfam 
 
-**Track**: Show Me Your Heart (Radio Edit)
+**Track**: wiz khalifa - cabin fever (sfam remix)
 
-Last updated at 10/23/2024 11:36
+Last updated at 10/23/2024 11:40
