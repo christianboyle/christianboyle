@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CwpRJWNFIvD5Ec8s-nxStaA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/flaya-playa-maikubi-nomali-uwu-burst-sped-up-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GCReBkxb2OFOKU7j-cFA24w-t500x500.jpg">](https://soundcloud.com/inunisonlabel/oot?in=inunisonlabel/sets/lets-go-to-the-zoo-woopheadclrms)
 
-**Artist**: FLAYA PLAYA, Maikubi, Nomali 
+**Artist**: i.u 
 
-**Track**: FLAYA PLAYA, Maikubi, Nomali - uWu BURST (Sped Up) [NCS Release]
+**Track**: Oot
 
-Last updated at 10/24/2024 11:02
+Last updated at 10/24/2024 11:03
