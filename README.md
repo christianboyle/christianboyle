@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aprvS4gAplcP-0-t500x500.png">](https://soundcloud.com/jaiwolfmusic/water-sign-feat-aluna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8QnzXg8g5BUGHu3-1MDcQA-t500x500.jpg">](https://soundcloud.com/dj_boeing/night-flight)
 
-**Artist**: Jai Wolf featuring Aluna 
+**Artist**: DJ Boeing 
 
-**Track**: Water Sign (feat. Aluna)
+**Track**: night flight (free download)
 
-Last updated at 10/24/2024 08:24
+Last updated at 10/24/2024 08:25
