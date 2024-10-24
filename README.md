@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ieStCKwlr3MMg3PW-Qyws3Q-t500x500.jpg">](https://soundcloud.com/beansclub/needyoubeansclubbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin)
 
-**Artist**: beansclub 
+**Artist**: Too Kind, MADB 
 
-**Track**: Meg McHugh & Paul Maddox - Need You (beansclub bootleg)
+**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
 
-Last updated at 10/24/2024 09:09
+Last updated at 10/24/2024 09:13
