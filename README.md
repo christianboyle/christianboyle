@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ST1v0yhYCTQ0MAYT-XSzOWw-t500x500.jpg">](https://soundcloud.com/vrg_music/delusional)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZGF6iUB7o4V5xTE-WIgOwg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/blooddropz-the-best-of-you-club-mix)
 
-**Artist**: VRG 
+**Artist**: Fatal Energy Records 
 
-**Track**: delusional...
+**Track**: BloodDropz! - The Best Of You (Club Mix)
 
-Last updated at 10/24/2024 08:21
+Last updated at 10/24/2024 08:22
