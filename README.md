@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6aSM20hQLbN2EVZa-mwOxnw-t500x500.jpg">](https://soundcloud.com/djmag/premiere-purient-mwah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ST1v0yhYCTQ0MAYT-XSzOWw-t500x500.jpg">](https://soundcloud.com/vrg_music/delusional)
 
-**Artist**: djmag 
+**Artist**: VRG 
 
-**Track**: Premiere: Purient ‘Mwah’
+**Track**: delusional...
 
-Last updated at 10/24/2024 08:20
+Last updated at 10/24/2024 08:21
