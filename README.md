@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZGF6iUB7o4V5xTE-WIgOwg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/blooddropz-the-best-of-you-club-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000281514656-6z4739-t500x500.jpg">](https://soundcloud.com/slimhustlaxxx/bagged-packed-ready-2-go)
 
-**Artist**: Fatal Energy Records 
+**Artist**: SLIM HUSTLA 
 
-**Track**: BloodDropz! - The Best Of You (Club Mix)
+**Track**: BAGGED&PACKED (READY 2 GO)
 
-Last updated at 10/24/2024 08:22
+Last updated at 10/24/2024 08:23
