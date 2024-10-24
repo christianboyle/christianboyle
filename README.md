@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zXPQpyZS7s2vMu0-CHIHaQ-t500x500.jpg">](https://soundcloud.com/laviermusic/i-think-you-would-love-it-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ZGF6iUB7o4V5xTE-WIgOwg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/blooddropz-the-best-of-you-club-mix)
 
-**Artist**: Lavier 
+**Artist**: Fatal Energy Records 
 
-**Track**: I Think You Would Love It VIP
+**Track**: BloodDropz! - The Best Of You (Club Mix)
 
-Last updated at 10/24/2024 11:13
+Last updated at 10/24/2024 11:17
