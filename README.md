@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEmF9IyCbt9K4qYm-JHibLw-t500x500.jpg">](https://soundcloud.com/2tdmusic/guarantee-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAFkaqp1TJDG0GcX-2gJizA-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-tangerine-groove)
 
-**Artist**: 2TD 
+**Artist**: M-Project 
 
-**Track**: GUARANTEE
+**Track**: M-Project - Tangerine Groove
 
-Last updated at 10/24/2024 08:45
+Last updated at 10/24/2024 08:48
