@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPtcts0GOYwMtayy-OfjjYw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/lost-sky-fearless-feat-chris-linton-slowed-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0WlJtFeRdKla1hy4-oOkQ5A-t500x500.jpg">](https://soundcloud.com/soundsofhound/activate-hound-sound)
 
-**Artist**: Lost Sky, Chris Linton 
+**Artist**: HOUND. 
 
-**Track**: Lost Sky - Fearless (feat. Chris Linton) (Slowed) [NCS Release]
+**Track**: ACTIVATE
 
-Last updated at 10/24/2024 08:17
+Last updated at 10/24/2024 08:18
