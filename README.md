@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NPKcFOaRbLQum27-nvMrVg-t500x500.jpg">](https://soundcloud.com/dnzrecords/dtah-halfway-round-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6aSM20hQLbN2EVZa-mwOxnw-t500x500.jpg">](https://soundcloud.com/djmag/premiere-purient-mwah)
 
-**Artist**: DTAH 
+**Artist**: djmag 
 
-**Track**: DTAH - Halfway Round The World
+**Track**: Premiere: Purient ‘Mwah’
 
-Last updated at 10/24/2024 08:19
+Last updated at 10/24/2024 08:20
