@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zXPQpyZS7s2vMu0-CHIHaQ-t500x500.jpg">](https://soundcloud.com/laviermusic/i-think-you-would-love-it-vip?in=saxurn/sets/deathsthetics/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1?in=saxurn/sets/deathsthetics/)
 
-**Artist**: Lavier 
+**Artist**: sfam 
 
-**Track**: I Think You Would Love It VIP
+**Track**: wiz khalifa - cabin fever (sfam remix)
 
-Last updated at 10/24/2024 13:32
+Last updated at 10/24/2024 13:33
