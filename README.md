@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIZvIqicxyoSNNX0-LO1Axw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/dashie-fade-sped-up-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZVA44YKdzEQQIpl-hJXUzQ-t500x500.png">](https://soundcloud.com/iffoundmusic/noisemaker)
 
-**Artist**: dashie 
+**Artist**: if found 
 
-**Track**: dashie - fade (Sped Up) [NCS Release]
+**Track**: NOiSE.MAKER
 
-Last updated at 10/24/2024 10:56
+Last updated at 10/24/2024 10:58
