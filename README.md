@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zXPQpyZS7s2vMu0-CHIHaQ-t500x500.jpg">](https://soundcloud.com/laviermusic/i-think-you-would-love-it-vip?in=saxurn/sets/deathsthetics/)
 
-**Artist**: Too Kind, MADB 
+**Artist**: Lavier 
 
-**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
+**Track**: I Think You Would Love It VIP
 
-Last updated at 10/24/2024 13:28
+Last updated at 10/24/2024 13:32
