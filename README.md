@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1?in=saxurn/sets/deathsthetics)
 
-**Artist**: Too Kind, MADB 
+**Artist**: sfam 
 
-**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
+**Track**: wiz khalifa - cabin fever (sfam remix)
 
-Last updated at 10/24/2024 13:41
+Last updated at 10/24/2024 13:44
