@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tihHWY6D7daNu5OD-31BAyQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/wiz-khalifa-cabin-fever-sfam-remix-1?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIBHXywGZ5MEZ9kV-izsmQw-t500x500.jpg">](https://soundcloud.com/wherearethepercs/i-will-be-there-demo?in=saxurn/sets/deathsthetics)
 
-**Artist**: sfam 
+**Artist**: rxi 
 
-**Track**: wiz khalifa - cabin fever (sfam remix)
+**Track**: aquarium (demo)
 
-Last updated at 10/24/2024 13:44
+Last updated at 10/24/2024 13:52
