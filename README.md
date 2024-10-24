@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAFkaqp1TJDG0GcX-2gJizA-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-tangerine-groove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIBHXywGZ5MEZ9kV-izsmQw-t500x500.jpg">](https://soundcloud.com/wherearethepercs/i-will-be-there-demo)
 
-**Artist**: M-Project 
+**Artist**: rxi 
 
-**Track**: M-Project - Tangerine Groove
+**Track**: i will be there (demo)
 
-Last updated at 10/24/2024 09:41
+Last updated at 10/24/2024 09:43
