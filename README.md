@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JanMvQ9ibf7ThdFa-8NO0DQ-t500x500.jpg">](https://soundcloud.com/itshellbound/rhythym-hb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lVeEzbySuruiOHY-zErDVA-t500x500.jpg">](https://soundcloud.com/dnzrecords/dj-oskar-lead-to-your-love)
 
-**Artist**: HELLBOUND! 
+**Artist**: DJ Oskar 
 
-**Track**: RYTHYM IS A DANCER (HELLBOUND! EDIT)
+**Track**: DJ Oskar - Lead To Your Love
 
-Last updated at 10/25/2024 08:57
+Last updated at 10/25/2024 08:58
