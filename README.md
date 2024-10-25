@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIBHXywGZ5MEZ9kV-izsmQw-t500x500.jpg">](https://soundcloud.com/wherearethepercs/i-will-be-there-demo?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JanMvQ9ibf7ThdFa-8NO0DQ-t500x500.jpg">](https://soundcloud.com/itshellbound/rhythym-hb)
 
-**Artist**: rxi 
+**Artist**: HELLBOUND! 
 
-**Track**: aquarium (demo)
+**Track**: RYTHYM IS A DANCER (HELLBOUND! EDIT)
 
-Last updated at 10/24/2024 13:52
+Last updated at 10/25/2024 08:57
