@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbRFV9p014NHw4AK-ZxXdmw-t500x500.png">](https://soundcloud.com/jamesjamesjamess/goturnumber?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin?in=saxurn/sets/deathsthetics)
 
-**Artist**: jamesjamesjames 
+**Artist**: Too Kind, MADB 
 
-**Track**: gotur#
+**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
 
-Last updated at 10/25/2024 09:34
+Last updated at 10/25/2024 09:39
