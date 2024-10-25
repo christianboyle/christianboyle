@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitcMiyJ4KKK2gQT-NtzUQA-t500x500.png">](https://soundcloud.com/sunglasseskid/breaking-news-interlude?in=sunglasseskid/sets/internal-affairs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sbRFV9p014NHw4AK-ZxXdmw-t500x500.png">](https://soundcloud.com/jamesjamesjamess/goturnumber?in=saxurn/sets/deathsthetics)
 
-**Artist**: Sunglasses Kid 
+**Artist**: jamesjamesjames 
 
-**Track**: Breaking News (Interlude)
+**Track**: gotur#
 
-Last updated at 10/25/2024 09:15
+Last updated at 10/25/2024 09:34
