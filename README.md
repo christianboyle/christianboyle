@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JanMvQ9ibf7ThdFa-8NO0DQ-t500x500.jpg">](https://soundcloud.com/itshellbound/rhythm-hb?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A7YPqKkYxv2sUzyu-3syxcQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jesse-jax-broke-me?in=saxurn/sets/deathsthetics)
 
-**Artist**: HELLBOUND! 
+**Artist**: Jesse Jax 
 
-**Track**: RHYTHM IS A DANCER (HELLBOUND! EDIT)
+**Track**: Jesse Jax - Broke Me
 
-Last updated at 10/25/2024 09:42
+Last updated at 10/25/2024 09:46
