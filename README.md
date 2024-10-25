@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A7YPqKkYxv2sUzyu-3syxcQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/jesse-jax-broke-me?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zScVMYEZM8i1ZqLB-I10KcQ-t500x500.jpg">](https://soundcloud.com/teletechuk/e2-aamourocean-baby-work-it?in=saxurn/sets/deathsthetics)
 
-**Artist**: Jesse Jax 
+**Artist**: Teletech 
 
-**Track**: Jesse Jax - Broke Me
+**Track**: Aamourocean - Baby Work It
 
-Last updated at 10/25/2024 09:46
+Last updated at 10/25/2024 09:48
