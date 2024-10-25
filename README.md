@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enaESPgWatxw1aGy-dArdAQ-t500x500.png">](https://soundcloud.com/jaredistookind/fall-out-boy-sugar-were-goin?in=saxurn/sets/deathsthetics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JanMvQ9ibf7ThdFa-8NO0DQ-t500x500.jpg">](https://soundcloud.com/itshellbound/rhythm-hb?in=saxurn/sets/deathsthetics)
 
-**Artist**: Too Kind, MADB 
+**Artist**: HELLBOUND! 
 
-**Track**: Fall Out Boy - Sugar Were Goin Down (tookind x MADB Remix)
+**Track**: RHYTHM IS A DANCER (HELLBOUND! EDIT)
 
-Last updated at 10/25/2024 09:39
+Last updated at 10/25/2024 09:42
