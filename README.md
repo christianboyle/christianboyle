@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idhKc24V4dWjuPju-wSuQaQ-t500x500.jpg">](https://soundcloud.com/dramaclubrecs/3-evalution-every-night?in=dramaclubrecs/sets/evalution-locked-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitcMiyJ4KKK2gQT-NtzUQA-t500x500.png">](https://soundcloud.com/sunglasseskid/breaking-news-interlude?in=sunglasseskid/sets/internal-affairs)
 
-**Artist**: Evalution 
+**Artist**: Sunglasses Kid 
 
-**Track**: Evalution - Every Night
+**Track**: Breaking News (Interlude)
 
-Last updated at 10/25/2024 09:07
+Last updated at 10/25/2024 09:15
