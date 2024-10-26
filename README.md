@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAiAPAvnkVWyqwEh-FOCkVA-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-dj-ding-tim-rausch-atomic-pulse?in=saxurn/sets/zzz/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmeovyjHCGtVzEYR-XLRWIA-t500x500.png">](https://soundcloud.com/lizdek/movelike?in=saxurn/sets/blessed)
 
-**Artist**: Panteros666 
+**Artist**: Lizdek 
 
-**Track**: Panteros666, DJ Ding & Tim Rausch - Atomic Pulse
+**Track**: Lizdek & VARI - MOVELIKE
 
-Last updated at 10/26/2024 11:25
+Last updated at 10/26/2024 11:27
