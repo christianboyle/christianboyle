@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3rTCzdPdVUvmVE0E-yKF9dQ-t500x500.jpg">](https://soundcloud.com/aokai-music/showtek-toxic-machinery-fts-x-fresh-water-aokai-hard-techno-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Udz2unftmUKh530V-w2s0SA-t500x500.png">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-different-heaven-ehde-my-heart-x-everything-mashup-ncs-release)
 
-**Artist**: AOKAI 
+**Artist**: Diamond Eyes, Different Heaven, EH!DE 
 
-**Track**: Showtek, Toxic Machinery - FTS x Fresh Water (AOKAI Hard Techno Mashup)
+**Track**: Diamond Eyes, Different Heaven, EH!DE - My Heart x Everything Mashup [NCS Release]
 
-Last updated at 10/26/2024 09:12
+Last updated at 10/26/2024 09:17
