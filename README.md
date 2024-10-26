@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ98lk06eJsMy84L-QhJN9g-t500x500.jpg">](https://soundcloud.com/immegmchugh/need-you?in=saxurn/sets/zzz/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Udz2unftmUKh530V-w2s0SA-t500x500.png">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-different-heaven-ehde-my-heart-x-everything-mashup-ncs-release?in=saxurn/sets/zzz/)
 
-**Artist**: Meg McHugh, Meg McHugh 
+**Artist**: Diamond Eyes, Different Heaven, EH!DE 
 
-**Track**: Meg McHugh & Paul Maddox - Need You
+**Track**: Diamond Eyes, Different Heaven, EH!DE - My Heart x Everything Mashup [NCS Release]
 
-Last updated at 10/26/2024 11:20
+Last updated at 10/26/2024 11:23
