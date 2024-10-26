@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqvtrpXyikDW5Xu5-CjBv7A-t500x500.jpg">](https://soundcloud.com/doublea408/rihanna-x-inoj-you-da-one-double-a-from-the-bay-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nwZ1h37xJYy2rkgW-FWsFIA-t500x500.jpg">](https://soundcloud.com/lunysounds/papi-chulo-latin-club)
 
-**Artist**: Double ₳ 'from The Bay' 
+**Artist**: LUNY 
 
-**Track**: Rihanna x INOJ - You Da One (Double A 'from The Bay' Flip)
+**Track**: Papi Chulo (Latin Club)
 
-Last updated at 10/26/2024 09:22
+Last updated at 10/26/2024 09:23
