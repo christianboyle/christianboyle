@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zqvtrpXyikDW5Xu5-CjBv7A-t500x500.jpg">](https://soundcloud.com/doublea408/rihanna-x-inoj-you-da-one-double-a-from-the-bay-flip?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8NK18FS3Dz0SCZD-4Jz2Gg-t500x500.jpg">](https://soundcloud.com/xeptionmusic/lovestoryxep?in=saxurn/sets/blessed)
 
-**Artist**: Double ₳ 'from The Bay' 
+**Artist**: XEPTION 
 
-**Track**: Rihanna x INOJ - You Da One (Double A 'from The Bay' Flip)
+**Track**: W&W x Darren Styles ft. Taylor Swift - Love Story X Long Way Down (XEPTION MASHUP)
 
-Last updated at 10/26/2024 11:29
+Last updated at 10/26/2024 11:31
