@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UUYLOK2orjQ13eua-1lkjGA-t500x500.jpg">](https://soundcloud.com/elotrance/premiere-kichta-get-funky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik)
 
-**Artist**: Kichta 
+**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
 
-**Track**: Kichta - Get Funky
+**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
 
-Last updated at 10/26/2024 09:18
+Last updated at 10/26/2024 09:19
