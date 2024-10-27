@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNgy7S70WwgdVNPb-XthilQ-t500x500.jpg">](https://soundcloud.com/eckhaus-music/travis-scott-x-playboi-carti-fen-eckhaus-flp-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzH5u2Wn6EuwnpX6-zgeMJA-t500x500.jpg">](https://soundcloud.com/liquicityrecords/dustkey-leniz-goldyears)
 
-**Artist**: Eckhaus 
+**Artist**: Dustkey & Leniz 
 
-**Track**: Travis Scott x Playboi Carti - FE!N (Eckhaus Fl!p) {FREE DOWNLOAD}
+**Track**: Dustkey & Leniz - Goldyears
 
-Last updated at 10/27/2024 07:45
+Last updated at 10/27/2024 08:07
