@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z1MVaMYcEs6a17Mj-zjybdg-t500x500.jpg">](https://soundcloud.com/xotixmusic/hanumankind-big-dawgs-xotix-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BU8YumlLV1Mbe7ik-tS0zew-t500x500.jpg">](https://soundcloud.com/iansnowmusic/into-the-portal-1)
 
-**Artist**: XOTIX 
+**Artist**: Ian Snow 
 
-**Track**: HANUMANKIND - BIG DAWGS (XOTIX FLIP)
+**Track**: Into The Portal
 
-Last updated at 10/27/2024 18:20
+Last updated at 10/27/2024 18:21
