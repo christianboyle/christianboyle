@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usKl5rzOxuhj5N46-aDZN0A-t500x500.jpg">](https://soundcloud.com/jalayamusic/band4band-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-It4zKyF8x4KAonCX-ekri4g-t500x500.jpg">](https://soundcloud.com/senditsquad/wilsun-ft-grim-sickers-brainless)
 
-**Artist**: Jalaya 
+**Artist**: WilSun 
 
-**Track**: Band4Band Flip
+**Track**: WilSun ft. Grim Sickers - Brainless
 
-Last updated at 10/27/2024 08:41
+Last updated at 10/27/2024 08:42
