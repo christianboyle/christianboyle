@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Udz2unftmUKh530V-w2s0SA-t500x500.png">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-different-heaven-ehde-my-heart-x-everything-mashup-ncs-release?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAiAPAvnkVWyqwEh-FOCkVA-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-dj-ding-tim-rausch-atomic-pulse)
 
-**Artist**: Diamond Eyes, Different Heaven, EH!DE 
+**Artist**: Panteros666 
 
-**Track**: Diamond Eyes, Different Heaven, EH!DE - My Heart x Everything Mashup [NCS Release]
+**Track**: Panteros666, DJ Ding & Tim Rausch - Atomic Pulse
 
-Last updated at 10/26/2024 19:23
+Last updated at 10/26/2024 19:25
