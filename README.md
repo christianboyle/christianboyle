@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSvrey435nmE9Sis-QOJXAw-t500x500.jpg">](https://soundcloud.com/hexed-official/counting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1ngLWtfXTKhdZIr-NeFoxA-t500x500.jpg">](https://soundcloud.com/neohnq/omg)
 
-**Artist**: HEXED 
+**Artist**: neohn 
 
-**Track**: COUNTING
+**Track**: OMG (+yashio)
 
-Last updated at 10/27/2024 07:42
+Last updated at 10/27/2024 07:43
