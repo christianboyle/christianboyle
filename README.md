@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BU8YumlLV1Mbe7ik-tS0zew-t500x500.jpg">](https://soundcloud.com/iansnowmusic/into-the-portal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AD1llbbq3upghmoX-80C7jA-t500x500.jpg">](https://soundcloud.com/vinceedward/punky-brewstar-after-midnight)
 
-**Artist**: Ian Snow 
+**Artist**: Punky Brewstar/Vince Edward/vin-E 
 
-**Track**: Into The Portal
+**Track**: Punky Brewstar After Midnight
 
-Last updated at 10/27/2024 18:21
+Last updated at 10/27/2024 18:22
