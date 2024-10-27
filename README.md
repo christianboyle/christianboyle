@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqeKg0iuhiqWA2t9-52N96Q-t500x500.png">](https://soundcloud.com/jukaamusic/i-like-america-america-likes-me-bootleg?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAiAPAvnkVWyqwEh-FOCkVA-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-dj-ding-tim-rausch-atomic-pulse?in=saxurn/sets/blessed)
 
-**Artist**: Jukaa 
+**Artist**: Panteros666 
 
-**Track**: The 1975 - I Like America & America Likes Me (Jukaa Bootleg)
+**Track**: Panteros666, DJ Ding & Tim Rausch - Atomic Pulse
 
-Last updated at 10/26/2024 19:39
+Last updated at 10/26/2024 19:41
