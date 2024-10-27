@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpjywZzfGZYsS3oS-ANwUTw-t500x500.jpg">](https://soundcloud.com/djryanganar/ganar-i-want-to-preview?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Udz2unftmUKh530V-w2s0SA-t500x500.png">](https://soundcloud.com/nocopyrightsounds/diamond-eyes-different-heaven-ehde-my-heart-x-everything-mashup-ncs-release?in=saxurn/sets/blessed)
 
-**Artist**: Ganar 
+**Artist**: Diamond Eyes, Different Heaven, EH!DE 
 
-**Track**: Ganar - I Want To (Preview) **OUT NOW**
+**Track**: Diamond Eyes, Different Heaven, EH!DE - My Heart x Everything Mashup [NCS Release]
 
-Last updated at 10/26/2024 19:21
+Last updated at 10/26/2024 19:23
