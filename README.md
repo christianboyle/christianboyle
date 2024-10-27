@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVOn8P846JTHpF7f-S6YOkQ-t500x500.jpg">](https://soundcloud.com/user-379942385/osrin-wilhelm-highway-ivares-remix?in=funny/sets/fun-songs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lLilPxFHSkfyzG8U-wzgEfw-t500x500.jpg">](https://soundcloud.com/serenitygng/sun-down)
 
-**Artist**: ivares 
+**Artist**: SERENITY 
 
-**Track**: Osrin & WILHELM - Highway (ivares Remix)
+**Track**: sun down! (sushibite)
 
-Last updated at 10/27/2024 18:16
+Last updated at 10/27/2024 18:17
