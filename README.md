@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqeKg0iuhiqWA2t9-52N96Q-t500x500.png">](https://soundcloud.com/jukaamusic/i-like-america-america-likes-me-bootleg?in=saxurn/sets/blessed)
 
-**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
+**Artist**: Jukaa 
 
-**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
+**Track**: The 1975 - I Like America & America Likes Me (Jukaa Bootleg)
 
-Last updated at 10/26/2024 19:34
+Last updated at 10/26/2024 19:39
