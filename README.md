@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtDr80Qi3icJZ7mg-EjEGhw-t500x500.jpg">](https://soundcloud.com/redhot1/showtek-fts-redhot-hard-techno-edit-1?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKC8QwW4DqGUSu8m-KrMZxQ-t500x500.jpg">](https://soundcloud.com/gin_and_sonic/benny-benassi-satisfaction-gin-and-sonic-quick-flip)
 
-**Artist**: Redhot 
+**Artist**: Gin and Sonic 
 
-**Track**: Showtek - FTS (Redhot Hard Techno Edit)
+**Track**: Benny Benassi - Satisfaction (Gin and Sonic Quick Flip)
 
-Last updated at 10/26/2024 19:46
+Last updated at 10/27/2024 07:37
