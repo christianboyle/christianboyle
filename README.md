@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8NK18FS3Dz0SCZD-4Jz2Gg-t500x500.jpg">](https://soundcloud.com/xeptionmusic/lovestoryxep?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik?in=saxurn/sets/blessed)
 
-**Artist**: XEPTION 
+**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
 
-**Track**: W&W x Darren Styles ft. Taylor Swift - Love Story X Long Way Down (XEPTION MASHUP)
+**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
 
-Last updated at 10/26/2024 19:31
+Last updated at 10/26/2024 19:34
