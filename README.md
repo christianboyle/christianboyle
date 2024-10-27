@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TfwhJWftyaJQFOz-TWomWA-t500x500.jpg">](https://soundcloud.com/medusa_lives/lolas-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NDkcqdu5syeJHKAz-NiF8yw-t500x500.jpg">](https://soundcloud.com/carlo_kara/drowning)
 
-**Artist**: Medusa Lives 
+**Artist**: Carlo Kara 
 
-**Track**: Lola's Song
+**Track**: Drowning
 
-Last updated at 10/27/2024 07:38
+Last updated at 10/27/2024 07:39
