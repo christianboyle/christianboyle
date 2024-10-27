@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lLilPxFHSkfyzG8U-wzgEfw-t500x500.jpg">](https://soundcloud.com/serenitygng/sun-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bI2QkMSVyyUQupMG-gxYHmA-t500x500.png">](https://soundcloud.com/sinatradubz/sinatra-afterdark)
 
-**Artist**: SERENITY 
+**Artist**: Sinatra 
 
-**Track**: sun down! (sushibite)
+**Track**: Sinatra - Afterdark
 
-Last updated at 10/27/2024 18:17
+Last updated at 10/27/2024 18:18
