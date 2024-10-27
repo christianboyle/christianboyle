@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NDkcqdu5syeJHKAz-NiF8yw-t500x500.jpg">](https://soundcloud.com/carlo_kara/drowning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSvrey435nmE9Sis-QOJXAw-t500x500.jpg">](https://soundcloud.com/hexed-official/counting)
 
-**Artist**: Carlo Kara 
+**Artist**: HEXED 
 
-**Track**: Drowning
+**Track**: COUNTING
 
-Last updated at 10/27/2024 07:39
+Last updated at 10/27/2024 07:42
