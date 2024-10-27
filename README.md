@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiXgLEJFstecIKGZ-9jzkJg-t500x500.png">](https://soundcloud.com/clean/hate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OVOn8P846JTHpF7f-S6YOkQ-t500x500.jpg">](https://soundcloud.com/user-379942385/osrin-wilhelm-highway-ivares-remix?in=funny/sets/fun-songs)
 
-**Artist**: awful 
+**Artist**: ivares 
 
-**Track**: think i might,, hate u (akura)
+**Track**: Osrin & WILHELM - Highway (ivares Remix)
 
-Last updated at 10/27/2024 18:15
+Last updated at 10/27/2024 18:16
