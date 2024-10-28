@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqeKg0iuhiqWA2t9-52N96Q-t500x500.png">](https://soundcloud.com/jukaamusic/i-like-america-america-likes-me-bootleg?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ98lk06eJsMy84L-QhJN9g-t500x500.jpg">](https://soundcloud.com/immegmchugh/need-you?in=saxurn/sets/blessed)
 
-**Artist**: Jukaa 
+**Artist**: Meg McHugh, Meg McHugh 
 
-**Track**: The 1975 - I Like America & America Likes Me (Jukaa Bootleg)
+**Track**: Meg McHugh & Paul Maddox - Need You
 
-Last updated at 10/28/2024 09:58
+Last updated at 10/28/2024 13:45
