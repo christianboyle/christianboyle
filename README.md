@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AD1llbbq3upghmoX-80C7jA-t500x500.jpg">](https://soundcloud.com/vinceedward/punky-brewstar-after-midnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1jb3nQeZfROipOQ-MXPHIg-t500x500.jpg">](https://soundcloud.com/dreamloader/trendy)
 
-**Artist**: Punky Brewstar/Vince Edward/vin-E 
+**Artist**: dreamloader 
 
-**Track**: Punky Brewstar After Midnight
+**Track**: trendy
 
-Last updated at 10/27/2024 18:22
+Last updated at 10/27/2024 20:46
