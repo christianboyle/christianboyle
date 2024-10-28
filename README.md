@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik?in=saxurn/sets/blessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-luC4q1VcMIiA0noP-O4fiwQ-t500x500.png">](https://soundcloud.com/itsalongstoryshort/bb074d2b-ebe1-4997-8e01-dcb715fef54f)
 
-**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
+**Artist**: longstoryshort 
 
-**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
+**Track**: THE VIBE
 
-Last updated at 10/28/2024 08:50
+Last updated at 10/28/2024 08:55
