@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OoeBS6njCgQWzBwo-Z8TCzw-t500x500.png">](https://soundcloud.com/ookaymusic/ookay-chime-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NeMsfNC74IqWn6Is-Xsze2Q-t500x500.jpg">](https://soundcloud.com/komplichated/nameless-king)
 
-**Artist**: Ookay, Chime 
+**Artist**: KOMPLICHATED 
 
-**Track**: Ookay & Chime - Soul
+**Track**: NAMELESS KING
 
-Last updated at 10/28/2024 08:32
+Last updated at 10/28/2024 08:33
