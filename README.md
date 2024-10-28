@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBMV7TeWWaSz9DjR-zzVUlw-t500x500.jpg">](https://soundcloud.com/brodyjenner/get-ur-freak-on-brody-jenner-remix-missy-elliot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYVzydHiqfVid8EE-S9zg5Q-t500x500.jpg">](https://soundcloud.com/eriovolders/guess-remix)
 
-**Artist**: BRODY JENNER 
+**Artist**: ERIO 
 
-**Track**: Get Ur Freak On - (Brody Jenner Remix) - Missy Elliot
+**Track**: Charlie xcx & Billie Eilish - Guess (ERIO BOOTLEG) ⬇️DOWNLOAD⬇️
 
-Last updated at 10/28/2024 08:34
+Last updated at 10/28/2024 08:35
