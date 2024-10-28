@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-luC4q1VcMIiA0noP-O4fiwQ-t500x500.png">](https://soundcloud.com/itsalongstoryshort/bb074d2b-ebe1-4997-8e01-dcb715fef54f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fpjywZzfGZYsS3oS-ANwUTw-t500x500.jpg">](https://soundcloud.com/djryanganar/ganar-i-want-to-preview?in=saxurn/sets/blessed)
 
-**Artist**: longstoryshort 
+**Artist**: Ganar 
 
-**Track**: THE VIBE
+**Track**: Ganar - I Want To (Preview) **OUT NOW**
 
-Last updated at 10/28/2024 08:55
+Last updated at 10/28/2024 08:56
