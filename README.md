@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYVzydHiqfVid8EE-S9zg5Q-t500x500.jpg">](https://soundcloud.com/eriovolders/guess-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmeovyjHCGtVzEYR-XLRWIA-t500x500.png">](https://soundcloud.com/lizdek/movelike?in=saxurn/sets/blessed)
 
-**Artist**: ERIO 
+**Artist**: Lizdek 
 
-**Track**: Charlie xcx & Billie Eilish - Guess (ERIO BOOTLEG) ⬇️DOWNLOAD⬇️
+**Track**: Lizdek & VARI - MOVELIKE
 
-Last updated at 10/28/2024 08:35
+Last updated at 10/28/2024 08:37
