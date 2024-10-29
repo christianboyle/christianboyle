@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OQ57Xb2qYPTjGbi-u8z9Aw-t500x500.jpg">](https://soundcloud.com/exobolt/opus?in=saxurn/sets/onb/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1jb3nQeZfROipOQ-MXPHIg-t500x500.jpg">](https://soundcloud.com/dreamloader/trendy?in=saxurn/sets/onb/)
 
-**Artist**: eliderp, funny 
+**Artist**: dreamloader 
 
-**Track**: eliderp - opus (ft. funny)
+**Track**: trendy
 
-Last updated at 10/29/2024 09:02
+Last updated at 10/29/2024 09:06
