@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1EDq0SvRZhFW5s7k-N3viIg-t500x500.jpg">](https://soundcloud.com/dj-glu-trap/bux-county-iphone-darude-sandstorm-remix)
 
-**Artist**: TETE VIDE 
+**Artist**: DJ GLU TRAP 
 
-**Track**: BURY2K - Kickin & Drummin
+**Track**: Bux County - iPhone (Darude Sandstorm remix)
 
-Last updated at 10/29/2024 08:41
+Last updated at 10/29/2024 08:42
