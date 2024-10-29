@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1EDq0SvRZhFW5s7k-N3viIg-t500x500.jpg">](https://soundcloud.com/dj-glu-trap/bux-county-iphone-darude-sandstorm-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owgRVZa5nXTu-0-t500x500.jpg">](https://soundcloud.com/djscrewofficial/space-age-pimpin)
 
-**Artist**: DJ GLU TRAP 
+**Artist**: DJ Screw 
 
-**Track**: Bux County - iPhone (Darude Sandstorm remix)
+**Track**: Space Age Pimpin’
 
-Last updated at 10/29/2024 08:42
+Last updated at 10/29/2024 08:45
