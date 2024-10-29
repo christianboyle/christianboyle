@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6aznjA9EzqHCMmoF-0QAiWg-t500x500.jpg">](https://soundcloud.com/interval-audio/axt-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ro2vEMEGw9z4lBd-RyuGUQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-broken-pieces-gomb84)
 
-**Artist**: AxT 
+**Artist**: INNERGATED 
 
-**Track**: AxT - Free
+**Track**: Premiere: ANGEL CANNON - Broken Pieces [GOMB84]
 
-Last updated at 10/29/2024 08:51
+Last updated at 10/29/2024 08:52
