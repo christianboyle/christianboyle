@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zyNzL6sK6lrx4cf-RFhsIw-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-slasher-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-01iVdxUneADbTbXI-UmMYWw-t500x500.jpg">](https://soundcloud.com/notfroe/bodyhigh)
 
-**Artist**: Blaize 
+**Artist**: froe, sidia, d0llywood1 
 
-**Track**: Blaize - Slasher
+**Track**: body high (ft. sidia, d0llywood1)
 
-Last updated at 10/29/2024 08:48
+Last updated at 10/29/2024 08:49
