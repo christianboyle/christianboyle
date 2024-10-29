@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OQ57Xb2qYPTjGbi-u8z9Aw-t500x500.jpg">](https://soundcloud.com/exobolt/opus?in=saxurn/sets/onb/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ro2vEMEGw9z4lBd-RyuGUQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-broken-pieces-gomb84?in=saxurn/sets/onb/)
 
-**Artist**: eliderp, funny 
+**Artist**: INNERGATED 
 
-**Track**: eliderp - opus (ft. funny)
+**Track**: Premiere: ANGEL CANNON - Broken Pieces [GOMB84]
 
-Last updated at 10/29/2024 09:23
+Last updated at 10/29/2024 09:24
