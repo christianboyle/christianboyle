@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wsxy2Wty2FvNT5vM-Jfg5mw-t500x500.jpg">](https://soundcloud.com/callumtucker1/miracle-tucker-schranz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgj4viF6gwT82cz9-TKoMmg-t500x500.jpg">](https://soundcloud.com/djsfrenchcandy/galantis-runaway-french-candy-vip-mix)
 
-**Artist**: TUCKER OFFICIAL 
+**Artist**: French Candy 
 
-**Track**: MIRACLE  TUCKER SCHRANZ REMIX
+**Track**: Galantis - Runaway (French Candy VIP Mix)
 
-Last updated at 10/29/2024 08:36
+Last updated at 10/29/2024 08:37
