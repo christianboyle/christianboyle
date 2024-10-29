@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AbktQD2md9zWk4HX-9XnBVA-t500x500.jpg">](https://soundcloud.com/piercesounds/pierce-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin)
 
-**Artist**: PIERCE 
+**Artist**: TETE VIDE 
 
-**Track**: PIERCE - BOUNCE
+**Track**: BURY2K - Kickin & Drummin
 
-Last updated at 10/29/2024 08:40
+Last updated at 10/29/2024 08:41
