@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rg8aFCDyEYD64qwr-NtwkLw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-bailey-ibbs-posted-up-north-nsr003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeurOIAH8SFv00lw-K7KbNQ-t500x500.png">](https://soundcloud.com/murlowmusic/third-eye)
 
-**Artist**: Bailey Ibbs 
+**Artist**: Mur-Low 
 
-**Track**: Premiere: Bailey Ibbs - Posted Up North [NSR003]
+**Track**: Third Eye
 
-Last updated at 10/30/2024 09:40
+Last updated at 10/30/2024 09:41
