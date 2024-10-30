@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OQ57Xb2qYPTjGbi-u8z9Aw-t500x500.jpg">](https://soundcloud.com/exobolt/opus?in=saxurn/sets/onb/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWMHEdKdOm2HJQ9k-ah3rPg-t500x500.png">](https://soundcloud.com/omgcluu/walk-w1sunsuu-prodstarxvi)
 
-**Artist**: eliderp, funny 
+**Artist**: cluu, 1sunsuu 
 
-**Track**: eliderp - opus (ft. funny)
+**Track**: walk w/1sunsuu (prod.starxvi) *all plats
 
-Last updated at 10/30/2024 10:01
+Last updated at 10/30/2024 10:04
