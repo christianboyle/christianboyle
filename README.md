@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jIhy0ObE9LAjzQAX-RazhAQ-t500x500.jpg">](https://soundcloud.com/shanghaidoom/shanghai-doom-grim-reaper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ro2vEMEGw9z4lBd-RyuGUQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-broken-pieces-gomb84?in=saxurn/sets/onb/)
 
-**Artist**: Shanghai Doom 
+**Artist**: INNERGATED 
 
-**Track**: Shanghai Doom - Grim Reaper
+**Track**: Premiere: ANGEL CANNON - Broken Pieces [GOMB84]
 
-Last updated at 10/30/2024 09:56
+Last updated at 10/30/2024 09:57
