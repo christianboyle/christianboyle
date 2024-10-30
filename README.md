@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwACmIYmeWL8eWNF-aQ6M8g-t500x500.png">](https://soundcloud.com/barclay-crenshaw-33544993/the-rebel-so-sus-remix-barclay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSvrey435nmE9Sis-QOJXAw-t500x500.jpg">](https://soundcloud.com/hexed-official/counting)
 
-**Artist**: Barclay Crenshaw 
+**Artist**: HEXED 
 
-**Track**: The Rebel (So Sus Remix ) - Barclay Crenshaw ft. Snowy
+**Track**: COUNTING
 
-Last updated at 10/30/2024 09:43
+Last updated at 10/30/2024 09:44
