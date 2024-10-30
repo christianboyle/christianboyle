@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UK9CMdX5MSLG2vRS-83QJzQ-t500x500.jpg">](https://soundcloud.com/rit_hk/pearls-garasu-x-51five)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRDSkr9HTklQlZkf-DKyXmQ-t500x500.jpg">](https://soundcloud.com/destinuna/zimoh-inecadrown-isltr-remix)
 
-**Artist**: Rit 
+**Artist**: Phuture Collective ∞ 
 
-**Track**: pearls [garasu X 51five]
+**Track**: Zimoh - Ineca(Drown) [ISLTR Remix]
 
-Last updated at 10/30/2024 09:35
+Last updated at 10/30/2024 09:36
