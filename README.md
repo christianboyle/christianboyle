@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6nTjIA0pS57ASHA-Qwwc8Q-t500x500.jpg">](https://soundcloud.com/cheetoed/lifeguard-ft-blackwinterwells-prd-tores)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1QS7WLm5eSH9bW0-I72Hyw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/taylor-swift-welcome-to-new-york-joki-remix-free-download?in=saxurn/sets/onb/)
 
-**Artist**: cheeto 
+**Artist**: Joki 
 
-**Track**: lifeguard ft. blackwinterwells (p. tores)
+**Track**: Taylor Swift - Welcome To New York (joki Remix) [FREE DOWNLOAD]
 
-Last updated at 10/30/2024 10:05
+Last updated at 10/30/2024 10:08
