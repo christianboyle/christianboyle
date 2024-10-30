@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ99Av8EKyAokSQT-jXVfUw-t500x500.jpg">](https://soundcloud.com/dnzrecords/jj-confide-in-me-2024-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMTspsWDZTqfnRD6-b7Oqdw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/synthsation-always-you-dwx-copyright-free)
 
-**Artist**: JJ 
+**Artist**: Synthsation 
 
-**Track**: JJ - Confide In Me 2024 Rework
+**Track**: Synthsation - Always You (DWX Copyright Free)
 
-Last updated at 10/30/2024 09:47
+Last updated at 10/30/2024 09:48
