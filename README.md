@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRDSkr9HTklQlZkf-DKyXmQ-t500x500.jpg">](https://soundcloud.com/destinuna/zimoh-inecadrown-isltr-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUB1sXRC5C5qy4wZ-2e3GNw-t500x500.png">](https://soundcloud.com/dramaclubrecs/2-evalution-do-it)
 
-**Artist**: Phuture Collective ∞ 
+**Artist**: Evalution 
 
-**Track**: Zimoh - Ineca(Drown) [ISLTR Remix]
+**Track**: Evalution - Do It
 
-Last updated at 10/30/2024 09:36
+Last updated at 10/30/2024 09:37
