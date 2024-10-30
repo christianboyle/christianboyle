@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWMHEdKdOm2HJQ9k-ah3rPg-t500x500.png">](https://soundcloud.com/omgcluu/walk-w1sunsuu-prodstarxvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6nTjIA0pS57ASHA-Qwwc8Q-t500x500.jpg">](https://soundcloud.com/cheetoed/lifeguard-ft-blackwinterwells-prd-tores)
 
-**Artist**: cluu, 1sunsuu 
+**Artist**: cheeto 
 
-**Track**: walk w/1sunsuu (prod.starxvi) *all plats
+**Track**: lifeguard ft. blackwinterwells (p. tores)
 
-Last updated at 10/30/2024 10:04
+Last updated at 10/30/2024 10:05
