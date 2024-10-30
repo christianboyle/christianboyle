@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSvrey435nmE9Sis-QOJXAw-t500x500.jpg">](https://soundcloud.com/hexed-official/counting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w6nTjIA0pS57ASHA-Qwwc8Q-t500x500.jpg">](https://soundcloud.com/cheetoed/lifeguard-ft-blackwinterwells-prd-tores)
 
-**Artist**: HEXED 
+**Artist**: cheeto 
 
-**Track**: COUNTING
+**Track**: lifeguard ft. blackwinterwells (p. tores)
 
-Last updated at 10/30/2024 09:44
+Last updated at 10/30/2024 09:46
