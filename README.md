@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sl6bHtqXEQbm8wBB-1SNeNQ-t500x500.jpg">](https://soundcloud.com/emotionals/iinmyhead-2020-lovbug?in=saxurn/sets/onb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7zXtwmmhElyshTP-KDELHQ-t500x500.png">](https://soundcloud.com/dieattika/elysian-trance?in=saxurn/sets/onb)
 
-**Artist**: emotionals 
+**Artist**: DIE ATTIKA 
 
-**Track**: iinmyhead☆ 2020 +lovbug
+**Track**: Elysian Trance
 
-Last updated at 10/30/2024 10:20
+Last updated at 10/30/2024 10:22
