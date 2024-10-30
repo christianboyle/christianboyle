@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uRd4LGr1c91z1lQD-P2pIyA-t500x500.jpg">](https://soundcloud.com/redcork22/red-cork-friends-pres-halloween-2024-edit-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rj9zIQC6i8fKTH9y-iijvzQ-t500x500.png">](https://soundcloud.com/hauntsaudio/ep010-by-piccolo)
 
-**Artist**: Red Cork 
+**Artist**: HAUNTS 
 
-**Track**: Red Cork & Friends Pres. Halloween 2024 Edit Pack
+**Track**: EP010 : by PÍccolo
 
-Last updated at 10/30/2024 09:49
+Last updated at 10/30/2024 09:50
