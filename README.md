@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUB1sXRC5C5qy4wZ-2e3GNw-t500x500.png">](https://soundcloud.com/dramaclubrecs/2-evalution-do-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZhTIFzqTmyf1OqFW-Dr72yQ-t500x500.jpg">](https://soundcloud.com/pierce-mccaughley/pierce-live-nitf-take-over-filthy-mcnastys-belfast)
 
-**Artist**: Evalution 
+**Artist**: PIERCE 
 
-**Track**: Evalution - Do It
+**Track**: PIERCE LIVE @ NITF Take Over | Filthy McNastys - Belfast
 
-Last updated at 10/30/2024 09:37
+Last updated at 10/30/2024 09:38
