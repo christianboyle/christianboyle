@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIPB7tnnfl7gkcRQ-9HEI9g-t500x500.jpg">](https://soundcloud.com/thechainsmokers/girls-the-chainsmokers-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwACmIYmeWL8eWNF-aQ6M8g-t500x500.png">](https://soundcloud.com/barclay-crenshaw-33544993/the-rebel-so-sus-remix-barclay)
 
-**Artist**: The Chainsmokers 
+**Artist**: Barclay Crenshaw 
 
-**Track**: The Dare - Girls (The Chainsmokers Remix)
+**Track**: The Rebel (So Sus Remix ) - Barclay Crenshaw ft. Snowy
 
-Last updated at 10/30/2024 09:42
+Last updated at 10/30/2024 09:43
