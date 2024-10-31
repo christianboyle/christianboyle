@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqH6L2jvVIPps2LR-Y09y0g-t500x500.jpg">](https://soundcloud.com/lowpolysound/retrograde)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUSzcwmyC5wSPCVa-WATvAA-t500x500.jpg">](https://soundcloud.com/sicari_official/sicari-pull-up-final)
 
-**Artist**: Low Poly 
+**Artist**: SICARI 
 
-**Track**: Retrograde (Low Poly Bootleg)
+**Track**: Sicari - Pull Up [Free Download]
 
-Last updated at 10/31/2024 08:26
+Last updated at 10/31/2024 08:27
