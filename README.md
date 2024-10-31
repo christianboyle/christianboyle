@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7zXtwmmhElyshTP-KDELHQ-t500x500.png">](https://soundcloud.com/dieattika/elysian-trance?in=saxurn/sets/onb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ovtm37e81l4pZvxv-4oSl3w-t500x500.jpg">](https://soundcloud.com/togekidub/togeki-smokestax-system-sounds)
 
-**Artist**: DIE ATTIKA 
+**Artist**: togeki & smokestax 
 
-**Track**: Elysian Trance
+**Track**: togeki & smokestax - System Sounds
 
-Last updated at 10/30/2024 10:22
+Last updated at 10/31/2024 08:25
