@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZL5WwTcuq1XEZp2l-IyWIiQ-t500x500.jpg">](https://soundcloud.com/wubaholics/phrva-is-it-all?in=wubaholics/sets/phrva-crave-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAH3EGlPWfuyNmEH-YibhNg-t500x500.png">](https://soundcloud.com/lizdek/oppidan-wake-and-break-lizdek-remix)
 
-**Artist**: Phrva 
+**Artist**: Lizdek 
 
-**Track**: Phrva - Is It All
+**Track**: Oppidan - WAKE AND BREAK (Lizdek Remix)
 
-Last updated at 11/01/2024 19:56
+Last updated at 11/01/2024 20:03
