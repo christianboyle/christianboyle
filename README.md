@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5Fd8q3y0vQKyzLr-R4qtZw-t500x500.jpg">](https://soundcloud.com/nghthyp/phantom-color)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno)
 
-**Artist**: NGHTHYP 
+**Artist**: gasoiid 
 
-**Track**: Phantom Color
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/15/2024, 2:13:51 PM
+Last updated at 11/15/2024, 2:14:46 PM
