@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T97GBGvlCO4LSYDC-He8Kqg-t500x500.jpg">](https://soundcloud.com/flux_techno/houdini)
 
-**Artist**: Jalaya 
+**Artist**: FLUX 
 
-**Track**: SEXXY RED - SKEE YEE (Jalaya X MYRIAS FLIP)
+**Track**: Eminem Houdini Flux Techno Remix
 
-Last updated at 11/15/2024, 12:30:38 PM
+Last updated at 11/15/2024, 12:33:59 PM
