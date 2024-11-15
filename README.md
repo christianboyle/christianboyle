@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="{CURRENT_PLAYING_ALBUM_SRC}">](https://soundcloud.com/saint-baek/nobystanders)
+[<img align="left" width="100" src="{CURRENT_PLAYING_ALBUM_SRC}">](https://soundcloud.com/flux_techno/houdini)
 
-**Artist**: SAINT MILLER 
+**Artist**: FLUX 
 
-**Track**: TRAVIS SCOTT - NO BYSTANDERS (SAINT MILLER FILP)
+**Track**: Eminem Houdini Flux Techno Remix
 
-Last updated at 2024-11-15T18:13:47.339Z
+Last updated at 2024-11-15T18:17:24.187Z
