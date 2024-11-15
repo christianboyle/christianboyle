@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntAG2CCDht9LrnFm-0A3ydw-t500x500.jpg">](https://soundcloud.com/piccolo115115/piccolo-not-fake-idbreak005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzdHhiCGmvH36ynM-UCMvzA-t500x500.jpg">](https://soundcloud.com/hkcrlive/cyanide-system-w-piccolo-20062024)
 
-**Artist**: pìccolo 
+**Artist**: HKCR 
 
-**Track**: pìccolo - Not Fake ID[BREAK005]
+**Track**: CYANIDE SYSTEM w/ pìccolo - 20/06/2024
 
-Last updated at 11/15/2024, 2:11:51 PM
+Last updated at 11/15/2024, 2:12:56 PM
