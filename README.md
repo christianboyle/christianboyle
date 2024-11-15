@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rj9zIQC6i8fKTH9y-iijvzQ-t500x500.png">](https://soundcloud.com/hauntsaudio/ep010-by-piccolo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntAG2CCDht9LrnFm-0A3ydw-t500x500.jpg">](https://soundcloud.com/piccolo115115/piccolo-not-fake-idbreak005)
 
-**Artist**: HAUNTS 
+**Artist**: pìccolo 
 
-**Track**: EP010 : by PÍccolo
+**Track**: pìccolo - Not Fake ID[BREAK005]
 
-Last updated at 11/15/2024, 2:11:01 PM
+Last updated at 11/15/2024, 2:11:51 PM
