@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3B1CE6qcnoC9kMy5-1LJIiw-t500x500.jpg">](https://soundcloud.com/nochebynoche/infatuation-feat-harvey-whyte-zach-zoya?in=nochebynoche/sets/nuit-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno)
 
-**Artist**: Noche 
+**Artist**: gasoiid 
 
-**Track**: Infatuation feat. Harvey Whyte - Zach Zoya
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/16/2024, 6:50:17 AM
+Last updated at 11/16/2024, 9:14:10 AM
