@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kg7PJSzup0xpEDF0-qyt1ag-t500x500.jpg">](https://soundcloud.com/thefinesttechno/free-dl-deeyaz-ascension-nssva002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias)
 
-**Artist**: The Finest Techno 
+**Artist**: Jalaya 
 
-**Track**: Free DL | DeeYaz - Ascension [NSSVA002]
+**Track**: SEXXY RED - SKEE YEE (Jalaya X MYRIAS FLIP)
 
-Last updated at 11/15/2024, 6:58:08 PM
+Last updated at 11/15/2024, 7:03:09 PM
