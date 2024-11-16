@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xy8u6EjP9zeckE5o-u6xG2A-t500x500.png">](https://soundcloud.com/zimtalk/shelter-pme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3B1CE6qcnoC9kMy5-1LJIiw-t500x500.jpg">](https://soundcloud.com/nochebynoche/infatuation-feat-harvey-whyte-zach-zoya?in=nochebynoche/sets/nuit-ep)
 
-**Artist**: zim 
+**Artist**: Noche 
 
-**Track**: shelter (p.me)
+**Track**: Infatuation feat. Harvey Whyte - Zach Zoya
 
-Last updated at 11/16/2024, 6:49:17 AM
+Last updated at 11/16/2024, 6:50:17 AM
