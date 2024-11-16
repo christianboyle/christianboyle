@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84?in=angelcannonmusic/sets/lie-to-me-gomboc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XCxkznjtLzYPNPSP-tnf3ag-t500x500.jpg">](https://soundcloud.com/boogaardmusic/soulja-boy-kiss-me-thru-the-phone-boogaard-flip)
 
-**Artist**: INNERGATED 
+**Artist**: Boogaard 
 
-**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
+**Track**: Soulja Boy - Kiss Me Thru The Phone (Boogaard Flip)
 
-Last updated at 11/15/2024, 6:55:38 PM
+Last updated at 11/15/2024, 6:56:27 PM
