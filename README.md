@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lLjOkWCXKWpEvCVt-HKiOag-t500x500.jpg">](https://soundcloud.com/dennettofficial/f8b2dbec-81bc-418a-a139-476d5b6d1162)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xy8u6EjP9zeckE5o-u6xG2A-t500x500.png">](https://soundcloud.com/zimtalk/shelter-pme)
 
-**Artist**: DENNETT 
+**Artist**: zim 
 
-**Track**: Disco Lines - Disco Boy (DENNETT Remix)
+**Track**: shelter (p.me)
 
-Last updated at 11/16/2024, 6:48:17 AM
+Last updated at 11/16/2024, 6:49:17 AM
