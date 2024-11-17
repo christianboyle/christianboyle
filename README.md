@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yj0yhBu8ke4SUl9V-YJJoxQ-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/jim-jonathan-do-ma-thing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O1yMyofUtSzhqySw-wEBn2g-t500x500.jpg">](https://soundcloud.com/tabularasarecords/gaszia-big-hit)
 
-**Artist**: polyamor 
+**Artist**: Tabula Rasa Records 
 
-**Track**: Jim Jonathan - Pushing On
+**Track**: Gaszia - BIG HIT
 
-Last updated at 11/17/2024, 11:01:06 AM
+Last updated at 11/17/2024, 4:15:01 PM
