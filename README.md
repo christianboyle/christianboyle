@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yj0yhBu8ke4SUl9V-YJJoxQ-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/jim-jonathan-do-ma-thing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AntnyBt69sdn-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/stay-1)
 
-**Artist**: polyamor 
+**Artist**: Avi8 
 
-**Track**: Jim Jonathan - Pushing On
+**Track**: Stay
 
-Last updated at 11/17/2024, 9:23:49 AM
+Last updated at 11/17/2024, 9:58:51 AM
