@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u13st3k0cMaVllf0-u47sgQ-t500x500.jpg">](https://soundcloud.com/beansclub/ilyalso-3-beansclub-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yj0yhBu8ke4SUl9V-YJJoxQ-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/jim-jonathan-do-ma-thing)
 
-**Artist**: beansclub 
+**Artist**: polyamor 
 
-**Track**: ilyalso - <3 (beansclub remix)
+**Track**: Jim Jonathan - Pushing On
 
-Last updated at 11/17/2024, 9:21:54 AM
+Last updated at 11/17/2024, 9:23:49 AM
