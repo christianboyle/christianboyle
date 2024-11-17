@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmZ9lJywpE6aSwSC-rDVlMg-t500x500.jpg">](https://soundcloud.com/travelermusic/gordo-drake-healing-traveler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpXm4Kgn279ulyBR-EKG4Bw-t500x500.jpg">](https://soundcloud.com/subversecollective/ambedo-broken)
 
-**Artist**: Gordo, Drake, Traveler 
+**Artist**: Ambedo 
 
-**Track**: Gordo & Drake - Healing (Traveler Remix)
+**Track**: Ambedo - Broken
 
-Last updated at 11/17/2024, 9:08:52 AM
+Last updated at 11/17/2024, 9:09:52 AM
