@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pa6qtBjJj9v1J7El-MJAMZA-t500x500.jpg">](https://soundcloud.com/masspanicmusic/oofa-mass-panic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJ3v8jnBmYqgTP2w-f2Wgbg-t500x500.jpg">](https://soundcloud.com/delasur1/the-london-dela-sur-remix)
 
-**Artist**: MASS PANIC 
+**Artist**: dela sur 
 
-**Track**: MARAUDA - ORPHAN OF ANGUISH [MASS PANIC FLIP]
+**Track**: Travis Scott - The London (dela sur Remix)
 
-Last updated at 11/17/2024, 8:39:22 PM
+Last updated at 11/18/2024, 6:29:45 AM
