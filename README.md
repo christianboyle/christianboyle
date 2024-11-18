@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TaJSOaPnGvo7ozSQ-wWhZyQ-t500x500.jpg">](https://soundcloud.com/falsiverecords/dtko-getting-away?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAyVf5lea2xlPuzG-4qqRrQ-t500x500.png">](https://soundcloud.com/billy-gillies/billy-gillies-stay-happy-demo?in=saxurn/sets/gif2rug)
 
-**Artist**: Falsive Records 
+**Artist**: Billy Gillies 
 
-**Track**: DTKØ - Getting Away
+**Track**: Billy Gillies - Stay Happy
 
-Last updated at 11/18/2024, 1:16:41 PM
+Last updated at 11/18/2024, 3:30:52 PM
