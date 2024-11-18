@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hr5drJywe6wL1kMG-JX1cUw-t500x500.jpg">](https://soundcloud.com/piccolo115115/maru-x-onjucy-thats-my-stpiccolo-remix?in=saxurn/sets/chopped/)
 
-**Artist**: gasoiid 
+**Artist**: pìccolo 
 
-**Track**: i ɯαn u 2 kn0
+**Track**: Maru x Onjucy - That’s my S**t(pìccolo remix)
 
-Last updated at 11/18/2024, 11:14:35 AM
+Last updated at 11/18/2024, 11:17:35 AM
