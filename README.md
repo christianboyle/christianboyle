@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-os4JxLvXeXGtMCk8-uvnKdw-t500x500.jpg">](https://soundcloud.com/leksbeats/ilikemebetterremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8HROcbaoNLgpRbz-cs7JfQ-t500x500.png">](https://soundcloud.com/avio7/lights-down)
 
-**Artist**: LEKS BEATS 
+**Artist**: A V I O 7 
 
-**Track**: LAUV - I LIKE ME BETTER (LEKS BEATS REMIX)
+**Track**: A V I O 7 - Lights Down
 
-Last updated at 11/18/2024, 6:37:01 AM
+Last updated at 11/18/2024, 6:38:31 AM
