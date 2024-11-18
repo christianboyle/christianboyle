@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKUWsmlcqmzulAly-gSWIiA-t500x500.png">](https://soundcloud.com/nolanvanlith/chillbaeremixnvl?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-En06z6s2H5sY8Egv-qn5eyA-t500x500.jpg">](https://soundcloud.com/starxvi/fireblast?in=saxurn/sets/nrg-vampire)
 
-**Artist**: Nolan van Lith 
+**Artist**: starxvi, keysora, crvnchy 
 
-**Track**: Lil Uzi Vert - Chill Bae (Nolan van Lith Remix)
+**Track**: fire blast! w/ keysora + crvnchy [homeboyjakob] [ALL PLATFORMS]
 
-Last updated at 11/18/2024, 12:53:29 PM
+Last updated at 11/18/2024, 12:56:09 PM
