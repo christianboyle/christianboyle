@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QEbSRPUKEEpHVgQ7-xoeuQw-t500x500.png">](https://soundcloud.com/quackdaddymusic/quack-daddy-cowboy-bounce-free-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKUWsmlcqmzulAly-gSWIiA-t500x500.png">](https://soundcloud.com/nolanvanlith/chillbaeremixnvl?in=saxurn/sets/nrg-vampire)
 
-**Artist**: Quack Daddy 
+**Artist**: Nolan van Lith 
 
-**Track**: Quack Daddy - Cowboy Bounce (FREE RELEASE)
+**Track**: Lil Uzi Vert - Chill Bae (Nolan van Lith Remix)
 
-Last updated at 11/18/2024, 12:50:29 PM
+Last updated at 11/18/2024, 12:53:29 PM
