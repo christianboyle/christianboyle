@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzmp5uwvc7f6jabr-iEHi1w-t500x500.jpg">](https://soundcloud.com/elex_page/elise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzwYMVDjuuWnzyx0-tmmyTQ-t500x500.jpg">](https://soundcloud.com/reishio/doom)
 
-**Artist**: ELEX 
+**Artist**: REISHIO 
 
-**Track**: Für Elise
+**Track**: DOOM
 
-Last updated at 11/18/2024, 4:24:37 PM
+Last updated at 11/18/2024, 4:25:37 PM
