@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AntnyBt69sdn-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/stay-1?in=saxurn/sets/chopped/)
 
-**Artist**: INNERGATED 
+**Artist**: Avi8 
 
-**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
+**Track**: Stay
 
-Last updated at 11/18/2024, 11:34:01 AM
+Last updated at 11/18/2024, 11:40:22 AM
