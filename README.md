@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDSWyr7DJGR8G6K5-9F0RNA-t500x500.png">](https://soundcloud.com/rexy_dexy_music/hita_rexy_dex_x3on_remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMoVe9AnHk5p5rTA-2xpvGg-t500x500.jpg">](https://soundcloud.com/rorganic/dont-give-up-rorganic-edit)
 
-**Artist**: REXY=DEXY, X3ON 
+**Artist**: Rorganic 
 
-**Track**: FLOSSTRADAMUS X VIPERACTIVE - HITA (REXY=DEXY & X3ON Remix)
+**Track**: Don't give up - (Rorganic edit)
 
-Last updated at 11/18/2024, 12:37:22 PM
+Last updated at 11/18/2024, 12:40:08 PM
