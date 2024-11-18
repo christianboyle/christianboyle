@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g5bCMoMMEzuR3YiM-doanxw-t500x500.jpg">](https://soundcloud.com/officialdoil/crankdat-open-the-pit-doil-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
 
-**Artist**: DOIL 
+**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
 
-**Track**: CRANKDAT & JUICY J - OPEN THE PIT (DOIL FLIP)
+**Track**: Seul Hoski - Hit Run
 
-Last updated at 11/18/2024, 10:04:48 AM
+Last updated at 11/18/2024, 10:05:47 AM
