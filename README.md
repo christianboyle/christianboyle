@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyrqqzPGE5W3qV10-2H6zaQ-t500x500.jpg">](https://soundcloud.com/bismodibeats/fein-flip-bismodi-x-jinjah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QEbSRPUKEEpHVgQ7-xoeuQw-t500x500.png">](https://soundcloud.com/quackdaddymusic/quack-daddy-cowboy-bounce-free-release)
 
-**Artist**: Bismodi 
+**Artist**: Quack Daddy 
 
-**Track**: TRAVIS SCOTT - FE!N (JINJAH X BISMODI FLIP)
+**Track**: Quack Daddy - Cowboy Bounce (FREE RELEASE)
 
-Last updated at 11/18/2024, 12:48:08 PM
+Last updated at 11/18/2024, 12:50:29 PM
