@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t4RH4qBmhCa48c6B-i6ysTw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/hadez-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PouzXFLms20ZfXnR-tyzmkg-t500x500.jpg">](https://soundcloud.com/josephgdj/2000-ad-hard-trance)
 
-**Artist**: Hadez 
+**Artist**: J.O.E. 
 
-**Track**: HADEZ - LIKE THAT
+**Track**: 2000 AD Hard Trance
 
-Last updated at 11/17/2024, 8:31:15 PM
+Last updated at 11/17/2024, 8:32:56 PM
