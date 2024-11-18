@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ySXkUzVJs00nfHG-d8w0FQ-t500x500.jpg">](https://soundcloud.com/purjme/chase-status-backbone-purj-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpcemZ6YMmrQNPr2-hbQL0w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dold-blueschist-t3r014)
 
-**Artist**: PURJ 
+**Artist**: Dold 
 
-**Track**: Chase & Status - Backbone (PURJ EDIT)
+**Track**: Premiere: Dold - Blueschist [T3R014]
 
-Last updated at 11/18/2024, 4:27:58 PM
+Last updated at 11/18/2024, 4:28:58 PM
