@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ou5a8BGuDCYGtiSN-n8reJg-t500x500.jpg">](https://soundcloud.com/jadudala/ahee-brain-tickler-vip?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84?in=saxurn/sets/chopped/)
 
-**Artist**: AHEE 
+**Artist**: INNERGATED 
 
-**Track**: AHEE - Brain Tickler (VIP)
+**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
 
-Last updated at 11/18/2024, 11:31:51 AM
+Last updated at 11/18/2024, 11:34:01 AM
