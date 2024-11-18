@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeJqzLggznApfiN3-6MYmBg-t500x500.png">](https://soundcloud.com/killtheclowns/kill-the-clowns-ritual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-os4JxLvXeXGtMCk8-uvnKdw-t500x500.jpg">](https://soundcloud.com/leksbeats/ilikemebetterremix)
 
-**Artist**: Kill the Clowns 
+**Artist**: LEKS BEATS 
 
-**Track**: Kill the Clowns - Ritual
+**Track**: LAUV - I LIKE ME BETTER (LEKS BEATS REMIX)
 
-Last updated at 11/18/2024, 6:34:16 AM
+Last updated at 11/18/2024, 6:37:01 AM
