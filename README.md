@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SSwfQ2GhoqIRbOsu-Cf9KUw-t500x500.png">](https://soundcloud.com/donttrustmaey/murder-mystery?in=saxurn/sets/gif2rug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qWW0qDfpWZyf-0-t500x500.jpg">](https://soundcloud.com/axmomusic/here-without-you?in=saxurn/sets/gif2rug)
 
-**Artist**: donttrustmaey, crisis, dojin, slover 
+**Artist**: AXMO & STVW 
 
-**Track**: murder mystery 🗡️ (centrlx)
+**Track**: Here Without You
 
-Last updated at 11/18/2024, 3:43:13 PM
+Last updated at 11/18/2024, 3:45:18 PM
