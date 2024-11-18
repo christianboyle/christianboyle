@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmaocpI7CGy6-0-t500x500.png">](https://soundcloud.com/phuture-noize/never-not-done)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: Phuture Noize and Devin Wild 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: Never Not Done
 
-Last updated at 11/18/2024, 11:06:07 AM
+Last updated at 11/18/2024, 11:10:17 AM
