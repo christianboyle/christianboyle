@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmaocpI7CGy6-0-t500x500.png">](https://soundcloud.com/phuture-noize/never-not-done)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped/)
 
-**Artist**: Phuture Noize and Devin Wild 
+**Artist**: gasoiid 
 
-**Track**: Never Not Done
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/18/2024, 11:10:17 AM
+Last updated at 11/18/2024, 11:14:35 AM
