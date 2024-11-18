@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrpRszRkcfjLhPfS-09xetw-t500x500.jpg">](https://soundcloud.com/mythic-rogue/menace-flip-w-ghost-rook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty)
 
-**Artist**: Mythic Rogue, Ghost Rook 
+**Artist**: PRYZMS 
 
-**Track**: Menace (flip) w/ Ghost Rook
+**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
 
-Last updated at 11/18/2024, 6:46:32 AM
+Last updated at 11/18/2024, 9:50:04 AM
