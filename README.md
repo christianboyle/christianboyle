@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ou5a8BGuDCYGtiSN-n8reJg-t500x500.jpg">](https://soundcloud.com/jadudala/ahee-brain-tickler-vip?in=saxurn/sets/chopped/)
 
-**Artist**: Jalaya 
+**Artist**: AHEE 
 
-**Track**: SEXXY RED - SKEE YEE (Jalaya X MYRIAS FLIP)
+**Track**: AHEE - Brain Tickler (VIP)
 
-Last updated at 11/18/2024, 11:28:31 AM
+Last updated at 11/18/2024, 11:31:51 AM
