@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7zXtwmmhElyshTP-KDELHQ-t500x500.png">](https://soundcloud.com/dieattika/elysian-trance?in=saxurn/sets/onb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OswT6YaSBIh0jB9d-LBlbyA-t500x500.png">](https://soundcloud.com/gradientperspective/shreztah-drop-it?in=saxurn/sets/onb)
 
-**Artist**: DIE ATTIKA 
+**Artist**: Shreztah 
 
-**Track**: Elysian Trance
+**Track**: Shreztah - Drop It
 
-Last updated at 11/18/2024, 4:09:25 PM
+Last updated at 11/18/2024, 4:14:26 PM
