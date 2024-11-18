@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7CHnodHQ2vZC5yxk-8OlTxQ-t500x500.png">](https://soundcloud.com/donatachi/the-substance-donatachi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzmp5uwvc7f6jabr-iEHi1w-t500x500.jpg">](https://soundcloud.com/elex_page/elise)
 
-**Artist**: Donatachi 
+**Artist**: ELEX 
 
-**Track**: The Substance - Donatachi Edit
+**Track**: Für Elise
 
-Last updated at 11/18/2024, 4:23:37 PM
+Last updated at 11/18/2024, 4:24:37 PM
