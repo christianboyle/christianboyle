@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped/)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: gasoiid 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/18/2024, 10:05:47 AM
+Last updated at 11/18/2024, 10:08:13 AM
