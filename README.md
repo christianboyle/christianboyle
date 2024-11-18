@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KvXl3BFLLQar6OH6-MYUWyA-t500x500.jpg">](https://soundcloud.com/lightgaluk/derilikt-techno-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKX37R1q6gSNzd0u-yy4imQ-t500x500.png">](https://soundcloud.com/chaoticcharacter/clouded-chaotic-character?in=chaoticcharacter/sets/unfinishedxxx)
 
-**Artist**: light gal 
+**Artist**: Chaotic Character 
 
-**Track**: DERILIKT Techno 14 [Dark Techno Mix]
+**Track**: OSCILLATOR - CHAOTIC CHARACTER
 
-Last updated at 11/18/2024, 6:40:52 AM
+Last updated at 11/18/2024, 6:43:32 AM
