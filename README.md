@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJ3v8jnBmYqgTP2w-f2Wgbg-t500x500.jpg">](https://soundcloud.com/delasur1/the-london-dela-sur-remix)
 
-**Artist**: INNERGATED 
+**Artist**: dela sur 
 
-**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
+**Track**: Travis Scott - The London (dela sur Remix)
 
-Last updated at 11/18/2024, 9:53:24 AM
+Last updated at 11/18/2024, 9:57:20 AM
