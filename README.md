@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bz4e2E7f4Us2ITcg-Fu3gNw-t500x500.jpg">](https://soundcloud.com/hate_music/adriana-lopez-hate-podcast-412)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t4RH4qBmhCa48c6B-i6ysTw-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/hadez-like-that)
 
-**Artist**: Adriana Lopez 
+**Artist**: Hadez 
 
-**Track**: Adriana Lopez - HATE Podcast 412
+**Track**: HADEZ - LIKE THAT
 
-Last updated at 11/17/2024, 8:29:45 PM
+Last updated at 11/17/2024, 8:31:15 PM
