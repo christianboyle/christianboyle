@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkDyXzHykcgm5BKz-5CG3TQ-t500x500.jpg">](https://soundcloud.com/bixenter/rain-split)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrpRszRkcfjLhPfS-09xetw-t500x500.jpg">](https://soundcloud.com/mythic-rogue/menace-flip-w-ghost-rook)
 
-**Artist**: Bixenter 
+**Artist**: Mythic Rogue, Ghost Rook 
 
-**Track**: Rain Split
+**Track**: Menace (flip) w/ Ghost Rook
 
-Last updated at 11/18/2024, 6:45:07 AM
+Last updated at 11/18/2024, 6:46:32 AM
