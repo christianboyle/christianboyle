@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZlUBaQICOyXnn2q8-lzqBiw-t500x500.jpg">](https://soundcloud.com/weareklown/oliverse-at-the-same-time-klown-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9owH74012ZJKPbY8-u1TiLQ-t500x500.png">](https://soundcloud.com/r3lic444/sonic-language-thanks-for-500)
 
-**Artist**: KLOWN 
+**Artist**: R3LIC 
 
-**Track**: Oliverse - At The Same Time (KLOWN Remix) [Free DL]
+**Track**: sonic language (thanks for 500!) free DL
 
-Last updated at 11/18/2024, 4:42:39 PM
+Last updated at 11/18/2024, 4:43:39 PM
