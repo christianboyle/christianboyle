@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9owH74012ZJKPbY8-u1TiLQ-t500x500.png">](https://soundcloud.com/r3lic444/sonic-language-thanks-for-500)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus?in=dumsticky/sets/fuck-you)
 
-**Artist**: R3LIC 
+**Artist**: METAPHORE COLLECTIF 
 
-**Track**: sonic language (thanks for 500!) free DL
+**Track**: DJ Zvonimir X Antihero - Sol Invictus
 
-Last updated at 11/18/2024, 4:43:39 PM
+Last updated at 11/18/2024, 4:44:39 PM
