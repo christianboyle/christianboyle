@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T97GBGvlCO4LSYDC-He8Kqg-t500x500.jpg">](https://soundcloud.com/flux_techno/houdini?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
 
-**Artist**: FLUX 
+**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
 
-**Track**: Eminem Houdini Flux Techno Remix
+**Track**: Seul Hoski - Hit Run
 
-Last updated at 11/18/2024, 10:25:29 AM
+Last updated at 11/18/2024, 11:06:07 AM
