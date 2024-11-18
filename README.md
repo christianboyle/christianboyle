@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3lR4x9868RG9ClG-K8MytQ-t500x500.png">](https://soundcloud.com/sweetsoundscollective/symbiosa-dungeon-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus?in=dumsticky/sets/fuck-you)
 
-**Artist**: Symbiosa 
+**Artist**: METAPHORE COLLECTIF 
 
-**Track**: Symbiosa - Dungeon Dub
+**Track**: DJ Zvonimir X Antihero - Sol Invictus
 
-Last updated at 11/17/2024, 8:33:56 PM
+Last updated at 11/17/2024, 8:34:56 PM
