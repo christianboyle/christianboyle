@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1QS7WLm5eSH9bW0-I72Hyw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/taylor-swift-welcome-to-new-york-joki-remix-free-download?in=saxurn/sets/onb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Feg1xbDi4G86CalR-muYo8Q-t500x500.jpg">](https://soundcloud.com/treohfie/tre-oh-fie-x-bk-beats-2-u?in=saxurn/sets/onb)
 
-**Artist**: Joki 
+**Artist**: Tre Oh Fie 
 
-**Track**: Taylor Swift - Welcome To New York (joki Remix) [FREE DOWNLOAD]
+**Track**: Tre Oh Fie X Bk Beats - 2 U
 
-Last updated at 11/18/2024, 3:58:49 PM
+Last updated at 11/18/2024, 4:01:19 PM
