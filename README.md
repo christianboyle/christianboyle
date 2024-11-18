@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzwYMVDjuuWnzyx0-tmmyTQ-t500x500.jpg">](https://soundcloud.com/reishio/doom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic)
 
-**Artist**: REISHIO 
+**Artist**: Crumb Pit 
 
-**Track**: DOOM
+**Track**: charli xcx - everything is romantic (crumb pit remix)
 
-Last updated at 11/18/2024, 4:25:37 PM
+Last updated at 11/18/2024, 4:26:37 PM
