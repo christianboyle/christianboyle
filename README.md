@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNbPOgprv4VjillL-mHVCoA-t500x500.jpg">](https://soundcloud.com/1afflicted/comeback?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HcdcNWTsoY1r0XBW-NamP4g-t500x500.jpg">](https://soundcloud.com/jessebloch/michelle-branch-everywhere-jesse-bloch-remix?in=saxurn/sets/nrg-vampire)
 
-**Artist**: trustt, lyn, crusafix, deepinparis, isai, crusey, akkiro 
+**Artist**: Jesse Bloch 
 
-**Track**: if you know...
+**Track**: Michelle Branch - Everywhere (Jesse Bloch Remix)
 
-Last updated at 11/18/2024, 1:07:20 PM
+Last updated at 11/18/2024, 1:10:46 PM
