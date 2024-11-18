@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PouzXFLms20ZfXnR-tyzmkg-t500x500.jpg">](https://soundcloud.com/josephgdj/2000-ad-hard-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3lR4x9868RG9ClG-K8MytQ-t500x500.png">](https://soundcloud.com/sweetsoundscollective/symbiosa-dungeon-dub)
 
-**Artist**: J.O.E. 
+**Artist**: Symbiosa 
 
-**Track**: 2000 AD Hard Trance
+**Track**: Symbiosa - Dungeon Dub
 
-Last updated at 11/17/2024, 8:32:56 PM
+Last updated at 11/17/2024, 8:33:56 PM
