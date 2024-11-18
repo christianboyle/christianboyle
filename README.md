@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/ramel-dont-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuyhnzS3JIT8YAFH-t4Cl6w-t500x500.jpg">](https://soundcloud.com/official_insulinmusic/isoxo-kidsgonemad-insulin-flip-1)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: InSulin 
 
-**Track**: Ramel - Don't Stop
+**Track**: Isoxo - Kidsgonemad! (inSulin Flip)
 
-Last updated at 11/18/2024, 11:58:14 AM
+Last updated at 11/18/2024, 12:01:34 PM
