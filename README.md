@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgdNDBlUspGD1ZoH-GGpIcw-t500x500.jpg">](https://soundcloud.com/silcrowmusic/nations-end)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpONeDnzU7sPHkNh-XK0dbg-t500x500.png">](https://soundcloud.com/bassgazm/sometimes-things-get-whatever)
 
-**Artist**: Silcrow 
+**Artist**: BASSGAZM 
 
-**Track**: NATION'S END
+**Track**: Bassgazm - Sometimes Things Get, Whatever
 
-Last updated at 11/17/2024, 8:35:56 PM
+Last updated at 11/17/2024, 8:37:01 PM
