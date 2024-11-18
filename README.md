@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-En06z6s2H5sY8Egv-qn5eyA-t500x500.jpg">](https://soundcloud.com/starxvi/fireblast?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxBBgzijb3zgPwAs-KuXyUg-t500x500.jpg">](https://soundcloud.com/makewavs/in-the-back?in=saxurn/sets/nrg-vampire)
 
-**Artist**: starxvi, keysora, crvnchy 
+**Artist**: Braxx 
 
-**Track**: fire blast! w/ keysora + crvnchy [homeboyjakob] [ALL PLATFORMS]
+**Track**: In The Back
 
-Last updated at 11/18/2024, 12:56:09 PM
+Last updated at 11/18/2024, 12:58:09 PM
