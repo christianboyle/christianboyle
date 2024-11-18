@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJ3v8jnBmYqgTP2w-f2Wgbg-t500x500.jpg">](https://soundcloud.com/delasur1/the-london-dela-sur-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias)
 
-**Artist**: dela sur 
+**Artist**: Jalaya 
 
-**Track**: Travis Scott - The London (dela sur Remix)
+**Track**: SEXXY RED - SKEE YEE (Jalaya X MYRIAS FLIP)
 
-Last updated at 11/18/2024, 9:57:20 AM
+Last updated at 11/18/2024, 9:59:20 AM
