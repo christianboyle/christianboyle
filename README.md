@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uc9fUAjSDkw96hbt-wFZa4g-t500x500.png">](https://soundcloud.com/fuckingdamian/pleasee-dont-stop-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6IrzRc3gn46qRhsa-gTbvfQ-t500x500.png">](https://soundcloud.com/dvrk_oktopus/k-psula-activada-feat-xavistyle)
 
-**Artist**: Damian Avila 
+**Artist**: DVRK ØKTOPUS 
 
-**Track**: PDSTM
+**Track**: K-Psula Activada (feat. XAVISTYLE)
 
-Last updated at 11/18/2024, 12:19:41 PM
+Last updated at 11/18/2024, 12:23:51 PM
