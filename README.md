@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8HROcbaoNLgpRbz-cs7JfQ-t500x500.png">](https://soundcloud.com/avio7/lights-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KvXl3BFLLQar6OH6-MYUWyA-t500x500.jpg">](https://soundcloud.com/lightgaluk/derilikt-techno-14)
 
-**Artist**: A V I O 7 
+**Artist**: light gal 
 
-**Track**: A V I O 7 - Lights Down
+**Track**: DERILIKT Techno 14 [Dark Techno Mix]
 
-Last updated at 11/18/2024, 6:38:31 AM
+Last updated at 11/18/2024, 6:40:52 AM
