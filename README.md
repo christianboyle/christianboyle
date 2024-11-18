@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IQ4pKJQlyvny0OF-hFbykA-t500x500.jpg">](https://soundcloud.com/welcome-recs/hekler-x-oddkidout-villan?in=saxurn/sets/gif2rug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1QS7WLm5eSH9bW0-I72Hyw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/taylor-swift-welcome-to-new-york-joki-remix-free-download?in=saxurn/sets/onb)
 
-**Artist**: HEKLER X ODDKIDOUT 
+**Artist**: Joki 
 
-**Track**: HEKLER X ODDKIDOUT - VILLAIN
+**Track**: Taylor Swift - Welcome To New York (joki Remix) [FREE DOWNLOAD]
 
-Last updated at 11/18/2024, 3:57:04 PM
+Last updated at 11/18/2024, 3:58:49 PM
