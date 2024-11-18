@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fH1QBQTVDx2nKCvZ-B5uWgA-t500x500.png">](https://soundcloud.com/21swings/le-sserafim-1800-hot-n-fun-21swings-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyrqqzPGE5W3qV10-2H6zaQ-t500x500.jpg">](https://soundcloud.com/bismodibeats/fein-flip-bismodi-x-jinjah)
 
-**Artist**: 21SWINGS 
+**Artist**: Bismodi 
 
-**Track**: LE SSERAFIM -1800-HOT-N-FUN (21SWINGS REMIX)
+**Track**: TRAVIS SCOTT - FE!N (JINJAH X BISMODI FLIP)
 
-Last updated at 11/18/2024, 12:45:18 PM
+Last updated at 11/18/2024, 12:48:08 PM
