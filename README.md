@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g5bCMoMMEzuR3YiM-doanxw-t500x500.jpg">](https://soundcloud.com/officialdoil/crankdat-open-the-pit-doil-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeJqzLggznApfiN3-6MYmBg-t500x500.png">](https://soundcloud.com/killtheclowns/kill-the-clowns-ritual)
 
-**Artist**: DOIL 
+**Artist**: Kill the Clowns 
 
-**Track**: CRANKDAT & JUICY J - OPEN THE PIT (DOIL FLIP)
+**Track**: Kill the Clowns - Ritual
 
-Last updated at 11/18/2024, 6:31:01 AM
+Last updated at 11/18/2024, 6:34:16 AM
