@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/mad-flower-la-pa-pa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EveeUwJ76TLWPD2J-lhxHJg-t500x500.png">](https://soundcloud.com/verttidj/vertti-venus-original-mix)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: Vertti 
 
-**Track**: Mad Flower - La Pa Pa
+**Track**: Venus (Original Mix)
 
-Last updated at 11/19/2024, 11:54:05 AM
+Last updated at 11/19/2024, 12:07:26 PM
