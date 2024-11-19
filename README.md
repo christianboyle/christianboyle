@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AntnyBt69sdn-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/stay-1?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
 
-**Artist**: Avi8 
+**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
 
-**Track**: Stay
+**Track**: Seul Hoski - Hit Run
 
-Last updated at 11/19/2024, 9:33:16 AM
+Last updated at 11/19/2024, 9:36:52 AM
