@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B24toIuc68GBxvqb-CgXGaA-t500x500.jpg">](https://soundcloud.com/filthsociety/rephaze-reckless-short-edit?in=saxurn/sets/nrg-vampire)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: Filth Society 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: RE:PHAZE - RECKLESS (SHORT EDIT) [FREE DOWNLOAD]
 
-Last updated at 11/19/2024, 9:36:52 AM
+Last updated at 11/19/2024, 9:39:17 AM
