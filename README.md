@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54s7jbUSBI0FjzyG-JxqZwQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/craig-mclelland-open-one-eye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ocbbfNqCFWXkd711-ylPGBg-t500x500.jpg">](https://soundcloud.com/wearelostkings/wyk)
 
-**Artist**: Craig Mclelland 
+**Artist**: Lost Kings 
 
-**Track**: Craig Mclelland - Open One Eye
+**Track**: Two Door Cinema Club - What You Know (Lost Kings Remix)
 
-Last updated at 11/19/2024, 12:18:37 PM
+Last updated at 11/19/2024, 12:20:57 PM
