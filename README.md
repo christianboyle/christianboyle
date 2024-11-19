@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B24toIuc68GBxvqb-CgXGaA-t500x500.jpg">](https://soundcloud.com/filthsociety/rephaze-reckless-short-edit?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKUWsmlcqmzulAly-gSWIiA-t500x500.png">](https://soundcloud.com/nolanvanlith/chillbaeremixnvl?in=saxurn/sets/nrg-vampire)
 
-**Artist**: Filth Society 
+**Artist**: Nolan van Lith 
 
-**Track**: RE:PHAZE - RECKLESS (SHORT EDIT) [FREE DOWNLOAD]
+**Track**: Lil Uzi Vert - Chill Bae (Nolan van Lith Remix)
 
-Last updated at 11/19/2024, 9:39:17 AM
+Last updated at 11/19/2024, 9:41:57 AM
