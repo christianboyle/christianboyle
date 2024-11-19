@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3lR4x9868RG9ClG-K8MytQ-t500x500.png">](https://soundcloud.com/sweetsoundscollective/symbiosa-dungeon-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag)
 
-**Artist**: Symbiosa 
+**Artist**: diegointhedark 
 
-**Track**: Symbiosa - Dungeon Dub
+**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
 
-Last updated at 11/19/2024, 12:13:01 PM
+Last updated at 11/19/2024, 12:16:36 PM
