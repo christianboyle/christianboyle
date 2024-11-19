@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped/)
 
-**Artist**: PRYZMS 
+**Artist**: gasoiid 
 
-**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/19/2024, 8:17:21 AM
+Last updated at 11/19/2024, 8:20:41 AM
