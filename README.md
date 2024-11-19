@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty?in=saxurn/sets/chopped/)
 
-**Artist**: METAPHORE COLLECTIF 
+**Artist**: PRYZMS 
 
-**Track**: DJ Zvonimir X Antihero - Sol Invictus
+**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
 
-Last updated at 11/19/2024, 7:19:29 AM
+Last updated at 11/19/2024, 8:17:21 AM
