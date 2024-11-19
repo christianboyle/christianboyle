@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/mad-flower-la-pa-pa)
 
 **Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: Mad Flower - La Pa Pa
 
-Last updated at 11/19/2024, 11:51:39 AM
+Last updated at 11/19/2024, 11:54:05 AM
