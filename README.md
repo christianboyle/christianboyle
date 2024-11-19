@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KPYzilQv9tdAa3eX-mdiLvw-t500x500.png">](https://soundcloud.com/ellisofficial/sunflower-ellis-remix?in=saxurn/sets/nrg-vampire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNbPOgprv4VjillL-mHVCoA-t500x500.jpg">](https://soundcloud.com/1afflicted/comeback?in=saxurn/sets/nrg-vampire)
 
-**Artist**: ellis 
+**Artist**: trustt, lyn, crusafix, deepinparis, isai, crusey, akkiro 
 
-**Track**: sunflower (ellis remix) [FREE DL]
+**Track**: if you know...
 
-Last updated at 11/19/2024, 9:52:23 AM
+Last updated at 11/19/2024, 9:55:48 AM
