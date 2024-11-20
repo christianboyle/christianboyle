@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTN4UbRHreOUbaBj-xRp5EQ-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-new-school-rules?in=saxurn/sets/chopped)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: Dimitri K 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: Dimitri K - New School Rules
 
-Last updated at 11/20/2024, 8:53:15 AM
+Last updated at 11/20/2024, 8:55:41 AM
