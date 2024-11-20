@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTN4UbRHreOUbaBj-xRp5EQ-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-new-school-rules?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3mWZzZOOh5Uz0ozN-oRYBkA-t500x500.jpg">](https://soundcloud.com/deadlygunsofficial/deadly-guns-blow-the-speakers)
 
-**Artist**: Dimitri K 
+**Artist**: Deadly Guns 
 
-**Track**: Dimitri K - New School Rules
+**Track**: Deadly Guns - Blow The Speakers
 
-Last updated at 11/20/2024, 8:55:41 AM
+Last updated at 11/20/2024, 8:58:51 AM
