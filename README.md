@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6zOQbiV4VKjS3B5-W7pgIQ-t500x500.jpg">](https://soundcloud.com/drewyates/holdon?in=drewyates/sets/new-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6zOQbiV4VKjS3B5-W7pgIQ-t500x500.jpg">](https://soundcloud.com/drewyates/pinkcloud?in=drewyates/sets/new-ep)
 
 **Artist**: YATES! 
 
-**Track**: holdon.
+**Track**: pinkcloud.
 
-Last updated at 11/20/2024, 6:13:02 AM
+Last updated at 11/20/2024, 6:17:13 AM
