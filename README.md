@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84?in=saxurn/sets/chopped)
 
-**Artist**: Jalaya 
+**Artist**: INNERGATED 
 
-**Track**: SEXXY RED - SKEE YEE (Jalaya X MYRIAS FLIP)
+**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
 
-Last updated at 11/20/2024, 10:46:59 AM
+Last updated at 11/20/2024, 10:50:19 AM
