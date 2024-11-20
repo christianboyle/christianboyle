@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hr5drJywe6wL1kMG-JX1cUw-t500x500.jpg">](https://soundcloud.com/piccolo115115/maru-x-onjucy-thats-my-stpiccolo-remix?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CemvLz3WwxBfqmcJ-O90Ghw-t500x500.jpg">](https://soundcloud.com/ktkrecords/binary-squad-everybody-ktk057?in=saxurn/sets/chopped)
 
-**Artist**: pìccolo 
+**Artist**: Binary Squad 
 
-**Track**: Maru x Onjucy - That’s my S**t(pìccolo remix)
+**Track**: Binary Squad - Everybody [KTK057]
 
-Last updated at 11/20/2024, 11:40:04 AM
+Last updated at 11/20/2024, 11:46:55 AM
