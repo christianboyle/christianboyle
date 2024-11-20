@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usKl5rzOxuhj5N46-aDZN0A-t500x500.jpg">](https://soundcloud.com/jalayamusic/band4band-flip?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hr5drJywe6wL1kMG-JX1cUw-t500x500.jpg">](https://soundcloud.com/piccolo115115/maru-x-onjucy-thats-my-stpiccolo-remix?in=saxurn/sets/chopped)
 
-**Artist**: Jalaya 
+**Artist**: pìccolo 
 
-**Track**: Band4Band Flip
+**Track**: Maru x Onjucy - That’s my S**t(pìccolo remix)
 
-Last updated at 11/20/2024, 9:49:53 AM
+Last updated at 11/20/2024, 9:53:03 AM
