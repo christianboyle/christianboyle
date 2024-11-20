@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped)
 
-**Artist**: diegointhedark 
+**Artist**: gasoiid 
 
-**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/20/2024, 8:36:09 AM
+Last updated at 11/20/2024, 8:38:09 AM
