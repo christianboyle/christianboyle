@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run?in=saxurn/sets/chopped)
 
-**Artist**: INNERGATED 
+**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
 
-**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
+**Track**: Seul Hoski - Hit Run
 
-Last updated at 11/20/2024, 10:50:19 AM
+Last updated at 11/20/2024, 10:56:40 AM
