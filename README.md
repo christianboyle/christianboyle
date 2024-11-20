@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3mWZzZOOh5Uz0ozN-oRYBkA-t500x500.jpg">](https://soundcloud.com/deadlygunsofficial/deadly-guns-blow-the-speakers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XCsQ2uGcJZx6kq1y-BuCDzQ-t500x500.jpg">](https://soundcloud.com/partyraiserrecordings/partyraiser-s-kill-a-little-bit-of-beats)
 
-**Artist**: Deadly Guns 
+**Artist**: Partyraiser & S-Kill 
 
-**Track**: Deadly Guns - Blow The Speakers
+**Track**: Partyraiser & S-Kill - A Little Bit Of Beats
 
-Last updated at 11/20/2024, 8:58:51 AM
+Last updated at 11/20/2024, 9:01:51 AM
