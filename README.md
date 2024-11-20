@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-haGaA12LHVPajV62-V3D1Jw-t500x500.jpg">](https://soundcloud.com/secretrecipemusic/sex-money-feelings-die-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AdeOkA6jBj3yTS6n-umBb9w-t500x500.jpg">](https://soundcloud.com/subcietypresents/sleazy-lettuce-x-jush-slush)
 
-**Artist**: Secret Recipe 
+**Artist**: Sleazy Lettuce X JUSH 
 
-**Track**: sex money feelings die FLIP
+**Track**: Sleazy Lettuce X JUSH - SLUSH
 
-Last updated at 11/20/2024, 6:08:02 AM
+Last updated at 11/20/2024, 6:09:27 AM
