@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-8zy5r0EfEMOdvCDM-b0uyuA-t500x500.jpg">](https://soundcloud.com/hitty/hitty-karen-harding-take-u-home-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag?in=saxurn/sets/chopped)
 
-**Artist**: hitty 
+**Artist**: diegointhedark 
 
-**Track**: Hitty & Karen Harding - Take U Home (Teaser)
+**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
 
-Last updated at 11/20/2024, 9:07:17 AM
+Last updated at 11/20/2024, 9:10:47 AM
