@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iwOqgWCFE7jmazA-jtJuNA-t500x500.jpg">](https://soundcloud.com/joshua-levesque-268616985/come-see-me-at-my-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-haGaA12LHVPajV62-V3D1Jw-t500x500.jpg">](https://soundcloud.com/secretrecipemusic/sex-money-feelings-die-flip)
 
-**Artist**: Joshua StClair 
+**Artist**: Secret Recipe 
 
-**Track**: come see me at my house
+**Track**: sex money feelings die FLIP
 
-Last updated at 11/20/2024, 6:06:57 AM
+Last updated at 11/20/2024, 6:08:02 AM
