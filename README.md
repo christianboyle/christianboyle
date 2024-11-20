@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XaezKfrfmPqPz8Sc-yHoeww-t500x500.jpg">](https://soundcloud.com/itsargonaut/supergraphicultramodernauragirl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus)
 
-**Artist**: argonaut 
+**Artist**: METAPHORE COLLECTIF 
 
-**Track**: Chappell Roan & Lady Gaga - Super Graphic Ultra Modern Aura Girl (Argonaut x Block & Crown Remix)
+**Track**: DJ Zvonimir X Antihero - Sol Invictus
 
-Last updated at 11/20/2024, 8:15:00 AM
+Last updated at 11/20/2024, 8:18:40 AM
