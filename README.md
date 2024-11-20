@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty?in=saxurn/sets/chopped/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag?in=saxurn/sets/chopped)
 
-**Artist**: PRYZMS 
+**Artist**: diegointhedark 
 
-**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
+**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
 
-Last updated at 11/20/2024, 8:25:28 AM
+Last updated at 11/20/2024, 8:36:09 AM
