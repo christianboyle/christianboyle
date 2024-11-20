@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usKl5rzOxuhj5N46-aDZN0A-t500x500.jpg">](https://soundcloud.com/jalayamusic/band4band-flip?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag)
 
-**Artist**: Jalaya 
+**Artist**: diegointhedark 
 
-**Track**: Band4Band Flip
+**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
 
-Last updated at 11/20/2024, 9:41:01 AM
+Last updated at 11/20/2024, 9:44:21 AM
