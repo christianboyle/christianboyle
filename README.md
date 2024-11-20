@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno?in=saxurn/sets/chopped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54s7jbUSBI0FjzyG-JxqZwQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/craig-mclelland-open-one-eye?in=saxurn/sets/chopped)
 
-**Artist**: gasoiid 
+**Artist**: Craig Mclelland 
 
-**Track**: i ɯαn u 2 kn0
+**Track**: Craig Mclelland - Open One Eye
 
-Last updated at 11/20/2024, 8:38:09 AM
+Last updated at 11/20/2024, 8:41:10 AM
