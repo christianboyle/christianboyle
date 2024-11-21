@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JgAOusrh2y9b4Ih3-QmjTvg-t500x500.jpg">](https://soundcloud.com/overeazybeats/kodak-black-ft-lil-wayne-codeine-dreamin-overeazy-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sa6LTJx5ktS52EKF-LHA2Vg-t500x500.png">](https://soundcloud.com/waveblades/002-tranceblades-yerbby-mix)
 
-**Artist**: OVEREAZY 
+**Artist**: 𝕎𝔸𝕍𝔼𝔹𝕃𝔸𝔻𝔼𝕊 
 
-**Track**: Kodak Black ft. Lil Wayne - Codeine Dreamin (OVEREAZY FLIP)
+**Track**: #002 | TRANCEBLADES | YERBBY | MIX
 
-Last updated at 11/21/2024, 9:22:54 AM
+Last updated at 11/21/2024, 9:27:54 AM
