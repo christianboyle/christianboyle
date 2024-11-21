@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nowpIzzOi7CgJMTa-Njrc7A-t500x500.jpg">](https://soundcloud.com/zettatunes/automata?in=zettatunes/sets/automata-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4tVPZYRsDNR3-0-t500x500.jpg">](https://soundcloud.com/stvwofficial/good-time-feat-mof-lo-giin)
 
-**Artist**: Zetta 
+**Artist**: STVW & Tatsunoshin feat. Møf-Lo & Giin 
 
-**Track**: ZETTA - AUTOMATA
+**Track**: Good Time (feat. Møf-Lo & Giin)
 
-Last updated at 11/21/2024, 9:14:18 AM
+Last updated at 11/21/2024, 9:15:23 AM
