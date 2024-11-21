@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t17EjUW5PD0j0u1V-cgt23A-t500x500.png">](https://soundcloud.com/shadient/whosthere2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SGMriIPMQFEGnzai-QysrOg-t500x500.png">](https://soundcloud.com/s3rl/through-the-night-examelodica-remix?in=s3rl/sets/through-the-night-remix-ep)
 
-**Artist**: Shadient 
+**Artist**: S3RL x Tatsunoshin 
 
-**Track**: "WHOSTHERE2" ID MIX
+**Track**: Through The Night (ExaMelodica Remix) - S3RL x Tatsunoshin
 
-Last updated at 11/21/2024, 9:12:18 AM
+Last updated at 11/21/2024, 9:13:18 AM
