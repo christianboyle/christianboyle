@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-14UbhEqZ02TL35Bi-rHd1ow-t500x500.jpg">](https://soundcloud.com/club909music/whatgoesaround)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CdC0ksDnyBm9j0t-biWEpg-t500x500.jpg">](https://soundcloud.com/xenotypebass/willow-wait-a-minute-xenotype)
 
-**Artist**: CLUB 909 
+**Artist**: Xenotype 
 
-**Track**: Justin Timberlake - What Goes Around (CLUB 909 Remix)
+**Track**: Willow - Wait a Minute (Xenotype DnB remix)
 
-Last updated at 11/22/2024, 8:17:08 AM
+Last updated at 11/22/2024, 8:18:13 AM
