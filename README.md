@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMHi4zXwYKC7OHVb-zqDUcw-t500x500.png">](https://soundcloud.com/picky_knows/still-tippin-remix-master)
 
-**Artist**: The Bounce Brothers  
+**Artist**: Picky Knows 
 
-**Track**: The Bounce Brothers - Forget About DNA
+**Track**: Still Tippin Remix ( FREE DL THX for 500 )
 
-Last updated at 11/22/2024, 9:08:35 AM
+Last updated at 11/22/2024, 9:15:52 AM
