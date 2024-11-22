@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5hJqusdeakgMXzL-mFJ31w-t500x500.png">](https://soundcloud.com/sachsentrance/04-dj-dings-tim-rausch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sa6LTJx5ktS52EKF-LHA2Vg-t500x500.png">](https://soundcloud.com/waveblades/002-tranceblades-yerbby-mix)
 
-**Artist**: Dj Dings, Tim Rausch 
+**Artist**: 𝕎𝔸𝕍𝔼𝔹𝕃𝔸𝔻𝔼𝕊 
 
-**Track**: [PREMIERE] DJ Dings & Tim Rausch - Streamline
+**Track**: #002 | TRANCEBLADES | YERBBY | MIX
 
-Last updated at 11/22/2024, 7:37:59 AM
+Last updated at 11/22/2024, 7:41:59 AM
