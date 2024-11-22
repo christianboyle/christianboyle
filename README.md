@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3v2fSHnT2Y84f5k-jrIHiQ-t500x500.jpg">](https://soundcloud.com/bravethestorm/mirage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wFeHNfEXVrqMUgs0-i8GfDg-t500x500.png">](https://soundcloud.com/zarnder/the-way-divine-inspiration-zarnder-remix)
 
-**Artist**: Brave The Storm 
+**Artist**: ZARNDER 
 
-**Track**: Mirage
+**Track**: The Way - Divine Inspiration (ZARNDER remix)
 
-Last updated at 11/22/2024, 7:10:06 AM
+Last updated at 11/22/2024, 7:25:48 AM
