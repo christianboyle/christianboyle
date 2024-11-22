@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sa6LTJx5ktS52EKF-LHA2Vg-t500x500.png">](https://soundcloud.com/waveblades/002-tranceblades-yerbby-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream)
 
-**Artist**: 𝕎𝔸𝕍𝔼𝔹𝕃𝔸𝔻𝔼𝕊 
+**Artist**: Inquisitive, Tatsunoshin & Slenderino 
 
-**Track**: #002 | TRANCEBLADES | YERBBY | MIX
+**Track**: Rave Dream
 
-Last updated at 11/21/2024, 9:27:54 AM
+Last updated at 11/22/2024, 6:38:18 AM
