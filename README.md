@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3)
 
-**Artist**: The Bounce Brothers  
+**Artist**: kirah 
 
-**Track**: The Bounce Brothers - Forget About DNA
+**Track**: runway ft. diegointhedark (mh + shinju)
 
-Last updated at 11/22/2024, 12:08:30 PM
+Last updated at 11/22/2024, 12:11:55 PM
