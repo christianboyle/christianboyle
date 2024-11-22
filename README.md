@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMHi4zXwYKC7OHVb-zqDUcw-t500x500.png">](https://soundcloud.com/picky_knows/still-tippin-remix-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip)
 
-**Artist**: Picky Knows 
+**Artist**: GLTY 
 
-**Track**: Still Tippin Remix ( FREE DL THX for 500 )
+**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
 
-Last updated at 11/22/2024, 9:15:52 AM
+Last updated at 11/22/2024, 12:05:49 PM
