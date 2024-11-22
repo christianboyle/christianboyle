@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna)
 
-**Artist**: GLTY 
+**Artist**: The Bounce Brothers  
 
-**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
+**Track**: The Bounce Brothers - Forget About DNA
 
-Last updated at 11/22/2024, 9:05:50 AM
+Last updated at 11/22/2024, 9:08:35 AM
