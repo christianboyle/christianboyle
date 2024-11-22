@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDf3vv0cIv83C0pk-RrKnfw-t500x500.jpg">](https://soundcloud.com/ironhidedubstep/excision-x-the-frim-night-shine-feat-luciana-ironhide-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna)
 
-**Artist**: Ironhide 
+**Artist**: The Bounce Brothers  
 
-**Track**: Excision X The Frim - Night Shine feat. Luciana (Ironhide Remix) Free Download
+**Track**: The Bounce Brothers - Forget About DNA
 
-Last updated at 11/22/2024, 8:22:43 AM
+Last updated at 11/22/2024, 8:25:59 AM
