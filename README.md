@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTN4UbRHreOUbaBj-xRp5EQ-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-new-school-rules)
 
-**Artist**: Inquisitive, Tatsunoshin & Slenderino 
+**Artist**: Dimitri K 
 
-**Track**: Rave Dream
+**Track**: Dimitri K - New School Rules
 
-Last updated at 11/22/2024, 12:14:10 PM
+Last updated at 11/22/2024, 12:16:50 PM
