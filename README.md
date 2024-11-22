@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBBg6Em4UrKtRjzQ-HTSAEg-t500x500.png">](https://soundcloud.com/japedaw/pink-sheep-your-new-song-is-so-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDf3vv0cIv83C0pk-RrKnfw-t500x500.jpg">](https://soundcloud.com/ironhidedubstep/excision-x-the-frim-night-shine-feat-luciana-ironhide-remix-free-download)
 
-**Artist**: jape daw 3 
+**Artist**: Ironhide 
 
-**Track**: Pink Sheep your new song is so good
+**Track**: Excision X The Frim - Night Shine feat. Luciana (Ironhide Remix) Free Download
 
-Last updated at 11/22/2024, 8:20:48 AM
+Last updated at 11/22/2024, 8:22:43 AM
