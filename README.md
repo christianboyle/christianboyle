@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIoqNQan92dxbSFz-GA8P6A-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-goes-hard-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9O3UWutzyFCpye4-UVl5bw-t500x500.jpg">](https://soundcloud.com/itsydg/ydg-echo)
 
-**Artist**: Scott F 
+**Artist**: YDG 
 
-**Track**: Scott F Goes Hard  Vol 4
+**Track**: YDG - Echo
 
-Last updated at 11/22/2024, 7:26:53 AM
+Last updated at 11/22/2024, 7:27:53 AM
