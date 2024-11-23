@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna?in=saxurn/sets/juicy/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzUQHKJwqNMLDNZb-boqLfg-t500x500.jpg">](https://soundcloud.com/brokitz/brb-joalisho?in=saxurn/sets/juicy/)
 
-**Artist**: The Bounce Brothers  
+**Artist**: kitz 
 
-**Track**: The Bounce Brothers - Forget About DNA
+**Track**: standback (joalisho)
 
-Last updated at 11/23/2024, 10:47:53 AM
+Last updated at 11/23/2024, 10:48:53 AM
