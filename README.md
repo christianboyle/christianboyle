@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hr5drJywe6wL1kMG-JX1cUw-t500x500.jpg">](https://soundcloud.com/piccolo115115/maru-x-onjucy-thats-my-stpiccolo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/smiley/)
 
-**Artist**: pìccolo 
+**Artist**: kitz 
 
-**Track**: Maru x Onjucy - That’s my S**t(pìccolo remix)
+**Track**: 20K (junoes + 31sentinel)
 
-Last updated at 11/23/2024, 11:10:26 AM
+Last updated at 11/23/2024, 12:35:09 PM
