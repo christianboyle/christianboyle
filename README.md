@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9UpCRg0bZlyNxy4-NR9EgQ-t500x500.jpg">](https://soundcloud.com/mythreefeelings/i-want-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5MoQUzCGwOKinDs-J3rZQw-t500x500.png">](https://soundcloud.com/nijod/the-malc-chronicles-me)
 
-**Artist**: ε0 
+**Artist**: dojinstrashbin 
 
-**Track**: i-want-u (Ruff mix)
+**Track**: the malcolm chronicles
 
-Last updated at 11/23/2024, 8:24:28 AM
+Last updated at 11/23/2024, 8:25:33 AM
