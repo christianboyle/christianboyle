@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVjhein1NYuricnB-X6z5Hg-t500x500.png">](https://soundcloud.com/remistefani/lmao-ft-iso3g-prod-swaggaholix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BS9nEbyOVPeuOolf-Zu2rAA-t500x500.jpg">](https://soundcloud.com/janeremover/hold-it-against-me?in=saxurn/sets/juicy/)
 
-**Artist**: remi stefani 
+**Artist**: Jane Remover 
 
-**Track**: lmao ft iso3g prod. swaggaholix
+**Track**: hold it against me (flash og)
 
-Last updated at 11/23/2024, 10:39:35 AM
+Last updated at 11/23/2024, 10:43:35 AM
