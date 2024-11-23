@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP7uRni8NZDzJez9-y8P7UA-t500x500.jpg">](https://soundcloud.com/sukidied/bleedouttt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty)
 
-**Artist**: suki 
+**Artist**: PRYZMS 
 
-**Track**: Bleedouttt
+**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
 
-Last updated at 11/22/2024, 8:17:22 PM
+Last updated at 11/22/2024, 8:20:23 PM
