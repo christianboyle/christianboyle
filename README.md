@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BS9nEbyOVPeuOolf-Zu2rAA-t500x500.jpg">](https://soundcloud.com/janeremover/hold-it-against-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/juicy/)
 
-**Artist**: Jane Remover 
+**Artist**: kitz 
 
-**Track**: hold it against me (flash og)
+**Track**: 20K (junoes + 31sentinel)
 
-Last updated at 11/23/2024, 10:44:43 AM
+Last updated at 11/23/2024, 10:46:13 AM
