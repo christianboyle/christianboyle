@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP7uRni8NZDzJez9-y8P7UA-t500x500.jpg">](https://soundcloud.com/sukidied/bleedouttt)
 
-**Artist**: kirah 
+**Artist**: suki 
 
-**Track**: runway ft. diegointhedark (mh + shinju)
+**Track**: Bleedouttt
 
-Last updated at 11/22/2024, 8:15:07 PM
+Last updated at 11/22/2024, 8:17:22 PM
