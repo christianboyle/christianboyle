@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/juicy/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1rz01URGlZnhNzKz-67fhqg-t500x500.png">](https://soundcloud.com/user-419900097/the-bounce-brothers-forget-about-dna?in=saxurn/sets/juicy/)
 
-**Artist**: kitz 
+**Artist**: The Bounce Brothers  
 
-**Track**: 20K (junoes + 31sentinel)
+**Track**: The Bounce Brothers - Forget About DNA
 
-Last updated at 11/23/2024, 10:46:13 AM
+Last updated at 11/23/2024, 10:47:53 AM
