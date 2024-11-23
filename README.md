@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgdNDBlUspGD1ZoH-GGpIcw-t500x500.jpg">](https://soundcloud.com/silcrowmusic/i-cant-see-the-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nag6pWrmMDFdOEew-criydw-t500x500.jpg">](https://soundcloud.com/martiangangrecords/wise-man)
 
-**Artist**: Silcrow 
+**Artist**: Brokaw 
 
-**Track**: i can't see the light!
+**Track**: Wise Man
 
-Last updated at 11/23/2024, 8:21:27 AM
+Last updated at 11/23/2024, 8:22:27 AM
