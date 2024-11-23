@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usKl5rzOxuhj5N46-aDZN0A-t500x500.jpg">](https://soundcloud.com/jalayamusic/band4band-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip)
 
-**Artist**: Jalaya 
+**Artist**: GLTY 
 
-**Track**: Band4Band Flip
+**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
 
-Last updated at 11/22/2024, 12:24:31 PM
+Last updated at 11/22/2024, 8:13:08 PM
