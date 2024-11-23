@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzUQHKJwqNMLDNZb-boqLfg-t500x500.jpg">](https://soundcloud.com/brokitz/brb-joalisho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hr5drJywe6wL1kMG-JX1cUw-t500x500.jpg">](https://soundcloud.com/piccolo115115/maru-x-onjucy-thats-my-stpiccolo-remix)
 
-**Artist**: kitz 
+**Artist**: pìccolo 
 
-**Track**: standback (joalisho)
+**Track**: Maru x Onjucy - That’s my S**t(pìccolo remix)
 
-Last updated at 11/23/2024, 10:57:46 AM
+Last updated at 11/23/2024, 11:10:26 AM
