@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aesToWDxDSxYYsew-i4ADjA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/vncnt-see-u-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9UpCRg0bZlyNxy4-NR9EgQ-t500x500.jpg">](https://soundcloud.com/mythreefeelings/i-want-u)
 
-**Artist**: VNCNT 
+**Artist**: ε0 
 
-**Track**: VNCNT - See U Again
+**Track**: i-want-u (Ruff mix)
 
-Last updated at 11/23/2024, 8:23:27 AM
+Last updated at 11/23/2024, 8:24:28 AM
