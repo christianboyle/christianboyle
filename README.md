@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/smiley/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag)
 
-**Artist**: kitz 
+**Artist**: diegointhedark 
 
-**Track**: 20K (junoes + 31sentinel)
+**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
 
-Last updated at 11/23/2024, 12:35:09 PM
+Last updated at 11/23/2024, 12:50:53 PM
