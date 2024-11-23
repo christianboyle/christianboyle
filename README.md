@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5MoQUzCGwOKinDs-J3rZQw-t500x500.png">](https://soundcloud.com/nijod/the-malc-chronicles-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CNBV4CKjzMYbQ1w0-PNHDZw-t500x500.jpg">](https://soundcloud.com/ranzor/anamnesis)
 
-**Artist**: dojinstrashbin 
+**Artist**: Ranzor 
 
-**Track**: the malcolm chronicles
+**Track**: Anamnesis
 
-Last updated at 11/23/2024, 8:25:33 AM
+Last updated at 11/23/2024, 8:26:53 AM
