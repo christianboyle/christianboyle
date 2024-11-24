@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZX2H9pX3nrmU-0-t500x500.png">](https://soundcloud.com/theshipwrek/i-told-ya-feat-zekey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8HgzTpDXO4v0IiOu-63TqRg-t500x500.png">](https://soundcloud.com/spaceyacht/erbes-take-it)
 
-**Artist**: Ship Wrek feat. Zekey 
+**Artist**: ERBES 
 
-**Track**: I TOLD YA (feat. Zekey)
+**Track**: ERBES - Take It!
 
-Last updated at 11/24/2024, 7:43:00 AM
+Last updated at 11/24/2024, 7:44:30 AM
