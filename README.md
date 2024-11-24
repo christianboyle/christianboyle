@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTJhF5sQQFzKbfrO-9KuIRA-t500x500.jpg">](https://soundcloud.com/mutualvampire/maajins-blatts-dub-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKd49r9e53omBpzU-LvkeDQ-t500x500.png">](https://soundcloud.com/earth-from-space/earth-from-space-angels-yerbby?in=yerbownik/sets/new-releases)
 
-**Artist**: its sydney bitch 
+**Artist**: Earth from Space, yerbby 
 
-**Track**: maajins‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ blatts [dub edit]
+**Track**: Earth from Space - Angels (yerbby remix)
 
-Last updated at 11/24/2024, 7:46:35 AM
+Last updated at 11/24/2024, 7:47:35 AM
