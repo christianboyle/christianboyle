@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H0K6Mn1gM7Fyk4U9-cGPYyA-t500x500.jpg">](https://soundcloud.com/hexacube/lets-go-hardcore)
 
-**Artist**: diegointhedark 
+**Artist**: Hexacube 
 
-**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
+**Track**: Let's Go, Hardcore! [Kube 3rd Anniversary Song]
 
-Last updated at 11/24/2024, 7:36:29 AM
+Last updated at 11/24/2024, 7:37:45 AM
