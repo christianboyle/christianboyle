@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-woyzQEKCqLyu9kPl-ICOXIQ-t500x500.jpg">](https://soundcloud.com/aaron-tucker0410/aaron-fazer-vocal-anthems-1-0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTJhF5sQQFzKbfrO-9KuIRA-t500x500.jpg">](https://soundcloud.com/mutualvampire/maajins-blatts-dub-edit)
 
-**Artist**: Aaron Fazer 
+**Artist**: its sydney bitch 
 
-**Track**: Aaron Fazer - Vocal Anthems 1.0
+**Track**: maajins‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ blatts [dub edit]
 
-Last updated at 11/25/2024, 8:34:56 AM
+Last updated at 11/25/2024, 8:56:18 AM
