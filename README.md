@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqTZQrPCZPw1CRKN-Z6KMHA-t500x500.jpg">](https://soundcloud.com/saint-baek/kendrick-lamar-not-like-us-re-saint-miller-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BDU3ooD35bjW7SdG-g8EGpw-t500x500.jpg">](https://soundcloud.com/ag-audio/porter-robinson-sad-machine-ag-reboot)
 
-**Artist**: SAINT MILLER 
+**Artist**: AG 
 
-**Track**: Kendrick Lamar - Not Like Us (re/ SAINT MILLER)
+**Track**: Porter Robinson - Sad Machine (AG Reboot)
 
-Last updated at 11/25/2024, 5:00:50 PM
+Last updated at 11/25/2024, 5:03:15 PM
