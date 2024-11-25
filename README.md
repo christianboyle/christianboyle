@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AL2177M9PkCVglSC-qGMkiA-t500x500.jpg">](https://soundcloud.com/agora-records/agora-podcast-22-dj-physical-macadam)
 
-**Artist**: Crumb Pit 
+**Artist**: DJ Physical 
 
-**Track**: charli xcx - everything is romantic (crumb pit remix)
+**Track**: Agora Podcast 22 - DJ Physical (Macadam)
 
-Last updated at 11/25/2024, 8:00:05 AM
+Last updated at 11/25/2024, 8:01:45 AM
