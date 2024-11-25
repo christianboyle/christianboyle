@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqTZQrPCZPw1CRKN-Z6KMHA-t500x500.jpg">](https://soundcloud.com/saint-baek/kendrick-lamar-not-like-us-re-saint-miller-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7qi8U8FILUXrSOS-tTvE2A-t500x500.jpg">](https://soundcloud.com/gordiebennett13/attention-freaky-and-high-zombie-x-no-bystanders-re-crank-x-gameplay-spag-heddy-gbennett-edit)
 
-**Artist**: SAINT MILLER 
+**Artist**: gordiebennett13 
 
-**Track**: Kendrick Lamar - Not Like Us (re/ SAINT MILLER)
+**Track**: Attention-FREAKY and High Zombie X No Bystanders-ReCrank X GamePlay-Spag Heddy [GBENNETT Edit]
 
-Last updated at 11/25/2024, 9:33:44 AM
+Last updated at 11/25/2024, 9:36:39 AM
