@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3D35NDm3FpFsr2n-UzLT8A-t500x500.png">](https://soundcloud.com/koisum/koi-sum-x-kavoi-synergy?in=saxurn/sets/1ucy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip?in=saxurn/sets/1ucy)
 
-**Artist**: koi sum, Kavoi 
+**Artist**: GLTY 
 
-**Track**: koi sum x Kavoi - synergy
+**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
 
-Last updated at 11/25/2024, 12:41:53 PM
+Last updated at 11/25/2024, 12:49:03 PM
