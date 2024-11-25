@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mISy3WEwXvwDFUlT-GUCrCg-t500x500.jpg">](https://soundcloud.com/user-720309049/sdj-live-set-231124-uk-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHqj3bu0kFst68aJ-nTPnXg-t500x500.jpg">](https://soundcloud.com/spicyboismusic/ion-on-lock-unreleased)
 
-**Artist**: SDJ 
+**Artist**: ION 
 
-**Track**: SDJ - Live Set 23/11/24 UK Hardcore
+**Track**: ION - On Lock
 
-Last updated at 11/25/2024, 7:51:13 AM
+Last updated at 11/25/2024, 7:59:05 AM
