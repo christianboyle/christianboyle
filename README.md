@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3qjZr4kWOyseYpu-3yDLGw-t500x500.jpg">](https://soundcloud.com/2slimey4eva/ssoslime-ft-yhapojj-bwkds-ktp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5qXWX2UimHoQH7h-gkiqpQ-t500x500.jpg">](https://soundcloud.com/moldae/joey-valence-brae-dance-now-moldae-flip)
 
-**Artist**: 2Slimey 
+**Artist**: Moldae 
 
-**Track**: SsoSlime ft YhapoJJ (bwkds+Ktp)
+**Track**: JOEY VALENCE & BRAE - DANCE NOW (MOLDAE FLIP)
 
-Last updated at 11/25/2024, 8:07:51 AM
+Last updated at 11/25/2024, 8:08:56 AM
