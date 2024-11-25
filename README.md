@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVAplz0H93qW9hxh-QByKfA-t500x500.jpg">](https://soundcloud.com/spicyboismusic/erbes-turn-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mqtjbrBdEifLjETE-qwjwGw-t500x500.png">](https://soundcloud.com/jacknifemusic/jacknife-2fast)
 
-**Artist**: ERBES 
+**Artist**: JACKNIFE 
 
-**Track**: ERBES - Turn Up!
+**Track**: JACKNIFE - 2FAST
 
-Last updated at 11/25/2024, 8:09:56 AM
+Last updated at 11/25/2024, 8:10:56 AM
