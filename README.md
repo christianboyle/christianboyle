@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AL2177M9PkCVglSC-qGMkiA-t500x500.jpg">](https://soundcloud.com/agora-records/agora-podcast-22-dj-physical-macadam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmhmA2aJa0IDzF7Y-n381Iw-t500x500.png">](https://soundcloud.com/nolanvanlith/rockyourbody)
 
-**Artist**: DJ Physical 
+**Artist**: Nolan van Lith 
 
-**Track**: Agora Podcast 22 - DJ Physical (Macadam)
+**Track**: Rock Your Body
 
-Last updated at 11/25/2024, 8:01:45 AM
+Last updated at 11/25/2024, 8:04:15 AM
