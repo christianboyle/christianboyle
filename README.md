@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BDU3ooD35bjW7SdG-g8EGpw-t500x500.jpg">](https://soundcloud.com/ag-audio/porter-robinson-sad-machine-ag-reboot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVvvgPZyS1MzHRxk-knYisg-t500x500.png">](https://soundcloud.com/djpsytox/summersundays75-groove-theory)
 
-**Artist**: AG 
+**Artist**: Psytox 
 
-**Track**: Porter Robinson - Sad Machine (AG Reboot)
+**Track**: Summer.Sundays.75 - Groove Theory
 
-Last updated at 11/25/2024, 5:03:15 PM
+Last updated at 11/25/2024, 5:27:55 PM
