@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/1ucy)
 
-**Artist**: Crumb Pit 
+**Artist**: kitz 
 
-**Track**: charli xcx - everything is romantic (crumb pit remix)
+**Track**: 20K (junoes + 31sentinel)
 
-Last updated at 11/25/2024, 10:44:11 AM
+Last updated at 11/25/2024, 12:08:43 PM
