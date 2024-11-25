@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5qXWX2UimHoQH7h-gkiqpQ-t500x500.jpg">](https://soundcloud.com/moldae/joey-valence-brae-dance-now-moldae-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVAplz0H93qW9hxh-QByKfA-t500x500.jpg">](https://soundcloud.com/spicyboismusic/erbes-turn-up)
 
-**Artist**: Moldae 
+**Artist**: ERBES 
 
-**Track**: JOEY VALENCE & BRAE - DANCE NOW (MOLDAE FLIP)
+**Track**: ERBES - Turn Up!
 
-Last updated at 11/25/2024, 8:08:56 AM
+Last updated at 11/25/2024, 8:09:56 AM
