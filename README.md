@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k?in=saxurn/sets/1ucy/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3?in=saxurn/sets/1ucy/)
 
-**Artist**: kitz 
+**Artist**: kirah 
 
-**Track**: 20K (junoes + 31sentinel)
+**Track**: runway ft. diegointhedark (mh + shinju)
 
-Last updated at 11/25/2024, 9:02:36 AM
+Last updated at 11/25/2024, 9:04:16 AM
