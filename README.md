@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3?in=saxurn/sets/1ucy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aesToWDxDSxYYsew-i4ADjA-t500x500.jpg">](https://soundcloud.com/chillplanetmusic/vncnt-see-u-again?in=saxurn/sets/1ucy)
 
-**Artist**: kirah 
+**Artist**: VNCNT 
 
-**Track**: runway ft. diegointhedark (mh + shinju)
+**Track**: VNCNT - See U Again
 
-Last updated at 11/25/2024, 12:10:18 PM
+Last updated at 11/25/2024, 12:12:33 PM
