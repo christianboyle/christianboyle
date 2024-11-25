@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgdNDBlUspGD1ZoH-GGpIcw-t500x500.jpg">](https://soundcloud.com/silcrowmusic/i-cant-see-the-light?in=saxurn/sets/1ucy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzUQHKJwqNMLDNZb-boqLfg-t500x500.jpg">](https://soundcloud.com/brokitz/brb-joalisho?in=saxurn/sets/1ucy)
 
-**Artist**: Silcrow 
+**Artist**: kitz 
 
-**Track**: i can't see the light!
+**Track**: standback (joalisho)
 
-Last updated at 11/25/2024, 2:22:48 PM
+Last updated at 11/25/2024, 2:25:49 PM
