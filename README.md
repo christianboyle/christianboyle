@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bbtqO3zxAK9dEy6G-CyHpdg-t500x500.jpg">](https://soundcloud.com/skinnylimbs/thats-tough-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cMHi4zXwYKC7OHVb-zqDUcw-t500x500.png">](https://soundcloud.com/picky_knows/still-tippin-remix-master)
 
-**Artist**: Skinny Limbs 
+**Artist**: Picky Knows 
 
-**Track**: That's Tough
+**Track**: Still Tippin Remix ( FREE DL THX for 500 )
 
-Last updated at 11/25/2024, 8:59:59 AM
+Last updated at 11/25/2024, 9:01:24 AM
