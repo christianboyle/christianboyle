@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7qi8U8FILUXrSOS-tTvE2A-t500x500.jpg">](https://soundcloud.com/gordiebennett13/attention-freaky-and-high-zombie-x-no-bystanders-re-crank-x-gameplay-spag-heddy-gbennett-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3?in=saxurn/sets/1ucy)
 
-**Artist**: gordiebennett13 
+**Artist**: kirah 
 
-**Track**: Attention-FREAKY and High Zombie X No Bystanders-ReCrank X GamePlay-Spag Heddy [GBENNETT Edit]
+**Track**: runway ft. diegointhedark (mh + shinju)
 
-Last updated at 11/25/2024, 9:36:39 AM
+Last updated at 11/25/2024, 9:38:54 AM
