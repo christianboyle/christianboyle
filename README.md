@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjhBrUMGqi3PTyjt-pvq4kQ-t500x500.jpg">](https://soundcloud.com/basiliskbass/module-dangerous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwvgRtYpfkKGJLJQ-Ch9n3w-t500x500.jpg">](https://soundcloud.com/dnzrecords/jay-dee-sharkey-dj-keith-l-tears)
 
-**Artist**: Module 
+**Artist**: Jay-Dee Sharkey & DJ Keith L 
 
-**Track**: Module - Dangerous
+**Track**: Jay-Dee Sharkey & DJ Keith L - Tears
 
-Last updated at 11/26/2024, 7:57:30 AM
+Last updated at 11/26/2024, 8:01:47 AM
