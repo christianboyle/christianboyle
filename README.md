@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3D35NDm3FpFsr2n-UzLT8A-t500x500.png">](https://soundcloud.com/koisum/koi-sum-x-kavoi-synergy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream)
 
-**Artist**: koi sum, Kavoi 
+**Artist**: Inquisitive, Tatsunoshin & Slenderino 
 
-**Track**: koi sum x Kavoi - synergy
+**Track**: Rave Dream
 
-Last updated at 11/26/2024, 2:16:26 PM
+Last updated at 11/26/2024, 2:19:01 PM
