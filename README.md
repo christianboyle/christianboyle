@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WCSQOuRBN1QRGPZF-BMg2PA-t500x500.jpg">](https://soundcloud.com/outfed/headlock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic)
 
-**Artist**: alt0 
+**Artist**: Crumb Pit 
 
-**Track**: headlock prod tera
+**Track**: charli xcx - everything is romantic (crumb pit remix)
 
-Last updated at 11/26/2024, 9:12:39 AM
+Last updated at 11/26/2024, 9:14:44 AM
