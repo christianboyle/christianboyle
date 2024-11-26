@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PC3maetBZ3DZ9oWf-ijcfBQ-t500x500.png">](https://soundcloud.com/tomoyu/greenregeneration-tomoyu-supire-feat-rihina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjhBrUMGqi3PTyjt-pvq4kQ-t500x500.jpg">](https://soundcloud.com/basiliskbass/module-dangerous)
 
-**Artist**: TOMOYU,Supire,梨雛 
+**Artist**: Module 
 
-**Track**: greenREgeneration / TOMOYU & Supire feat.梨雛
+**Track**: Module - Dangerous
 
-Last updated at 11/26/2024, 7:55:55 AM
+Last updated at 11/26/2024, 7:57:30 AM
