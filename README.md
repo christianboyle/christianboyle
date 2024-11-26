@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzUQHKJwqNMLDNZb-boqLfg-t500x500.jpg">](https://soundcloud.com/brokitz/brb-joalisho)
 
-**Artist**: Crumb Pit 
+**Artist**: kitz 
 
-**Track**: charli xcx - everything is romantic (crumb pit remix)
+**Track**: standback (joalisho)
 
-Last updated at 11/26/2024, 9:14:44 AM
+Last updated at 11/26/2024, 9:17:55 AM
