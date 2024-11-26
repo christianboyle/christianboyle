@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAH3EGlPWfuyNmEH-YibhNg-t500x500.png">](https://soundcloud.com/lizdek/oppidan-wake-and-break-lizdek-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFfh9CTk6GqjAHRm-12jTYQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/autopilot)
 
-**Artist**: Lizdek 
+**Artist**: Darby 
 
-**Track**: Oppidan - WAKE AND BREAK (Lizdek Remix)
+**Track**: Darby - AUTOPILOT (feat. ÊMIA)
 
-Last updated at 11/26/2024, 3:35:53 PM
+Last updated at 11/26/2024, 3:38:53 PM
