@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgdNDBlUspGD1ZoH-GGpIcw-t500x500.jpg">](https://soundcloud.com/silcrowmusic/i-cant-see-the-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip)
 
-**Artist**: Silcrow 
+**Artist**: GLTY 
 
-**Track**: i can't see the light!
+**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
 
-Last updated at 11/26/2024, 4:38:31 PM
+Last updated at 11/26/2024, 4:41:31 PM
