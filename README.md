@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZLj0tubPkfxfIOB-46aywA-t500x500.jpg">](https://soundcloud.com/vortek-s/skrillex-habstrakt-chicken-soup-vorteks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PGgxljlImyUMUM7-6KAweA-t500x500.png">](https://soundcloud.com/rave_alert/premiere-charli-xcx-365-indepth-hard-edit)
 
-**Artist**: Vortek's 
+**Artist**: INDEPTH 
 
-**Track**: Skrillex & Habstrakt - Chicken Soup (Vortek's Remix) [Free Download]
+**Track**: [PREMIERE] Charli XCX - 365 (INDEPTH Hard Edit)
 
-Last updated at 11/26/2024, 3:17:06 PM
+Last updated at 11/26/2024, 3:21:12 PM
