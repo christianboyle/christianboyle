@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IhuPt3ZvVyu6zkb-5DzL1Q-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/dimitri-vegas-like-mike-tiesto-dido-ww-thank-you-not-so-bad-yannis-g-rosey-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1QS7WLm5eSH9bW0-I72Hyw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/taylor-swift-welcome-to-new-york-joki-remix-free-download)
 
-**Artist**: Yannis G 
+**Artist**: Joki 
 
-**Track**: Dimitri Vegas & Like Mike & Tiësto & Dido & W&W – Thank You [Not So Bad] (Yannis G & Rosey Edit)
+**Track**: Taylor Swift - Welcome To New York (joki Remix) [FREE DOWNLOAD]
 
-Last updated at 11/26/2024, 3:41:34 PM
+Last updated at 11/26/2024, 3:46:39 PM
