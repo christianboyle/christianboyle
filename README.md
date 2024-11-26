@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTN4UbRHreOUbaBj-xRp5EQ-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-new-school-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus)
 
-**Artist**: Dimitri K 
+**Artist**: METAPHORE COLLECTIF 
 
-**Track**: Dimitri K - New School Rules
+**Track**: DJ Zvonimir X Antihero - Sol Invictus
 
-Last updated at 11/26/2024, 2:21:36 PM
+Last updated at 11/26/2024, 2:24:47 PM
