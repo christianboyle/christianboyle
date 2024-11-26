@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AntnyBt69sdn-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/stay-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBX2zNbZyrOoWN5D-Ran79Q-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/kurei-x-luhv-know-me)
 
-**Artist**: Avi8 
+**Artist**: KUREI x Luhv 
 
-**Track**: Stay
+**Track**: KUREI X Luhv - Know Me
 
-Last updated at 11/26/2024, 3:10:21 PM
+Last updated at 11/26/2024, 3:13:56 PM
