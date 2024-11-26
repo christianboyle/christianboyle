@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream)
 
-**Artist**: kirah 
+**Artist**: Inquisitive, Tatsunoshin & Slenderino 
 
-**Track**: runway ft. diegointhedark (mh + shinju)
+**Track**: Rave Dream
 
-Last updated at 11/26/2024, 4:44:11 PM
+Last updated at 11/26/2024, 4:46:27 PM
