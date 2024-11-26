@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuTLGNcuYYoAaoDa-yEitlw-t500x500.png">](https://soundcloud.com/vctre/abyssal-plains-all-original-unreleased-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2l04gcboA26chktn-EjoUqA-t500x500.png">](https://soundcloud.com/gnatwize/ifollowriversgnatremix)
 
-**Artist**: VCTRE 
+**Artist**: gNat 
 
-**Track**: Abyssal Plains (All Original Unreleased Mix)
+**Track**: Lykke Li - I Follow Rivers (gNat Remix)
 
-Last updated at 11/26/2024, 8:36:31 AM
+Last updated at 11/26/2024, 8:46:17 AM
