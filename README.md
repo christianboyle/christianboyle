@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Khu6f4FsTh68J90F-YIfjnA-t500x500.jpg">](https://soundcloud.com/monstercat/rusko-wassup?in=soundcloud-the-peak/sets/bass-flex-new-dubstep-heat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgzgY5depqz0TaqH-23a2kg-t500x500.png">](https://soundcloud.com/ontherecradio/memphis-lk-on-the-record-250)
 
-**Artist**: Rusko 
+**Artist**: On The Record 
 
-**Track**: Rusko - Wassup
+**Track**: Memphis LK - On The Record #250
 
-Last updated at 11/26/2024, 8:47:17 AM
+Last updated at 11/26/2024, 8:55:18 AM
