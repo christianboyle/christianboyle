@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rj9zIQC6i8fKTH9y-iijvzQ-t500x500.png">](https://soundcloud.com/hauntsaudio/ep010-by-piccolo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7CHnodHQ2vZC5yxk-8OlTxQ-t500x500.png">](https://soundcloud.com/donatachi/the-substance-donatachi-edit)
 
-**Artist**: HAUNTS 
+**Artist**: Donatachi 
 
-**Track**: EP010 : by PÍccolo
+**Track**: The Substance - Donatachi Edit
 
-Last updated at 11/26/2024, 3:49:14 PM
+Last updated at 11/26/2024, 4:06:51 PM
