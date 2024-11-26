@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tfFz9yHzayJcFMG2-rsHHtA-t500x500.png">](https://soundcloud.com/brokitz/20k)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3D35NDm3FpFsr2n-UzLT8A-t500x500.png">](https://soundcloud.com/koisum/koi-sum-x-kavoi-synergy)
 
-**Artist**: kitz 
+**Artist**: koi sum, Kavoi 
 
-**Track**: 20K (junoes + 31sentinel)
+**Track**: koi sum x Kavoi - synergy
 
-Last updated at 11/26/2024, 4:31:05 PM
+Last updated at 11/26/2024, 4:32:40 PM
