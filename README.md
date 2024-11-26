@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54s7jbUSBI0FjzyG-JxqZwQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/craig-mclelland-open-one-eye)
 
-**Artist**: METAPHORE COLLECTIF 
+**Artist**: Craig Mclelland 
 
-**Track**: DJ Zvonimir X Antihero - Sol Invictus
+**Track**: Craig Mclelland - Open One Eye
 
-Last updated at 11/26/2024, 2:24:47 PM
+Last updated at 11/26/2024, 2:28:47 PM
