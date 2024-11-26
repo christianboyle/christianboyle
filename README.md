@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4JWgaaz1jHtZiUlj-9KJrUw-t500x500.jpg">](https://soundcloud.com/gltymusic/wanna-be-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO7e2q8kecXf9JOz-CnlS6A-t500x500.jpg">](https://soundcloud.com/kirahlucent/runway-mp3)
 
-**Artist**: GLTY 
+**Artist**: kirah 
 
-**Track**: GloRilla & Megan Thee Stallion - Wanna Be (GLTY Flip)
+**Track**: runway ft. diegointhedark (mh + shinju)
 
-Last updated at 11/26/2024, 9:30:31 AM
+Last updated at 11/26/2024, 9:33:16 AM
