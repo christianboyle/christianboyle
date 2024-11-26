@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7CHnodHQ2vZC5yxk-8OlTxQ-t500x500.png">](https://soundcloud.com/donatachi/the-substance-donatachi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
 
-**Artist**: Donatachi 
+**Artist**: MIDNXGHT 
 
-**Track**: The Substance - Donatachi Edit
+**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
 
-Last updated at 11/26/2024, 4:06:51 PM
+Last updated at 11/26/2024, 4:10:13 PM
