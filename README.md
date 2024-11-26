@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFfh9CTk6GqjAHRm-12jTYQ-t500x500.jpg">](https://soundcloud.com/nightmoderecs/autopilot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IhuPt3ZvVyu6zkb-5DzL1Q-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/dimitri-vegas-like-mike-tiesto-dido-ww-thank-you-not-so-bad-yannis-g-rosey-edit)
 
-**Artist**: Darby 
+**Artist**: Yannis G 
 
-**Track**: Darby - AUTOPILOT (feat. ÊMIA)
+**Track**: Dimitri Vegas & Like Mike & Tiësto & Dido & W&W – Thank You [Not So Bad] (Yannis G & Rosey Edit)
 
-Last updated at 11/26/2024, 3:38:53 PM
+Last updated at 11/26/2024, 3:41:34 PM
