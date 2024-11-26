@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
 
-**Artist**: Inquisitive, Tatsunoshin & Slenderino 
+**Artist**: MIDNXGHT 
 
-**Track**: Rave Dream
+**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
 
-Last updated at 11/26/2024, 9:35:31 AM
+Last updated at 11/26/2024, 9:40:47 AM
