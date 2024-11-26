@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gz7Fq0Nvk2VMFlG9-EkzNeg-t500x500.jpg">](https://soundcloud.com/svmmxns/thewindcaller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PC3maetBZ3DZ9oWf-ijcfBQ-t500x500.png">](https://soundcloud.com/tomoyu/greenregeneration-tomoyu-supire-feat-rihina)
 
-**Artist**: SUMMONS 
+**Artist**: TOMOYU,Supire,梨雛 
 
-**Track**: THE WIND CALLER
+**Track**: greenREgeneration / TOMOYU & Supire feat.梨雛
 
-Last updated at 11/26/2024, 7:53:44 AM
+Last updated at 11/26/2024, 7:55:55 AM
