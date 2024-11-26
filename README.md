@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBX2zNbZyrOoWN5D-Ran79Q-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/kurei-x-luhv-know-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AZLj0tubPkfxfIOB-46aywA-t500x500.jpg">](https://soundcloud.com/vortek-s/skrillex-habstrakt-chicken-soup-vorteks-remix)
 
-**Artist**: KUREI x Luhv 
+**Artist**: Vortek's 
 
-**Track**: KUREI X Luhv - Know Me
+**Track**: Skrillex & Habstrakt - Chicken Soup (Vortek's Remix) [Free Download]
 
-Last updated at 11/26/2024, 3:13:56 PM
+Last updated at 11/26/2024, 3:17:06 PM
