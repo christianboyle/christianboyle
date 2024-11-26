@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryYsjgwu0yDyuEuF-dOtPfA-t500x500.png">](https://soundcloud.com/speedworldrecs/seul-hoski-hit-run)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IQ4pKJQlyvny0OF-hFbykA-t500x500.jpg">](https://soundcloud.com/welcome-recs/hekler-x-oddkidout-villan)
 
-**Artist**: Mad Flower, CJRY, Ramel, JET BLVCK, Seul Hoski 
+**Artist**: HEKLER X ODDKIDOUT 
 
-**Track**: Seul Hoski - Hit Run
+**Track**: HEKLER X ODDKIDOUT - VILLAIN
 
-Last updated at 11/26/2024, 3:01:00 PM
+Last updated at 11/26/2024, 3:03:20 PM
