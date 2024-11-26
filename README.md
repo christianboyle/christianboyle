@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNi9UwmFHU2OknWE-L2he8g-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/no-hero-on-my-mind-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ScJH4XGLU9z1NfHS-EfuQzw-t500x500.jpg">](https://soundcloud.com/heklermusic/mau-p-x-mike-dean-on-again-hekler-remix)
 
-**Artist**: No Hero 
+**Artist**: HEKLER 
 
-**Track**: No Hero - On My Mind [NCS Release]
+**Track**: MAU P X MIKE DEAN - ON AGAIN [HEKLER REMIX]
 
-Last updated at 11/26/2024, 4:18:24 PM
+Last updated at 11/26/2024, 4:21:14 PM
