@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVvvgPZyS1MzHRxk-knYisg-t500x500.png">](https://soundcloud.com/djpsytox/summersundays75-groove-theory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ocbbfNqCFWXkd711-ylPGBg-t500x500.jpg">](https://soundcloud.com/wearelostkings/wyk)
 
-**Artist**: Psytox 
+**Artist**: Lost Kings 
 
-**Track**: Summer.Sundays.75 - Groove Theory
+**Track**: Two Door Cinema Club - What You Know (Lost Kings Remix)
 
-Last updated at 11/26/2024, 7:38:29 AM
+Last updated at 11/26/2024, 7:51:20 AM
