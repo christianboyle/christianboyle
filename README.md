@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgzgY5depqz0TaqH-23a2kg-t500x500.png">](https://soundcloud.com/ontherecradio/memphis-lk-on-the-record-250)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKLVoq8FlzCHM45R-YAHfHw-t500x500.jpg">](https://soundcloud.com/bagggggg/isoknock-rl-grime-smack-talk-bagg-remix)
 
-**Artist**: On The Record 
+**Artist**: BAGG 
 
-**Track**: Memphis LK - On The Record #250
+**Track**: ISOKNOCK & RL GRIME - SMACK TALK (BAGG REMIX)
 
-Last updated at 11/26/2024, 8:55:18 AM
+Last updated at 11/26/2024, 9:04:49 AM
