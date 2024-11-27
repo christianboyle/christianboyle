@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVY9j5ANG9B5rffj-OwuW1A-t500x500.jpg">](https://soundcloud.com/marviista/start-me-up-d-v-d-remix?in=dvdmtl/sets/dvd-fight-or-flight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SsAd2Z7swb7rh6tU-aMVo0g-t500x500.jpg">](https://soundcloud.com/dvdmtl/lmfao-la-la-la-d-v-d-in-desperate-need-of-some-dopamine-remix?in=dvdmtl/sets/dvd-fight-or-flight)
 
-**Artist**: MAR VISTA, Kellin Quinn, D V D 
+**Artist**: D V D 
 
-**Track**: Start Me Up (D V D Remix)
+**Track**: LMFAO - La La La (D V D in desperate need of some dopamine remix)
 
-Last updated at 11/27/2024, 9:12:10 AM
+Last updated at 11/27/2024, 9:13:10 AM
