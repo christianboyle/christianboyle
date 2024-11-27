@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5y7zZzdI4zCp1Jtz-u1yAHQ-t500x500.png">](https://soundcloud.com/ipsiom/seven-lions-ft-shaz-sparks-polarized-ipsiom-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b8WtV8XNvuX4KUl3-IzyEXg-t500x500.jpg">](https://soundcloud.com/sonxc/short-dick-man)
 
-**Artist**: Ipsiom 
+**Artist**: Sonxc 
 
-**Track**: Seven Lions ft Shaz Sparks - Polarized (Ipsiom Remix)
+**Track**: short dick man 🤏🍆
 
-Last updated at 11/27/2024, 9:08:39 AM
+Last updated at 11/27/2024, 9:11:00 AM
