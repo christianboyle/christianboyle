@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shRpRnEWHaVeoW5m-dLxzAQ-t500x500.jpg">](https://soundcloud.com/2muchfr/d-v-d-3012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q7g5Uo1IjHJNOqET-oGhVsg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-wanna-rock-d-v-d-hard-bootleg)
 
-**Artist**: 2much 
+**Artist**: D V D 
 
-**Track**: D V D - 3012
+**Track**: Just Wanna Rock (D V D Hard Bootleg)
 
-Last updated at 11/27/2024, 9:43:08 AM
+Last updated at 11/27/2024, 9:48:18 AM
