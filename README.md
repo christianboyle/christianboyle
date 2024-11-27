@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTN4UbRHreOUbaBj-xRp5EQ-t500x500.jpg">](https://soundcloud.com/dimitri-k-official/dimitri-k-new-school-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CbZ325WFVLqgFYi-xXgVFg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/way2muchdirt-2)
 
-**Artist**: Dimitri K 
+**Artist**: kushface ☤ 
 
-**Track**: Dimitri K - New School Rules
+**Track**: WAY2MUCHDIRT 2
 
-Last updated at 11/27/2024, 7:29:17 AM
+Last updated at 11/27/2024, 7:30:57 AM
