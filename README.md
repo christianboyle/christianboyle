@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LFqsuD4Ni8hZOdNp-YomL8Q-t500x500.png">](https://soundcloud.com/livefromearth/725460fe-631f-4d6d-b43c-e62d0c343e20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gz7Fq0Nvk2VMFlG9-EkzNeg-t500x500.jpg">](https://soundcloud.com/svmmxns/thewindcaller)
 
-**Artist**: Perra Inmunda, Chico Blanco  
+**Artist**: SUMMONS 
 
-**Track**: Ayer Te Vi
+**Track**: THE WIND CALLER
 
-Last updated at 11/27/2024, 9:21:36 AM
+Last updated at 11/27/2024, 9:22:36 AM
