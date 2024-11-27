@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gz7Fq0Nvk2VMFlG9-EkzNeg-t500x500.jpg">](https://soundcloud.com/svmmxns/thewindcaller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GXSNnuFzt4Nz6Azt-VLzdIQ-t500x500.jpg">](https://soundcloud.com/daisychain_podcast/lau-daisychain-357)
 
-**Artist**: SUMMONS 
+**Artist**: Lau 
 
-**Track**: THE WIND CALLER
+**Track**: Daisychain 357 - LAU
 
-Last updated at 11/27/2024, 9:22:36 AM
+Last updated at 11/27/2024, 9:23:36 AM
