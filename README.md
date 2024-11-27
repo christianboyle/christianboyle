@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlQvVPcZoWkowf20-XfkC7Q-t500x500.jpg">](https://soundcloud.com/dvdmtl/beauty-and-a-purple-ipod-nano-d-v-d-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVY9j5ANG9B5rffj-OwuW1A-t500x500.jpg">](https://soundcloud.com/marviista/start-me-up-d-v-d-remix)
 
-**Artist**: D V D 
+**Artist**: MAR VISTA, Kellin Quinn, D V D 
 
-**Track**: Beauty and A Purple Ipod Nano VS Break Free (D V D Mashup)
+**Track**: Start Me Up (D V D Remix)
 
-Last updated at 11/27/2024, 10:43:28 AM
+Last updated at 11/27/2024, 10:47:49 AM
