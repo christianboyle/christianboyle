@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CbZ325WFVLqgFYi-xXgVFg-t500x500.jpg">](https://soundcloud.com/kushfaceleanin/way2muchdirt-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvqOw9exx9mv-0-t500x500.jpg">](https://soundcloud.com/kornel/atlas-dubb)
 
-**Artist**: kushface ☤ 
+**Artist**: Kornél Kovács 
 
-**Track**: WAY2MUCHDIRT 2
+**Track**: Atlas Dubb
 
-Last updated at 11/27/2024, 7:30:57 AM
+Last updated at 11/27/2024, 7:34:42 AM
