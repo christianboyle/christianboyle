@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvqOw9exx9mv-0-t500x500.jpg">](https://soundcloud.com/kornel/atlas-dubb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lMMx9FXiadicMg65-hsLUBw-t500x500.png">](https://soundcloud.com/cascading-effects/cec06)
 
-**Artist**: Kornél Kovács 
+**Artist**: Cascading Effects 
 
-**Track**: Atlas Dubb
+**Track**: Cascading Effects Compilation 06 [XFD] [来場者特典] #CE_06
 
-Last updated at 11/27/2024, 7:34:42 AM
+Last updated at 11/27/2024, 7:35:42 AM
