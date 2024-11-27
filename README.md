@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7MADxKeuRfbBkuwZ-nMVebQ-t500x500.jpg">](https://soundcloud.com/dj-shaun-ashley/riot-brothers-ripped-out-shaun-ashley-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-i-wanna-make-you-move)
 
-**Artist**: Shaun Ashley 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Riot Brothers - Ripped Out (Shaun Ashley Remix) (FREE DOWNLOAD)
+**Track**: D V D - I Wanna Make You Move
 
-Last updated at 11/27/2024, 12:32:06 PM
+Last updated at 11/27/2024, 3:16:18 PM
