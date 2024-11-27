@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWJvOeickpzx1UzK-KacjwA-t500x500.jpg">](https://soundcloud.com/xaebor/halloween)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5y7zZzdI4zCp1Jtz-u1yAHQ-t500x500.png">](https://soundcloud.com/ipsiom/seven-lions-ft-shaz-sparks-polarized-ipsiom-remix)
 
-**Artist**: XAEBOR 
+**Artist**: Ipsiom 
 
-**Track**: CHRISPY - HALLOWEEN (XAEBOR REMIX)
+**Track**: Seven Lions ft Shaz Sparks - Polarized (Ipsiom Remix)
 
-Last updated at 11/27/2024, 7:41:18 AM
+Last updated at 11/27/2024, 9:08:39 AM
