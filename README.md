@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wlkMo0YzMghmeIsH-XtCJHw-t500x500.png">](https://soundcloud.com/blaize323/free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWJvOeickpzx1UzK-KacjwA-t500x500.jpg">](https://soundcloud.com/xaebor/halloween)
 
-**Artist**: BLAIZE 
+**Artist**: XAEBOR 
 
-**Track**: Blaize - Free
+**Track**: CHRISPY - HALLOWEEN (XAEBOR REMIX)
 
-Last updated at 11/27/2024, 7:39:08 AM
+Last updated at 11/27/2024, 7:41:18 AM
