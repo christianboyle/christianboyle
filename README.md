@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzPC12dUdgyzMu2g-5KzIRw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-atonism-torus-exp008)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wlkMo0YzMghmeIsH-XtCJHw-t500x500.png">](https://soundcloud.com/blaize323/free)
 
-**Artist**: Atonism 
+**Artist**: BLAIZE 
 
-**Track**: Premiere: Atonism - Torus [EXP008]
+**Track**: Blaize - Free
 
-Last updated at 11/27/2024, 7:36:47 AM
+Last updated at 11/27/2024, 7:39:08 AM
