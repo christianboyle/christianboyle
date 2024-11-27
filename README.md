@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lMMx9FXiadicMg65-hsLUBw-t500x500.png">](https://soundcloud.com/cascading-effects/cec06)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzPC12dUdgyzMu2g-5KzIRw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-atonism-torus-exp008)
 
-**Artist**: Cascading Effects 
+**Artist**: Atonism 
 
-**Track**: Cascading Effects Compilation 06 [XFD] [来場者特典] #CE_06
+**Track**: Premiere: Atonism - Torus [EXP008]
 
-Last updated at 11/27/2024, 7:35:42 AM
+Last updated at 11/27/2024, 7:36:47 AM
