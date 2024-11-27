@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sibJr9g2QmPM8qoN-2jzCfg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-cant-stop-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlQvVPcZoWkowf20-XfkC7Q-t500x500.jpg">](https://soundcloud.com/dvdmtl/beauty-and-a-purple-ipod-nano-d-v-d-mashup)
 
 **Artist**: D V D 
 
-**Track**: JUST CAN'T STOP
+**Track**: Beauty and A Purple Ipod Nano VS Break Free (D V D Mashup)
 
-Last updated at 11/27/2024, 10:40:18 AM
+Last updated at 11/27/2024, 10:43:28 AM
