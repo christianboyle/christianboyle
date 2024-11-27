@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gw0PeWwHtwqPhzHs-GPFJDw-t500x500.jpg">](https://soundcloud.com/lobsta-b/lobsta-b-dj-g2g-everytime-we-touch-like-a-g6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7MADxKeuRfbBkuwZ-nMVebQ-t500x500.jpg">](https://soundcloud.com/dj-shaun-ashley/riot-brothers-ripped-out-shaun-ashley-remix)
 
-**Artist**: LOBSTA B 
+**Artist**: Shaun Ashley 
 
-**Track**: LOBSTA B & DJ G2G - EVERYTIME WE TOUCH LIKE A G6
+**Track**: Riot Brothers - Ripped Out (Shaun Ashley Remix) (FREE DOWNLOAD)
 
-Last updated at 11/27/2024, 5:00:52 PM
+Last updated at 11/27/2024, 5:04:13 PM
