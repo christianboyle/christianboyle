@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Qq7nGVALRXAPENQ-gwizuA-t500x500.jpg">](https://soundcloud.com/promis3/atlantisdvdfragrance?in=dvdmtl/sets/dvd-fight-or-flight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-i-wanna-make-you-move?in=dvdmtl/sets/dvd-fight-or-flight)
 
-**Artist**: Promis3 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Atlantis (D V D Fragrance)
+**Track**: D V D - I Wanna Make You Move
 
-Last updated at 11/27/2024, 9:14:15 AM
+Last updated at 11/27/2024, 9:15:20 AM
