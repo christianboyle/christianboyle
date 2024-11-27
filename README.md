@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-its-not-too-late-its-never-too-late)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shRpRnEWHaVeoW5m-dLxzAQ-t500x500.jpg">](https://soundcloud.com/2muchfr/d-v-d-3012)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: 2much 
 
-**Track**: D V D - It's Not Too Late It's Never Too Late
+**Track**: D V D - 3012
 
-Last updated at 11/27/2024, 4:31:34 PM
+Last updated at 11/27/2024, 4:35:40 PM
