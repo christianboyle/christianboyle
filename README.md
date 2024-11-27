@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ak5vD7xfEu6sDX78-ALmeCw-t500x500.jpg">](https://soundcloud.com/dvdmtl/naughty-girl-naughty-quarantine-mix?in=dvdmtl/sets/dvd-fight-or-flight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000638651686-mfuth4-t500x500.jpg">](https://soundcloud.com/dvdmtl/charli-xcx-official-dvd-happy-hardcore-remix-1?in=dvdmtl/sets/dvd-fight-or-flight)
 
 **Artist**: D V D 
 
-**Track**: NAUGHTY GIRL (NAUGHTY QUARANTINE MIX)
+**Track**: Charli XCX - Official (D V D Happy Hardcore Remix)
 
-Last updated at 11/27/2024, 9:16:20 AM
+Last updated at 11/27/2024, 9:17:40 AM
