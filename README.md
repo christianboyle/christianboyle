@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9K6peIVLNnnra8zc-Uf9yvA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/toza-ft-wavehi-hit-the-gas-acid-reign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acCkbNOOC75C2cf1-1KDYEw-t500x500.jpg">](https://soundcloud.com/reinelexrecs/heaven-fell-mysteria-shadow-in-me-feat-tokyo-mandy)
 
-**Artist**: TOZA ft. Wavehi 
+**Artist**: Heaven Fell, Tokyo Mandy 
 
-**Track**: TOZA ft. Wavehi - HIT THE GAS (Acid Reign)
+**Track**: Heaven Fell - Mysteria (Shadow In Me) [feat. Tokyo Mandy]
 
-Last updated at 11/28/2024, 9:23:29 AM
+Last updated at 11/28/2024, 9:53:58 AM
