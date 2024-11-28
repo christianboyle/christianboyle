@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJtwipyOILxHLdY8-zOzpyQ-t500x500.jpg">](https://soundcloud.com/badmouthrecs/joynt-x-zmoke-wait)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vtW5k5Sgd8efuJfY-oiw65g-t500x500.png">](https://soundcloud.com/oxycodonee/underground-revolution)
 
-**Artist**: JOYNT X ZMOKE 
+**Artist**: 締め付け 
 
-**Track**: JOYNT X ZMOKE - WAIT
+**Track**: Underground revolution (☍)
 
-Last updated at 11/28/2024, 9:56:33 AM
+Last updated at 11/28/2024, 9:57:33 AM
