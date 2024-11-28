@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mnYIjoB75GAhUaeZ-a7r9hg-t500x500.jpg">](https://soundcloud.com/kizer10/the-puddle-is-deep?in=kizer10/sets/the-reset-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymYvlBjU26Urh5zU-Ob1OhA-t500x500.png">](https://soundcloud.com/street_ritual/1-basura-bad-boy-muzik?in=street_ritual/sets/imported-dub)
 
-**Artist**: Kizer 
+**Artist**: Basura 
 
-**Track**: the puddle is deep
+**Track**: Basura - Bad Boy Muzik
 
-Last updated at 11/28/2024, 9:02:31 AM
+Last updated at 11/28/2024, 9:21:14 AM
