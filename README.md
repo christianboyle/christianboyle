@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymYvlBjU26Urh5zU-Ob1OhA-t500x500.png">](https://soundcloud.com/street_ritual/1-basura-bad-boy-muzik?in=street_ritual/sets/imported-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8CcPxVq085Ba07e-CLVtWg-t500x500.jpg">](https://soundcloud.com/guerromusic/chase-status-stormzy-backbone-guerro-flip)
 
-**Artist**: Basura 
+**Artist**: GUERRO 
 
-**Track**: Basura - Bad Boy Muzik
+**Track**: Chase & Status, Stormzy - BACKBONE (GUERRO FLIP)
 
-Last updated at 11/28/2024, 9:21:14 AM
+Last updated at 11/28/2024, 9:22:13 AM
