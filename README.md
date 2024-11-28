@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acCkbNOOC75C2cf1-1KDYEw-t500x500.jpg">](https://soundcloud.com/reinelexrecs/heaven-fell-mysteria-shadow-in-me-feat-tokyo-mandy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJtwipyOILxHLdY8-zOzpyQ-t500x500.jpg">](https://soundcloud.com/badmouthrecs/joynt-x-zmoke-wait)
 
-**Artist**: Heaven Fell, Tokyo Mandy 
+**Artist**: JOYNT X ZMOKE 
 
-**Track**: Heaven Fell - Mysteria (Shadow In Me) [feat. Tokyo Mandy]
+**Track**: JOYNT X ZMOKE - WAIT
 
-Last updated at 11/28/2024, 9:53:58 AM
+Last updated at 11/28/2024, 9:56:33 AM
