@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7fwZXlrzCBNO7hqB-ZIFhTw-t500x500.jpg">](https://soundcloud.com/keinobjekt/dj-set-at-fold-london-14042023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKLVoq8FlzCHM45R-YAHfHw-t500x500.jpg">](https://soundcloud.com/bagggggg/isoknock-rl-grime-smack-talk-bagg-remix?in=saxurn/sets/boundary-condition/)
 
-**Artist**: Objekt 
+**Artist**: BAGG 
 
-**Track**: DJ set at FOLD, London, 14.04.2023
+**Track**: ISOKNOCK & RL GRIME - SMACK TALK (BAGG REMIX)
 
-Last updated at 11/28/2024, 11:17:45 AM
+Last updated at 11/28/2024, 11:20:45 AM
