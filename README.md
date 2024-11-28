@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g8CcPxVq085Ba07e-CLVtWg-t500x500.jpg">](https://soundcloud.com/guerromusic/chase-status-stormzy-backbone-guerro-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9K6peIVLNnnra8zc-Uf9yvA-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/toza-ft-wavehi-hit-the-gas-acid-reign)
 
-**Artist**: GUERRO 
+**Artist**: TOZA ft. Wavehi 
 
-**Track**: Chase & Status, Stormzy - BACKBONE (GUERRO FLIP)
+**Track**: TOZA ft. Wavehi - HIT THE GAS (Acid Reign)
 
-Last updated at 11/28/2024, 9:22:13 AM
+Last updated at 11/28/2024, 9:23:29 AM
