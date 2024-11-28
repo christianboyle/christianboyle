@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-its-not-too-late-its-never-too-late)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlQvVPcZoWkowf20-XfkC7Q-t500x500.jpg">](https://soundcloud.com/dvdmtl/beauty-and-a-purple-ipod-nano-d-v-d-mashup)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: D V D 
 
-**Track**: D V D - It's Not Too Late It's Never Too Late
+**Track**: Beauty and A Purple Ipod Nano VS Break Free (D V D Mashup)
 
-Last updated at 11/27/2024, 7:42:24 PM
+Last updated at 11/27/2024, 7:44:44 PM
