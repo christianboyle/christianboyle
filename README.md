@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVa5vM0yoOwJxHtf-CaZuqg-t500x500.jpg">](https://soundcloud.com/jaxxsounds/el-alfa-x-cj-x-cherry-scom-la-mama-de-la-mama-808gong-x-jaxx-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgdtqP52c40w-0-t500x500.jpg">](https://soundcloud.com/ericdoa/song-for-when-the-bar-closes?in=ericdoa/sets/why-suffer-for-us-2)
 
-**Artist**: JAXX 
+**Artist**: ericdoa 
 
-**Track**: El Alfa x CJ x Cherry Scom - La Mamá De La Mamá (808gong X JAXX Flip)
+**Track**: song for when the bar closes
 
-Last updated at 11/29/2024, 9:14:58 AM
+Last updated at 11/29/2024, 9:15:57 AM
