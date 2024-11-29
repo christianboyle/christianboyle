@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0x7gauBhN0CyrG0-v7iX4g-t500x500.png">](https://soundcloud.com/ollyjamesmusic/pawsa-dirty-cash-money-talks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4mu8JKbbG7v9aM4-nVRouw-t500x500.jpg">](https://soundcloud.com/frank-rayo/g11)
 
-**Artist**: Olly James 
+**Artist**: Frank Rayo 
 
-**Track**: PAWSA - Dirty Cash [Money Talks] (Olly James Rework)
+**Track**: EXPLOSION - GrooAve Nov(#11 )
 
-Last updated at 11/29/2024, 9:10:18 AM
+Last updated at 11/29/2024, 9:11:18 AM
