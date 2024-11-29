@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7MADxKeuRfbBkuwZ-nMVebQ-t500x500.jpg">](https://soundcloud.com/dj-shaun-ashley/riot-brothers-ripped-out-shaun-ashley-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
 
-**Artist**: Shaun Ashley 
+**Artist**: MIDNXGHT 
 
-**Track**: Riot Brothers - Ripped Out (Shaun Ashley Remix) (FREE DOWNLOAD)
+**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
 
-Last updated at 11/29/2024, 3:55:39 PM
+Last updated at 11/29/2024, 4:01:10 PM
