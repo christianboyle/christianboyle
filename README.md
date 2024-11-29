@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZDoD4q1uktl-0-t500x500.png">](https://soundcloud.com/pepe108923/jagged-edge)
 
-**Artist**: shinigami 
+**Artist**: Pépe 
 
-**Track**: the captain
+**Track**: Jagged Edge
 
-Last updated at 11/29/2024, 10:27:10 AM
+Last updated at 11/29/2024, 10:29:45 AM
