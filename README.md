@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsZkGewi1lPx6mo2-yznT6A-t500x500.jpg">](https://soundcloud.com/wayveofficial/summertime-sadness-wayve-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain)
 
-**Artist**: WAYVE 
+**Artist**: shinigami 
 
-**Track**: LANA DEL REY - SUMMERTIME SADNESS (WAYVE REMIX)(FREE DL)
+**Track**: the captain
 
-Last updated at 11/29/2024, 9:17:58 AM
+Last updated at 11/29/2024, 9:31:00 AM
