@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Guykwz6pmQMEnxQz-UJTXIg-t500x500.jpg">](https://soundcloud.com/gasoiid/i-wan-u-2-kno)
 
-**Artist**: INNERGATED 
+**Artist**: gasoiid 
 
-**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
+**Track**: i ɯαn u 2 kn0
 
-Last updated at 11/29/2024, 12:59:52 PM
+Last updated at 11/29/2024, 1:06:13 PM
