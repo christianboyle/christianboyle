@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q7g5Uo1IjHJNOqET-oGhVsg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-wanna-rock-d-v-d-hard-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sibJr9g2QmPM8qoN-2jzCfg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-cant-stop-1)
 
 **Artist**: D V D 
 
-**Track**: Just Wanna Rock (D V D Hard Bootleg)
+**Track**: JUST CAN'T STOP
 
-Last updated at 11/29/2024, 11:30:38 AM
+Last updated at 11/29/2024, 11:33:24 AM
