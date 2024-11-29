@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1rgyhQtlTYnpWRA-EwrL6A-t500x500.jpg">](https://soundcloud.com/alioverdrive/die-young-nxc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBO6ieyOvPB7adOg-nsuCtg-t500x500.jpg">](https://soundcloud.com/ultrahighdefinition2001/rude-boy-uhds-baddies-should-take-it-mix-v1)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: UHD 
 
-**Track**: DIE YOUNG
+**Track**: RUDE BOY⋆༺𓆩☠︎︎𓆪༻⋆(UHD´s take it mix) 𓆩𓆪
 
-Last updated at 11/29/2024, 3:42:27 PM
+Last updated at 11/29/2024, 3:46:58 PM
