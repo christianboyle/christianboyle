@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKLVoq8FlzCHM45R-YAHfHw-t500x500.jpg">](https://soundcloud.com/bagggggg/isoknock-rl-grime-smack-talk-bagg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNi9UwmFHU2OknWE-L2he8g-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/no-hero-on-my-mind-ncs-release)
 
-**Artist**: BAGG 
+**Artist**: No Hero 
 
-**Track**: ISOKNOCK & RL GRIME - SMACK TALK (BAGG REMIX)
+**Track**: No Hero - On My Mind [NCS Release]
 
-Last updated at 11/29/2024, 12:05:07 PM
+Last updated at 11/29/2024, 12:07:47 PM
