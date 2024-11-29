@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tO89j2aRUg7eVxyA-oVvzUg-t500x500.jpg">](https://soundcloud.com/naemsofficial/where-have-you-been-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CemvLz3WwxBfqmcJ-O90Ghw-t500x500.jpg">](https://soundcloud.com/ktkrecords/binary-squad-everybody-ktk057)
 
-**Artist**: NAEMS 
+**Artist**: Binary Squad 
 
-**Track**: Rihanna - Where Have You Been (NAEMS REMIX)
+**Track**: Binary Squad - Everybody [KTK057]
 
-Last updated at 11/29/2024, 1:12:13 PM
+Last updated at 11/29/2024, 1:16:09 PM
