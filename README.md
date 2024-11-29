@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tiRnzfA6O8DQ6pI-sC0yRg-t500x500.png">](https://soundcloud.com/djwava/rose-bruno-mars-apt-wava-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JeaY4gtwFhufaNt2-ljqXSA-t500x500.jpg">](https://soundcloud.com/maklamusic/no-dress-code-danth-alex-martin-remix?in=maklamusic/sets/ndcremixes)
 
-**Artist**: WAVA 
+**Artist**: Makla 
 
-**Track**: APT. (WAVA Drum & Bass Remix) 【Free Download】
+**Track**: No Dress Code Ft. AK RENNY [Danth & Alex Martin Remix]
 
-Last updated at 11/29/2024, 9:06:18 AM
+Last updated at 11/29/2024, 9:07:18 AM
