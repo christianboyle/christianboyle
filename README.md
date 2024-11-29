@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pnwlQj7uBtBye8KH-fZP7rw-t500x500.jpg">](https://soundcloud.com/ihateshinigami/only-god-can-tear-us-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain)
 
 **Artist**: shinigami 
 
-**Track**: only god can tear us apart
+**Track**: the captain
 
-Last updated at 11/29/2024, 3:13:45 PM
+Last updated at 11/29/2024, 3:16:21 PM
