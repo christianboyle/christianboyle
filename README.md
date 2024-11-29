@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TG0jCAy7KYRkReyF-NNj4pg-t500x500.jpg">](https://soundcloud.com/theracords/8-ball-the-money-shot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain)
 
-**Artist**: 8 Ball 
+**Artist**: shinigami 
 
-**Track**: 8 Ball - The Money Shot
+**Track**: the captain
 
-Last updated at 11/29/2024, 9:59:44 AM
+Last updated at 11/29/2024, 10:27:10 AM
