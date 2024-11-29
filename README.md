@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TG0jCAy7KYRkReyF-NNj4pg-t500x500.jpg">](https://soundcloud.com/theracords/8-ball-the-money-shot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shRpRnEWHaVeoW5m-dLxzAQ-t500x500.jpg">](https://soundcloud.com/2muchfr/d-v-d-3012)
 
-**Artist**: 8 Ball 
+**Artist**: 2much 
 
-**Track**: 8 Ball - The Money Shot
+**Track**: D V D - 3012
 
-Last updated at 11/29/2024, 3:22:50 PM
+Last updated at 11/29/2024, 3:27:06 PM
