@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03DHgdokhNvlyNih-mTMqFg-t500x500.jpg">](https://soundcloud.com/diegointhedark/evilswag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-54s7jbUSBI0FjzyG-JxqZwQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/craig-mclelland-open-one-eye)
 
-**Artist**: diegointhedark 
+**Artist**: Craig Mclelland 
 
-**Track**: ✰✰  ☹︎ ☹︎ ☹︎ ✧ EVILSWAG Prod Tekea СТИЛЬСТИЛЬСТИЛЬ
+**Track**: Craig Mclelland - Open One Eye
 
-Last updated at 11/29/2024, 12:49:16 PM
+Last updated at 11/29/2024, 12:51:16 PM
