@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shRpRnEWHaVeoW5m-dLxzAQ-t500x500.jpg">](https://soundcloud.com/2muchfr/d-v-d-3012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlQvVPcZoWkowf20-XfkC7Q-t500x500.jpg">](https://soundcloud.com/dvdmtl/beauty-and-a-purple-ipod-nano-d-v-d-mashup)
 
-**Artist**: 2much 
+**Artist**: D V D 
 
-**Track**: D V D - 3012
+**Track**: Beauty and A Purple Ipod Nano VS Break Free (D V D Mashup)
 
-Last updated at 11/29/2024, 2:57:21 PM
+Last updated at 11/29/2024, 3:00:37 PM
