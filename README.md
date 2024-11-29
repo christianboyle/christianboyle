@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNi9UwmFHU2OknWE-L2he8g-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/no-hero-on-my-mind-ncs-release?in=saxurn/sets/boundary-condition/)
 
-**Artist**: shinigami 
+**Artist**: No Hero 
 
-**Track**: the captain
+**Track**: No Hero - On My Mind [NCS Release]
 
-Last updated at 11/29/2024, 10:31:05 AM
+Last updated at 11/29/2024, 10:53:25 AM
