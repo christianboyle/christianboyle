@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmzEccexaJoqSzjV-WKVTzw-t500x500.jpg">](https://soundcloud.com/metaphorecollectif/dj-zvonimir-x-antihero-sol-invictus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usKl5rzOxuhj5N46-aDZN0A-t500x500.jpg">](https://soundcloud.com/jalayamusic/band4band-flip)
 
-**Artist**: METAPHORE COLLECTIF 
+**Artist**: Jalaya 
 
-**Track**: DJ Zvonimir X Antihero - Sol Invictus
+**Track**: Band4Band Flip
 
-Last updated at 11/29/2024, 12:41:40 PM
+Last updated at 11/29/2024, 12:46:11 PM
