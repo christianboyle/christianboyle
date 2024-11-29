@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKLVoq8FlzCHM45R-YAHfHw-t500x500.jpg">](https://soundcloud.com/bagggggg/isoknock-rl-grime-smack-talk-bagg-remix?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
 
-**Artist**: BAGG 
+**Artist**: MIDNXGHT 
 
-**Track**: ISOKNOCK & RL GRIME - SMACK TALK (BAGG REMIX)
+**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
 
-Last updated at 11/28/2024, 11:20:45 AM
+Last updated at 11/29/2024, 8:34:26 AM
