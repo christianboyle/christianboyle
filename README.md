@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlQvVPcZoWkowf20-XfkC7Q-t500x500.jpg">](https://soundcloud.com/dvdmtl/beauty-and-a-purple-ipod-nano-d-v-d-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1rgyhQtlTYnpWRA-EwrL6A-t500x500.jpg">](https://soundcloud.com/alioverdrive/die-young-nxc)
 
-**Artist**: D V D 
+**Artist**: ALI OVERDRIVE 
 
-**Track**: Beauty and A Purple Ipod Nano VS Break Free (D V D Mashup)
+**Track**: DIE YOUNG
 
-Last updated at 11/29/2024, 3:00:37 PM
+Last updated at 11/29/2024, 3:04:57 PM
