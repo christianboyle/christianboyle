@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1rgyhQtlTYnpWRA-EwrL6A-t500x500.jpg">](https://soundcloud.com/alioverdrive/die-young-nxc?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-i-wanna-make-you-move)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: nightcore4totalsluts 
 
-**Track**: DIE YOUNG
+**Track**: D V D - I Wanna Make You Move
 
-Last updated at 11/29/2024, 11:13:37 AM
+Last updated at 11/29/2024, 11:17:12 AM
