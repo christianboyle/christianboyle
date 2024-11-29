@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pnwlQj7uBtBye8KH-fZP7rw-t500x500.jpg">](https://soundcloud.com/ihateshinigami/only-god-can-tear-us-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVa5vM0yoOwJxHtf-CaZuqg-t500x500.jpg">](https://soundcloud.com/jaxxsounds/el-alfa-x-cj-x-cherry-scom-la-mama-de-la-mama-808gong-x-jaxx-flip)
 
-**Artist**: shinigami 
+**Artist**: JAXX 
 
-**Track**: only god can tear us apart
+**Track**: El Alfa x CJ x Cherry Scom - La Mamá De La Mamá (808gong X JAXX Flip)
 
-Last updated at 11/29/2024, 9:13:39 AM
+Last updated at 11/29/2024, 9:14:58 AM
