@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SEqv1i3wpjfRrXUl-ftbqPA-t500x500.jpg">](https://soundcloud.com/tauberecords/angel-rider-birdz-n-beez-taubexoxo7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gw0PeWwHtwqPhzHs-GPFJDw-t500x500.jpg">](https://soundcloud.com/lobsta-b/lobsta-b-dj-g2g-everytime-we-touch-like-a-g6)
 
-**Artist**: 𝗧𝗔𝗨𝗕𝗘 𝗥𝗘𝗖𝗢𝗥𝗗𝗦 
+**Artist**: LOBSTA B 
 
-**Track**: PREMIERE: ANGEL RIDER - BIRDZ N BEEZ [TAUBEXOXO7]
+**Track**: LOBSTA B & DJ G2G - EVERYTIME WE TOUCH LIKE A G6
 
-Last updated at 11/29/2024, 11:47:30 AM
+Last updated at 11/29/2024, 11:50:45 AM
