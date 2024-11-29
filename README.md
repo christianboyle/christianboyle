@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUsCKGa4REymUJLB-ImJzmw-t500x500.jpg">](https://soundcloud.com/nickneumonic/brain-tickler-neumonic-ukg-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsZkGewi1lPx6mo2-yznT6A-t500x500.jpg">](https://soundcloud.com/wayveofficial/summertime-sadness-wayve-remix)
 
-**Artist**: Neumonic 
+**Artist**: WAYVE 
 
-**Track**: AHEE - Brain Tickler (Neumonic UKG Flip)
+**Track**: LANA DEL REY - SUMMERTIME SADNESS (WAYVE REMIX)(FREE DL)
 
-Last updated at 11/29/2024, 9:16:58 AM
+Last updated at 11/29/2024, 9:17:58 AM
