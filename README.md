@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgdtqP52c40w-0-t500x500.jpg">](https://soundcloud.com/ericdoa/song-for-when-the-bar-closes?in=ericdoa/sets/why-suffer-for-us-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUsCKGa4REymUJLB-ImJzmw-t500x500.jpg">](https://soundcloud.com/nickneumonic/brain-tickler-neumonic-ukg-flip)
 
-**Artist**: ericdoa 
+**Artist**: Neumonic 
 
-**Track**: song for when the bar closes
+**Track**: AHEE - Brain Tickler (Neumonic UKG Flip)
 
-Last updated at 11/29/2024, 9:15:57 AM
+Last updated at 11/29/2024, 9:16:58 AM
