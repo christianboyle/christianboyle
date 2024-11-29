@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JeaY4gtwFhufaNt2-ljqXSA-t500x500.jpg">](https://soundcloud.com/maklamusic/no-dress-code-danth-alex-martin-remix?in=maklamusic/sets/ndcremixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2SaYJnzvpf8fmFe-TBxwdw-t500x500.png">](https://soundcloud.com/freejimi/if-i-could-do-it-all-again)
 
-**Artist**: Makla 
+**Artist**: FREExJIMI 
 
-**Track**: No Dress Code Ft. AK RENNY [Danth & Alex Martin Remix]
+**Track**: FREE JIMI - if I could do it all again..
 
-Last updated at 11/29/2024, 9:07:18 AM
+Last updated at 11/29/2024, 9:09:18 AM
