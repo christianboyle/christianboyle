@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tiRnzfA6O8DQ6pI-sC0yRg-t500x500.png">](https://soundcloud.com/djwava/rose-bruno-mars-apt-wava-dnb-remix)
 
-**Artist**: MIDNXGHT 
+**Artist**: WAVA 
 
-**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
+**Track**: APT. (WAVA Drum & Bass Remix) 【Free Download】
 
-Last updated at 11/29/2024, 9:05:18 AM
+Last updated at 11/29/2024, 9:06:18 AM
