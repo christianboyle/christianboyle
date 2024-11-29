@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGNBD3JSXAB1mjKN-yVpItA-t500x500.jpg">](https://soundcloud.com/jalayamusic/sexxy-red-skeeyee-flip-jalaya-x-myrias)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HcdcNWTsoY1r0XBW-NamP4g-t500x500.jpg">](https://soundcloud.com/jessebloch/michelle-branch-everywhere-jesse-bloch-remix)
 
-**Artist**: Jalaya 
+**Artist**: Jesse Bloch 
 
-**Track**: SEXYY RED - SKEEYEE (Jalaya X MYRIAS FLIP)
+**Track**: Michelle Branch - Everywhere (Jesse Bloch Remix)
 
-Last updated at 11/29/2024, 1:20:09 PM
+Last updated at 11/29/2024, 1:23:29 PM
