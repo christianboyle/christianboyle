@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhSY4dew5HC4bXYq-URz2qw-t500x500.png">](https://soundcloud.com/pryzmsmusic/timelessshawty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q2F0vFXCrSvaXBaL-nrANVw-t500x500.jpg">](https://soundcloud.com/innergatetechno/premiere-angel-cannon-lie-to-me-gomb84)
 
-**Artist**: PRYZMS 
+**Artist**: INNERGATED 
 
-**Track**: THE WEEKND, PLAYBOI CARTI - TIMELESS (PRYZMS FLIP)
+**Track**: Premiere: ANGEL CANNON - Lie To Me [GOMB84]
 
-Last updated at 11/29/2024, 12:56:27 PM
+Last updated at 11/29/2024, 12:59:52 PM
