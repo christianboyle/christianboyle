@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxjXywzME1CXkvCi-nY2RkA-t500x500.jpg">](https://soundcloud.com/scott-hoy/scott-hoy-miricle-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlZeqdRxtFOeoFQc-Qh5KiQ-t500x500.jpg">](https://soundcloud.com/iamtalons/talons-jenn-yumm-milk-tea)
 
-**Artist**: Scott Hoy 
+**Artist**: TALONS & Jenn Yumm 
 
-**Track**: Scott Hoy -Miracle
+**Track**: TALONS & Jenn Yumm - Milk Tea
 
-Last updated at 11/30/2024, 11:44:44 AM
+Last updated at 11/30/2024, 11:46:30 AM
