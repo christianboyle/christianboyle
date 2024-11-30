@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DJl9eS4gCQaCbCtM-r4rs4A-t500x500.png">](https://soundcloud.com/brdnofficial/9ed10134-6bc7-4ff2-98a9-f5d74ef2cd1e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ei9ydGI9XYgGmfYG-2Migfw-t500x500.png">](https://soundcloud.com/soundsoundcologne/entasia-rhythm-of-the-night)
 
-**Artist**: BRDN 
+**Artist**: Entasia 
 
-**Track**: Knock2 - feel U luv Me (BRDN FLIP) [Free Download]
+**Track**: Entasia - Rhythm Of The Night (FREE DOWNLOAD)
 
-Last updated at 11/30/2024, 1:32:44 PM
+Last updated at 11/30/2024, 1:33:44 PM
