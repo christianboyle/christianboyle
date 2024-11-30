@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKLVoq8FlzCHM45R-YAHfHw-t500x500.jpg">](https://soundcloud.com/bagggggg/isoknock-rl-grime-smack-talk-bagg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7MADxKeuRfbBkuwZ-nMVebQ-t500x500.jpg">](https://soundcloud.com/dj-shaun-ashley/riot-brothers-ripped-out-shaun-ashley-remix)
 
-**Artist**: BAGG 
+**Artist**: Shaun Ashley 
 
-**Track**: ISOKNOCK & RL GRIME - SMACK TALK (BAGG REMIX)
+**Track**: Riot Brothers - Ripped Out (Shaun Ashley Remix) (FREE DOWNLOAD)
 
-Last updated at 11/29/2024, 4:06:45 PM
+Last updated at 11/30/2024, 9:04:39 AM
