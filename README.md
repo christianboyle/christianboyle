@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4nthcd7s3wDiIU3-BEeQzw-t500x500.jpg">](https://soundcloud.com/sumsimpl/lik-lik-lik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RxjXywzME1CXkvCi-nY2RkA-t500x500.jpg">](https://soundcloud.com/scott-hoy/scott-hoy-miricle-1)
 
-**Artist**: sum.simpl 
+**Artist**: Scott Hoy 
 
-**Track**: LIK LIK LIK
+**Track**: Scott Hoy -Miracle
 
-Last updated at 11/30/2024, 11:43:14 AM
+Last updated at 11/30/2024, 11:44:44 AM
