@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h4OaptfD2wcTBdZE-DBok7w-t500x500.jpg">](https://soundcloud.com/cure97/peleo?in=cure97/sets/cure97-peleo-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ymYvlBjU26Urh5zU-Ob1OhA-t500x500.png">](https://soundcloud.com/street_ritual/1-basura-bad-boy-muzik?in=street_ritual/sets/imported-dub)
 
-**Artist**: CURE97 
+**Artist**: Basura 
 
-**Track**: PELEO
+**Track**: Basura - Bad Boy Muzik
 
-Last updated at 11/30/2024, 11:39:09 AM
+Last updated at 11/30/2024, 11:40:09 AM
