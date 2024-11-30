@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cm9DkBdIzJkLofZf-4D8mxA-t500x500.png">](https://soundcloud.com/1excity/gun-and-mags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAE0yNHzKVJmky60-zB2zFA-t500x500.jpg">](https://soundcloud.com/aychofficial/key-glock-pride-aych-flip-free-dl)
 
-**Artist**: excity 
+**Artist**: AYCH 
 
-**Track**: gun and mags
+**Track**: KEY GLOCK - PRIDE (AYCH FLIP)
 
-Last updated at 11/30/2024, 11:41:09 AM
+Last updated at 11/30/2024, 11:42:09 AM
