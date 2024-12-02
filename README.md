@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4nthcd7s3wDiIU3-BEeQzw-t500x500.jpg">](https://soundcloud.com/sumsimpl/lik-lik-lik?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqF0TEbCGxPU4SaQ-xysNWg-t500x500.png">](https://soundcloud.com/acyanmusic/avicii-levels-acyan-flip?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: sum.simpl 
+**Artist**: Acyan 
 
-**Track**: LIK LIK LIK
+**Track**: Avicii - Levels (Acyan Flip)
 
-Last updated at 12/2/2024, 1:30:24 PM
+Last updated at 12/2/2024, 2:39:24 PM
