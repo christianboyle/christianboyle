@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4nthcd7s3wDiIU3-BEeQzw-t500x500.jpg">](https://soundcloud.com/sumsimpl/lik-lik-lik?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAE0yNHzKVJmky60-zB2zFA-t500x500.jpg">](https://soundcloud.com/aychofficial/key-glock-pride-aych-flip-free-dl?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: sum.simpl 
+**Artist**: AYCH 
 
-**Track**: LIK LIK LIK
+**Track**: KEY GLOCK - PRIDE (AYCH FLIP)
 
-Last updated at 12/2/2024, 11:00:42 AM
+Last updated at 12/2/2024, 11:03:42 AM
