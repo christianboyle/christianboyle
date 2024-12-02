@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TyHFo3qa63paeaw-nTbuCg-t500x500.jpg">](https://soundcloud.com/ihateshinigami/the-captain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yDoxgiJHgnbpMK2-zxBwAA-t500x500.jpg">](https://soundcloud.com/wearelostkings/banquet-remix-v1)
 
-**Artist**: shinigami 
+**Artist**: Lost Kings 
 
-**Track**: the captain
+**Track**: Bloc Party - Banquet (Lost Kings Remix)
 
-Last updated at 12/2/2024, 7:29:25 AM
+Last updated at 12/2/2024, 8:35:28 AM
