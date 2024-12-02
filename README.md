@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7totlyyZmfSkLT0-8mOMQA-t500x500.png">](https://soundcloud.com/lunchbox-candy/surf2glory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvDCBe8AXC9tzVTh-xMBy7A-t500x500.jpg">](https://soundcloud.com/teedeejayyy/4e852153-87b0-4f3a-b8f9-6a1f99192684)
 
-**Artist**: Surf 2 Glory 
+**Artist**: TDJ & Krampf 
 
-**Track**: Lunchbox Candy | The September Issues | Surf 2 Glory
+**Track**: TDJ, Krampf - Nova
 
-Last updated at 12/2/2024, 8:53:44 AM
+Last updated at 12/2/2024, 8:54:54 AM
