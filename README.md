@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NT0Cu6Jxnipuj03C-q8gEAQ-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-bomber-last-christmas?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cvDKyl5veiiwc7zz-QVTwvw-t500x500.jpg">](https://soundcloud.com/deodor/goldenframe?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: Luca Testa 
+**Artist**: deodora 
 
-**Track**: Luca Testa & Bomber - Last Christmas (Hypertechno)
+**Track**: golden frame (drma x loverace)
 
-Last updated at 12/2/2024, 12:51:38 PM
+Last updated at 12/2/2024, 12:53:44 PM
