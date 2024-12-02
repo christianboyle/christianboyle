@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shRpRnEWHaVeoW5m-dLxzAQ-t500x500.jpg">](https://soundcloud.com/2muchfr/d-v-d-3012?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNi9UwmFHU2OknWE-L2he8g-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/no-hero-on-my-mind-ncs-release?in=saxurn/sets/boundary-condition/)
 
-**Artist**: 2much 
+**Artist**: No Hero 
 
-**Track**: D V D - 3012
+**Track**: No Hero - On My Mind [NCS Release]
 
-Last updated at 12/2/2024, 10:20:19 AM
+Last updated at 12/2/2024, 10:22:40 AM
