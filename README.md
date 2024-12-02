@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76Dmk4Rg3xgcUZVB-hX8KCQ-t500x500.jpg">](https://soundcloud.com/tobago-tracks/june)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ia8JPfJlNAJzkFak-ijicDw-t500x500.jpg">](https://soundcloud.com/impressumrecordings/script-momentum)
 
-**Artist**: Chareth Cutestory 
+**Artist**: SCRIPT 
 
-**Track**: Chareth Cutestory - June
+**Track**: SCRIPT - Momentum OUT 6th Dec
 
-Last updated at 12/2/2024, 9:00:50 AM
+Last updated at 12/2/2024, 9:03:55 AM
