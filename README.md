@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eo8BpxvI4tw4evbu-VD1yjg-t500x500.jpg">](https://soundcloud.com/channeldigital/come-clean-33?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-23e4XHzzazmZMf8f-74oouA-t500x500.jpg">](https://soundcloud.com/mikesrevenge/aap-rocky-praise-the-lord-da-shine-ft-skepta-mikes-revenge-remix)
 
-**Artist**: channel digital 
+**Artist**: Mikes Revenge 
 
-**Track**: come clean <33
+**Track**: A$AP Rocky - Praise The Lord (Da Shine) Ft. Skepta (Mikes Revenge Remix)
 
-Last updated at 12/2/2024, 11:16:18 AM
+Last updated at 12/2/2024, 11:29:49 AM
