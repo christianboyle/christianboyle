@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiPSFZyffZ8sUBHb-crRRvA-t500x500.png">](https://soundcloud.com/komplvintmusic/komplvint-fuck-it-up-bitch?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-23e4XHzzazmZMf8f-74oouA-t500x500.jpg">](https://soundcloud.com/mikesrevenge/aap-rocky-praise-the-lord-da-shine-ft-skepta-mikes-revenge-remix)
 
-**Artist**: KOMPLVINT 
+**Artist**: Mikes Revenge 
 
-**Track**: KOMPLVINT - FUCK IT UP BITCH
+**Track**: A$AP Rocky - Praise The Lord (Da Shine) Ft. Skepta (Mikes Revenge Remix)
 
-Last updated at 12/2/2024, 1:14:07 PM
+Last updated at 12/2/2024, 1:16:48 PM
