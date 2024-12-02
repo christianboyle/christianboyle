@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yDoxgiJHgnbpMK2-zxBwAA-t500x500.jpg">](https://soundcloud.com/wearelostkings/banquet-remix-v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7totlyyZmfSkLT0-8mOMQA-t500x500.png">](https://soundcloud.com/lunchbox-candy/surf2glory)
 
-**Artist**: Lost Kings 
+**Artist**: Surf 2 Glory 
 
-**Track**: Bloc Party - Banquet (Lost Kings Remix)
+**Track**: Lunchbox Candy | The September Issues | Surf 2 Glory
 
-Last updated at 12/2/2024, 8:35:28 AM
+Last updated at 12/2/2024, 8:53:44 AM
