@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0hTYr2tmE8xfmH9-Kr7xEA-t500x500.jpg">](https://soundcloud.com/domerrz/feelings)
 
-**Artist**: victxrw 
+**Artist**: dom 
 
-**Track**: fluorescent (lullaby + victxrw)
+**Track**: feelings (ddertbag)
 
-Last updated at 12/2/2024, 3:36:52 PM
+Last updated at 12/2/2024, 3:40:32 PM
