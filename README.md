@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CdsW6ONDJ9cT-0-t500x500.jpg">](https://soundcloud.com/inquizzy/rave-dream?in=saxurn/sets/1ucy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlSh6DspOul8pB5-AcwDLg-t500x500.png">](https://soundcloud.com/crumbpitmusic/everythingiscrumbmantic?in=saxurn/sets/1ucy)
 
-**Artist**: Inquisitive, Tatsunoshin & Slenderino 
+**Artist**: Crumb Pit 
 
-**Track**: Rave Dream
+**Track**: charli xcx - everything is romantic (crumb pit remix)
 
-Last updated at 12/2/2024, 10:00:38 AM
+Last updated at 12/2/2024, 10:03:18 AM
