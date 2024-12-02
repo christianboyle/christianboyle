@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pnwlQj7uBtBye8KH-fZP7rw-t500x500.jpg">](https://soundcloud.com/ihateshinigami/only-god-can-tear-us-apart?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiPSFZyffZ8sUBHb-crRRvA-t500x500.png">](https://soundcloud.com/komplvintmusic/komplvint-fuck-it-up-bitch?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: shinigami 
+**Artist**: KOMPLVINT 
 
-**Track**: only god can tear us apart
+**Track**: KOMPLVINT - FUCK IT UP BITCH
 
-Last updated at 12/2/2024, 1:11:37 PM
+Last updated at 12/2/2024, 1:14:07 PM
