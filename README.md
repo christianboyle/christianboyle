@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W5ZrjzWOdKUSxU5Q-Or9hzw-t500x500.png">](https://soundcloud.com/daniel-smith-968765759/the-lonesome-adventure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: DJDABZIE,THE LONESOME HOWL,ANGELS AND AIRWAVES 
+**Artist**: victxrw 
 
-**Track**: THE LONESOME ADVENTURE
+**Track**: fluorescent (lullaby + victxrw)
 
-Last updated at 12/2/2024, 3:42:52 PM
+Last updated at 12/2/2024, 3:44:22 PM
