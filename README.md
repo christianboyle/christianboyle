@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rNi9UwmFHU2OknWE-L2he8g-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/no-hero-on-my-mind-ncs-release?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: No Hero 
+**Artist**: victxrw 
 
-**Track**: No Hero - On My Mind [NCS Release]
+**Track**: fluorescent (lullaby + victxrw)
 
-Last updated at 12/2/2024, 10:22:40 AM
+Last updated at 12/2/2024, 10:26:33 AM
