@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiQ1TBITlbO2XQVz-b6tVyA-t500x500.png">](https://soundcloud.com/tnt_ofc/shuffa-want-my-luv-tnt023?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: victxrw 
+**Artist**: TNT 
 
-**Track**: fluorescent (lullaby + victxrw)
+**Track**: SHUFFA – Want My Luv [TNT023]
 
-Last updated at 12/2/2024, 10:26:33 AM
+Last updated at 12/2/2024, 10:51:01 AM
