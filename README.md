@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1rgyhQtlTYnpWRA-EwrL6A-t500x500.jpg">](https://soundcloud.com/alioverdrive/die-young-nxc?in=saxurn/sets/boundary-condition/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sibJr9g2QmPM8qoN-2jzCfg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-cant-stop-1?in=saxurn/sets/boundary-condition/)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: D V D 
 
-**Track**: DIE YOUNG
+**Track**: JUST CAN'T STOP
 
-Last updated at 12/2/2024, 9:30:20 AM
+Last updated at 12/2/2024, 9:34:45 AM
