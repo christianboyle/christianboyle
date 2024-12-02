@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-23e4XHzzazmZMf8f-74oouA-t500x500.jpg">](https://soundcloud.com/mikesrevenge/aap-rocky-praise-the-lord-da-shine-ft-skepta-mikes-revenge-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiQ1TBITlbO2XQVz-b6tVyA-t500x500.png">](https://soundcloud.com/tnt_ofc/shuffa-want-my-luv-tnt023?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: Mikes Revenge 
+**Artist**: TNT 
 
-**Track**: A$AP Rocky - Praise The Lord (Da Shine) Ft. Skepta (Mikes Revenge Remix)
+**Track**: SHUFFA – Want My Luv [TNT023]
 
-Last updated at 12/2/2024, 1:16:48 PM
+Last updated at 12/2/2024, 1:20:43 PM
