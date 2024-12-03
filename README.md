@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3rWNJ3WxhJFTosr-FU0uIg-t500x500.jpg">](https://soundcloud.com/a-kydos/storm-of-euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mt6yHycwTuWycSJH-FihzTA-t500x500.jpg">](https://soundcloud.com/1opgloboyz/1opgloryboyz-three00)
 
-**Artist**: A-Kydos 
+**Artist**: 1opgloryboyz [ARCHIVE] 
 
-**Track**: Storm of Euphoria
+**Track**: 1opgloryboyz - Three00
 
-Last updated at 12/3/2024, 11:47:27 AM
+Last updated at 12/3/2024, 11:56:15 AM
