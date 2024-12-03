@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-deyWLQzpPKGmJaM7-jT9E7w-t500x500.png">](https://soundcloud.com/waveblades/003-gothblades-yell-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3rWNJ3WxhJFTosr-FU0uIg-t500x500.jpg">](https://soundcloud.com/a-kydos/storm-of-euphoria)
 
-**Artist**: 𝕎𝔸𝕍𝔼𝔹𝕃𝔸𝔻𝔼𝕊 
+**Artist**: A-Kydos 
 
-**Track**: #003 | GOTHBLADES | YELL. | MIX
+**Track**: Storm of Euphoria
 
-Last updated at 12/3/2024, 11:45:52 AM
+Last updated at 12/3/2024, 11:47:27 AM
