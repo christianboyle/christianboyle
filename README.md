@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NT0Cu6Jxnipuj03C-q8gEAQ-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-bomber-last-christmas?in=saxurn/sets/nnn-2024-naughty)
 
-**Artist**: victxrw 
+**Artist**: Luca Testa 
 
-**Track**: fluorescent (lullaby + victxrw)
+**Track**: Luca Testa & Bomber - Last Christmas (Hypertechno)
 
-Last updated at 12/3/2024, 7:06:29 AM
+Last updated at 12/3/2024, 7:19:58 AM
