@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4nthcd7s3wDiIU3-BEeQzw-t500x500.jpg">](https://soundcloud.com/sumsimpl/lik-lik-lik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent?in=saxurn/sets/nnn-2024-naughty)
 
-**Artist**: sum.simpl 
+**Artist**: victxrw 
 
-**Track**: LIK LIK LIK
+**Track**: fluorescent (lullaby + victxrw)
 
-Last updated at 12/3/2024, 6:56:46 AM
+Last updated at 12/3/2024, 7:04:15 AM
