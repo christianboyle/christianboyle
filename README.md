@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmMl0mmiWSfuUYY-nEqBUw-t500x500.jpg">](https://soundcloud.com/djthera/dj-thera-the-only-one-feat-elyn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-deyWLQzpPKGmJaM7-jT9E7w-t500x500.png">](https://soundcloud.com/waveblades/003-gothblades-yell-mix)
 
-**Artist**: Dj Thera 
+**Artist**: 𝕎𝔸𝕍𝔼𝔹𝕃𝔸𝔻𝔼𝕊 
 
-**Track**: Dj Thera - The Only One feat. Elyn
+**Track**: #003 | GOTHBLADES | YELL. | MIX
 
-Last updated at 12/3/2024, 10:36:58 AM
+Last updated at 12/3/2024, 11:45:52 AM
