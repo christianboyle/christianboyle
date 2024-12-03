@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1rgyhQtlTYnpWRA-EwrL6A-t500x500.jpg">](https://soundcloud.com/alioverdrive/die-young-nxc?in=saxurn/sets/nnn-2024-nice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sibJr9g2QmPM8qoN-2jzCfg-t500x500.jpg">](https://soundcloud.com/dvdmtl/just-cant-stop-1?in=saxurn/sets/nnn-2024-nice)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: D V D 
 
-**Track**: DIE YOUNG
+**Track**: JUST CAN'T STOP
 
-Last updated at 12/3/2024, 8:48:46 AM
+Last updated at 12/3/2024, 8:53:11 AM
