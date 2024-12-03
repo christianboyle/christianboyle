@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmMl0mmiWSfuUYY-nEqBUw-t500x500.jpg">](https://soundcloud.com/djthera/dj-thera-the-only-one-feat-elyn)
 
-**Artist**: victxrw 
+**Artist**: Dj Thera 
 
-**Track**: fluorescent (lullaby + victxrw)
+**Track**: Dj Thera - The Only One feat. Elyn
 
-Last updated at 12/3/2024, 9:04:22 AM
+Last updated at 12/3/2024, 9:07:28 AM
