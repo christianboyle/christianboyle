@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CK8GwvCp4qymILMF-LrYwwg-t500x500.png">](https://soundcloud.com/highcaliberrecs/gaby-bau-battle-of-nightmares)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUzLTpXGqiL8Kvc4-v1VeJA-t500x500.jpg">](https://soundcloud.com/cep-records/sapequinha-ft-ddsv-cep011)
 
-**Artist**: Gaby Bau 
+**Artist**: SZG 
 
-**Track**: Gaby Bau - Battle Of Nightmares (FREE DOWNLOAD)
+**Track**: Sapequinha (ft. DDSV) [CEP011]
 
-Last updated at 12/3/2024, 8:36:28 PM
+Last updated at 12/3/2024, 8:37:43 PM
