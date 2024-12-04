@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008?in=saxurn/sets/nnn-2024-nice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TG0jCAy7KYRkReyF-NNj4pg-t500x500.jpg">](https://soundcloud.com/theracords/8-ball-the-money-shot?in=saxurn/sets/nnn-2024-nice)
 
-**Artist**: MIDNXGHT 
+**Artist**: 8 Ball 
 
-**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
+**Track**: 8 Ball - The Money Shot
 
-Last updated at 12/4/2024, 10:01:17 AM
+Last updated at 12/4/2024, 11:27:14 AM
