@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mt6yHycwTuWycSJH-FihzTA-t500x500.jpg">](https://soundcloud.com/1opgloboyz/1opgloryboyz-three00)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0zcdzcOmRJO7QJu-1BBXDQ-t500x500.jpg">](https://soundcloud.com/gawmmusic/flume-never-be-like-you-gawm-flip)
 
-**Artist**: 1opgloryboyz [ARCHIVE] 
+**Artist**: GAWM 
 
-**Track**: 1opgloryboyz - Three00
+**Track**: FLUME - Never Be Like You (GAWM FLIP)
 
-Last updated at 12/3/2024, 7:52:53 PM
+Last updated at 12/3/2024, 8:01:49 PM
