@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NT0Cu6Jxnipuj03C-q8gEAQ-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-bomber-last-christmas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiPSFZyffZ8sUBHb-crRRvA-t500x500.png">](https://soundcloud.com/komplvintmusic/komplvint-fuck-it-up-bitch)
 
-**Artist**: Luca Testa 
+**Artist**: KOMPLVINT 
 
-**Track**: Luca Testa & Bomber - Last Christmas (Hypertechno)
+**Track**: KOMPLVINT - FUCK IT UP BITCH
 
-Last updated at 12/3/2024, 8:55:15 PM
+Last updated at 12/3/2024, 8:57:20 PM
