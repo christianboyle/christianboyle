@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUzLTpXGqiL8Kvc4-v1VeJA-t500x500.jpg">](https://soundcloud.com/cep-records/sapequinha-ft-ddsv-cep011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3rWNJ3WxhJFTosr-FU0uIg-t500x500.jpg">](https://soundcloud.com/a-kydos/storm-of-euphoria)
 
-**Artist**: SZG 
+**Artist**: A-Kydos 
 
-**Track**: Sapequinha (ft. DDSV) [CEP011]
+**Track**: Storm of Euphoria
 
-Last updated at 12/3/2024, 8:37:43 PM
+Last updated at 12/3/2024, 8:38:44 PM
