@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAE0yNHzKVJmky60-zB2zFA-t500x500.jpg">](https://soundcloud.com/aychofficial/key-glock-pride-aych-flip-free-dl?in=saxurn/sets/nnn-2024-naughty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqF0TEbCGxPU4SaQ-xysNWg-t500x500.png">](https://soundcloud.com/acyanmusic/avicii-levels-acyan-flip?in=saxurn/sets/nnn-2024-naughty)
 
-**Artist**: AYCH 
+**Artist**: Acyan 
 
-**Track**: KEY GLOCK - PRIDE (AYCH FLIP)
+**Track**: Avicii - Levels (Acyan Flip)
 
-Last updated at 12/4/2024, 9:07:53 AM
+Last updated at 12/4/2024, 9:11:18 AM
