@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CcAzkdWgzxpnO4H2-z4Bd6Q-t500x500.png">](https://soundcloud.com/iamusick/nobodyelse-iamusickflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LMBoSspw5JGsy9RN-58cbAA-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/beyonce-diva-star-monster-flip)
 
-**Artist**: Iamusick 
+**Artist**: Star Monster 
 
-**Track**: Lyny-Nobody Else (iamusick flip)
+**Track**: Beyonce- Diva {Star Monster Flip}
 
-Last updated at 12/3/2024, 8:05:52 PM
+Last updated at 12/3/2024, 8:07:27 PM
