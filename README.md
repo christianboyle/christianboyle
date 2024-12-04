@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0zcdzcOmRJO7QJu-1BBXDQ-t500x500.jpg">](https://soundcloud.com/gawmmusic/flume-never-be-like-you-gawm-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LzYCcylPmyCMfvZA-sXievg-t500x500.jpg">](https://soundcloud.com/sonoroussoundsofficial/lizdek-sonorous-id)
 
-**Artist**: GAWM 
+**Artist**: Sonorous 
 
-**Track**: FLUME - Never Be Like You (GAWM FLIP)
+**Track**: Lizdek & Sonorous - DELIRIUM
 
-Last updated at 12/3/2024, 8:02:51 PM
+Last updated at 12/3/2024, 8:03:56 PM
