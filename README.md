@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiQ1TBITlbO2XQVz-b6tVyA-t500x500.png">](https://soundcloud.com/tnt_ofc/shuffa-want-my-luv-tnt023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NT0Cu6Jxnipuj03C-q8gEAQ-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-bomber-last-christmas)
 
-**Artist**: TNT 
+**Artist**: Luca Testa 
 
-**Track**: SHUFFA – Want My Luv [TNT023]
+**Track**: Luca Testa & Bomber - Last Christmas (Hypertechno)
 
-Last updated at 12/5/2024, 9:44:41 AM
+Last updated at 12/5/2024, 9:50:22 AM
