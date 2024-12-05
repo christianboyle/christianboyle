@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqF0TEbCGxPU4SaQ-xysNWg-t500x500.png">](https://soundcloud.com/acyanmusic/avicii-levels-acyan-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eo8BpxvI4tw4evbu-VD1yjg-t500x500.jpg">](https://soundcloud.com/channeldigital/come-clean-33)
 
-**Artist**: Acyan 
+**Artist**: channel digital 
 
-**Track**: Avicii - Levels (Acyan Flip)
+**Track**: come clean <33
 
-Last updated at 12/5/2024, 11:57:12 AM
+Last updated at 12/5/2024, 12:00:58 PM
