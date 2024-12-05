@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiQ1TBITlbO2XQVz-b6tVyA-t500x500.png">](https://soundcloud.com/tnt_ofc/shuffa-want-my-luv-tnt023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gm1VU2vrhHgKhCOM-emBNog-t500x500.jpg">](https://soundcloud.com/cabxdm/earthquake-cab-remix)
 
-**Artist**: TNT 
+**Artist**: cab 
 
-**Track**: SHUFFA – Want My Luv [TNT023]
+**Track**: EARTHQUAKE (cab remix)
 
-Last updated at 12/5/2024, 9:20:34 AM
+Last updated at 12/5/2024, 9:26:04 AM
