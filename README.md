@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDwAt0sUMMtVo1S5-ImVmug-t500x500.png">](https://soundcloud.com/hushpuppymusic/hushpuppy-girls-in-the-front)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmMl0mmiWSfuUYY-nEqBUw-t500x500.jpg">](https://soundcloud.com/djthera/dj-thera-the-only-one-feat-elyn)
 
-**Artist**: Hushpuppy 
+**Artist**: Dj Thera 
 
-**Track**: Girls in the Front
+**Track**: Dj Thera - The Only One feat. Elyn
 
-Last updated at 12/5/2024, 12:14:49 PM
+Last updated at 12/5/2024, 12:18:29 PM
