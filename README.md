@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmMl0mmiWSfuUYY-nEqBUw-t500x500.jpg">](https://soundcloud.com/djthera/dj-thera-the-only-one-feat-elyn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzPYOCFHyBtB0GTW-iUz19w-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/premiere-midnxght-static-motion-original-mix-sdf008)
 
-**Artist**: Dj Thera 
+**Artist**: MIDNXGHT 
 
-**Track**: Dj Thera - The Only One feat. Elyn
+**Track**: [PREMIERE] MIDNXGHT - Static Motion (Original Mix) [SDF008]
 
-Last updated at 12/5/2024, 12:18:29 PM
+Last updated at 12/5/2024, 4:53:54 PM
