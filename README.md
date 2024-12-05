@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KtJg9IPGtVm9rtc-dr2fDg-t500x500.jpg">](https://soundcloud.com/dings-rausch/streamline-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gm1VU2vrhHgKhCOM-emBNog-t500x500.jpg">](https://soundcloud.com/cabxdm/earthquake-cab-remix)
 
-**Artist**: DJ Dings & Tim Rausch 
+**Artist**: cab 
 
-**Track**: Streamline
+**Track**: EARTHQUAKE (cab remix)
 
-Last updated at 12/5/2024, 9:28:04 AM
+Last updated at 12/5/2024, 9:32:25 AM
