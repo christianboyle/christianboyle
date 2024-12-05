@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gm1VU2vrhHgKhCOM-emBNog-t500x500.jpg">](https://soundcloud.com/cabxdm/earthquake-cab-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQihNx26dz3j7pc3-xNzfQw-t500x500.jpg">](https://soundcloud.com/belavie/turn-the-tide)
 
-**Artist**: cab 
+**Artist**: Bélavie 
 
-**Track**: EARTHQUAKE (cab remix)
+**Track**: TURN THE TIDE | free dl
 
-Last updated at 12/5/2024, 8:35:49 AM
+Last updated at 12/5/2024, 8:37:50 AM
