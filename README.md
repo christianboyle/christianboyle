@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZDoD4q1uktl-0-t500x500.png">](https://soundcloud.com/pepe108923/jagged-edge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TG0jCAy7KYRkReyF-NNj4pg-t500x500.jpg">](https://soundcloud.com/theracords/8-ball-the-money-shot)
 
-**Artist**: Pépe 
+**Artist**: 8 Ball 
 
-**Track**: Jagged Edge
+**Track**: 8 Ball - The Money Shot
 
-Last updated at 12/5/2024, 12:08:03 PM
+Last updated at 12/5/2024, 12:12:14 PM
