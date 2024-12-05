@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NT0Cu6Jxnipuj03C-q8gEAQ-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-bomber-last-christmas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final)
 
-**Artist**: Luca Testa 
+**Artist**: AMAGII 
 
-**Track**: Luca Testa & Bomber - Last Christmas (Hypertechno)
+**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
 
-Last updated at 12/5/2024, 9:50:22 AM
+Last updated at 12/5/2024, 11:18:24 AM
