@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/st015-jane-for-the-hardcore)
 
-**Artist**: victxrw 
+**Artist**: JANE 
 
-**Track**: fluorescent (lullaby + victxrw)
+**Track**: [ST015] JANE - For The Hardcore (Radio Edit)
 
-Last updated at 12/5/2024, 9:00:22 AM
+Last updated at 12/5/2024, 9:04:02 AM
