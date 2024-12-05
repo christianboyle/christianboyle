@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eo8BpxvI4tw4evbu-VD1yjg-t500x500.jpg">](https://soundcloud.com/channeldigital/come-clean-33)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pnwlQj7uBtBye8KH-fZP7rw-t500x500.jpg">](https://soundcloud.com/ihateshinigami/only-god-can-tear-us-apart)
 
-**Artist**: channel digital 
+**Artist**: shinigami 
 
-**Track**: come clean <33
+**Track**: only god can tear us apart
 
-Last updated at 12/5/2024, 12:00:58 PM
+Last updated at 12/5/2024, 12:03:13 PM
