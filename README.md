@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/st015-jane-for-the-hardcore)
 
-**Artist**: AMAGII 
+**Artist**: JANE 
 
-**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
+**Track**: [ST015] JANE - For The Hardcore (Radio Edit)
 
-Last updated at 12/5/2024, 11:18:24 AM
+Last updated at 12/5/2024, 11:21:59 AM
