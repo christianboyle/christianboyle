@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pa8UUneRv6aezS7G-uE10Pg-t500x500.jpg">](https://soundcloud.com/mixmag-1/premiere-gyrofield-a-nymph)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBr4azKUL14kXin1-tzSWLw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/mc-bugsy-sopranos-2024-residency-official-audio)
 
-**Artist**: Mixmag, gyrofield 
+**Artist**: Sopranos Bounce 
 
-**Track**: Premiere: gyrofield 'A Nymph'
+**Track**: MC Bugsy - Sopranos 2024 Residency (Official Audio)
 
-Last updated at 12/5/2024, 7:35:24 AM
+Last updated at 12/5/2024, 7:37:36 AM
