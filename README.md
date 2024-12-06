@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-09kGaHwW9zLeLzam-TUXvAw-t500x500.png">](https://soundcloud.com/dissolve4/enter?in=dissolve4/sets/luc021-neko-breaks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUWlWftSK1XX3wHy-2C8zNg-t500x500.jpg">](https://soundcloud.com/dnzrecords/paco-garcia-dj-oskar-i-wanna-dance-with-somebody)
 
-**Artist**: DJ Kuroneko 
+**Artist**: Paco Garcia & DJ Oskar 
 
-**Track**: enter
+**Track**: Paco Garcia & DJ Oskar - I Wanna Dance With Somebody
 
-Last updated at 12/6/2024, 8:27:21 AM
+Last updated at 12/6/2024, 8:28:21 AM
