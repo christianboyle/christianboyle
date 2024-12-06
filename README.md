@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brvNII65Bcum-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/crazy-love?in=saxurn/sets/waverace/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000531533046-a3v4f7-t500x500.jpg">](https://soundcloud.com/dvdmtl/blizzard-1?in=saxurn/sets/waverace/)
 
-**Artist**: Kaylene Sc@r 
+**Artist**: DvD 
 
-**Track**: Crazy Love
+**Track**: Blizzard
 
-Last updated at 12/6/2024, 11:29:41 AM
+Last updated at 12/6/2024, 11:31:47 AM
