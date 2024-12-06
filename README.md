@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUWlWftSK1XX3wHy-2C8zNg-t500x500.jpg">](https://soundcloud.com/dnzrecords/paco-garcia-dj-oskar-i-wanna-dance-with-somebody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zN2v6irho7AJ-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/let-the-music-take-control)
 
-**Artist**: Paco Garcia & DJ Oskar 
+**Artist**: Kel X-Cyte 
 
-**Track**: Paco Garcia & DJ Oskar - I Wanna Dance With Somebody
+**Track**: Let The Music Take Control
 
-Last updated at 12/6/2024, 8:28:21 AM
+Last updated at 12/6/2024, 8:29:21 AM
