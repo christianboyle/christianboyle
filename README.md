@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8cty4DGzZMf42yp-wzyo5A-t500x500.jpg">](https://soundcloud.com/atomtranceforce/sonny-smiles-dunescape-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmMYni0ZqiqZOpra-ZV1q9A-t500x500.jpg">](https://soundcloud.com/austin-shureb-498367755/doobee-x-animal-treats-wrx-dub?in=saxurn/sets/waverace/)
 
-**Artist**: Sonny Smiles 
+**Artist**: DooBee 
 
-**Track**: Sonny Smiles - Dunescape (Original Mix)
+**Track**: WRX dUb - DooBee x Animal Treats
 
-Last updated at 12/6/2024, 9:33:12 AM
+Last updated at 12/6/2024, 10:05:15 AM
