@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ZDoD4q1uktl-0-t500x500.png">](https://soundcloud.com/pepe108923/jagged-edge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZqtINIm7LeIkqfM-YQgrKQ-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/d-v-d-its-not-too-late-its-never-too-late)
 
-**Artist**: Pépe 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Jagged Edge
+**Track**: D V D - It's Not Too Late It's Never Too Late
 
-Last updated at 12/5/2024, 7:48:02 PM
+Last updated at 12/5/2024, 7:49:37 PM
