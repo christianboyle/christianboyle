@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LlFIAES9r5f6jNqJ-v1rcCg-t500x500.jpg">](https://soundcloud.com/g-soiid/s0n2u-ft-gasoiid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKK9yBvPXUadpJaz-auEL2Q-t500x500.jpg">](https://soundcloud.com/polishtechnology/premiere-pawel-running-ictva04)
 
-**Artist**: blip_ vs. gasoiid² 
+**Artist**: PAWEL 
 
-**Track**: ✰ 𝕤𝟘—𝕟𝟚𝕦² ✰
+**Track**: [PREMIERE] | PAWEL - Running [ICTVA04]
 
-Last updated at 12/5/2024, 7:04:19 PM
+Last updated at 12/5/2024, 7:05:34 PM
