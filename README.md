@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUkn4EwLCsZXQy4J-NS5s1w-t500x500.png">](https://soundcloud.com/teedeejayyy/spf-infini-genesis-continuous-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final?in=saxurn/sets/waverace/)
 
-**Artist**: TDJ 
+**Artist**: AMAGII 
 
-**Track**: SPF INFINI: GENESIS (Continuous Mix)
+**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
 
-Last updated at 12/5/2024, 7:39:50 PM
+Last updated at 12/5/2024, 7:44:02 PM
