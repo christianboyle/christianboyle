@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVdP8fTzGh7LF3yC-28svhA-t500x500.jpg">](https://soundcloud.com/lyqd/lyqd-banyan-sway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6tCg0tpjssIo4R12-COGZXg-t500x500.jpg">](https://soundcloud.com/ruvlo/suavamente)
 
-**Artist**: LYQD 
+**Artist**: RUVLO 
 
-**Track**: LYQD - Banyan Sway
+**Track**: ELVIS CRESPO - SUAVAMENTE (RUVLO FLIP)
 
-Last updated at 12/5/2024, 6:58:31 PM
+Last updated at 12/5/2024, 6:59:36 PM
