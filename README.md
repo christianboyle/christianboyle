@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BRic7gUEPSAeOtNI-sMssdg-t500x500.jpg">](https://soundcloud.com/aylen/shanghai-doom-platinum-artists-aylen-remix?in=saxurn/sets/waverace/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KtJg9IPGtVm9rtc-dr2fDg-t500x500.jpg">](https://soundcloud.com/dings-rausch/streamline-1?in=saxurn/sets/waverace/)
 
-**Artist**: Aylen 
+**Artist**: DJ Dings & Tim Rausch 
 
-**Track**: Shanghai Doom - Platinum Artists (Aylen Remix)
+**Track**: Streamline
 
-Last updated at 12/6/2024, 10:08:31 AM
+Last updated at 12/6/2024, 11:11:18 AM
