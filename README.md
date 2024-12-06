@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KtJg9IPGtVm9rtc-dr2fDg-t500x500.jpg">](https://soundcloud.com/dings-rausch/streamline-1?in=saxurn/sets/waverace/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hHDPtt7gXkKeyFB-1Hpfqg-t500x500.jpg">](https://soundcloud.com/dnzrecords/big-ric-through-the-storm?in=saxurn/sets/waverace/)
 
-**Artist**: DJ Dings & Tim Rausch 
+**Artist**: Big Ric 
 
-**Track**: Streamline
+**Track**: Big Ric - Through The Storm
 
-Last updated at 12/6/2024, 11:11:18 AM
+Last updated at 12/6/2024, 11:15:18 AM
