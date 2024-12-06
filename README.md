@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8cty4DGzZMf42yp-wzyo5A-t500x500.jpg">](https://soundcloud.com/atomtranceforce/sonny-smiles-dunescape-original-mix)
 
-**Artist**: NVADRZ 
+**Artist**: Sonny Smiles 
 
-**Track**: He Says, She Says
+**Track**: Sonny Smiles - Dunescape (Original Mix)
 
-Last updated at 12/6/2024, 8:38:40 AM
+Last updated at 12/6/2024, 9:33:12 AM
