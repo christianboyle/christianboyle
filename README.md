@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKOO37PADRDyOMj6-nwAMPw-t500x500.jpg">](https://soundcloud.com/livefromearth/synkronize-aamourocean-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000531533046-a3v4f7-t500x500.jpg">](https://soundcloud.com/dvdmtl/blizzard-1?in=saxurn/sets/waverace/)
 
-**Artist**: Promis3 
+**Artist**: DvD 
 
-**Track**: SYNKRONIZE (Aamourocean Remix)
+**Track**: Blizzard
 
-Last updated at 12/7/2024, 8:06:21 AM
+Last updated at 12/7/2024, 8:08:26 AM
