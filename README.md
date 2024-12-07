@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hHDPtt7gXkKeyFB-1Hpfqg-t500x500.jpg">](https://soundcloud.com/dnzrecords/big-ric-through-the-storm?in=saxurn/sets/waverace/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PFKeOV6ZwrpZX6DM-AYZDCA-t500x500.png">](https://soundcloud.com/rinsefm/allbopsnoflops221124)
 
-**Artist**: Big Ric 
+**Artist**: Rinse FM  
 
-**Track**: Big Ric - Through The Storm
+**Track**: All Bops No Flops with Amadeezy & Bae Blade feat. EMILIJA - 22 November 2024
 
-Last updated at 12/6/2024, 7:01:34 PM
+Last updated at 12/6/2024, 7:05:50 PM
