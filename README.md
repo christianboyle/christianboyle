@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PFKeOV6ZwrpZX6DM-AYZDCA-t500x500.png">](https://soundcloud.com/rinsefm/allbopsnoflops221124)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKOO37PADRDyOMj6-nwAMPw-t500x500.jpg">](https://soundcloud.com/livefromearth/synkronize-aamourocean-remix)
 
-**Artist**: Rinse FM  
+**Artist**: Promis3 
 
-**Track**: All Bops No Flops with Amadeezy & Bae Blade feat. EMILIJA - 22 November 2024
+**Track**: SYNKRONIZE (Aamourocean Remix)
 
-Last updated at 12/6/2024, 7:05:50 PM
+Last updated at 12/7/2024, 7:34:13 AM
