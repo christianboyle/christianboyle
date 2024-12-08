@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtGiq8696cCy29Ac-NWHrww-t500x500.jpg">](https://soundcloud.com/hanconscious/starburster-hanconsciousremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OBXLoEx2SIFukbRG-ZqlZAg-t500x500.png">](https://soundcloud.com/twerknation28/megatron-brandnew)
 
-**Artist**: Han Conscious 
+**Artist**: Twerknation28 
 
-**Track**: Fontaines D.C. - Starburster (Han Conscious Remix)
+**Track**: Megatron. @Brandnew
 
-Last updated at 12/7/2024, 8:01:21 PM
+Last updated at 12/7/2024, 8:02:36 PM
