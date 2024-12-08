@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
 
-**Artist**: 14106lyn 
+**Artist**: DJ Frisco954 
 
-**Track**: honest ｡｡｡ prod me
+**Track**: Nick León & Erika de Casier - Bikini (Fast)
 
-Last updated at 12/8/2024, 4:06:48 PM
+Last updated at 12/8/2024, 4:08:34 PM
