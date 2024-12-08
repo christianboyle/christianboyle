@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-93IPE43rySfD05Gd-d2iFzw-t500x500.png">](https://soundcloud.com/petxmr/xiaohongshu)
 
-**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
+**Artist**: Marjorie -W.C. Sinclair 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: Xiaohongshu (小红书)
 
-Last updated at 12/8/2024, 7:13:17 AM
+Last updated at 12/8/2024, 3:51:22 PM
