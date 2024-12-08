@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rH8VOvtrtPhZoi8I-jU805w-t500x500.jpg">](https://soundcloud.com/dopaminewifi/skapier-sebs-take-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dO0NlXUYbh4iDnSd-5QlALg-t500x500.png">](https://soundcloud.com/elex_page/energy)
 
-**Artist**: Skapier, Seb's 
+**Artist**: ELEX, Nyukyung 
 
-**Track**: Skapier & Seb's - Take That!
+**Track**: Energy
 
-Last updated at 12/7/2024, 7:53:45 PM
+Last updated at 12/7/2024, 7:54:55 PM
