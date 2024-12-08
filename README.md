@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1)
 
-**Artist**: DJ Frisco954 
+**Artist**: Sein 
 
-**Track**: Nick León & Erika de Casier - Bikini (Fast)
+**Track**: My Humps Love Parade (Sein Edit)
 
-Last updated at 12/8/2024, 4:08:34 PM
+Last updated at 12/8/2024, 4:11:04 PM
