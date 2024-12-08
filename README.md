@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJhN7EyGUJYjm587-yVuAhA-t500x500.jpg">](https://soundcloud.com/escuderiaescuderia/chapa-dub-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hMiAL1IYvt8lMWiC-U9z1dg-t500x500.jpg">](https://soundcloud.com/runnitofficial/baddestflip)
 
-**Artist**: escuderia 
+**Artist**: Runnit 
 
-**Track**: CHAPA DUB
+**Track**: Joey Valence & Brae - THE BADDEST (Runnit Flip)
 
-Last updated at 12/7/2024, 7:59:21 PM
+Last updated at 12/7/2024, 8:00:21 PM
