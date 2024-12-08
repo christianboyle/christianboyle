@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6fI35LyKyLfzN7G9-GiI2hg-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/aac66863-135c-4621-b362-cd0460add61a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
 
-**Artist**: Sonorous 
+**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
 
-**Track**: TOTHABEAT
+**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
 
-Last updated at 12/7/2024, 8:09:57 PM
+Last updated at 12/7/2024, 8:11:02 PM
