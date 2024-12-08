@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OBXLoEx2SIFukbRG-ZqlZAg-t500x500.png">](https://soundcloud.com/twerknation28/megatron-brandnew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1yi7VA6VK5STvxK-Yd2Xag-t500x500.png">](https://soundcloud.com/aurachildbeatz/want-me)
 
-**Artist**: Twerknation28 
+**Artist**: AuraChild 
 
-**Track**: Megatron. @Brandnew
+**Track**: Want Me
 
-Last updated at 12/7/2024, 8:02:36 PM
+Last updated at 12/7/2024, 8:03:41 PM
