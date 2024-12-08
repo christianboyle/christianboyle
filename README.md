@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsNl99eS69yF9lHA-lWY1cw-t500x500.jpg">](https://soundcloud.com/prodnoyse/ignite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJhN7EyGUJYjm587-yVuAhA-t500x500.jpg">](https://soundcloud.com/escuderiaescuderia/chapa-dub-1)
 
-**Artist**: noyse. 
+**Artist**: escuderia 
 
-**Track**: ignite
+**Track**: CHAPA DUB
 
-Last updated at 12/7/2024, 7:58:15 PM
+Last updated at 12/7/2024, 7:59:21 PM
