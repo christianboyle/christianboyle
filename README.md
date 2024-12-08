@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UQJS8xOzsuSt-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/all-i-ever-wanted?in=saxurn/sets/santa-pilled-re-rock/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-royaMiizxdCoJFVy-wqCmsQ-t500x500.jpg">](https://soundcloud.com/cruseyyyy/care?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: Fahjah & KICKCHEEZE 
+**Artist**: crusey 
 
-**Track**: All I Ever Wanted
+**Track**: do u care? ft. lyn, trustt prod isai
 
-Last updated at 12/8/2024, 4:17:27 PM
+Last updated at 12/8/2024, 4:20:43 PM
