@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyzAtWCRj2TADgJg-sgwQhw-t500x500.jpg">](https://soundcloud.com/youasidepiece/siutk-sidepiece-treat?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ei9ydGI9XYgGmfYG-2Migfw-t500x500.png">](https://soundcloud.com/soundsoundcologne/entasia-rhythm-of-the-night?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: SIDEPIECE 
+**Artist**: Entasia 
 
-**Track**: SIUTK (SidePiece Treat)
+**Track**: Entasia - Rhythm Of The Night (FREE DOWNLOAD)
 
-Last updated at 12/8/2024, 4:31:04 PM
+Last updated at 12/8/2024, 4:35:34 PM
