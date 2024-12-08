@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dO0NlXUYbh4iDnSd-5QlALg-t500x500.png">](https://soundcloud.com/elex_page/energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wALgVETdyQSBg7Ce-dzf7pw-t500x500.png">](https://soundcloud.com/optiksoundproject/current-creations-vol-iii-all-original-mini-mix)
 
-**Artist**: ELEX, Nyukyung 
+**Artist**: OptiK Sound  
 
-**Track**: Energy
+**Track**: Current Creations Vol. III (All Original Mini-Mix)
 
-Last updated at 12/7/2024, 7:54:55 PM
+Last updated at 12/7/2024, 7:55:55 PM
