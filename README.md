@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyvROjmzZV6dbD7D-tIxCUg-t500x500.png">](https://soundcloud.com/speckz_yeetz/speckz-feel-the?in=saxurn/sets/santa-pilled-re-rock/)
 
-**Artist**: Sein 
+**Artist**: Speckz 
 
-**Track**: My Humps Love Parade (Sein Edit)
+**Track**: SPECKZ - FEEL THE
 
-Last updated at 12/8/2024, 4:11:04 PM
+Last updated at 12/8/2024, 4:13:39 PM
