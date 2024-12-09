@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1yK0Y5WYHJliTAi-JdczPg-t500x500.png">](https://soundcloud.com/synthyaworld/usher-dj-got-us-falling-in-love-synthya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Io224Kuc1HQiHnno-FXQ4wA-t500x500.jpg">](https://soundcloud.com/jonny-tang-519237455/tang-oh-my-gosh)
 
-**Artist**: SYNTHYA 
+**Artist**: Jonny Tang 
 
-**Track**: USHER - DJ Got Us Falling In Love (SYNTHYA REMIX)
+**Track**: OH MY GOSH
 
-Last updated at 12/9/2024, 9:49:03 AM
+Last updated at 12/9/2024, 9:53:24 AM
