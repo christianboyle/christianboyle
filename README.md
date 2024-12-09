@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kiPSFZyffZ8sUBHb-crRRvA-t500x500.png">](https://soundcloud.com/komplvintmusic/komplvint-fuck-it-up-bitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/they-left-without-telling-me-1)
 
-**Artist**: KOMPLVINT 
+**Artist**: beverly hills mom 
 
-**Track**: KOMPLVINT - FUCK IT UP BITCH
+**Track**: they left without telling me. my mind is not safe. memory loss. a thing of the past
 
-Last updated at 12/9/2024, 8:22:24 AM
+Last updated at 12/9/2024, 8:24:00 AM
