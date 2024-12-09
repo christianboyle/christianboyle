@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RccSHyduCA6JtWog-zxKlWw-t500x500.png">](https://soundcloud.com/basednegativesquad/backpack)
 
-**Artist**: 14106lyn 
+**Artist**: Based Negative Squad, Acid Souljah 
 
-**Track**: honest ｡｡｡ prod me
+**Track**: Acid Souljah - Backpack (Prod. alostromance) *Rare 2023 Track*
 
-Last updated at 12/9/2024, 11:04:03 AM
+Last updated at 12/9/2024, 2:58:06 PM
