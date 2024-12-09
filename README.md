@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gY1gYgdcZVhJepaa-tphk6A-t500x500.png">](https://soundcloud.com/beaconftp/its-you)
 
-**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
+**Artist**: Rebel Scum & Gracie Van Brunt 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: It's You
 
-Last updated at 12/9/2024, 3:40:31 PM
+Last updated at 12/9/2024, 3:43:16 PM
