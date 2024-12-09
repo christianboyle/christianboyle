@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1yK0Y5WYHJliTAi-JdczPg-t500x500.png">](https://soundcloud.com/synthyaworld/usher-dj-got-us-falling-in-love-synthya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: SYNTHYA 
+**Artist**: 14106lyn 
 
-**Track**: USHER - DJ Got Us Falling In Love (SYNTHYA REMIX)
+**Track**: honest ｡｡｡ prod me
 
-Last updated at 12/9/2024, 11:01:43 AM
+Last updated at 12/9/2024, 11:04:03 AM
