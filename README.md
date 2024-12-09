@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/they-left-without-telling-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IMn5NViynrRy6nKc-FgT27g-t500x500.jpg">](https://soundcloud.com/all172things/noise-parfumerie-what-are-you-a172t024s2?in=all172things/sets/noise-parfumerie-blood-mask-what-are-you-a172t024)
 
-**Artist**: beverly hills mom 
+**Artist**: Noise Parfumerie 
 
-**Track**: they left without telling me. my mind is not safe. memory loss. a thing of the past
+**Track**: Noise Parfumerie - What... Are You [A172T024S2]
 
-Last updated at 12/9/2024, 8:24:00 AM
+Last updated at 12/9/2024, 8:25:00 AM
