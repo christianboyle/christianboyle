@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gY1gYgdcZVhJepaa-tphk6A-t500x500.png">](https://soundcloud.com/beaconftp/its-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rld3PrZjRg7L3Qpl-grlrDg-t500x500.png">](https://soundcloud.com/pickledyeetz/tan-leather-x-nicodeanthefiend?in=pickledyeetz/sets/leatherfiend)
 
-**Artist**: Rebel Scum & Gracie Van Brunt 
+**Artist**: Tan Leather, nicodeanthefiend 
 
-**Track**: It's You
+**Track**: Tan Leather x nicodeanthefiend - FeedsDaEgo
 
-Last updated at 12/9/2024, 3:43:16 PM
+Last updated at 12/9/2024, 3:48:02 PM
