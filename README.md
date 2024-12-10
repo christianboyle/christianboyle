@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OC2AR13r2AOIJUr-cMfbSQ-t500x500.jpg">](https://soundcloud.com/ctrl_ctrl_ctrl/ctrl-street?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTP6pmApSXTOvdpk-LMXqWA-t500x500.png">](https://soundcloud.com/shoko-ly/observer)
 
-**Artist**: Ctrl 
+**Artist**: shoko 
 
-**Track**: Ctrl - Street
+**Track**: observer
 
-Last updated at 12/10/2024, 2:32:33 PM
+Last updated at 12/10/2024, 2:33:33 PM
