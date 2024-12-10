@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmMYni0ZqiqZOpra-ZV1q9A-t500x500.jpg">](https://soundcloud.com/austin-shureb-498367755/doobee-x-animal-treats-wrx-dub?in=saxurn/sets/wave-race)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: DooBee 
+**Artist**: AMAGII 
 
-**Track**: WRX dUb - DooBee x Animal Treats
+**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
 
-Last updated at 12/10/2024, 9:58:40 AM
+Last updated at 12/10/2024, 11:52:03 AM
