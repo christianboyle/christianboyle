@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: AMAGII 
+**Artist**: DJ Frisco954 
 
-**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
+**Track**: Nick León & Erika de Casier - Bikini (Fast)
 
-Last updated at 12/10/2024, 11:52:03 AM
+Last updated at 12/10/2024, 11:54:38 AM
