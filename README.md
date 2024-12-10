@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: DJ Frisco954 
+**Artist**: Sein 
 
-**Track**: Nick León & Erika de Casier - Bikini (Fast)
+**Track**: My Humps Love Parade (Sein Edit)
 
-Last updated at 12/10/2024, 11:54:38 AM
+Last updated at 12/10/2024, 12:27:46 PM
