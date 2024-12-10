@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTP6pmApSXTOvdpk-LMXqWA-t500x500.png">](https://soundcloud.com/shoko-ly/observer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
 
-**Artist**: shoko 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: observer
+**Track**: none pizza left beef
 
-Last updated at 12/10/2024, 2:33:33 PM
+Last updated at 12/10/2024, 2:34:49 PM
