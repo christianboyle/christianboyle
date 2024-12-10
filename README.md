@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000531533046-a3v4f7-t500x500.jpg">](https://soundcloud.com/dvdmtl/blizzard-1?in=saxurn/sets/wave-race)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says?in=saxurn/sets/wave-race)
 
-**Artist**: DvD 
+**Artist**: NVADRZ 
 
-**Track**: Blizzard
+**Track**: He Says, She Says
 
-Last updated at 12/10/2024, 9:53:19 AM
+Last updated at 12/10/2024, 9:56:29 AM
