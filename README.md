@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6iIJfzIqszwNyTsu-jjnJ8w-t500x500.jpg">](https://soundcloud.com/umru/bbc6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final)
 
-**Artist**: umru 
+**Artist**: AMAGII 
 
-**Track**: umru for New Music Fix Daily on ʙʙᴄ⁶
+**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
 
-Last updated at 12/9/2024, 3:53:38 PM
+Last updated at 12/10/2024, 9:08:05 AM
