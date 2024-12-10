@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-brvNII65Bcum-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/crazy-love?in=saxurn/sets/wave-race)
 
-**Artist**: AMAGII 
+**Artist**: Kaylene Sc@r 
 
-**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
+**Track**: Crazy Love
 
-Last updated at 12/10/2024, 9:47:44 AM
+Last updated at 12/10/2024, 9:51:19 AM
