@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z1VFNx5KzcvAY1h9-bmshLw-t500x500.jpg">](https://soundcloud.com/deepinparis/myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
 
-**Artist**: deepinparis 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: i dont deserve it
+**Track**: none pizza left beef
 
-Last updated at 12/11/2024, 5:52:57 AM
+Last updated at 12/11/2024, 7:09:55 AM
