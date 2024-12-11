@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
 
-**Artist**: RayRay, T A N E 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: RayRay & T A N E - Lose Control
+**Track**: none pizza left beef
 
-Last updated at 12/11/2024, 8:29:44 AM
+Last updated at 12/11/2024, 8:32:20 AM
