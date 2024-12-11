@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: Steve Bates 
 
-**Track**: none pizza left beef
+**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
 
-Last updated at 12/11/2024, 8:32:20 AM
+Last updated at 12/11/2024, 8:34:30 AM
