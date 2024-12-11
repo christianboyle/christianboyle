@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control)
 
-**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
+**Artist**: RayRay, T A N E 
 
-**Track**: smartypuffs
+**Track**: RayRay & T A N E - Lose Control
 
-Last updated at 12/11/2024, 8:26:34 AM
+Last updated at 12/11/2024, 8:29:44 AM
