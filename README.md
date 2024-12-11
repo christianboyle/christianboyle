@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DHVScFAtKhpZ0JX-3hGOYw-t500x500.jpg">](https://soundcloud.com/sebastianvydra/wismers-comet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ep6HyL60ZRhNsfZt-zVTuuw-t500x500.jpg">](https://soundcloud.com/zzjay/shatter)
 
-**Artist**: Sebastian Vydra 
+**Artist**: zjay 
 
-**Track**: Wismer's Comet
+**Track**: hoop dreams (elxnce)
 
-Last updated at 12/11/2024, 8:19:33 AM
+Last updated at 12/11/2024, 8:20:43 AM
