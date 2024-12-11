@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJ2y1hrLJvLatqUZ-oqBjGw-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/swomp-knight-owl)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: Swomp 
 
-**Track**: none pizza left beef
+**Track**: Swomp - Knight Owl
 
-Last updated at 12/11/2024, 7:09:55 AM
+Last updated at 12/11/2024, 7:23:47 AM
