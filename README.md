@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAa4NDaOKxMY7Y7q-qF4ybQ-t500x500.png">](https://soundcloud.com/dsp_collective/aggressive-delek-brokaw-remixdsp-exclusive-debut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs)
 
-**Artist**: BROKAW : {DEEP.STATE.SELECTS}  
+**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
 
-**Track**: Aggressive - DELEK (BROKAW REMIX) DEBUT RELEASE
+**Track**: smartypuffs
 
-Last updated at 12/11/2024, 8:25:13 AM
+Last updated at 12/11/2024, 8:26:34 AM
