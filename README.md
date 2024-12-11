@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3G0Mzj94SUf0Kep3-WX32BA-t500x500.jpg">](https://soundcloud.com/bastian_cantino/smooth-session-bastian-cantino)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DHVScFAtKhpZ0JX-3hGOYw-t500x500.jpg">](https://soundcloud.com/sebastianvydra/wismers-comet)
 
-**Artist**: Bastian Cantino 
+**Artist**: Sebastian Vydra 
 
-**Track**: Mix Session - Bastian Cantino
+**Track**: Wismer's Comet
 
-Last updated at 12/11/2024, 7:29:18 AM
+Last updated at 12/11/2024, 8:19:33 AM
