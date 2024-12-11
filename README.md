@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ycdote8UkoEJHNP3-ANPZfg-t500x500.jpg">](https://soundcloud.com/sumsimpl/supa-dupa-fly-w-scratch-the-surface)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3G0Mzj94SUf0Kep3-WX32BA-t500x500.jpg">](https://soundcloud.com/bastian_cantino/smooth-session-bastian-cantino)
 
-**Artist**: sum.simpl 
+**Artist**: Bastian Cantino 
 
-**Track**: Supa Dupa Fly w/ Scratch The Surface
+**Track**: Mix Session - Bastian Cantino
 
-Last updated at 12/11/2024, 7:28:18 AM
+Last updated at 12/11/2024, 7:29:18 AM
