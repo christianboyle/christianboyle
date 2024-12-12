@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyKoMZK0RwKTvNAO-ZedNaA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jamie-lucas-bergen-hydron-mmtm001)
 
-**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
+**Artist**: JAMIE & Lucas Bergen 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: Premiere: JAMIE & Lucas Bergen - Hydron [MMTM001]
 
-Last updated at 12/12/2024, 6:11:15 AM
+Last updated at 12/12/2024, 7:04:01 AM
