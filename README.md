@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BylNjvhCCmTlywUQ-daa8kg-t500x500.jpg">](https://soundcloud.com/aperta000/wakemeup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSCIUg4qT8VIhSyp-iOuzHQ-t500x500.png">](https://soundcloud.com/djmothbot/wish-fulfillment-ft-umru-b2b-emotegi-live-on-lower-grand-radio-112424)
 
-**Artist**: aperta 
+**Artist**: umru, emotegi 
 
-**Track**: WAKE ME UP PROD GUNK
+**Track**: wish fulfillment ft. umru b2b emotegi (live on lower grand radio 11.24.24)
 
-Last updated at 12/12/2024, 7:21:43 AM
+Last updated at 12/12/2024, 7:31:54 AM
