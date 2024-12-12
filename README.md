@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYrNlFzeUuKnUCcg-5LXyEg-t500x500.jpg">](https://soundcloud.com/basiliskbass/scurrow-hypocrit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qXDN4X3JjOMQ9xOK-E6Zf2Q-t500x500.jpg">](https://soundcloud.com/malcolm-moore-401571130/smilez-sparkzee-episode-one-1)
 
-**Artist**: Scurrow 
+**Artist**: Smilez MC 
 
-**Track**: Scurrow - Hypocrit
+**Track**: Smilez & Sparkzee - Episode One MIXTAPE
 
-Last updated at 12/12/2024, 7:08:21 AM
+Last updated at 12/12/2024, 7:12:56 AM
