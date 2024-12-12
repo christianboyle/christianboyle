@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfZYB9SNiADMgodR-RZtcEg-t500x500.jpg">](https://soundcloud.com/emorave/trash)
 
-**Artist**: RayRay, T A N E 
+**Artist**: emorave 
 
-**Track**: RayRay & T A N E - Lose Control
+**Track**: trash prod. freger & fleafriends
 
-Last updated at 12/11/2024, 6:50:04 PM
+Last updated at 12/11/2024, 6:52:19 PM
