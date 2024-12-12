@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pa8UUneRv6aezS7G-uE10Pg-t500x500.jpg">](https://soundcloud.com/best-intentions-ldn/gyrofield-like-lilac-dove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8ahkCz6f89bOGwb-rgnsCg-t500x500.png">](https://soundcloud.com/oyubi/5_tdr)
 
-**Artist**: gyrofield 
+**Artist**: Oyubi 
 
-**Track**: gyrofield - Like Lilac Dove
+**Track**: 5_TDR
 
-Last updated at 12/12/2024, 7:06:06 AM
+Last updated at 12/12/2024, 7:07:06 AM
