@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J1uGKV5TW8HZbB7l-woayqw-t500x500.jpg">](https://soundcloud.com/shxrkey24/mannequin-challenge-kkoreaxo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow)
 
-**Artist**: shxrkey 
+**Artist**: Panteros666, MCYL 
 
-**Track**: mannequin challenge (kkoreaxo)
+**Track**: Panteros666, MCYL - Pow!
 
-Last updated at 12/11/2024, 7:33:34 PM
+Last updated at 12/11/2024, 7:36:34 PM
