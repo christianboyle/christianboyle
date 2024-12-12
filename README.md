@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x8ahkCz6f89bOGwb-rgnsCg-t500x500.png">](https://soundcloud.com/oyubi/5_tdr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYrNlFzeUuKnUCcg-5LXyEg-t500x500.jpg">](https://soundcloud.com/basiliskbass/scurrow-hypocrit)
 
-**Artist**: Oyubi 
+**Artist**: Scurrow 
 
-**Track**: 5_TDR
+**Track**: Scurrow - Hypocrit
 
-Last updated at 12/12/2024, 7:07:06 AM
+Last updated at 12/12/2024, 7:08:21 AM
