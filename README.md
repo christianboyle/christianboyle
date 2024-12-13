@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8aZjLkmbnAEK7su-IkdPfA-t500x500.png">](https://soundcloud.com/dj-iyf/smiley-the-snowman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat)
 
-**Artist**: Rob IYF 
+**Artist**: SUAHN, ET Finger 
 
-**Track**: Rob IYF & Ben Critic ft. Mc Smiley - Smiley The Snowman
+**Track**: RinseN'Repeat
 
-Last updated at 12/13/2024, 10:09:45 AM
+Last updated at 12/13/2024, 10:14:11 AM
