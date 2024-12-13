@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgdNDBlUspGD1ZoH-GGpIcw-t500x500.jpg">](https://soundcloud.com/silcrowmusic/seeking-wrath)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FBv9JIgJ6YW2J37H-g6JkHA-t500x500.jpg">](https://soundcloud.com/felmax/badders)
 
-**Artist**: Silcrow 
+**Artist**: FELMAX 
 
-**Track**: SEEKING WRATH
+**Track**: BADDERS(FELMAX X URAI KAIOKEN FLIP)
 
-Last updated at 12/12/2024, 7:16:42 PM
+Last updated at 12/12/2024, 7:17:42 PM
