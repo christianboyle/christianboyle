@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v9O3UWutzyFCpye4-UVl5bw-t500x500.jpg">](https://soundcloud.com/itsydg/ydg-echo?in=itsydg/sets/out-now-echo)
 
-**Artist**: Papa Roach, Kayzo 
+**Artist**: YDG 
 
-**Track**: Last Resort (moji remix)
+**Track**: YDG - Echo
 
-Last updated at 12/12/2024, 7:12:42 PM
+Last updated at 12/12/2024, 7:15:42 PM
