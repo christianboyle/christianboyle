@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSCIUg4qT8VIhSyp-iOuzHQ-t500x500.png">](https://soundcloud.com/djmothbot/wish-fulfillment-ft-umru-b2b-emotegi-live-on-lower-grand-radio-112424)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
 
-**Artist**: umru, emotegi 
+**Artist**: Papa Roach, Kayzo 
 
-**Track**: wish fulfillment ft. umru b2b emotegi (live on lower grand radio 11.24.24)
+**Track**: Last Resort (moji remix)
 
-Last updated at 12/12/2024, 7:31:54 AM
+Last updated at 12/12/2024, 7:12:42 PM
