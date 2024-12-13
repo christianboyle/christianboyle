@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
+**Artist**: DJ Frisco954 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: Nick León & Erika de Casier - Bikini (Fast)
 
-Last updated at 12/12/2024, 7:51:26 PM
+Last updated at 12/12/2024, 7:53:51 PM
