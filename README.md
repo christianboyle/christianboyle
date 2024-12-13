@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1yK0Y5WYHJliTAi-JdczPg-t500x500.png">](https://soundcloud.com/synthyaworld/usher-dj-got-us-falling-in-love-synthya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hudpF6tlgju3e1Cw-1y7tkw-t500x500.png">](https://soundcloud.com/kyle-watson/guess-kyle-watson-flip)
 
-**Artist**: SYNTHYA 
+**Artist**: Kyle Watson 
 
-**Track**: USHER - DJ Got Us Falling In Love (SYNTHYA REMIX)
+**Track**: Charli XCX - Guess ft Billie Eilish (Kyle Watson Dark Flip)
 
-Last updated at 12/13/2024, 8:10:55 AM
+Last updated at 12/13/2024, 9:53:12 AM
