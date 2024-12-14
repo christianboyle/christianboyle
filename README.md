@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat)
 
-**Artist**: INITIALIZE 
+**Artist**: SUAHN, ET Finger 
 
-**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
+**Track**: RinseN'Repeat
 
-Last updated at 12/14/2024, 10:06:27 AM
+Last updated at 12/14/2024, 10:12:58 AM
