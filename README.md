@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: DJ Frisco954 
 
-**Track**: none pizza left beef
+**Track**: Nick León & Erika de Casier - Bikini (Fast)
 
-Last updated at 12/14/2024, 2:58:51 PM
+Last updated at 12/14/2024, 3:00:41 PM
