@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-royaMiizxdCoJFVy-wqCmsQ-t500x500.jpg">](https://soundcloud.com/cruseyyyy/care)
 
-**Artist**: DJ Frisco954 
+**Artist**: crusey 
 
-**Track**: Nick León & Erika de Casier - Bikini (Fast)
+**Track**: do u care? ft. lyn, trustt prod isai
 
-Last updated at 12/14/2024, 3:00:41 PM
+Last updated at 12/14/2024, 3:52:14 PM
