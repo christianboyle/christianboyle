@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
 
-**Artist**: CARV 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: CARV & Vortek's - Nothing Can Stop Us
+**Track**: none pizza left beef
 
-Last updated at 12/14/2024, 10:17:53 AM
+Last updated at 12/14/2024, 2:11:20 PM
