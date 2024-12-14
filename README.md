@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfZYB9SNiADMgodR-RZtcEg-t500x500.jpg">](https://soundcloud.com/emorave/trash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow)
 
-**Artist**: emorave 
+**Artist**: Panteros666, MCYL 
 
-**Track**: trash prod. freger & fleafriends
+**Track**: Panteros666, MCYL - Pow!
 
-Last updated at 12/14/2024, 2:22:21 PM
+Last updated at 12/14/2024, 2:24:56 PM
