@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLpPcySEYD6gyAIo-b6aszQ-t500x500.jpg">](https://soundcloud.com/1spyne/100-racks-prod-kimi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLmCzOhh9C4GfXu2-H7WIEg-t500x500.jpg">](https://soundcloud.com/gloomed/pokerrr)
 
-**Artist**: spyne 
+**Artist**: gloomed 
 
-**Track**: 100 racks (prod. kimi)
+**Track**: pokerrr (erdo + xarkr)
 
-Last updated at 12/15/2024, 3:25:37 PM
+Last updated at 12/15/2024, 3:27:02 PM
