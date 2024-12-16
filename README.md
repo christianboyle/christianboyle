@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon)
 
-**Artist**: DJ Frisco954 
+**Artist**: cld 
 
-**Track**: Nick León & Erika de Casier - Bikini (Fast)
+**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
 
-Last updated at 12/16/2024, 1:45:43 PM
+Last updated at 12/16/2024, 1:48:43 PM
