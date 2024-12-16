@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ei9ydGI9XYgGmfYG-2Migfw-t500x500.png">](https://soundcloud.com/soundsoundcologne/entasia-rhythm-of-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A0rdFMOHnqfMyCZ3-m0oYhg-t500x500.jpg">](https://soundcloud.com/flucc/shy-penguin-friend)
 
-**Artist**: Entasia 
+**Artist**: FLUCC 
 
-**Track**: Entasia - Rhythm Of The Night (FREE DOWNLOAD)
+**Track**: Shy Penguin Friend
 
-Last updated at 12/16/2024, 10:18:24 AM
+Last updated at 12/16/2024, 10:24:00 AM
