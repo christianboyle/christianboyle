@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest)
 
-**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
+**Artist**: 14106lyn 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: honest ｡｡｡ prod me
 
-Last updated at 12/16/2024, 4:00:50 PM
+Last updated at 12/16/2024, 4:20:12 PM
