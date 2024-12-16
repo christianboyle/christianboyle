@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UQJS8xOzsuSt-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/all-i-ever-wanted)
 
-**Artist**: Sein 
+**Artist**: Fahjah & KICKCHEEZE 
 
-**Track**: My Humps Love Parade (Sein Edit)
+**Track**: All I Ever Wanted
 
-Last updated at 12/16/2024, 4:24:27 PM
+Last updated at 12/16/2024, 4:27:07 PM
