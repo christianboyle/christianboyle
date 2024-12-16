@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1yK0Y5WYHJliTAi-JdczPg-t500x500.png">](https://soundcloud.com/synthyaworld/usher-dj-got-us-falling-in-love-synthya-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IyzAtWCRj2TADgJg-sgwQhw-t500x500.jpg">](https://soundcloud.com/youasidepiece/siutk-sidepiece-treat)
 
-**Artist**: SYNTHYA 
+**Artist**: SIDEPIECE 
 
-**Track**: USHER - DJ Got Us Falling In Love (SYNTHYA REMIX)
+**Track**: SIUTK (SidePiece Treat)
 
-Last updated at 12/16/2024, 10:09:38 AM
+Last updated at 12/16/2024, 10:13:59 AM
