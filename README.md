@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
 
-**Artist**: INITIALIZE 
+**Artist**: Papa Roach, Kayzo 
 
-**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
+**Track**: Last Resort (moji remix)
 
-Last updated at 12/16/2024, 3:24:36 PM
+Last updated at 12/16/2024, 3:28:17 PM
