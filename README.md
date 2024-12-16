@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier)
 
-**Artist**: NVADRZ 
+**Artist**: DJ Frisco954 
 
-**Track**: He Says, She Says
+**Track**: Nick León & Erika de Casier - Bikini (Fast)
 
-Last updated at 12/16/2024, 12:17:26 PM
+Last updated at 12/16/2024, 1:45:43 PM
