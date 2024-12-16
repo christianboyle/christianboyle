@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lLuIIzn6ci61IeRW-hPoHsg-t500x500.jpg">](https://soundcloud.com/da-bow/jinco-dabow-diamond-eyes-ft-gracie-van-brunt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUkn4EwLCsZXQy4J-NS5s1w-t500x500.png">](https://soundcloud.com/teedeejayyy/spf-infini-genesis-continuous-mix)
 
-**Artist**: Dabow 
+**Artist**: TDJ 
 
-**Track**: Jinco & Dabow - Diamond Eyes (Ft. Gracie Van Brunt)
+**Track**: SPF INFINI: GENESIS (Continuous Mix)
 
-Last updated at 12/15/2024, 3:28:12 PM
+Last updated at 12/16/2024, 6:19:36 AM
