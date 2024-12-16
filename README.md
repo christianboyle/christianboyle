@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OC2AR13r2AOIJUr-cMfbSQ-t500x500.jpg">](https://soundcloud.com/ctrl_ctrl_ctrl/ctrl-street)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1yK0Y5WYHJliTAi-JdczPg-t500x500.png">](https://soundcloud.com/synthyaworld/usher-dj-got-us-falling-in-love-synthya-remix)
 
-**Artist**: Ctrl 
+**Artist**: SYNTHYA 
 
-**Track**: Ctrl - Street
+**Track**: USHER - DJ Got Us Falling In Love (SYNTHYA REMIX)
 
-Last updated at 12/16/2024, 4:30:18 PM
+Last updated at 12/16/2024, 4:33:48 PM
