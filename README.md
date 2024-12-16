@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs)
 
-**Artist**: CARV 
+**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
 
-**Track**: CARV & Vortek's - Nothing Can Stop Us
+**Track**: smartypuffs
 
-Last updated at 12/16/2024, 3:40:48 PM
+Last updated at 12/16/2024, 3:46:23 PM
