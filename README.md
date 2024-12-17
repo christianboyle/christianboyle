@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-go9tfYT9WGQJ2Hvq-3a18DQ-t500x500.jpg">](https://soundcloud.com/catmom4/2024-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fLGUqgaxIv0R7pOH-hxfkWA-t500x500.jpg">](https://soundcloud.com/scrufff/candlelight)
 
-**Artist**: quinn 
+**Artist**: scruff 
 
-**Track**: stars fell on trench [https://trenchdog.bandcamp.com/album/star-fell-on-trench]
+**Track**: candlelight [p. sai]
 
-Last updated at 12/17/2024, 3:50:42 PM
+Last updated at 12/17/2024, 3:51:47 PM
