@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUkn4EwLCsZXQy4J-NS5s1w-t500x500.png">](https://soundcloud.com/teedeejayyy/spf-infini-genesis-continuous-mix)
 
-**Artist**: Papa Roach, Kayzo 
+**Artist**: TDJ 
 
-**Track**: Last Resort (moji remix)
+**Track**: SPF INFINI: GENESIS (Continuous Mix)
 
-Last updated at 12/17/2024, 4:47:10 PM
+Last updated at 12/17/2024, 4:54:46 PM
