@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24sqgzzc0QyLpAD8-zsS51g-t500x500.jpg">](https://soundcloud.com/dilemmaca/mac-miller-goosebumpz-dlemma-remix)
 
-**Artist**: AMAGII 
+**Artist**: D!lemma 
 
-**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
+**Track**: Mac Miller - Goosebumpz (D!lemma Remix)
 
-Last updated at 12/17/2024, 2:13:47 PM
+Last updated at 12/17/2024, 2:17:22 PM
