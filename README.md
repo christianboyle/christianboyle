@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: 14106lyn 
 
-**Track**: none pizza left beef
+**Track**: honest ｡｡｡ prod me
 
-Last updated at 12/17/2024, 8:49:03 AM
+Last updated at 12/17/2024, 8:51:43 AM
