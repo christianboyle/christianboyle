@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EObfXnTuAA5u8MZ-4wWUXg-t500x500.png">](https://soundcloud.com/cmul1-989139399/wangan-prod-rainn-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWRmOvgLmjWrgqzH-sfz9aA-t500x500.png">](https://soundcloud.com/s1ck42/hottopic)
 
-**Artist**: cmull 
+**Artist**: s1ck, gloomed, minok0, 1sunsuu 
 
-**Track**: wangan (prod. rainn god)
+**Track**: ##hot topic w/ gloomed + minok0 + 1sunsuu (cr1sis)>:/
 
-Last updated at 12/17/2024, 3:54:02 PM
+Last updated at 12/17/2024, 4:35:44 PM
