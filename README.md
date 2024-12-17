@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmMYni0ZqiqZOpra-ZV1q9A-t500x500.jpg">](https://soundcloud.com/austin-shureb-498367755/doobee-x-animal-treats-wrx-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzQ0jLgDtOBuWy0r-dBTyRg-t500x500.jpg">](https://soundcloud.com/itsamagii/dimension-dj-turn-it-up-amagii-remix-final)
 
-**Artist**: DooBee 
+**Artist**: AMAGII 
 
-**Track**: WRX dUb - DooBee x Animal Treats
+**Track**: Dimension - DJ Turn It Up (AMAGII REMIX)
 
-Last updated at 12/16/2024, 6:35:46 PM
+Last updated at 12/16/2024, 6:38:56 PM
