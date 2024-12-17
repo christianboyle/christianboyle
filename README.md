@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UQJS8xOzsuSt-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/all-i-ever-wanted?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OC2AR13r2AOIJUr-cMfbSQ-t500x500.jpg">](https://soundcloud.com/ctrl_ctrl_ctrl/ctrl-street?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: Fahjah & KICKCHEEZE 
+**Artist**: Ctrl 
 
-**Track**: All I Ever Wanted
+**Track**: Ctrl - Street
 
-Last updated at 12/17/2024, 1:50:29 PM
+Last updated at 12/17/2024, 1:53:44 PM
