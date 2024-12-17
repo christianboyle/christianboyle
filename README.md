@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKOO37PADRDyOMj6-nwAMPw-t500x500.jpg">](https://soundcloud.com/livefromearth/synkronize-aamourocean-remix)
 
-**Artist**: NVADRZ 
+**Artist**: Promis3 
 
-**Track**: He Says, She Says
+**Track**: SYNKRONIZE (Aamourocean Remix)
 
-Last updated at 12/16/2024, 6:21:39 PM
+Last updated at 12/16/2024, 6:23:49 PM
