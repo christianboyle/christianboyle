@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UQJS8xOzsuSt-0-t500x500.jpg">](https://soundcloud.com/fyhofficial/all-i-ever-wanted?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: Sein 
+**Artist**: Fahjah & KICKCHEEZE 
 
-**Track**: My Humps Love Parade (Sein Edit)
+**Track**: All I Ever Wanted
 
-Last updated at 12/17/2024, 11:54:12 AM
+Last updated at 12/17/2024, 1:50:29 PM
