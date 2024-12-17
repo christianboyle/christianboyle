@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BRic7gUEPSAeOtNI-sMssdg-t500x500.jpg">](https://soundcloud.com/aylen/shanghai-doom-platinum-artists-aylen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6IKKBrLvDQARlofu-dmzRKQ-t500x500.jpg">](https://soundcloud.com/ukf/wink-nikko-cantbreathe)
 
-**Artist**: Aylen 
+**Artist**: WINK & nikko 
 
-**Track**: Shanghai Doom - Platinum Artists (Aylen Remix)
+**Track**: WINK & nikko - cantBREATHE
 
-Last updated at 12/16/2024, 6:27:50 PM
+Last updated at 12/16/2024, 6:31:35 PM
