@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef/s-eeEL8JxdqXF)
 
-**Artist**: Papa Roach, Kayzo 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: Last Resort (moji remix)
+**Track**: none pizza left beef
 
-Last updated at 12/17/2024, 2:23:18 PM
+Last updated at 12/17/2024, 3:46:31 PM
