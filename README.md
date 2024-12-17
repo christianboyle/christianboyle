@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNgWKs0lQalVjZ0E-3ytguw-t500x500.png">](https://soundcloud.com/djfrisco954-2/nick-leo-n-erika-de-casier?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8aZjLkmbnAEK7su-IkdPfA-t500x500.png">](https://soundcloud.com/dj-iyf/smiley-the-snowman?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: DJ Frisco954 
+**Artist**: Rob IYF 
 
-**Track**: Nick León & Erika de Casier - Bikini (Fast)
+**Track**: Rob IYF & Ben Critic ft. Mc Smiley - Smiley The Snowman
 
-Last updated at 12/17/2024, 8:56:03 AM
+Last updated at 12/17/2024, 8:58:33 AM
