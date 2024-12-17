@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef/s-eeEL8JxdqXF)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfZYB9SNiADMgodR-RZtcEg-t500x500.jpg">](https://soundcloud.com/emorave/trash)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: emorave 
 
-**Track**: none pizza left beef
+**Track**: trash prod. freger & fleafriends
 
-Last updated at 12/17/2024, 3:46:31 PM
+Last updated at 12/17/2024, 3:48:48 PM
