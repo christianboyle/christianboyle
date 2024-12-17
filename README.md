@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24sqgzzc0QyLpAD8-zsS51g-t500x500.jpg">](https://soundcloud.com/dilemmaca/mac-miller-goosebumpz-dlemma-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control)
 
-**Artist**: D!lemma 
+**Artist**: INITIALIZE 
 
-**Track**: Mac Miller - Goosebumpz (D!lemma Remix)
+**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
 
-Last updated at 12/17/2024, 2:17:22 PM
+Last updated at 12/17/2024, 2:19:32 PM
