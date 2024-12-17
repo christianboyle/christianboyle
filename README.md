@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8aZjLkmbnAEK7su-IkdPfA-t500x500.png">](https://soundcloud.com/dj-iyf/smiley-the-snowman?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: Rob IYF 
+**Artist**: Sein 
 
-**Track**: Rob IYF & Ben Critic ft. Mc Smiley - Smiley The Snowman
+**Track**: My Humps Love Parade (Sein Edit)
 
-Last updated at 12/17/2024, 11:49:46 AM
+Last updated at 12/17/2024, 11:54:12 AM
