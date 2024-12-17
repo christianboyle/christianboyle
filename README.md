@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon)
 
-**Artist**: INITIALIZE 
+**Artist**: cld 
 
-**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
+**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
 
-Last updated at 12/17/2024, 9:44:11 AM
+Last updated at 12/17/2024, 9:59:49 AM
