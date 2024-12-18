@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIOm2MApoyK-0-t500x500.jpg">](https://soundcloud.com/zapravka-music/per-3-dose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVutHtuOpKtaQCqX-9f4d4Q-t500x500.jpg">](https://soundcloud.com/predayed/blametwopointohe)
 
-**Artist**: ZAPRAVKA 
+**Artist**: predayed 
 
-**Track**: PER 3 DOSE
+**Track**: whos to blame feat Tenkay, Acid Souljah, & PINKBLXXD
 
-Last updated at 12/18/2024, 7:22:39 AM
+Last updated at 12/18/2024, 7:23:44 AM
