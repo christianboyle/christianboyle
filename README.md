@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow?in=saxurn/sets/pb-tuns/)
 
-**Artist**: INITIALIZE 
+**Artist**: Panteros666, MCYL 
 
-**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
+**Track**: Panteros666, MCYL - Pow!
 
-Last updated at 12/18/2024, 7:33:32 AM
+Last updated at 12/18/2024, 8:12:57 AM
