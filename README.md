@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control?in=saxurn/sets/pb-tuns/)
 
-**Artist**: 14106lyn, crusey, deepinparis 
+**Artist**: INITIALIZE 
 
-**Track**: none pizza left beef
+**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
 
-Last updated at 12/18/2024, 8:44:48 AM
+Last updated at 12/18/2024, 8:47:03 AM
