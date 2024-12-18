@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef?in=saxurn/sets/pb-tuns/)
 
-**Artist**: Panteros666, MCYL 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: Panteros666, MCYL - Pow!
+**Track**: none pizza left beef
 
-Last updated at 12/18/2024, 7:28:08 AM
+Last updated at 12/18/2024, 7:31:17 AM
