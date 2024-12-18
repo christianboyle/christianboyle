@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dVB5PyR9z24w4mYm-hYMoYQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/doechii-nissan-altima-star-monster-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsyTsaz1C8JrE3f3-gy64tw-t500x500.png">](https://soundcloud.com/speedworldrecs/blind)
 
-**Artist**: Star Monster 
+**Artist**: Oing, MINIMONSTER 
 
-**Track**: Doechii- Nissan Altima {Star Monster Flip}
+**Track**: Oing X MINIMONSTER - Blind
 
-Last updated at 12/18/2024, 6:57:58 AM
+Last updated at 12/18/2024, 6:58:58 AM
