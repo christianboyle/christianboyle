@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mEhWDONU4XEqnCa-yQQs4g-t500x500.jpg">](https://soundcloud.com/akrzn/canttellu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIIOm2MApoyK-0-t500x500.jpg">](https://soundcloud.com/zapravka-music/per-3-dose)
 
-**Artist**: akrzn 
+**Artist**: ZAPRAVKA 
 
-**Track**: #cant tell u (over)
+**Track**: PER 3 DOSE
 
-Last updated at 12/18/2024, 7:00:08 AM
+Last updated at 12/18/2024, 7:22:39 AM
