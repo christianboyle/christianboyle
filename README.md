@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVutHtuOpKtaQCqX-9f4d4Q-t500x500.jpg">](https://soundcloud.com/predayed/blametwopointohe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon)
 
-**Artist**: predayed 
+**Artist**: cld 
 
-**Track**: whos to blame feat Tenkay, Acid Souljah, & PINKBLXXD
+**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
 
-Last updated at 12/18/2024, 7:23:44 AM
+Last updated at 12/18/2024, 7:24:50 AM
