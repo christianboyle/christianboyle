@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BvyaSis31D30cVdR-jlxyuQ-t500x500.jpg">](https://soundcloud.com/user-557532689/fred-again-jozzy-ten-govnah-trance-edit)
 
-**Artist**: cld 
+**Artist**: GOVNAH 
 
-**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
+**Track**: Fred Again.. & Jozzy - Ten (GOVNAH TRANCE EDIT)
 
-Last updated at 12/18/2024, 7:24:50 AM
+Last updated at 12/18/2024, 7:25:59 AM
