@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AtiZ0vsUqyfzkHd-yCAHzQ-t500x500.jpg">](https://soundcloud.com/kaelihertz/come-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEyaSmgh9EusQtzC-UaXn6Q-t500x500.jpg">](https://soundcloud.com/synami/chiron)
 
-**Artist**: Kaeli Hertz 
+**Artist**: Synami 
 
-**Track**: Come Back
+**Track**: ❯❯ chiron — 𝘩𝘺𝘱𝘦𝘳𝘵𝘳𝘢𝘯𝘤𝘦
 
-Last updated at 12/18/2024, 6:54:14 AM
+Last updated at 12/18/2024, 6:55:14 AM
