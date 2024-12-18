@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control?in=saxurn/sets/juggin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1?in=saxurn/sets/juggin/)
 
-**Artist**: RayRay, T A N E 
+**Artist**: Steve Bates 
 
-**Track**: RayRay & T A N E - Lose Control
+**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
 
-Last updated at 12/18/2024, 1:38:08 PM
+Last updated at 12/18/2024, 1:40:43 PM
