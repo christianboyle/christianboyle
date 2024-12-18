@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1?in=saxurn/sets/pb-tuns/)
 
-**Artist**: SUAHN, ET Finger 
+**Artist**: Steve Bates 
 
-**Track**: RinseN'Repeat
+**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
 
-Last updated at 12/18/2024, 8:19:18 AM
+Last updated at 12/18/2024, 8:22:13 AM
