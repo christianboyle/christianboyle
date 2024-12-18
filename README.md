@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us)
 
-**Artist**: Panteros666, MCYL 
+**Artist**: CARV 
 
-**Track**: Panteros666, MCYL - Pow!
+**Track**: CARV & Vortek's - Nothing Can Stop Us
 
-Last updated at 12/18/2024, 10:37:52 AM
+Last updated at 12/18/2024, 1:11:45 PM
