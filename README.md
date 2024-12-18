@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat?in=saxurn/sets/pb-tuns/)
 
-**Artist**: RayRay, T A N E 
+**Artist**: SUAHN, ET Finger 
 
-**Track**: RayRay & T A N E - Lose Control
+**Track**: RinseN'Repeat
 
-Last updated at 12/18/2024, 8:16:48 AM
+Last updated at 12/18/2024, 8:19:18 AM
