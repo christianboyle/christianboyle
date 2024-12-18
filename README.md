@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEyaSmgh9EusQtzC-UaXn6Q-t500x500.jpg">](https://soundcloud.com/synami/chiron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vvgGY3WBJzr8EbmR-TBGEDg-t500x500.png">](https://soundcloud.com/picklesounds/groove-st-party-club-edit)
 
-**Artist**: Synami 
+**Artist**: Pickle 
 
-**Track**: ❯❯ chiron — 𝘩𝘺𝘱𝘦𝘳𝘵𝘳𝘢𝘯𝘤𝘦
+**Track**: Groove St. Party (Club Edit)
 
-Last updated at 12/18/2024, 6:55:14 AM
+Last updated at 12/18/2024, 6:56:34 AM
