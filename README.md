@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dj8xcGkqJqqYjPOP-riq0qg-t500x500.jpg">](https://soundcloud.com/kristian-llov/magnets-kristian-llov-remix-1)
 
-**Artist**: Papa Roach, Kayzo 
+**Artist**: Kristian Llov 
 
-**Track**: Last Resort (moji remix)
+**Track**: Magnets (Kristian Llov Remix) [Free Download]
 
-Last updated at 12/18/2024, 8:37:12 AM
+Last updated at 12/18/2024, 8:40:22 AM
