@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aNby7tzYXGTMVOa3-sZFvTA-t500x500.png">](https://soundcloud.com/panteros666/pow?in=saxurn/sets/pb-tuns/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control?in=saxurn/sets/pb-tuns/)
 
-**Artist**: Panteros666, MCYL 
+**Artist**: RayRay, T A N E 
 
-**Track**: Panteros666, MCYL - Pow!
+**Track**: RayRay & T A N E - Lose Control
 
-Last updated at 12/18/2024, 8:12:57 AM
+Last updated at 12/18/2024, 8:16:48 AM
