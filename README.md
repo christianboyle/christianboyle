@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUkn4EwLCsZXQy4J-NS5s1w-t500x500.png">](https://soundcloud.com/teedeejayyy/spf-infini-genesis-continuous-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jSAEXhJxTjPsT5Vp-zhOR5w-t500x500.jpg">](https://soundcloud.com/darn84/randall-helter-skelter-4)
 
-**Artist**: TDJ 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: SPF INFINI: GENESIS (Continuous Mix)
+**Track**: Randall @ Helter Skelter- Energy '97 (09/08/1997)
 
-Last updated at 12/18/2024, 6:51:56 AM
+Last updated at 12/18/2024, 6:52:59 AM
