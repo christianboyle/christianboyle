@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoIv8VNUOANOiy3C-C30Kwg-t500x500.png">](https://soundcloud.com/s3rl/through-the-night-exten-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef?in=saxurn/sets/juggin/)
 
-**Artist**: S3RL x Tatsunoshin 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: Through the Night (EXTEN Remix) - S3RL x Tatsunoshin
+**Track**: none pizza left beef
 
-Last updated at 12/19/2024, 9:37:52 AM
+Last updated at 12/19/2024, 9:39:18 AM
