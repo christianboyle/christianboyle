@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-351Q10b7vyzmmxZw-zgMzwA-t500x500.jpg">](https://soundcloud.com/voltra/composite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AoIv8VNUOANOiy3C-C30Kwg-t500x500.png">](https://soundcloud.com/s3rl/through-the-night-exten-remix)
 
-**Artist**: voltra 
+**Artist**: S3RL x Tatsunoshin 
 
-**Track**: COMPOSITE
+**Track**: Through the Night (EXTEN Remix) - S3RL x Tatsunoshin
 
-Last updated at 12/19/2024, 6:54:38 AM
+Last updated at 12/19/2024, 9:37:52 AM
