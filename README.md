@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9X2lVo8vAUzqYLnN-50ycbA-t500x500.jpg">](https://soundcloud.com/v_letical/misguiding?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs?in=saxurn/sets/juggin)
 
-**Artist**: valetical 
+**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
 
-**Track**: u & i
+**Track**: smartypuffs
 
-Last updated at 12/19/2024, 9:47:38 AM
+Last updated at 12/19/2024, 9:50:53 AM
