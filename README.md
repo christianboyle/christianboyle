@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1?in=saxurn/sets/juggin)
 
-**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
+**Artist**: Steve Bates 
 
-**Track**: smartypuffs
+**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
 
-Last updated at 12/19/2024, 9:50:53 AM
+Last updated at 12/19/2024, 9:54:03 AM
