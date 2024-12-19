@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgVcdNAevaCPYtGS-HZbaxQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-dj-sweet-and-sour-acid-bang-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvC4gRxTO0xxrjQp-lk6Q2w-t500x500.png">](https://soundcloud.com/kurtains/let-u-down)
 
-**Artist**: DJ Sweet And Sour 
+**Artist**: kurtains 
 
-**Track**: [PREMIERE] [ST015] DJ Sweet And Sour - Acid Bang
+**Track**: let u down
 
-Last updated at 12/19/2024, 6:44:34 AM
+Last updated at 12/19/2024, 6:49:08 AM
