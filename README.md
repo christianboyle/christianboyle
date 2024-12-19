@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat?in=saxurn/sets/juggin)
 
-**Artist**: CARV 
+**Artist**: SUAHN, ET Finger 
 
-**Track**: CARV & Vortek's - Nothing Can Stop Us
+**Track**: RinseN'Repeat
 
-Last updated at 12/19/2024, 9:56:08 AM
+Last updated at 12/19/2024, 10:01:44 AM
