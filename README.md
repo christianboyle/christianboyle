@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/rinsenrepeat?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix?in=saxurn/sets/juggin)
 
-**Artist**: SUAHN, ET Finger 
+**Artist**: Papa Roach, Kayzo 
 
-**Track**: RinseN'Repeat
+**Track**: Last Resort (moji remix)
 
-Last updated at 12/19/2024, 10:01:44 AM
+Last updated at 12/19/2024, 10:04:39 AM
