@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9X2lVo8vAUzqYLnN-50ycbA-t500x500.jpg">](https://soundcloud.com/v_letical/misguiding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon)
 
-**Artist**: valetical 
+**Artist**: cld 
 
-**Track**: u & i
+**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
 
-Last updated at 12/18/2024, 9:19:04 PM
+Last updated at 12/18/2024, 9:22:19 PM
