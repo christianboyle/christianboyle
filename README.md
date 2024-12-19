@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t1jfLlCvkyfnhyCW-DVOziw-t500x500.png">](https://soundcloud.com/djinitialize/initialize-lashes-ft-kirstie-smiler-control?in=saxurn/sets/juggin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWRmOvgLmjWrgqzH-sfz9aA-t500x500.png">](https://soundcloud.com/s1ck42/hottopic)
 
-**Artist**: INITIALIZE 
+**Artist**: s1ck, gloomed, minok0, 1sunsuu 
 
-**Track**: INITIALIZE + LASHES Ft. KIRSTIE SMILER - CONTROL (Sample)
+**Track**: ##hot topic w/ gloomed + minok0 + 1sunsuu (cr1sis)>:/
 
-Last updated at 12/18/2024, 9:33:40 PM
+Last updated at 12/19/2024, 6:40:07 AM
