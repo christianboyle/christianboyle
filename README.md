@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us?in=saxurn/sets/juggin)
 
-**Artist**: Steve Bates 
+**Artist**: CARV 
 
-**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
+**Track**: CARV & Vortek's - Nothing Can Stop Us
 
-Last updated at 12/19/2024, 9:54:03 AM
+Last updated at 12/19/2024, 9:56:08 AM
