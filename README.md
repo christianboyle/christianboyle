@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWRmOvgLmjWrgqzH-sfz9aA-t500x500.png">](https://soundcloud.com/s1ck42/hottopic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/bishalbacht-schoonebeek-take?in=sachsentrance/sets/hard-kick-weapons)
 
-**Artist**: s1ck, gloomed, minok0, 1sunsuu 
+**Artist**: Bishalbacht & Schoonebeek 
 
-**Track**: ##hot topic w/ gloomed + minok0 + 1sunsuu (cr1sis)>:/
+**Track**: [ST015] Hozier - Take Me To Church (Bishalbacht & Schoonebeek EDIT)
 
-Last updated at 12/19/2024, 6:40:07 AM
+Last updated at 12/19/2024, 6:41:12 AM
