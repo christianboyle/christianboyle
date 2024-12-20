@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5u4LHHvihqJnPgoq-IPTiWA-t500x500.png">](https://soundcloud.com/s3rl/touch-the-sky?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix?in=saxurn/sets/juggin)
 
-**Artist**: S3RL 
+**Artist**: Papa Roach, Kayzo 
 
-**Track**: Touch the Sky - S3RL
+**Track**: Last Resort (moji remix)
 
-Last updated at 12/20/2024, 1:23:42 PM
+Last updated at 12/20/2024, 1:27:02 PM
