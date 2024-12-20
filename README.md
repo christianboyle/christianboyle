@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4nthcd7s3wDiIU3-BEeQzw-t500x500.jpg">](https://soundcloud.com/sumsimpl/lik-lik-lik?in=saxurn/sets/nnn-2024-naughty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cAE0yNHzKVJmky60-zB2zFA-t500x500.jpg">](https://soundcloud.com/aychofficial/key-glock-pride-aych-flip-free-dl?in=saxurn/sets/nnn-2024-naughty)
 
-**Artist**: sum.simpl 
+**Artist**: AYCH 
 
-**Track**: LIK LIK LIK
+**Track**: KEY GLOCK - PRIDE (AYCH FLIP)
 
-Last updated at 12/20/2024, 2:50:40 PM
+Last updated at 12/20/2024, 2:53:35 PM
