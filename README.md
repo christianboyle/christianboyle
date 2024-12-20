@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrcQxPqa2xA3jK5s-ZJyagA-t500x500.jpg">](https://soundcloud.com/badtips/hajj-i-tried-to-tell-ya-something-thru-this-fucking-phone-comechelet-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgeqJH5N3XYQoVDy-aFfiRw-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-set-2-vibealite-summer)
 
-**Artist**: Hajj 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Hajj - I Tried To Tell Ya Something Thru This Fucking Phone (Comechelet Remix)
+**Track**: Hixxy (Set 2) @ Vibealite - Summer Holiday (13/07/1996)
 
-Last updated at 12/20/2024, 10:02:30 AM
+Last updated at 12/20/2024, 12:10:41 PM
