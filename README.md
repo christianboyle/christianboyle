@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sw8AwwXvChmDQjCZ-smWu6Q-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-here-we-go?in=shugo_srd/sets/shugz-christmas-cuts)
 
-**Artist**: Papa Roach, Kayzo 
+**Artist**: Shugz Music 
 
-**Track**: Last Resort (moji remix)
+**Track**: Shugz - Here We Go
 
-Last updated at 12/20/2024, 9:31:42 AM
+Last updated at 12/20/2024, 9:48:09 AM
