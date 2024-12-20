@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PjQNxWN0vREpfQVb-yjQmzQ-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmype-wormhole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hO76e0gBgkFThby-GQ0Sgw-t500x500.jpg">](https://soundcloud.com/diceysounds/bank)
 
-**Artist**: Jimmy Pé 
+**Artist**: DICEY 
 
-**Track**: Jimmy Pé - Wormhole
+**Track**: Bank
 
-Last updated at 12/20/2024, 9:59:15 AM
+Last updated at 12/20/2024, 10:00:15 AM
