@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SgeqJH5N3XYQoVDy-aFfiRw-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-set-2-vibealite-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sV1ky7gQz5e9Tqu5-YbzVdg-t500x500.jpg">](https://soundcloud.com/iamtokimi/smartypuffs?in=saxurn/sets/juggin)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: tokimi ft. reef, ashsocozy, seanpitaro, and xf chiba 
 
-**Track**: Hixxy (Set 2) @ Vibealite - Summer Holiday (13/07/1996)
+**Track**: smartypuffs
 
-Last updated at 12/20/2024, 12:10:41 PM
+Last updated at 12/20/2024, 12:13:16 PM
