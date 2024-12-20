@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3a0i25Od7D1qynyv-LpaCqQ-t500x500.jpg">](https://soundcloud.com/culture-shock/culture-shock-totally-enormous-extinct-dinosaurs-back-in-time-clip?in=culture-shock/sets/culture-shock-totally-enormous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWgEJCVGyUvZ0hKN-DlagXw-t500x500.jpg">](https://soundcloud.com/ekko-doomdale/somnibirth-campfire-version-1)
 
-**Artist**: Culture Shock, Totally Enormous Extinct Dinosaurs 
+**Artist**: vio lino 
 
-**Track**: Back In Time
+**Track**: somnibirth (campfire version)
 
-Last updated at 12/20/2024, 9:51:09 AM
+Last updated at 12/20/2024, 9:52:19 AM
