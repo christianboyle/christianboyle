@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vKZjszBvwzMCuFk-ma6nOw-t500x500.png">](https://soundcloud.com/ephexbass/wakeru)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y5Hewl8z8Av7TzSH-qPonEQ-t500x500.jpg">](https://soundcloud.com/charkomusic/kendrick-lamar-humble-charko-remix-free-dl)
 
-**Artist**: Ephex 
+**Artist**: Charko 
 
-**Track**: Wakeru
+**Track**: Kendrick Lamar - Humble (Charko Remix) FREE DL
 
-Last updated at 12/20/2024, 9:49:09 AM
+Last updated at 12/20/2024, 9:50:09 AM
