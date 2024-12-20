@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sw8AwwXvChmDQjCZ-smWu6Q-t500x500.jpg">](https://soundcloud.com/shugo_srd/shugz-here-we-go?in=shugo_srd/sets/shugz-christmas-cuts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vKZjszBvwzMCuFk-ma6nOw-t500x500.png">](https://soundcloud.com/ephexbass/wakeru)
 
-**Artist**: Shugz Music 
+**Artist**: Ephex 
 
-**Track**: Shugz - Here We Go
+**Track**: Wakeru
 
-Last updated at 12/20/2024, 9:48:09 AM
+Last updated at 12/20/2024, 9:49:09 AM
