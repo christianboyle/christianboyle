@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7hO76e0gBgkFThby-GQ0Sgw-t500x500.jpg">](https://soundcloud.com/diceysounds/bank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uHllHxM7mqVd3Yub-MyjK3w-t500x500.png">](https://soundcloud.com/callmecajo/memory-purge)
 
-**Artist**: DICEY 
+**Artist**: Câjø 
 
-**Track**: Bank
+**Track**: Memory Purge
 
-Last updated at 12/20/2024, 10:00:15 AM
+Last updated at 12/20/2024, 10:01:30 AM
