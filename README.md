@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kKOO37PADRDyOMj6-nwAMPw-t500x500.jpg">](https://soundcloud.com/livefromearth/synkronize-aamourocean-remix?in=saxurn/sets/wave-race)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-On4v8oNlyKeFiJAQ-lzsEyQ-t500x500.jpg">](https://soundcloud.com/victxrw/fluorescent?in=saxurn/sets/nnn-2024-naughty)
 
-**Artist**: Promis3 
+**Artist**: victxrw 
 
-**Track**: SYNKRONIZE (Aamourocean Remix)
+**Track**: fluorescent (lullaby + victxrw)
 
-Last updated at 12/20/2024, 2:33:18 PM
+Last updated at 12/20/2024, 2:37:18 PM
