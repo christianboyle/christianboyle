@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2qH0ngop29fzqgEu-fM5W1A-t500x500.png">](https://soundcloud.com/little-sethany/something-borrowed-something-boring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Za6kaREGYNxzfrIO-rKCynA-t500x500.jpg">](https://soundcloud.com/yfwqp/more-high-and-bass)
 
-**Artist**: sethany 
+**Artist**: milli ;D 
 
-**Track**: something borrowed, something boring (prod. metlast)
+**Track**: the one prod shingan
 
-Last updated at 12/20/2024, 9:53:19 AM
+Last updated at 12/20/2024, 9:54:35 AM
