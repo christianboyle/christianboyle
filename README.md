@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ost2a4ngZqMz0QyD-SseRug-t500x500.png">](https://soundcloud.com/okayjake/lovesosaokayjake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/she-looks-so-perfect-anop-s-nxc)
 
-**Artist**: OkayJake 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Chief Keef - Love Sosa (RL Grime Remix) (OkayJake Remix)
+**Track**: SHE LOOKS SO PERFECT (ANOPS NXC)
 
-Last updated at 12/20/2024, 9:56:50 AM
+Last updated at 12/20/2024, 9:58:15 AM
