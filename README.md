@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5iq1Rb2SjzIdZKZT-fueqzQ-t500x500.jpg">](https://soundcloud.com/electronyze-me/blunts-run-it-back-ft-jmo-let-em-know-final?in=electronyze-me/sets/wobble-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ost2a4ngZqMz0QyD-SseRug-t500x500.png">](https://soundcloud.com/okayjake/lovesosaokayjake)
 
-**Artist**: Blunts & Blondes 
+**Artist**: OkayJake 
 
-**Track**: Blunts & Blondes - Run It Back [Ft. Jmo Let Em Know]
+**Track**: Chief Keef - Love Sosa (RL Grime Remix) (OkayJake Remix)
 
-Last updated at 12/20/2024, 9:55:50 AM
+Last updated at 12/20/2024, 9:56:50 AM
