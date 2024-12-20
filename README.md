@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uHllHxM7mqVd3Yub-MyjK3w-t500x500.png">](https://soundcloud.com/callmecajo/memory-purge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrcQxPqa2xA3jK5s-ZJyagA-t500x500.jpg">](https://soundcloud.com/badtips/hajj-i-tried-to-tell-ya-something-thru-this-fucking-phone-comechelet-remix)
 
-**Artist**: Câjø 
+**Artist**: Hajj 
 
-**Track**: Memory Purge
+**Track**: Hajj - I Tried To Tell Ya Something Thru This Fucking Phone (Comechelet Remix)
 
-Last updated at 12/20/2024, 10:01:30 AM
+Last updated at 12/20/2024, 10:02:30 AM
