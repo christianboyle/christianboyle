@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuK9GT7QvunXW2b9-B9iQXA-t500x500.jpg">](https://soundcloud.com/jeed1210/nicky-louda-brass-tax-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HicpIVrxaRBaybfC-C2zV9Q-t500x500.png">](https://soundcloud.com/saint-baek/000bf427-1455-48a4-9eb8-12f15a44f8cd)
 
-**Artist**: Nicky Louda 
+**Artist**: SAINT MILLER 
 
-**Track**: Nicky Louda - Brass Tax
+**Track**: TAKE ME
 
-Last updated at 12/21/2024, 3:41:31 PM
+Last updated at 12/21/2024, 3:42:36 PM
