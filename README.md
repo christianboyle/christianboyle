@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9X2lVo8vAUzqYLnN-50ycbA-t500x500.jpg">](https://soundcloud.com/v_letical/misguiding?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/lewis-layn-beast-dallaniel?in=saxurn/sets/juggin)
 
-**Artist**: valetical 
+**Artist**: Lewis Layn 
 
-**Track**: u & i
+**Track**: [ST015] Lewis Layn - Beast
 
-Last updated at 12/21/2024, 10:32:53 AM
+Last updated at 12/21/2024, 10:36:08 AM
