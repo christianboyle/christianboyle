@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fH9e1HQCOQvt4zNW-DFqoAQ-t500x500.png">](https://soundcloud.com/itsrestricted/restricted-vorteks-fckn-loud-revive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZamBQSihGcdzsZf-zA5MDg-t500x500.jpg">](https://soundcloud.com/adamenoise/and-volair-converging-minds)
 
-**Artist**: Restricted, Vortek's 
+**Artist**: ADAME & Volair 
 
-**Track**: Restricted, Vortek's - FCKN LOUD [REVIVE]
+**Track**: Converging Minds
 
-Last updated at 12/21/2024, 3:45:36 PM
+Last updated at 12/21/2024, 3:47:02 PM
