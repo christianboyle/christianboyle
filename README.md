@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra6IgERAeb4BgdBZ-RqW09w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-vorteks-nothing-cant-stop-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
 
-**Artist**: CARV 
+**Artist**: DJ SMOKEY 666, SHADOW WIZARD MONEY GANG 
 
-**Track**: CARV & Vortek's - Nothing Can Stop Us
+**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
 
-Last updated at 12/21/2024, 7:45:11 AM
+Last updated at 12/21/2024, 7:55:26 AM
