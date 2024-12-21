@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/lewis-layn-beast-dallaniel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wcTXBeHf44ctBysn-99yy4g-t500x500.jpg">](https://soundcloud.com/14106lyn/none-pizza-left-beef?in=saxurn/sets/juggin)
 
-**Artist**: Lewis Layn 
+**Artist**: 14106lyn, crusey, deepinparis 
 
-**Track**: [ST015] Lewis Layn - Beast
+**Track**: none pizza left beef
 
-Last updated at 12/21/2024, 10:37:18 AM
+Last updated at 12/21/2024, 10:59:15 AM
