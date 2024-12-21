@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T1l0yc87QuVuKskD-eq707A-t500x500.jpg">](https://soundcloud.com/2dynasty/dnd?in=2dynasty/sets/solstice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lI5tLTlbRvl3WwL3-yBdvVA-t500x500.jpg">](https://soundcloud.com/nickneumonic/freakuency-san-diego-closing-set-sdukg-takeover)
 
-**Artist**: #dynasty 
+**Artist**: Neumonic 
 
-**Track**: seph & tera - do not disturb (seph & innam)   ⋆꙳•̩̩͙❅*̩̩͙‧͙    ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
+**Track**: Freakuency San Diego Closing Set (SD.UKG Takeover)
 
-Last updated at 12/21/2024, 3:43:36 PM
+Last updated at 12/21/2024, 3:44:36 PM
