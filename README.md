@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/lewis-layn-beast-dallaniel?in=saxurn/sets/juggin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnMcFzm0GVSN3Y5h-7krb7g-t500x500.jpg">](https://soundcloud.com/djstevebates/yannis-g-steve-bates-sunny-1?in=saxurn/sets/juggin)
 
-**Artist**: Lewis Layn 
+**Artist**: Steve Bates 
 
-**Track**: [ST015] Lewis Layn - Beast
+**Track**: Yannis G & Steve Bates - Sunny Day (Sample)
 
-Last updated at 12/21/2024, 11:09:51 AM
+Last updated at 12/21/2024, 11:15:02 AM
