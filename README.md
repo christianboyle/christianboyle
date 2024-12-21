@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HicpIVrxaRBaybfC-C2zV9Q-t500x500.png">](https://soundcloud.com/saint-baek/000bf427-1455-48a4-9eb8-12f15a44f8cd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T1l0yc87QuVuKskD-eq707A-t500x500.jpg">](https://soundcloud.com/2dynasty/dnd?in=2dynasty/sets/solstice)
 
-**Artist**: SAINT MILLER 
+**Artist**: #dynasty 
 
-**Track**: TAKE ME
+**Track**: seph & tera - do not disturb (seph & innam)   ⋆꙳•̩̩͙❅*̩̩͙‧͙    ‧͙*̩̩͙❆ ͙͛ ˚₊⋆
 
-Last updated at 12/21/2024, 3:42:36 PM
+Last updated at 12/21/2024, 3:43:36 PM
