@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCkz3MP9nKzNnNCJ-Lga66A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-nightfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JSjj8sm9BK9jcfh9-goihEg-t500x500.png">](https://soundcloud.com/bleaubeard/abyss)
 
-**Artist**: M-Project 
+**Artist**: Bleaubeard 
 
-**Track**: M-Project - Nightfire
+**Track**: Bleaubeard - Abyss
 
-Last updated at 12/22/2024, 10:31:48 AM
+Last updated at 12/22/2024, 10:32:48 AM
