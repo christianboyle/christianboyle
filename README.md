@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddNKFAomSRDsyrVK-LS0yLg-t500x500.jpg">](https://soundcloud.com/2siikmusic/2siik-ftcu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03pmX4ny1C4qxaGV-gAWEoQ-t500x500.png">](https://soundcloud.com/crvnchyy/hollowrounds)
 
-**Artist**: 2SiiK 
+**Artist**: crvnchy, deepinparis, crisis 
 
-**Track**: FTCU (2SiiK Remix)
+**Track**: hollow rounds w/deepinparis, crisis (p. blckhrt x me)
 
-Last updated at 12/22/2024, 4:29:55 PM
+Last updated at 12/22/2024, 4:30:57 PM
