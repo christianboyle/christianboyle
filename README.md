@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZamBQSihGcdzsZf-zA5MDg-t500x500.jpg">](https://soundcloud.com/adamenoise/and-volair-converging-minds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXB7phwG4rTCzzet-l0bA9w-t500x500.jpg">](https://soundcloud.com/seinjuhyung/my-humps-love-parade-sein-edit-1)
 
-**Artist**: ADAME & Volair 
+**Artist**: Sein 
 
-**Track**: Converging Minds
+**Track**: My Humps Love Parade (Sein Edit)
 
-Last updated at 12/21/2024, 3:47:02 PM
+Last updated at 12/22/2024, 10:30:48 AM
