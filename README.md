@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03pmX4ny1C4qxaGV-gAWEoQ-t500x500.png">](https://soundcloud.com/crvnchyy/hollowrounds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhWfRz2nVPxZiTJJ-xt16RQ-t500x500.jpg">](https://soundcloud.com/tellthetruth_wav/one-three-seven)
 
-**Artist**: crvnchy, deepinparis, crisis 
+**Artist**: TELLTHETRUTH, HENRRISH V 
 
-**Track**: hollow rounds w/deepinparis, crisis (p. blckhrt x me)
+**Track**: TELLTHETRUTH, HENRRISH V - ONE THREE SEVEN
 
-Last updated at 12/22/2024, 4:30:57 PM
+Last updated at 12/22/2024, 4:58:12 PM
