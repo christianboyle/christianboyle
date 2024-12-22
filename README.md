@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z14AoPvUArA3UI0T-YSwtHg-t500x500.jpg">](https://soundcloud.com/montarecs/typhon-drippin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddNKFAomSRDsyrVK-LS0yLg-t500x500.jpg">](https://soundcloud.com/2siikmusic/2siik-ftcu-remix)
 
-**Artist**: Typhon 
+**Artist**: 2SiiK 
 
-**Track**: Typhon - Drippin'
+**Track**: FTCU (2SiiK Remix)
 
-Last updated at 12/22/2024, 10:39:14 AM
+Last updated at 12/22/2024, 4:29:55 PM
