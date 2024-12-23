@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BvyaSis31D30cVdR-jlxyuQ-t500x500.jpg">](https://soundcloud.com/user-557532689/fred-again-jozzy-ten-govnah-trance-edit?in=saxurn/sets/primal-spiral/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaYNfJJNEhvW2yaM-rBUpvQ-t500x500.jpg">](https://soundcloud.com/itsydg/it-girl-ydg-remix?in=saxurn/sets/primal-spiral)
 
-**Artist**: GOVNAH 
+**Artist**: YDG 
 
-**Track**: Fred Again.. & Jozzy - Ten (GOVNAH TRANCE EDIT)
+**Track**: It Girl (YDG Remix)
 
-Last updated at 12/23/2024, 8:23:57 AM
+Last updated at 12/23/2024, 8:27:57 AM
