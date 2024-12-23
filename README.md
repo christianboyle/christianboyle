@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrn1QMawjduQeYLU-Xmmy2A-t500x500.jpg">](https://soundcloud.com/adam-west-974450791/paul-and-adam1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LrTtUjgX51anua1K-l7KTRg-t500x500.jpg">](https://soundcloud.com/officialneoqor/mtcneoqorremix)
 
-**Artist**: Adam west, Paul Lawrence 
+**Artist**: S3RL 
 
-**Track**: Happy Friday - Adam west & Paul Lawrence
+**Track**: S3RL - MTC (NeoQor Remix) (Extra Long & Girthy Version)
 
-Last updated at 12/23/2024, 5:02:13 PM
+Last updated at 12/23/2024, 5:06:43 PM
