@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control?in=saxurn/sets/primal-spiral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A0rdFMOHnqfMyCZ3-m0oYhg-t500x500.jpg">](https://soundcloud.com/flucc/shy-penguin-friend?in=saxurn/sets/primal-spiral)
 
-**Artist**: RayRay, T A N E 
+**Artist**: FLUCC 
 
-**Track**: RayRay & T A N E - Lose Control
+**Track**: Shy Penguin Friend
 
-Last updated at 12/23/2024, 1:40:21 PM
+Last updated at 12/23/2024, 1:42:56 PM
