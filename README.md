@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f3AyMxflimomV8cf-wwzQWg-t500x500.png">](https://soundcloud.com/ole123456/chrysalis?in=saxurn/sets/primal-spiral/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOkU8iTVJaBObI54-zslbtQ-t500x500.jpg">](https://soundcloud.com/jukaamusic/stresshead-so-high-jukaa-remix?in=saxurn/sets/primal-spiral/)
 
-**Artist**: olé 
+**Artist**: Jukaa 
 
-**Track**: chrysa̶̭̫̗͚̙͋l̶̻̰̰̮̝̂̓̋̒̔͗̾̌is..
+**Track**: Stresshead - So High (Jukaa Remix)
 
-Last updated at 12/23/2024, 8:10:46 AM
+Last updated at 12/23/2024, 8:20:47 AM
