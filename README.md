@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaYNfJJNEhvW2yaM-rBUpvQ-t500x500.jpg">](https://soundcloud.com/itsydg/it-girl-ydg-remix?in=saxurn/sets/sp-ral/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XztdmAwqXTz1iykn-G6mzyQ-t500x500.jpg">](https://soundcloud.com/dvdmtl/tast3-1?in=saxurn/sets/sp-ral/)
 
-**Artist**: YDG 
+**Artist**: D V D 
 
-**Track**: It Girl (YDG Remix)
+**Track**: tast3😋
 
-Last updated at 12/22/2024, 7:16:32 PM
+Last updated at 12/22/2024, 7:18:42 PM
