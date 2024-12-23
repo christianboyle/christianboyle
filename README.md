@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3A6I2L97u6VJfBmT-vDve8w-t500x500.jpg">](https://soundcloud.com/gretchenbazooka/dynamichalloweenattack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wzi7vhZTrZ5TE1Jp-Lvtukg-t500x500.jpg">](https://soundcloud.com/symmetrikmusic/caroline)
 
-**Artist**: Gretchen Bazooka 
+**Artist**: Symmetrik 
 
-**Track**: DJ SET @ DYNAMIC HALLOWEEN ATTACK - NOV 1ST, ABOUT BLANK BERLIN
+**Track**: CAROLINE
 
-Last updated at 12/23/2024, 3:37:02 PM
+Last updated at 12/23/2024, 4:56:02 PM
