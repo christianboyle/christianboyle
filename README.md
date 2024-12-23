@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWRmOvgLmjWrgqzH-sfz9aA-t500x500.png">](https://soundcloud.com/s1ck42/hottopic?in=saxurn/sets/sp-ral/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaYNfJJNEhvW2yaM-rBUpvQ-t500x500.jpg">](https://soundcloud.com/itsydg/it-girl-ydg-remix?in=saxurn/sets/sp-ral/)
 
-**Artist**: s1ck, gloomed, minok0, 1sunsuu 
+**Artist**: YDG 
 
-**Track**: ##hot topic w/ gloomed + minok0 + 1sunsuu (cr1sis)>:/
+**Track**: It Girl (YDG Remix)
 
-Last updated at 12/22/2024, 7:14:07 PM
+Last updated at 12/22/2024, 7:16:32 PM
