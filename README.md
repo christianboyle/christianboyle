@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6IKKBrLvDQARlofu-dmzRKQ-t500x500.jpg">](https://soundcloud.com/ukf/wink-nikko-cantbreathe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaYNfJJNEhvW2yaM-rBUpvQ-t500x500.jpg">](https://soundcloud.com/itsydg/it-girl-ydg-remix?in=saxurn/sets/primal-spiral)
 
-**Artist**: WINK & nikko 
+**Artist**: YDG 
 
-**Track**: WINK & nikko - cantBREATHE
+**Track**: It Girl (YDG Remix)
 
-Last updated at 12/23/2024, 9:07:36 AM
+Last updated at 12/23/2024, 9:10:39 AM
