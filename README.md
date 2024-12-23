@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHD9ltMFGRhNW31i-wSW65A-t500x500.jpg">](https://soundcloud.com/atomixu/rose-toxic-till-the-end-atomix-miggy-t-remix?in=saxurn/sets/primal-spiral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3MVz7HAc3aH4efVo-Vheu7g-t500x500.png">](https://soundcloud.com/djrayray/rayray-t-a-n-e-lose-control?in=saxurn/sets/primal-spiral)
 
-**Artist**: ATOMIX 
+**Artist**: RayRay, T A N E 
 
-**Track**: ROSÉ - toxic till the end (Atomix & Miggy T Remix)
+**Track**: RayRay & T A N E - Lose Control
 
-Last updated at 12/23/2024, 1:29:26 PM
+Last updated at 12/23/2024, 1:40:21 PM
