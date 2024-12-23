@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fwvdmlSoBwasz5zn-b23JEA-t500x500.jpg">](https://soundcloud.com/officialneoqor/inneruniverseremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jeX2cG6oLb5JTDl-KM2zUQ-t500x500.jpg">](https://soundcloud.com/highlifesamples/highlife-samples-hardstyle-melodies)
 
-**Artist**: NeoQor 
+**Artist**: HighLife Samples 
 
-**Track**: Inner Universe (Girth in the Shell)
+**Track**: HighLife Samples Hardstyle Melodies
 
-Last updated at 12/23/2024, 5:20:29 PM
+Last updated at 12/23/2024, 5:24:10 PM
