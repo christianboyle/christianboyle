@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UH6WmXVObHjHilOr-s1O66Q-t500x500.jpg">](https://soundcloud.com/gabber-industries-berlin/flucc-i-scream-my-heart-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWRmOvgLmjWrgqzH-sfz9aA-t500x500.png">](https://soundcloud.com/s1ck42/hottopic?in=saxurn/sets/sp-ral/)
 
-**Artist**: FLUCC 
+**Artist**: s1ck, gloomed, minok0, 1sunsuu 
 
-**Track**: FLUCC - I Scream, My Heart
+**Track**: ##hot topic w/ gloomed + minok0 + 1sunsuu (cr1sis)>:/
 
-Last updated at 12/22/2024, 7:48:55 PM
+Last updated at 12/22/2024, 7:52:57 PM
