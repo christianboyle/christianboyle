@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/spring-breakers-anop-s-crazy-gurl-remix?in=saxurn/sets/sp-ral/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f3AyMxflimomV8cf-wwzQWg-t500x500.png">](https://soundcloud.com/ole123456/chrysalis?in=saxurn/sets/sp-ral/)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: olé 
 
-**Track**: SPRING BREAKERS (ANOPS CRAZY GURL REMIX)
+**Track**: chrysa̶̭̫̗͚̙͋l̶̻̰̰̮̝̂̓̋̒̔͗̾̌is..
 
-Last updated at 12/22/2024, 7:31:29 PM
+Last updated at 12/22/2024, 7:34:39 PM
