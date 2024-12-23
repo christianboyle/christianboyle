@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LrTtUjgX51anua1K-l7KTRg-t500x500.jpg">](https://soundcloud.com/officialneoqor/mtcneoqorremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yodDgu2ibFptyGt-0CuCew-t500x500.jpg">](https://soundcloud.com/dj_tatsumaru-596439850/we-all-gonna-make-it-brahz)
 
-**Artist**: S3RL 
+**Artist**: Dj Tatsumaru 
 
-**Track**: S3RL - MTC (NeoQor Remix) (Extra Long & Girthy Version)
+**Track**: We All Gonna Make It Brahz
 
-Last updated at 12/23/2024, 5:06:43 PM
+Last updated at 12/23/2024, 5:13:09 PM
