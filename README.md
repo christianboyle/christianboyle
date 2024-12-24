@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BZyx5HzREOXQ5Ytn-y6yPJw-t500x500.jpg">](https://soundcloud.com/djfloyd/black-white-master-sc-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ymh8QFMUh1JrlMKi-dJ4O1w-t500x500.jpg">](https://soundcloud.com/outforce/another-love)
 
-**Artist**: Floydy 
+**Artist**: Outforce 
 
-**Track**: Black & White
+**Track**: Another Love
 
-Last updated at 12/23/2024, 7:48:57 PM
+Last updated at 12/23/2024, 7:51:42 PM
