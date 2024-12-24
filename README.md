@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyLetY6nBc4FFk7o-yMylQg-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-matto-matto-man-boomtown-savage-states-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules)
 
-**Artist**: M-Project 
+**Artist**: Akagitune 
 
-**Track**: M-Project & Mättö Mättö Män - Boomtown (Savage States Remix)
+**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
 
-Last updated at 12/24/2024, 8:48:14 AM
+Last updated at 12/24/2024, 8:49:14 AM
