@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cz7XPI7pLwuxCy6x-7LbDqg-t500x500.jpg">](https://soundcloud.com/telli-official/simsalagrimmtelli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLXAHD1uwuhm-0-t500x500.png">](https://soundcloud.com/wasted-penguinz/evergreen)
 
-**Artist**: Luca-Dante Spadafora 
+**Artist**: Wasted Penguinz 
 
-**Track**: Luca-Dante Spadafora- Ich nehm dich bei der Hand (SimsalaGrimm) (TELLI Bootleg)
+**Track**: Evergreen
 
-Last updated at 12/23/2024, 7:39:05 PM
+Last updated at 12/23/2024, 7:41:20 PM
