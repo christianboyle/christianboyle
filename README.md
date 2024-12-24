@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5u4LHHvihqJnPgoq-IPTiWA-t500x500.png">](https://soundcloud.com/s3rl/touch-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules)
 
-**Artist**: S3RL 
+**Artist**: Akagitune 
 
-**Track**: Touch the Sky - S3RL
+**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
 
-Last updated at 12/24/2024, 9:32:38 AM
+Last updated at 12/24/2024, 9:34:05 AM
