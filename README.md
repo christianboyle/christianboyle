@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNVyS47lQB4y2586-nUAT7w-t500x500.jpg">](https://soundcloud.com/luminaricmusic/final-talk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cz7XPI7pLwuxCy6x-7LbDqg-t500x500.jpg">](https://soundcloud.com/telli-official/simsalagrimmtelli)
 
-**Artist**: Luminaric 
+**Artist**: Luca-Dante Spadafora 
 
-**Track**: Final Talk
+**Track**: Luca-Dante Spadafora- Ich nehm dich bei der Hand (SimsalaGrimm) (TELLI Bootleg)
 
-Last updated at 12/23/2024, 7:33:30 PM
+Last updated at 12/23/2024, 7:39:05 PM
