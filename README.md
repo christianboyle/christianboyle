@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FhX1cyxfUAN6rYTp-KRpMvw-t500x500.jpg">](https://soundcloud.com/simongravity/hardcore-punch-6-dj-mix-by-simon-gravity-ukhappy-hardcore-set-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-deoALTLNvhqDI8N1-z86Slg-t500x500.jpg">](https://soundcloud.com/jkukhardcore/technikore-feat-nathalie-calling-out-to-you-jk-remix)
 
-**Artist**: Various Artists 
+**Artist**: J.K 
 
-**Track**: Hardcore Punch 6 - DJ Mix by Simon Gravity [UK/HAPPY HARDCORE SET] [PROMO MIX]
+**Track**: Technikore Feat. Nathalie - Calling Out To You (J.K Remix)
 
-Last updated at 12/23/2024, 6:16:01 PM
+Last updated at 12/23/2024, 7:30:49 PM
