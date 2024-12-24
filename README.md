@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfFVBQSV7qCTzM5K-aOfH4A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/a1540e95-612f-407e-9489-adc971674cab)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfFVBQSV7qCTzM5K-aOfH4A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/scott-brown-m-project-ft-ceci-i-go-crazy)
 
-**Artist**: Scott Brown M-Project 
+**Artist**: Scott Brown　M-Project 
 
-**Track**: Scott Brown & M-Project - The Revolution (VIP Mix) (Redux)
+**Track**: Scott Brown & M-Project ft Ceci - I Go Crazy
 
-Last updated at 12/24/2024, 8:59:30 AM
+Last updated at 12/24/2024, 9:02:05 AM
