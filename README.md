@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHD9ltMFGRhNW31i-wSW65A-t500x500.jpg">](https://soundcloud.com/atomixu/rose-toxic-till-the-end-atomix-miggy-t-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/spring-breakers-anop-s-crazy-gurl-remix)
 
-**Artist**: ATOMIX 
+**Artist**: nightcore4totalsluts 
 
-**Track**: ROSÉ - toxic till the end (Atomix & Miggy T Remix)
+**Track**: SPRING BREAKERS (ANOPS CRAZY GURL REMIX)
 
-Last updated at 12/24/2024, 9:17:12 AM
+Last updated at 12/24/2024, 9:19:47 AM
