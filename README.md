@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVNKhbI1lHFaPAw7-KzccKQ-t500x500.jpg">](https://soundcloud.com/jamie-nicholas-688561767/dj-pyro-and-mc-shooks-mix-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vJjoaOOUpnoD8CKW-KC3Ngw-t500x500.jpg">](https://soundcloud.com/ultravibes/wake-me-up-radio-mix)
 
-**Artist**: 🔥🔥DJ-Pyro🔥🔥 
+**Artist**: Ultravibes 
 
-**Track**: XMAS BASH DJ PYRO MIX
+**Track**: Wake Me Up (Radio Mix)***OUT NOW
 
-Last updated at 12/23/2024, 9:16:42 PM
+Last updated at 12/23/2024, 10:12:24 PM
