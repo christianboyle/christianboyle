@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfFVBQSV7qCTzM5K-aOfH4A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/scott-brown-m-project-ft-ceci-i-go-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCkz3MP9nKzNnNCJ-Lga66A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-nightfire)
 
-**Artist**: Scott Brown　M-Project 
+**Artist**: M-Project 
 
-**Track**: Scott Brown & M-Project ft Ceci - I Go Crazy
+**Track**: M-Project - Nightfire
 
-Last updated at 12/24/2024, 9:02:05 AM
+Last updated at 12/24/2024, 9:05:11 AM
