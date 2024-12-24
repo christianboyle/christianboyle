@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AEa5EY55vpMH9KN8-aOrX0Q-t500x500.jpg">](https://soundcloud.com/dj-a-k/dj-ak-90s-bouncy-hardcore-mix-271223)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVNKhbI1lHFaPAw7-KzccKQ-t500x500.jpg">](https://soundcloud.com/jamie-nicholas-688561767/dj-pyro-and-mc-shooks-mix-wav)
 
-**Artist**: DJ A.K. 
+**Artist**: 🔥🔥DJ-Pyro🔥🔥 
 
-**Track**: DJ A.K. - 90's Bouncy Hardcore Mix 27.12.23
+**Track**: XMAS BASH DJ PYRO MIX
 
-Last updated at 12/23/2024, 7:58:03 PM
+Last updated at 12/23/2024, 9:16:42 PM
