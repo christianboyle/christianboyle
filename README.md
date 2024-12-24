@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wfFVBQSV7qCTzM5K-aOfH4A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/scott-brown-m-project-ft-ceci-i-go-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/lewis-layn-beast-dallaniel)
 
-**Artist**: Scott Brown　M-Project 
+**Artist**: Lewis Layn 
 
-**Track**: Scott Brown & M-Project ft Ceci - I Go Crazy
+**Track**: [ST015] Lewis Layn - Beast
 
-Last updated at 12/24/2024, 9:41:06 AM
+Last updated at 12/24/2024, 4:22:06 PM
