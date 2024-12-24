@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCkz3MP9nKzNnNCJ-Lga66A-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-nightfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaYNfJJNEhvW2yaM-rBUpvQ-t500x500.jpg">](https://soundcloud.com/itsydg/it-girl-ydg-remix)
 
-**Artist**: M-Project 
+**Artist**: YDG 
 
-**Track**: M-Project - Nightfire
+**Track**: It Girl (YDG Remix)
 
-Last updated at 12/24/2024, 9:05:11 AM
+Last updated at 12/24/2024, 9:08:16 AM
