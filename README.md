@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zrdktMCOhE7THyiu-1uuTKA-t500x500.jpg">](https://soundcloud.com/willie_blues/wasted-penguinz-heaven-stonebank-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BZyx5HzREOXQ5Ytn-y6yPJw-t500x500.jpg">](https://soundcloud.com/djfloyd/black-white-master-sc-clip)
 
-**Artist**: Willi_Blues 
+**Artist**: Floydy 
 
-**Track**: Wasted Penguinz - Heaven (Stonebank Remix)
+**Track**: Black & White
 
-Last updated at 12/23/2024, 7:45:36 PM
+Last updated at 12/23/2024, 7:48:57 PM
