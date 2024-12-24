@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BLXAHD1uwuhm-0-t500x500.png">](https://soundcloud.com/wasted-penguinz/evergreen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zrdktMCOhE7THyiu-1uuTKA-t500x500.jpg">](https://soundcloud.com/willie_blues/wasted-penguinz-heaven-stonebank-remix)
 
-**Artist**: Wasted Penguinz 
+**Artist**: Willi_Blues 
 
-**Track**: Evergreen
+**Track**: Wasted Penguinz - Heaven (Stonebank Remix)
 
-Last updated at 12/23/2024, 7:41:20 PM
+Last updated at 12/23/2024, 7:45:36 PM
