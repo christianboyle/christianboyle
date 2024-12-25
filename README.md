@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/idk-i-cant-remember)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qphy3SIk5VNci5Vw-a85NwQ-t500x500.png">](https://soundcloud.com/bhproducer/more-time)
 
-**Artist**: beverly hills mom 
+**Artist**: bh 
 
-**Track**: idk i cant remember
+**Track**: we need more time
 
-Last updated at 12/25/2024, 3:00:47 PM
+Last updated at 12/25/2024, 3:01:47 PM
