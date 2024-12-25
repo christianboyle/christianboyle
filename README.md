@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abvrAV3rNy90EecL-gEWN5g-t500x500.jpg">](https://soundcloud.com/makewavs/z-dougie-x-fringe-doctor-dictator)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzjAwuQ58Yomb5QR-w0OwQA-t500x500.jpg">](https://soundcloud.com/nidrabeats/crest)
 
-**Artist**: Z-Dougie x Fringe 
+**Artist**: Nidra 
 
-**Track**: Z-Dougie x Fringe - Doctor Dictator
+**Track**: Crest
 
-Last updated at 12/25/2024, 2:50:46 PM
+Last updated at 12/25/2024, 2:51:46 PM
