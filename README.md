@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzjAwuQ58Yomb5QR-w0OwQA-t500x500.jpg">](https://soundcloud.com/nidrabeats/crest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7oOZ0z6DpH7JujFy-XOHM0Q-t500x500.jpg">](https://soundcloud.com/22interns/22-interns-feel-right)
 
-**Artist**: Nidra 
+**Artist**: 22 Interns 
 
-**Track**: Crest
+**Track**: Feel Right
 
-Last updated at 12/25/2024, 2:51:46 PM
+Last updated at 12/25/2024, 2:54:07 PM
