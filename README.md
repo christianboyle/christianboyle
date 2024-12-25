@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFAuURrCDoehtDsF-RWGIkA-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-matto-matto-man-rock-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MA3wkgQYDMKsjwZy-p5efOg-t500x500.jpg">](https://soundcloud.com/ayoomusic/future-codeine-crazy-ayoo-remix)
 
-**Artist**: M-Project 
+**Artist**: Future  
 
-**Track**: M-Project & Matto Matto Man - Rock it
+**Track**: Future - Codeine Crazy (AYOO Remix)
 
-Last updated at 12/25/2024, 2:47:31 PM
+Last updated at 12/25/2024, 2:48:31 PM
