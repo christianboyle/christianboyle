@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PXCVMREM9hI7KmFy-UmdU7Q-t500x500.jpg">](https://soundcloud.com/black0holes/yozy-monsters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G23P6HMhsp3ehiiP-ALVMzw-t500x500.png">](https://soundcloud.com/keepingtheravealive/ktra-special-001)
 
-**Artist**: YOZY 
+**Artist**: Keeping The Rave Alive, Kutski, Div Eadie 
 
-**Track**: YOZY - monsters
+**Track**: KTRA Special 001: Div Eadie!
 
-Last updated at 12/25/2024, 2:58:37 PM
+Last updated at 12/25/2024, 2:59:47 PM
