@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KB9TmZeYT2dqIgIV-jOaKkg-t500x500.png">](https://soundcloud.com/sachsentrance/lewis-layn-beast-dallaniel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules)
 
-**Artist**: Lewis Layn 
+**Artist**: Akagitune 
 
-**Track**: [ST015] Lewis Layn - Beast
+**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
 
-Last updated at 12/25/2024, 1:33:21 PM
+Last updated at 12/25/2024, 2:39:21 PM
