@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OKnfyRGcGvoCOif5-zBzmsQ-t500x500.jpg">](https://soundcloud.com/frannabik/100-frannabik-mix)
 
-**Artist**: Akagitune 
+**Artist**: Frannabik 
 
-**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
+**Track**: 100% FRANNABIK
 
-Last updated at 12/25/2024, 2:39:21 PM
+Last updated at 12/25/2024, 2:44:01 PM
