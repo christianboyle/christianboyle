@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oqhXdPVsSWgEO6u3-jkYkhw-t500x500.jpg">](https://soundcloud.com/teedeejayyy/7-b-o-t-birth-of-trance?in=teedeejayyy/sets/thanks-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfWqs4CxFgJkpdDK-scCYzw-t500x500.jpg">](https://soundcloud.com/cheetoed/lastdecember-feat)
 
-**Artist**: TDJ 
+**Artist**: cheeto, blackwinterwells 
 
-**Track**: B.O.T. (Birth Of Trance)
+**Track**: snowtires (feat. blackwinterwells)
 
-Last updated at 12/25/2024, 3:02:57 PM
+Last updated at 12/25/2024, 3:04:12 PM
