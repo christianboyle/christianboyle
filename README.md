@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOkU8iTVJaBObI54-zslbtQ-t500x500.jpg">](https://soundcloud.com/jukaamusic/stresshead-so-high-jukaa-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5u4LHHvihqJnPgoq-IPTiWA-t500x500.png">](https://soundcloud.com/s3rl/touch-the-sky)
 
-**Artist**: Jukaa 
+**Artist**: S3RL 
 
-**Track**: Stresshead - So High (Jukaa Remix)
+**Track**: Touch the Sky - S3RL
 
-Last updated at 12/26/2024, 12:20:19 PM
+Last updated at 12/26/2024, 12:23:29 PM
