@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHP326W5LzRzyABQ-xLPZ8Q-t500x500.jpg">](https://soundcloud.com/starxvi/fallback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/idk-i-cant-remember)
 
-**Artist**: starxvi, minok0, donttrustmaey 
+**Artist**: beverly hills mom 
 
-**Track**: fallback w/ minok0 + maey [xarkr + erdo]
+**Track**: idk i cant remember
 
-Last updated at 12/26/2024, 9:38:40 AM
+Last updated at 12/26/2024, 9:41:06 AM
