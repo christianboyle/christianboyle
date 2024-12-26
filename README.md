@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GSJrjz1MmFha3ZA-Eniytw-t500x500.jpg">](https://soundcloud.com/cld/moveon?in=saxurn/sets/primal-spiral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qqbRQa6PpIG5MzXO-yLE8TQ-t500x500.png">](https://soundcloud.com/tripbmusicc/trip-b-inside)
 
-**Artist**: cld 
+**Artist**: TRiP B 
 
-**Track**: move on w/ seph °❀⋆.ೃ࿔*:･
+**Track**: TRiP B - INSIDE
 
-Last updated at 12/25/2024, 8:11:19 PM
+Last updated at 12/26/2024, 9:09:54 AM
