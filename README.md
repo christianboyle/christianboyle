@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qqbRQa6PpIG5MzXO-yLE8TQ-t500x500.png">](https://soundcloud.com/tripbmusicc/trip-b-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5zKiqJM1olHIPiN-Jj6KbA-t500x500.jpg">](https://soundcloud.com/darn84/gammer-hh-opera-house)
 
-**Artist**: TRiP B 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: TRiP B - INSIDE
+**Track**: Gammer @ HH - Opera House Bournemouth (07/02/2008)
 
-Last updated at 12/26/2024, 9:09:54 AM
+Last updated at 12/26/2024, 9:10:54 AM
