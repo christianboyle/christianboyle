@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3NtJXvRdeQ2EjQJ-exBkMg-t500x500.jpg">](https://soundcloud.com/m_t_g_d/ye-carnival-mtgd-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g5GqqgTLjQtkRTJ6-zQWHWg-t500x500.jpg">](https://soundcloud.com/dnzrecords/bounce-enforcerz-kiss-me-better-dj-oskar-remix)
 
-**Artist**: MTGD 
+**Artist**: Bounce Enforcerz 
 
-**Track**: ¥$, YE, TY DOLLA $IGN - CARNIVAL [MTGD FLIP]
+**Track**: Bounce Enforcerz - Kiss Me Better DJ Oskar Remix
 
-Last updated at 12/26/2024, 10:01:33 AM
+Last updated at 12/26/2024, 10:04:53 AM
