@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/spring-breakers-anop-s-crazy-gurl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eeJRhyV4VPITYvWy-8MvUaA-t500x500.png">](https://soundcloud.com/phrva/onemoretime)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Phrva 
 
-**Track**: SPRING BREAKERS (ANOPS CRAZY GURL REMIX)
+**Track**: Daft Punk - One More Time (Phrva Flip)
 
-Last updated at 12/26/2024, 12:10:38 PM
+Last updated at 12/26/2024, 12:13:48 PM
