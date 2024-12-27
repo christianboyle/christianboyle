@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEnFX25vAFHPhLUv-AHysXQ-t500x500.jpg">](https://soundcloud.com/da-bow/todo-terreno-omar-varela-x-dabow-x-tirri-la-roca-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHP326W5LzRzyABQ-xLPZ8Q-t500x500.jpg">](https://soundcloud.com/starxvi/fallback)
 
-**Artist**: Dabow 
+**Artist**: starxvi, minok0, donttrustmaey 
 
-**Track**: TODO TERRENO (Omar Varela x Dabow x Tirri La Roca)
+**Track**: fallback w/ minok0 + maey [xarkr + erdo]
 
-Last updated at 12/26/2024, 9:08:37 PM
+Last updated at 12/27/2024, 6:50:51 AM
