@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHP326W5LzRzyABQ-xLPZ8Q-t500x500.jpg">](https://soundcloud.com/starxvi/fallback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNDnddyisJbepvF4-Vg8hbw-t500x500.jpg">](https://soundcloud.com/hexed-official/hexed-furtha-nightmare)
 
-**Artist**: starxvi, minok0, donttrustmaey 
+**Artist**: HEXED & FURTHA 
 
-**Track**: fallback w/ minok0 + maey [xarkr + erdo]
+**Track**: HEXED X FURTHA - NIGHTMARE
 
-Last updated at 12/27/2024, 6:50:51 AM
+Last updated at 12/27/2024, 7:40:00 AM
