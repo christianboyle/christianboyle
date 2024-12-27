@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNDnddyisJbepvF4-Vg8hbw-t500x500.jpg">](https://soundcloud.com/hexed-official/hexed-furtha-nightmare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oo6zCipJtmJZcSGg-zkEr5g-t500x500.jpg">](https://soundcloud.com/restnpiecez/rest-n-piecez-fate)
 
-**Artist**: HEXED & FURTHA 
+**Artist**: Rest N Piecez 
 
-**Track**: HEXED X FURTHA - NIGHTMARE
+**Track**: Rest N Piecez - Fate
 
-Last updated at 12/27/2024, 7:51:56 AM
+Last updated at 12/27/2024, 7:55:31 AM
