@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jq5ScS82nJ48M7zE-jcdUxg-t500x500.jpg">](https://soundcloud.com/felmax/divfist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oo6zCipJtmJZcSGg-zkEr5g-t500x500.jpg">](https://soundcloud.com/restnpiecez/rest-n-piecez-fate)
 
-**Artist**: FELMAX 
+**Artist**: Rest N Piecez 
 
-**Track**: Felmax & Afterthought-Divergent Fist
+**Track**: Rest N Piecez - Fate
 
-Last updated at 12/26/2024, 9:06:32 PM
+Last updated at 12/26/2024, 9:07:32 PM
