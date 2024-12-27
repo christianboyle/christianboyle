@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNDnddyisJbepvF4-Vg8hbw-t500x500.jpg">](https://soundcloud.com/hexed-official/hexed-furtha-nightmare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSvrey435nmE9Sis-QOJXAw-t500x500.jpg">](https://soundcloud.com/hexed-official/evacuate?in=hexed-official/sets/nightmares-deluxe)
 
-**Artist**: HEXED & FURTHA 
+**Artist**: HEXED 
 
-**Track**: HEXED X FURTHA - NIGHTMARE
+**Track**: EVACUATE (FT. MAGMAG)
 
-Last updated at 12/27/2024, 7:40:00 AM
+Last updated at 12/27/2024, 7:41:00 AM
