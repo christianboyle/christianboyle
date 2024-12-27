@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oo6zCipJtmJZcSGg-zkEr5g-t500x500.jpg">](https://soundcloud.com/restnpiecez/rest-n-piecez-fate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7TKzMIzDQyaxzDV-yxlBYQ-t500x500.jpg">](https://soundcloud.com/inner-most/yaka-evaporation)
 
-**Artist**: Rest N Piecez 
+**Artist**: Yaka 
 
-**Track**: Rest N Piecez - Fate
+**Track**: evaporation
 
-Last updated at 12/27/2024, 7:55:31 AM
+Last updated at 12/27/2024, 10:59:43 AM
