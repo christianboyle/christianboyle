@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oo6zCipJtmJZcSGg-zkEr5g-t500x500.jpg">](https://soundcloud.com/restnpiecez/rest-n-piecez-fate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qEnFX25vAFHPhLUv-AHysXQ-t500x500.jpg">](https://soundcloud.com/da-bow/todo-terreno-omar-varela-x-dabow-x-tirri-la-roca-1)
 
-**Artist**: Rest N Piecez 
+**Artist**: Dabow 
 
-**Track**: Rest N Piecez - Fate
+**Track**: TODO TERRENO (Omar Varela x Dabow x Tirri La Roca)
 
-Last updated at 12/26/2024, 9:07:32 PM
+Last updated at 12/26/2024, 9:08:37 PM
