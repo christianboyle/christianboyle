@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFsRe2yaYRI6UmeT-jjG4Ig-t500x500.jpg">](https://soundcloud.com/tisoki/end-of-year-mix-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dltWeeUNIhF3-0-t500x500.jpg">](https://soundcloud.com/tomachkamusic/trancy)
 
-**Artist**: Tisoki 
+**Artist**: Tomachka 
 
-**Track**: Tisoki - End Of Year Mix 2024
+**Track**: Trancy
 
-Last updated at 12/28/2024, 9:01:53 AM
+Last updated at 12/28/2024, 9:03:23 AM
