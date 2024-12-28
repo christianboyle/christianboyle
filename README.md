@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76zlfvoavSlQtKTE-sD4M5A-t500x500.jpg">](https://soundcloud.com/setsuna2underbar/lap3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B43UzE4QLnl61rVB-d2uByA-t500x500.jpg">](https://soundcloud.com/dubdenrecords/the-hunt)
 
-**Artist**: setsuna__ 
+**Artist**: Picky Knows 
 
-**Track**: LAP#3
+**Track**: The Hunt
 
-Last updated at 12/28/2024, 9:09:24 AM
+Last updated at 12/28/2024, 9:10:24 AM
