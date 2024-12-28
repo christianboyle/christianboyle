@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xv3u0S41oZKuayYv-rV71DA-t500x500.png">](https://soundcloud.com/loveisthetruth/dwams-babeeee-ft-nabii-loveisthetruth-va003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-76zlfvoavSlQtKTE-sD4M5A-t500x500.jpg">](https://soundcloud.com/setsuna2underbar/lap3)
 
-**Artist**: DWAMS 
+**Artist**: setsuna__ 
 
-**Track**: DWAMS - babeeee (ft. nabii) [loveisthetruth VA003]
+**Track**: LAP#3
 
-Last updated at 12/28/2024, 9:08:24 AM
+Last updated at 12/28/2024, 9:09:24 AM
