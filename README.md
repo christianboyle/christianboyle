@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest?in=saxurn/sets/santa-pilled-rerock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3NtJXvRdeQ2EjQJ-exBkMg-t500x500.jpg">](https://soundcloud.com/m_t_g_d/ye-carnival-mtgd-flip)
 
-**Artist**: 14106lyn 
+**Artist**: MTGD 
 
-**Track**: honest ｡｡｡ prod me
+**Track**: ¥$, YE, TY DOLLA $IGN - CARNIVAL [MTGD FLIP]
 
-Last updated at 12/27/2024, 9:23:27 PM
+Last updated at 12/27/2024, 9:24:27 PM
