@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vXuSFsPgzhCFHZxL-2pWqIA-t500x500.jpg">](https://soundcloud.com/darn84/stacey-tough-fantazia-second)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4dXkMq482Pjh-0-t500x500.png">](https://soundcloud.com/marievaunt/follow-me?in=naemsofficial/sets/marie-vaunt-naems-follow-me)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Marie Vaunt and NAEMS 
 
-**Track**: Stacey Tough @ Fantazia - Second Birthday (23/04/1993)
+**Track**: Follow Me
 
-Last updated at 12/28/2024, 10:34:46 AM
+Last updated at 12/28/2024, 12:46:56 PM
