@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFsRe2yaYRI6UmeT-jjG4Ig-t500x500.jpg">](https://soundcloud.com/tisoki/end-of-year-mix-2024)
 
-**Artist**: Akagitune 
+**Artist**: Tisoki 
 
-**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
+**Track**: Tisoki - End Of Year Mix 2024
 
-Last updated at 12/27/2024, 9:27:33 PM
+Last updated at 12/27/2024, 9:31:07 PM
