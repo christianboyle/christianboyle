@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oo6zCipJtmJZcSGg-zkEr5g-t500x500.jpg">](https://soundcloud.com/restnpiecez/rest-n-piecez-fate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XJo8y4YwRfmpvTZf-ZN9OrQ-t500x500.png">](https://soundcloud.com/14106lyn/honest?in=saxurn/sets/santa-pilled-rerock)
 
-**Artist**: Rest N Piecez 
+**Artist**: 14106lyn 
 
-**Track**: Rest N Piecez - Fate
+**Track**: honest ｡｡｡ prod me
 
-Last updated at 12/27/2024, 11:00:54 AM
+Last updated at 12/27/2024, 9:23:27 PM
