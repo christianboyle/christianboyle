@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JflrB2SxblQ1AywX-a2u3jA-t500x500.jpg">](https://soundcloud.com/projectneko/lord-gave-me-a-rocket-x-cochise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voVxTrXzSTZo-0-t500x500.png">](https://soundcloud.com/feedme/one-click-headshot-jacknife)
 
-**Artist**: / / /  𝙇𝙊𝙍𝘿 𝙉𝙀𝙆𝙊 ☆☆ / / / 
+**Artist**: Feed Me, Jacknife 
 
-**Track**: ☆☆☆☆☆☆☆☆☆☆ LORD GAVE ME A ROCKET X COCHISE ☆☆☆☆☆☆☆☆☆☆
+**Track**: One Click Headshot (Jacknife Remix)
 
-Last updated at 12/28/2024, 10:28:10 AM
+Last updated at 12/28/2024, 10:29:10 AM
