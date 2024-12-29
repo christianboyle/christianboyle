@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGY5TCwT3V7uxJVX-VmeyiA-t500x500.jpg">](https://soundcloud.com/officialauracle/unlock-your-keys-zingara-auracle-flip?in=saxurn/sets/slide-for-25/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dVB5PyR9z24w4mYm-hYMoYQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/doechii-nissan-altima-star-monster-flip?in=saxurn/sets/slide-for-25/)
 
-**Artist**: αυяα¢ℓє 
+**Artist**: Star Monster 
 
-**Track**: Unlock Your Keys - Zingara (Auracle Flip)
+**Track**: Doechii- Nissan Altima {Star Monster Flip}
 
-Last updated at 12/29/2024, 9:56:17 AM
+Last updated at 12/29/2024, 9:58:53 AM
