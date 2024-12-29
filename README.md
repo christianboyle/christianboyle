@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ3WHywPcdvySZER-9R5C6w-t500x500.png">](https://soundcloud.com/brokitz/lost-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2e8um94TIn1vJVZG-yFscQQ-t500x500.jpg">](https://soundcloud.com/thatfoxdub/key-glock-chromosomes-fox-flip?in=saxurn/sets/slide-for-25/)
 
-**Artist**: kitz 
+**Artist**: f.o.x 
 
-**Track**: LOST U
+**Track**: Key Glock - Chromosomes (f.o.x flip)
 
-Last updated at 12/29/2024, 9:17:16 AM
+Last updated at 12/29/2024, 9:50:12 AM
