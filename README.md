@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WyEe2yiUOoL4D6zp-diz2oA-t500x500.jpg">](https://soundcloud.com/beauzworld/bel-mercy-x-knock-knock-beauz-remix-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ3WHywPcdvySZER-9R5C6w-t500x500.png">](https://soundcloud.com/brokitz/lost-u?in=saxurn/sets/slide-for-25/)
 
-**Artist**: BEAUZ 
+**Artist**: kitz 
 
-**Track**: Bel Mercy X Knock Knock (BEAUZ Remix Edit)
+**Track**: LOST U
 
-Last updated at 12/29/2024, 11:33:42 AM
+Last updated at 12/29/2024, 4:45:39 PM
