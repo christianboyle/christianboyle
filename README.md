@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THyoSJBM3gQLAKnt-jGwcKw-t500x500.png">](https://soundcloud.com/dj-iyf/rob-iyf-stars-are-watching-free-download?in=saxurn/sets/slide-for-25/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules?in=saxurn/sets/slide-for-25/)
 
-**Artist**: Rob IYF 
+**Artist**: Akagitune 
 
-**Track**: Stars Are Watching (Free Download)
+**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
 
-Last updated at 12/29/2024, 10:01:28 AM
+Last updated at 12/29/2024, 10:07:03 AM
