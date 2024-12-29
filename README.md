@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tzBgtIeS7C1XwlOX-pfEvSg-t500x500.jpg">](https://soundcloud.com/listorio/the-prodigy-smack-my-bitch-up-listorio-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gxURxTD9g7gAVJTn-OkPoJg-t500x500.jpg">](https://soundcloud.com/groupchatclub/damian-avila-wannabe)
 
-**Artist**: LISTORIO 
+**Artist**: Damian Avila 
 
-**Track**: The Prodigy - Smack My Bitch Up (LISTORIO Remix)
+**Track**: Damian Avila - Wannabe
 
-Last updated at 12/29/2024, 11:18:05 AM
+Last updated at 12/29/2024, 11:23:21 AM
