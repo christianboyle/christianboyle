@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gxURxTD9g7gAVJTn-OkPoJg-t500x500.jpg">](https://soundcloud.com/groupchatclub/damian-avila-wannabe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o4fnin6Ea8KvEyz6-C2HttA-t500x500.png">](https://soundcloud.com/user-64356437/flosstradamus-gta-lil-jon-1)
 
-**Artist**: Damian Avila 
+**Artist**: ENFOR 
 
-**Track**: Damian Avila - Wannabe
+**Track**: Flosstradamus, GTA & Lil Jon - Prison Riot (ENFOR Devasting Remix) HARD TECHNO - HARD CORE [Preview]
 
-Last updated at 12/29/2024, 11:23:21 AM
+Last updated at 12/29/2024, 11:26:21 AM
