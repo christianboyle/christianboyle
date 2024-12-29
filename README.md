@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsOLtxRk8nHJd8un-TdPqlw-t500x500.png">](https://soundcloud.com/doyudigital/chimp-it-burning-waves-doyu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jlra7aWroyueewj-hWgQ9Q-t500x500.png">](https://soundcloud.com/squirrely-basstard/8808accc-59fa-479d-8196-bfe8aaf46e17)
 
-**Artist**: CHIMP IT 
+**Artist**: Squirrely Bass 
 
-**Track**: Burning Waves
+**Track**: Take Me To Your Zeplins, Posthaste
 
-Last updated at 12/29/2024, 5:10:46 PM
+Last updated at 12/29/2024, 5:11:51 PM
