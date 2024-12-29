@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vso1bySvfWdnT8p-mHeOTQ-t500x500.jpg">](https://soundcloud.com/user-491623400/bank-account-kaai-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaItqDNl6kzT6wzo-FUKfWg-t500x500.jpg">](https://soundcloud.com/sonic-flux/swedish-house-mafia-antidote-mark-walker-hard-psy-edit)
 
-**Artist**: Kaai 
+**Artist**: MARK WALKER 
 
-**Track**: Bank Account (KAAI Hard Techno Edit)
+**Track**: SWEDISH HOUSE MAFIA - ANTIDOTE [MARK WALKER HARD PSY EDIT]
 
-Last updated at 12/29/2024, 11:02:09 AM
+Last updated at 12/29/2024, 11:06:34 AM
