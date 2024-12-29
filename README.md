@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMXLGBL5dFszp6PC-5LQ1Hg-t500x500.jpg">](https://soundcloud.com/presentlylifted/dalfin-x-kitty-cartel-crystal-eyes?in=saxurn/sets/slide-for-25/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGY5TCwT3V7uxJVX-VmeyiA-t500x500.jpg">](https://soundcloud.com/officialauracle/unlock-your-keys-zingara-auracle-flip?in=saxurn/sets/slide-for-25/)
 
-**Artist**: Kitty Cartel, Dalfin 
+**Artist**: αυяα¢ℓє 
 
-**Track**: Dalfin X Kitty Cartel - Crystal Eyes
+**Track**: Unlock Your Keys - Zingara (Auracle Flip)
 
-Last updated at 12/29/2024, 9:53:12 AM
+Last updated at 12/29/2024, 9:56:17 AM
