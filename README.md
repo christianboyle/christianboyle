@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QgNnHXq8zUpmKUdB-DLuiKA-t500x500.png">](https://soundcloud.com/enveakmusic/public-enemy-vs-benny-benassi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mw7XEwvIsVNUnunR-IlEliA-t500x500.png">](https://soundcloud.com/mojimusicxx/last-resort-moji-remix)
 
-**Artist**: EИVEΛK 
+**Artist**: Papa Roach, Kayzo 
 
-**Track**: Public Enemy vs Benny Benassi - Bring The Noise (Enveak x Yon! Remix) [FREE DOWNLOAD]
+**Track**: Last Resort (moji remix)
 
-Last updated at 12/29/2024, 10:27:46 AM
+Last updated at 12/29/2024, 10:31:51 AM
