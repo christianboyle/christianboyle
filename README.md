@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siKAgzLdBInCyE2q-Z3NNTw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/wicked-dark-moji-tane-remix?in=saxurn/sets/slide-for-25/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IGE318huJJ9GEjMn-PEf2EA-t500x500.png">](https://soundcloud.com/mojibootlegs/yes-btch)
 
-**Artist**: Bou, IRAH, Kanine, Trigga 
+**Artist**: DANNY AVILA, SAM WOLFE, HNTR, MOJI, BONKA 
 
-**Track**: Wicked & Dark (MØJI & TANE Remix)
+**Track**: YES B!TCH (MØJI & BONKA REMIX)
 
-Last updated at 12/29/2024, 10:14:49 AM
+Last updated at 12/29/2024, 10:17:35 AM
