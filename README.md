@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8EvTotS9unR6jLv-ajhcwQ-t500x500.jpg">](https://soundcloud.com/mojibootlegs/backbone-moji-fahjah-tane-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ufY4TmVBgrEoOoZD-hbItUA-t500x500.jpg">](https://soundcloud.com/lorentz_official/quintino-sandro-silva-epic-lorentz-remix-1)
 
-**Artist**: 𝖒𝖔𝖏𝖎 𝖊𝖉𝖎𝖙𝖘 
+**Artist**: Lorentz 
 
-**Track**: Chase & Status X Stormzy - BACKBONE - (MOJI, Fahjah, TANE Remix) [Hard Techno]
+**Track**: Quintino & Sandro Silva - Epic (Lorentz Remix)
 
-Last updated at 12/29/2024, 10:36:51 AM
+Last updated at 12/29/2024, 10:39:27 AM
