@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HRfzEkLqjwkzUA8I-SoQuFA-t500x500.jpg">](https://soundcloud.com/tremorrdubstep/tremorr-portrayal-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IwOfsmnLyv9mgXH9-s7zymg-t500x500.png">](https://soundcloud.com/aurachildbeatz/aurachild-x-lykwid-clean-ashnikko-mashup)
 
-**Artist**: Tremorr 
+**Artist**: AuraChild, Lykwid 
 
-**Track**: Tremorr - Portrayal
+**Track**: AuraChild x Lykwid - CLEAN (Ashnikko mashup)
 
-Last updated at 12/29/2024, 5:13:06 PM
+Last updated at 12/29/2024, 5:14:32 PM
