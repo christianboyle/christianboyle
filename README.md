@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JbJVMLnMUz63lyxM-0YHvSg-t500x500.png">](https://soundcloud.com/4castles/dont-tell-me-april-12-2004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RBz9XvQSKPIxsnzn-Vydh4g-t500x500.png">](https://soundcloud.com/rohaaaa/aespa-whiplash-roha-remix)
 
-**Artist**: avril 
+**Artist**: Roha 
 
-**Track**: Dont tell me April 12 2004
+**Track**: aespa - Whiplash (Roha Remix)
 
-Last updated at 12/29/2024, 5:05:17 PM
+Last updated at 12/29/2024, 5:06:16 PM
