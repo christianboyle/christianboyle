@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMXLGBL5dFszp6PC-5LQ1Hg-t500x500.jpg">](https://soundcloud.com/presentlylifted/dalfin-x-kitty-cartel-crystal-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ3WHywPcdvySZER-9R5C6w-t500x500.png">](https://soundcloud.com/brokitz/lost-u?in=saxurn/sets/slide-for-2025/)
 
-**Artist**: Kitty Cartel, Dalfin 
+**Artist**: kitz 
 
-**Track**: Dalfin X Kitty Cartel - Crystal Eyes
+**Track**: LOST U
 
-Last updated at 12/29/2024, 9:10:36 AM
+Last updated at 12/29/2024, 9:12:33 AM
