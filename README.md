@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IwOfsmnLyv9mgXH9-s7zymg-t500x500.png">](https://soundcloud.com/aurachildbeatz/aurachild-x-lykwid-clean-ashnikko-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ESiwQexs8o7BBS8n-6kKhIg-t500x500.jpg">](https://soundcloud.com/2summusic/quesaudade)
 
-**Artist**: AuraChild, Lykwid 
+**Artist**: 2SUM 
 
-**Track**: AuraChild x Lykwid - CLEAN (Ashnikko mashup)
+**Track**: 2SUM - QUE SAUDADE
 
-Last updated at 12/29/2024, 5:14:32 PM
+Last updated at 12/29/2024, 5:15:47 PM
