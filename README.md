@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z3U3MWep1RtMWEVz-30r48w-t500x500.jpg">](https://soundcloud.com/groupchatclub/moji-x-reggio-6am)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJFuHD6vuIWbf7oP-Rasv1Q-t500x500.jpg">](https://soundcloud.com/filthsociety/junn-guldur-get-to-the-work-short-edit-free-download)
 
-**Artist**: MOJI and REGGIO 
+**Artist**: Filth Society 
 
-**Track**: MOJI X REGGIO - 6AM
+**Track**: JUNN GULDUR - GET TO THE WORK (SHORT EDIT) FREE DOWNLOAD
 
-Last updated at 12/29/2024, 10:20:20 AM
+Last updated at 12/29/2024, 10:24:30 AM
