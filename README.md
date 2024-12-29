@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vVHkHLEspVbCpfx4-0ryQXQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-james-harbrecht-blur-kov002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AroCPt8oAKVZyfAk-5ULTCQ-t500x500.jpg">](https://soundcloud.com/omgemags/for-my-kids-1)
 
-**Artist**: James Harbrecht 
+**Artist**: Emags 
 
-**Track**: Premiere: James Harbrecht - Blur [KOV002]
+**Track**: FOR MY KIDS
 
-Last updated at 12/28/2024, 7:59:52 PM
+Last updated at 12/28/2024, 8:00:52 PM
