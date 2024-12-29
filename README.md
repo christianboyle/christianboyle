@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AroCPt8oAKVZyfAk-5ULTCQ-t500x500.jpg">](https://soundcloud.com/omgemags/for-my-kids-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ3WHywPcdvySZER-9R5C6w-t500x500.png">](https://soundcloud.com/brokitz/lost-u)
 
-**Artist**: Emags 
+**Artist**: kitz 
 
-**Track**: FOR MY KIDS
+**Track**: LOST U
 
-Last updated at 12/28/2024, 8:00:52 PM
+Last updated at 12/28/2024, 8:01:57 PM
