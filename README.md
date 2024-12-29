@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KQBavghw5Q3qXK7t-nInwnQ-t500x500.jpg">](https://soundcloud.com/user-64356437/chumbawamba-tubthumping-i-get-knocked-down-enfor-purple-mash-remix-hard-techno-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WyEe2yiUOoL4D6zp-diz2oA-t500x500.jpg">](https://soundcloud.com/beauzworld/bel-mercy-x-knock-knock-beauz-remix-edit)
 
-**Artist**: ENFOR 
+**Artist**: BEAUZ 
 
-**Track**: Chumbawamba - Tubthumping - I Get Knocked Down (ENFOR & Purple Mash Remix) HARD TECHNO RAVE
+**Track**: Bel Mercy X Knock Knock (BEAUZ Remix Edit)
 
-Last updated at 12/29/2024, 11:30:57 AM
+Last updated at 12/29/2024, 11:33:42 AM
