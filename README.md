@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mo3Kj5v8s6iv35IG-dqySyA-t500x500.jpg">](https://soundcloud.com/djryal/knock-knock-x-tunnel-vision-ryal-mashup-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8EvTotS9unR6jLv-ajhcwQ-t500x500.jpg">](https://soundcloud.com/mojibootlegs/backbone-moji-fahjah-tane-remix)
 
-**Artist**: Jayron & Gewoonraves x Restricted 
+**Artist**: 𝖒𝖔𝖏𝖎 𝖊𝖉𝖎𝖙𝖘 
 
-**Track**: Knock Knock X Tunnel Vision (RyAL Mashup Edit)
+**Track**: Chase & Status X Stormzy - BACKBONE - (MOJI, Fahjah, TANE Remix) [Hard Techno]
 
-Last updated at 12/29/2024, 10:34:56 AM
+Last updated at 12/29/2024, 10:36:51 AM
