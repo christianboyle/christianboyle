@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6Bjqgn1vtj455LW-Bja9mQ-t500x500.png">](https://soundcloud.com/policeinparis/police-in-paris-dj-viber-christmas-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RSv2HTsHblayUEE9-7t19eA-t500x500.jpg">](https://soundcloud.com/kxchr/dj-snake-propaganda-kx-chr-hardpsy-edit-170-stream-version-extended)
 
-**Artist**: POLICE IN PARIS 
+**Artist**: KX CHR 
 
-**Track**: Police In Paris & DJ VIBER - CHRISTMAS NIGHT [FREE DOWNLOAD]
+**Track**: Dj Snake - Propaganda (KX CHR Hardpsy Edit) FREE DL = GOOD KEY
 
-Last updated at 12/29/2024, 10:54:38 AM
+Last updated at 12/29/2024, 10:57:33 AM
