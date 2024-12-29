@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4dXkMq482Pjh-0-t500x500.png">](https://soundcloud.com/marievaunt/follow-me?in=naemsofficial/sets/marie-vaunt-naems-follow-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vVHkHLEspVbCpfx4-0ryQXQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-james-harbrecht-blur-kov002)
 
-**Artist**: Marie Vaunt and NAEMS 
+**Artist**: James Harbrecht 
 
-**Track**: Follow Me
+**Track**: Premiere: James Harbrecht - Blur [KOV002]
 
-Last updated at 12/28/2024, 12:46:56 PM
+Last updated at 12/28/2024, 7:59:52 PM
