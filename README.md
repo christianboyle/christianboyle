@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/cosmic-shards)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsOLtxRk8nHJd8un-TdPqlw-t500x500.png">](https://soundcloud.com/doyudigital/chimp-it-burning-waves-doyu)
 
-**Artist**: Stariah, Ruxxi 
+**Artist**: CHIMP IT 
 
-**Track**: Stariah & Ruxxi - Cosmic Shards
+**Track**: Burning Waves
 
-Last updated at 12/29/2024, 5:09:06 PM
+Last updated at 12/29/2024, 5:10:46 PM
