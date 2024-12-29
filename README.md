@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RSv2HTsHblayUEE9-7t19eA-t500x500.jpg">](https://soundcloud.com/kxchr/dj-snake-propaganda-kx-chr-hardpsy-edit-170-stream-version-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vso1bySvfWdnT8p-mHeOTQ-t500x500.jpg">](https://soundcloud.com/user-491623400/bank-account-kaai-hard-techno-edit)
 
-**Artist**: KX CHR 
+**Artist**: Kaai 
 
-**Track**: Dj Snake - Propaganda (KX CHR Hardpsy Edit) FREE DL = GOOD KEY
+**Track**: Bank Account (KAAI Hard Techno Edit)
 
-Last updated at 12/29/2024, 10:57:33 AM
+Last updated at 12/29/2024, 11:02:09 AM
