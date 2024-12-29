@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQ3WHywPcdvySZER-9R5C6w-t500x500.png">](https://soundcloud.com/brokitz/lost-u?in=saxurn/sets/slide-for-25/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siKAgzLdBInCyE2q-Z3NNTw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/wicked-dark-moji-tane-remix?in=saxurn/sets/slide-for-25/)
 
-**Artist**: kitz 
+**Artist**: Bou, IRAH, Kanine, Trigga 
 
-**Track**: LOST U
+**Track**: Wicked & Dark (MØJI & TANE Remix)
 
-Last updated at 12/29/2024, 4:46:59 PM
+Last updated at 12/29/2024, 5:00:51 PM
