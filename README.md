@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siUazd5oUa0BMsoI-nzhFvA-t500x500.jpg">](https://soundcloud.com/louie-crick/revenge-xxxtentacion-louie-crick-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L5e4myNfwwaXVLSM-sAlyjQ-t500x500.jpg">](https://soundcloud.com/gesesmusic/boostuphardtechno)
 
-**Artist**: Louie Crick 
+**Artist**: GESES 
 
-**Track**: Revenge - XXXTentacion (Louie Crick Remix)
+**Track**: Fisher x Flowdan - Boost Up (MOJI, GESES, Charles B Hard Techno Remix)
 
-Last updated at 12/29/2024, 10:42:47 AM
+Last updated at 12/29/2024, 10:45:27 AM
