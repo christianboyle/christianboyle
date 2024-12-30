@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7TKzMIzDQyaxzDV-yxlBYQ-t500x500.jpg">](https://soundcloud.com/inner-most/yaka-evaporation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMXLGBL5dFszp6PC-5LQ1Hg-t500x500.jpg">](https://soundcloud.com/presentlylifted/dalfin-x-kitty-cartel-crystal-eyes)
 
-**Artist**: Yaka 
+**Artist**: Kitty Cartel, Dalfin 
 
-**Track**: evaporation
+**Track**: Dalfin X Kitty Cartel - Crystal Eyes
 
-Last updated at 12/30/2024, 9:31:48 AM
+Last updated at 12/30/2024, 9:38:58 AM
