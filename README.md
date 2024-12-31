@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-euEzQzROhXjgjav5-KjeWRA-t500x500.jpg">](https://soundcloud.com/neoluminum/blurry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek?in=saxurn/sets/selectron/)
 
-**Artist**: z u y a, krs, Kai Tramonti, arkenesis & noam 
+**Artist**: Etna Vera Vela 
 
-**Track**: untitled - blurry
+**Track**: fakemink - No Thanks (Prod Rek)
 
-Last updated at 12/31/2024, 8:34:21 AM
+Last updated at 12/31/2024, 8:37:05 AM
