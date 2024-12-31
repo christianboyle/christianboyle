@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zURjwgZDm4X4w42S-vysk3Q-t500x500.png">](https://soundcloud.com/pbr2024/cipher1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sey1MJZfa5acy0Ct-7Vh8Dg-t500x500.jpg">](https://soundcloud.com/cld/autumn)
 
-**Artist**: zim, replay 
+**Artist**: cld 
 
-**Track**: @zimtalk & @1replay - nel freestyle / cipher
+**Track**: autumn w/ crusafix, akkiro, girlsynth ༄˖°.ೃ࿔
 
-Last updated at 12/31/2024, 1:21:18 PM
+Last updated at 12/31/2024, 1:23:08 PM
