@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sey1MJZfa5acy0Ct-7Vh8Dg-t500x500.jpg">](https://soundcloud.com/cld/autumn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HsQj0tzShF3QwzDg-wACvDQ-t500x500.jpg">](https://soundcloud.com/sloverreal/gyat-issue)
 
-**Artist**: cld 
+**Artist**: slover 
 
-**Track**: autumn w/ crusafix, akkiro, girlsynth ༄˖°.ೃ࿔
+**Track**: GYAT (issue)
 
-Last updated at 12/31/2024, 1:23:08 PM
+Last updated at 12/31/2024, 1:25:19 PM
