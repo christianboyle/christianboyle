@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zo0R3P9avu7ANpKw-sm5ynw-t500x500.jpg">](https://soundcloud.com/h4ydennnnn/sit-back-prod-tec9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9kaq1OKIXbw7KC8-OpDdJQ-t500x500.jpg">](https://soundcloud.com/c-a-a-r-l/twice-in-life)
 
-**Artist**: h4yden 
+**Artist**: CÅARL 
 
-**Track**: sit back (prod. tec9)
+**Track**: TWICE IN LIFE
 
-Last updated at 12/31/2024, 8:26:01 AM
+Last updated at 12/31/2024, 8:27:06 AM
