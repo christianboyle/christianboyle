@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2e8um94TIn1vJVZG-yFscQQ-t500x500.jpg">](https://soundcloud.com/thatfoxdub/key-glock-chromosomes-fox-flip?in=saxurn/sets/selectron/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMXLGBL5dFszp6PC-5LQ1Hg-t500x500.jpg">](https://soundcloud.com/presentlylifted/dalfin-x-kitty-cartel-crystal-eyes?in=saxurn/sets/selectron/)
 
-**Artist**: f.o.x 
+**Artist**: Kitty Cartel, Dalfin 
 
-**Track**: Key Glock - Chromosomes (f.o.x flip)
+**Track**: Dalfin X Kitty Cartel - Crystal Eyes
 
-Last updated at 12/31/2024, 8:41:21 AM
+Last updated at 12/31/2024, 8:44:21 AM
