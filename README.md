@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nzCAQNCIV89yEgTK-4uXbjw-t500x500.jpg">](https://soundcloud.com/sloverreal/hatchet-prod-matette-and-muna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qtKQYWhVNpAohWS6-0Xz0kQ-t500x500.jpg">](https://soundcloud.com/sharkbarksss/dead-friend)
 
-**Artist**: slover 
+**Artist**: sharkbarksss 
 
-**Track**: hatchet w/ tirxint prod matette and muna
+**Track**: dead friend
 
-Last updated at 12/31/2024, 1:34:04 PM
+Last updated at 12/31/2024, 1:35:55 PM
