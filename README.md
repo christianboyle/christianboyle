@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2e8um94TIn1vJVZG-yFscQQ-t500x500.jpg">](https://soundcloud.com/thatfoxdub/key-glock-chromosomes-fox-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z1UbBI2gMy3FFZFn-0JYP7w-t500x500.jpg">](https://soundcloud.com/badmouthrecs/happyface-360)
 
-**Artist**: f.o.x 
+**Artist**: HAPPYFACE 
 
-**Track**: Key Glock - Chromosomes (f.o.x flip)
+**Track**: HAPPYFACE - 360
 
-Last updated at 12/30/2024, 9:48:28 AM
+Last updated at 12/31/2024, 7:00:52 AM
