@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s51famnQwyPdvz5-SBYMnw-t500x500.jpg">](https://soundcloud.com/sloverreal/sloverreal-beat-clips-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HiOrPo5bPMavBnqs-JXUOiQ-t500x500.png">](https://soundcloud.com/sloverreal/peace-prod-pk1mp)
 
 **Artist**: slover 
 
-**Track**: @sloverreal beat clips vol.1
+**Track**: peace prod pk1mp
 
-Last updated at 12/31/2024, 1:27:09 PM
+Last updated at 12/31/2024, 1:30:24 PM
