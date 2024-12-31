@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzQRn7azDuSdO0qF-mlqe2g-t500x500.jpg">](https://soundcloud.com/dj-bee-5/richie-jen-look-over-here-girl-beec-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qONLqpF3fM7yyZgA-k4xb2w-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-chane-let-it-move-jff12)
 
-**Artist**: BeeC 
+**Artist**: Techno Wereld 
 
-**Track**: Richie Jen 任賢齊 - 对面的女孩看过来 Look over here, girl (BeeC Remix)
+**Track**: Premiere: Chané - Let It Move [JFF12]
 
-Last updated at 12/31/2024, 8:24:01 AM
+Last updated at 12/31/2024, 8:25:01 AM
