@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zURjwgZDm4X4w42S-vysk3Q-t500x500.png">](https://soundcloud.com/pbr2024/cipher1)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: zim, replay 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: @zimtalk & @1replay - nel freestyle / cipher
 
-Last updated at 12/31/2024, 1:17:03 PM
+Last updated at 12/31/2024, 1:21:18 PM
