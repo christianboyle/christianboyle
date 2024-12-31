@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IXj1enHLFJBpDRkn-CGDWTA-t500x500.jpg">](https://soundcloud.com/runnitofficial/10kpack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-euEzQzROhXjgjav5-KjeWRA-t500x500.jpg">](https://soundcloud.com/neoluminum/blurry)
 
-**Artist**: Runnit 
+**Artist**: z u y a, krs, Kai Tramonti, arkenesis & noam 
 
-**Track**: 10k Sample & Preset Pack is OUT NOW (Demos by Bagg, Dink, Scullion, Gurf, vxrt, Kurei, Rausch, etc)
+**Track**: untitled - blurry
 
-Last updated at 12/31/2024, 8:33:21 AM
+Last updated at 12/31/2024, 8:34:21 AM
