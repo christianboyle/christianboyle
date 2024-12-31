@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IXj1enHLFJBpDRkn-CGDWTA-t500x500.jpg">](https://soundcloud.com/runnitofficial/10kpack)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: Runnit 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: 10k Sample & Preset Pack is OUT NOW (Demos by Bagg, Dink, Scullion, Gurf, vxrt, Kurei, Rausch, etc)
 
-Last updated at 12/31/2024, 8:32:01 AM
+Last updated at 12/31/2024, 8:33:21 AM
