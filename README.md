@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules?in=saxurn/sets/selectron/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/bargaining-power?in=saxurn/sets/selectron/)
 
-**Artist**: Akagitune 
+**Artist**: h3artch3rades 
 
-**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
+**Track**: bargaining power (prod.soma & digipak)
 
-Last updated at 12/31/2024, 8:58:12 AM
+Last updated at 12/31/2024, 9:02:13 AM
