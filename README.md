@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3NUVwGiyXHVWIIk-fN4wwQ-t500x500.jpg">](https://soundcloud.com/electroncdj/es-heathens)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
 
-**Artist**: Eclipsed Shadows 
+**Artist**: lovely_liz, daywatch 
 
-**Track**: Twenty One Pilots - Heathens (Eclipsed Shadows Bootleg) [FREE DOWNLOAD]
+**Track**: good night (ft. dojin + slover + 37x3)
 
-Last updated at 12/31/2024, 8:28:06 AM
+Last updated at 12/31/2024, 8:29:46 AM
