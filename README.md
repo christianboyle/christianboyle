@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2e8um94TIn1vJVZG-yFscQQ-t500x500.jpg">](https://soundcloud.com/thatfoxdub/key-glock-chromosomes-fox-flip)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: f.o.x 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: Key Glock - Chromosomes (f.o.x flip)
 
-Last updated at 1/1/2025, 12:51:21 PM
+Last updated at 1/1/2025, 2:47:42 PM
