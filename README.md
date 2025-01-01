@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQ7MyrMM5hAGizAH-b9j3sA-t500x500.jpg">](https://soundcloud.com/k1zetsu/my-head-r0lls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8Uzv9y7VDRDrM8N-czmDmQ-t500x500.jpg">](https://soundcloud.com/notfroe/2006-lindsay-lohan)
 
-**Artist**: kizetsu 
+**Artist**: froe 
 
-**Track**: my head rolls
+**Track**: 2006 lindsay lohan (porcelain , sidia)
 
-Last updated at 1/1/2025, 12:17:26 PM
+Last updated at 1/1/2025, 12:18:41 PM
