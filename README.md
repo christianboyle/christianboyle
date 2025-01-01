@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/bargaining-power?in=saxurn/sets/selectron/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek?in=saxurn/sets/selectron/)
 
-**Artist**: h3artch3rades 
+**Artist**: Etna Vera Vela 
 
-**Track**: bargaining power (prod.soma & digipak)
+**Track**: fakemink - No Thanks (Prod Rek)
 
-Last updated at 1/1/2025, 12:30:18 PM
+Last updated at 1/1/2025, 12:32:23 PM
