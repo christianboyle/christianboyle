@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8Uzv9y7VDRDrM8N-czmDmQ-t500x500.jpg">](https://soundcloud.com/notfroe/2006-lindsay-lohan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zo7LuIVIzZoAay1i-IYl6qw-t500x500.png">](https://soundcloud.com/1sorix/bankroll-prod-get-sorix)
 
-**Artist**: froe 
+**Artist**: Sorix 
 
-**Track**: 2006 lindsay lohan (porcelain , sidia)
+**Track**: BANKROLL
 
-Last updated at 1/1/2025, 12:18:41 PM
+Last updated at 1/1/2025, 12:19:41 PM
