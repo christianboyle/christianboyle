@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek?in=saxurn/sets/selectron/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ESiwQexs8o7BBS8n-6kKhIg-t500x500.jpg">](https://soundcloud.com/2summusic/quesaudade)
 
-**Artist**: Etna Vera Vela 
+**Artist**: 2SUM 
 
-**Track**: fakemink - No Thanks (Prod Rek)
+**Track**: 2SUM - QUE SAUDADE
 
-Last updated at 1/1/2025, 12:32:23 PM
+Last updated at 1/1/2025, 12:34:03 PM
