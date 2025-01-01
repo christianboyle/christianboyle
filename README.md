@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsii4G2ty4ryPkol-b3pJSg-t500x500.jpg">](https://soundcloud.com/ariaveil/kisslyfe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDVWxSkT5vkQJveM-bRvdyA-t500x500.jpg">](https://soundcloud.com/9nasu/stst)
 
-**Artist**: ARIA VEIL 
+**Artist**: nasu 
 
-**Track**: emotionals - kisslyfe ft buffalobang + ryo (aria veil remix)
+**Track**: mind defunct
 
-Last updated at 1/1/2025, 12:23:27 PM
+Last updated at 1/1/2025, 12:24:57 PM
