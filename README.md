@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6rRaAlyETWyLElO2-qc18CQ-t500x500.jpg">](https://soundcloud.com/ariaveil/full-of-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GObu9qsxexv7zB0Q-kcbpWg-t500x500.png">](https://soundcloud.com/bbjuelz/highjack-juelz-whethan-remix)
 
-**Artist**: ARIA VEIL 
+**Artist**: Juelz 
 
-**Track**: full of life
+**Track**: HIGHJACK (Juelz & Whethan Remix)
 
-Last updated at 1/1/2025, 12:20:45 PM
+Last updated at 1/1/2025, 12:22:02 PM
