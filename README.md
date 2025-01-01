@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r5n6T5kzMiWtfRpd-2Cmbmw-t500x500.jpg">](https://soundcloud.com/blvxmusic/slowburning?in=blvxxtras/sets/slowburningfree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KILf7etYtsVuiaSE-eOlGeA-t500x500.jpg">](https://soundcloud.com/naeleck/dies-irae)
 
-**Artist**: BLVX 
+**Artist**: Naeleck, le Shuuk 
 
-**Track**: SLOW BURNING [FREE DOWNLOAD]
+**Track**: Dies Irae
 
-Last updated at 1/1/2025, 11:57:20 AM
+Last updated at 1/1/2025, 12:14:11 PM
