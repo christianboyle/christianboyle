@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2e8um94TIn1vJVZG-yFscQQ-t500x500.jpg">](https://soundcloud.com/thatfoxdub/key-glock-chromosomes-fox-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/bargaining-power?in=saxurn/sets/selectron/)
 
-**Artist**: f.o.x 
+**Artist**: h3artch3rades 
 
-**Track**: Key Glock - Chromosomes (f.o.x flip)
+**Track**: bargaining power (prod.soma & digipak)
 
-Last updated at 1/1/2025, 2:47:42 PM
+Last updated at 1/1/2025, 2:49:23 PM
