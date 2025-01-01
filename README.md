@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GObu9qsxexv7zB0Q-kcbpWg-t500x500.png">](https://soundcloud.com/bbjuelz/highjack-juelz-whethan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
 
-**Artist**: Juelz 
+**Artist**: lovely_liz, daywatch 
 
-**Track**: HIGHJACK (Juelz & Whethan Remix)
+**Track**: good night (ft. dojin + slover + 37x3)
 
-Last updated at 1/1/2025, 12:47:34 PM
+Last updated at 1/1/2025, 12:51:21 PM
