@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siKAgzLdBInCyE2q-Z3NNTw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/wicked-dark-moji-tane-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTVp3znnCDtNegEz-xl4LzA-t500x500.jpg">](https://soundcloud.com/xaevtheworld/eol-zesty-mix)
 
-**Artist**: Bou, IRAH, Kanine, Trigga 
+**Artist**: xaev+ 
 
-**Track**: Wicked & Dark (MØJI & TANE Remix)
+**Track**: evangeline - end-of-life (xaev remix)
 
-Last updated at 1/1/2025, 12:38:48 PM
+Last updated at 1/1/2025, 12:41:14 PM
