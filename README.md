@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFsRe2yaYRI6UmeT-jjG4Ig-t500x500.jpg">](https://soundcloud.com/tisoki/end-of-year-mix-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
 
-**Artist**: Tisoki 
+**Artist**: DJ SMOKEY, SHADOW WIZARD MONEY GANG 
 
-**Track**: Tisoki - End Of Year Mix 2024
+**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
 
-Last updated at 1/1/2025, 5:03:24 PM
+Last updated at 1/1/2025, 5:06:05 PM
