@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTVp3znnCDtNegEz-xl4LzA-t500x500.jpg">](https://soundcloud.com/xaevtheworld/eol-zesty-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsii4G2ty4ryPkol-b3pJSg-t500x500.jpg">](https://soundcloud.com/ariaveil/kisslyfe)
 
-**Artist**: xaev+ 
+**Artist**: ARIA VEIL 
 
-**Track**: evangeline - end-of-life (xaev remix)
+**Track**: emotionals - kisslyfe ft buffalobang + ryo (aria veil remix)
 
-Last updated at 1/1/2025, 12:41:14 PM
+Last updated at 1/1/2025, 12:45:09 PM
