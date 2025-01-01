@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/bargaining-power?in=saxurn/sets/selectron/)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: h3artch3rades 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: bargaining power (prod.soma & digipak)
 
-Last updated at 1/1/2025, 12:26:02 PM
+Last updated at 1/1/2025, 12:30:18 PM
