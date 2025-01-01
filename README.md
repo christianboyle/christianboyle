@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3NtJXvRdeQ2EjQJ-exBkMg-t500x500.jpg">](https://soundcloud.com/m_t_g_d/ye-carnival-mtgd-flip?in=saxurn/sets/selectron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/bargaining-power?in=saxurn/sets/selectron)
 
-**Artist**: MTGD 
+**Artist**: h3artch3rades 
 
-**Track**: ¥$, YE, TY DOLLA $IGN - CARNIVAL [MTGD FLIP]
+**Track**: bargaining power (prod.soma & digipak)
 
-Last updated at 1/1/2025, 3:41:09 PM
+Last updated at 1/1/2025, 3:54:40 PM
