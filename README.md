@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iICv0ny4E6IUC96b-z0V8Cg-t500x500.jpg">](https://soundcloud.com/rlvst/winter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siKAgzLdBInCyE2q-Z3NNTw-t500x500.jpg">](https://soundcloud.com/mojibootlegs/wicked-dark-moji-tane-remix)
 
-**Artist**: rl, crusafix, crusey 
+**Artist**: Bou, IRAH, Kanine, Trigga 
 
-**Track**: winter
+**Track**: Wicked & Dark (MØJI & TANE Remix)
 
-Last updated at 1/1/2025, 12:35:58 PM
+Last updated at 1/1/2025, 12:38:48 PM
