@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3NtJXvRdeQ2EjQJ-exBkMg-t500x500.jpg">](https://soundcloud.com/m_t_g_d/ye-carnival-mtgd-flip?in=saxurn/sets/selectron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m7TKzMIzDQyaxzDV-yxlBYQ-t500x500.jpg">](https://soundcloud.com/inner-most/yaka-evaporation)
 
-**Artist**: MTGD 
+**Artist**: Yaka 
 
-**Track**: ¥$, YE, TY DOLLA $IGN - CARNIVAL [MTGD FLIP]
+**Track**: evaporation
 
-Last updated at 1/2/2025, 9:14:46 AM
+Last updated at 1/2/2025, 9:36:08 AM
