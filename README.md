@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UI5FORJPBoxZszD-V9Nb1g-t500x500.png">](https://soundcloud.com/maakg/maak-g-create)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JJxh1cuAZJnzRx64-36M0Ig-t500x500.jpg">](https://soundcloud.com/cov3r1st/badg)
 
-**Artist**: Maāk.G 
+**Artist**: HOMINID, Phil Phauler, CØV3R1st 
 
-**Track**: Create
+**Track**: HOMINID + Phil Phauler & CØV3R1st - Bad Guy | FREE DOWNLOAD
 
-Last updated at 1/2/2025, 11:37:11 AM
+Last updated at 1/2/2025, 11:38:24 AM
