@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsii4G2ty4ryPkol-b3pJSg-t500x500.jpg">](https://soundcloud.com/ariaveil/kisslyfe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek?in=saxurn/sets/selectron)
 
-**Artist**: ARIA VEIL 
+**Artist**: Etna Vera Vela 
 
-**Track**: emotionals - kisslyfe ft buffalobang + ryo (aria veil remix)
+**Track**: fakemink - No Thanks (Prod Rek)
 
-Last updated at 1/2/2025, 8:37:02 AM
+Last updated at 1/2/2025, 8:39:08 AM
