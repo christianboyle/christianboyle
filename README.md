@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UI5FORJPBoxZszD-V9Nb1g-t500x500.png">](https://soundcloud.com/maakg/maak-g-create)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: Maāk.G 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: Create
 
-Last updated at 1/2/2025, 11:35:03 AM
+Last updated at 1/2/2025, 11:37:11 AM
