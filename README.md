@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6MF7qFzE5zzu6LQ4-VgXG5Q-t500x500.jpg">](https://soundcloud.com/akagitune/akagitune-breaking-the-rules?in=saxurn/sets/selectron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3NtJXvRdeQ2EjQJ-exBkMg-t500x500.jpg">](https://soundcloud.com/m_t_g_d/ye-carnival-mtgd-flip?in=saxurn/sets/selectron)
 
-**Artist**: Akagitune 
+**Artist**: MTGD 
 
-**Track**: Akagitune - Breaking The Rules【川崎コンピ(仮)】
+**Track**: ¥$, YE, TY DOLLA $IGN - CARNIVAL [MTGD FLIP]
 
-Last updated at 1/2/2025, 9:00:14 AM
+Last updated at 1/2/2025, 9:14:46 AM
