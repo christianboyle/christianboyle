@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNDnddyisJbepvF4-Vg8hbw-t500x500.jpg">](https://soundcloud.com/hexed-official/hexed-furtha-nightmare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RpWI5byGpUPOkZe9-oDwcuQ-t500x500.jpg">](https://soundcloud.com/cdprojectbeats/drake-trophies-cd-project-flip-intro-edit)
 
-**Artist**: HEXED & FURTHA 
+**Artist**: CD Project 
 
-**Track**: HEXED X FURTHA - NIGHTMARE
+**Track**: Drake - Trophies (CD Project Flip)
 
-Last updated at 1/2/2025, 8:18:46 AM
+Last updated at 1/2/2025, 8:22:16 AM
