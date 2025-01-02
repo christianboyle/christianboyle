@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iP0ipJFWoxPUy9h4-8uCgcw-t500x500.jpg">](https://soundcloud.com/andixofficial/symmetrik-caroline-andix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix)
 
-**Artist**: ANDIX 
+**Artist**: M?STIC 
 
-**Track**: Symmetrik - Caroline (ANDIX Festival Edit)
+**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
 
-Last updated at 1/2/2025, 7:58:59 AM
+Last updated at 1/2/2025, 8:02:44 AM
