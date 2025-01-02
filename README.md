@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d5GEsJSE6dYn6JJE-naa4eg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-shadow-wizard-money-gang-humiliation-ritual-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iP0ipJFWoxPUy9h4-8uCgcw-t500x500.jpg">](https://soundcloud.com/andixofficial/symmetrik-caroline-andix-remix)
 
-**Artist**: DJ SMOKEY, SHADOW WIZARD MONEY GANG 
+**Artist**: ANDIX 
 
-**Track**: DJ SMOKEY + SHADOW WIZARD MONEY GANG "HUMILIATION RITUAL" FULL MIXTAPE
+**Track**: Symmetrik - Caroline (ANDIX Festival Edit)
 
-Last updated at 1/2/2025, 7:57:52 AM
+Last updated at 1/2/2025, 7:58:59 AM
