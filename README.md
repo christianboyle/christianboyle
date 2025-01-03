@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UI5FORJPBoxZszD-V9Nb1g-t500x500.png">](https://soundcloud.com/maakg/maak-g-create)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjnBycV8bL56W3Rv-ayKdiw-t500x500.jpg">](https://soundcloud.com/dreamloader/sweet)
 
-**Artist**: Maāk.G 
+**Artist**: dreamloader 
 
-**Track**: Create
+**Track**: sweeet
 
-Last updated at 1/3/2025, 10:21:27 AM
+Last updated at 1/3/2025, 10:22:37 AM
