@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMpeDfbcVBFP-0-t500x500.jpg">](https://soundcloud.com/oneseventy/fast-love-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9YKIISxscwl-0-t500x500.jpg">](https://soundcloud.com/oneseventy/human-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: Technikore 
+**Artist**: Menta & Wanderfall 
 
-**Track**: Fast Love (Mixed Cut)
+**Track**: Human (Mixed Cut)
 
-Last updated at 1/3/2025, 11:01:41 AM
+Last updated at 1/3/2025, 11:05:06 AM
