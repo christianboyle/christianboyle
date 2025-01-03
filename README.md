@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7HBdnE2XaYz1VhPX-hmzfKQ-t500x500.jpg">](https://soundcloud.com/lovely_liz_real/good-night-ft-dojin-slover-37x3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik)
 
-**Artist**: lovely_liz, daywatch 
+**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
 
-**Track**: good night (ft. dojin + slover + 37x3)
+**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
 
-Last updated at 1/2/2025, 6:08:58 PM
+Last updated at 1/2/2025, 6:10:09 PM
