@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyWK8qF1OESbElQz-RyeUPg-t500x500.jpg">](https://soundcloud.com/zodiacbelgium/kanye-west-runaway-zodiac-remix-mastered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKyvz6xHy0IlWHCQ-mSbtuw-t500x500.jpg">](https://soundcloud.com/bromixmusic/in-your-mind)
 
-**Artist**: Zodiac 
+**Artist**: brōmix 
 
-**Track**: Kanye West - Runaway (Zodiac Remix)
+**Track**: In Your Mind
 
-Last updated at 1/3/2025, 10:28:48 AM
+Last updated at 1/3/2025, 10:30:03 AM
