@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKyvz6xHy0IlWHCQ-mSbtuw-t500x500.jpg">](https://soundcloud.com/bromixmusic/in-your-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmoD5FWC58kzijw6-hse3qg-t500x500.jpg">](https://soundcloud.com/k4rson/see-you-sochi)
 
-**Artist**: brōmix 
+**Artist**: karson 
 
-**Track**: In Your Mind
+**Track**: see you (sochi + dia)
 
-Last updated at 1/3/2025, 10:30:03 AM
+Last updated at 1/3/2025, 10:31:03 AM
