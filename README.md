@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTfEA9YjDNHI-0-t500x500.jpg">](https://soundcloud.com/oneseventy/lost-my-love-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ndY7DpanA3p9-0-t500x500.jpg">](https://soundcloud.com/oneseventy/change-my-mind-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: Mike Reverie & Ben Journiee 
+**Artist**: SteelniX & Makry 
 
-**Track**: Lost My Love (Mixed Cut)
+**Track**: Change My Mind (Mixed Cut)
 
-Last updated at 1/3/2025, 11:18:53 AM
+Last updated at 1/3/2025, 11:23:03 AM
