@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYLkNjlBqONW-0-t500x500.jpg">](https://soundcloud.com/oneseventy/im-done-waiting-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pz7G5YuRZTrSyAI3-Lgi0QA-t500x500.jpg">](https://soundcloud.com/jtstanhope/the-kid-laroi-without-you-jts-flip)
 
-**Artist**: ChAn. 
+**Artist**: JTS 
 
-**Track**: I'm Done Waiting (Mixed Cut)
+**Track**: The Kid LAROI - Without You (JTS FLIP) FREE DOWNLOAD
 
-Last updated at 1/3/2025, 11:53:00 AM
+Last updated at 1/3/2025, 11:55:16 AM
