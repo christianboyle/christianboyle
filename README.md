@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UC0WrWulimPA-0-t500x500.jpg">](https://soundcloud.com/oneseventy/ghost-town-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DDI5XMINpys-0-t500x500.jpg">](https://soundcloud.com/oneseventy/wont-give-up-mixed-cut-feat?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: Gold Coast 
+**Artist**: Jakka-B & GRVITY feat. Joey Law 
 
-**Track**: Ghost Town (Mixed Cut)
+**Track**: Won't Give Up (Mixed Cut) [feat. Joey Law]
 
-Last updated at 1/3/2025, 10:45:30 AM
+Last updated at 1/3/2025, 10:49:00 AM
