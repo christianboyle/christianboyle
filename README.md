@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pz7G5YuRZTrSyAI3-Lgi0QA-t500x500.jpg">](https://soundcloud.com/jtstanhope/the-kid-laroi-without-you-jts-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XaDNk0Ej4543SB0E-JJQy6Q-t500x500.jpg">](https://soundcloud.com/technikoredj/technikore-x-firelite-x-jts-close-to-me-radio-edit)
 
-**Artist**: JTS 
+**Artist**: Technikore x Firelite x JTS 
 
-**Track**: The Kid LAROI - Without You (JTS FLIP) FREE DOWNLOAD
+**Track**: Technikore x Firelite x JTS - Close To Me (Radio Edit)
 
-Last updated at 1/3/2025, 11:55:16 AM
+Last updated at 1/3/2025, 11:58:01 AM
