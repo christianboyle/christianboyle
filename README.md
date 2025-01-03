@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8MEeJ63QmCT-0-t500x500.jpg">](https://soundcloud.com/oneseventy/quit-you-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HxL0cI2O1JW7-0-t500x500.jpg">](https://soundcloud.com/oneseventy/wayward-son-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: NextJen 
+**Artist**: Technikore & Suae 
 
-**Track**: Quit You (Mixed Cut)
+**Track**: Wayward Son (Mixed Cut)
 
-Last updated at 1/3/2025, 10:33:08 AM
+Last updated at 1/3/2025, 10:35:34 AM
