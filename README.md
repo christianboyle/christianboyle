@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQNbsILBCxLpfPKM-QBM9mQ-t500x500.png">](https://soundcloud.com/duzyyy/rtb222?in=saxurn/sets/blobtech/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iICv0ny4E6IUC96b-z0V8Cg-t500x500.jpg">](https://soundcloud.com/rlvst/winter?in=saxurn/sets/blobtech/)
 
-**Artist**: duzy 
+**Artist**: rl, crusafix, crusey 
 
-**Track**: rtb222
+**Track**: winter
 
-Last updated at 1/3/2025, 3:42:17 PM
+Last updated at 1/3/2025, 5:08:47 PM
