@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyWK8qF1OESbElQz-RyeUPg-t500x500.jpg">](https://soundcloud.com/zodiacbelgium/kanye-west-runaway-zodiac-remix-mastered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzJMnNjMj20mEvG9-LB3DvA-t500x500.jpg">](https://soundcloud.com/myriasmusic/kelis-milkshake-myrias-flip1?in=saxurn/sets/blobcore/)
 
-**Artist**: Zodiac 
+**Artist**: MYRIAS 
 
-**Track**: Kanye West - Runaway (Zodiac Remix)
+**Track**: KELIS - MILKSHAKE (MYRIAS FLIP)
 
-Last updated at 1/3/2025, 12:04:11 PM
+Last updated at 1/3/2025, 12:08:10 PM
