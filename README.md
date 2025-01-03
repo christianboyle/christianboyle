@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezm5bbAfxfghLS40-88Vvgg-t500x500.jpg">](https://soundcloud.com/sloverreal/chikowaga-w-1mint-sennai-funny-wyatt-crisis-starxvi-dojin-melik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UI5FORJPBoxZszD-V9Nb1g-t500x500.png">](https://soundcloud.com/maakg/maak-g-create)
 
-**Artist**: slover, 1mint, sennai, funny, wyatt, crisis, starxvi 
+**Artist**: Maāk.G 
 
-**Track**: Chikowaga W/ 1mint Sennai Funny Wyatt Crisis Starxvi (melik)
+**Track**: Create
 
-Last updated at 1/2/2025, 6:14:39 PM
+Last updated at 1/2/2025, 6:49:59 PM
