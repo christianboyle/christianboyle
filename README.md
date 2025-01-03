@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HxL0cI2O1JW7-0-t500x500.jpg">](https://soundcloud.com/oneseventy/wayward-son-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SF8xO5ByWOWe-0-t500x500.jpg">](https://soundcloud.com/oneseventy/stay-right-here-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: Technikore & Suae 
+**Artist**: No Hero & Menta 
 
-**Track**: Wayward Son (Mixed Cut)
+**Track**: Stay Right Here (Mixed Cut)
 
-Last updated at 1/3/2025, 10:35:34 AM
+Last updated at 1/3/2025, 10:37:29 AM
