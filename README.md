@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vUQjjm513yoyOLpT-aepk4w-t500x500.jpg">](https://soundcloud.com/dnzrecords/clarky-i-believe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyWK8qF1OESbElQz-RyeUPg-t500x500.jpg">](https://soundcloud.com/zodiacbelgium/kanye-west-runaway-zodiac-remix-mastered)
 
-**Artist**: Clarky 
+**Artist**: Zodiac 
 
-**Track**: Clarky - I Believe
+**Track**: Kanye West - Runaway (Zodiac Remix)
 
-Last updated at 1/3/2025, 11:59:56 AM
+Last updated at 1/3/2025, 12:04:11 PM
