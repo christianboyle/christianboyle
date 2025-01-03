@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsii4G2ty4ryPkol-b3pJSg-t500x500.jpg">](https://soundcloud.com/ariaveil/kisslyfe?in=saxurn/sets/blobtech/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8zcS00pPpEVsOIq-8fKldQ-t500x500.jpg">](https://soundcloud.com/tetevide-tv/bury2k-kickin-drummin?in=saxurn/sets/blobtech/)
 
-**Artist**: ARIA VEIL 
+**Artist**: TETE VIDE 
 
-**Track**: emotionals - kisslyfe ft buffalobang + ryo (aria veil remix)
+**Track**: BURY2K - Kickin & Drummin
 
-Last updated at 1/3/2025, 5:11:32 PM
+Last updated at 1/3/2025, 5:14:03 PM
