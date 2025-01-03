@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-16mifmvg6vAZ-0-t500x500.jpg">](https://soundcloud.com/oneseventy/every-minute-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMpeDfbcVBFP-0-t500x500.jpg">](https://soundcloud.com/oneseventy/fast-love-mixed-cut?in=oneseventy/sets/oneseventy-the-annual-vi)
 
-**Artist**: Whizzkid & Ed Shock 
+**Artist**: Technikore 
 
-**Track**: Every Minute (Mixed Cut)
+**Track**: Fast Love (Mixed Cut)
 
-Last updated at 1/3/2025, 10:50:15 AM
+Last updated at 1/3/2025, 11:01:41 AM
