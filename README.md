@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OK1j7dzKJffIULr4-P6HlGA-t500x500.png">](https://soundcloud.com/enablesecret/i-want-this-to-last-w-aitanaoficial?in=saxurn/sets/blobtech/)
 
-**Artist**: Vortek's 
+**Artist**: enable secret 
 
-**Track**: Vortek's - No Karma [OMN-107]
+**Track**: i want this to last (w AITANA★★OFICIAL)
 
-Last updated at 1/4/2025, 10:14:41 AM
+Last updated at 1/4/2025, 10:15:46 AM
