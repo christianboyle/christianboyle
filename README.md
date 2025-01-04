@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OK1j7dzKJffIULr4-P6HlGA-t500x500.png">](https://soundcloud.com/enablesecret/i-want-this-to-last-w-aitanaoficial?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iICv0ny4E6IUC96b-z0V8Cg-t500x500.jpg">](https://soundcloud.com/rlvst/winter?in=saxurn/sets/blobtech)
 
-**Artist**: enable secret 
+**Artist**: rl, crusafix, crusey 
 
-**Track**: i want this to last (w AITANA★★OFICIAL)
+**Track**: winter
 
-Last updated at 1/4/2025, 1:23:27 PM
+Last updated at 1/4/2025, 1:24:54 PM
