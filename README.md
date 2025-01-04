@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OK1j7dzKJffIULr4-P6HlGA-t500x500.png">](https://soundcloud.com/enablesecret/i-want-this-to-last-w-aitanaoficial?in=saxurn/sets/blobtech/)
 
-**Artist**: M?STIC 
+**Artist**: enable secret 
 
-**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
+**Track**: i want this to last (w AITANA★★OFICIAL)
 
-Last updated at 1/4/2025, 12:24:23 PM
+Last updated at 1/4/2025, 12:29:43 PM
