@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix)
 
-**Artist**: Etna Vera Vela 
+**Artist**: M?STIC 
 
-**Track**: fakemink - No Thanks (Prod Rek)
+**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
 
-Last updated at 1/4/2025, 10:34:46 AM
+Last updated at 1/4/2025, 12:24:23 PM
