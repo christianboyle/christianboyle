@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzqBNJyl9iMNOfKu-364g3w-t500x500.jpg">](https://soundcloud.com/festivaltrap/amiixa-fyuurie-start-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e7yc3121SGUzqqJo-qAdqPg-t500x500.jpg">](https://soundcloud.com/itsyokomusic/organoid-hybrid-feat-mayple-electric-hawk-premiere)
 
-**Artist**: Amiixa, Fyuurie 
+**Artist**: Yoko, Mayple 
 
-**Track**: AMIIXA & Fyuurie - START Again.
+**Track**: Organoid Hybrid (feat. Mayple) [Electric Hawk Premiere]
 
-Last updated at 1/4/2025, 9:44:18 AM
+Last updated at 1/4/2025, 9:45:34 AM
