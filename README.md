@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzqBNJyl9iMNOfKu-364g3w-t500x500.jpg">](https://soundcloud.com/festivaltrap/amiixa-fyuurie-start-again?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vUQjjm513yoyOLpT-aepk4w-t500x500.jpg">](https://soundcloud.com/dnzrecords/clarky-i-believe?in=saxurn/sets/blobtech)
 
-**Artist**: Amiixa, Fyuurie 
+**Artist**: Clarky 
 
-**Track**: AMIIXA & Fyuurie - START Again.
+**Track**: Clarky - I Believe
 
-Last updated at 1/4/2025, 2:06:40 PM
+Last updated at 1/4/2025, 2:09:20 PM
