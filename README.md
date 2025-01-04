@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e7yc3121SGUzqqJo-qAdqPg-t500x500.jpg">](https://soundcloud.com/itsyokomusic/organoid-hybrid-feat-mayple-electric-hawk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FoYIaodgyuTkIG4L-CV2xaQ-t500x500.png">](https://soundcloud.com/jordnmoody/redlipsflip)
 
-**Artist**: Yoko, Mayple 
+**Artist**: jordnmoody 
 
-**Track**: Organoid Hybrid (feat. Mayple) [Electric Hawk Premiere]
+**Track**: redlipsflip_
 
-Last updated at 1/4/2025, 9:45:34 AM
+Last updated at 1/4/2025, 9:46:33 AM
