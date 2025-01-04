@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-23a5kT60Ay7QHTNo-NJJyVw-t500x500.png">](https://soundcloud.com/theinfamous/wo-de-hao-xiong-di)
 
-**Artist**: Vortek's 
+**Artist**: THE INFAMOUS 
 
-**Track**: Vortek's - No Karma [OMN-107]
+**Track**: WO DE HAO XIONG DI 我的好兄弟 (THE INFAMOUS REMIX)
 
-Last updated at 1/4/2025, 9:48:04 AM
+Last updated at 1/4/2025, 9:49:34 AM
