@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jRHj7RtSNDOGa9ph-zkkJzw-t500x500.png">](https://soundcloud.com/user-604844989-886109481/sse-23-hypertrance-bangerz-by)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OK1j7dzKJffIULr4-P6HlGA-t500x500.png">](https://soundcloud.com/enablesecret/i-want-this-to-last-w-aitanaoficial)
 
-**Artist**: FeelinX 
+**Artist**: enable secret 
 
-**Track**: SSE 23- Hypertrance- Bangerz By FeelinX
+**Track**: i want this to last (w AITANA★★OFICIAL)
 
-Last updated at 1/4/2025, 9:58:40 AM
+Last updated at 1/4/2025, 10:13:31 AM
