@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMq1HzV7RKV4DROq-HRClrg-t500x500.png">](https://soundcloud.com/jordnmoody/jackflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/azure-sky)
 
-**Artist**: jordnmoody 
+**Artist**: Stariah, Niney 
 
-**Track**: jackflip_
+**Track**: Stariah & Niney - Azure Sky
 
-Last updated at 1/4/2025, 9:50:59 AM
+Last updated at 1/4/2025, 9:52:14 AM
