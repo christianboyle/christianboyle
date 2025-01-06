@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH2HNS1TqP8hi7ji-YmGtkA-t500x500.jpg">](https://soundcloud.com/user-219120497/xts-hands-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rd1WsmwbsJoa8S4N-1uyHwA-t500x500.jpg">](https://soundcloud.com/pixelterrorbass/major-lazer-x-floss-original-don-pixel-terror-ukg-flip)
 
-**Artist**: Rebellion Records 
+**Artist**: Major Lazer x Flosstradamus 
 
-**Track**: XTS - Hands Up (FREE DL)
+**Track**: MAJOR LAZER x FLOSS - ORIGINAL DON (PIXEL TERROR UKG FLIP)
 
-Last updated at 1/6/2025, 8:58:48 AM
+Last updated at 1/6/2025, 9:00:23 AM
