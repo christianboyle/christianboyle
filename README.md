@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH2HNS1TqP8hi7ji-YmGtkA-t500x500.jpg">](https://soundcloud.com/user-219120497/xts-hands-up)
 
-**Artist**: M?STIC 
+**Artist**: Rebellion Records 
 
-**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
+**Track**: XTS - Hands Up (FREE DL)
 
-Last updated at 1/4/2025, 2:12:35 PM
+Last updated at 1/6/2025, 8:58:48 AM
