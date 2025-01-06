@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjfzyuScvydvTomP-YnGGxw-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-scary-monsters-nice-spirtes-synova-xhris-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SSzBhVNDx0ALi14-GUlWyg-t500x500.jpg">](https://soundcloud.com/da-bow/tgif-dabow-flip)
 
-**Artist**: Synova 
+**Artist**: Dabow 
 
-**Track**: Skrillex - Scary Monsters & Nice Sprites (Synova & XHRIS Edit)
+**Track**: TGIF (Dabow Flip)
 
-Last updated at 1/6/2025, 3:55:15 PM
+Last updated at 1/6/2025, 3:59:10 PM
