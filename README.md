@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
 
-**Artist**: Vortek's 
+**Artist**: cxsh! 
 
-**Track**: Vortek's - No Karma [OMN-107]
+**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
 
-Last updated at 1/6/2025, 4:29:18 PM
+Last updated at 1/6/2025, 4:32:13 PM
