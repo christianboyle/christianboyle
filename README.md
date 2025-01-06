@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IH5Z8ku1ltiQiOv5-zRkakg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-eman-kapara-sk11x029)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
 
-**Artist**: Eman 
+**Artist**: Fatal Energy Records 
 
-**Track**: Premiere: Eman - Kapara [SK11X029]
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/6/2025, 4:02:00 PM
+Last updated at 1/6/2025, 4:07:21 PM
