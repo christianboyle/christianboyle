@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VbhxrERcOxkTWNBy-pJtAyg-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-umbrolla)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEXlf9O4nxD7J7V6-1aSllg-t500x500.jpg">](https://soundcloud.com/deodor/ra9)
 
-**Artist**: Kichta 
+**Artist**: deodora, Akhimei 
 
-**Track**: Kichta - Umbrolla
+**Track**: rA9 w/ Akhimei (nightiger)
 
-Last updated at 1/6/2025, 3:45:54 PM
+Last updated at 1/6/2025, 3:50:29 PM
