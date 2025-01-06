@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLKKIhWkjxu3kShJ-8MjkPw-t500x500.png">](https://soundcloud.com/lowpolysound/dumbest-girl-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000126976375-x2gs7g-t500x500.jpg">](https://soundcloud.com/japanet/yoneda-eyes)
 
-**Artist**: Low Poly 
+**Artist**: JAPANET 
 
-**Track**: Dumbest Girl Alive (Low Poly Edit)
+**Track**: YONEDA - Eyes アイズ
 
-Last updated at 1/6/2025, 4:14:01 PM
+Last updated at 1/6/2025, 4:16:57 PM
