@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rd1WsmwbsJoa8S4N-1uyHwA-t500x500.jpg">](https://soundcloud.com/pixelterrorbass/major-lazer-x-floss-original-don-pixel-terror-ukg-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2sph67NvIyljy1qJ-UVqG6w-t500x500.png">](https://soundcloud.com/remghost/the-sigh-the-same)
 
-**Artist**: Major Lazer x Flosstradamus 
+**Artist**: the sigh 
 
-**Track**: MAJOR LAZER x FLOSS - ORIGINAL DON (PIXEL TERROR UKG FLIP)
+**Track**: the sigh - the same
 
-Last updated at 1/6/2025, 9:00:23 AM
+Last updated at 1/6/2025, 9:01:37 AM
