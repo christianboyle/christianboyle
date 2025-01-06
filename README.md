@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTubxVjzdzPzjDhG-YE4sIA-t500x500.jpg">](https://soundcloud.com/coreylingo/skyfall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLKKIhWkjxu3kShJ-8MjkPw-t500x500.png">](https://soundcloud.com/lowpolysound/dumbest-girl-alive)
 
-**Artist**: Corey Lingo 
+**Artist**: Low Poly 
 
-**Track**: Skyfall (prod. Maxim & 3xogmel)
+**Track**: Dumbest Girl Alive (Low Poly Edit)
 
-Last updated at 1/6/2025, 4:11:31 PM
+Last updated at 1/6/2025, 4:14:01 PM
