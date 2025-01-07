@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEXlf9O4nxD7J7V6-1aSllg-t500x500.jpg">](https://soundcloud.com/deodor/ra9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nclXuWkZ7VzvyzAa-Hjkeow-t500x500.jpg">](https://soundcloud.com/komplvintmusic/carbin-afk-boss-komplvint-remix)
 
-**Artist**: deodora, Akhimei 
+**Artist**: KOMPLVINT 
 
-**Track**: rA9 w/ Akhimei (nightiger)
+**Track**: CARBIN & AFK - BOSS (KOMPLVINT REMIX)
 
-Last updated at 1/7/2025, 3:17:19 PM
+Last updated at 1/7/2025, 3:42:32 PM
