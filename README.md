@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SSzBhVNDx0ALi14-GUlWyg-t500x500.jpg">](https://soundcloud.com/da-bow/tgif-dabow-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
 
-**Artist**: Dabow 
+**Artist**: cxsh! 
 
-**Track**: TGIF (Dabow Flip)
+**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
 
-Last updated at 1/7/2025, 9:53:52 AM
+Last updated at 1/7/2025, 1:03:12 PM
