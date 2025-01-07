@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjfzyuScvydvTomP-YnGGxw-t500x500.jpg">](https://soundcloud.com/synovamusic/skrillex-scary-monsters-nice-spirtes-synova-xhris-edit)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Synova 
 
-**Track**: The Apprentice - Noise (Original Mix)
+**Track**: Skrillex - Scary Monsters & Nice Sprites (Synova & XHRIS Edit)
 
-Last updated at 1/7/2025, 9:38:59 AM
+Last updated at 1/7/2025, 9:49:57 AM
