@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyWK8qF1OESbElQz-RyeUPg-t500x500.jpg">](https://soundcloud.com/zodiacbelgium/kanye-west-runaway-zodiac-remix-mastered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7gjurmKXNgQFshR-v0L2Xg-t500x500.jpg">](https://soundcloud.com/its-cris-way-music/apt-cris-way-edit)
 
-**Artist**: Zodiac 
+**Artist**: Cris Way 
 
-**Track**: Kanye West - Runaway (Zodiac Remix)
+**Track**: [FREE DL] APT. (Cris Way Hard Techno Edit) - Rosè, Bruno Mars
 
-Last updated at 1/7/2025, 2:10:59 PM
+Last updated at 1/7/2025, 3:14:54 PM
