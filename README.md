@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bkXRbaJVAoMkLfCb-LEMMDg-t500x500.png">](https://soundcloud.com/ong-iyon/lilial)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMK4wktDFzwuNlUd-CO5omw-t500x500.jpg">](https://soundcloud.com/tripulsemusic/we-have-muerte-at-home)
 
-**Artist**: Jepadee, Jaezar 
+**Artist**: Tripulse 
 
-**Track**: Lilial
+**Track**: We Have Muerte At Home
 
-Last updated at 1/7/2025, 7:59:29 AM
+Last updated at 1/7/2025, 8:02:20 AM
