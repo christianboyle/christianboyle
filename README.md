@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000126976375-x2gs7g-t500x500.jpg">](https://soundcloud.com/japanet/yoneda-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
 
-**Artist**: JAPANET 
+**Artist**: Fatal Energy Records 
 
-**Track**: YONEDA - Eyes アイズ
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/7/2025, 9:33:29 AM
+Last updated at 1/7/2025, 9:38:59 AM
