@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IEXlf9O4nxD7J7V6-1aSllg-t500x500.jpg">](https://soundcloud.com/deodor/ra9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7iZZEKOvlRupLSD-RPfTdg-t500x500.png">](https://soundcloud.com/silent8ch/loro)
 
-**Artist**: deodora, Akhimei 
+**Artist**: Ernie Eats Rump with Dags 
 
-**Track**: rA9 w/ Akhimei (nightiger)
+**Track**: Loro
 
-Last updated at 1/7/2025, 8:50:31 AM
+Last updated at 1/7/2025, 9:15:17 AM
