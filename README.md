@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gxv3DGBFqwfvGA9j-Q7OuHQ-t500x500.png">](https://soundcloud.com/vilemayhem/muddy-injections)
 
-**Artist**: Vortek's 
+**Artist**: VILEMAYHEM 
 
-**Track**: Vortek's - No Karma [OMN-107]
+**Track**: MUDDY INJECTIONS
 
-Last updated at 1/7/2025, 1:55:13 PM
+Last updated at 1/7/2025, 2:00:08 PM
