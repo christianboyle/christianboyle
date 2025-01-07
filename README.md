@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nclXuWkZ7VzvyzAa-Hjkeow-t500x500.jpg">](https://soundcloud.com/komplvintmusic/carbin-afk-boss-komplvint-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
 
-**Artist**: KOMPLVINT 
+**Artist**: Fatal Energy Records 
 
-**Track**: CARBIN & AFK - BOSS (KOMPLVINT REMIX)
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/7/2025, 3:42:32 PM
+Last updated at 1/7/2025, 3:49:22 PM
