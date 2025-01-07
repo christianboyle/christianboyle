@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTubxVjzdzPzjDhG-YE4sIA-t500x500.jpg">](https://soundcloud.com/coreylingo/skyfall)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Corey Lingo 
 
-**Track**: The Apprentice - Noise (Original Mix)
+**Track**: Skyfall (prod. Maxim & 3xogmel)
 
-Last updated at 1/7/2025, 1:33:21 PM
+Last updated at 1/7/2025, 1:37:31 PM
