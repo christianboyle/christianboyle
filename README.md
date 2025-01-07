@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzJMnNjMj20mEvG9-LB3DvA-t500x500.jpg">](https://soundcloud.com/myriasmusic/kelis-milkshake-myrias-flip1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vUQjjm513yoyOLpT-aepk4w-t500x500.jpg">](https://soundcloud.com/dnzrecords/clarky-i-believe)
 
-**Artist**: MYRIAS 
+**Artist**: Clarky 
 
-**Track**: KELIS - MILKSHAKE (MYRIAS FLIP)
+**Track**: Clarky - I Believe
 
-Last updated at 1/7/2025, 2:04:59 PM
+Last updated at 1/7/2025, 2:06:44 PM
