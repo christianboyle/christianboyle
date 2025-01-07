@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000189794294-0d6jmq-t500x500.jpg">](https://soundcloud.com/blackkray/sickboyrari-fucked-up-mah-racks-went-broke-prod-bosssbeatz-goth-a-holics-exclusive-2k17)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5Itv0m48eDiRDje-NePogw-t500x500.jpg">](https://soundcloud.com/4d8k/str_anthem)
 
-**Artist**: Blackkray 
+**Artist**: ANTHEM 
 
-**Track**: SICKBOYRARI - FUCKED UP MAH RACKS WENT BROKE [PROD BOSSSBEATZ] "GOTH-A-HOLICS EXCLUSIVE 2K17"
+**Track**: STR
 
-Last updated at 1/7/2025, 8:06:06 AM
+Last updated at 1/7/2025, 8:08:05 AM
