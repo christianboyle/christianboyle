@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10)
 
-**Artist**: 14106lyn & isai 
+**Artist**: Vyhara 
 
-**Track**: flash prod me+isai
+**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
 
-Last updated at 1/8/2025, 7:55:35 AM
+Last updated at 1/8/2025, 7:57:16 AM
