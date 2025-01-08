@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJw8zsyJlhkueCyL-iXyUtw-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-make-it-far)
 
-**Artist**: cxsh! 
+**Artist**: Kichta 
 
-**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
+**Track**: Kichta - Make It Far
 
-Last updated at 1/8/2025, 8:03:31 AM
+Last updated at 1/8/2025, 8:06:11 AM
