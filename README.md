@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wt8ahXcQTqMNC8m-PDzx5Q-t500x500.jpg">](https://soundcloud.com/not_pepsi/come-back-pepsi-edit?in=saxurn/sets/unc/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZgLq66HX5ckD87o-D4yxlA-t500x500.jpg">](https://soundcloud.com/bbam_krt_production/bbamstep-krt-production?in=saxurn/sets/unc/)
 
-**Artist**: Not Pepsi 
+**Artist**: BBAM 
 
-**Track**: come back - (pepsi edit)
+**Track**: BBAMSTEP - KRT Production
 
-Last updated at 1/8/2025, 3:20:53 PM
+Last updated at 1/8/2025, 3:25:19 PM
