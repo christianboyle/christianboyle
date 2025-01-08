@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ln6SyXD4fb7gahP-KuvVzg-t500x500.png">](https://soundcloud.com/rapsodie-techno/daft-punk-technologic-rhapsodie-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZgLq66HX5ckD87o-D4yxlA-t500x500.jpg">](https://soundcloud.com/bbam_krt_production/bbamstep-krt-production)
 
-**Artist**: RHAPSODIE 
+**Artist**: BBAM 
 
-**Track**: DAFT PUNK - TECHNOLOGIC (RHAPSODIE EDIT)
+**Track**: BBAMSTEP - KRT Production
 
-Last updated at 1/7/2025, 10:10:33 PM
+Last updated at 1/7/2025, 10:11:56 PM
