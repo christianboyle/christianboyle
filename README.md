@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7gjurmKXNgQFshR-v0L2Xg-t500x500.jpg">](https://soundcloud.com/its-cris-way-music/apt-cris-way-edit)
 
-**Artist**: Vyhara 
+**Artist**: Cris Way 
 
-**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
+**Track**: [FREE DL] APT. (Cris Way Hard Techno Edit) - Rosè, Bruno Mars
 
-Last updated at 1/8/2025, 7:57:16 AM
+Last updated at 1/8/2025, 8:00:06 AM
