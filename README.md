@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2CWIq7c4N9LIzR7-HSTpng-t500x500.png">](https://soundcloud.com/nicolechen/raffaella-carra-pedro-d-kenz-nicole-chen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzQ6QzywvZqNcz4L-DKpBpA-t500x500.jpg">](https://soundcloud.com/shawnmagda/telykast-better-now-shawn-magda-remix-radio-edit)
 
-**Artist**: NICOLE CHEN 
+**Artist**: Shawn Magda 
 
-**Track**: Raffaella Carrà - Pedro (D-KENZ & NICOLE CHEN Remix)
+**Track**: Telykast - Better Now (Shawn Magda Remix) [Radio Edit]
 
-Last updated at 1/7/2025, 10:02:12 PM
+Last updated at 1/7/2025, 10:03:27 PM
