@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKbyWzV1SgZZkxzz-QL9YWw-t500x500.jpg">](https://soundcloud.com/eckhaus-music/eckhaus-stainles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zbNQvZPRjYcuwt5U-1xspSA-t500x500.png">](https://soundcloud.com/solfvde/shift)
 
-**Artist**: Eckhaus 
+**Artist**: SOLFVDE 
 
-**Track**: Stainless
+**Track**: Shift
 
-Last updated at 1/8/2025, 3:48:11 PM
+Last updated at 1/8/2025, 3:51:41 PM
