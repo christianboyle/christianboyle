@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzQ6QzywvZqNcz4L-DKpBpA-t500x500.jpg">](https://soundcloud.com/shawnmagda/telykast-better-now-shawn-magda-remix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODNyiXObFyfqU7ss-OVih7w-t500x500.jpg">](https://soundcloud.com/enforcerecords/domything)
 
-**Artist**: Shawn Magda 
+**Artist**: Ozlig 
 
-**Track**: Telykast - Better Now (Shawn Magda Remix) [Radio Edit]
+**Track**: Do My Thing
 
-Last updated at 1/7/2025, 10:03:27 PM
+Last updated at 1/7/2025, 10:04:57 PM
