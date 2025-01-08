@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWNaolgu0YZMDsFT-TZ0ZEg-t500x500.jpg">](https://soundcloud.com/2fast4you77/shades-shake-this-bass-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper?in=saxurn/sets/unc/)
 
-**Artist**: 2FAST4YOU 
+**Artist**: DJ Bassenchad 
 
-**Track**: Shades - Shake This Bass [Free DL]
+**Track**: Gatekeeper
 
-Last updated at 1/8/2025, 10:35:51 AM
+Last updated at 1/8/2025, 11:39:50 AM
