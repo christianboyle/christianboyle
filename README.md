@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xackrlgrqmoquBBT-jWWqdA-t500x500.png">](https://soundcloud.com/sc4r-73094284/what-is-that-in-the-woods)
 
-**Artist**: cxsh! 
+**Artist**: oaken scar 
 
-**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
+**Track**: what is that in the woods?
 
-Last updated at 1/7/2025, 9:49:27 PM
+Last updated at 1/7/2025, 9:50:31 PM
