@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKbyWzV1SgZZkxzz-QL9YWw-t500x500.jpg">](https://soundcloud.com/eckhaus-music/eckhaus-stainles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper?in=saxurn/sets/unc/)
 
-**Artist**: Eckhaus 
+**Artist**: DJ Bassenchad 
 
-**Track**: Stainless
+**Track**: Gatekeeper
 
-Last updated at 1/8/2025, 3:12:32 PM
+Last updated at 1/8/2025, 3:15:28 PM
