@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tl0FVpOZeH1wyCfg-Oohzcg-t500x500.jpg">](https://soundcloud.com/aubree-korte-775849199/love-in-the-echoes-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ky4B65quqLb288bx-y0GyxQ-t500x500.png">](https://soundcloud.com/groundscoredubz/pretty-boy-swag-ground-score-bootleg)
 
-**Artist**: breezy.wav 
+**Artist**: ground score 
 
-**Track**: Echoes
+**Track**: Pretty Boy Swag [ground score bootleg]
 
-Last updated at 1/8/2025, 4:38:30 PM
+Last updated at 1/8/2025, 4:42:16 PM
