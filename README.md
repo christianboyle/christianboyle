@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZQNbsILBCxLpfPKM-QBM9mQ-t500x500.png">](https://soundcloud.com/duzyyy/rtb222)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
 
-**Artist**: duzy 
+**Artist**: cxsh! 
 
-**Track**: rtb222
+**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
 
-Last updated at 1/7/2025, 9:02:49 PM
+Last updated at 1/7/2025, 9:49:27 PM
