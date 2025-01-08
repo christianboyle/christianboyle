@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2SSzBhVNDx0ALi14-GUlWyg-t500x500.jpg">](https://soundcloud.com/da-bow/tgif-dabow-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile)
 
-**Artist**: Dabow 
+**Artist**: 14106lyn & isai 
 
-**Track**: TGIF (Dabow Flip)
+**Track**: flash prod me+isai
 
-Last updated at 1/7/2025, 7:56:10 PM
+Last updated at 1/7/2025, 8:58:54 PM
