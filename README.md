@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aO0NoTBIzZgjuJkn-fr2yMQ-t500x500.jpg">](https://soundcloud.com/limee520/electric-elegince)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tl0FVpOZeH1wyCfg-Oohzcg-t500x500.jpg">](https://soundcloud.com/aubree-korte-775849199/love-in-the-echoes-mp3)
 
-**Artist**: ILL Music God 
+**Artist**: breezy.wav 
 
-**Track**: Electric Elegince (MasterBlaster)
+**Track**: Echoes
 
-Last updated at 1/8/2025, 4:32:35 PM
+Last updated at 1/8/2025, 4:38:30 PM
