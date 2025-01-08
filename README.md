@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JqcNt6q32dEESfg-Vz06LQ-t500x500.jpg">](https://soundcloud.com/nvmb-wav/i-follow-rivers-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4O15OAUMmDlCey0s-IIna6A-t500x500.png">](https://soundcloud.com/blzbomusic/allthetimeblzboflip)
 
-**Artist**: nvmb 
+**Artist**: BLZBO 
 
-**Track**: Lykke Li - I Follow Rivers (nvmb Cover)
+**Track**: All the time - (BLZBO FLIP) Free Download
 
-Last updated at 1/8/2025, 4:26:39 PM
+Last updated at 1/8/2025, 4:30:45 PM
