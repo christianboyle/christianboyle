@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3r9bt8Kc9l3TUuRZ-95B43g-t500x500.jpg">](https://soundcloud.com/nxstymusic/nightcrawler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWXqyU0tr3JDakAc-FKVSpw-t500x500.png">](https://soundcloud.com/itsyokomusic/maybe-im-crazy-1)
 
-**Artist**: NXSTY & DELATO 
+**Artist**: Yoko 
 
-**Track**: Travis Scott ~ Nightcrawler (NXSTY & DELATO REMIX)
+**Track**: Maybe I'm Crazy
 
-Last updated at 1/7/2025, 10:05:57 PM
+Last updated at 1/7/2025, 10:08:08 PM
