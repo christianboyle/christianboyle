@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wt8ahXcQTqMNC8m-PDzx5Q-t500x500.jpg">](https://soundcloud.com/not_pepsi/come-back-pepsi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zkm3WeZWj2V5DyPX-TjOtGg-t500x500.jpg">](https://soundcloud.com/belavie/breaking-the-habit?in=saxurn/sets/unc/)
 
-**Artist**: Not Pepsi 
+**Artist**: Bélavie 
 
-**Track**: come back - (pepsi edit)
+**Track**: Bélavie - Breaking The Habit | free dl
 
-Last updated at 1/8/2025, 2:49:10 PM
+Last updated at 1/8/2025, 2:53:41 PM
