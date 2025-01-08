@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsqYo5SgWbKSDKzR-0HTw9Q-t500x500.png">](https://soundcloud.com/bankonlove/pro123)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile)
 
-**Artist**: BANK 
+**Artist**: 14106lyn & isai 
 
-**Track**: Pro123
+**Track**: flash prod me+isai
 
-Last updated at 1/8/2025, 7:54:10 AM
+Last updated at 1/8/2025, 7:55:35 AM
