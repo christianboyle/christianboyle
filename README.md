@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZgLq66HX5ckD87o-D4yxlA-t500x500.jpg">](https://soundcloud.com/bbam_krt_production/bbamstep-krt-production)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zkm3WeZWj2V5DyPX-TjOtGg-t500x500.jpg">](https://soundcloud.com/belavie/breaking-the-habit)
 
-**Artist**: BBAM 
+**Artist**: Bélavie 
 
-**Track**: BBAMSTEP - KRT Production
+**Track**: Bélavie - Breaking The Habit | free dl
 
-Last updated at 1/8/2025, 7:39:59 AM
+Last updated at 1/8/2025, 7:43:59 AM
