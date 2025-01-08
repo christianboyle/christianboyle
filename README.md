@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shnGj1mQnn6lKyXg-TXyX7g-t500x500.jpg">](https://soundcloud.com/xaltxcess/xalt-xcess-vlnfragile-rx003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWNaolgu0YZMDsFT-TZ0ZEg-t500x500.jpg">](https://soundcloud.com/2fast4you77/shades-shake-this-bass-free-dl)
 
-**Artist**: Xalt Xcess 
+**Artist**: 2FAST4YOU 
 
-**Track**: VLNfragile
+**Track**: Shades - Shake This Bass [Free DL]
 
-Last updated at 1/8/2025, 9:44:01 AM
+Last updated at 1/8/2025, 10:35:51 AM
