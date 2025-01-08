@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper?in=saxurn/sets/unc/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wt8ahXcQTqMNC8m-PDzx5Q-t500x500.jpg">](https://soundcloud.com/not_pepsi/come-back-pepsi-edit?in=saxurn/sets/unc/)
 
-**Artist**: DJ Bassenchad 
+**Artist**: Not Pepsi 
 
-**Track**: Gatekeeper
+**Track**: come back - (pepsi edit)
 
-Last updated at 1/8/2025, 3:15:28 PM
+Last updated at 1/8/2025, 3:20:53 PM
