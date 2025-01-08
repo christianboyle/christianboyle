@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uwrweICbPKdaumTN-oU2fhw-t500x500.png">](https://soundcloud.com/bangingbeats2024/fav-bounce-of-2024-epic-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a2CWIq7c4N9LIzR7-HSTpng-t500x500.png">](https://soundcloud.com/nicolechen/raffaella-carra-pedro-d-kenz-nicole-chen-remix)
 
-**Artist**: Phil Anderson 
+**Artist**: NICOLE CHEN 
 
-**Track**: Fav bounce of 2024 epic mix
+**Track**: Raffaella Carrà - Pedro (D-KENZ & NICOLE CHEN Remix)
 
-Last updated at 1/7/2025, 10:00:17 PM
+Last updated at 1/7/2025, 10:02:12 PM
