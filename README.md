@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NSmEnlG9n4KrEx47-kJK9QA-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/arythma-infected)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10)
 
-**Artist**: ARYTHMA 
+**Artist**: Vyhara 
 
-**Track**: ARYTHMA- Infected
+**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
 
-Last updated at 1/7/2025, 5:47:21 PM
+Last updated at 1/7/2025, 7:51:25 PM
