@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GH2HNS1TqP8hi7ji-YmGtkA-t500x500.jpg">](https://soundcloud.com/user-219120497/xts-hands-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip)
 
-**Artist**: Rebellion Records 
+**Artist**: SPORTMODE 
 
-**Track**: XTS - Hands Up (FREE DL)
+**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
 
-Last updated at 1/9/2025, 8:30:06 AM
+Last updated at 1/9/2025, 8:31:50 AM
