@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWMHEdKdOm2HJQ9k-ah3rPg-t500x500.png">](https://soundcloud.com/omgcluu/walk-w1sunsuu-prodstarxvi?in=starxvi/sets/prod-me-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwtkKgsN0cdpKNsF-Mqf0mw-t500x500.jpg">](https://soundcloud.com/th777/smokin-on-sour)
 
-**Artist**: cluu, 1sunsuu 
+**Artist**: THriste 
 
-**Track**: walk w/1sunsuu (prod.starxvi) *all plats
+**Track**: SMOKIN' ON SOUR
 
-Last updated at 1/9/2025, 8:35:10 AM
+Last updated at 1/9/2025, 8:36:51 AM
