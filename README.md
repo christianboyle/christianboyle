@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix)
 
-**Artist**: cxsh! 
+**Artist**: LEKS BEATS 
 
-**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 8:41:19 AM
+Last updated at 1/9/2025, 8:42:24 AM
