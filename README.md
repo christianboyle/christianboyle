@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile)
 
-**Artist**: DJ Bassenchad 
+**Artist**: 14106lyn & isai 
 
-**Track**: Gatekeeper
+**Track**: flash prod me+isai
 
-Last updated at 1/9/2025, 2:36:38 PM
+Last updated at 1/9/2025, 2:39:13 PM
