@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoflRJy6aqrVIES2-5GMYpA-t500x500.jpg">](https://soundcloud.com/josh-oreilly-826355280/db4751fa-deb9-4f42-a5ba-b3fea8e32ab7)
 
-**Artist**: SPORTMODE 
+**Artist**: JØR 
 
-**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
+**Track**: OFF THE BLOCK
 
-Last updated at 1/9/2025, 8:52:35 AM
+Last updated at 1/9/2025, 11:10:28 AM
