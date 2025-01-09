@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLKKIhWkjxu3kShJ-8MjkPw-t500x500.png">](https://soundcloud.com/lowpolysound/dumbest-girl-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix)
 
-**Artist**: Low Poly 
+**Artist**: LEKS BEATS 
 
-**Track**: Dumbest Girl Alive (Low Poly Edit)
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 2:25:47 PM
+Last updated at 1/9/2025, 2:26:42 PM
