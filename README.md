@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ECItCrDD0BzzLF5-xXvwzw-t500x500.png">](https://soundcloud.com/2tdmusic/linkin-park-faint-2td-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix)
 
-**Artist**: 2TD 
+**Artist**: LEKS BEATS 
 
-**Track**: LINKIN PARK - FAINT (2TD FLIP)
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 8:48:15 AM
+Last updated at 1/9/2025, 8:50:05 AM
