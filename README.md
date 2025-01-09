@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ECItCrDD0BzzLF5-xXvwzw-t500x500.png">](https://soundcloud.com/2tdmusic/linkin-park-faint-2td-flip)
 
-**Artist**: SPORTMODE 
+**Artist**: 2TD 
 
-**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
+**Track**: LINKIN PARK - FAINT (2TD FLIP)
 
-Last updated at 1/9/2025, 8:44:49 AM
+Last updated at 1/9/2025, 8:48:15 AM
