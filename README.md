@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tBseFiU90uRbEmCM-QrAK1Q-t500x500.jpg">](https://soundcloud.com/jjjacksen/jjjacksen-2025-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fPyVjIyjJCuK2yya-BHmJ1w-t500x500.jpg">](https://soundcloud.com/bassterixtechno/b88c157a-f637-4f60-8579-c834334936b1)
 
-**Artist**: jjjacksen 
+**Artist**: BASSTERIX 
 
-**Track**: jjjacksen 2025 Showcase
+**Track**: CONFUSE
 
-Last updated at 1/9/2025, 8:37:56 AM
+Last updated at 1/9/2025, 8:39:06 AM
