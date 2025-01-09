@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKbyWzV1SgZZkxzz-QL9YWw-t500x500.jpg">](https://soundcloud.com/eckhaus-music/eckhaus-stainles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-onfgOvZbtcD7I9U6-SbcDlw-t500x500.jpg">](https://soundcloud.com/omodub/sisto-dead-champions-omo-remix)
 
-**Artist**: Eckhaus 
+**Artist**: OMO 
 
-**Track**: Stainless
+**Track**: Sisto - Dead Champions (OMO Remix)
 
-Last updated at 1/9/2025, 12:17:12 PM
+Last updated at 1/9/2025, 12:20:43 PM
