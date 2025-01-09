@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ky4B65quqLb288bx-y0GyxQ-t500x500.png">](https://soundcloud.com/groundscoredubz/pretty-boy-swag-ground-score-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix?in=saxurn/sets/unc/)
 
-**Artist**: ground score 
+**Artist**: LEKS BEATS 
 
-**Track**: Pretty Boy Swag [ground score bootleg]
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 12:24:13 PM
+Last updated at 1/9/2025, 12:27:13 PM
