@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKbyWzV1SgZZkxzz-QL9YWw-t500x500.jpg">](https://soundcloud.com/eckhaus-music/eckhaus-stainles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix?in=saxurn/sets/unc/)
 
-**Artist**: Eckhaus 
+**Artist**: LEKS BEATS 
 
-**Track**: Stainless
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 11:45:29 AM
+Last updated at 1/9/2025, 11:48:15 AM
