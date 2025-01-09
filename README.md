@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix?in=saxurn/sets/unc/)
 
-**Artist**: DJ Bassenchad 
+**Artist**: LEKS BEATS 
 
-**Track**: Gatekeeper
+**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
 
-Last updated at 1/9/2025, 11:11:48 AM
+Last updated at 1/9/2025, 11:15:11 AM
