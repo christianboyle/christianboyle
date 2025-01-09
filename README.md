@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jPOX0FBjIVXE6Qb4-6oORwg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-stojche-stomping-ground-mrx004)
 
-**Artist**: SPORTMODE 
+**Artist**: Stojche 
 
-**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
+**Track**: Premiere: Stojche - Stomping Ground [MRX004]
 
-Last updated at 1/9/2025, 8:31:50 AM
+Last updated at 1/9/2025, 8:33:05 AM
