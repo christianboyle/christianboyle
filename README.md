@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-onfgOvZbtcD7I9U6-SbcDlw-t500x500.jpg">](https://soundcloud.com/omodub/sisto-dead-champions-omo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ky4B65quqLb288bx-y0GyxQ-t500x500.png">](https://soundcloud.com/groundscoredubz/pretty-boy-swag-ground-score-bootleg)
 
-**Artist**: OMO 
+**Artist**: ground score 
 
-**Track**: Sisto - Dead Champions (OMO Remix)
+**Track**: Pretty Boy Swag [ground score bootleg]
 
-Last updated at 1/9/2025, 12:20:43 PM
+Last updated at 1/9/2025, 12:24:13 PM
