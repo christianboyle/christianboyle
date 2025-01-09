@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9CDAu6Xyjluyz4P-w3fviQ-t500x500.png">](https://soundcloud.com/leksbeats/lightitupremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip)
 
-**Artist**: LEKS BEATS 
+**Artist**: SPORTMODE 
 
-**Track**: MAJOR LAZER FEAT. NYLA & FUSE ODG - LIGHT IT UP (LEKS BEATS REMIX)
+**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
 
-Last updated at 1/9/2025, 8:50:05 AM
+Last updated at 1/9/2025, 8:52:35 AM
