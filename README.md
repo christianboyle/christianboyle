@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoflRJy6aqrVIES2-5GMYpA-t500x500.jpg">](https://soundcloud.com/josh-oreilly-826355280/db4751fa-deb9-4f42-a5ba-b3fea8e32ab7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZjP3nFz4ucRTg1z-WoGGVA-t500x500.png">](https://soundcloud.com/bassenchad/gate-keyper)
 
-**Artist**: JØR 
+**Artist**: DJ Bassenchad 
 
-**Track**: OFF THE BLOCK
+**Track**: Gatekeeper
 
-Last updated at 1/9/2025, 2:32:48 PM
+Last updated at 1/9/2025, 2:36:38 PM
