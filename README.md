@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyKqV69JVJXPxJ3e-z3jJAQ-t500x500.png">](https://soundcloud.com/djdmind/infected?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TmG2RIF7nGDucmzX-l9Vypw-t500x500.jpg">](https://soundcloud.com/bendamusic/smack-talk-benda-flip)
 
-**Artist**: D-MIND 
+**Artist**: Benda 
 
-**Track**: Infected [FREE DOWNLOAD]
+**Track**: ISOKNOCK & RL Grime - Smack Talk (Benda Flip)
 
-Last updated at 1/10/2025, 5:06:46 PM
+Last updated at 1/10/2025, 5:35:52 PM
