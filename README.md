@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vU2Ufq79GcLJ-0-t500x500.jpg">](https://soundcloud.com/1985music1985/north-road)
 
-**Artist**: Vyhara 
+**Artist**: Napes 
 
-**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
+**Track**: North Road
 
-Last updated at 1/10/2025, 7:04:18 AM
+Last updated at 1/10/2025, 7:10:30 AM
