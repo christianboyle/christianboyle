@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzJMnNjMj20mEvG9-LB3DvA-t500x500.jpg">](https://soundcloud.com/myriasmusic/kelis-milkshake-myrias-flip1?in=saxurn/sets/blobtech)
 
-**Artist**: M?STIC 
+**Artist**: MYRIAS 
 
-**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
+**Track**: KELIS - MILKSHAKE (MYRIAS FLIP)
 
-Last updated at 1/10/2025, 11:10:20 AM
+Last updated at 1/10/2025, 11:13:30 AM
