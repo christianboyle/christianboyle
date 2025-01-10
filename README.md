@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCEnvgyFy6yJ9oYt-kTwv8Q-t500x500.png">](https://soundcloud.com/txrecords/premiere-under-the-moon-x-francois-call-desillusion-feateya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mcNVrtNm85ufVELi-BdTzOQ-t500x500.jpg">](https://soundcloud.com/sublimaterecords/sublimix-154-tsou)
 
-**Artist**: Tx Records 
+**Artist**: Sublimate Records 
 
-**Track**: PREMIERE: Under The Moon X François Call - Désillusion (feat.EYA)
+**Track**: Sublimix #154 - Tsou
 
-Last updated at 1/10/2025, 8:01:08 AM
+Last updated at 1/10/2025, 8:02:07 AM
