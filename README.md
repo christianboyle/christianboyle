@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile?in=saxurn/sets/causal-cones/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer?in=saxurn/sets/causal-cones/)
 
-**Artist**: 14106lyn & isai 
+**Artist**: David Navas 
 
-**Track**: flash prod me+isai
+**Track**: David Navas Feat. Lenna - Boys Of Summer
 
-Last updated at 1/10/2025, 4:34:02 PM
+Last updated at 1/10/2025, 4:37:38 PM
