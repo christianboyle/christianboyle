@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzJMnNjMj20mEvG9-LB3DvA-t500x500.jpg">](https://soundcloud.com/myriasmusic/kelis-milkshake-myrias-flip1?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt?in=saxurn/sets/causal-cones/)
 
-**Artist**: MYRIAS 
+**Artist**: cxsh! 
 
-**Track**: KELIS - MILKSHAKE (MYRIAS FLIP)
+**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
 
-Last updated at 1/10/2025, 11:13:30 AM
+Last updated at 1/10/2025, 11:14:36 AM
