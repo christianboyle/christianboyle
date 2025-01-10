@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZGJ3vEW1inoDH3u-qk2cWA-t500x500.jpg">](https://soundcloud.com/dj_krusen/dj-a-krusen-remix-buy-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I1A2qtLipEeJsIBY-W5UgNw-t500x500.jpg">](https://soundcloud.com/rave_alert/thnderz-raveheaven-lsd-extended)
 
-**Artist**: Krusen 
+**Artist**: THNDERZ & RAVE HEAVEN 
 
-**Track**: DJ小鱼儿 - 黑桃A (Krusen Remix)| Buy = Free Download
+**Track**: THNDERZ & RAVEHEAVEN - LSD (Extended)
 
-Last updated at 1/10/2025, 10:03:23 AM
+Last updated at 1/10/2025, 10:04:23 AM
