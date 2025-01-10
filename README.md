@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsqYo5SgWbKSDKzR-0HTw9Q-t500x500.png">](https://soundcloud.com/bankonlove/pro123?in=saxurn/sets/phong-daddy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10?in=saxurn/sets/phong-daddy)
 
-**Artist**: BANK 
+**Artist**: Vyhara 
 
-**Track**: Pro123
+**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
 
-Last updated at 1/10/2025, 3:36:51 PM
+Last updated at 1/10/2025, 3:38:21 PM
