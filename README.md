@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ua0eywhedrV0gyOz-iD0aKg-t500x500.jpg">](https://soundcloud.com/differentsoundofficial/ufo95-subterranean-pulse?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer?in=saxurn/sets/causal-cones)
 
-**Artist**: DifferentSound 
+**Artist**: David Navas 
 
-**Track**: UFO95 - Subterranean Pulse
+**Track**: David Navas Feat. Lenna - Boys Of Summer
 
-Last updated at 1/10/2025, 5:39:35 PM
+Last updated at 1/10/2025, 5:45:16 PM
