@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vXWzUHWxC3K8E2JT-G8zdlQ-t500x500.jpg">](https://soundcloud.com/xaev/afterthought)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IQ4pKJQlyvny0OF-hFbykA-t500x500.jpg">](https://soundcloud.com/welcome-recs/hekler-x-oddkidout-dangerous?in=heklermusic/sets/dangerous-villains)
 
-**Artist**: xaev 
+**Artist**: HEKLER X ODDKIDOUT 
 
-**Track**: Its just like more about the vibe
+**Track**: HEKLER X ODDKIDOUT - DANGEROUS (Feat. Outlaw The Artist)
 
-Last updated at 1/10/2025, 10:12:59 AM
+Last updated at 1/10/2025, 10:14:06 AM
