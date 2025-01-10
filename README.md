@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jk8rZEx4YeSzlWfm-Yr7Cvg-t500x500.png">](https://soundcloud.com/solomonfranceofficial/discoremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zk48tzuwZDepV6r-qn07YQ-t500x500.jpg">](https://soundcloud.com/deadlyft/like-that)
 
-**Artist**: Solomon France 
+**Artist**: DEADLYFT 
 
-**Track**: Surf Curse - Disco (Solomon France Remix)
+**Track**: LIKE THAT!
 
-Last updated at 1/10/2025, 4:20:57 PM
+Last updated at 1/10/2025, 4:21:57 PM
