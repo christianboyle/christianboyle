@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iICv0ny4E6IUC96b-z0V8Cg-t500x500.jpg">](https://soundcloud.com/rlvst/winter?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsii4G2ty4ryPkol-b3pJSg-t500x500.jpg">](https://soundcloud.com/ariaveil/kisslyfe?in=saxurn/sets/blobtech)
 
-**Artist**: rl, crusafix, crusey 
+**Artist**: ARIA VEIL 
 
-**Track**: winter
+**Track**: emotionals - kisslyfe ft buffalobang + ryo (aria veil remix)
 
-Last updated at 1/10/2025, 1:36:20 PM
+Last updated at 1/10/2025, 1:39:10 PM
