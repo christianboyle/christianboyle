@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zkm3WeZWj2V5DyPX-TjOtGg-t500x500.jpg">](https://soundcloud.com/belavie/breaking-the-habit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNuReBz7BEWMBfHO-WJzs2Q-t500x500.jpg">](https://soundcloud.com/vyharamusic/kaytranada-vic-mensa-drive-me-crazy-vyhara-flip-v10)
 
-**Artist**: Bélavie 
+**Artist**: Vyhara 
 
-**Track**: Bélavie - Breaking The Habit | free dl
+**Track**: Kaytranada & Vic Mensa - Drive Me Crazy (Vyhara Flip)
 
-Last updated at 1/9/2025, 5:33:39 PM
+Last updated at 1/10/2025, 7:04:18 AM
