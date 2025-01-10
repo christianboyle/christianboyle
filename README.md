@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7gjurmKXNgQFshR-v0L2Xg-t500x500.jpg">](https://soundcloud.com/its-cris-way-music/apt-cris-way-edit?in=saxurn/sets/causal-cones/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip?in=saxurn/sets/causal-cones/)
 
-**Artist**: Cris Way 
+**Artist**: SPORTMODE 
 
-**Track**: [FREE DL] APT. (Cris Way Hard Techno Edit) - Rosè, Bruno Mars
+**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
 
-Last updated at 1/10/2025, 11:35:53 AM
+Last updated at 1/10/2025, 11:39:24 AM
