@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9IQ4pKJQlyvny0OF-hFbykA-t500x500.jpg">](https://soundcloud.com/welcome-recs/hekler-x-oddkidout-dangerous?in=heklermusic/sets/dangerous-villains)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-74Xskz8H5mCEwYai-iMSpNA-t500x500.jpg">](https://soundcloud.com/cxsh_b/lil-durk-w-kevvo-prod-okpooka-wildcardt?in=saxurn/sets/causal-cones/)
 
-**Artist**: HEKLER X ODDKIDOUT 
+**Artist**: cxsh! 
 
-**Track**: HEKLER X ODDKIDOUT - DANGEROUS (Feat. Outlaw The Artist)
+**Track**: lil durk! w/ Kevvo! [prod. okpooka & wildcardt]
 
-Last updated at 1/10/2025, 10:14:06 AM
+Last updated at 1/10/2025, 10:19:05 AM
