@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nclXuWkZ7VzvyzAa-Hjkeow-t500x500.jpg">](https://soundcloud.com/komplvintmusic/carbin-afk-boss-komplvint-remix?in=saxurn/sets/phong-daddy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3Sv8ZTKZbKruuZtJ-tYgbvQ-t500x500.jpg">](https://soundcloud.com/thetrollzdubz/icantstoptrollz)
 
-**Artist**: KOMPLVINT 
+**Artist**: THE TROLLZ 
 
-**Track**: CARBIN & AFK - BOSS (KOMPLVINT REMIX)
+**Track**: Flux Pavilion - I Can't Stop [THE TROLLZ FLIP]
 
-Last updated at 1/10/2025, 3:14:08 PM
+Last updated at 1/10/2025, 3:17:23 PM
