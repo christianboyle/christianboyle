@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJl51Wr6DP0G0z5p-W737cQ-t500x500.jpg">](https://soundcloud.com/bydion/reunited?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qv5RyxIza7izzxAe-ne3uIQ-t500x500.png">](https://soundcloud.com/kureimusic/cant-get-you-out-of-my-head-kurei-remix?in=saxurn/sets/causal-cones)
 
-**Artist**: Dion, Shinjin 
+**Artist**: Kylie Minogue 
 
-**Track**: Reunited (prod. Shinjin)
+**Track**: Can't Get You Out Of My Head (Kurei Remix)
 
-Last updated at 1/10/2025, 5:49:16 PM
+Last updated at 1/10/2025, 5:53:27 PM
