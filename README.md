@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OK1j7dzKJffIULr4-P6HlGA-t500x500.png">](https://soundcloud.com/enablesecret/i-want-this-to-last-w-aitanaoficial?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyWK8qF1OESbElQz-RyeUPg-t500x500.jpg">](https://soundcloud.com/zodiacbelgium/kanye-west-runaway-zodiac-remix-mastered?in=saxurn/sets/blobtech)
 
-**Artist**: enable secret 
+**Artist**: Zodiac 
 
-**Track**: i want this to last (w AITANA★★OFICIAL)
+**Track**: Kanye West - Runaway (Zodiac Remix)
 
-Last updated at 1/10/2025, 10:50:43 AM
+Last updated at 1/10/2025, 10:53:43 AM
