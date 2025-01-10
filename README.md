@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVRnYDI1cFzaiC6U-BYGL1w-t500x500.png">](https://soundcloud.com/ella-843755159/no-thanks-prod-rek?in=saxurn/sets/selectron)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cS79NC4aPErQ5qXC-08uRXg-t500x500.jpg">](https://soundcloud.com/brokitz/lost-u?in=saxurn/sets/selectron)
 
-**Artist**: Etna Vera Vela 
+**Artist**: kitz 
 
-**Track**: fakemink - No Thanks (Prod Rek)
+**Track**: LOST U
 
-Last updated at 1/10/2025, 2:05:07 PM
+Last updated at 1/10/2025, 2:06:47 PM
