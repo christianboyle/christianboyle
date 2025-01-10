@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vUQjjm513yoyOLpT-aepk4w-t500x500.jpg">](https://soundcloud.com/dnzrecords/clarky-i-believe?in=saxurn/sets/blobtech)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfDztS7sfUsq5wai-fzyr6w-t500x500.jpg">](https://soundcloud.com/soundsbymystic/aap-rocky-taylor-swif-mstic-joynt-zmoke-remix?in=saxurn/sets/blobtech)
 
-**Artist**: Clarky 
+**Artist**: M?STIC 
 
-**Track**: Clarky - I Believe
+**Track**: A$AP ROCKY - TAYLOR SWIF (M?STIC, JOYNT & ZMOKE REMIX)
 
-Last updated at 1/10/2025, 11:06:04 AM
+Last updated at 1/10/2025, 11:10:20 AM
