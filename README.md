@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qv5RyxIza7izzxAe-ne3uIQ-t500x500.png">](https://soundcloud.com/kureimusic/cant-get-you-out-of-my-head-kurei-remix?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoflRJy6aqrVIES2-5GMYpA-t500x500.jpg">](https://soundcloud.com/josh-oreilly-826355280/db4751fa-deb9-4f42-a5ba-b3fea8e32ab7?in=saxurn/sets/causal-cones)
 
-**Artist**: Kylie Minogue 
+**Artist**: JØR 
 
-**Track**: Can't Get You Out Of My Head (Kurei Remix)
+**Track**: OFF THE BLOCK
 
-Last updated at 1/11/2025, 8:21:19 AM
+Last updated at 1/11/2025, 8:25:20 AM
