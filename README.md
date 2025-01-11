@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyKqV69JVJXPxJ3e-z3jJAQ-t500x500.png">](https://soundcloud.com/djdmind/infected)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9a8i8bF36i9XGAo-emtYtQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/angel-cannon-vindicator-innergated)
 
-**Artist**: D-MIND 
+**Artist**: INNERGATED 
 
-**Track**: Infected [FREE DOWNLOAD]
+**Track**: ANGEL CANNON - Vindicator [INNERGATED]
 
-Last updated at 1/11/2025, 7:46:20 AM
+Last updated at 1/11/2025, 8:05:17 AM
