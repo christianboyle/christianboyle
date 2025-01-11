@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoflRJy6aqrVIES2-5GMYpA-t500x500.jpg">](https://soundcloud.com/josh-oreilly-826355280/db4751fa-deb9-4f42-a5ba-b3fea8e32ab7?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyKqV69JVJXPxJ3e-z3jJAQ-t500x500.png">](https://soundcloud.com/djdmind/infected?in=saxurn/sets/causal-cones)
 
-**Artist**: JØR 
+**Artist**: D-MIND 
 
-**Track**: OFF THE BLOCK
+**Track**: Infected [FREE DOWNLOAD]
 
-Last updated at 1/10/2025, 5:57:17 PM
+Last updated at 1/10/2025, 9:08:33 PM
