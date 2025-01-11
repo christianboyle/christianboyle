@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9a8i8bF36i9XGAo-emtYtQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/angel-cannon-vindicator-innergated)
 
-**Artist**: 14106lyn & isai 
+**Artist**: INNERGATED 
 
-**Track**: flash prod me+isai
+**Track**: ANGEL CANNON - Vindicator [INNERGATED]
 
-Last updated at 1/10/2025, 9:18:21 PM
+Last updated at 1/10/2025, 9:20:20 PM
