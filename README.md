@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uxyZRzdGNHGYLafe-dmayVw-t500x500.jpg">](https://soundcloud.com/restnpiecez/restnpiecez-afterlife?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xqF0TEbCGxPU4SaQ-xysNWg-t500x500.png">](https://soundcloud.com/acyanmusic/avicii-levels-acyan-flip)
 
-**Artist**: Rest N Piecez 
+**Artist**: Acyan 
 
-**Track**: Rest N Piecez - Afterlife
+**Track**: Avicii - Levels (Acyan Flip)
 
-Last updated at 1/10/2025, 9:13:44 PM
+Last updated at 1/10/2025, 9:16:04 PM
