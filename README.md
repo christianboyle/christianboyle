@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myJNpfHKwwC9Vf9L-1HEmpA-t500x500.jpg">](https://soundcloud.com/deleted900000/glint-new-convo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile?in=saxurn/sets/causal-cones)
 
-**Artist**: Glint 
+**Artist**: 14106lyn & isai 
 
-**Track**: Glint - New Convo
+**Track**: flash prod me+isai
 
-Last updated at 1/11/2025, 8:12:28 AM
+Last updated at 1/11/2025, 8:13:28 AM
