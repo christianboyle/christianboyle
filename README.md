@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQU28SCDvAKtPN0y-OiH8rQ-t500x500.jpg">](https://soundcloud.com/vyblossom/wct_demo_01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORPT6YirKWwpo9tV-O3zv1Q-t500x500.png">](https://soundcloud.com/o-s-t-music/auf-log)
 
-**Artist**: Vyblossom 
+**Artist**: bambinodj, Phillip Jondo 
 
-**Track**: Christmastime Dub (feat. JUSH 🎸)
+**Track**: Auf Log
 
-Last updated at 1/11/2025, 8:10:23 AM
+Last updated at 1/11/2025, 8:11:28 AM
