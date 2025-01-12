@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWQMcAgSOx6eF3hI-6RGpfA-t500x500.png">](https://soundcloud.com/hurtingmurphy/playtime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-adEnhTUXEFbiW9oQ-sQzIUQ-t500x500.jpg">](https://soundcloud.com/wubaholics/wiley-ujuu-black-opal-1)
 
-**Artist**: Hurting Murphy 
+**Artist**: Wiley, Ujuu 
 
-**Track**: Playtime
+**Track**: Wiley & Ujuu - Black Opal
 
-Last updated at 1/12/2025, 9:54:20 AM
+Last updated at 1/12/2025, 9:55:20 AM
