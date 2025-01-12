@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TpCDGdstQrH06RSZ-hC6KUg-t500x500.jpg">](https://soundcloud.com/havenwoods/fc-kahuna-hayling-haven-woods-x-meinu-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZLmen4XP0CAFhf-qR7ZBQ-t500x500.jpg">](https://soundcloud.com/jgsmakina/infinite-sweetness-jgs-intent-remix?in=saxurn/sets/tag-popper/)
 
-**Artist**: haven woods. & Meinu 
+**Artist**: JGS 
 
-**Track**: FC Kahuna - Hayling (haven woods. X Meinu Flip)
+**Track**: INFINITE - Sweetness (JGS & INTENT Remix)
 
-Last updated at 1/12/2025, 10:10:49 AM
+Last updated at 1/12/2025, 10:24:33 AM
