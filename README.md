@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zk48tzuwZDepV6r-qn07YQ-t500x500.jpg">](https://soundcloud.com/deadlyft/like-that?in=saxurn/sets/tag-popper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2kdW94qEW1BQrmo-m9c0TQ-t500x500.png">](https://soundcloud.com/st4rrymsc/forget-me-2?in=saxurn/sets/tag-popper/)
 
-**Artist**: DEADLYFT 
+**Artist**: ☆ry, 14106lyn, rq, 00sev, .gav, kuromin, negev 
 
-**Track**: LIKE THAT!
+**Track**: forget me 2 w/ 14106lyn + gutter group
 
-Last updated at 1/12/2025, 10:51:15 AM
+Last updated at 1/12/2025, 12:47:46 PM
