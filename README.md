@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-18n34I6StWobWmyS-zshuzg-t500x500.jpg">](https://soundcloud.com/m3rsi/timeout-w-snail-yuta-nightiger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2kdW94qEW1BQrmo-m9c0TQ-t500x500.png">](https://soundcloud.com/st4rrymsc/forget-me-2)
 
-**Artist**: 1mersichrist 
+**Artist**: ☆ry, 14106lyn, rq, 00sev, .gav, kuromin, negev 
 
-**Track**: ###TIMEOUT W/ snail (Yuta & Nightiger)
+**Track**: forget me 2 w/ 14106lyn + gutter group
 
-Last updated at 1/12/2025, 1:01:41 PM
+Last updated at 1/12/2025, 1:03:32 PM
