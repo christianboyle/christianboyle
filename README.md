@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3Nzy96YqmkETpFhT-LaFKfg-t500x500.jpg">](https://soundcloud.com/charleseiland45/caught-up-in-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Di65JGSVPNInNFDL-2ZppGg-t500x500.jpg">](https://soundcloud.com/hate_music/conceptual-hate-podcast-420)
 
-**Artist**: Beat$treet 
+**Artist**: CONCEPTUAL 
 
-**Track**: Caught Up In You
+**Track**: CONCEPTUAL - HATE Podcast 420
 
-Last updated at 1/12/2025, 9:48:15 AM
+Last updated at 1/12/2025, 9:49:15 AM
