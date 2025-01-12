@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8n3FM1PiUK38dbO-kzS1DQ-t500x500.png">](https://soundcloud.com/itslostindreams/howlan-take-me-high?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer)
 
-**Artist**: Howlan 
+**Artist**: David Navas 
 
-**Track**: Howlan - Take me high
+**Track**: David Navas Feat. Lenna - Boys Of Summer
 
-Last updated at 1/11/2025, 10:17:02 AM
+Last updated at 1/12/2025, 8:25:07 AM
