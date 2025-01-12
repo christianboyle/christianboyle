@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9XZOccWeNXkjJxFr-ib6ZSw-t500x500.png">](https://soundcloud.com/chicco-gentilesca/shadows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TpCDGdstQrH06RSZ-hC6KUg-t500x500.jpg">](https://soundcloud.com/havenwoods/fc-kahuna-hayling-haven-woods-x-meinu-flip)
 
-**Artist**: Henry Darkene 
+**Artist**: haven woods. & Meinu 
 
-**Track**: Shadows
+**Track**: FC Kahuna - Hayling (haven woods. X Meinu Flip)
 
-Last updated at 1/12/2025, 10:07:42 AM
+Last updated at 1/12/2025, 10:08:57 AM
