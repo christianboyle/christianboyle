@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-960ekx3uMa7NSzIj-2O3idw-t500x500.png">](https://soundcloud.com/kickcheeze/tong-hua-fairy-tale-kickcheeze-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWQMcAgSOx6eF3hI-6RGpfA-t500x500.png">](https://soundcloud.com/hurtingmurphy/playtime)
 
-**Artist**: KICKCHEEZE  
+**Artist**: Hurting Murphy 
 
-**Track**: Tong Hua 童话 (Fairy Tale) - KICKCHEEZE Remix
+**Track**: Playtime
 
-Last updated at 1/12/2025, 9:53:20 AM
+Last updated at 1/12/2025, 9:54:20 AM
