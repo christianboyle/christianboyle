@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Di65JGSVPNInNFDL-2ZppGg-t500x500.jpg">](https://soundcloud.com/hate_music/conceptual-hate-podcast-420)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGdzx7i5zWR78FRO-4rII6A-t500x500.png">](https://soundcloud.com/shokuofficial/rickyxsan-x-krischvn-1)
 
-**Artist**: CONCEPTUAL 
+**Artist**: Shoku 
 
-**Track**: CONCEPTUAL - HATE Podcast 420
+**Track**: Rickyxsan x Krischvn - HEADBANG (Shoku Remix)
 
-Last updated at 1/12/2025, 9:49:15 AM
+Last updated at 1/12/2025, 9:50:35 AM
