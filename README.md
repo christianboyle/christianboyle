@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qi94zKkScMxCabHG-opVGgg-t500x500.png">](https://soundcloud.com/thebeatkitty/f32a24a6-b385-4474-b63b-28869faf3000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t3r0GQWomLhvoJHg-CybVeg-t500x500.png">](https://soundcloud.com/sweetsoundscollective/xenotype-mind-garden)
 
-**Artist**: Beat Kitty, Kr3ture, King Kairos 
+**Artist**: Xenotype 
 
-**Track**: Kr3ture x King Cairos - Silence (Beat Kitty Remix)
+**Track**: Xenotype - Mind Garden
 
-Last updated at 1/12/2025, 10:02:56 AM
+Last updated at 1/12/2025, 10:04:01 AM
