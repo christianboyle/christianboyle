@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-adEnhTUXEFbiW9oQ-sQzIUQ-t500x500.jpg">](https://soundcloud.com/wubaholics/wiley-ujuu-black-opal-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qi94zKkScMxCabHG-opVGgg-t500x500.png">](https://soundcloud.com/thebeatkitty/f32a24a6-b385-4474-b63b-28869faf3000)
 
-**Artist**: Wiley, Ujuu 
+**Artist**: Beat Kitty, Kr3ture, King Kairos 
 
-**Track**: Wiley & Ujuu - Black Opal
+**Track**: Kr3ture x King Cairos - Silence (Beat Kitty Remix)
 
-Last updated at 1/12/2025, 9:55:20 AM
+Last updated at 1/12/2025, 10:02:56 AM
