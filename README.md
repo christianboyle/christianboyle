@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZLmen4XP0CAFhf-qR7ZBQ-t500x500.jpg">](https://soundcloud.com/jgsmakina/infinite-sweetness-jgs-intent-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-inWZqg6S8HvDLcNv-mF0P3w-t500x500.jpg">](https://soundcloud.com/prod_pk/don?in=saxurn/sets/poppin-tags)
 
-**Artist**: JGS 
+**Artist**: pk (@prod_pk) 
 
-**Track**: INFINITE - Sweetness (JGS & INTENT Remix)
+**Track**: goat ft h4yden prod pk + kamel
 
-Last updated at 1/12/2025, 1:43:21 PM
+Last updated at 1/12/2025, 2:16:44 PM
