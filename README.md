@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGdzx7i5zWR78FRO-4rII6A-t500x500.png">](https://soundcloud.com/shokuofficial/rickyxsan-x-krischvn-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jv9PLWwRfVcEtuqS-JYEcGQ-t500x500.jpg">](https://soundcloud.com/tabularasarecords/waiting-so-long-gaszia-remix?in=emojiheap/sets/jjj)
 
-**Artist**: Shoku 
+**Artist**: Tabula Rasa Records 
 
-**Track**: Rickyxsan x Krischvn - HEADBANG (Shoku Remix)
+**Track**: Waiting So Long (Gaszia Remix)
 
-Last updated at 1/12/2025, 9:50:35 AM
+Last updated at 1/12/2025, 9:52:15 AM
