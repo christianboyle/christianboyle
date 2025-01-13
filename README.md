@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZLmen4XP0CAFhf-qR7ZBQ-t500x500.jpg">](https://soundcloud.com/jgsmakina/infinite-sweetness-jgs-intent-remix?in=saxurn/sets/poppin-tags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qcZBMOuo8LC0-0-t500x500.jpg">](https://soundcloud.com/djplanetexpress/tell-me-that-you-need-me?in=saxurn/sets/poppin-tags)
 
-**Artist**: JGS 
+**Artist**: DJ Planet Express 
 
-**Track**: INFINITE - Sweetness (JGS & INTENT Remix)
+**Track**: Tell Me That You Need Me
 
-Last updated at 1/13/2025, 9:17:41 AM
+Last updated at 1/13/2025, 9:21:22 AM
