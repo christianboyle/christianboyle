@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoflRJy6aqrVIES2-5GMYpA-t500x500.jpg">](https://soundcloud.com/josh-oreilly-826355280/db4751fa-deb9-4f42-a5ba-b3fea8e32ab7?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ECItCrDD0BzzLF5-xXvwzw-t500x500.png">](https://soundcloud.com/2tdmusic/linkin-park-faint-2td-flip?in=saxurn/sets/causal-cones)
 
-**Artist**: JØR 
+**Artist**: 2TD 
 
-**Track**: OFF THE BLOCK
+**Track**: LINKIN PARK - FAINT (2TD FLIP)
 
-Last updated at 1/13/2025, 10:56:05 AM
+Last updated at 1/13/2025, 10:59:56 AM
