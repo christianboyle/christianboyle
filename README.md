@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer?in=saxurn/sets/causal-cones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJl51Wr6DP0G0z5p-W737cQ-t500x500.jpg">](https://soundcloud.com/bydion/reunited?in=saxurn/sets/causal-cones)
 
-**Artist**: David Navas 
+**Artist**: Dion, Shinjin 
 
-**Track**: David Navas Feat. Lenna - Boys Of Summer
+**Track**: Reunited (prod. Shinjin)
 
-Last updated at 1/13/2025, 10:46:04 AM
+Last updated at 1/13/2025, 10:50:05 AM
