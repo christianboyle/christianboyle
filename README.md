@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZ8zO6T5DjQn9djv-SXKMIg-t500x500.jpg">](https://soundcloud.com/pryzmsmusic/marshmello-just-cant-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer?in=saxurn/sets/causal-cones)
 
-**Artist**: PRYZMS 
+**Artist**: David Navas 
 
-**Track**: MARSHMELLO - JUST CAN'T STOP (PRYZMS REMIX)
+**Track**: David Navas Feat. Lenna - Boys Of Summer
 
-Last updated at 1/12/2025, 8:25:26 PM
+Last updated at 1/12/2025, 8:27:16 PM
