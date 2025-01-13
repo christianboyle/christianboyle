@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tqd4Nr27xabLQmf0-TagKfQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/david-navas-feat-lenna-boys-of-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2kdW94qEW1BQrmo-m9c0TQ-t500x500.png">](https://soundcloud.com/st4rrymsc/forget-me-2?in=saxurn/sets/poppin-tags)
 
-**Artist**: David Navas 
+**Artist**: ☆ry, 14106lyn, rq, 00sev, .gav, kuromin, negev 
 
-**Track**: David Navas Feat. Lenna - Boys Of Summer
+**Track**: forget me 2 w/ 14106lyn + gutter group
 
-Last updated at 1/13/2025, 7:17:45 AM
+Last updated at 1/13/2025, 9:13:31 AM
