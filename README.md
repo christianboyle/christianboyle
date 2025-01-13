@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z6t5hd64yPAztUBp-4lEm0g-t500x500.jpg">](https://soundcloud.com/sportmodemusic/holdmyhandflip?in=saxurn/sets/phong-daddy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nclXuWkZ7VzvyzAa-Hjkeow-t500x500.jpg">](https://soundcloud.com/komplvintmusic/carbin-afk-boss-komplvint-remix?in=saxurn/sets/phong-daddy)
 
-**Artist**: SPORTMODE 
+**Artist**: KOMPLVINT 
 
-**Track**: Knock2, Sophia Gripari - Hold my hand (sportmode flip)
+**Track**: CARBIN & AFK - BOSS (KOMPLVINT REMIX)
 
-Last updated at 1/13/2025, 11:38:22 AM
+Last updated at 1/13/2025, 11:41:58 AM
