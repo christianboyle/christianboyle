@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zk48tzuwZDepV6r-qn07YQ-t500x500.jpg">](https://soundcloud.com/deadlyft/like-that?in=saxurn/sets/poppin-tags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VqQGx4FVOjbHDe0d-WFgPJQ-t500x500.jpg">](https://soundcloud.com/14106lyn/reconcile?in=saxurn/sets/causal-cones)
 
-**Artist**: DEADLYFT 
+**Artist**: 14106lyn & isai 
 
-**Track**: LIKE THAT!
+**Track**: flash prod me+isai
 
-Last updated at 1/13/2025, 10:41:44 AM
+Last updated at 1/13/2025, 10:44:24 AM
