@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m252eQzNvFd0qzdO-229SPw-t500x500.jpg">](https://soundcloud.com/yuna_yuna/cocobottle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVIjBuGxoXno2gPc-zz2SxA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/bubblegum)
 
-**Artist**: djagaimo x yuna yuna 
+**Artist**: yx2 
 
-**Track**: penomeco - coco bottle (djagaimo x yx2 rmx)
+**Track**: bubblegum
 
-Last updated at 1/13/2025, 9:15:05 PM
+Last updated at 1/13/2025, 9:16:24 PM
