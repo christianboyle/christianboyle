@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3WApVnzIy3cIGCD-kxKBDQ-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/joynt-monsters-aspire-higher-tune-tuesday-exclusive?in=saxurn/sets/poppin-tags)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dU3wT06IyoszDiNS-K58Vzg-t500x500.jpg">](https://soundcloud.com/officialflozone/rl-grime-x-isoknock-smack-talk-flozone-flip)
 
-**Artist**: Joynt 
+**Artist**: flozone 
 
-**Track**: Joynt - Monsters {Aspire Higher Tune Tuesday Exclusive}
+**Track**: RL GRIME x ISOKNOCK - SMACK TALK (flozone flip)
 
-Last updated at 1/13/2025, 6:39:40 PM
+Last updated at 1/13/2025, 6:40:40 PM
