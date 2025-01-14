@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVh2T2ipng6YXz1A-8Yf0cw-t500x500.png">](https://soundcloud.com/youloveanti/cashout-prodtiresss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ASWhyTD5eaA70zz8-wzvtqw-t500x500.png">](https://soundcloud.com/selektamusic/doctor-p-sweetshop-selekta?in=selektamusic/sets/intothevault)
 
-**Artist**: YouLoveAnti 
+**Artist**: Selekta 
 
-**Track**: cashout prod.tiresss
+**Track**: Doctor P Sweetshop (SELEKTA REMIX)  [INTO THE VAULT VOL.1]
 
-Last updated at 1/13/2025, 7:21:48 PM
+Last updated at 1/13/2025, 7:22:54 PM
