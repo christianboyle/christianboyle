@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWSN1Z8ErpjcggzX-2q3aoQ-t500x500.png">](https://soundcloud.com/beansclub2/focusremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
 
-**Artist**: Nat Knives, Yanurr 
+**Artist**: 6chan 
 
-**Track**: focus (beansclub bootleg)
+**Track**: ##XBOX_SWAG (silly + @nightigerxo)
 
-Last updated at 1/14/2025, 10:34:50 AM
+Last updated at 1/14/2025, 11:14:08 AM
