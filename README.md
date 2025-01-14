@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzyvNrGyzBoQCcVx-mrCY2g-t500x500.png">](https://soundcloud.com/p1k_music/not-another-missy-remix-free-download-song-starts-at-030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
 
-**Artist**: Missy Elliot 
+**Artist**: 6chan 
 
-**Track**: GOSSIP FOLKS (P1K REWORK) [FREE DOWNLOAD] (SONG STARTS AT 0:30)
+**Track**: ##XBOX_SWAG (silly + @nightigerxo)
 
-Last updated at 1/14/2025, 9:00:48 AM
+Last updated at 1/14/2025, 9:01:58 AM
