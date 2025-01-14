@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORPT6YirKWwpo9tV-O3zv1Q-t500x500.png">](https://soundcloud.com/o-s-t-music/auf-log?in=saxurn/sets/new-1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVIjBuGxoXno2gPc-zz2SxA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/bubblegum?in=saxurn/sets/yap/)
 
-**Artist**: bambinodj, Phillip Jondo 
+**Artist**: yx2 
 
-**Track**: Auf Log
+**Track**: bubblegum
 
-Last updated at 1/13/2025, 7:46:10 PM
+Last updated at 1/13/2025, 9:09:09 PM
