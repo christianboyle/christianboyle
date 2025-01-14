@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ASWhyTD5eaA70zz8-wzvtqw-t500x500.png">](https://soundcloud.com/selektamusic/doctor-p-sweetshop-selekta?in=selektamusic/sets/intothevault)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo)
 
-**Artist**: Selekta 
+**Artist**: 6chan 
 
-**Track**: Doctor P Sweetshop (SELEKTA REMIX)  [INTO THE VAULT VOL.1]
+**Track**: ##XBOX_SWAG (silly + @nightigerxo)
 
-Last updated at 1/13/2025, 7:22:54 PM
+Last updated at 1/13/2025, 7:24:04 PM
