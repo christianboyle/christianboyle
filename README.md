@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abGBgOV3hdsfKQbn-G0bEBQ-t500x500.jpg">](https://soundcloud.com/carcasse-00/extra-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWSN1Z8ErpjcggzX-2q3aoQ-t500x500.png">](https://soundcloud.com/beansclub2/focusremix?in=saxurn/sets/yap/)
 
-**Artist**: carcasse 
+**Artist**: Nat Knives, Yanurr 
 
-**Track**: extra light
+**Track**: focus (beansclub bootleg)
 
-Last updated at 1/14/2025, 9:06:29 AM
+Last updated at 1/14/2025, 9:09:39 AM
