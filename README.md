@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBaSXjJ5xlP5yijS-pGVhzg-t500x500.jpg">](https://soundcloud.com/callmefabulous/robert-miles-children-fabulous-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x3F0oooUOpK8kP1O-JgyVyw-t500x500.png">](https://soundcloud.com/darialexmusic/yesbitchremix)
 
-**Artist**: Robert Miles  
+**Artist**: Daria Lex, CAMPS 
 
-**Track**: Robert Miles - Children (Fabulous Remix) DOWNLOAD BY GLOWAL, THE ELEMENT, 8KAYS, WURTZ AND MORE
+**Track**: YES B!TCH (CAMPS & Daria Lex Remix)
 
-Last updated at 1/14/2025, 8:46:06 AM
+Last updated at 1/14/2025, 8:47:06 AM
