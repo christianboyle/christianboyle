@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-omljOLqdTS9908tO-Sx7WXg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-alarico-boiler-pi06)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVh2T2ipng6YXz1A-8Yf0cw-t500x500.png">](https://soundcloud.com/youloveanti/cashout-prodtiresss)
 
-**Artist**: Alarico 
+**Artist**: YouLoveAnti 
 
-**Track**: Premiere: Alarico - Boiler [PI06]
+**Track**: cashout prod.tiresss
 
-Last updated at 1/13/2025, 7:20:48 PM
+Last updated at 1/13/2025, 7:21:48 PM
