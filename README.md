@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dU3wT06IyoszDiNS-K58Vzg-t500x500.jpg">](https://soundcloud.com/officialflozone/rl-grime-x-isoknock-smack-talk-flozone-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TT22EiFrf57Q741A-lu2K7g-t500x500.png">](https://soundcloud.com/pyu/self)
 
-**Artist**: flozone 
+**Artist**: meta 
 
-**Track**: RL GRIME x ISOKNOCK - SMACK TALK (flozone flip)
+**Track**: self is sacred @kiryano @lovbug @yandere @otaku @skys @thr6x @violet @mental @inno @yk @prblm
 
-Last updated at 1/13/2025, 6:40:40 PM
+Last updated at 1/13/2025, 6:41:40 PM
