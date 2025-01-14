@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit?in=saxurn/sets/yap/)
 
-**Artist**: 6chan 
+**Artist**: Caslow, Jack The Underdog, Sierra Annie 
 
-**Track**: ##XBOX_SWAG (silly + @nightigerxo)
+**Track**: Loveless Generation (UK Hardcore Edit)
 
-Last updated at 1/14/2025, 8:51:37 AM
+Last updated at 1/14/2025, 8:55:52 AM
