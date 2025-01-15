@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9z1MOR4pNNSZOE5Z-NcFFgQ-t500x500.jpg">](https://soundcloud.com/silcrowmusic/take-me-down-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OgACwErb7khfsZQA-s1yvog-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-pandoh-stfu)
 
-**Artist**: Silcrow 
+**Artist**: M?STIC & PANDOH 
 
-**Track**: TAKE ME DOWN (VIP)
+**Track**: M?STIC & PANDOH - STFU
 
-Last updated at 1/15/2025, 12:36:33 PM
+Last updated at 1/15/2025, 12:39:38 PM
