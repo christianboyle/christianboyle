@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORPT6YirKWwpo9tV-O3zv1Q-t500x500.png">](https://soundcloud.com/o-s-t-music/auf-log)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9a8i8bF36i9XGAo-emtYtQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/angel-cannon-vindicator-innergated)
 
-**Artist**: bambinodj, Phillip Jondo 
+**Artist**: INNERGATED 
 
-**Track**: Auf Log
+**Track**: ANGEL CANNON - Vindicator [INNERGATED]
 
-Last updated at 1/15/2025, 2:45:47 PM
+Last updated at 1/15/2025, 2:51:32 PM
