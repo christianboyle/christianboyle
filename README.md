@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrlvLJutJHuhykWE-Eh2JXA-t500x500.png">](https://soundcloud.com/tobydee_official/squidgameremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/step-sequence)
 
-**Artist**: DJ Toby DEE 
+**Artist**: SUAHN 
 
-**Track**: Squid Game - The Mingle Game (Toby DEE Remix) - PREVIEW
+**Track**: Step Sequence
 
-Last updated at 1/15/2025, 5:33:08 AM
+Last updated at 1/15/2025, 6:10:37 AM
