@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/step-sequence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrlcjR5IxQ3FH5Bv-028YdQ-t500x500.png">](https://soundcloud.com/artexx-artexx-music/cambodia-vs-overdrive-hardwell-tml-24-hardwell-artexx-remake)
 
-**Artist**: SUAHN 
+**Artist**: Official Artexx 
 
-**Track**: Step Sequence
+**Track**: Cambodia vs. Overdrive (Hardwell TML 24´ Mashup ) [Artexx Remake]
 
-Last updated at 1/15/2025, 5:26:57 AM
+Last updated at 1/15/2025, 5:27:57 AM
