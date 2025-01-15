@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzqIcSOXQrrK7Nrp-V2wnRg-t500x500.png">](https://soundcloud.com/medicineplacedub/pushloop-the-widdler-gatz-medicine-place-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTKcfRYufDnrF9lQ-Nn2uLA-t500x500.jpg">](https://soundcloud.com/dojinletter/krash-prod-swaggaholix-2)
 
-**Artist**: Medicine Place 
+**Artist**: dojin 
 
-**Track**: pushloop & the widdler - gatz (medicine place remix)
+**Track**: krash prod swaggaholix (REUPLOAD)
 
-Last updated at 1/15/2025, 11:49:04 AM
+Last updated at 1/15/2025, 11:53:14 AM
