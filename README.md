@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiNVYvfewSO8yESd-mhQ72Q-t500x500.jpg">](https://soundcloud.com/fultonrichards/sewingupcuts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HABvOvazKmsKTHR5-8b3vUA-t500x500.jpg">](https://soundcloud.com/nakachanidol/naka-chan-x-yx2-x-dj-kelsey-found-luv)
 
-**Artist**: fult 
+**Artist**: Naka Chan 
 
-**Track**: sewing up cuts
+**Track**: Naka Chan x yx2 x DJ KELSEY - ♡ found luv ♡
 
-Last updated at 1/15/2025, 12:51:20 PM
+Last updated at 1/15/2025, 12:52:45 PM
