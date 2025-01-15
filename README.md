@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yrlcjR5IxQ3FH5Bv-028YdQ-t500x500.png">](https://soundcloud.com/artexx-artexx-music/cambodia-vs-overdrive-hardwell-tml-24-hardwell-artexx-remake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrlvLJutJHuhykWE-Eh2JXA-t500x500.png">](https://soundcloud.com/tobydee_official/squidgameremix)
 
-**Artist**: Official Artexx 
+**Artist**: DJ Toby DEE 
 
-**Track**: Cambodia vs. Overdrive (Hardwell TML 24´ Mashup ) [Artexx Remake]
+**Track**: Squid Game - The Mingle Game (Toby DEE Remix) - PREVIEW
 
-Last updated at 1/15/2025, 5:27:57 AM
+Last updated at 1/15/2025, 5:33:08 AM
