@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OaAg1OT90kCwzsUB-nypxwA-t500x500.jpg">](https://soundcloud.com/sicari_official/yrical-merchant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAcUPGlhwt0oMxMz-IoBqIA-t500x500.png">](https://soundcloud.com/puppet/whos-haunting-you-feat-distant)
 
-**Artist**: SICARI 
+**Artist**: Puppet 
 
-**Track**: Sicari - Lyrical Merchant [Free Download]
+**Track**: Who's Haunting You? feat. distant
 
-Last updated at 1/15/2025, 9:22:06 AM
+Last updated at 1/15/2025, 9:24:11 AM
