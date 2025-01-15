@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrlvLJutJHuhykWE-Eh2JXA-t500x500.png">](https://soundcloud.com/tobydee_official/squidgameremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nK0gnGMa7SfmY2E-L7lMaw-t500x500.jpg">](https://soundcloud.com/bonkers-rave/rob-da-rhythm-soldiers-of-core-bonkers-beats-133-darkside-takeover)
 
-**Artist**: DJ Toby DEE 
+**Artist**: Rob Da Rhythm + Soldiers of Core 
 
-**Track**: Squid Game - The Mingle Game (Toby DEE Remix) - PREVIEW
+**Track**: Rob Da Rhythm + Soldiers of Core - Bonkers Beats 133 - Darkside Takeover
 
-Last updated at 1/15/2025, 8:22:15 AM
+Last updated at 1/15/2025, 8:55:14 AM
