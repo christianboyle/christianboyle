@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2kdW94qEW1BQrmo-m9c0TQ-t500x500.png">](https://soundcloud.com/st4rrymsc/forget-me-2)
 
-**Artist**: Caslow, Jack The Underdog, Sierra Annie 
+**Artist**: ☆ry, 14106lyn, rq, 00sev, .gav, kuromin, negev 
 
-**Track**: Loveless Generation (UK Hardcore Edit)
+**Track**: forget me 2 w/ 14106lyn + gutter group
 
-Last updated at 1/15/2025, 12:13:01 PM
+Last updated at 1/15/2025, 12:17:56 PM
