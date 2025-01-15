@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cmaezwd1Y8WcJheK-mVJ0yg-t500x500.jpg">](https://soundcloud.com/da-bow/dabow-anabolics?in=da-bow/sets/the-unfinished)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OaAg1OT90kCwzsUB-nypxwA-t500x500.jpg">](https://soundcloud.com/sicari_official/yrical-merchant)
 
-**Artist**: Dabow 
+**Artist**: SICARI 
 
-**Track**: Dabow - ANABOLICS
+**Track**: Sicari - Lyrical Merchant [Free Download]
 
-Last updated at 1/15/2025, 9:20:41 AM
+Last updated at 1/15/2025, 9:22:06 AM
