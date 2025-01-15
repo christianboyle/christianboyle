@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYJw5DN6ecdNzaGO-hYdePQ-t500x500.png">](https://soundcloud.com/deucez_music/deucez-feed-your-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OT9kUlNgDIMKLoSl-bVOYvQ-t500x500.png">](https://soundcloud.com/bonkaofficial/letsgobonkasep79)
 
-**Artist**: DEUCEZ 
+**Artist**: BONKA 
 
-**Track**: Deucez - Feed Your Soul
+**Track**: BONKA Presents: Lets Go Bonkas - Episode 079 (ft. MOJI)
 
-Last updated at 1/15/2025, 9:36:47 AM
+Last updated at 1/15/2025, 9:39:13 AM
