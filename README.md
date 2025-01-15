@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liZLmen4XP0CAFhf-qR7ZBQ-t500x500.jpg">](https://soundcloud.com/jgsmakina/infinite-sweetness-jgs-intent-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ORPT6YirKWwpo9tV-O3zv1Q-t500x500.png">](https://soundcloud.com/o-s-t-music/auf-log)
 
-**Artist**: JGS 
+**Artist**: bambinodj, Phillip Jondo 
 
-**Track**: INFINITE - Sweetness (JGS & INTENT Remix)
+**Track**: Auf Log
 
-Last updated at 1/15/2025, 2:40:31 PM
+Last updated at 1/15/2025, 2:45:47 PM
