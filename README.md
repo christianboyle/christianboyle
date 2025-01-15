@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTKcfRYufDnrF9lQ-Nn2uLA-t500x500.jpg">](https://soundcloud.com/dojinletter/krash-prod-swaggaholix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xhl4M1Yy26ByFpby-b6gQdg-t500x500.jpg">](https://soundcloud.com/k1n_music/2hollis-crush-k1n-rmx)
 
-**Artist**: dojin 
+**Artist**: K1N 
 
-**Track**: krash prod swaggaholix (REUPLOAD)
+**Track**: 2hollis - crush (K1N RMX)
 
-Last updated at 1/15/2025, 11:53:14 AM
+Last updated at 1/15/2025, 11:56:04 AM
