@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2kdW94qEW1BQrmo-m9c0TQ-t500x500.png">](https://soundcloud.com/st4rrymsc/forget-me-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/step-sequence)
 
-**Artist**: ☆ry, 14106lyn, rq, 00sev, .gav, kuromin, negev 
+**Artist**: SUAHN 
 
-**Track**: forget me 2 w/ 14106lyn + gutter group
+**Track**: Step Sequence
 
-Last updated at 1/15/2025, 12:17:56 PM
+Last updated at 1/15/2025, 12:22:07 PM
