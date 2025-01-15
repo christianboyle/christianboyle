@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6hDn49LoBOAvCOM-Tlch7Q-t500x500.jpg">](https://soundcloud.com/axilonmusic/nothingness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYJw5DN6ecdNzaGO-hYdePQ-t500x500.png">](https://soundcloud.com/deucez_music/deucez-feed-your-soul)
 
-**Artist**: AXILON 
+**Artist**: DEUCEZ 
 
-**Track**: NOTHINGNESS (FREE DL)
+**Track**: Deucez - Feed Your Soul
 
-Last updated at 1/15/2025, 9:31:52 AM
+Last updated at 1/15/2025, 9:36:47 AM
