@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nK0gnGMa7SfmY2E-L7lMaw-t500x500.jpg">](https://soundcloud.com/bonkers-rave/rob-da-rhythm-soldiers-of-core-bonkers-beats-133-darkside-takeover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyqFra2Tdhszx4lH-UhHFfg-t500x500.jpg">](https://soundcloud.com/festivaltrap/dirty-blood-deku-katanai)
 
-**Artist**: Rob Da Rhythm + Soldiers of Core 
+**Artist**: Dirty Blood, Deku 
 
-**Track**: Rob Da Rhythm + Soldiers of Core - Bonkers Beats 133 - Darkside Takeover
+**Track**: DIRTY BLOOD & DEKU - KATANAI
 
-Last updated at 1/15/2025, 8:55:14 AM
+Last updated at 1/15/2025, 8:57:04 AM
