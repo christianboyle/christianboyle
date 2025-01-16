@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9a8i8bF36i9XGAo-emtYtQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/angel-cannon-vindicator-innergated)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OgACwErb7khfsZQA-s1yvog-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-pandoh-stfu)
 
-**Artist**: INNERGATED 
+**Artist**: M?STIC & PANDOH 
 
-**Track**: ANGEL CANNON - Vindicator [INNERGATED]
+**Track**: M?STIC & PANDOH - STFU
 
-Last updated at 1/16/2025, 7:08:42 AM
+Last updated at 1/16/2025, 7:09:37 AM
