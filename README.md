@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OgACwErb7khfsZQA-s1yvog-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-pandoh-stfu)
 
-**Artist**: Caslow, Jack The Underdog, Sierra Annie 
+**Artist**: M?STIC & PANDOH 
 
-**Track**: Loveless Generation (UK Hardcore Edit)
+**Track**: M?STIC & PANDOH - STFU
 
-Last updated at 1/16/2025, 12:03:49 PM
+Last updated at 1/16/2025, 3:58:11 PM
