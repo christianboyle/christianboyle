@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9a8i8bF36i9XGAo-emtYtQ-t500x500.jpg">](https://soundcloud.com/innergatetechno/angel-cannon-vindicator-innergated)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiNVYvfewSO8yESd-mhQ72Q-t500x500.jpg">](https://soundcloud.com/fultonrichards/sewingupcuts)
 
-**Artist**: INNERGATED 
+**Artist**: fult 
 
-**Track**: ANGEL CANNON - Vindicator [INNERGATED]
+**Track**: sewing up cuts
 
-Last updated at 1/16/2025, 11:39:36 AM
+Last updated at 1/16/2025, 11:53:06 AM
