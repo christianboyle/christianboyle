@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWyOA387EB7u1bMc-nVUnYw-t500x500.jpg">](https://soundcloud.com/maakg/g-jones-familiar-frontiers-maakg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo)
 
-**Artist**: Maāk.G 
+**Artist**: 6chan 
 
-**Track**: G Jones - Familiar Frontiers (Maāk.G Remix)
+**Track**: ##XBOX_SWAG (silly + @nightigerxo)
 
-Last updated at 1/16/2025, 9:08:49 AM
+Last updated at 1/16/2025, 9:11:54 AM
