@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9z1MOR4pNNSZOE5Z-NcFFgQ-t500x500.jpg">](https://soundcloud.com/silcrowmusic/take-me-down-vip)
 
-**Artist**: 6chan 
+**Artist**: Silcrow 
 
-**Track**: ##XBOX_SWAG (silly + @nightigerxo)
+**Track**: TAKE ME DOWN (VIP)
 
-Last updated at 1/16/2025, 9:11:54 AM
+Last updated at 1/16/2025, 9:13:50 AM
