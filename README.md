@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVIjBuGxoXno2gPc-zz2SxA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/bubblegum?in=saxurn/sets/yap/)
 
-**Artist**: 6chan 
+**Artist**: yx2 
 
-**Track**: ##XBOX_SWAG (silly + @nightigerxo)
+**Track**: bubblegum
 
-Last updated at 1/16/2025, 9:03:33 PM
+Last updated at 1/16/2025, 9:05:33 PM
