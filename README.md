@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iqje1VuZIcAVLBWN-HfPMCA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/cali-cartier-sleepn-plaieboi-nxcore-remix?in=nightcore4totalsluts/sets/the-brutal-slap-academy)
 
 **Artist**: nightcore4totalsluts 
 
-**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
+**Track**: Cali Cartier - Sleepn (plaieboi NXCore remix)
 
-Last updated at 1/16/2025, 8:40:58 PM
+Last updated at 1/16/2025, 8:41:53 PM
