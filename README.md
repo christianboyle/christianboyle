@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLKKIhWkjxu3kShJ-8MjkPw-t500x500.png">](https://soundcloud.com/lowpolysound/dumbest-girl-alive?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records?in=saxurn/sets/yap/)
 
-**Artist**: Low Poly 
+**Artist**: Fatal Energy Records 
 
-**Track**: Dumbest Girl Alive (Low Poly Edit)
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/17/2025, 11:21:46 AM
+Last updated at 1/17/2025, 11:24:41 AM
