@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ECItCrDD0BzzLF5-xXvwzw-t500x500.png">](https://soundcloud.com/2tdmusic/linkin-park-faint-2td-flip)
 
-**Artist**: Fatal Energy Records 
+**Artist**: 2TD 
 
-**Track**: The Apprentice - Noise (Original Mix)
+**Track**: LINKIN PARK - FAINT (2TD FLIP)
 
-Last updated at 1/16/2025, 8:32:46 PM
+Last updated at 1/16/2025, 8:33:46 PM
