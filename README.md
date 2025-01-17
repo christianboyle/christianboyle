@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wkquc5EHQbnBN2dB-dA2rlg-t500x500.png">](https://soundcloud.com/glitzclub/dj-bax-17?in=saxurn/sets/yap/)
 
-**Artist**: Caslow, Jack The Underdog, Sierra Annie 
+**Artist**: Glitz Club 
 
-**Track**: Loveless Generation (UK Hardcore Edit)
+**Track**: dj bax - 17
 
-Last updated at 1/16/2025, 9:53:26 PM
+Last updated at 1/16/2025, 9:56:11 PM
