@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ECItCrDD0BzzLF5-xXvwzw-t500x500.png">](https://soundcloud.com/2tdmusic/linkin-park-faint-2td-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqjhA45zLzghJ7Lc-rHCqUQ-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/storm)
 
-**Artist**: 2TD 
+**Artist**: AITANA★★OFICIAL 
 
-**Track**: LINKIN PARK - FAINT (2TD FLIP)
+**Track**: storm
 
-Last updated at 1/16/2025, 8:33:46 PM
+Last updated at 1/16/2025, 8:35:33 PM
