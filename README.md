@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWSN1Z8ErpjcggzX-2q3aoQ-t500x500.png">](https://soundcloud.com/beansclub2/focusremix?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xhl4M1Yy26ByFpby-b6gQdg-t500x500.jpg">](https://soundcloud.com/k1n_music/2hollis-crush-k1n-rmx?in=saxurn/sets/yap/)
 
-**Artist**: Nat Knives, Yanurr 
+**Artist**: K1N 
 
-**Track**: focus (beansclub bootleg)
+**Track**: 2hollis - crush (K1N RMX)
 
-Last updated at 1/17/2025, 11:12:30 AM
+Last updated at 1/17/2025, 11:15:30 AM
