@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wkquc5EHQbnBN2dB-dA2rlg-t500x500.png">](https://soundcloud.com/glitzclub/dj-bax-17?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
 
-**Artist**: Glitz Club 
+**Artist**: 6chan 
 
-**Track**: dj bax - 17
+**Track**: ##XBOX_SWAG (silly + @nightigerxo)
 
-Last updated at 1/16/2025, 8:56:37 PM
+Last updated at 1/16/2025, 9:03:33 PM
