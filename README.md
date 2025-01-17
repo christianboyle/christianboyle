@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uC2I0GqhsjHt5Wld-ZsYCfg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/pajaaa18-train-ride-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSDGNV9UdbpLNdjQ-75ny0g-t500x500.jpg">](https://soundcloud.com/sekular_music/sekular-apathy-maglock-remix)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Sekular, Maglock 
 
-**Track**: Pajaaa18 - Train Ride (Original Mix)
+**Track**: Sekular - Empathy (Maglock REMIX)
 
-Last updated at 1/17/2025, 11:28:51 AM
+Last updated at 1/17/2025, 11:37:42 AM
