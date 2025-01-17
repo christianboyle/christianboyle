@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVIjBuGxoXno2gPc-zz2SxA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/bubblegum?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit?in=saxurn/sets/yap/)
 
-**Artist**: yx2 
+**Artist**: Caslow, Jack The Underdog, Sierra Annie 
 
-**Track**: bubblegum
+**Track**: Loveless Generation (UK Hardcore Edit)
 
-Last updated at 1/17/2025, 11:02:49 AM
+Last updated at 1/17/2025, 11:06:09 AM
