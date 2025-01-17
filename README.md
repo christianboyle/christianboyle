@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JfVk7GKnoCiGb2m4-S8SmOQ-t500x500.jpg">](https://soundcloud.com/rohaaaa/squid-game-round-a-round-roha-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5nwKSV27tQyNobh-PKrxpQ-t500x500.jpg">](https://soundcloud.com/en7ropymusic/maddy-oneal-x-defunk-come-for)
 
-**Artist**: Roha 
+**Artist**: EN7ROPY 
 
-**Track**: SQUID GAME - Round And Round (Roha Remix)
+**Track**: Maddy O'Neal x Defunk - Come For You (EN7ROPY Remix)
 
-Last updated at 1/16/2025, 8:12:06 PM
+Last updated at 1/16/2025, 8:13:11 PM
