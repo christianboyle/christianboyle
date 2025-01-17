@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKEph4cW3KoHyDMv-1zCOxw-t500x500.jpg">](https://soundcloud.com/slipcode/techno-apocalypse-15-slipcode-best-of-2024-fnoob-29-12-24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records?in=saxurn/sets/yap/)
 
-**Artist**: .ꜱ. .Ꙇ. .i. .⍴. .ⲥ. .၀. .Ꮷ. .ᥱ. 
+**Artist**: Fatal Energy Records 
 
-**Track**: Techno Apocalypse #15 - Slipcode - Best Of 2024 - FNOOB - 29-12-24
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/17/2025, 11:40:58 AM
+Last updated at 1/17/2025, 5:57:46 PM
