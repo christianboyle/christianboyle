@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uC2I0GqhsjHt5Wld-ZsYCfg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/pajaaa18-train-ride-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wkquc5EHQbnBN2dB-dA2rlg-t500x500.png">](https://soundcloud.com/glitzclub/dj-bax-17?in=saxurn/sets/yap/)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Glitz Club 
 
-**Track**: Pajaaa18 - Train Ride (Original Mix)
+**Track**: dj bax - 17
 
-Last updated at 1/17/2025, 9:00:48 AM
+Last updated at 1/17/2025, 9:05:43 AM
