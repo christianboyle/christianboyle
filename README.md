@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6pfWcZwjTp2U0asL-gt3JMA-t500x500.jpg">](https://soundcloud.com/athens_sound/chrystal-the-days-notion-remix-athens-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIciGyzKzea2UMeq-0FEuww-t500x500.jpg">](https://soundcloud.com/suncraftmusic/we-come-1nsomnia-free-download)
 
-**Artist**: ATHENS 
+**Artist**: Suncraft 
 
-**Track**: CHRYSTAL - The Days (ATHENS Remix)
+**Track**: We Come 1nsomnia (OUT 17th JAN) [Free early download!]
 
-Last updated at 1/17/2025, 5:58:46 PM
+Last updated at 1/17/2025, 5:59:46 PM
