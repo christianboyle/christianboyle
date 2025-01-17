@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uC2I0GqhsjHt5Wld-ZsYCfg-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/pajaaa18-train-ride-original-mix)
 
 **Artist**: Fatal Energy Records 
 
-**Track**: The Apprentice - Noise (Original Mix)
+**Track**: Pajaaa18 - Train Ride (Original Mix)
 
-Last updated at 1/17/2025, 10:11:09 AM
+Last updated at 1/17/2025, 10:15:19 AM
