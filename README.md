@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ntlbx9QC3OKlFiJs-WkHz6g-t500x500.jpg">](https://soundcloud.com/hi6chan/xbox_swag-silly-nightigerxo?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YY3BUECZS2Xysx7E-nZ5bpw-t500x500.jpg">](https://soundcloud.com/fatalenergyrecords/the-apprentice-noise-original-mix1-fatal-energy-records)
 
-**Artist**: 6chan 
+**Artist**: Fatal Energy Records 
 
-**Track**: ##XBOX_SWAG (silly + @nightigerxo)
+**Track**: The Apprentice - Noise (Original Mix)
 
-Last updated at 1/16/2025, 8:30:28 PM
+Last updated at 1/16/2025, 8:32:46 PM
