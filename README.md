@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5nwKSV27tQyNobh-PKrxpQ-t500x500.jpg">](https://soundcloud.com/en7ropymusic/maddy-oneal-x-defunk-come-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1rjXTgwuouZUjjn-nP5nkQ-t500x500.png">](https://soundcloud.com/deepdarkdangerous/medicineplacedddmix)
 
-**Artist**: EN7ROPY 
+**Artist**: Deep Dark & Dangerous , Medicine Place 
 
-**Track**: Maddy O'Neal x Defunk - Come For You (EN7ROPY Remix)
+**Track**: Medicine Place - DDD Guest Mix
 
-Last updated at 1/16/2025, 8:13:11 PM
+Last updated at 1/16/2025, 8:14:06 PM
