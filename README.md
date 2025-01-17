@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1rjXTgwuouZUjjn-nP5nkQ-t500x500.png">](https://soundcloud.com/deepdarkdangerous/medicineplacedddmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xaXAtKktvrmcgt9-VJM0cQ-t500x500.png">](https://soundcloud.com/psychocybinrec/wibezzskank)
 
-**Artist**: Deep Dark & Dangerous , Medicine Place 
+**Artist**: WibeZz 
 
-**Track**: Medicine Place - DDD Guest Mix
+**Track**: WibeZz - Skank
 
-Last updated at 1/16/2025, 8:14:06 PM
+Last updated at 1/16/2025, 8:15:31 PM
