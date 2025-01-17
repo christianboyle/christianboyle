@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OgACwErb7khfsZQA-s1yvog-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-pandoh-stfu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvafyEd3QCzPwRU5-wHtTlw-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/hell-kerbecs)
 
-**Artist**: M?STIC & PANDOH 
+**Artist**: AITANA\u2605\u2605OFICIAL 
 
-**Track**: M?STIC & PANDOH - STFU
+**Track**: Hell Kerbecs
 
-Last updated at 1/16/2025, 3:58:11 PM
+Last updated at 1/16/2025, 8:10:11 PM
