@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnkyvWdtS2dDLftS-CNO1Fg-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-fenim0re-deducted-attendance-gtgsolo001?in=grabthegroove/sets/gtg-solo-001-fenim0re)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FXlLJYhVBQByHpd-edRjHw-t500x500.jpg">](https://soundcloud.com/proxysmusic/proxys-what-them-say)
 
-**Artist**: TRANSITION 
+**Artist**: Proxys 
 
-**Track**: PREMIERE: FENIM0RE – Deducted Attendance [GTGSOLO001]
+**Track**: Proxys - What them say?
 
-Last updated at 1/17/2025, 6:15:57 PM
+Last updated at 1/17/2025, 6:17:41 PM
