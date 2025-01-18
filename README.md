@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you?in=saxurn/sets/sim-pin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ae1KUwFUCKSHB8Ay-NLcglw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/plauz-jade-key-ft-knvwn-kryptonite-dwx-copyright-free)
 
-**Artist**: No Hero & Quickdrop 
+**Artist**: Plauz & Jade Key ft. KNVWN 
 
-**Track**: Guide You
+**Track**: Plauz & Jade Key ft. KNVWN - Kryptonite (DWX Copyright Free)
 
-Last updated at 1/18/2025, 6:53:47 AM
+Last updated at 1/18/2025, 6:56:43 AM
