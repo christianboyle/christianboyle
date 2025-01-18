@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ae1KUwFUCKSHB8Ay-NLcglw-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/plauz-jade-key-ft-knvwn-kryptonite-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YI4SJNolWWqX6fMA-deosQA-t500x500.png">](https://soundcloud.com/quickdropmusic/skyline)
 
-**Artist**: Plauz & Jade Key ft. KNVWN 
+**Artist**: Quickdrop, MKL 
 
-**Track**: Plauz & Jade Key ft. KNVWN - Kryptonite (DWX Copyright Free)
+**Track**: Skyline
 
-Last updated at 1/18/2025, 6:56:43 AM
+Last updated at 1/18/2025, 6:59:48 AM
