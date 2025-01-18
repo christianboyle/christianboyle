@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix)
 
-**Artist**: No Hero & Quickdrop 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Guide You
+**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
 
-Last updated at 1/17/2025, 6:21:30 PM
+Last updated at 1/17/2025, 6:22:39 PM
