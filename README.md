@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27iigWgWyFsX6yK0-ZYD3OA-t500x500.jpg">](https://soundcloud.com/musicbymugli/fuji-opener-remix?in=saxurn/sets/cop-a-z/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107?in=saxurn/sets/cop-a-z/)
 
-**Artist**: Skrillex 
+**Artist**: Vortek's 
 
-**Track**: Fuji Opener - MUGLI PROJECT Hard Techno Remix [FREE FULL DL]
+**Track**: Vortek's - No Karma [OMN-107]
 
-Last updated at 1/18/2025, 10:56:16 AM
+Last updated at 1/18/2025, 10:58:57 AM
