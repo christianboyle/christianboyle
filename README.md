@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7g0NzgTz0Ypva4sK-cTC3QQ-t500x500.jpg">](https://soundcloud.com/officialflozone/lyny-hitz-flozone-flip-1?in=saxurn/sets/cop-a-z/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix?in=saxurn/sets/cop-a-z/)
 
-**Artist**: flozone 
+**Artist**: nightcore4totalsluts 
 
-**Track**: LYNY - HITZ (flozone flip)
+**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
 
-Last updated at 1/18/2025, 10:44:15 AM
+Last updated at 1/18/2025, 10:46:36 AM
