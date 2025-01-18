@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27iigWgWyFsX6yK0-ZYD3OA-t500x500.jpg">](https://soundcloud.com/musicbymugli/fuji-opener-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYgpdFfBOJqzv5zo-czgSBA-t500x500.jpg">](https://soundcloud.com/ihateshinigami/snow-prod-cutspace?in=saxurn/sets/cop-a-z/)
 
-**Artist**: Skrillex 
+**Artist**: shinigami 
 
-**Track**: Fuji Opener - MUGLI PROJECT Hard Techno Remix [FREE FULL DL]
+**Track**: snow [prod. cutspace]
 
-Last updated at 1/18/2025, 10:04:15 AM
+Last updated at 1/18/2025, 10:06:18 AM
