@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8t4j1CR9lAsylGWe-OmTBnA-t500x500.png">](https://soundcloud.com/syndicatebass/kill-your-utopia-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7MF4A6zT8qhBfMK-YN1l4Q-t500x500.jpg">](https://soundcloud.com/officialb2s/geck-o-db24-hard-techno-saturday)
 
-**Artist**: Kill Your Utopia 
+**Artist**: officialb2s 
 
-**Track**: Kill Your Utopia - Control
+**Track**: Geck-O | Decibel outdoor 2024 | Hard Techno | Saturday
 
-Last updated at 1/17/2025, 6:03:21 PM
+Last updated at 1/17/2025, 6:08:21 PM
