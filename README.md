@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qchMPHghWoEwcdg-y9rPdA-t500x500.jpg">](https://soundcloud.com/defqon-1-927571531/avi8-uv-friday-defqon1-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swizfqzPsbvg31rC-vaWJjQ-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/braxx-artimaze-say-goodbye-dwx-copyright-free)
 
-**Artist**: Defqon.1 
+**Artist**: BraxX & Artimaze 
 
-**Track**: Avi8 | UV | Friday | Defqon.1 2024
+**Track**: BraxX & Artimaze - Say Goodbye (DWX Copyright Free)
 
-Last updated at 1/17/2025, 6:13:56 PM
+Last updated at 1/17/2025, 6:14:56 PM
