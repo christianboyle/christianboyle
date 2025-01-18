@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPdulilQhAxcU40O-8C1XVQ-t500x500.png">](https://soundcloud.com/concentratesdub/mrsaxobeatflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYgpdFfBOJqzv5zo-czgSBA-t500x500.jpg">](https://soundcloud.com/ihateshinigami/snow-prod-cutspace?in=saxurn/sets/cop-a-zip/)
 
-**Artist**: CONCENTRATES 
+**Artist**: shinigami 
 
-**Track**: ALEXANDRA STAN - MR. SAXOBEAT (CONCENTRATES FLIP)
+**Track**: snow [prod. cutspace]
 
-Last updated at 1/18/2025, 11:07:04 AM
+Last updated at 1/18/2025, 2:54:52 PM
