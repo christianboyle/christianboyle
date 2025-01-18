@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SF8xO5ByWOWe-0-t500x500.jpg">](https://soundcloud.com/oneseventy/stay-right-here-mixed-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you?in=saxurn/sets/sim-pin)
 
-**Artist**: No Hero & Menta 
+**Artist**: No Hero & Quickdrop 
 
-**Track**: Stay Right Here (Mixed Cut)
+**Track**: Guide You
 
-Last updated at 1/18/2025, 7:05:14 AM
+Last updated at 1/18/2025, 7:39:26 AM
