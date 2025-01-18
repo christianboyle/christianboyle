@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBluWxi0zUCqbPBv-CQ2bWA-t500x500.png">](https://soundcloud.com/raucous-music/2025-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you)
 
-**Artist**: Raucous 
+**Artist**: No Hero & Quickdrop 
 
-**Track**: 2025 SHOWCASE
+**Track**: Guide You
 
-Last updated at 1/17/2025, 6:19:47 PM
+Last updated at 1/17/2025, 6:21:30 PM
