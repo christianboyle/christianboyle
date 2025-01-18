@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mh4mot5GZzb0zHyu-eqYFfQ-t500x500.jpg">](https://soundcloud.com/v_a_l_e/vulture-i-wanna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYgpdFfBOJqzv5zo-czgSBA-t500x500.jpg">](https://soundcloud.com/ihateshinigami/snow-prod-cutspace)
 
-**Artist**: Vulture 
+**Artist**: shinigami 
 
-**Track**: Vulture - I Wanna
+**Track**: snow [prod. cutspace]
 
-Last updated at 1/18/2025, 7:43:46 AM
+Last updated at 1/18/2025, 7:45:02 AM
