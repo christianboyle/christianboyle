@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIciGyzKzea2UMeq-0FEuww-t500x500.jpg">](https://soundcloud.com/suncraftmusic/we-come-1nsomnia-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Vy1TKgWBGWv072V-84znvg-t500x500.jpg">](https://soundcloud.com/subcarbon/shizz-lo-afterthought-island-boys-feat-yaadcore?in=shizzlomusic/sets/originals)
 
-**Artist**: Suncraft 
+**Artist**: Shizz Lo, DJ Afterthought 
 
-**Track**: We Come 1nsomnia (OUT 17th JAN) [Free early download!]
+**Track**: Shizz Lo & Afterthought - Island Boys (feat. Yaadcore)
 
-Last updated at 1/17/2025, 5:59:46 PM
+Last updated at 1/17/2025, 6:00:46 PM
