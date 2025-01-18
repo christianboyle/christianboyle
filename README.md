@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FXlLJYhVBQByHpd-edRjHw-t500x500.jpg">](https://soundcloud.com/proxysmusic/proxys-what-them-say)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h77IwE6IYMz61fE3-pyqSDw-t500x500.png">](https://soundcloud.com/mishkei/grynpyret-wannabe)
 
-**Artist**: Proxys 
+**Artist**: mishkei 
 
-**Track**: Proxys - What them say?
+**Track**: ˗ˏˋ ★ ˎˊ˗
 
-Last updated at 1/17/2025, 6:17:41 PM
+Last updated at 1/17/2025, 6:18:42 PM
