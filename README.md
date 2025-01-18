@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJw8zsyJlhkueCyL-iXyUtw-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-make-it-far?in=saxurn/sets/cop-a-z/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27iigWgWyFsX6yK0-ZYD3OA-t500x500.jpg">](https://soundcloud.com/musicbymugli/fuji-opener-remix?in=saxurn/sets/cop-a-z/)
 
-**Artist**: Kichta 
+**Artist**: Skrillex 
 
-**Track**: Kichta - Make It Far
+**Track**: Fuji Opener - MUGLI PROJECT Hard Techno Remix [FREE FULL DL]
 
-Last updated at 1/18/2025, 10:51:21 AM
+Last updated at 1/18/2025, 10:56:16 AM
