@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcAZfHqHf1vHE2aV-PPUz9g-t500x500.jpg">](https://soundcloud.com/fkjere/caslow-loveless-generation-uk-hardcore-edit?in=saxurn/sets/sim-pin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiNVYvfewSO8yESd-mhQ72Q-t500x500.jpg">](https://soundcloud.com/fultonrichards/sewingupcuts?in=saxurn/sets/sim-pin)
 
-**Artist**: Caslow, Jack The Underdog, Sierra Annie 
+**Artist**: fult 
 
-**Track**: Loveless Generation (UK Hardcore Edit)
+**Track**: sewing up cuts
 
-Last updated at 1/18/2025, 6:34:21 AM
+Last updated at 1/18/2025, 6:39:16 AM
