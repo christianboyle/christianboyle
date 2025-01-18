@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7g0NzgTz0Ypva4sK-cTC3QQ-t500x500.jpg">](https://soundcloud.com/officialflozone/lyny-hitz-flozone-flip-1?in=saxurn/sets/cop-a-zip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E1BejLIUCOx9Ixtz-zVMDIQ-t500x500.jpg">](https://soundcloud.com/itsryancase/the-night-is-still-young)
 
-**Artist**: flozone 
+**Artist**: Ryan Case 
 
-**Track**: LYNY - HITZ (flozone flip)
+**Track**: THE NIGHT IS STILL YOUNG
 
-Last updated at 1/18/2025, 3:06:23 PM
+Last updated at 1/18/2025, 3:10:34 PM
