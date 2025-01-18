@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wkquc5EHQbnBN2dB-dA2rlg-t500x500.png">](https://soundcloud.com/glitzclub/dj-bax-17?in=saxurn/sets/sim-pin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gs6iD7R1F9zOZVsW-Ij8OhQ-t500x500.jpg">](https://soundcloud.com/officialnohero/nanobii-ravinfection-no-hero-remix)
 
-**Artist**: Glitz Club 
+**Artist**: nanobii, No Hero 
 
-**Track**: dj bax - 17
+**Track**: nanobii - RAViNFECTION (No Hero Remix)
 
-Last updated at 1/17/2025, 7:33:45 PM
+Last updated at 1/17/2025, 7:49:32 PM
