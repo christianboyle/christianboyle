@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Vy1TKgWBGWv072V-84znvg-t500x500.jpg">](https://soundcloud.com/subcarbon/shizz-lo-afterthought-island-boys-feat-yaadcore?in=shizzlomusic/sets/originals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ulm1bSPkSb5ojZmu-WRTh0w-t500x500.jpg">](https://soundcloud.com/hitsdistrict-house/yunagy-fallin)
 
-**Artist**: Shizz Lo, DJ Afterthought 
+**Artist**: Yunagy 
 
-**Track**: Shizz Lo & Afterthought - Island Boys (feat. Yaadcore)
+**Track**: Bass House | Yunagy - Fallin’
 
-Last updated at 1/17/2025, 6:00:46 PM
+Last updated at 1/17/2025, 6:02:16 PM
