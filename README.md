@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ulm1bSPkSb5ojZmu-WRTh0w-t500x500.jpg">](https://soundcloud.com/hitsdistrict-house/yunagy-fallin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8t4j1CR9lAsylGWe-OmTBnA-t500x500.png">](https://soundcloud.com/syndicatebass/kill-your-utopia-control)
 
-**Artist**: Yunagy 
+**Artist**: Kill Your Utopia 
 
-**Track**: Bass House | Yunagy - Fallin’
+**Track**: Kill Your Utopia - Control
 
-Last updated at 1/17/2025, 6:02:16 PM
+Last updated at 1/17/2025, 6:03:21 PM
