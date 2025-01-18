@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWSN1Z8ErpjcggzX-2q3aoQ-t500x500.png">](https://soundcloud.com/beansclub2/focusremix?in=saxurn/sets/yap/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xdh7ZvyGTw09I7nE-ymsBBQ-t500x500.jpg">](https://soundcloud.com/dreamloader/som-en-sol?in=saxurn/sets/yap/)
 
-**Artist**: Nat Knives, Yanurr 
+**Artist**: dreamloader 
 
-**Track**: focus (beansclub bootleg)
+**Track**: Som En Sol (bootleg)
 
-Last updated at 1/17/2025, 6:56:20 PM
+Last updated at 1/17/2025, 6:59:20 PM
