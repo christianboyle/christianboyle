@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLKKIhWkjxu3kShJ-8MjkPw-t500x500.png">](https://soundcloud.com/lowpolysound/dumbest-girl-alive?in=saxurn/sets/sim-pin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iqje1VuZIcAVLBWN-HfPMCA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/charli-xcx-360-earth-from-space-edit?in=saxurn/sets/sim-pin)
 
-**Artist**: Low Poly 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Dumbest Girl Alive (Low Poly Edit)
+**Track**: Charli XCX - 360 (Earth from Space Edit)
 
-Last updated at 1/18/2025, 6:47:17 AM
+Last updated at 1/18/2025, 6:50:12 AM
