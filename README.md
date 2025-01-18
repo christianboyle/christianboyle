@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dYJw5DN6ecdNzaGO-hYdePQ-t500x500.png">](https://soundcloud.com/deucez_music/deucez-feed-your-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you)
 
-**Artist**: DEUCEZ 
+**Artist**: No Hero & Quickdrop 
 
-**Track**: Deucez - Feed Your Soul
+**Track**: Guide You
 
-Last updated at 1/18/2025, 7:40:26 AM
+Last updated at 1/18/2025, 7:41:46 AM
