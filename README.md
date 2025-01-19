@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvafyEd3QCzPwRU5-wHtTlw-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/hell-kerbecs?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBgaHS5V31E1Sirc-9InKHA-t500x500.jpg">](https://soundcloud.com/centellaculiao/i-f33l-s0-lon3ly?in=saxurn/sets/cop-a-zip)
 
-**Artist**: AITANA\u2605\u2605OFICIAL 
+**Artist**: C3NTELL4 
 
-**Track**: Hell Kerbecs
+**Track**: ˜”*°•.˜”*°• I F33L S0 LON3LY •°*”˜.•°*”˜
 
-Last updated at 1/19/2025, 7:51:51 AM
+Last updated at 1/19/2025, 7:55:31 AM
