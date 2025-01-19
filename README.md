@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3nrvYjukvIs-0-t500x500.jpg">](https://soundcloud.com/charlixcx/guess)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvafyEd3QCzPwRU5-wHtTlw-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/hell-kerbecs?in=saxurn/sets/cop-a-zip/)
 
-**Artist**: Charli xcx 
+**Artist**: AITANA\u2605\u2605OFICIAL 
 
-**Track**: Guess
+**Track**: Hell Kerbecs
 
-Last updated at 1/18/2025, 4:36:39 PM
+Last updated at 1/18/2025, 6:33:28 PM
