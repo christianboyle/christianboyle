@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Vs8DMMeatemjFNX-Mm2shg-t500x500.png">](https://soundcloud.com/dancingdeadrecords/fallingdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PcFLD1jP3BSVNJwu-p7V9kA-t500x500.png">](https://soundcloud.com/user-84259839-761639035/wildish-the-beginning-bass)
 
-**Artist**: Sihk, Fahjah 
+**Artist**: Bass Jamz 
 
-**Track**: Sihk x Fahjah - Falling Down
+**Track**: WILDISH - THE BEGINNING [BASS JAMZ]
 
-Last updated at 1/19/2025, 11:16:19 AM
+Last updated at 1/19/2025, 11:17:19 AM
