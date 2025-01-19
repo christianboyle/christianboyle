@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztmbtNjSzaroKskk-jwH90A-t500x500.jpg">](https://soundcloud.com/vortek-s/vorteks-no-karma-omn-107?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5ORXoOdzC4KOK7j-iWxluw-t500x500.jpg">](https://soundcloud.com/vortek-s/spice-up-flkn-headphone-omn-102)
 
-**Artist**: Vortek's 
+**Artist**: Spice Up! & FLKN 
 
-**Track**: Vortek's - No Karma [OMN-107]
+**Track**: Spice Up! & FLKN - Headphones [OMN-102]
 
-Last updated at 1/19/2025, 11:06:54 AM
+Last updated at 1/19/2025, 11:11:49 AM
