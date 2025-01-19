@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PcFLD1jP3BSVNJwu-p7V9kA-t500x500.png">](https://soundcloud.com/user-84259839-761639035/wildish-the-beginning-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5RxdjeLpozGE0HbG-dxZvtQ-t500x500.jpg">](https://soundcloud.com/72crash/everything-will-haunt-you)
 
-**Artist**: Bass Jamz 
+**Artist**: 72crash 
 
-**Track**: WILDISH - THE BEGINNING [BASS JAMZ]
+**Track**: Everything Will Haunt You (dub mix)
 
-Last updated at 1/19/2025, 11:17:19 AM
+Last updated at 1/19/2025, 11:18:19 AM
