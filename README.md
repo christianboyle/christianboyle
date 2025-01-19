@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHVK3PXPIvLIrP8T-zdkvyQ-t500x500.jpg">](https://soundcloud.com/dilemmaca/cloonee-stephanie-dlemma-remix?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27iigWgWyFsX6yK0-ZYD3OA-t500x500.jpg">](https://soundcloud.com/musicbymugli/fuji-opener-remix?in=saxurn/sets/cop-a-zip)
 
-**Artist**: D!lemma 
+**Artist**: Skrillex 
 
-**Track**: Cloonee - Stephanie (D!lemma Remix) [drum and bass]
+**Track**: Fuji Opener - MUGLI PROJECT Hard Techno Remix [FREE FULL DL]
 
-Last updated at 1/18/2025, 8:07:25 PM
+Last updated at 1/18/2025, 8:11:20 PM
