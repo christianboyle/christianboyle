@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5RxdjeLpozGE0HbG-dxZvtQ-t500x500.jpg">](https://soundcloud.com/72crash/everything-will-haunt-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMsgTIT9DrLIDY8a-PH1eow-t500x500.jpg">](https://soundcloud.com/k4rson/take-me-back-inno-mental)
 
-**Artist**: 72crash 
+**Artist**: karson 
 
-**Track**: Everything Will Haunt You (dub mix)
+**Track**: take me back w/ arid + baz (inno + mental)
 
-Last updated at 1/19/2025, 11:18:19 AM
+Last updated at 1/19/2025, 11:28:16 AM
