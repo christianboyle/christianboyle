@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3nrvYjukvIs-0-t500x500.jpg">](https://soundcloud.com/charlixcx/guess)
 
-**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
+**Artist**: Charli xcx 
 
-**Track**: Idntfriendwu (pk)
+**Track**: Guess
 
-Last updated at 1/20/2025, 1:05:13 PM
+Last updated at 1/20/2025, 1:06:13 PM
