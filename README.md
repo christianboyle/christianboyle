@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vzvTxD6Vy8E5N6w-x9p6JQ-t500x500.jpg">](https://soundcloud.com/eternalembracebln/ee-premiere-torben)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVaTAWYZmSIIoAqz-1HzLmQ-t500x500.png">](https://soundcloud.com/latexfruit/es-un-secreto)
 
-**Artist**: eternal embrace, torbentorben 
+**Artist**: latex fruit, c678924 
 
-**Track**: EE PREMIERE: torbentorben - non stop
+**Track**: latex fruit n c6 !!! 。。。 es un secreto 。。5298f4883ad4634ac5d77494fffb12f7
 
-Last updated at 1/20/2025, 1:00:04 PM
+Last updated at 1/20/2025, 1:02:53 PM
