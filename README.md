@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66Oixy2XbEJMAvcd-8nYdsw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/fallen-shrine-dont-let-me-fade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8vzvTxD6Vy8E5N6w-x9p6JQ-t500x500.jpg">](https://soundcloud.com/eternalembracebln/ee-premiere-torben)
 
-**Artist**: ONLYTRANCE 
+**Artist**: eternal embrace, torbentorben 
 
-**Track**: FALLEN SHRINE - DON'T LET ME FADE AWAY 2.0
+**Track**: EE PREMIERE: torbentorben - non stop
 
-Last updated at 1/20/2025, 12:24:11 PM
+Last updated at 1/20/2025, 1:00:04 PM
