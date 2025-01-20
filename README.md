@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJNzbLlkGq8hHtJm-OJgKgA-t500x500.jpg">](https://soundcloud.com/sts67/peekaboo-reload-scratch-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ql74N4Sd3SRNMSAe-n8ILgw-t500x500.jpg">](https://soundcloud.com/zerofault/stonermuzikreel)
 
-**Artist**: Scratch the Surface 
+**Artist**: zerofault 
 
-**Track**: Caspa x Peekaboo Reload (Scratch the Surface Flip)
+**Track**: #HOW2GETSTONED [+Friends]
 
-Last updated at 1/20/2025, 9:14:28 AM
+Last updated at 1/20/2025, 9:15:43 AM
