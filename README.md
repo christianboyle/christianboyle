@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iTTTNOkJaWmjxvbR-dWr9zg-t500x500.jpg">](https://soundcloud.com/systemkids/sailor-song-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwkX2pCcnHdzEBBQ-o3Z9aA-t500x500.jpg">](https://soundcloud.com/future-bassnet/curious-mind-a-long-time-future-bass-release)
 
-**Artist**: SYSTEM KIDS 
+**Artist**: Curious Mind 
 
-**Track**: Gigi Perez - Sailor Song (SYSTEM KIDS Remix)
+**Track**: Curious Mind - A Long Time [Future Bass Release]
 
-Last updated at 1/20/2025, 9:17:58 AM
+Last updated at 1/20/2025, 9:19:23 AM
