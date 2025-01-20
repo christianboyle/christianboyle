@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iwkX2pCcnHdzEBBQ-o3Z9aA-t500x500.jpg">](https://soundcloud.com/future-bassnet/curious-mind-a-long-time-future-bass-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEU2QyixpaV1gjpf-MpyBaw-t500x500.png">](https://soundcloud.com/frvmeprfct/fixture)
 
-**Artist**: Curious Mind 
+**Artist**: FRVME PRFCT 
 
-**Track**: Curious Mind - A Long Time [Future Bass Release]
+**Track**: FRVME PRFCT x DHMPR - FIXTURE [FREE DL]
 
-Last updated at 1/20/2025, 9:19:23 AM
+Last updated at 1/20/2025, 9:20:23 AM
