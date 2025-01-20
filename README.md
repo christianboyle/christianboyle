@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKUaW9omyPuwdLLV-WlllkQ-t500x500.png">](https://soundcloud.com/saint-baek/pretty-boy-swag-saint-miller-flip?in=saxurn/sets/crash-cow/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk?in=saxurn/sets/crash-cow/)
 
-**Artist**: SAINT MILLER 
+**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
 
-**Track**: Pretty boy swag (SAINT MILLER FLIP)
+**Track**: Idntfriendwu (pk)
 
-Last updated at 1/20/2025, 4:42:56 PM
+Last updated at 1/20/2025, 4:44:52 PM
