@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYgpdFfBOJqzv5zo-czgSBA-t500x500.jpg">](https://soundcloud.com/ihateshinigami/snow-prod-cutspace?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones?in=saxurn/sets/crash-cow/)
 
-**Artist**: shinigami 
+**Artist**: S3RL 
 
-**Track**: snow [prod. cutspace]
+**Track**: In My Bones - S3RL
 
-Last updated at 1/21/2025, 4:19:52 PM
+Last updated at 1/21/2025, 4:22:08 PM
