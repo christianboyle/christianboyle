@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSxofKNnOoM5ZTao-o6N4Pg-t500x500.png">](https://soundcloud.com/virxmusic/anti-up-chromatic-virx-flip)
 
-**Artist**: S3RL 
+**Artist**: VIRX 
 
-**Track**: In My Bones - S3RL
+**Track**: Anti Up - Chromatic (VIRX FLIP)
 
-Last updated at 1/21/2025, 9:41:16 AM
+Last updated at 1/21/2025, 11:47:26 AM
