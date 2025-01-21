@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip?in=saxurn/sets/crash-cow/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
 
-**Artist**: SICKISH 
+**Artist**: S3RL 
 
-**Track**: Megan thee Stallion - Motion SICKISH flip
+**Track**: In My Bones - S3RL
 
-Last updated at 1/20/2025, 7:24:07 PM
+Last updated at 1/21/2025, 7:24:37 AM
