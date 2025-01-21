@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyVjTywFR2UcUUdX-lSDAqg-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/kotodama?in=thepodcast2022/sets/dancing-dead-radio-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCIxSXejBDCumRNF-g799gQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/veil-flashback)
 
-**Artist**: Dancing Dead 
+**Artist**: VEIL 
 
-**Track**: Naeleck, Mariana Bo & LNY TNZ - Kotodama
+**Track**: VEIL - FLASHBACK
 
-Last updated at 1/21/2025, 7:30:18 AM
+Last updated at 1/21/2025, 7:41:35 AM
