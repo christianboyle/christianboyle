@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-710rgd1WyzrmWuX6-yAPblQ-t500x500.jpg">](https://soundcloud.com/rankzsound/fein-rankz-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJqM5LGDHqrDHoHT-8drRqw-t500x500.png">](https://soundcloud.com/eskapistsound/vanish)
 
-**Artist**: RANKZ 
+**Artist**: Eskapist 
 
-**Track**: Travis Scott - FE!N (RANKZ Flip) [Free DL For Full Version]
+**Track**: Vanish
 
-Last updated at 1/21/2025, 5:01:05 PM
+Last updated at 1/21/2025, 5:02:10 PM
