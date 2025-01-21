@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKUaW9omyPuwdLLV-WlllkQ-t500x500.png">](https://soundcloud.com/saint-baek/pretty-boy-swag-saint-miller-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVaTAWYZmSIIoAqz-1HzLmQ-t500x500.png">](https://soundcloud.com/latexfruit/es-un-secreto)
 
-**Artist**: SAINT MILLER 
+**Artist**: latex fruit, c678924 
 
-**Track**: Pretty boy swag (SAINT MILLER FLIP)
+**Track**: latex fruit n c6 !!! 。。。 es un secreto 。。5298f4883ad4634ac5d77494fffb12f7
 
-Last updated at 1/21/2025, 1:18:32 PM
+Last updated at 1/21/2025, 1:20:22 PM
