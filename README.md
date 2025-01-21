@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3nrvYjukvIs-0-t500x500.jpg">](https://soundcloud.com/charlixcx/guess)
 
-**Artist**: SICKISH 
+**Artist**: Charli xcx 
 
-**Track**: Megan thee Stallion - Motion SICKISH flip
+**Track**: Guess
 
-Last updated at 1/21/2025, 9:28:40 AM
+Last updated at 1/21/2025, 9:31:20 AM
