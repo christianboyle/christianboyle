@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBgaHS5V31E1Sirc-9InKHA-t500x500.jpg">](https://soundcloud.com/centellaculiao/i-f33l-s0-lon3ly)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: C3NTELL4 
 
-**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
+**Track**: ˜”*°•.˜”*°• I F33L S0 LON3LY •°*”˜.•°*”˜
 
-Last updated at 1/21/2025, 2:11:52 PM
+Last updated at 1/21/2025, 2:16:38 PM
