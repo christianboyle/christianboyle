@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PcFLD1jP3BSVNJwu-p7V9kA-t500x500.png">](https://soundcloud.com/user-84259839-761639035/l-p-rhythm-feelin-bass-jamz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip)
 
-**Artist**: Bass Jamz 
+**Artist**: SICKISH 
 
-**Track**: L.P. RHYTHM - FEELIN' [BASS JAMZ]
+**Track**: Megan thee Stallion - Motion SICKISH flip
 
-Last updated at 1/21/2025, 9:21:19 AM
+Last updated at 1/21/2025, 9:28:40 AM
