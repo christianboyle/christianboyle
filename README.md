@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-btvzszg6MNNBNZqU-2TLlyw-t500x500.png">](https://soundcloud.com/monsainn/sexfreestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xaXAtKktvrmcgt9-VJM0cQ-t500x500.png">](https://soundcloud.com/psychocybinrec/wibezzskank)
 
-**Artist**: monsain 
+**Artist**: WibeZz 
 
-**Track**: sex freestyle
+**Track**: WibeZz - Skank
 
-Last updated at 1/21/2025, 4:53:44 PM
+Last updated at 1/21/2025, 4:55:54 PM
