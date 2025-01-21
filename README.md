@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJqM5LGDHqrDHoHT-8drRqw-t500x500.png">](https://soundcloud.com/eskapistsound/vanish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klgjWN6ZMaQvOZdG-iQfWFg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/kovan-electro-light-skyline-pt-ii-geometry-dash)
 
-**Artist**: Eskapist 
+**Artist**: Kovan, Electro-Light 
 
-**Track**: Vanish
+**Track**: Kovan & Electro-Light - Skyline Pt. II [Geometry Dash]
 
-Last updated at 1/21/2025, 5:02:10 PM
+Last updated at 1/21/2025, 5:03:10 PM
