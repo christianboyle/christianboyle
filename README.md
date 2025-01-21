@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHVK3PXPIvLIrP8T-zdkvyQ-t500x500.jpg">](https://soundcloud.com/dilemmaca/cloonee-stephanie-dlemma-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
 
-**Artist**: D!lemma 
+**Artist**: ❶keysora 
 
-**Track**: Cloonee - Stephanie (D!lemma Remix) [drum and bass]
+**Track**: anx1ety p. centrlx
 
-Last updated at 1/21/2025, 9:33:41 AM
+Last updated at 1/21/2025, 9:36:56 AM
