@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4z3ek9efwpKeP2sX-xqpoYg-t500x500.png">](https://soundcloud.com/thearcanebeatz/break)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66Oixy2XbEJMAvcd-8nYdsw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/fallen-shrine-dont-let-me-fade)
 
-**Artist**: Arcane Beatz 
+**Artist**: ONLYTRANCE 
 
-**Track**: Break
+**Track**: FALLEN SHRINE - DON'T LET ME FADE AWAY 2.0
 
-Last updated at 1/21/2025, 1:26:58 PM
+Last updated at 1/21/2025, 1:30:43 PM
