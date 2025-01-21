@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OgACwErb7khfsZQA-s1yvog-t500x500.jpg">](https://soundcloud.com/soundsbymystic/mstic-pandoh-stfu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xhl4M1Yy26ByFpby-b6gQdg-t500x500.jpg">](https://soundcloud.com/k1n_music/2hollis-crush-k1n-rmx)
 
-**Artist**: M?STIC & PANDOH 
+**Artist**: K1N 
 
-**Track**: M?STIC & PANDOH - STFU
+**Track**: 2hollis - crush (K1N RMX)
 
-Last updated at 1/21/2025, 2:28:54 PM
+Last updated at 1/21/2025, 2:31:24 PM
