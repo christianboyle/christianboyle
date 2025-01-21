@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvafyEd3QCzPwRU5-wHtTlw-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/hell-kerbecs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txYfmBSVwHJV-0-t500x500.jpg">](https://soundcloud.com/officialnohero/guide-you)
 
-**Artist**: AITANA\u2605\u2605OFICIAL 
+**Artist**: No Hero & Quickdrop 
 
-**Track**: Hell Kerbecs
+**Track**: Guide You
 
-Last updated at 1/21/2025, 1:54:56 PM
+Last updated at 1/21/2025, 1:58:31 PM
