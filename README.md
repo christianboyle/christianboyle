@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PcFLD1jP3BSVNJwu-p7V9kA-t500x500.png">](https://soundcloud.com/user-84259839-761639035/l-p-rhythm-feelin-bass-jamz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
 
-**Artist**: Bass Jamz 
+**Artist**: S3RL 
 
-**Track**: L.P. RHYTHM - FEELIN' [BASS JAMZ]
+**Track**: In My Bones - S3RL
 
-Last updated at 1/21/2025, 12:11:43 PM
+Last updated at 1/21/2025, 12:59:15 PM
