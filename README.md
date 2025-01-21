@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHfFd4ezTWoYbe9X-du9ISw-t500x500.jpg">](https://soundcloud.com/billythekiddub/bass-up-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv8lEqzVd2Xy4Cs-6Uxd6A-t500x500.jpg">](https://soundcloud.com/joshuarsm/mother-clucker)
 
-**Artist**: BILLYTHEKID 
+**Artist**: JUSH 
 
-**Track**: BASS UP
+**Track**: MOTHER CLUCKER
 
-Last updated at 1/21/2025, 8:53:42 AM
+Last updated at 1/21/2025, 8:56:37 AM
