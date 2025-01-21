@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1u0sKNul1OzXz8Jp-troyAg-t500x500.jpg">](https://soundcloud.com/endevie/ymirfallremix)
 
-**Artist**: S3RL 
+**Artist**: YMIR 
 
-**Track**: In My Bones - S3RL
+**Track**: YMIR - FALL (Endevie Remix)
 
-Last updated at 1/21/2025, 7:24:37 AM
+Last updated at 1/21/2025, 7:25:42 AM
