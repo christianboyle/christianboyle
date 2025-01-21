@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mBgaHS5V31E1Sirc-9InKHA-t500x500.jpg">](https://soundcloud.com/centellaculiao/i-f33l-s0-lon3ly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGyWEFTAme9ezQ7g-MEFfbQ-t500x500.jpg">](https://soundcloud.com/maakg/ache)
 
-**Artist**: C3NTELL4 
+**Artist**: Maāk.G 
 
-**Track**: ˜”*°•.˜”*°• I F33L S0 LON3LY •°*”˜.•°*”˜
+**Track**: Ache
 
-Last updated at 1/21/2025, 2:16:38 PM
+Last updated at 1/21/2025, 2:19:23 PM
