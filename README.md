@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bad6azo1FT1jxWx0-zALuNg-t500x500.png">](https://soundcloud.com/phuturecollective/noer-the-boy-wait-what?in=noertheboy/sets/wait-what-out-on-phuture)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zg1r61Xzt7YII5q-2VcrDg-t500x500.jpg">](https://soundcloud.com/drippinginroses/no-more)
 
-**Artist**: Noer the Boy 
+**Artist**: Tuneyvy, Charlie Arthur 
 
-**Track**: Noer the Boy - Wait What
+**Track**: Tuneyvy, Charlie Arthur - no more
 
-Last updated at 1/21/2025, 4:51:14 PM
+Last updated at 1/21/2025, 4:52:44 PM
