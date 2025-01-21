@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUdFnC38T4TqX7Xv-9lr6rw-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/step-sequence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk)
 
-**Artist**: SUAHN 
+**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
 
-**Track**: Step Sequence
+**Track**: Idntfriendwu (pk)
 
-Last updated at 1/21/2025, 2:57:27 PM
+Last updated at 1/21/2025, 3:56:58 PM
