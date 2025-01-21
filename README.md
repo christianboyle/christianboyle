@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWSN1Z8ErpjcggzX-2q3aoQ-t500x500.png">](https://soundcloud.com/beansclub2/focusremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiNVYvfewSO8yESd-mhQ72Q-t500x500.jpg">](https://soundcloud.com/fultonrichards/sewingupcuts)
 
-**Artist**: Nat Knives, Yanurr 
+**Artist**: fult 
 
-**Track**: focus (beansclub bootleg)
+**Track**: sewing up cuts
 
-Last updated at 1/21/2025, 2:37:30 PM
+Last updated at 1/21/2025, 2:40:30 PM
