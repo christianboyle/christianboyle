@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xaXAtKktvrmcgt9-VJM0cQ-t500x500.png">](https://soundcloud.com/psychocybinrec/wibezzskank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Akrk7hYW00FqwlsP-yxfaFQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/cfmf)
 
-**Artist**: WibeZz 
+**Artist**: BOOTY LEAK, Phil Phauler, CØV3R1st 
 
-**Track**: WibeZz - Skank
+**Track**: Booty Leak + Phil Phauler & CØV3R1st - Can't Feel My Face [ FREE DOWNLOAD ]
 
-Last updated at 1/21/2025, 4:55:54 PM
+Last updated at 1/21/2025, 4:59:00 PM
