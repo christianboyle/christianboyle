@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klgjWN6ZMaQvOZdG-iQfWFg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/kovan-electro-light-skyline-pt-ii-geometry-dash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66Oixy2XbEJMAvcd-8nYdsw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/fallen-shrine-dont-let-me-fade?in=saxurn/sets/chill)
 
-**Artist**: Kovan, Electro-Light 
+**Artist**: ONLYTRANCE 
 
-**Track**: Kovan & Electro-Light - Skyline Pt. II [Geometry Dash]
+**Track**: FALLEN SHRINE - DON'T LET ME FADE AWAY 2.0
 
-Last updated at 1/21/2025, 5:03:10 PM
+Last updated at 1/21/2025, 5:07:48 PM
