@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOMmYPYuEz9Uc9pN-kC1OaQ-t500x500.jpg">](https://soundcloud.com/vedtunes/ved-the-underground?in=saxurn/sets/crash-cow/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSxofKNnOoM5ZTao-o6N4Pg-t500x500.png">](https://soundcloud.com/virxmusic/anti-up-chromatic-virx-flip?in=saxurn/sets/crash-cow/)
 
-**Artist**: Ved 
+**Artist**: VIRX 
 
-**Track**: The Underground
+**Track**: Anti Up - Chromatic (VIRX FLIP)
 
-Last updated at 1/21/2025, 4:25:23 PM
+Last updated at 1/21/2025, 4:27:53 PM
