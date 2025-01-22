@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHcGzTLiz88KiQNp-xVsieQ-t500x500.jpg">](https://soundcloud.com/outhdreff-oficial-450152331/vorteks-teksa-aka-spice-up-never-give-a-fuck-outhdreff-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones?in=saxurn/sets/chill)
 
-**Artist**: Spice Up 
+**Artist**: S3RL 
 
-**Track**: Vortek's & Teksa aka Spice up! - Never Give A Fuck (Outhdreff Edit)
+**Track**: In My Bones - S3RL
 
-Last updated at 1/22/2025, 10:51:51 AM
+Last updated at 1/22/2025, 11:28:54 AM
