@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKUaW9omyPuwdLLV-WlllkQ-t500x500.png">](https://soundcloud.com/saint-baek/pretty-boy-swag-saint-miller-flip?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk?in=saxurn/sets/chill)
 
-**Artist**: SAINT MILLER 
+**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
 
-**Track**: Pretty boy swag (SAINT MILLER FLIP)
+**Track**: Idntfriendwu (pk)
 
-Last updated at 1/22/2025, 8:58:34 AM
+Last updated at 1/22/2025, 9:00:24 AM
