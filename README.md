@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66Oixy2XbEJMAvcd-8nYdsw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/fallen-shrine-dont-let-me-fade?in=saxurn/sets/chill)
 
-**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
+**Artist**: ONLYTRANCE 
 
-**Track**: Idntfriendwu (pk)
+**Track**: FALLEN SHRINE - DON'T LET ME FADE AWAY 2.0
 
-Last updated at 1/22/2025, 9:24:03 AM
+Last updated at 1/22/2025, 9:30:25 AM
