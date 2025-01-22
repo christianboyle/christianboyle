@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5BbFhENTrHYLgiJA-wPVmIg-t500x500.jpg">](https://soundcloud.com/guguuguuuuu/keith-ape-it-g-ma-feat-jayallday-loota-okasian-kohh-chirenji-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOMmYPYuEz9Uc9pN-kC1OaQ-t500x500.jpg">](https://soundcloud.com/vedtunes/ved-the-underground?in=saxurn/sets/chill)
 
-**Artist**: Chirenji 
+**Artist**: Ved 
 
-**Track**: Keith Ape - It G Ma (feat. JayAllDay, Loota, Okasian & Kohh) (Chirenji Flip)
+**Track**: The Underground
 
-Last updated at 1/22/2025, 4:05:06 PM
+Last updated at 1/22/2025, 4:09:12 PM
