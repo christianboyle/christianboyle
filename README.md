@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4z3ek9efwpKeP2sX-xqpoYg-t500x500.png">](https://soundcloud.com/thearcanebeatz/break?in=saxurn/sets/chill)
 
-**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
+**Artist**: Arcane Beatz 
 
-**Track**: Idntfriendwu (pk)
+**Track**: Break
 
-Last updated at 1/22/2025, 8:30:37 AM
+Last updated at 1/22/2025, 8:33:17 AM
