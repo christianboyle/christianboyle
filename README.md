@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJw8zsyJlhkueCyL-iXyUtw-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-make-it-far?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHVK3PXPIvLIrP8T-zdkvyQ-t500x500.jpg">](https://soundcloud.com/dilemmaca/cloonee-stephanie-dlemma-remix?in=saxurn/sets/cop-a-zip)
 
-**Artist**: Kichta 
+**Artist**: D!lemma 
 
-**Track**: Kichta - Make It Far
+**Track**: Cloonee - Stephanie (D!lemma Remix) [drum and bass]
 
-Last updated at 1/22/2025, 10:16:04 AM
+Last updated at 1/22/2025, 10:21:00 AM
