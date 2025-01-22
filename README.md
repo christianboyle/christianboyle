@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv8lEqzVd2Xy4Cs-6Uxd6A-t500x500.jpg">](https://soundcloud.com/joshuarsm/mother-clucker?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKUaW9omyPuwdLLV-WlllkQ-t500x500.png">](https://soundcloud.com/saint-baek/pretty-boy-swag-saint-miller-flip?in=saxurn/sets/chill)
 
-**Artist**: JUSH 
+**Artist**: SAINT MILLER 
 
-**Track**: MOTHER CLUCKER
+**Track**: Pretty boy swag (SAINT MILLER FLIP)
 
-Last updated at 1/22/2025, 11:39:50 AM
+Last updated at 1/22/2025, 11:44:00 AM
