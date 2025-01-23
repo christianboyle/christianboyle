@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hv8lEqzVd2Xy4Cs-6Uxd6A-t500x500.jpg">](https://soundcloud.com/joshuarsm/mother-clucker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones?in=saxurn/sets/chill)
 
-**Artist**: JUSH 
+**Artist**: S3RL 
 
-**Track**: MOTHER CLUCKER
+**Track**: In My Bones - S3RL
 
-Last updated at 1/23/2025, 8:38:54 AM
+Last updated at 1/23/2025, 11:46:18 AM
