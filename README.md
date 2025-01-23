@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5BbFhENTrHYLgiJA-wPVmIg-t500x500.jpg">](https://soundcloud.com/guguuguuuuu/keith-ape-it-g-ma-feat-jayallday-loota-okasian-kohh-chirenji-flip-1)
 
-**Artist**: SICKISH 
+**Artist**: Chirenji 
 
-**Track**: Megan thee Stallion - Motion SICKISH flip
+**Track**: Keith Ape - It G Ma (feat. JayAllDay, Loota, Okasian & Kohh) (Chirenji Flip)
 
-Last updated at 1/23/2025, 2:49:01 PM
+Last updated at 1/23/2025, 2:51:47 PM
