@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix?in=saxurn/sets/cop-a-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk?in=saxurn/sets/chill)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
 
-**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
+**Track**: Idntfriendwu (pk)
 
-Last updated at 1/23/2025, 12:26:36 PM
+Last updated at 1/23/2025, 2:39:45 PM
