@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66Oixy2XbEJMAvcd-8nYdsw-t500x500.jpg">](https://soundcloud.com/onlytr4nce/fallen-shrine-dont-let-me-fade?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip?in=saxurn/sets/chill)
 
-**Artist**: ONLYTRANCE 
+**Artist**: SICKISH 
 
-**Track**: FALLEN SHRINE - DON'T LET ME FADE AWAY 2.0
+**Track**: Megan thee Stallion - Motion SICKISH flip
 
-Last updated at 1/23/2025, 2:46:11 PM
+Last updated at 1/23/2025, 2:49:01 PM
