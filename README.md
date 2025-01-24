@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FQBeyQrTCP13wXfj-FzkUyw-t500x500.jpg">](https://soundcloud.com/technowereld/as-long-as-bassvictim-luna-fields-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines/)
 
-**Artist**: Techno Wereld 
+**Artist**: bk beats 
 
-**Track**: As Long As - Bassvictim (Luna Fields Edit) [Free Download]
+**Track**: exegesis
 
-Last updated at 1/24/2025, 4:38:59 PM
+Last updated at 1/24/2025, 4:40:01 PM
