@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNaFUWZpNql7-0-t500x500.jpg">](https://soundcloud.com/1985music1985/tokyo-drifting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyya0cBFyFxQxAc3-wkQyyg-t500x500.png">](https://soundcloud.com/scottfarrimond/craigy-b-gypsy-scott-f-edit)
 
-**Artist**: Napes 
+**Artist**: Scott F 
 
-**Track**: Tokyo Drifting
+**Track**: Craigy B - Gypsy ( Scott F Edit )
 
-Last updated at 1/24/2025, 10:28:22 AM
+Last updated at 1/24/2025, 10:32:48 AM
