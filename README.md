@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5D69BxK3DqpRkEA9-07Bomw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fadeaway-im-sorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-710rgd1WyzrmWuX6-yAPblQ-t500x500.jpg">](https://soundcloud.com/rankzsound/fein-rankz-flip)
 
-**Artist**: Fadeaway 
+**Artist**: RANKZ 
 
-**Track**: Fadeaway - I'm Sorry
+**Track**: Travis Scott - FE!N (RANKZ Flip) [Free DL For Full Version]
 
-Last updated at 1/24/2025, 10:47:24 AM
+Last updated at 1/24/2025, 10:51:35 AM
