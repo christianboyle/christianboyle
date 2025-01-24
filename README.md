@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBTPfvjAdSQFydgs-fWTOcw-t500x500.png">](https://soundcloud.com/crumbpitmusic/tyler-the-creator-sticky-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWA5aTbxcs5h-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/pentagramma)
 
-**Artist**: Crumb Pit 
+**Artist**: Ezra Hazard 
 
-**Track**: tyler the creator - sticky (crumb pit remix)
+**Track**: Pentagramma
 
-Last updated at 1/24/2025, 10:21:42 AM
+Last updated at 1/24/2025, 10:26:12 AM
