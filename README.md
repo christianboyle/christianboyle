@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A896gtKxcPREvsPL-nuChhw-t500x500.jpg">](https://soundcloud.com/officialyussi/shaboozey-a-bar-song-yussi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
 
-**Artist**: YUSSI 
+**Artist**: ❶keysora 
 
-**Track**: SHABOOZEY - A BAR SONG (YUSSI REMIX) [FREE DOWNLOAD]
+**Track**: anx1ety p. centrlx
 
-Last updated at 1/24/2025, 11:03:26 AM
+Last updated at 1/24/2025, 11:06:27 AM
