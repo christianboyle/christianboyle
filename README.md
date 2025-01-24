@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5BNgiVxLL43kx5UH-z6eVXg-t500x500.png">](https://soundcloud.com/subcarbon/jaenga-rain-dance-seth-david?in=subcarbon/sets/jaenga-ancestors-remixed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qts5Mz11ziekAqxO-Mrzm5Q-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-paparazzi-hundaes)
 
-**Artist**: Jaenga, Seth David 
+**Artist**: Hundaes 
 
-**Track**: Jaenga - Rain Dance (Seth David Remix)
+**Track**: Lady Gaga - Paparazzi (Hundaes Edit)
 
-Last updated at 1/24/2025, 10:12:41 AM
+Last updated at 1/24/2025, 10:14:26 AM
