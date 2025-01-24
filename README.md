@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bc9d6IQqbPf7aYFF-w8skXQ-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBTPfvjAdSQFydgs-fWTOcw-t500x500.png">](https://soundcloud.com/crumbpitmusic/tyler-the-creator-sticky-1)
 
-**Artist**: WLLWS 
+**Artist**: Crumb Pit 
 
-**Track**: Away
+**Track**: tyler the creator - sticky (crumb pit remix)
 
-Last updated at 1/24/2025, 10:18:16 AM
+Last updated at 1/24/2025, 10:21:42 AM
