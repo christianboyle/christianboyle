@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmGE2VyXM118aqeO-3Bf2Nw-t500x500.png">](https://soundcloud.com/s3rl/s3rl-ultimately-presents)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5zFveQJE33F4IGl-9RnC2g-t500x500.jpg">](https://soundcloud.com/thisistheoffline/the-offline-milady-master)
 
-**Artist**: S3RL 
+**Artist**: The Offline 
 
-**Track**: S3RL Ultimately Presents...
+**Track**: The Offline - Milady
 
-Last updated at 1/24/2025, 2:51:48 PM
+Last updated at 1/24/2025, 2:56:05 PM
