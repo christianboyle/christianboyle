@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyya0cBFyFxQxAc3-wkQyyg-t500x500.png">](https://soundcloud.com/scottfarrimond/craigy-b-gypsy-scott-f-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-loyXU3ctGwmIQ3bV-gJpIsQ-t500x500.png">](https://soundcloud.com/huzzy_kr/clean-out-the-trash-huzzy)
 
-**Artist**: Scott F 
+**Artist**: Huzzy 
 
-**Track**: Craigy B - Gypsy ( Scott F Edit )
+**Track**: Clean out the trash
 
-Last updated at 1/24/2025, 10:32:48 AM
+Last updated at 1/24/2025, 10:35:43 AM
