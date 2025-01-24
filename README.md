@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JQzrgjb57JVximqy-b1yLXA-t500x500.jpg">](https://soundcloud.com/schmuxmusic/snoop-dogg-drop-it-like-its-hot-schmux-flip-ft-pharrell?in=saxurn/sets/cache-lines/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
 
-**Artist**: SCHMUX 
+**Artist**: ❶keysora 
 
-**Track**: Snoop Dogg - Drop It Like Its Hot (SCHMUX Flip) ft Pharrell
+**Track**: anx1ety p. centrlx
 
-Last updated at 1/24/2025, 5:02:44 PM
+Last updated at 1/24/2025, 5:04:06 PM
