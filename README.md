@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jqAfVyxiwYD2ffPW-mzM0DQ-t500x500.png">](https://soundcloud.com/hemi-wav/kenopsia-goodbye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYm1ZgmdzB0lgiGh-DCbxBw-t500x500.jpg">](https://soundcloud.com/dasgdag/keed-2)
 
-**Artist**: Kenopsia 
+**Artist**: Yohan Park 
 
-**Track**: Kenopsia - Goodbye
+**Track**: DUDUDUDUDUDUDUDUDUDU
 
-Last updated at 1/24/2025, 9:58:19 AM
+Last updated at 1/24/2025, 9:59:34 AM
