@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVaTAWYZmSIIoAqz-1HzLmQ-t500x500.png">](https://soundcloud.com/latexfruit/es-un-secreto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jHcZiyOgyaldxazp-ngpzyA-t500x500.jpg">](https://soundcloud.com/popajump/idntfriendwu-pk)
 
-**Artist**: latex fruit, c678924 
+**Artist**: popajump, fekwie, starxvi, 1th44n, babybacon 
 
-**Track**: latex fruit n c6 !!! 。。。 es un secreto 。。5298f4883ad4634ac5d77494fffb12f7
+**Track**: Idntfriendwu (pk)
 
-Last updated at 1/24/2025, 11:25:04 AM
+Last updated at 1/24/2025, 11:28:59 AM
