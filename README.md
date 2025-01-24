@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qts5Mz11ziekAqxO-Mrzm5Q-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-paparazzi-hundaes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis)
 
-**Artist**: Hundaes 
+**Artist**: bk beats 
 
-**Track**: Lady Gaga - Paparazzi (Hundaes Edit)
+**Track**: exegesis
 
-Last updated at 1/24/2025, 10:14:26 AM
+Last updated at 1/24/2025, 10:15:26 AM
