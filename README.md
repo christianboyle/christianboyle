@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J5YRuex5fi1fckym-x86HrQ-t500x500.jpg">](https://soundcloud.com/weirdwaifu/blxckhoodie-x-weird-waifu-got-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gnt8KxFC1yQD6UwK-MaJVSA-t500x500.jpg">](https://soundcloud.com/tazmayne/wannabedubstepremix)
 
-**Artist**: BLXCKHOODIE & WEiRD WAiFU 
+**Artist**: TazMayne 
 
-**Track**: BLXCKHOODIE X WEiRD WAiFU - GOT THAT
+**Track**: Wanna Be (Dubstep Remix)
 
-Last updated at 1/24/2025, 9:52:39 AM
+Last updated at 1/24/2025, 9:53:44 AM
