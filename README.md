@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e3nrvYjukvIs-0-t500x500.jpg">](https://soundcloud.com/charlixcx/guess)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHVK3PXPIvLIrP8T-zdkvyQ-t500x500.jpg">](https://soundcloud.com/dilemmaca/cloonee-stephanie-dlemma-remix)
 
-**Artist**: Charli xcx 
+**Artist**: D!lemma 
 
-**Track**: Guess
+**Track**: Cloonee - Stephanie (D!lemma Remix) [drum and bass]
 
-Last updated at 1/24/2025, 11:50:46 AM
+Last updated at 1/24/2025, 11:53:12 AM
