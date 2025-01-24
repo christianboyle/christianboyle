@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-loyXU3ctGwmIQ3bV-gJpIsQ-t500x500.png">](https://soundcloud.com/huzzy_kr/clean-out-the-trash-huzzy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8yFYyoSjFDO564OO-ozGgfg-t500x500.jpg">](https://soundcloud.com/bonkers-rave/mikey-motion-bonkers-beats-150-170524)
 
-**Artist**: Huzzy 
+**Artist**: Mikey Motion 
 
-**Track**: Clean out the trash
+**Track**: Mikey Motion - Bonkers Beats 150 - 17.05.24
 
-Last updated at 1/24/2025, 9:54:59 AM
+Last updated at 1/24/2025, 9:57:19 AM
