@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOMmYPYuEz9Uc9pN-kC1OaQ-t500x500.jpg">](https://soundcloud.com/vedtunes/ved-the-underground)
 
-**Artist**: ❶keysora 
+**Artist**: Ved 
 
-**Track**: anx1ety p. centrlx
+**Track**: The Underground
 
-Last updated at 1/24/2025, 11:06:27 AM
+Last updated at 1/24/2025, 11:08:12 AM
