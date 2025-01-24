@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Akrk7hYW00FqwlsP-yxfaFQ-t500x500.jpg">](https://soundcloud.com/bo0tyleak/cfmf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rinelz5v1rIbhHDz-1fpi1A-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-046-rexydexy-lautre-come-with-me)
 
-**Artist**: BOOTY LEAK, Phil Phauler, CØV3R1st 
+**Artist**: Rexy=Dexy & LAUTRE. 
 
-**Track**: Booty Leak + Phil Phauler & CØV3R1st - Can't Feel My Face [ FREE DOWNLOAD ]
+**Track**: QGRS-046 | Rexy=Dexy & LAUTRE. - Come With Me
 
-Last updated at 1/24/2025, 10:58:41 AM
+Last updated at 1/24/2025, 11:00:36 AM
