@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ffy1ks6p42Z41Dcw-M0NI2Q-t500x500.jpg">](https://soundcloud.com/remzcore/s3rl-remzcore-play-it-loud?in=remzcore/sets/remz-roster)
 
-**Artist**: ❶keysora 
+**Artist**: Remzcore 
 
-**Track**: anx1ety p. centrlx
+**Track**: S3RL & Remzcore - Play It Loud 🔊💦
 
-Last updated at 1/24/2025, 5:04:06 PM
+Last updated at 1/24/2025, 5:05:25 PM
