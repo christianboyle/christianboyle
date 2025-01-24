@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NO1mkaXEObczzV6J-ptBwLg-t500x500.png">](https://soundcloud.com/chozenofficial/zeds-dead-alive-chozen-sheesh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J5YRuex5fi1fckym-x86HrQ-t500x500.jpg">](https://soundcloud.com/weirdwaifu/blxckhoodie-x-weird-waifu-got-that)
 
-**Artist**: CHOZEN, SHEESH  
+**Artist**: BLXCKHOODIE & WEiRD WAiFU 
 
-**Track**: Zeds Dead - Alive (CHOZEN & SHEESH Remix)
+**Track**: BLXCKHOODIE X WEiRD WAiFU - GOT THAT
 
-Last updated at 1/24/2025, 9:45:38 AM
+Last updated at 1/24/2025, 9:52:39 AM
