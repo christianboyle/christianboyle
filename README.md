@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bc9d6IQqbPf7aYFF-w8skXQ-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away)
 
-**Artist**: bk beats 
+**Artist**: WLLWS 
 
-**Track**: exegesis
+**Track**: Away
 
-Last updated at 1/24/2025, 10:15:26 AM
+Last updated at 1/24/2025, 10:18:16 AM
