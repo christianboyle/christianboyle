@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyya0cBFyFxQxAc3-wkQyyg-t500x500.png">](https://soundcloud.com/scottfarrimond/craigy-b-gypsy-scott-f-edit?in=saxurn/sets/cache-lines/)
 
-**Artist**: bk beats 
+**Artist**: Scott F 
 
-**Track**: exegesis
+**Track**: Craigy B - Gypsy ( Scott F Edit )
 
-Last updated at 1/24/2025, 5:38:54 PM
+Last updated at 1/24/2025, 5:45:19 PM
