@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vMn2XnYjRZLz9dyG-JStp8g-t500x500.png">](https://soundcloud.com/sickish/megan-thee-stallion-motion-sickish-flip?in=saxurn/sets/chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHfFd4ezTWoYbe9X-du9ISw-t500x500.jpg">](https://soundcloud.com/billythekiddub/bass-up-1?in=saxurn/sets/chill)
 
-**Artist**: SICKISH 
+**Artist**: BILLYTHEKID 
 
-**Track**: Megan thee Stallion - Motion SICKISH flip
+**Track**: BASS UP
 
-Last updated at 1/24/2025, 9:22:06 AM
+Last updated at 1/24/2025, 9:24:41 AM
