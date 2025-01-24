@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B5zFveQJE33F4IGl-9RnC2g-t500x500.jpg">](https://soundcloud.com/thisistheoffline/the-offline-milady-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bc9d6IQqbPf7aYFF-w8skXQ-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away)
 
-**Artist**: The Offline 
+**Artist**: WLLWS 
 
-**Track**: The Offline - Milady
+**Track**: Away
 
-Last updated at 1/24/2025, 2:56:05 PM
+Last updated at 1/24/2025, 4:37:59 PM
