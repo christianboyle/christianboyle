@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JQzrgjb57JVximqy-b1yLXA-t500x500.jpg">](https://soundcloud.com/schmuxmusic/snoop-dogg-drop-it-like-its-hot-schmux-flip-ft-pharrell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p0iDd6x9Of7ZJpAj-v5yLvg-t500x500.png">](https://soundcloud.com/circo-380299465/levels-circo-edit-u-p)
 
-**Artist**: SCHMUX 
+**Artist**: CIRCO 
 
-**Track**: Snoop Dogg - Drop It Like Its Hot (SCHMUX Flip) ft Pharrell
+**Track**: Avicii - Levels (CIRCO Edit) [FREE DL]
 
-Last updated at 1/24/2025, 10:37:43 AM
+Last updated at 1/24/2025, 10:40:24 AM
