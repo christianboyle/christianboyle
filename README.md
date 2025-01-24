@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvafyEd3QCzPwRU5-wHtTlw-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/hell-kerbecs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wkquc5EHQbnBN2dB-dA2rlg-t500x500.png">](https://soundcloud.com/glitzclub/dj-bax-17)
 
-**Artist**: AITANA\u2605\u2605OFICIAL 
+**Artist**: Glitz Club 
 
-**Track**: Hell Kerbecs
+**Track**: dj bax - 17
 
-Last updated at 1/24/2025, 12:02:03 PM
+Last updated at 1/24/2025, 12:05:43 PM
