@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ffy1ks6p42Z41Dcw-M0NI2Q-t500x500.jpg">](https://soundcloud.com/remzcore/s3rl-remzcore-play-it-loud?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VPYoRxIotu8tlHeY-UvYNsw-t500x500.png">](https://soundcloud.com/cawfeebreak/the-forest)
 
-**Artist**: Remzcore 
+**Artist**: Sunhiausa 
 
-**Track**: S3RL & Remzcore - Play It Loud 🔊💦
+**Track**: Sunhiausa - The Forest 🍁
 
-Last updated at 1/25/2025, 9:39:08 AM
+Last updated at 1/25/2025, 9:41:43 AM
