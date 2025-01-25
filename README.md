@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaoQMl2yv87P8br8-sTBTAw-t500x500.jpg">](https://soundcloud.com/neo_trance/mero-like-it?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx?in=saxurn/sets/cache-lines)
 
-**Artist**: MËRO 
+**Artist**: ❶keysora 
 
-**Track**: MËRO- Like it
+**Track**: anx1ety p. centrlx
 
-Last updated at 1/25/2025, 9:08:57 AM
+Last updated at 1/25/2025, 9:13:07 AM
