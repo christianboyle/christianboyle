@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ol9P5loZ0Eyv2NYB-hm62zg-t500x500.jpg">](https://soundcloud.com/firelitemusic/justdance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wJ9nmhewRfmlrFko-M87rOQ-t500x500.png">](https://soundcloud.com/sagzmuzic/no-trust)
 
-**Artist**: Firelite 
+**Artist**: SAGZ, Jeffufu 
 
-**Track**: Lady Gaga - Just Dance (Firelite Remix)
+**Track**: No Trust
 
-Last updated at 1/25/2025, 3:53:11 PM
+Last updated at 1/25/2025, 3:54:11 PM
