@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e4nDvgrqktkcZxos-9lqVrA-t500x500.jpg">](https://soundcloud.com/bitbird/sam-day-amazing-the-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OdsWO7l7tNcxC9Jp-jP5Big-t500x500.png">](https://soundcloud.com/ephexbass/urban-descent)
 
-**Artist**: Sam Day 
+**Artist**: Ephex 
 
-**Track**: Sam Day - amazing (the club edit)
+**Track**: Urban Descent
 
-Last updated at 1/25/2025, 3:45:46 PM
+Last updated at 1/25/2025, 3:46:46 PM
