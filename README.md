@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bc9d6IQqbPf7aYFF-w8skXQ-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HOmirAbqSyFbcnf6-okjp6g-t500x500.png">](https://soundcloud.com/mersivsoundproject/looking-inward)
 
-**Artist**: WLLWS 
+**Artist**: Mersiv 
 
-**Track**: Away
+**Track**: Looking Inward
 
-Last updated at 1/25/2025, 10:16:54 AM
+Last updated at 1/25/2025, 3:28:09 PM
