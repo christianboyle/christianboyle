@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TkCYaazz2tUf06sQ-zF5kBA-t500x500.png">](https://soundcloud.com/toxicbassmusic/jackpot-toxic-nghtklr-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053)
 
-**Artist**: Kompany, Ivory/TOXIC, NGHTKLR 
+**Artist**: Tx Records 
 
-**Track**: Kompany & Ivory - Jackpot ft. (Raxdflipnote) TOXIC & NGHTKLR FLIP
+**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
 
-Last updated at 1/25/2025, 4:06:28 PM
+Last updated at 1/25/2025, 4:08:48 PM
