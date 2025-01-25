@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWA5aTbxcs5h-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/pentagramma?in=saxurn/sets/cache-lines)
 
-**Artist**: ❶keysora 
+**Artist**: Ezra Hazard 
 
-**Track**: anx1ety p. centrlx
+**Track**: Pentagramma
 
-Last updated at 1/25/2025, 9:13:07 AM
+Last updated at 1/25/2025, 9:14:58 AM
