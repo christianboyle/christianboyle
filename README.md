@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc7LCPZoLSLmoACB-cI2AUg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-x-ashez-1234-electric-hawk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LlyPly4emnv92RD8-vuKoTQ-t500x500.png">](https://soundcloud.com/manifestdnb/also-plasmator-open-your-eyes)
 
-**Artist**: Buzz Junior, ASHEZ 
+**Artist**: AL/SO, Plasmator 
 
-**Track**: Buzz Junior x ASHEZ - 1234 [Electric Hawk Premiere]
+**Track**: AL/SO, Plasmator - Open Your Eyes
 
-Last updated at 1/25/2025, 3:51:11 PM
+Last updated at 1/25/2025, 3:52:11 PM
