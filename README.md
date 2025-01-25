@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rinelz5v1rIbhHDz-1fpi1A-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-046-rexydexy-lautre-come-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines)
 
-**Artist**: Rexy=Dexy & LAUTRE. 
+**Artist**: bk beats 
 
-**Track**: QGRS-046 | Rexy=Dexy & LAUTRE. - Come With Me
+**Track**: exegesis
 
-Last updated at 1/24/2025, 7:24:50 PM
+Last updated at 1/24/2025, 9:22:02 PM
