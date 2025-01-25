@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyKNm6eaURcd3Rcg-BS4Frg-t500x500.png">](https://soundcloud.com/1keysora/anx1ety-p-centrlx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines)
 
-**Artist**: ❶keysora 
+**Artist**: bk beats 
 
-**Track**: anx1ety p. centrlx
+**Track**: exegesis
 
-Last updated at 1/25/2025, 8:00:06 AM
+Last updated at 1/25/2025, 8:19:14 AM
