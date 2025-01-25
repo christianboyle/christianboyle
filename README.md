@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wJ9nmhewRfmlrFko-M87rOQ-t500x500.png">](https://soundcloud.com/sagzmuzic/no-trust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J5YRuex5fi1fckym-x86HrQ-t500x500.jpg">](https://soundcloud.com/weirdwaifu/blxckhoodie-x-weird-waifu-got-that)
 
-**Artist**: SAGZ, Jeffufu 
+**Artist**: BLXCKHOODIE & WEiRD WAiFU 
 
-**Track**: No Trust
+**Track**: BLXCKHOODIE X WEiRD WAiFU - GOT THAT
 
-Last updated at 1/25/2025, 3:54:11 PM
+Last updated at 1/25/2025, 3:56:51 PM
