@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNaFUWZpNql7-0-t500x500.jpg">](https://soundcloud.com/1985music1985/tokyo-drifting?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5D69BxK3DqpRkEA9-07Bomw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fadeaway-im-sorry?in=saxurn/sets/cache-lines)
 
-**Artist**: Napes 
+**Artist**: Fadeaway 
 
-**Track**: Tokyo Drifting
+**Track**: Fadeaway - I'm Sorry
 
-Last updated at 1/25/2025, 9:20:08 AM
+Last updated at 1/25/2025, 9:24:33 AM
