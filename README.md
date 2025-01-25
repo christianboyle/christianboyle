@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8Z4yCw045Ru15vV-D9cYDg-t500x500.jpg">](https://soundcloud.com/datahousecorporation/usher-yeah-nexboy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TkCYaazz2tUf06sQ-zF5kBA-t500x500.png">](https://soundcloud.com/toxicbassmusic/jackpot-toxic-nghtklr-flip)
 
-**Artist**: DATA HOUSE CORPORATION 
+**Artist**: Kompany, Ivory/TOXIC, NGHTKLR 
 
-**Track**: Usher - Yeah! (NEXBOY Remix)
+**Track**: Kompany & Ivory - Jackpot ft. (Raxdflipnote) TOXIC & NGHTKLR FLIP
 
-Last updated at 1/25/2025, 3:58:56 PM
+Last updated at 1/25/2025, 4:06:28 PM
