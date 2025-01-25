@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines)
 
-**Artist**: JDM GTYM 
+**Artist**: bk beats 
 
-**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
+**Track**: exegesis
 
-Last updated at 1/25/2025, 9:45:24 AM
+Last updated at 1/25/2025, 10:14:01 AM
