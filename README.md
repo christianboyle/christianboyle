@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3I0dNBVdUdL5uMz-XIbyZw-t500x500.png">](https://soundcloud.com/whynotusdnb/rtc?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yEKUyzy1dZV45Ug-aiKBJg-t500x500.png">](https://soundcloud.com/eatermusic/ftbdigestedbyeater?in=saxurn/sets/zooted/)
 
-**Artist**: WHYNOTUS 
+**Artist**: Eater 
 
-**Track**: Rob The Casino
+**Track**: Levity - Front To Back (Digested By Eater)
 
-Last updated at 1/26/2025, 3:01:46 PM
+Last updated at 1/26/2025, 3:21:18 PM
