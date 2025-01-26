@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJNzbLlkGq8hHtJm-OJgKgA-t500x500.jpg">](https://soundcloud.com/sts67/peekaboo-reload-scratch-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DzPrE6YC00ly5XzI-BmwcMg-t500x500.jpg">](https://soundcloud.com/friendsforeverr/trophy-prod-ivvys)
 
-**Artist**: Scratch the Surface 
+**Artist**: friends 
 
-**Track**: Caspa x Peekaboo Reload (Scratch the Surface Flip)
+**Track**: friends   ‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ trophy ivvys
 
-Last updated at 1/26/2025, 3:29:36 PM
+Last updated at 1/26/2025, 3:30:36 PM
