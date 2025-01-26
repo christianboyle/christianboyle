@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMt9izx4AbZdp3dl-IFTU9Q-t500x500.png">](https://soundcloud.com/webcage/anylonger?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-710rgd1WyzrmWuX6-yAPblQ-t500x500.jpg">](https://soundcloud.com/rankzsound/fein-rankz-flip)
 
-**Artist**: webcage 
+**Artist**: RANKZ 
 
-**Track**: anylonger
+**Track**: Travis Scott - FE!N (RANKZ Flip) [Free DL For Full Version]
 
-Last updated at 1/26/2025, 9:09:33 AM
+Last updated at 1/26/2025, 9:10:33 AM
