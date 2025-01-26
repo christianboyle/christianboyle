@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVEJUFMzgM0d1lBd-fR0nwA-t500x500.png">](https://soundcloud.com/djnefu/the-weeknd-die-for-you-nefu-reroll-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJNzbLlkGq8hHtJm-OJgKgA-t500x500.jpg">](https://soundcloud.com/sts67/peekaboo-reload-scratch-the)
 
-**Artist**: Nefu 
+**Artist**: Scratch the Surface 
 
-**Track**: The Weeknd - Die for You [Nefu Reroll]
+**Track**: Caspa x Peekaboo Reload (Scratch the Surface Flip)
 
-Last updated at 1/26/2025, 3:28:31 PM
+Last updated at 1/26/2025, 3:29:36 PM
