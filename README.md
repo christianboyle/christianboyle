@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmo6IQycCKOrv64w-IF8Cug-t500x500.jpg">](https://soundcloud.com/disentr/destroy-lonely-lock-in-disentr?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVEJUFMzgM0d1lBd-fR0nwA-t500x500.png">](https://soundcloud.com/djnefu/the-weeknd-die-for-you-nefu-reroll-free-dl)
 
-**Artist**: DISENTR 
+**Artist**: Nefu 
 
-**Track**: Destroy Lonely - Lock In (Disentr Flip)
+**Track**: The Weeknd - Die for You [Nefu Reroll]
 
-Last updated at 1/26/2025, 3:23:28 PM
+Last updated at 1/26/2025, 3:28:31 PM
