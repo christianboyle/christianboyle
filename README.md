@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0U7aTZ3KGxJ6hzKM-PfLR4g-t500x500.jpg">](https://soundcloud.com/badmouthrecs/mstic-kuhlosul-bodybagz?in=saxurn/sets/zooted/)
 
-**Artist**: JDM GTYM 
+**Artist**: M?STIC & KUHLOSUL 
 
-**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
+**Track**: M?STIC & KUHLOSUL - BODYBAGZ
 
-Last updated at 1/26/2025, 9:04:06 AM
+Last updated at 1/26/2025, 9:07:16 AM
