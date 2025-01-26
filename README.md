@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-710rgd1WyzrmWuX6-yAPblQ-t500x500.jpg">](https://soundcloud.com/rankzsound/fein-rankz-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEtgRGglKVt8nTW1-COeSCA-t500x500.jpg">](https://soundcloud.com/wubsonofficial/leave-it-all?in=saxurn/sets/zooted/)
 
-**Artist**: RANKZ 
+**Artist**: Wubson 
 
-**Track**: Travis Scott - FE!N (RANKZ Flip) [Free DL For Full Version]
+**Track**: Leave It All (On The Floor) [FREE DL]
 
-Last updated at 1/26/2025, 9:10:33 AM
+Last updated at 1/26/2025, 9:11:34 AM
