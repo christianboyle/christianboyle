@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ol9P5loZ0Eyv2NYB-hm62zg-t500x500.jpg">](https://soundcloud.com/firelitemusic/justdance?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3I0dNBVdUdL5uMz-XIbyZw-t500x500.png">](https://soundcloud.com/whynotusdnb/rtc?in=saxurn/sets/zooted/)
 
-**Artist**: Firelite 
+**Artist**: WHYNOTUS 
 
-**Track**: Lady Gaga - Just Dance (Firelite Remix)
+**Track**: Rob The Casino
 
-Last updated at 1/26/2025, 2:58:06 PM
+Last updated at 1/26/2025, 3:01:46 PM
