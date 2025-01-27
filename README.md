@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuI7wmaXDhRPVtyI-L3xKug-t500x500.png">](https://soundcloud.com/crunchimusic/fever-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yeoiGsoNFd9891jF-F6qQ7g-t500x500.png">](https://soundcloud.com/mrjennings/returnofthetres)
 
-**Artist**: CRUNCHi 
+**Artist**: Mr Jennings 
 
-**Track**: CRUNCHi - FEVER DREAM
+**Track**: Delinquent Habits - Return of the Tres (Mr Jennings flip)
 
-Last updated at 1/27/2025, 10:07:55 AM
+Last updated at 1/27/2025, 10:09:35 AM
