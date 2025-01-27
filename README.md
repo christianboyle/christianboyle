@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMt9izx4AbZdp3dl-IFTU9Q-t500x500.png">](https://soundcloud.com/webcage/anylonger?in=saxurn/sets/zooted/)
 
-**Artist**: bk beats 
+**Artist**: webcage 
 
-**Track**: exegesis
+**Track**: anylonger
 
-Last updated at 1/27/2025, 2:39:20 PM
+Last updated at 1/27/2025, 2:47:03 PM
