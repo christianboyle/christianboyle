@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bLZKJIU9uog1-0-t500x500.jpg">](https://soundcloud.com/heklermusic/moonpie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3d3NOWWFUPpdhc4-N9NfRQ-t500x500.png">](https://soundcloud.com/definitepartymaterial/veronique-samsung-nrj-du-desespoir)
 
-**Artist**: Hekler 
+**Artist**: Véronique Samsung 
 
-**Track**: MOONPIE
+**Track**: PREMIERE: Véronique Samsung - NRJ du Désespoir [Human Disease Network]
 
-Last updated at 1/27/2025, 10:24:43 AM
+Last updated at 1/27/2025, 10:57:38 AM
