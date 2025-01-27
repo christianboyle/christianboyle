@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xzB1ONsK3YbOSfH-cIuFDA-t500x500.jpg">](https://soundcloud.com/badmouthrecs/veiled-eye-felt-like-dis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pc6rV6uTwaI3lz8r-fzdvcA-t500x500.jpg">](https://soundcloud.com/officialjackel/diva-jackel-remix)
 
-**Artist**: VEILED EYE 
+**Artist**: Beyoncé 
 
-**Track**: VEILED EYE - FELT LIKE THIS
+**Track**: Diva (JackEL Remix) [Free DL]
 
-Last updated at 1/27/2025, 7:37:20 AM
+Last updated at 1/27/2025, 7:38:20 AM
