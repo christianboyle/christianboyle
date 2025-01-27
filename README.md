@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFVxVfSmfW5hPzMU-YZ6eYg-t500x500.png">](https://soundcloud.com/definitepartymaterial/chungo-pupazzo?in=definitepartymaterial/sets/definite-party-material)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5?in=saxurn/sets/zooted/)
 
-**Artist**: Chungo 
+**Artist**: JDM GTYM 
 
-**Track**: PREMIERE: Chungo - Pupazzo [Dudbridge Garage International]
+**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
 
-Last updated at 1/27/2025, 2:01:46 PM
+Last updated at 1/27/2025, 2:06:22 PM
