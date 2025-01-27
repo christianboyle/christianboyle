@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3d3NOWWFUPpdhc4-N9NfRQ-t500x500.png">](https://soundcloud.com/definitepartymaterial/veronique-samsung-nrj-du-desespoir)
 
-**Artist**: Tx Records 
+**Artist**: Véronique Samsung 
 
-**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
+**Track**: PREMIERE: Véronique Samsung - NRJ du Désespoir [Human Disease Network]
 
-Last updated at 1/27/2025, 11:20:40 AM
+Last updated at 1/27/2025, 1:55:26 PM
