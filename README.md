@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZWM60ZFEnxt925y-nUyayg-t500x500.png">](https://soundcloud.com/mugensound/mugen-x-janus-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTnyrEy1WMSXTs6P-6IEIfQ-t500x500.jpg">](https://soundcloud.com/fadedblackid/sebiifbkbeer)
 
-**Artist**: Mugen, Janus 
+**Artist**: fadedblackid 
 
-**Track**: MUGEN X JANUS - DREAMS
+**Track**: SEBii - BEER + SLUTii (2024) [Prod. Fadedblackid, Hollow, BrokeBoiShy]
 
-Last updated at 1/27/2025, 10:03:24 AM
+Last updated at 1/27/2025, 10:06:49 AM
