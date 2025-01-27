@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4FJJtGK8E5Tj1Qv-4nUTiA-t500x500.png">](https://soundcloud.com/st4rrymsc/on-my-own)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xzB1ONsK3YbOSfH-cIuFDA-t500x500.jpg">](https://soundcloud.com/badmouthrecs/veiled-eye-felt-like-dis)
 
-**Artist**: ☆ry, rq 
+**Artist**: VEILED EYE 
 
-**Track**: on my own w/ rq (14106lyn)
+**Track**: VEILED EYE - FELT LIKE THIS
 
-Last updated at 1/27/2025, 7:36:05 AM
+Last updated at 1/27/2025, 7:37:20 AM
