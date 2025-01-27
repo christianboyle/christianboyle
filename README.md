@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmo6IQycCKOrv64w-IF8Cug-t500x500.jpg">](https://soundcloud.com/disentr/destroy-lonely-lock-in-disentr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170760639-4whj4o-t500x500.jpg">](https://soundcloud.com/instupendo/asap)
 
-**Artist**: DISENTR 
+**Artist**: instupendo 
 
-**Track**: Destroy Lonely - Lock In (Disentr Flip)
+**Track**: long live.
 
-Last updated at 1/27/2025, 7:23:54 AM
+Last updated at 1/27/2025, 7:24:54 AM
