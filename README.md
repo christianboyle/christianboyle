@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cCmzhe5awOZJSmLH-wYxWVg-t500x500.png">](https://soundcloud.com/monsoonseasonus/primal-douma?in=monsoonseasonus/sets/first-edition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZWM60ZFEnxt925y-nUyayg-t500x500.png">](https://soundcloud.com/mugensound/mugen-x-janus-dreams)
 
-**Artist**: Primal 
+**Artist**: Mugen, Janus 
 
-**Track**: Primal - Douma (SHLLSHCK Premiere) [Monsoon Season Exclusive]
+**Track**: MUGEN X JANUS - DREAMS
 
-Last updated at 1/27/2025, 10:02:04 AM
+Last updated at 1/27/2025, 10:03:24 AM
