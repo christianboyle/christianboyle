@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000170760639-4whj4o-t500x500.jpg">](https://soundcloud.com/instupendo/asap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lx8ipMhlCdv10IGC-CkrXxw-t500x500.jpg">](https://soundcloud.com/transition_ofc/premiere-arkane-faded-memories-edns-2000s-tool-mix-com034)
 
-**Artist**: instupendo 
+**Artist**: TRANSITION 
 
-**Track**: long live.
+**Track**: PREMIERE: Arkane – Faded Memories (E.DN's 2000s Tool Mix) [COM034]
 
-Last updated at 1/27/2025, 7:24:54 AM
+Last updated at 1/27/2025, 7:25:59 AM
