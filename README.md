@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053?in=saxurn/sets/zooted/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis?in=saxurn/sets/cache-lines)
 
-**Artist**: Tx Records 
+**Artist**: bk beats 
 
-**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
+**Track**: exegesis
 
-Last updated at 1/27/2025, 2:34:09 PM
+Last updated at 1/27/2025, 2:39:20 PM
