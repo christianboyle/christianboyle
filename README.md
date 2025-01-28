@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYWR51wtKWh7AHRT-zzmx6A-t500x500.png">](https://soundcloud.com/nd4_dj/betsy-sigma-boy-nd4-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UpGC8oy8FP4oROFg-1uDyig-t500x500.jpg">](https://soundcloud.com/warind/warind-denis-dekay-when-im-gone)
 
-**Artist**: ND4 
+**Artist**: WarinD 
 
-**Track**: Betsy & Mariya - Sigma Boy (ND4 remix)
+**Track**: WarinD & Denis Dekay - When I'm Gone [WR041]
 
-Last updated at 1/28/2025, 2:17:38 PM
+Last updated at 1/28/2025, 2:19:24 PM
