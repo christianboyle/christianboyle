@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uRZFJ4yCXzGzJSWQ-IJvegw-t500x500.jpg">](https://soundcloud.com/frizzyboyz/wali-tobat-maksiat-frizzyboyz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QKUX47kczYTRZXri-nF4OyA-t500x500.jpg">](https://soundcloud.com/nate-bryan-2/had2go-20)
 
-**Artist**: Frizzyboyz 
+**Artist**: EEPHUS 
 
-**Track**: Wali - Tobat Maksiat (Frizzyboyz Edit)
+**Track**: Had2GO!
 
-Last updated at 1/28/2025, 7:00:22 AM
+Last updated at 1/28/2025, 7:01:22 AM
