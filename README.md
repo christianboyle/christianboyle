@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DaklCRUy5bwd7L0e-ON69eg-t500x500.png">](https://soundcloud.com/technomeetstalent/mitro-90s-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wpkxgdt1JYmqDwfh-pCsqyw-t500x500.jpg">](https://soundcloud.com/expelyourdemons/free-dl-stain-valley-square-pusher-eydfds084)
 
-**Artist**: Mitro 
+**Artist**: Stain Valley 
 
-**Track**: Mitro - 90s
+**Track**: Free DL | Stain Valley - Square Pusher [EYDFDS084]
 
-Last updated at 1/28/2025, 2:24:44 PM
+Last updated at 1/28/2025, 2:29:35 PM
