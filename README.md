@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QKUX47kczYTRZXri-nF4OyA-t500x500.jpg">](https://soundcloud.com/nate-bryan-2/had2go-20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HIATVO58sJVxOzC-csOOlw-t500x500.png">](https://soundcloud.com/lukenoizelukenoize/luke-noize-pump-it-pulp-fiction-free-dl)
 
-**Artist**: EEPHUS 
+**Artist**: Luke Noize 
 
-**Track**: Had2GO!
+**Track**: Luke Noize - Pump It (Pulp Fiction) [FREE DL]
 
-Last updated at 1/28/2025, 7:01:22 AM
+Last updated at 1/28/2025, 7:02:27 AM
