@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yEKUyzy1dZV45Ug-aiKBJg-t500x500.png">](https://soundcloud.com/eatermusic/ftbdigestedbyeater?in=saxurn/sets/zooted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-heTc2Z5RftUR53uM-t9j7eQ-t500x500.jpg">](https://soundcloud.com/spaceyacht/crunchi-bad-bitches-luv-tecnho-feat-bri?in=saxurn/sets/zooted)
 
-**Artist**: Eater 
+**Artist**: CRUNCHi 
 
-**Track**: Levity - Front To Back (Digested By Eater)
+**Track**: CRUNCHi - BAD BiTCHES LUV TECHNO
 
-Last updated at 1/28/2025, 2:00:47 PM
+Last updated at 1/28/2025, 2:02:57 PM
