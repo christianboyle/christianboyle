@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vunx3h7YRvPJoGGK-vpkyTQ-t500x500.png">](https://soundcloud.com/kanakamusic/control-kanaka-flip?in=saxurn/sets/zooted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053?in=saxurn/sets/zooted)
 
-**Artist**: KANAKA 
+**Artist**: Tx Records 
 
-**Track**: Tisoki - CONTROL (KANAKA Flip)
+**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
 
-Last updated at 1/28/2025, 2:06:17 PM
+Last updated at 1/28/2025, 2:08:43 PM
