@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrJCUGGxVvGPqk2k-3iWLzw-t500x500.png">](https://soundcloud.com/txrecords/premiere-nvxrrx-i-love-hard-drugs-lex-digital-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5?in=saxurn/sets/zooted)
 
-**Artist**: Tx Records 
+**Artist**: JDM GTYM 
 
-**Track**: PREMIERE: NVXRRX - I Love Hard Drugs (LEX DIGITAL Remix)
+**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
 
-Last updated at 1/28/2025, 9:57:06 AM
+Last updated at 1/28/2025, 1:40:45 PM
