@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duJzQoqGA8OTykqR-zRWsoA-t500x500.png">](https://soundcloud.com/teewave-records/rhadamanthe-x-trypdo-abyss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ivtHIHpDiUBGlxXv-KkrXlA-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-no-id-x-gewoonraves-taking-over-me)
 
-**Artist**: Teewave Records 
+**Artist**: GEWOONRAVES 
 
-**Track**: RHADAMANTHE x TRYPDØ - ABYSS WALKER
+**Track**: [FREE DL] No-ID x GEWOONRAVES - Taking Over Me
 
-Last updated at 1/28/2025, 2:44:46 PM
+Last updated at 1/28/2025, 2:50:52 PM
