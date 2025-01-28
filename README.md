@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nV6uRfoTgIXWR4Cq-JsLBfg-t500x500.jpg">](https://soundcloud.com/webcage/freakout)
 
-**Artist**: JDM GTYM 
+**Artist**: webcage 
 
-**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
+**Track**: freakout
 
-Last updated at 1/28/2025, 9:37:06 AM
+Last updated at 1/28/2025, 9:40:32 AM
