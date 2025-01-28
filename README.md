@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053?in=saxurn/sets/zooted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5?in=saxurn/sets/zooted)
 
-**Artist**: Tx Records 
+**Artist**: JDM GTYM 
 
-**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
+**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
 
-Last updated at 1/28/2025, 3:22:45 PM
+Last updated at 1/28/2025, 3:27:05 PM
