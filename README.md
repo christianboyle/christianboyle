@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HIATVO58sJVxOzC-csOOlw-t500x500.png">](https://soundcloud.com/lukenoizelukenoize/luke-noize-pump-it-pulp-fiction-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-csNUKQ3mwzw5fb4A-9Qh5FQ-t500x500.jpg">](https://soundcloud.com/wicked0620/schoolboy-q-yern-101-0ddalphas-remix)
 
-**Artist**: Luke Noize 
+**Artist**: 0DD alphas 
 
-**Track**: Luke Noize - Pump It (Pulp Fiction) [FREE DL]
+**Track**: SCHOOLBOY Q - YERN 101 (0DDALPHAS bootleg) Free DL
 
-Last updated at 1/28/2025, 7:02:27 AM
+Last updated at 1/28/2025, 7:03:32 AM
