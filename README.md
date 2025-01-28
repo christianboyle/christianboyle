@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JrJCUGGxVvGPqk2k-3iWLzw-t500x500.png">](https://soundcloud.com/txrecords/premiere-nvxrrx-i-love-hard-drugs-lex-digital-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYWR51wtKWh7AHRT-zzmx6A-t500x500.png">](https://soundcloud.com/nd4_dj/betsy-sigma-boy-nd4-remix)
 
-**Artist**: Tx Records 
+**Artist**: ND4 
 
-**Track**: PREMIERE: NVXRRX - I Love Hard Drugs (LEX DIGITAL Remix)
+**Track**: Betsy & Mariya - Sigma Boy (ND4 remix)
 
-Last updated at 1/28/2025, 2:13:53 PM
+Last updated at 1/28/2025, 2:17:38 PM
