@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rtoVkzx9spbLJkv1-vDHqlw-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-lex-ledu-x-ali-james-x-gewoonraves-hardcore-mf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053?in=saxurn/sets/zooted)
 
-**Artist**: GEWOONRAVES 
+**Artist**: Tx Records 
 
-**Track**: [FREE DL] Lex Ledu x Ali James x Gewoonraves - Hardcore MF
+**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
 
-Last updated at 1/28/2025, 2:58:03 PM
+Last updated at 1/28/2025, 3:22:45 PM
