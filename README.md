@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-470z7bWGuF0Zgyr3-UpdqiA-t500x500.jpg">](https://soundcloud.com/webcage/groupie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2AYlA9WRQQQRu8nX-WWHjzQ-t500x500.jpg">](https://soundcloud.com/dylazy/seanie)
 
-**Artist**: webcage 
+**Artist**: dylazy 
 
-**Track**: groupie
+**Track**: seanie
 
-Last updated at 1/28/2025, 9:45:02 AM
+Last updated at 1/28/2025, 9:48:33 AM
