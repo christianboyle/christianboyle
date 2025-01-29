@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDVpU7Mi1NiN9p6r-XKjGgQ-t500x500.jpg">](https://soundcloud.com/keifergr33n/denzel-curry-ultimate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuI7wmaXDhRPVtyI-L3xKug-t500x500.png">](https://soundcloud.com/crunchimusic/fever-dream)
 
-**Artist**: KEIFERGR33N 
+**Artist**: CRUNCHi 
 
-**Track**: Denzel Curry - Ultimate (KEIFERGR33N Remix)
+**Track**: CRUNCHi - FEVER DREAM
 
-Last updated at 1/29/2025, 10:29:25 AM
+Last updated at 1/29/2025, 10:32:53 AM
