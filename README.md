@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bc9d6IQqbPf7aYFF-w8skXQ-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrFNT3yUgHW9yu1X-nEdP5A-t500x500.jpg">](https://soundcloud.com/keifergr33n/linkin-park-hit-the-floor-x)
 
-**Artist**: WLLWS 
+**Artist**: KEIFERGR33N 
 
-**Track**: Away
+**Track**: Linkin Park - Hit The Floor x Gucci Mane & Waka Flocka - 15th and the 1st (KEIFERGR33N Remix)
 
-Last updated at 1/29/2025, 11:47:05 AM
+Last updated at 1/29/2025, 1:10:19 PM
