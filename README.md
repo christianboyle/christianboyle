@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jMt9izx4AbZdp3dl-IFTU9Q-t500x500.png">](https://soundcloud.com/webcage/anylonger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/meteor-strike)
 
-**Artist**: webcage 
+**Artist**: Stariah 
 
-**Track**: anylonger
+**Track**: Stariah - Meteor Strike
 
-Last updated at 1/29/2025, 1:58:44 PM
+Last updated at 1/29/2025, 2:02:59 PM
