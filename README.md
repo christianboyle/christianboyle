@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImemWOZiOht3-0-t500x500.png">](https://soundcloud.com/barclay-crenshaw-33544993/big-in-the-game-feat-snowy-2?in=shanghaidoom/sets/big-in-the-game-shanghai-doom)
 
-**Artist**: JDM GTYM 
+**Artist**: Barclay Crenshaw, Snowy and Manga Saint Hilare featuring Shanghai Doom 
 
-**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
+**Track**: Big In The Game  (feat. Snowy & Manga Saint Hilare) (Shanghai Doom Remix)
 
-Last updated at 1/29/2025, 6:26:20 AM
+Last updated at 1/29/2025, 6:38:32 AM
