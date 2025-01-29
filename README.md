@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEtgRGglKVt8nTW1-COeSCA-t500x500.jpg">](https://soundcloud.com/wubsonofficial/leave-it-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ol9P5loZ0Eyv2NYB-hm62zg-t500x500.jpg">](https://soundcloud.com/firelitemusic/justdance)
 
-**Artist**: Wubson 
+**Artist**: Firelite 
 
-**Track**: Leave It All (On The Floor) [FREE DL]
+**Track**: Lady Gaga - Just Dance (Firelite Remix)
 
-Last updated at 1/29/2025, 11:11:02 AM
+Last updated at 1/29/2025, 11:14:57 AM
