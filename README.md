@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImemWOZiOht3-0-t500x500.png">](https://soundcloud.com/barclay-crenshaw-33544993/big-in-the-game-feat-snowy-2?in=shanghaidoom/sets/big-in-the-game-shanghai-doom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtIdvae8jFwlvpPl-s70EyA-t500x500.jpg">](https://soundcloud.com/noyusmusic/illusions-noyus-x-naptalim)
 
-**Artist**: Barclay Crenshaw, Snowy and Manga Saint Hilare featuring Shanghai Doom 
+**Artist**: Noyus x naptalim 
 
-**Track**: Big In The Game  (feat. Snowy & Manga Saint Hilare) (Shanghai Doom Remix)
+**Track**: Illusions - Noyus x naptalim
 
-Last updated at 1/29/2025, 6:38:32 AM
+Last updated at 1/29/2025, 6:39:37 AM
