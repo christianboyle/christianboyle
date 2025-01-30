@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLCelYLxEYCbzWD7-uGR4pw-t500x500.jpg">](https://soundcloud.com/lstree/unheard-sounds-vol-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uKns539Ppjwu3vDg-NToqig-t500x500.png">](https://soundcloud.com/saturaterecords/rational-soul-darn-starless)
 
-**Artist**: LSTree 
+**Artist**: RATIONAL SOUL 
 
-**Track**: Unheard Sounds Vol 2
+**Track**: RATIONAL SOUL & DARN - STARLESS NIGHTS INTO SUNLESS DAYS
 
-Last updated at 1/30/2025, 4:42:03 PM
+Last updated at 1/30/2025, 4:43:03 PM
