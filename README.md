@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyDzKJigjL6exMg6-C85hdw-t500x500.jpg">](https://soundcloud.com/yaaa03/dont_stop_the_music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLCelYLxEYCbzWD7-uGR4pw-t500x500.jpg">](https://soundcloud.com/lstree/unheard-sounds-vol-2)
 
-**Artist**: yax03 
+**Artist**: LSTree 
 
-**Track**: DON'T STOP THE MUSIC
+**Track**: Unheard Sounds Vol 2
 
-Last updated at 1/30/2025, 4:36:02 PM
+Last updated at 1/30/2025, 4:42:03 PM
