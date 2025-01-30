@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DA9lIBAsl2SuX0Na-F9dbDg-t500x500.jpg">](https://soundcloud.com/funktheempire/2009dubstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THieCByiL2hKjgu7-Tzf4ZQ-t500x500.png">](https://soundcloud.com/laurel-572942456/3e1)
 
-**Artist**: Funk the Empire 
+**Artist**: laurel 
 
-**Track**: 2009
+**Track**: old habits die hard
 
-Last updated at 1/30/2025, 4:31:57 PM
+Last updated at 1/30/2025, 4:32:57 PM
