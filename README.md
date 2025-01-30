@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmGE2VyXM118aqeO-3Bf2Nw-t500x500.png">](https://soundcloud.com/s3rl/s3rl-ultimately-presents)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-heTc2Z5RftUR53uM-t9j7eQ-t500x500.jpg">](https://soundcloud.com/spaceyacht/crunchi-bad-bitches-luv-tecnho-feat-bri)
 
-**Artist**: S3RL 
+**Artist**: CRUNCHi 
 
-**Track**: S3RL Ultimately Presents...
+**Track**: CRUNCHi - BAD BiTCHES LUV TECHNO
 
-Last updated at 1/29/2025, 7:33:58 PM
+Last updated at 1/30/2025, 6:13:48 AM
