@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-heTc2Z5RftUR53uM-t9j7eQ-t500x500.jpg">](https://soundcloud.com/spaceyacht/crunchi-bad-bitches-luv-tecnho-feat-bri)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trJDWdu2ekbUYrte-8aEeSQ-t500x500.jpg">](https://soundcloud.com/basscon/s3rl-alien-feat-kayliana)
 
-**Artist**: CRUNCHi 
+**Artist**: S3RL 
 
-**Track**: CRUNCHi - BAD BiTCHES LUV TECHNO
+**Track**: S3RL - Alien (feat. Kayliana)
 
-Last updated at 1/30/2025, 6:13:48 AM
+Last updated at 1/30/2025, 6:18:53 AM
