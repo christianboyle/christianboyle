@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8QqDMtJIy4bvuwNS-hcOJ2g-t500x500.jpg">](https://soundcloud.com/scarexxmusic/bang-ur-head-myr-x-soul-x-scarexx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TKzEv5QQTXvwyWqa-lAnF8w-t500x500.jpg">](https://soundcloud.com/dnzrecords/fran-deliro-feat-paco-project-tarambana)
 
-**Artist**: SCAREXX 
+**Artist**: Fran Deliro 
 
-**Track**: DIESEL & Hairitage - BANG YOUR HEAD (Scarexx X Soul Valient X MYR Remix)
+**Track**: Fran Deliro Feat. Paco Project - Tarambana
 
-Last updated at 1/30/2025, 6:24:04 AM
+Last updated at 1/30/2025, 6:25:09 AM
