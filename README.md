@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053?in=saxurn/sets/zooted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qmGE2VyXM118aqeO-3Bf2Nw-t500x500.png">](https://soundcloud.com/s3rl/s3rl-ultimately-presents)
 
-**Artist**: Tx Records 
+**Artist**: S3RL 
 
-**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
+**Track**: S3RL Ultimately Presents...
 
-Last updated at 1/29/2025, 4:34:13 PM
+Last updated at 1/29/2025, 7:33:58 PM
