@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TKzEv5QQTXvwyWqa-lAnF8w-t500x500.jpg">](https://soundcloud.com/dnzrecords/fran-deliro-feat-paco-project-tarambana)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6oyKApGnhNa9QJJN-dgokEw-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-2025-showcase)
 
-**Artist**: Fran Deliro 
+**Artist**: BLAIZE 
 
-**Track**: Fran Deliro Feat. Paco Project - Tarambana
+**Track**: Blaize 2025 Showcase
 
-Last updated at 1/30/2025, 6:25:09 AM
+Last updated at 1/30/2025, 6:26:14 AM
