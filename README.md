@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6oyKApGnhNa9QJJN-dgokEw-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-2025-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000280852421-of82ya-t500x500.jpg">](https://soundcloud.com/dek-troniks/smoke-eop-vip-1)
 
-**Artist**: BLAIZE 
+**Artist**: Dek-Troniks\u2122 
 
-**Track**: Blaize 2025 Showcase
+**Track**: Smoke  [E.O.P VIP]
 
-Last updated at 1/30/2025, 6:26:14 AM
+Last updated at 1/30/2025, 6:27:24 AM
