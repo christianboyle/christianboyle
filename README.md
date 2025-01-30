@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xR5LwiBZ1kFvO28-ElbdLQ-t500x500.jpg">](https://soundcloud.com/uraiofficial/knife-party-internet-friends-urai-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cPfDnyBvtLCfA0Nt-mffThQ-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/skinny-limbs-im-bussin)
 
-**Artist**: URAI 
+**Artist**: Skinny Limbs 
 
-**Track**: KNIFE PARTY - INTERNET FRIENDS (URAI FLIP)
+**Track**: Skinny Limbs - I'm Bussin
 
-Last updated at 1/30/2025, 4:44:38 PM
+Last updated at 1/30/2025, 4:47:08 PM
