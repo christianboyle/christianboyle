@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cPfDnyBvtLCfA0Nt-mffThQ-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/skinny-limbs-im-bussin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ypOxgSyd0tmKDd5-myIgWw-t500x500.png">](https://soundcloud.com/ujuumusic/life)
 
-**Artist**: Skinny Limbs 
+**Artist**: Ujuu 
 
-**Track**: Skinny Limbs - I'm Bussin
+**Track**: Life
 
-Last updated at 1/30/2025, 4:47:08 PM
+Last updated at 1/30/2025, 4:48:08 PM
