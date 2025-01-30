@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QH0Ynx6MXyKKaHz8-l55PAw-t500x500.jpg">](https://soundcloud.com/cristian-ortiz-26169802/freedl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyDzKJigjL6exMg6-C85hdw-t500x500.jpg">](https://soundcloud.com/yaaa03/dont_stop_the_music)
 
-**Artist**: GoodT!mez 
+**Artist**: yax03 
 
-**Track**: GoodT!mez - Blank Spaces (Original Mix)
+**Track**: DON'T STOP THE MUSIC
 
-Last updated at 1/30/2025, 4:35:02 PM
+Last updated at 1/30/2025, 4:36:02 PM
