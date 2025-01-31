@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000436498059-zfvfoz-t500x500.jpg">](https://soundcloud.com/jasonbouseproductions/s-3-r-l-a-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000063311834-qw31hl-t500x500.jpg">](https://soundcloud.com/s3rl/friendzoned-radio-edit-emfa)
 
-**Artist**: Jason Bouse 
+**Artist**: S3RL 
 
-**Track**: S 3 R L - (A Mashup)
+**Track**: FriendZoned - S3RL feat Mixie Moon
 
-Last updated at 1/30/2025, 7:15:33 PM
+Last updated at 1/30/2025, 7:19:58 PM
