@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzDzyBydGrqUui77-zzJgKQ-t500x500.jpg">](https://soundcloud.com/webcage/are-you-mad?in=saxurn/sets/buster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNgkmIX4M5zZPOmw-0RbzCg-t500x500.jpg">](https://soundcloud.com/armnhmr/thelovewehad?in=saxurn/sets/buster)
 
-**Artist**: webcage 
+**Artist**: ARMNHMR 
 
-**Track**: are you mad
+**Track**: ARMNHMR - The Love We Had (feat. Trella)
 
-Last updated at 1/30/2025, 6:20:18 PM
+Last updated at 1/30/2025, 6:22:54 PM
