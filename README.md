@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6s8xRncRVt9J5v3N-8btBiA-t500x500.jpg">](https://soundcloud.com/darn84/druid-stormtrooper-body-rock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktUzAjuYJ2F1JMnj-EjuUjw-t500x500.jpg">](https://soundcloud.com/rudeservice/humansion-realm-of-shadows)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: HUMANSION 
 
-**Track**: Druid & Stormtrooper - Body Rock - TNC LTD (2006)
+**Track**: HUMANSION - Realm Of Shadows
 
-Last updated at 1/31/2025, 11:22:36 AM
+Last updated at 1/31/2025, 11:23:36 AM
