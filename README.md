@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trJDWdu2ekbUYrte-8aEeSQ-t500x500.jpg">](https://soundcloud.com/basscon/s3rl-alien-feat-kayliana?in=saxurn/sets/bussin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7e9uvp3LCUlD5I6e-L8YWeA-t500x500.jpg">](https://soundcloud.com/s3rl/lovebomb-s3rl-x-bombeiexe)
 
-**Artist**: S3RL 
+**Artist**: S3RL, BOMBEI.exe 
 
-**Track**: S3RL - Alien (feat. Kayliana)
+**Track**: LoveBOMB - S3RL x BOMBEI.exe
 
-Last updated at 1/31/2025, 9:41:24 AM
+Last updated at 1/31/2025, 9:44:29 AM
