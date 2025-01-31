@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trJDWdu2ekbUYrte-8aEeSQ-t500x500.jpg">](https://soundcloud.com/basscon/s3rl-alien-feat-kayliana?in=saxurn/sets/blockbussin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzDzyBydGrqUui77-zzJgKQ-t500x500.jpg">](https://soundcloud.com/webcage/are-you-mad?in=saxurn/sets/blockbussin)
 
-**Artist**: S3RL 
+**Artist**: webcage 
 
-**Track**: S3RL - Alien (feat. Kayliana)
+**Track**: are you mad
 
-Last updated at 1/31/2025, 11:57:44 AM
+Last updated at 1/31/2025, 1:53:00 PM
