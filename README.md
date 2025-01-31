@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8zZ0bQ6sLz2UiiO-mzpbgA-t500x500.jpg">](https://soundcloud.com/darn84/mark-eg-side-a-dizstruxshon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqOXPRFfzRF01zaT-EsRZIQ-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/spritzur-przm-mine)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: PRZM & Spritzur 
 
-**Track**: Mark EG (Side A) @ Dizstruxshon - Industry (13/08/2005)
+**Track**: Spritzur & PRZM - Mine
 
-Last updated at 1/31/2025, 11:27:15 AM
+Last updated at 1/31/2025, 11:29:11 AM
