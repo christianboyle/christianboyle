@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzkJAxqDipUV3y9I-buzPig-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-test-your-might?in=saxurn/sets/buster/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuI7wmaXDhRPVtyI-L3xKug-t500x500.png">](https://soundcloud.com/crunchimusic/fever-dream?in=saxurn/sets/buster/)
 
-**Artist**: DJ INTENT 
+**Artist**: CRUNCHi 
 
-**Track**: JGS & INTENT - Test Your Might (Free Download)
+**Track**: CRUNCHi - FEVER DREAM
 
-Last updated at 1/31/2025, 8:25:38 AM
+Last updated at 1/31/2025, 8:30:34 AM
