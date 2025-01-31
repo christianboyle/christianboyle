@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqnQf3dGNylPDbOU-K8g8ng-t500x500.jpg">](https://soundcloud.com/soldier_2322/let-go-interlude-prod-pipebomb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000466103472-xotlhp-t500x500.jpg">](https://soundcloud.com/s3rl/ravers-mashup-s3rl)
 
-**Artist**: soldier artillery 
+**Artist**: S3RL 
 
-**Track**: Let go interlude (prod.pipebomb)
+**Track**: Ravers Mashup - S3RL
 
-Last updated at 1/30/2025, 7:07:17 PM
+Last updated at 1/30/2025, 7:08:37 PM
