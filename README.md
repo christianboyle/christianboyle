@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvznGkldy9UEwqtt-2OUnAw-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-trip-drop-spoon-yuh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8zZ0bQ6sLz2UiiO-mzpbgA-t500x500.jpg">](https://soundcloud.com/darn84/mark-eg-side-a-dizstruxshon)
 
-**Artist**: Gallium, TRIP DROP 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: GALLIUM x TRIP DROP - SPOON THIEF
+**Track**: Mark EG (Side A) @ Dizstruxshon - Industry (13/08/2005)
 
-Last updated at 1/31/2025, 11:25:59 AM
+Last updated at 1/31/2025, 11:27:15 AM
