@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxdwFiSjZoyxgB1N-ZxVUcQ-t500x500.png">](https://soundcloud.com/novembrmusic/full-throttle-brohaun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LvznGkldy9UEwqtt-2OUnAw-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-trip-drop-spoon-yuh)
 
-**Artist**: NOVEMBR, BroHaun 
+**Artist**: Gallium, TRIP DROP 
 
-**Track**: Full Throttle (BroHaun Remix)
+**Track**: GALLIUM x TRIP DROP - SPOON THIEF
 
-Last updated at 1/31/2025, 11:24:36 AM
+Last updated at 1/31/2025, 11:25:59 AM
