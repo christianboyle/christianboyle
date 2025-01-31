@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNgkmIX4M5zZPOmw-0RbzCg-t500x500.jpg">](https://soundcloud.com/armnhmr/thelovewehad?in=saxurn/sets/buster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant?in=saxurn/sets/buster)
 
-**Artist**: ARMNHMR 
+**Artist**: TRANSITION 
 
-**Track**: ARMNHMR - The Love We Had (feat. Trella)
+**Track**: PREMIERE: Nito – Groove Covenant
 
-Last updated at 1/30/2025, 6:22:54 PM
+Last updated at 1/30/2025, 6:30:52 PM
