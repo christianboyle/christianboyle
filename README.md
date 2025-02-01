@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000177101431-h1ahgu-t500x500.jpg">](https://soundcloud.com/executiverecords/exe068-s3rl-feat-amy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000003497452-pz3p0s-t500x500.jpg">](https://soundcloud.com/smartyz/s3rl-vs-smartyz-come-back-home)
 
-**Artist**: ExecutiveRecords 
+**Artist**: S3RL, Smartyz 
 
-**Track**: EXE068 : S3RL Feat. Amy - Artificial Energy (Original Mix)
+**Track**: S3RL vs. Smartyz - Come Back Home [Executive Digital]
 
-Last updated at 2/1/2025, 11:57:01 AM
+Last updated at 2/1/2025, 11:58:52 AM
