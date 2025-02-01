@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yNg0kLK7Yt3ABHx-XzzRgQ-t500x500.jpg">](https://soundcloud.com/s3rl/friendzoned-walras-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzDzyBydGrqUui77-zzJgKQ-t500x500.jpg">](https://soundcloud.com/webcage/are-you-mad?in=saxurn/sets/blockbussin)
 
-**Artist**: S3RL 
+**Artist**: webcage 
 
-**Track**: Friendzoned (Walras Remix) - S3RL
+**Track**: are you mad
 
-Last updated at 2/1/2025, 2:25:00 PM
+Last updated at 2/1/2025, 4:59:58 PM
