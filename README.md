@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmICRsZBmXNi-0-t500x500.png">](https://soundcloud.com/s3rl/pretty-rave-girl-rob-iyf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szUhlWGu8X2yhsMW-0uOwnQ-t500x500.jpg">](https://soundcloud.com/rob-falize/loose-my-faith-extended-club-version)
 
-**Artist**: S3RL, Rob IYF and Monster 
+**Artist**: Rob Falize 
 
-**Track**: Pretty Rave Girl (Rob IYF & Monster Remix)
+**Track**: LOOSE MY FAITH FREE DOWNLOAD EXTENDED CLUB VERSION
 
-Last updated at 2/1/2025, 11:38:25 AM
+Last updated at 2/1/2025, 11:42:00 AM
