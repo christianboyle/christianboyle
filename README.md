@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000410729142-iixa11-t500x500.jpg">](https://soundcloud.com/yunikoon-music/s3rl-ft-jesskah-move-with-u-2016)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000034031052-1mpv3p-t500x500.jpg">](https://soundcloud.com/triexmusic/dj-triex-how-do-you-do)
 
-**Artist**: DJ Warfare Winter 
+**Artist**: Triex 
 
-**Track**: S3rl ft. JessKah ~ Move With U 2016
+**Track**: DJ Triex - How Do You Do (Full Track)
 
-Last updated at 2/1/2025, 10:33:18 AM
+Last updated at 2/1/2025, 10:38:04 AM
