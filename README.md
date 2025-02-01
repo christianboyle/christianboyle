@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000124452369-t7cg7n-t500x500.jpg">](https://soundcloud.com/sprinkles1/cant-bring-me-down-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000021574152-76884g-t500x500.jpg">](https://soundcloud.com/x-fir3/x-fir3-jaz-ek-safe-sex-s3rl)
 
-**Artist**: sprinkles 
+**Artist**: X-FIR3 
 
-**Track**: Can't Bring Me Down - S3rl
+**Track**: X-FIR3 & Jaz EK - Safe Sex (S3RL Remix)
 
-Last updated at 2/1/2025, 10:06:16 AM
+Last updated at 2/1/2025, 10:11:26 AM
