@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000041691850-ozegrx-t500x500.jpg">](https://soundcloud.com/s3rl/request-s3rl-feat-mixie-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166073355-ytu6un-t500x500.jpg">](https://soundcloud.com/dave-brunner-1/9-bars-of-equador-at-dj-s3rl)
 
-**Artist**: S3RL 
+**Artist**: Yukkii-chan 
 
-**Track**: Request - S3RL feat Mixie Moon
+**Track**: 9 Bars Of Equador at. DJ S3RL
 
-Last updated at 2/1/2025, 11:27:33 AM
+Last updated at 2/1/2025, 11:31:09 AM
