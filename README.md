@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yNg0kLK7Yt3ABHx-XzzRgQ-t500x500.jpg">](https://soundcloud.com/s3rl/friendzoned-walras-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended?in=saxurn/sets/blockbussin)
 
-**Artist**: S3RL 
+**Artist**: ‎jtski 
 
-**Track**: Friendzoned (Walras Remix) - S3RL
+**Track**: #brrrrrrr (extendedexclusive)
 
-Last updated at 2/1/2025, 2:19:24 PM
+Last updated at 2/1/2025, 2:22:32 PM
