@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000177103061-47j4ng-t500x500.jpg">](https://soundcloud.com/executiverecords/exe068-s3rl-feel-the-flow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000092175052-j5wtvd-t500x500.jpg">](https://soundcloud.com/dave-brunner-1/big-in-japan-at-dj-s3rl)
 
-**Artist**: ExecutiveRecords 
+**Artist**: Yukkii-chan 
 
-**Track**: EXE068 : S3RL - Feel The Flow (Original Mix)
+**Track**: Big In Japan at Dj S3RL
 
-Last updated at 2/1/2025, 9:54:29 AM
+Last updated at 2/1/2025, 9:56:40 AM
