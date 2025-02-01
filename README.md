@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bj2TNQKH4uKXmHUy-lNeKyg-t500x500.jpg">](https://soundcloud.com/para-que-no-me-olvides/electric-universe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000119766411-h12s2a-t500x500.jpg">](https://soundcloud.com/nick-rupiper/9-bars-of-equador-s3rl)
 
-**Artist**: PQNMO 
+**Artist**: Nick Rupiper 
 
-**Track**: Electric Universe
+**Track**: 9 Bars Of Equador - S3RL
 
-Last updated at 2/1/2025, 10:46:25 AM
+Last updated at 2/1/2025, 10:52:15 AM
