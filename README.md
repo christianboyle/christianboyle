@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000121919686-mh9fp2-t500x500.jpg">](https://soundcloud.com/sprinkles1/i-kiss-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032600624-4py0pe-t500x500.jpg">](https://soundcloud.com/nocv/neko-domination-anthem)
 
-**Artist**: sprinkles 
+**Artist**: Noc.V 
 
-**Track**: I Kiss - S3rl
+**Track**: Noc.V - Neko Domination Anthem [Free Download]
 
-Last updated at 2/1/2025, 11:05:41 AM
+Last updated at 2/1/2025, 11:11:17 AM
