@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000021574152-76884g-t500x500.jpg">](https://soundcloud.com/x-fir3/x-fir3-jaz-ek-safe-sex-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000215738848-5m687v-t500x500.jpg">](https://soundcloud.com/user-739818641/s3rl-green-hills-2017)
 
-**Artist**: X-FIR3 
+**Artist**: S3RL vs Auscore 
 
-**Track**: X-FIR3 & Jaz EK - Safe Sex (S3RL Remix)
+**Track**: S3RL- Green Hills 2017
 
-Last updated at 2/1/2025, 10:11:26 AM
+Last updated at 2/1/2025, 10:13:41 AM
