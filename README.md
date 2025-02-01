@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000167561517-jz2rir-t500x500.jpg">](https://soundcloud.com/user-739818641/snow-white-line-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000177103838-tlpe52-t500x500.jpg">](https://soundcloud.com/executiverecords/exe068-s3rl-feat-jesskah-move)
 
-**Artist**: 1001 
+**Artist**: ExecutiveRecords 
 
-**Track**: Snow White Line - S3RL
+**Track**: EXE068 : S3RL Feat. JessKah - Move With U 2016 (Original Mix)
 
-Last updated at 2/1/2025, 10:25:32 AM
+Last updated at 2/1/2025, 10:27:58 AM
