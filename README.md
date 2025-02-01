@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended?in=saxurn/sets/blockbussin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNgkmIX4M5zZPOmw-0RbzCg-t500x500.jpg">](https://soundcloud.com/armnhmr/thelovewehad?in=saxurn/sets/blockbussin)
 
-**Artist**: ‎jtski 
+**Artist**: ARMNHMR 
 
-**Track**: #brrrrrrr (extendedexclusive)
+**Track**: ARMNHMR - The Love We Had (feat. Trella)
 
-Last updated at 2/1/2025, 8:14:58 AM
+Last updated at 2/1/2025, 8:32:22 AM
