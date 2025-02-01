@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000269822973-9brt9b-t500x500.jpg">](https://soundcloud.com/tom-revolution/wantitharderclip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmICRsZBmXNi-0-t500x500.png">](https://soundcloud.com/s3rl/pretty-rave-girl-rob-iyf)
 
-**Artist**: Tom Revolution Official 
+**Artist**: S3RL, Rob IYF and Monster 
 
-**Track**: (CLIP) S3RL feat. Sara - Want It Harder (Joey Riot vs Tom Revolution Remix)
+**Track**: Pretty Rave Girl (Rob IYF & Monster Remix)
 
-Last updated at 2/1/2025, 11:35:39 AM
+Last updated at 2/1/2025, 11:38:25 AM
