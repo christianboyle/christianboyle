@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000182095479-hbz5rf-t500x500.jpg">](https://soundcloud.com/user-739818641/s3rl-cant-control-my-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yNg0kLK7Yt3ABHx-XzzRgQ-t500x500.jpg">](https://soundcloud.com/s3rl/friendzoned-walras-remix)
 
-**Artist**: 1001 
+**Artist**: S3RL 
 
-**Track**: S3RL - Can't Control My Body
+**Track**: Friendzoned (Walras Remix) - S3RL
 
-Last updated at 2/1/2025, 9:48:09 AM
+Last updated at 2/1/2025, 9:51:24 AM
