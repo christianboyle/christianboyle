@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000092175052-j5wtvd-t500x500.jpg">](https://soundcloud.com/dave-brunner-1/big-in-japan-at-dj-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3aKus2WqZ7aaLfXE-nZbtfw-t500x500.jpg">](https://soundcloud.com/s3rl/good-night-riggl3-remix)
 
-**Artist**: Yukkii-chan 
+**Artist**: S3RL, Riggl3, Wendy 
 
-**Track**: Big In Japan at Dj S3RL
+**Track**: Good Night (RiggL3 Remix) - S3RL ft Wendy
 
-Last updated at 2/1/2025, 9:56:40 AM
+Last updated at 2/1/2025, 10:00:35 AM
