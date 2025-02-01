@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlyYaKEP9gIBr8fN-BMm4YQ-t500x500.jpg">](https://soundcloud.com/riggl3mrlx/skyebox-feat-s3rl-dream-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248322547-dq09a3-t500x500.jpg">](https://soundcloud.com/iceotaku/ftw-eff-the-world-s3rl-remix)
 
-**Artist**: RiggL3 
+**Artist**: Ice_Otaku 
 
-**Track**: Skyebox feat. S3RL - Dream Girl 2021 (RiggL3 Rework)
+**Track**: FTW [Eff The World] (S3RL Remix)
 
-Last updated at 2/1/2025, 11:46:15 AM
+Last updated at 2/1/2025, 11:49:51 AM
