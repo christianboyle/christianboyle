@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000032600624-4py0pe-t500x500.jpg">](https://soundcloud.com/nocv/neko-domination-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycPHNCLVPTJGXMQ9-NDljwA-t500x500.jpg">](https://soundcloud.com/s3rl/nasty-s3rl-5h4rk80y-ft-thylie)
 
-**Artist**: Noc.V 
+**Artist**: S3RL, 5H4RK80Y 
 
-**Track**: Noc.V - Neko Domination Anthem [Free Download]
+**Track**: Nasty - S3RL & 5H4RK80Y Ft Thylie
 
-Last updated at 2/1/2025, 11:11:17 AM
+Last updated at 2/1/2025, 11:16:12 AM
