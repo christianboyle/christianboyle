@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQbhfmMeCskszkzz-wBrFQQ-t500x500.jpg">](https://soundcloud.com/s3rl/mtc2-atef-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000410729142-iixa11-t500x500.jpg">](https://soundcloud.com/yunikoon-music/s3rl-ft-jesskah-move-with-u-2016)
 
-**Artist**: S3RL, Atef 
+**Artist**: DJ Warfare Winter 
 
-**Track**: MTC2 (Atef Remix) - S3RL
+**Track**: S3rl ft. JessKah ~ Move With U 2016
 
-Last updated at 2/1/2025, 10:30:08 AM
+Last updated at 2/1/2025, 10:33:18 AM
