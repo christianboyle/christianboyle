@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eFj79qPxvqpU842J-7KWGag-t500x500.jpg">](https://soundcloud.com/s3rl/sale-on-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bj2TNQKH4uKXmHUy-lNeKyg-t500x500.jpg">](https://soundcloud.com/para-que-no-me-olvides/electric-universe)
 
-**Artist**: S3RL 
+**Artist**: PQNMO 
 
-**Track**: Sale On Now! - S3RL
+**Track**: Electric Universe
 
-Last updated at 2/1/2025, 10:43:14 AM
+Last updated at 2/1/2025, 10:46:25 AM
