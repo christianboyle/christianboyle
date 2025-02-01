@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NxKW1SBt66p2b4XR-1FaCww-t500x500.png">](https://soundcloud.com/rayzen-rayzen-661612544/cadc584d-7716-4ee3-b7da-b69b243d0718)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000549359112-4eny4h-t500x500.jpg">](https://soundcloud.com/officialneoqor/ghosteddj)
 
-**Artist**: RAYZEN 
+**Artist**: NeoQor 
 
-**Track**: RAYZEN - Chain Reaction (Official Rawtempo Music)
+**Track**: NeoQor & S3RL feat. Kitty Chan - Ghosted DJ
 
-Last updated at 2/1/2025, 9:11:51 AM
+Last updated at 2/1/2025, 9:14:06 AM
