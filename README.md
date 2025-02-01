@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KvSdQpRy1u7DRH9g-L0ZyVQ-t500x500.jpg">](https://soundcloud.com/s3rl/friendzoned-alaguan-remix-s3rl-ft-mixie-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000121919686-mh9fp2-t500x500.jpg">](https://soundcloud.com/sprinkles1/i-kiss-s3rl)
 
-**Artist**: S3RL, Mixie Moon, Alaguan 
+**Artist**: sprinkles 
 
-**Track**: Friendzoned (Alaguan Remix) - S3RL ft Mixie Moon
+**Track**: I Kiss - S3rl
 
-Last updated at 2/1/2025, 11:01:56 AM
+Last updated at 2/1/2025, 11:05:41 AM
