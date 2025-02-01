@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000436498059-zfvfoz-t500x500.jpg">](https://soundcloud.com/jasonbouseproductions/s-3-r-l-a-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5ekok18oZ5yizH8-EDXuwA-t500x500.jpg">](https://soundcloud.com/s3rl/elevate-little-sis-nora-s3rl)
 
-**Artist**: Jason Bouse 
+**Artist**: S3RL, Little Sis Nora 
 
-**Track**: S 3 R L - (A Mashup)
+**Track**: Elevate - Little Sis Nora & S3RL
 
-Last updated at 2/1/2025, 9:33:48 AM
+Last updated at 2/1/2025, 9:38:08 AM
