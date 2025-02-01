@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000215738848-5m687v-t500x500.jpg">](https://soundcloud.com/user-739818641/s3rl-green-hills-2017)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000177102938-ombq59-t500x500.jpg">](https://soundcloud.com/executiverecords/exe068-s3rl-feat-jodie-dont)
 
-**Artist**: S3RL vs Auscore 
+**Artist**: ExecutiveRecords 
 
-**Track**: S3RL- Green Hills 2017
+**Track**: EXE068 : S3RL Feat. Jodie - Don't Stop (Original Mix)
 
-Last updated at 2/1/2025, 10:13:41 AM
+Last updated at 2/1/2025, 10:16:22 AM
