@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000166073355-ytu6un-t500x500.jpg">](https://soundcloud.com/dave-brunner-1/9-bars-of-equador-at-dj-s3rl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000269822973-9brt9b-t500x500.jpg">](https://soundcloud.com/tom-revolution/wantitharderclip)
 
-**Artist**: Yukkii-chan 
+**Artist**: Tom Revolution Official 
 
-**Track**: 9 Bars Of Equador at. DJ S3RL
+**Track**: (CLIP) S3RL feat. Sara - Want It Harder (Joey Riot vs Tom Revolution Remix)
 
-Last updated at 2/1/2025, 11:31:09 AM
+Last updated at 2/1/2025, 11:35:39 AM
