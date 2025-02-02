@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnikhVkAqZ6i0iSW-9JeGZQ-t500x500.png">](https://soundcloud.com/dropkick/the-rural-juror)
 
-**Artist**: Infinite 
+**Artist**: Dropkick 
 
-**Track**: Infinite - Don't Let Go (Radio Mix)
+**Track**: The Rural Juror
 
-Last updated at 2/2/2025, 9:03:55 AM
+Last updated at 2/2/2025, 9:05:46 AM
