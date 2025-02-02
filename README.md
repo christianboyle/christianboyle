@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdw2k3uKkzphay9J-Jqxb8Q-t500x500.jpg">](https://soundcloud.com/bernzikial/bernzikial-whatchu-kno-about-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBTPfvjAdSQFydgs-fWTOcw-t500x500.png">](https://soundcloud.com/crumbpitmusic/tyler-the-creator-sticky-1)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: Crumb Pit 
 
-**Track**: BERNZIKIAL - WHATCHU KNO ABOUT ME
+**Track**: tyler the creator - sticky (crumb pit remix)
 
-Last updated at 2/2/2025, 11:14:20 AM
+Last updated at 2/2/2025, 11:16:45 AM
