@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzkJAxqDipUV3y9I-buzPig-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-test-your-might)
 
-**Artist**: TRANSITION 
+**Artist**: DJ INTENT 
 
-**Track**: PREMIERE: Nito – Groove Covenant
+**Track**: JGS & INTENT - Test Your Might (Free Download)
 
-Last updated at 2/2/2025, 11:50:33 AM
+Last updated at 2/2/2025, 11:55:13 AM
