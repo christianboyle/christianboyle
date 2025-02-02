@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7cj0gr7fhVzBD3v-GHO2cg-t500x500.jpg">](https://soundcloud.com/festivaltrap/valac-falling)
 
-**Artist**: TRANSITION 
+**Artist**: VALAC 
 
-**Track**: PREMIERE: Nito – Groove Covenant
+**Track**: VALAC - FALLING
 
-Last updated at 2/2/2025, 8:45:05 AM
+Last updated at 2/2/2025, 9:02:55 AM
