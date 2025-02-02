@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1feyi0ed36nwchb7-wbjbRQ-t500x500.png">](https://soundcloud.com/r3ndofficial/cold-as-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zyR7SYy6bNTNKv8-bzYT9A-t500x500.png">](https://soundcloud.com/tsimba/dragoon-dark-magician-vip)
 
-**Artist**: R3ND 
+**Artist**: tsimba 
 
-**Track**: Cold As Me
+**Track**: DRAGOON (DARK MAGICIAN VIP)
 
-Last updated at 2/2/2025, 9:10:56 AM
+Last updated at 2/2/2025, 9:16:52 AM
