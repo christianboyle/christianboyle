@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1M97ohqvwQtR8zu4-Sri84A-t500x500.jpg">](https://soundcloud.com/14106lyn/deathwish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qYznL5yg7w1JkzSL-9MaQzg-t500x500.jpg">](https://soundcloud.com/manmelter/fairytales)
 
-**Artist**: 14106lyn 
+**Artist**: inci0 
 
-**Track**: deathwish >c
+**Track**: Fairytales (Down ur Rabbit Hole)
 
-Last updated at 2/2/2025, 10:58:08 AM
+Last updated at 2/2/2025, 11:00:43 AM
