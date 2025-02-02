@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mG02MzMJk51O2f70-kK6TEg-t500x500.png">](https://soundcloud.com/adampearcemedia/adam-pearce-gabriel-eli-language)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1M97ohqvwQtR8zu4-Sri84A-t500x500.jpg">](https://soundcloud.com/14106lyn/deathwish)
 
-**Artist**: Adam Pearce & Gabriel Eli 
+**Artist**: 14106lyn 
 
-**Track**: Adam Pearce & Gabriel Eli - Language
+**Track**: deathwish >c
 
-Last updated at 2/2/2025, 10:53:13 AM
+Last updated at 2/2/2025, 10:58:08 AM
