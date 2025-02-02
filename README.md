@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNQgWyv8qKCVN32u-WT4RBg-t500x500.jpg">](https://soundcloud.com/djwifiworld/pump)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdw2k3uKkzphay9J-Jqxb8Q-t500x500.jpg">](https://soundcloud.com/bernzikial/bernzikial-whatchu-kno-about-me)
 
-**Artist**: DJ WIFI 
+**Artist**: BERNZIKIAL ✨ 
 
-**Track**: PUMP
+**Track**: BERNZIKIAL - WHATCHU KNO ABOUT ME
 
-Last updated at 2/2/2025, 11:09:54 AM
+Last updated at 2/2/2025, 11:14:20 AM
