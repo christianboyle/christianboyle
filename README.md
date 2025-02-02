@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o9wXVnAY8F8zzC84-iI9qZQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/the-bounce-brothers-raindrops)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ndv15QgmlHudo2vw-uQPeBg-t500x500.png">](https://soundcloud.com/m-project_suzumoto/dj-depathm-project-duality-remodel)
 
-**Artist**: The Bounce Brothers 
+**Artist**: M-Project 
 
-**Track**: The Bounce Brothers - Raindrops
+**Track**: DJ DEPATH&M-Project - Duality (Remodel)
 
-Last updated at 2/2/2025, 9:58:57 AM
+Last updated at 2/2/2025, 10:12:39 AM
