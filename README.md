@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gM0jyL3TkCcdjFEr-ewvkyQ-t500x500.png">](https://soundcloud.com/wraz/bane-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc7LCPZoLSLmoACB-cI2AUg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-x-ashez-1234-electric-hawk-premiere)
 
-**Artist**: Wraz, MYTHM, Grim Sickers 
+**Artist**: Buzz Junior, ASHEZ 
 
-**Track**: Wraz & Mythm & Grim Sickers - BANE
+**Track**: Buzz Junior x ASHEZ - 1234 [Electric Hawk Premiere]
 
-Last updated at 2/2/2025, 10:16:04 AM
+Last updated at 2/2/2025, 10:17:04 AM
