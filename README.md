@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7d1tot0kh355ecc-zvy1yQ-t500x500.png">](https://soundcloud.com/nowifimusic/the-days)
 
-**Artist**: Infinite 
+**Artist**: nowifi 
 
-**Track**: Infinite - Don't Let Go (Radio Mix)
+**Track**: CHRYSTAL - The Days (nowifi Remix)
 
-Last updated at 2/2/2025, 11:02:29 AM
+Last updated at 2/2/2025, 11:04:09 AM
