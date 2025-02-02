@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnikhVkAqZ6i0iSW-9JeGZQ-t500x500.png">](https://soundcloud.com/dropkick/the-rural-juror)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zW89eSOcDlLJVKKn-bHyhFQ-t500x500.png">](https://soundcloud.com/sophiplanet/soulja-boy-crank-that-sophiplanet-flip)
 
-**Artist**: Dropkick 
+**Artist**: SOPHIPLANET 
 
-**Track**: The Rural Juror
+**Track**: Soulja Boy - Crank That (SOPHIPLANET FLIP)
 
-Last updated at 2/2/2025, 9:05:46 AM
+Last updated at 2/2/2025, 9:06:51 AM
