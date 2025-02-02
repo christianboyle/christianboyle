@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdw2k3uKkzphay9J-Jqxb8Q-t500x500.jpg">](https://soundcloud.com/bernzikial/bernzikial-whatchu-kno-about-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rzDzyBydGrqUui77-zzJgKQ-t500x500.jpg">](https://soundcloud.com/webcage/are-you-mad?in=saxurn/sets/blockbussin)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: webcage 
 
-**Track**: BERNZIKIAL - WHATCHU KNO ABOUT ME
+**Track**: are you mad
 
-Last updated at 2/2/2025, 1:23:17 PM
+Last updated at 2/2/2025, 4:48:33 PM
