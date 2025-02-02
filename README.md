@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j7cj0gr7fhVzBD3v-GHO2cg-t500x500.jpg">](https://soundcloud.com/festivaltrap/valac-falling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
 
-**Artist**: VALAC 
+**Artist**: Infinite 
 
-**Track**: VALAC - FALLING
+**Track**: Infinite - Don't Let Go (Radio Mix)
 
-Last updated at 2/2/2025, 9:02:55 AM
+Last updated at 2/2/2025, 9:03:55 AM
