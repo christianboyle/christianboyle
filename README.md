@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vwUeBj01JOvBV5bm-PO5pQA-t500x500.jpg">](https://soundcloud.com/adamenoise/adame-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TOtg7kCoTLtlsOk-3zFGag-t500x500.png">](https://soundcloud.com/pickledyeetz/stupid-fried-ruby-red)
 
-**Artist**: ADAME 
+**Artist**: Stupid Fried 
 
-**Track**: ADAME 25
+**Track**: Stupid Fried - Ruby Red
 
-Last updated at 2/2/2025, 9:24:18 AM
+Last updated at 2/2/2025, 9:25:18 AM
