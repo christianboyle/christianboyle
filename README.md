@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGD0B0KoUHkgYfiI-VgcKOw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-chane-perception-chane-remix-jff13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7d1tot0kh355ecc-zvy1yQ-t500x500.png">](https://soundcloud.com/nowifimusic/the-days)
 
-**Artist**: Techno Wereld 
+**Artist**: nowifi 
 
-**Track**: Premiere: Chané - Perception (Chané Remix) [JFF13]
+**Track**: CHRYSTAL - The Days (nowifi Remix)
 
-Last updated at 2/2/2025, 12:47:38 PM
+Last updated at 2/2/2025, 12:51:14 PM
