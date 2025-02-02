@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvUq9OTbG9sfjoXQ-ER3Mjw-t500x500.png">](https://soundcloud.com/definitepartymaterial/kamoun-ganousch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3d3NOWWFUPpdhc4-N9NfRQ-t500x500.png">](https://soundcloud.com/definitepartymaterial/veronique-samsung-nrj-du-desespoir)
 
-**Artist**: Kamoun 
+**Artist**: Véronique Samsung 
 
-**Track**: PREMIERE: Kamoun - Ganousch [Sketchy Lines]
+**Track**: PREMIERE: Véronique Samsung - NRJ du Désespoir [Human Disease Network]
 
-Last updated at 2/2/2025, 12:28:11 PM
+Last updated at 2/2/2025, 12:33:37 PM
