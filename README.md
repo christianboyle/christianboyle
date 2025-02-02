@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJZQsonAr7dZJz9l-S1BeOw-t500x500.jpg">](https://soundcloud.com/shokuofficial/skrillex-and-diplo-where-are)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGD0B0KoUHkgYfiI-VgcKOw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-chane-perception-chane-remix-jff13)
 
-**Artist**: Shoku 
+**Artist**: Techno Wereld 
 
-**Track**: Skrillex and Diplo - Where Are Ü Now with Justin Bieber  (Shoku Remix)
+**Track**: Premiere: Chané - Perception (Chané Remix) [JFF13]
 
-Last updated at 2/2/2025, 10:25:50 AM
+Last updated at 2/2/2025, 10:27:50 AM
