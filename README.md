@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc7LCPZoLSLmoACB-cI2AUg-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/buzz-junior-x-ashez-1234-electric-hawk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvKIEEJFo8AQdKGc-3UPnIA-t500x500.jpg">](https://soundcloud.com/cell-block-collective/star-crash-blastex-milli-vanilli)
 
-**Artist**: Buzz Junior, ASHEZ 
+**Artist**: Star Crash, BlasteX 
 
-**Track**: Buzz Junior x ASHEZ - 1234 [Electric Hawk Premiere]
+**Track**: Milli Vanilli
 
-Last updated at 2/2/2025, 10:17:04 AM
+Last updated at 2/2/2025, 10:22:05 AM
