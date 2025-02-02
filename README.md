@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGD0B0KoUHkgYfiI-VgcKOw-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-chane-perception-chane-remix-jff13)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gM0jyL3TkCcdjFEr-ewvkyQ-t500x500.png">](https://soundcloud.com/wraz/bane-original)
 
-**Artist**: Techno Wereld 
+**Artist**: Wraz, MYTHM, Grim Sickers 
 
-**Track**: Premiere: Chané - Perception (Chané Remix) [JFF13]
+**Track**: Wraz & Mythm & Grim Sickers - BANE
 
-Last updated at 2/2/2025, 10:14:49 AM
+Last updated at 2/2/2025, 10:16:04 AM
