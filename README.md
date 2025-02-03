@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tj8HmzIlc1mOkPsZ-j7zQYA-t500x500.jpg">](https://soundcloud.com/danazar-edm/danazar-dreamy-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5JpsyPdNuFTKnFOy-NgqViA-t500x500.jpg">](https://soundcloud.com/ukf/emalkay-when-i-look-at-you-vip)
 
-**Artist**: Danazar 
+**Artist**: Emalkay 
 
-**Track**: Danazar - Dreamy (Free Download)
+**Track**: Emalkay - When I Look At You (VIP)
 
-Last updated at 2/2/2025, 8:21:43 PM
+Last updated at 2/2/2025, 8:23:10 PM
