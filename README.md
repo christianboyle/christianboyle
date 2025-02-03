@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trJDWdu2ekbUYrte-8aEeSQ-t500x500.jpg">](https://soundcloud.com/basscon/s3rl-alien-feat-kayliana)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrFNT3yUgHW9yu1X-nEdP5A-t500x500.jpg">](https://soundcloud.com/keifergr33n/linkin-park-hit-the-floor-x)
 
-**Artist**: S3RL 
+**Artist**: KEIFERGR33N 
 
-**Track**: S3RL - Alien (feat. Kayliana)
+**Track**: Linkin Park - Hit The Floor x Gucci Mane & Waka Flocka - 15th and the 1st (KEIFERGR33N Remix)
 
-Last updated at 2/3/2025, 3:40:16 PM
+Last updated at 2/3/2025, 3:43:21 PM
