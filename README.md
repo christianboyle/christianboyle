@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7aQlomqEQAz1FF4-S5gEBQ-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/tsu-nami-eye2eye-ibiza-sunrise-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248322547-dq09a3-t500x500.jpg">](https://soundcloud.com/iceotaku/ftw-eff-the-world-s3rl-remix)
 
-**Artist**: Tsu Nami 
+**Artist**: Ice_Otaku 
 
-**Track**: Tsu Nami - eye2eye (ibiza sunrise mix)
+**Track**: FTW [Eff The World] (S3RL Remix)
 
-Last updated at 2/3/2025, 10:59:39 AM
+Last updated at 2/3/2025, 11:04:24 AM
