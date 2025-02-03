@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjOcoW2Ja4QvsujY-qNtw0Q-t500x500.jpg">](https://soundcloud.com/awalsc/core-control-157)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpbZ7346cEUW-0-t500x500.png">](https://soundcloud.com/barclay-crenshaw-33544993/dub-life-sfam-remix-feat-sfam)
 
-**Artist**: AWal 
+**Artist**: Barclay Crenshaw featuring Sfam 
 
-**Track**: Core Control 157
+**Track**: Dub Life (sfam Remix) [feat. Sfam]
 
-Last updated at 2/3/2025, 6:17:09 AM
+Last updated at 2/3/2025, 6:18:18 AM
