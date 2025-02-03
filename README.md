@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yEKUyzy1dZV45Ug-aiKBJg-t500x500.png">](https://soundcloud.com/eatermusic/ftbdigestedbyeater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053)
 
-**Artist**: Eater 
+**Artist**: Tx Records 
 
-**Track**: Levity - Front To Back (Digested By Eater)
+**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
 
-Last updated at 2/3/2025, 4:13:59 PM
+Last updated at 2/3/2025, 4:16:09 PM
