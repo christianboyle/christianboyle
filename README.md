@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s3pLs7SNFTAdI178-CRpa0g-t500x500.jpg">](https://soundcloud.com/animes-otakus-9882310/whigfield-sexy-eyes-s3rl-remix)
 
-**Artist**: Infinite 
+**Artist**: naigtcor miusic 
 
-**Track**: Infinite - Don't Let Go (Radio Mix)
+**Track**: Whigfield  Sexy Eyes S3RL Remix
 
-Last updated at 2/3/2025, 10:00:27 AM
+Last updated at 2/3/2025, 10:03:03 AM
