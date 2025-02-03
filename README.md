@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJZQsonAr7dZJz9l-S1BeOw-t500x500.jpg">](https://soundcloud.com/shokuofficial/skrillex-and-diplo-where-are)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1tklEtQxAHUO6AE-sxbhtg-t500x500.jpg">](https://soundcloud.com/danazar-edm/danazar-hypnosis)
 
-**Artist**: Shoku 
+**Artist**: Danazar 
 
-**Track**: Skrillex and Diplo - Where Are Ü Now with Justin Bieber  (Shoku Remix)
+**Track**: Danazar - Hypnosis (Free Download)
 
-Last updated at 2/3/2025, 11:34:20 AM
+Last updated at 2/3/2025, 2:00:47 PM
