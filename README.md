@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248322547-dq09a3-t500x500.jpg">](https://soundcloud.com/iceotaku/ftw-eff-the-world-s3rl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylMcrj0qDeIROAjw-TimHxA-t500x500.jpg">](https://soundcloud.com/clubsp33d/3xclusiv3-veka-ft-arzaak-shingo)
 
-**Artist**: Ice_Otaku 
+**Artist**: CLUB SP33D 
 
-**Track**: FTW [Eff The World] (S3RL Remix)
+**Track**: 3XCLUSIV3: Veka (ft. Arzaak) - Shingo
 
-Last updated at 2/3/2025, 8:10:34 AM
+Last updated at 2/3/2025, 8:12:34 AM
