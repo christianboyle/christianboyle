@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKLVJxvCiUG14XIc-ryDwcw-t500x500.jpg">](https://soundcloud.com/sidia/fours)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K9C1p0BfWy99zBKi-i4VfNg-t500x500.png">](https://soundcloud.com/iansnowmusic/fc-kahuna-hayling-ian-snow-remix)
 
-**Artist**: sidia 
+**Artist**: Ian Snow 
 
-**Track**: fours w/ froe [prod. drumma + tmbgabe]
+**Track**: FC Kahuna - Hayling (Ian Snow Remix)
 
-Last updated at 2/2/2025, 8:28:03 PM
+Last updated at 2/3/2025, 6:13:06 AM
