@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNQgWyv8qKCVN32u-WT4RBg-t500x500.jpg">](https://soundcloud.com/djwifiworld/pump)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBTPfvjAdSQFydgs-fWTOcw-t500x500.png">](https://soundcloud.com/crumbpitmusic/tyler-the-creator-sticky-1)
 
-**Artist**: DJ WIFI 
+**Artist**: Crumb Pit 
 
-**Track**: PUMP
+**Track**: tyler the creator - sticky (crumb pit remix)
 
-Last updated at 2/3/2025, 7:35:26 AM
+Last updated at 2/3/2025, 7:39:46 AM
