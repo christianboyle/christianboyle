@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K9C1p0BfWy99zBKi-i4VfNg-t500x500.png">](https://soundcloud.com/iansnowmusic/fc-kahuna-hayling-ian-snow-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjOcoW2Ja4QvsujY-qNtw0Q-t500x500.jpg">](https://soundcloud.com/awalsc/core-control-157)
 
-**Artist**: Ian Snow 
+**Artist**: AWal 
 
-**Track**: FC Kahuna - Hayling (Ian Snow Remix)
+**Track**: Core Control 157
 
-Last updated at 2/3/2025, 6:13:06 AM
+Last updated at 2/3/2025, 6:17:09 AM
