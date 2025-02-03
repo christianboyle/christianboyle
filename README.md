@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvKIEEJFo8AQdKGc-3UPnIA-t500x500.jpg">](https://soundcloud.com/cell-block-collective/star-crash-blastex-milli-vanilli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJZQsonAr7dZJz9l-S1BeOw-t500x500.jpg">](https://soundcloud.com/shokuofficial/skrillex-and-diplo-where-are)
 
-**Artist**: Star Crash, BlasteX 
+**Artist**: Shoku 
 
-**Track**: Milli Vanilli
+**Track**: Skrillex and Diplo - Where Are Ü Now with Justin Bieber  (Shoku Remix)
 
-Last updated at 2/3/2025, 11:30:35 AM
+Last updated at 2/3/2025, 11:34:20 AM
