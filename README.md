@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fTJ6gI1JH8eL-0-t500x500.jpg">](https://soundcloud.com/testpressabz/people-in-the-back-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hpBHf2Tx7d7orky3-tIRhqg-t500x500.png">](https://soundcloud.com/saturaterecords/zaiaku-fluorescent-lights)
 
-**Artist**: t e s t p r e s s, Kichta 
+**Artist**: Zaiaku  
 
-**Track**: PEOPLE IN THE BACK (EXTENDED MIX)
+**Track**: Zaiaku - Fluorescent Lights
 
-Last updated at 2/2/2025, 8:25:53 PM
+Last updated at 2/2/2025, 8:26:58 PM
