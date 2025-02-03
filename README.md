@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hpBHf2Tx7d7orky3-tIRhqg-t500x500.png">](https://soundcloud.com/saturaterecords/zaiaku-fluorescent-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKLVJxvCiUG14XIc-ryDwcw-t500x500.jpg">](https://soundcloud.com/sidia/fours)
 
-**Artist**: Zaiaku  
+**Artist**: sidia 
 
-**Track**: Zaiaku - Fluorescent Lights
+**Track**: fours w/ froe [prod. drumma + tmbgabe]
 
-Last updated at 2/2/2025, 8:26:58 PM
+Last updated at 2/2/2025, 8:28:03 PM
