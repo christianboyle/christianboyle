@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UzsajTiy1GGuYp7v-h8ij6g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-jks-jungle-curse-mlkl040)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNgkmIX4M5zZPOmw-0RbzCg-t500x500.jpg">](https://soundcloud.com/armnhmr/thelovewehad)
 
-**Artist**: HATE, JKS 
+**Artist**: ARMNHMR 
 
-**Track**: Premiere: JKS - Jungle Curse [MLKL040]
+**Track**: ARMNHMR - The Love We Had (feat. Trella)
 
-Last updated at 2/3/2025, 3:23:54 PM
+Last updated at 2/3/2025, 3:30:10 PM
