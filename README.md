@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylMcrj0qDeIROAjw-TimHxA-t500x500.jpg">](https://soundcloud.com/clubsp33d/3xclusiv3-veka-ft-arzaak-shingo)
 
-**Artist**: TRANSITION 
+**Artist**: CLUB SP33D 
 
-**Track**: PREMIERE: Nito – Groove Covenant
+**Track**: 3XCLUSIV3: Veka (ft. Arzaak) - Shingo
 
-Last updated at 2/3/2025, 11:12:33 AM
+Last updated at 2/3/2025, 11:15:19 AM
