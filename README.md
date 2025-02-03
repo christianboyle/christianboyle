@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrFNT3yUgHW9yu1X-nEdP5A-t500x500.jpg">](https://soundcloud.com/keifergr33n/linkin-park-hit-the-floor-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LuI7wmaXDhRPVtyI-L3xKug-t500x500.png">](https://soundcloud.com/crunchimusic/fever-dream)
 
-**Artist**: KEIFERGR33N 
+**Artist**: CRUNCHi 
 
-**Track**: Linkin Park - Hit The Floor x Gucci Mane & Waka Flocka - 15th and the 1st (KEIFERGR33N Remix)
+**Track**: CRUNCHi - FEVER DREAM
 
-Last updated at 2/3/2025, 3:43:21 PM
+Last updated at 2/3/2025, 3:46:02 PM
