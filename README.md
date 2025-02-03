@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPpGFdfhAEobI0AP-1tyb4g-t500x500.png">](https://soundcloud.com/txrecords/premiere-chinnox-lose-control-tx053)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3I0dNBVdUdL5uMz-XIbyZw-t500x500.png">](https://soundcloud.com/whynotusdnb/rtc)
 
-**Artist**: Tx Records 
+**Artist**: WHYNOTUS 
 
-**Track**: PREMIERE: CHINNØX - Lose Control [TX053]
+**Track**: Rob The Casino
 
-Last updated at 2/3/2025, 4:16:09 PM
+Last updated at 2/3/2025, 4:21:20 PM
