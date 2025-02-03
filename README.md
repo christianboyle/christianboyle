@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qYznL5yg7w1JkzSL-9MaQzg-t500x500.jpg">](https://soundcloud.com/manmelter/fairytales)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
 
-**Artist**: inci0 
+**Artist**: Infinite 
 
-**Track**: Fairytales (Down ur Rabbit Hole)
+**Track**: Infinite - Don't Let Go (Radio Mix)
 
-Last updated at 2/3/2025, 9:49:05 AM
+Last updated at 2/3/2025, 10:00:27 AM
