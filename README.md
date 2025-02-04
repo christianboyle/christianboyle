@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqOXPRFfzRF01zaT-EsRZIQ-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/spritzur-przm-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9P9ViKR8xqXiY7WY-BOb69g-t500x500.png">](https://soundcloud.com/yerbownik/searching)
 
-**Artist**: PRZM & Spritzur 
+**Artist**: yerbby 
 
-**Track**: Spritzur & PRZM - Mine
+**Track**: searching for a better world
 
-Last updated at 2/4/2025, 6:37:08 AM
+Last updated at 2/4/2025, 6:38:09 AM
