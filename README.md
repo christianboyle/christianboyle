@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6y8QDC6AzQhN79q-EsvVmg-t500x500.jpg">](https://soundcloud.com/nicekeed/nice-keed-we-are-your-friends-free-dl-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CZUaq47mNBDFteKz-nyXI6A-t500x500.jpg">](https://soundcloud.com/emengy/kvn-x-blzbo-get-up)
 
-**Artist**: NICE KEED 
+**Artist**: KVN x BLZBO 
 
-**Track**: NICE KEED // WE ARE YOUR FRIENDS [FREE DL EXTENDED]
+**Track**: KVN x BLZBO - GET UP
 
-Last updated at 2/4/2025, 6:33:28 AM
+Last updated at 2/4/2025, 6:34:33 AM
