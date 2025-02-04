@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9P9ViKR8xqXiY7WY-BOb69g-t500x500.png">](https://soundcloud.com/yerbownik/searching)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wX6wq7W6NKj0UO1f-EUxZUg-t500x500.jpg">](https://soundcloud.com/skinnyboy_q/d3v-1)
 
-**Artist**: yerbby 
+**Artist**: SkinnyboyQ 
 
-**Track**: searching for a better world
+**Track**: D3V
 
-Last updated at 2/4/2025, 6:38:09 AM
+Last updated at 2/4/2025, 6:39:09 AM
