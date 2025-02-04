@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Qm1zAF3sTZmK01C-awbGlQ-t500x500.png">](https://soundcloud.com/ricdelarge/avicii-levels-drum-and-bass-remix-skrillex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6y8QDC6AzQhN79q-EsvVmg-t500x500.jpg">](https://soundcloud.com/nicekeed/nice-keed-we-are-your-friends-free-dl-extended)
 
-**Artist**: Avicii, Skrillex, Ric de Large 
+**Artist**: NICE KEED 
 
-**Track**: AVICII - LEVELS (Skrillex Remix) [Ric de Large Drum & Bass Rework]
+**Track**: NICE KEED // WE ARE YOUR FRIENDS [FREE DL EXTENDED]
 
-Last updated at 2/4/2025, 6:32:28 AM
+Last updated at 2/4/2025, 6:33:28 AM
