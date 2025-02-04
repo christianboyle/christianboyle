@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CZUaq47mNBDFteKz-nyXI6A-t500x500.jpg">](https://soundcloud.com/emengy/kvn-x-blzbo-get-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7QstNAkUuZuK5rWI-5BU3GQ-t500x500.png">](https://soundcloud.com/severetunes/2025showcase)
 
-**Artist**: KVN x BLZBO 
+**Artist**: SEVERE 
 
-**Track**: KVN x BLZBO - GET UP
+**Track**: 2025 Severe Showcase
 
-Last updated at 2/4/2025, 6:34:33 AM
+Last updated at 2/4/2025, 6:35:53 AM
