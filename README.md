@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GpmV25VJUKLkhKfo-cUK9DQ-t500x500.png">](https://soundcloud.com/collectiveconscious0/bridge-to-wasted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
 
-**Artist**: Miwyt 
+**Artist**: Infinite 
 
-**Track**: Bridge to Wasted
+**Track**: Infinite - Don't Let Go (Radio Mix)
 
-Last updated at 2/4/2025, 3:58:33 PM
+Last updated at 2/4/2025, 4:00:53 PM
