@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7QstNAkUuZuK5rWI-5BU3GQ-t500x500.png">](https://soundcloud.com/severetunes/2025showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqOXPRFfzRF01zaT-EsRZIQ-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/spritzur-przm-mine)
 
-**Artist**: SEVERE 
+**Artist**: PRZM & Spritzur 
 
-**Track**: 2025 Severe Showcase
+**Track**: Spritzur & PRZM - Mine
 
-Last updated at 2/4/2025, 6:35:53 AM
+Last updated at 2/4/2025, 6:37:08 AM
