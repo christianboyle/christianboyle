@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s3pLs7SNFTAdI178-CRpa0g-t500x500.jpg">](https://soundcloud.com/animes-otakus-9882310/whigfield-sexy-eyes-s3rl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GpmV25VJUKLkhKfo-cUK9DQ-t500x500.png">](https://soundcloud.com/collectiveconscious0/bridge-to-wasted)
 
-**Artist**: naigtcor miusic 
+**Artist**: Miwyt 
 
-**Track**: Whigfield  Sexy Eyes S3RL Remix
+**Track**: Bridge to Wasted
 
-Last updated at 2/4/2025, 3:55:22 PM
+Last updated at 2/4/2025, 3:58:33 PM
