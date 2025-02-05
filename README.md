@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JTt9tynDIqbVAJ4o-BQeuDA-t500x500.jpg">](https://soundcloud.com/itsvioletcrown/nvius-i-love-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: NVIUS 
+**Artist**: Vutie, starxvi 
 
-**Track**: NVIUS - i love u
+**Track**: Repoed ft. starxvi
 
-Last updated at 2/5/2025, 7:20:53 AM
+Last updated at 2/5/2025, 7:22:24 AM
