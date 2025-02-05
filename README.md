@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMy63OzTbnzs5QrZ-FAesrw-t500x500.jpg">](https://soundcloud.com/rushhourbass/rush-hour-joynt-zmoke-sleep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvKIEEJFo8AQdKGc-3UPnIA-t500x500.jpg">](https://soundcloud.com/cell-block-collective/star-crash-blastex-milli-vanilli)
 
-**Artist**: RUSH HOUR, JOYNT, ZMOKE 
+**Artist**: Star Crash, BlasteX 
 
-**Track**: RUSH HOUR, JOYNT & ZMOKE - SLEEP
+**Track**: Milli Vanilli
 
-Last updated at 2/5/2025, 8:15:36 AM
+Last updated at 2/5/2025, 8:20:14 AM
