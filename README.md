@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mG02MzMJk51O2f70-kK6TEg-t500x500.png">](https://soundcloud.com/adampearcemedia/adam-pearce-gabriel-eli-language)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
 
-**Artist**: Adam Pearce & Gabriel Eli 
+**Artist**: Infinite 
 
-**Track**: Adam Pearce & Gabriel Eli - Language
+**Track**: Infinite - Don't Let Go (Radio Mix)
 
-Last updated at 2/5/2025, 12:09:32 PM
+Last updated at 2/5/2025, 1:24:19 PM
