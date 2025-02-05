@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mvKIEEJFo8AQdKGc-3UPnIA-t500x500.jpg">](https://soundcloud.com/cell-block-collective/star-crash-blastex-milli-vanilli)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: Star Crash, BlasteX 
+**Artist**: Vutie, starxvi 
 
-**Track**: Milli Vanilli
+**Track**: Repoed ft. starxvi
 
-Last updated at 2/5/2025, 8:20:14 AM
+Last updated at 2/5/2025, 8:24:39 AM
