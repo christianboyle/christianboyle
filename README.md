@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tavOUv337wmlPsTB-wyEHsQ-t500x500.jpg">](https://soundcloud.com/belavie/i-miss-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QMy63OzTbnzs5QrZ-FAesrw-t500x500.jpg">](https://soundcloud.com/rushhourbass/rush-hour-joynt-zmoke-sleep)
 
-**Artist**: Bélavie 
+**Artist**: RUSH HOUR, JOYNT, ZMOKE 
 
-**Track**: blink182 - i miss u (bélavie flip)
+**Track**: RUSH HOUR, JOYNT & ZMOKE - SLEEP
 
-Last updated at 2/5/2025, 7:43:45 AM
+Last updated at 2/5/2025, 8:15:36 AM
