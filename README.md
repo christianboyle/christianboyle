@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQgPSqEu6juci8d8-cV0lwA-t500x500.jpg">](https://soundcloud.com/merciless_techno/premiere-kings-of-leon-sex-on-fire-indepth-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eri8L4CNh1GfonB0-M5hrZA-t500x500.jpg">](https://soundcloud.com/furtha-dubs/furtha-1hell-of-a-life-flip)
 
-**Artist**: MERCILESS 
+**Artist**: FURTHA 
 
-**Track**: PREMIERE | Kings Of Leon - Sex On Fire (INDEPTH Hard Techno Edit)
+**Track**: Young Dolph, Key Glock - 1 Hell Of A Life (FURTHA Flip)
 
-Last updated at 2/4/2025, 6:53:57 PM
+Last updated at 2/4/2025, 8:17:16 PM
