@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tavOUv337wmlPsTB-wyEHsQ-t500x500.jpg">](https://soundcloud.com/belavie/i-miss-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VsGsngCYWjdblTVI-evRskw-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/mau-p-beats-for-ther-undergroundrexydexy-flip)
 
-**Artist**: Bélavie 
+**Artist**: REXY=DEXY 
 
-**Track**: blink182 - i miss u (bélavie flip)
+**Track**: Mau P - BEATS FOR THE UNDERGROUND (REXY=DEXY Flip)
 
-Last updated at 2/4/2025, 6:48:01 PM
+Last updated at 2/4/2025, 6:51:52 PM
