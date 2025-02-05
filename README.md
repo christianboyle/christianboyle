@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zf3yimqoLTzfAq1i-fdB9mA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-gannein-ket-robinson-back2-sog6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tavOUv337wmlPsTB-wyEHsQ-t500x500.jpg">](https://soundcloud.com/belavie/i-miss-u)
 
-**Artist**: HATE,  Gannein & Ket Robinson 
+**Artist**: Bélavie 
 
-**Track**: Premiere: Gannein & Ket Robinson - Back2 [SoG6]
+**Track**: blink182 - i miss u (bélavie flip)
 
-Last updated at 2/5/2025, 8:27:49 AM
+Last updated at 2/5/2025, 8:42:17 AM
