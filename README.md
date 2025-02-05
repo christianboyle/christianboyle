@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: TRANSITION 
+**Artist**: Vutie, starxvi 
 
-**Track**: PREMIERE: Nito – Groove Covenant
+**Track**: Repoed ft. starxvi
 
-Last updated at 2/5/2025, 4:18:47 PM
+Last updated at 2/5/2025, 4:41:51 PM
