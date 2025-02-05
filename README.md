@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5JpsyPdNuFTKnFOy-NgqViA-t500x500.jpg">](https://soundcloud.com/ukf/emalkay-when-i-look-at-you-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7d1tot0kh355ecc-zvy1yQ-t500x500.png">](https://soundcloud.com/nowifimusic/the-days)
 
-**Artist**: Emalkay 
+**Artist**: nowifi 
 
-**Track**: Emalkay - When I Look At You (VIP)
+**Track**: CHRYSTAL - The Days (nowifi Remix)
 
-Last updated at 2/5/2025, 9:14:04 AM
+Last updated at 2/5/2025, 9:15:24 AM
