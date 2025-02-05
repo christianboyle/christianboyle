@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-02DM1g67R5jWymts-PiEMeQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/stronger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: DJ Mii 
+**Artist**: Vutie, starxvi 
 
-**Track**: DJ Mii - Stronger
+**Track**: Repoed ft. starxvi
 
-Last updated at 2/5/2025, 7:24:39 AM
+Last updated at 2/5/2025, 7:25:43 AM
