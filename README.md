@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7aQlomqEQAz1FF4-S5gEBQ-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/tsu-nami-eye2eye-ibiza-sunrise-mix)
 
-**Artist**: ‎jtski 
+**Artist**: Tsu Nami 
 
-**Track**: #brrrrrrr (extendedexclusive)
+**Track**: Tsu Nami - eye2eye (ibiza sunrise mix)
 
-Last updated at 2/5/2025, 9:31:16 AM
+Last updated at 2/5/2025, 10:06:49 AM
