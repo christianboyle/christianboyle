@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eri8L4CNh1GfonB0-M5hrZA-t500x500.jpg">](https://soundcloud.com/furtha-dubs/furtha-1hell-of-a-life-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mG02MzMJk51O2f70-kK6TEg-t500x500.png">](https://soundcloud.com/adampearcemedia/adam-pearce-gabriel-eli-language)
 
-**Artist**: FURTHA 
+**Artist**: Adam Pearce & Gabriel Eli 
 
-**Track**: Young Dolph, Key Glock - 1 Hell Of A Life (FURTHA Flip)
+**Track**: Adam Pearce & Gabriel Eli - Language
 
-Last updated at 2/4/2025, 8:17:16 PM
+Last updated at 2/5/2025, 6:12:33 AM
