@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fE6Zwzlkk16jlS5a-rgB91w-t500x500.png">](https://soundcloud.com/1keysora/cant1ie-p-cr1sis-minok0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-02DM1g67R5jWymts-PiEMeQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/stronger)
 
-**Artist**: 1keysora 
+**Artist**: DJ Mii 
 
-**Track**: cant1ie p. cr1sis + minok0
+**Track**: DJ Mii - Stronger
 
-Last updated at 2/5/2025, 7:23:29 AM
+Last updated at 2/5/2025, 7:24:39 AM
