@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps1ZVTyUCoXyGRjE-Ulc8dg-t500x500.png">](https://soundcloud.com/whalesfm/healing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YrtvpSJzntDRqC2X-KNUWDQ-t500x500.png">](https://soundcloud.com/sqishi_dubz/suxk)
 
-**Artist**: Whales 
+**Artist**: SQISHI 
 
-**Track**: Whales - Healing
+**Track**: SUXK MY SQISH (FREE DOWNLOAD)
 
-Last updated at 2/5/2025, 6:56:27 PM
+Last updated at 2/5/2025, 6:57:27 PM
