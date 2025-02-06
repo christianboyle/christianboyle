@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyyYIpKlwmCxpcaS-JOjNZg-t500x500.jpg">](https://soundcloud.com/jajemusic1/i-would-die-4-u-mastered-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FfXlGW3EzR7DuIIy-MeJMTg-t500x500.jpg">](https://soundcloud.com/7akkiro/bizarre)
 
-**Artist**: JaJe 
+**Artist**: akkiro 
 
-**Track**: Holly Humberstone - I Would Die 4 U (JaJe Remix)
+**Track**: bizarre (zeromandia)
 
-Last updated at 2/5/2025, 7:19:18 PM
+Last updated at 2/5/2025, 7:21:53 PM
