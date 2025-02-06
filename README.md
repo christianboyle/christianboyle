@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwCwMaWlKhuyUrl9-UBrgjQ-t500x500.png">](https://soundcloud.com/maadwest1/maad-west-x-staring-contest-bands-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J8y2YXV4DpzgJmCR-Lm6naQ-t500x500.png">](https://soundcloud.com/sytrux/t-o-t-l-knock-2-remix-sytrux)
 
-**Artist**: MAAD WEST, STARING CONTEST 
+**Artist**: Sytrux, Fred Again.., Swedish House Mafia, Future, Knock2 
 
-**Track**: MAAD WEST X Staring Contest - BANDS FLIP
+**Track**: T.O.T.L. (Knock 2 Remix) [Sytrux Trap Edit]
 
-Last updated at 2/6/2025, 8:59:14 AM
+Last updated at 2/6/2025, 9:50:20 AM
