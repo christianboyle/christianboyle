@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HZOpnCYvg5IJw3Nn-Ag2VSg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-cirkle-tears-of-light-subl018)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwCwMaWlKhuyUrl9-UBrgjQ-t500x500.png">](https://soundcloud.com/maadwest1/maad-west-x-staring-contest-bands-flip)
 
-**Artist**: HATE, Cirkle 
+**Artist**: MAAD WEST, STARING CONTEST 
 
-**Track**: Premiere: Cirkle - Tears Of Light [SUBL018]
+**Track**: MAAD WEST X Staring Contest - BANDS FLIP
 
-Last updated at 2/6/2025, 6:53:17 AM
+Last updated at 2/6/2025, 7:02:18 AM
