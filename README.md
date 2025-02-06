@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RY7KNko9YRkY9bAQ-j8uajg-t500x500.jpg">](https://soundcloud.com/scantraxx/the-prophet-the-hardstyle-archive-remixes-edits-official-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OXYLgfZVs6Ho-0-t500x500.png">](https://soundcloud.com/bbjuelz/dopamine)
 
-**Artist**: The Prophet 
+**Artist**: Juelz 
 
-**Track**: The Prophet - The Hardstyle Archive | Remixes & Edits | Official Mix
+**Track**: DOPAMINE++
 
-Last updated at 2/6/2025, 7:06:19 AM
+Last updated at 2/6/2025, 7:07:18 AM
