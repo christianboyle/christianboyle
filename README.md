@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MAjYPcLoz89LBLgN-i1RnDw-t500x500.jpg">](https://soundcloud.com/itherokki/beast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwCwMaWlKhuyUrl9-UBrgjQ-t500x500.png">](https://soundcloud.com/maadwest1/maad-west-x-staring-contest-bands-flip)
 
-**Artist**: Rokki 
+**Artist**: MAAD WEST, STARING CONTEST 
 
-**Track**: Beast
+**Track**: MAAD WEST X Staring Contest - BANDS FLIP
 
-Last updated at 2/6/2025, 8:52:35 AM
+Last updated at 2/6/2025, 8:59:14 AM
