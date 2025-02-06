@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyyYIpKlwmCxpcaS-JOjNZg-t500x500.jpg">](https://soundcloud.com/jajemusic1/i-would-die-4-u-mastered-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D36rQxrz6WHDBSGA-6HzraQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-im-so-alone-sample)
 
-**Artist**: JaJe 
+**Artist**: DJ INTENT 
 
-**Track**: Holly Humberstone - I Would Die 4 U (JaJe Remix)
+**Track**: JGS & INTENT - Im So Alone (Sample)
 
-Last updated at 2/6/2025, 6:14:35 AM
+Last updated at 2/6/2025, 6:48:57 AM
