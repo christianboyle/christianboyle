@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rgFfemYGpzpn-0-t500x500.jpg">](https://soundcloud.com/djprinsh/australia-down-under-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MAjYPcLoz89LBLgN-i1RnDw-t500x500.jpg">](https://soundcloud.com/itherokki/beast)
 
-**Artist**: PRINSH 
+**Artist**: Rokki 
 
-**Track**: Australia (Down Under Dream)
+**Track**: Beast
 
-Last updated at 2/6/2025, 8:50:55 AM
+Last updated at 2/6/2025, 8:52:35 AM
