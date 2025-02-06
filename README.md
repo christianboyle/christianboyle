@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zf3yimqoLTzfAq1i-fdB9mA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-gannein-ket-robinson-back2-sog6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyDyEReBrUIMdr60-IIYAbA-t500x500.jpg">](https://soundcloud.com/prodbyocean/ocean-your-girl-final)
 
-**Artist**: HATE,  Gannein & Ket Robinson 
+**Artist**: Ocean 
 
-**Track**: Premiere: Gannein & Ket Robinson - Back2 [SoG6]
+**Track**: Your Girl
 
-Last updated at 2/5/2025, 4:44:01 PM
+Last updated at 2/5/2025, 6:51:26 PM
