@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YrtvpSJzntDRqC2X-KNUWDQ-t500x500.png">](https://soundcloud.com/sqishi_dubz/suxk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jwCwMaWlKhuyUrl9-UBrgjQ-t500x500.png">](https://soundcloud.com/maadwest1/maad-west-x-staring-contest-bands-flip)
 
-**Artist**: SQISHI 
+**Artist**: MAAD WEST, STARING CONTEST 
 
-**Track**: SUXK MY SQISH (FREE DOWNLOAD)
+**Track**: MAAD WEST X Staring Contest - BANDS FLIP
 
-Last updated at 2/5/2025, 6:57:27 PM
+Last updated at 2/5/2025, 7:07:21 PM
