@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D36rQxrz6WHDBSGA-6HzraQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-im-so-alone-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgV9h3exNdtSBepJ-J8YlrA-t500x500.jpg">](https://soundcloud.com/user-91429077/tales-of-horror-chapter-1)
 
-**Artist**: DJ INTENT 
+**Artist**: DatTrak 
 
-**Track**: JGS & INTENT - Im So Alone (Sample)
+**Track**: Tales Of Horror: Chapter 1
 
-Last updated at 2/6/2025, 6:48:57 AM
+Last updated at 2/6/2025, 6:50:07 AM
