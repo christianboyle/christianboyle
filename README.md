@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXq8zaSUqPi84AIY-C7owKA-t500x500.jpg">](https://soundcloud.com/wavecraftcollective/hammerspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2CiPaK3jK8YbRRxS-RyBr9A-t500x500.jpg">](https://soundcloud.com/humanpart/iwalu-feat-beansclub)
 
-**Artist**: PRESTUS 
+**Artist**: HUMAN PART, BEANSCLUB 
 
-**Track**: HAMMERSPACE
+**Track**: IWALU (w/ beansclub)
 
-Last updated at 2/5/2025, 6:54:12 PM
+Last updated at 2/5/2025, 6:55:17 PM
