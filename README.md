@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VGqbfAXy8ELGHcQB-tPuoig-t500x500.png">](https://soundcloud.com/carnage_merchandise/angel-cannon-dance-until-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rFuY55QuXhYvsTqO-61sRmQ-t500x500.png">](https://soundcloud.com/sachsentrance/part-time-killer-lights-club)
 
-**Artist**: ANGEL CANNON, HELLBOUND!, ANOLUXX, casj 
+**Artist**: Part Time Killer, Ellie Goulding 
 
-**Track**: ANGEL CANNON - Dance Until You Die
+**Track**: [PREMIERE] Part Time Killer - Lights
 
-Last updated at 2/7/2025, 7:46:18 AM
+Last updated at 2/7/2025, 7:47:18 AM
