@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y25P4ti0wWJw-0-t500x500.png">](https://soundcloud.com/mauro_picotto/iguana-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhHUlTBZtjFD-0-t500x500.png">](https://soundcloud.com/mauro_picotto/i-feel-love-v2)
 
-**Artist**: Mauro Picotto & NRG Trax 
+**Artist**: Mauro Picotto aka CRW 
 
-**Track**: Iguana
+**Track**: I Feel Love (V2)
 
-Last updated at 2/7/2025, 7:41:32 AM
+Last updated at 2/7/2025, 7:42:42 AM
