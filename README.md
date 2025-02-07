@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BVhqqlwyTzbYahLE-QQefLg-t500x500.jpg">](https://soundcloud.com/merca-bae/gabriel?in=merca-bae/sets/merca-zip-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y25P4ti0wWJw-0-t500x500.png">](https://soundcloud.com/mauro_picotto/iguana-3)
 
-**Artist**: Merca Bae 
+**Artist**: Mauro Picotto & NRG Trax 
 
-**Track**: Gabriel
+**Track**: Iguana
 
-Last updated at 2/7/2025, 7:39:27 AM
+Last updated at 2/7/2025, 7:41:32 AM
