@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-995Iz3eHzxDL3Yjz-7ObbFw-t500x500.jpg">](https://soundcloud.com/rave_alert/mero-designer-clothes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzk7C8hljrNnxDpO-5SMZYQ-t500x500.jpg">](https://soundcloud.com/2summusic/2sum-coco)
 
-**Artist**: MËRO 
+**Artist**: 2SUM 
 
-**Track**: MËRO - Designer Clothes
+**Track**: 2SUM - COCO
 
-Last updated at 2/7/2025, 6:50:07 AM
+Last updated at 2/7/2025, 6:51:43 AM
