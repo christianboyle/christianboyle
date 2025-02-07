@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xfXyxHrLYsf9yW6-qXtDMw-t500x500.jpg">](https://soundcloud.com/naemsofficial/dont-cha-naems-remix?in=naems-remixes/sets/the-pussycat-dolls-dont-cha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vv2BMJ3gNkeMYzMY-QO52yA-t500x500.png">](https://soundcloud.com/thedoodmusic/witheredthedood)
 
-**Artist**: NAEMS 
+**Artist**: THE DOOD 
 
-**Track**: The Pussycat Dolls - Don't Cha (NAEMS REMIX)
+**Track**: THE DOOD- WITHERED
 
-Last updated at 2/7/2025, 6:47:57 AM
+Last updated at 2/7/2025, 6:48:57 AM
