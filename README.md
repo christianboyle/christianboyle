@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ehW6xIUBO1RoaQq2-yq4aaA-t500x500.jpg">](https://soundcloud.com/dnzrecords/sjj-wkdsounds-we-can-live-together)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xfXyxHrLYsf9yW6-qXtDMw-t500x500.jpg">](https://soundcloud.com/naemsofficial/dont-cha-naems-remix?in=naems-remixes/sets/the-pussycat-dolls-dont-cha)
 
-**Artist**: S.J.J & WkdSounds 
+**Artist**: NAEMS 
 
-**Track**: S.J.J & WkdSounds - We Can Live Together
+**Track**: The Pussycat Dolls - Don't Cha (NAEMS REMIX)
 
-Last updated at 2/7/2025, 6:46:52 AM
+Last updated at 2/7/2025, 6:47:57 AM
