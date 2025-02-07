@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y25P4ti0wWJw-0-t500x500.png">](https://soundcloud.com/mauro_picotto/iguana-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ehW6xIUBO1RoaQq2-yq4aaA-t500x500.jpg">](https://soundcloud.com/dnzrecords/sjj-wkdsounds-we-can-live-together)
 
-**Artist**: Mauro Picotto & NRG Trax 
+**Artist**: S.J.J & WkdSounds 
 
-**Track**: Iguana
+**Track**: S.J.J & WkdSounds - We Can Live Together
 
-Last updated at 2/7/2025, 6:45:44 AM
+Last updated at 2/7/2025, 6:46:52 AM
