@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyL1HAI7iuHj-0-t500x500.jpg">](https://soundcloud.com/mauro_picotto/esperanza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xHPk8yu6z8TKOe8c-BsomkQ-t500x500.jpg">](https://soundcloud.com/madoxy/calcium)
 
-**Artist**: Mauro Picotto & Frankyeffe 
+**Artist**: madoxy 
 
-**Track**: Esperanza
+**Track**: calcium +toby
 
-Last updated at 2/7/2025, 7:44:18 AM
+Last updated at 2/7/2025, 7:45:18 AM
