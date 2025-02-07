@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v7aQlomqEQAz1FF4-S5gEBQ-t500x500.jpg">](https://soundcloud.com/pilotrecordsuk/tsu-nami-eye2eye-ibiza-sunrise-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps1ZVTyUCoXyGRjE-Ulc8dg-t500x500.png">](https://soundcloud.com/whalesfm/healing)
 
-**Artist**: Tsu Nami 
+**Artist**: Whales 
 
-**Track**: Tsu Nami - eye2eye (ibiza sunrise mix)
+**Track**: Whales - Healing
 
-Last updated at 2/6/2025, 4:05:24 PM
+Last updated at 2/6/2025, 8:05:29 PM
