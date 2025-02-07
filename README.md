@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhHUlTBZtjFD-0-t500x500.png">](https://soundcloud.com/mauro_picotto/i-feel-love-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eyL1HAI7iuHj-0-t500x500.jpg">](https://soundcloud.com/mauro_picotto/esperanza)
 
-**Artist**: Mauro Picotto aka CRW 
+**Artist**: Mauro Picotto & Frankyeffe 
 
-**Track**: I Feel Love (V2)
+**Track**: Esperanza
 
-Last updated at 2/7/2025, 7:42:42 AM
+Last updated at 2/7/2025, 7:44:18 AM
