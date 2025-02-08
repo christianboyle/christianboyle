@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxw3SpoyPQPt2gyD-xF10gw-t500x500.jpg">](https://soundcloud.com/vaxfr/turn-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc)
 
-**Artist**: vax 
+**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
 
-**Track**: turn up
+**Track**: #gutterVC 😎 [nightiger + nothing2do]
 
-Last updated at 2/7/2025, 8:35:37 PM
+Last updated at 2/8/2025, 6:56:57 AM
