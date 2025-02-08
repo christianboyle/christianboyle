@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skAjA1fSQR8YDO5m-cJyDGQ-t500x500.png">](https://soundcloud.com/kureimusic/addison-rae-diet-pepsi-kurei-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641899189-3bwwcc-t500x500.jpg">](https://soundcloud.com/vaingirls/terrified)
 
-**Artist**: ☆KUREI☆ 
+**Artist**: Vain Girls 
 
-**Track**: Addison Rae - Diet Pepsi (Kurei Remix)
+**Track**: Terrified
 
-Last updated at 2/8/2025, 3:42:13 PM
+Last updated at 2/8/2025, 3:43:23 PM
