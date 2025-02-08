@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000641899189-3bwwcc-t500x500.jpg">](https://soundcloud.com/vaingirls/terrified)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/toulouse-rexy-dexy-remix)
 
-**Artist**: Vain Girls 
+**Artist**: REXY=DEXY 
 
-**Track**: Terrified
+**Track**: Toulouse(REXY=DEXY REMIX)
 
-Last updated at 2/8/2025, 3:43:23 PM
+Last updated at 2/8/2025, 4:36:55 PM
