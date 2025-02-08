@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps1ZVTyUCoXyGRjE-Ulc8dg-t500x500.png">](https://soundcloud.com/whalesfm/healing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/toulouse-rexy-dexy-remix)
 
-**Artist**: Whales 
+**Artist**: REXY=DEXY 
 
-**Track**: Whales - Healing
+**Track**: Toulouse(REXY=DEXY REMIX)
 
-Last updated at 2/8/2025, 4:50:11 PM
+Last updated at 2/8/2025, 4:54:26 PM
