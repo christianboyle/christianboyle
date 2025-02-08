@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zyR7SYy6bNTNKv8-bzYT9A-t500x500.png">](https://soundcloud.com/tsimba/dragoon-dark-magician-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNY2iRCpjlehFudX-F56n9g-t500x500.png">](https://soundcloud.com/1nicola5/tell-me)
 
-**Artist**: tsimba 
+**Artist**: nicola5 
 
-**Track**: DRAGOON (DARK MAGICIAN VIP)
+**Track**: ://『Tell Me』
 
-Last updated at 2/8/2025, 5:04:32 PM
+Last updated at 2/8/2025, 5:35:16 PM
