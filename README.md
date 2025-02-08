@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NU06uyNMZKVW9yN-A3tOwg-t500x500.jpg">](https://soundcloud.com/yuke/iangoin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNY2iRCpjlehFudX-F56n9g-t500x500.png">](https://soundcloud.com/1nicola5/tell-me)
 
-**Artist**: yuke 
+**Artist**: nicola5 
 
-**Track**: ian goin prod karakuli
+**Track**: ://『Tell Me』
 
-Last updated at 2/8/2025, 9:46:14 AM
+Last updated at 2/8/2025, 9:47:20 AM
