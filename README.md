@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tavOUv337wmlPsTB-wyEHsQ-t500x500.jpg">](https://soundcloud.com/belavie/i-miss-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxw3SpoyPQPt2gyD-xF10gw-t500x500.jpg">](https://soundcloud.com/vaxfr/turn-up)
 
-**Artist**: Bélavie 
+**Artist**: vax 
 
-**Track**: blink182 - i miss u (bélavie flip) | free dl
+**Track**: turn up
 
-Last updated at 2/7/2025, 4:00:11 PM
+Last updated at 2/7/2025, 8:35:37 PM
