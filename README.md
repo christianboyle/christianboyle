@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/toulouse-rexy-dexy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNY2iRCpjlehFudX-F56n9g-t500x500.png">](https://soundcloud.com/1nicola5/tell-me)
 
-**Artist**: REXY=DEXY 
+**Artist**: nicola5 
 
-**Track**: Toulouse(REXY=DEXY REMIX)
+**Track**: ://『Tell Me』
 
-Last updated at 2/8/2025, 4:36:55 PM
+Last updated at 2/8/2025, 4:39:40 PM
