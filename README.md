@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCIxSXejBDCumRNF-g799gQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/veil-x-digital-vagabond-omega)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryo3nNcI7TQiAPco-ceukMQ-t500x500.jpg">](https://soundcloud.com/yerbownik/dont-stop)
 
-**Artist**: VEIL 
+**Artist**: yerbby 
 
-**Track**: VEIL x Digital Vagabond - OMEGA
+**Track**: DON'T STOP
 
-Last updated at 2/9/2025, 8:52:15 AM
+Last updated at 2/9/2025, 8:53:16 AM
