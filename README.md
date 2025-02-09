@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJL1lZhThI3JyOKQ-CWW3oQ-t500x500.png">](https://soundcloud.com/psykeduk/juni-dokku-limb-by-limb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HFp5q9ocUkso-0-t500x500.jpg">](https://soundcloud.com/alexandarsmash/funhouse)
 
-**Artist**: Juni & Dokku 
+**Artist**: Alexandar Smash 
 
-**Track**: Juni & Dokku - LIMB BY LIMB
+**Track**: Funhouse
 
-Last updated at 2/9/2025, 8:57:41 AM
+Last updated at 2/9/2025, 8:58:41 AM
