@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zf3yimqoLTzfAq1i-fdB9mA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-gannein-ket-robinson-back2-sog6)
 
-**Artist**: Vutie, starxvi 
+**Artist**: HATE,  Gannein & Ket Robinson 
 
-**Track**: Repoed (ft. starxvi)
+**Track**: Premiere: Gannein & Ket Robinson - Back2 [SoG6]
 
-Last updated at 2/9/2025, 4:16:52 PM
+Last updated at 2/9/2025, 4:19:02 PM
