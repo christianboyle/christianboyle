@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zyR7SYy6bNTNKv8-bzYT9A-t500x500.png">](https://soundcloud.com/tsimba/dragoon-dark-magician-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc)
 
-**Artist**: tsimba 
+**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
 
-**Track**: DRAGOON (DARK MAGICIAN VIP)
+**Track**: #gutterVC 😎 [nightiger + nothing2do]
 
-Last updated at 2/9/2025, 3:09:09 PM
+Last updated at 2/9/2025, 3:12:14 PM
