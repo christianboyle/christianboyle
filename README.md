@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000248322547-dq09a3-t500x500.jpg">](https://soundcloud.com/iceotaku/ftw-eff-the-world-s3rl-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant)
 
-**Artist**: Ice_Otaku 
+**Artist**: TRANSITION 
 
-**Track**: FTW [Eff The World] (S3RL Remix)
+**Track**: PREMIERE: Nito – Groove Covenant
 
-Last updated at 2/9/2025, 5:43:55 PM
+Last updated at 2/9/2025, 5:46:56 PM
