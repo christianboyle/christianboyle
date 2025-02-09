@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
+**Artist**: Vutie, starxvi 
 
-**Track**: #gutterVC 😎 [nightiger + nothing2do]
+**Track**: Repoed (ft. starxvi)
 
-Last updated at 2/9/2025, 3:13:55 PM
+Last updated at 2/9/2025, 4:16:52 PM
