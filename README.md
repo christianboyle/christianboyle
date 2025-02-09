@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000287614535-jd8ctd-t500x500.jpg">](https://soundcloud.com/filisthlm/juss-wanna-kno?in=kaaaiiiiiiii/sets/boost-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCIxSXejBDCumRNF-g799gQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/veil-x-digital-vagabond-omega)
 
-**Artist**: Playmaker 
+**Artist**: VEIL 
 
-**Track**: juss wanna kno
+**Track**: VEIL x Digital Vagabond - OMEGA
 
-Last updated at 2/9/2025, 8:51:11 AM
+Last updated at 2/9/2025, 8:52:15 AM
