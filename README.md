@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dL0g8RdZzklPQTKv-WYzSWg-t500x500.jpg">](https://soundcloud.com/whoskid/s-c-a-p-e-g-o-a-t)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-83pcbEd8mJt2ZyJT-gc4Phw-t500x500.jpg">](https://soundcloud.com/montarecs/typhon-tick-tock)
 
-**Artist**: k?d, glitch boy 
+**Artist**: Typhon 
 
-**Track**: s c a p e g o a t
+**Track**: Typhon - Tick Tock
 
-Last updated at 2/9/2025, 8:54:20 AM
+Last updated at 2/9/2025, 8:55:26 AM
