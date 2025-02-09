@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruNvU5jhZ2l5oSda-zb1lnA-t500x500.jpg">](https://soundcloud.com/rainf1eld/stuck-in-the-suburbs?in=kaaaiiiiiiii/sets/boost-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000287614535-jd8ctd-t500x500.jpg">](https://soundcloud.com/filisthlm/juss-wanna-kno?in=kaaaiiiiiiii/sets/boost-it)
 
-**Artist**: rainfield 
+**Artist**: Playmaker 
 
-**Track**: stuck in the suburbs
+**Track**: juss wanna kno
 
-Last updated at 2/9/2025, 8:50:11 AM
+Last updated at 2/9/2025, 8:51:11 AM
