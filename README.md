@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F4druO87QAH9oNwD-GICoyQ-t500x500.jpg">](https://soundcloud.com/webcage/lipstick405)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trJDWdu2ekbUYrte-8aEeSQ-t500x500.jpg">](https://soundcloud.com/basscon/s3rl-alien-feat-kayliana)
 
-**Artist**: webcage 
+**Artist**: S3RL 
 
-**Track**: lipstick 405
+**Track**: S3RL - Alien (feat. Kayliana)
 
-Last updated at 2/9/2025, 6:09:03 PM
+Last updated at 2/9/2025, 6:12:53 PM
