@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rinelz5v1rIbhHDz-1fpi1A-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgr-046-rexydexy-lautre-come-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A896gtKxcPREvsPL-nuChhw-t500x500.jpg">](https://soundcloud.com/officialyussi/shaboozey-a-bar-song-yussi-remix)
 
-**Artist**: Rexy=Dexy & LAUTRE. 
+**Artist**: YUSSI 
 
-**Track**: QGRS-046 | Rexy=Dexy & LAUTRE. - Come With Me
+**Track**: SHABOOZEY - A BAR SONG (YUSSI REMIX) [FREE DOWNLOAD]
 
-Last updated at 2/9/2025, 8:10:58 PM
+Last updated at 2/9/2025, 8:13:49 PM
