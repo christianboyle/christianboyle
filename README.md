@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWA5aTbxcs5h-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/pentagramma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNaFUWZpNql7-0-t500x500.jpg">](https://soundcloud.com/1985music1985/tokyo-drifting)
 
-**Artist**: Ezra Hazard 
+**Artist**: Napes 
 
-**Track**: Pentagramma
+**Track**: Tokyo Drifting
 
-Last updated at 2/9/2025, 7:40:25 PM
+Last updated at 2/9/2025, 7:42:35 PM
