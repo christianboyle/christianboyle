@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaoQMl2yv87P8br8-sTBTAw-t500x500.jpg">](https://soundcloud.com/neo_trance/mero-like-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWA5aTbxcs5h-0-t500x500.jpg">](https://soundcloud.com/ezrahazard/pentagramma)
 
-**Artist**: MËRO 
+**Artist**: Ezra Hazard 
 
-**Track**: MËRO- Like it
+**Track**: Pentagramma
 
-Last updated at 2/9/2025, 7:36:14 PM
+Last updated at 2/9/2025, 7:40:25 PM
