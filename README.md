@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VsGsngCYWjdblTVI-evRskw-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/mau-p-beats-for-ther-undergroundrexydexy-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQgPSqEu6juci8d8-cV0lwA-t500x500.jpg">](https://soundcloud.com/merciless_techno/premiere-kings-of-leon-sex-on-fire-indepth-hard-techno-edit)
 
-**Artist**: REXY=DEXY 
+**Artist**: MERCILESS 
 
-**Track**: Mau P - BEATS FOR THE UNDERGROUND (REXY=DEXY Flip)
+**Track**: PREMIERE | Kings Of Leon - Sex On Fire (INDEPTH Hard Techno Edit)
 
-Last updated at 2/10/2025, 10:59:59 AM
+Last updated at 2/10/2025, 11:02:09 AM
