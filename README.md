@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ffy1ks6p42Z41Dcw-M0NI2Q-t500x500.jpg">](https://soundcloud.com/remzcore/s3rl-remzcore-play-it-loud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis)
 
-**Artist**: Remzcore 
+**Artist**: bk beats 
 
-**Track**: S3RL & Remzcore - Play It Loud 🔊💦
+**Track**: exegesis
 
-Last updated at 2/9/2025, 7:27:28 PM
+Last updated at 2/9/2025, 7:29:59 PM
