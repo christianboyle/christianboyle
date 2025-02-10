@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iqje1VuZIcAVLBWN-HfPMCA-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/charli-xcx-360-earth-from-space-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Frfu3ntxdJMWOZFf-2YigVg-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/in-n-out-of-the-things-she-said-anop-x-svedka-mix)
 
 **Artist**: nightcore4totalsluts 
 
-**Track**: Charli XCX - 360 (Earth from Space Edit)
+**Track**: IN N OUT OF THE THINGS SHE SAID (ANOP X SVEDKA MIX)
 
-Last updated at 2/9/2025, 9:17:06 PM
+Last updated at 2/9/2025, 9:20:41 PM
