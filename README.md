@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRYXuIKuYofpUnQO-O5S8ag-t500x500.jpg">](https://soundcloud.com/maakg/ache)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j4IhUfpNqLRlStqn-IOeTzg-t500x500.jpg">](https://soundcloud.com/aitanaxxoficial/forevverr)
 
-**Artist**: Maāk.G 
+**Artist**: AITANA★★OFICIAL 
 
-**Track**: Ache
+**Track**: 𝔉𝔒ℜ𝔈𝔙𝔙𝔈ℜℜ
 
-Last updated at 2/9/2025, 9:28:17 PM
+Last updated at 2/9/2025, 9:31:08 PM
