@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps1ZVTyUCoXyGRjE-Ulc8dg-t500x500.png">](https://soundcloud.com/whalesfm/healing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EUFOuyjEX2Ngeyks-czDjiQ-t500x500.png">](https://soundcloud.com/vutie/repoed-ft-starxvi)
 
-**Artist**: Whales 
+**Artist**: Vutie, starxvi 
 
-**Track**: Whales - Healing
+**Track**: Repoed (ft. starxvi)
 
-Last updated at 2/10/2025, 10:45:37 AM
+Last updated at 2/10/2025, 10:48:28 AM
