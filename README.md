@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSxofKNnOoM5ZTao-o6N4Pg-t500x500.png">](https://soundcloud.com/virxmusic/anti-up-chromatic-virx-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHfFd4ezTWoYbe9X-du9ISw-t500x500.jpg">](https://soundcloud.com/billythekiddub/bass-up-1)
 
-**Artist**: VIRX 
+**Artist**: BILLYTHEKID 
 
-**Track**: Anti Up - Chromatic (VIRX FLIP)
+**Track**: BASS UP
 
-Last updated at 2/9/2025, 8:24:20 PM
+Last updated at 2/9/2025, 8:26:30 PM
