@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3d3NOWWFUPpdhc4-N9NfRQ-t500x500.png">](https://soundcloud.com/definitepartymaterial/veronique-samsung-nrj-du-desespoir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ke64Vxo3a5XZOJDE-aFa90A-t500x500.jpg">](https://soundcloud.com/huskibass/huskineverstop)
 
-**Artist**: Véronique Samsung 
+**Artist**: HUSKI 
 
-**Track**: PREMIERE: Véronique Samsung - NRJ du Désespoir [Human Disease Network]
+**Track**: 𝑯𝑼𝑺𝑲𝑰 - 𝑵𝑬𝑽𝑬𝑹 𝑺𝑻𝑶𝑷 (𝑭𝑹𝑬𝑬 𝑫𝑶𝑾𝑵𝑳𝑶𝑨𝑫)
 
-Last updated at 2/9/2025, 6:30:00 PM
+Last updated at 2/9/2025, 6:35:05 PM
