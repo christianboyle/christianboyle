@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HnfTYU2zV6kLG1fW-Wrdiiw-t500x500.jpg">](https://soundcloud.com/dnzrecords/wildness-project-dieguiky-new-reality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5y79TQkAydgE7Kfr-DCEXbA-t500x500.jpg">](https://soundcloud.com/djhungergames1/fjortis-remix-playahead)
 
-**Artist**: Wildness Project & Dieguiky 
+**Artist**: DJ CRIME 
 
-**Track**: Wildness Project & Dieguiky - New Reality
+**Track**: fjortis remix playahead
 
-Last updated at 2/10/2025, 9:32:11 AM
+Last updated at 2/10/2025, 9:35:01 AM
