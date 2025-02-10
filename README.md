@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JQzrgjb57JVximqy-b1yLXA-t500x500.jpg">](https://soundcloud.com/schmuxmusic/snoop-dogg-drop-it-like-its-hot-schmux-flip-ft-pharrell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NO1mkaXEObczzV6J-ptBwLg-t500x500.png">](https://soundcloud.com/chozenofficial/zeds-dead-alive-chozen-sheesh)
 
-**Artist**: SCHMUX 
+**Artist**: CHOZEN, SHEESH  
 
-**Track**: Snoop Dogg - Drop It Like Its Hot (SCHMUX Flip) ft Pharrell
+**Track**: Zeds Dead - Alive (CHOZEN & SHEESH Remix)
 
-Last updated at 2/9/2025, 7:51:56 PM
+Last updated at 2/9/2025, 7:54:37 PM
