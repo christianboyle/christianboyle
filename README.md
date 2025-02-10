@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xdh7ZvyGTw09I7nE-ymsBBQ-t500x500.jpg">](https://soundcloud.com/dreamloader/som-en-sol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3mXCPq9G7SPmV9Ue-iWGywA-t500x500.jpg">](https://soundcloud.com/darn84/candee-jay-if-i-were-you-sy)
 
-**Artist**: dreamloader 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Som En Sol (bootleg)
+**Track**: Candee Jay - If I Were You (Sy & Unknown Remix)
 
-Last updated at 2/10/2025, 7:06:49 AM
+Last updated at 2/10/2025, 7:08:00 AM
