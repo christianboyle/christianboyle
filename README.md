@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QsGxrht4WHSnKSJt-dFaBjA-t500x500.png">](https://soundcloud.com/tynanofficial/kendrick-lamar-tv-off-tynan-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70FSLgKw5xcivOrm-Pnmj8g-t500x500.jpg">](https://soundcloud.com/entasiaaa/100-unreleased-mix)
 
-**Artist**: TYNAN 
+**Artist**: Entasia 
 
-**Track**: Kendrick Lamar - tv off (TYNAN FLIP)
+**Track**: Entasia • 100% Unreleased
 
-Last updated at 2/10/2025, 9:09:37 AM
+Last updated at 2/10/2025, 9:10:37 AM
