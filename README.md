@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PRvDyulKxk1z-0-t500x500.png">](https://soundcloud.com/shanghaidoom/blindsided)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload)
 
-**Artist**: Shanghai Doom 
+**Artist**: Ezra Hazard 
 
-**Track**: Blindsided
+**Track**: Pentagramma Reload (Mashup)
 
-Last updated at 2/10/2025, 8:56:26 AM
+Last updated at 2/10/2025, 8:58:56 AM
