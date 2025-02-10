@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJZQsonAr7dZJz9l-S1BeOw-t500x500.jpg">](https://soundcloud.com/shokuofficial/skrillex-and-diplo-where-are)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QsGxrht4WHSnKSJt-dFaBjA-t500x500.png">](https://soundcloud.com/tynanofficial/kendrick-lamar-tv-off-tynan-flip)
 
-**Artist**: Shoku 
+**Artist**: TYNAN 
 
-**Track**: Skrillex and Diplo - Where Are Ü Now with Justin Bieber  (Shoku Remix)
+**Track**: Kendrick Lamar - tv off (TYNAN FLIP)
 
-Last updated at 2/10/2025, 9:01:42 AM
+Last updated at 2/10/2025, 9:03:42 AM
