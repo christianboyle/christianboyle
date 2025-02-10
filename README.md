@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3mXCPq9G7SPmV9Ue-iWGywA-t500x500.jpg">](https://soundcloud.com/darn84/candee-jay-if-i-were-you-sy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpZV0OyrTC1EpmLI-1meyuw-t500x500.png">](https://soundcloud.com/txrecords/premiere-nvxrrx-i-love-hard-drugs-axiver-remix)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Tx Records 
 
-**Track**: Candee Jay - If I Were You (Sy & Unknown Remix)
+**Track**: PREMIERE: NVXRRX - I Love Hard Drugs (Axiver Remix)
 
-Last updated at 2/10/2025, 7:08:00 AM
+Last updated at 2/10/2025, 8:52:56 AM
