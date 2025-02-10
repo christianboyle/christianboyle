@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvqZdCzNKmT7hAh7-e6g5zg-t500x500.jpg">](https://soundcloud.com/therealwaweezy/bust-like-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yNQgWyv8qKCVN32u-WT4RBg-t500x500.jpg">](https://soundcloud.com/djwifiworld/pump)
 
-**Artist**: Waweezy 
+**Artist**: DJ WIFI 
 
-**Track**: Bust Like A
+**Track**: PUMP
 
-Last updated at 2/10/2025, 11:41:23 AM
+Last updated at 2/10/2025, 11:44:23 AM
