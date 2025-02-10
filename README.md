@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QsGxrht4WHSnKSJt-dFaBjA-t500x500.png">](https://soundcloud.com/tynanofficial/kendrick-lamar-tv-off-tynan-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oKPyvEW6ReSfubfQ-F2hfxg-t500x500.png">](https://soundcloud.com/noisecomplaintofc/hittem-witta-flow)
 
-**Artist**: TYNAN 
+**Artist**: Noise Complaint 
 
-**Track**: Kendrick Lamar - tv off (TYNAN FLIP)
+**Track**: Hittem Witta Flow
 
-Last updated at 2/10/2025, 9:03:42 AM
+Last updated at 2/10/2025, 9:05:42 AM
