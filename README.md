@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOMmYPYuEz9Uc9pN-kC1OaQ-t500x500.jpg">](https://soundcloud.com/vedtunes/ved-the-underground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
 
-**Artist**: Ved 
+**Artist**: S3RL 
 
-**Track**: The Underground
+**Track**: In My Bones - S3RL
 
-Last updated at 2/9/2025, 8:18:34 PM
+Last updated at 2/9/2025, 8:21:04 PM
