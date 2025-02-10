@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2PhCB1uzkvSim7AE-DDJIxw-t500x500.jpg">](https://soundcloud.com/jadudala/kaiyo-nice-jadu256)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mG02MzMJk51O2f70-kK6TEg-t500x500.png">](https://soundcloud.com/adampearcemedia/adam-pearce-gabriel-eli-language)
 
-**Artist**: Kaiyo 
+**Artist**: Adam Pearce & Gabriel Eli 
 
-**Track**: Kaiyo - NICE (JADŪ256)
+**Track**: Adam Pearce & Gabriel Eli - Language
 
-Last updated at 2/10/2025, 11:48:43 AM
+Last updated at 2/10/2025, 11:51:34 AM
