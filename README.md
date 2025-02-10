@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skAjA1fSQR8YDO5m-cJyDGQ-t500x500.png">](https://soundcloud.com/kureimusic/addison-rae-diet-pepsi-kurei-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/toulouse-rexy-dexy-remix)
 
-**Artist**: ☆KUREI☆ 
+**Artist**: REXY=DEXY 
 
-**Track**: Addison Rae - Diet Pepsi (Kurei Remix)
+**Track**: Toulouse(REXY=DEXY REMIX)
 
-Last updated at 2/10/2025, 9:55:48 AM
+Last updated at 2/10/2025, 9:58:38 AM
