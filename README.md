@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L3I0dNBVdUdL5uMz-XIbyZw-t500x500.png">](https://soundcloud.com/whynotusdnb/rtc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yEtgRGglKVt8nTW1-COeSCA-t500x500.jpg">](https://soundcloud.com/wubsonofficial/leave-it-all)
 
-**Artist**: WHYNOTUS 
+**Artist**: Wubson 
 
-**Track**: Rob The Casino
+**Track**: Leave It All (On The Floor) [FREE DL]
 
-Last updated at 2/9/2025, 6:53:55 PM
+Last updated at 2/9/2025, 6:56:45 PM
