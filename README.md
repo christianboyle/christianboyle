@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-710rgd1WyzrmWuX6-yAPblQ-t500x500.jpg">](https://soundcloud.com/rankzsound/fein-rankz-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tirzOl3qNshsJHU-yfZMtA-t500x500.jpg">](https://soundcloud.com/bo0tyleak/wau)
 
-**Artist**: RANKZ 
+**Artist**: BOOTY LEAK, Reprobeater, Swae Boy 
 
-**Track**: Travis Scott - FE!N (RANKZ Flip) [Free DL For Full Version]
+**Track**: Booty Leak + Reprobeater & Swae Boy - What About Us [ FREE DOWNLOAD ]
 
-Last updated at 2/9/2025, 8:01:57 PM
+Last updated at 2/9/2025, 8:06:38 PM
