@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFxGKzXBkpKx-0-t500x500.jpg">](https://soundcloud.com/aceonearth/evolving-conscious-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0U7aTZ3KGxJ6hzKM-PfLR4g-t500x500.jpg">](https://soundcloud.com/badmouthrecs/mstic-kuhlosul-bodybagz)
 
-**Artist**: Ace On Earth 
+**Artist**: M?STIC & KUHLOSUL 
 
-**Track**: Evolving Conscious
+**Track**: M?STIC & KUHLOSUL - BODYBAGZ
 
-Last updated at 2/9/2025, 7:12:17 PM
+Last updated at 2/9/2025, 7:15:47 PM
