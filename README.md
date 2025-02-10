@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXsTbUwlW6rvOcXu-z47tTA-t500x500.png">](https://soundcloud.com/baeldorf/dusk)
 
-**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
+**Artist**: Baeldorf, STM 
 
-**Track**: #gutterVC 😎 [nightiger + nothing2do]
+**Track**: Dusk (Album) ft. STM
 
-Last updated at 2/10/2025, 10:04:14 AM
+Last updated at 2/10/2025, 10:06:29 AM
