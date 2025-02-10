@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4cPZcRnvLUW22u7J-ragqKg-t500x500.png">](https://soundcloud.com/rxflxct2/trash-comp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruNvU5jhZ2l5oSda-zb1lnA-t500x500.jpg">](https://soundcloud.com/rainf1eld/stuck-in-the-suburbs)
 
-**Artist**: rxflxct 
+**Artist**: rainfield 
 
-**Track**: abandoned wips and ideas
+**Track**: stuck in the suburbs
 
-Last updated at 2/10/2025, 9:42:47 AM
+Last updated at 2/10/2025, 9:53:28 AM
