@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxAab4yKDb3Mc4En-8LMwsg-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-wor-x-beyond-hyperion-medusa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PRvDyulKxk1z-0-t500x500.png">](https://soundcloud.com/shanghaidoom/blindsided)
 
-**Artist**: WOR x Beyond Hyperion 
+**Artist**: Shanghai Doom 
 
-**Track**: [PREMIERE] WOR x Beyond Hyperion - Medusa
+**Track**: Blindsided
 
-Last updated at 2/10/2025, 8:55:16 AM
+Last updated at 2/10/2025, 8:56:26 AM
