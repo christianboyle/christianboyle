@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Qj4R7A07OtI8Rgc-Ejzzbg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-dont-let-go-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload)
 
-**Artist**: Infinite 
+**Artist**: Ezra Hazard 
 
-**Track**: Infinite - Don't Let Go (Radio Mix)
+**Track**: Pentagramma Reload (Mashup)
 
-Last updated at 2/11/2025, 6:00:06 AM
+Last updated at 2/11/2025, 1:07:40 PM
