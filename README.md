@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryo3nNcI7TQiAPco-ceukMQ-t500x500.jpg">](https://soundcloud.com/yerbownik/dont-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4cPZcRnvLUW22u7J-ragqKg-t500x500.png">](https://soundcloud.com/rxflxct2/trash-comp)
 
-**Artist**: yerbby 
+**Artist**: rxflxct 
 
-**Track**: DON'T STOP
+**Track**: abandoned wips and ideas
 
-Last updated at 2/11/2025, 1:20:56 PM
+Last updated at 2/11/2025, 1:25:16 PM
