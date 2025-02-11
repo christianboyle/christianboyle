@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpZV0OyrTC1EpmLI-1meyuw-t500x500.png">](https://soundcloud.com/txrecords/premiere-nvxrrx-i-love-hard-drugs-axiver-remix)
 
-**Artist**: Ezra Hazard 
+**Artist**: Tx Records 
 
-**Track**: Pentagramma Reload (Mashup)
+**Track**: PREMIERE: NVXRRX - I Love Hard Drugs (Axiver Remix)
 
-Last updated at 2/11/2025, 1:07:40 PM
+Last updated at 2/11/2025, 1:10:20 PM
