@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruNvU5jhZ2l5oSda-zb1lnA-t500x500.jpg">](https://soundcloud.com/rainf1eld/stuck-in-the-suburbs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skAjA1fSQR8YDO5m-cJyDGQ-t500x500.png">](https://soundcloud.com/kureimusic/addison-rae-diet-pepsi-kurei-remix)
 
-**Artist**: rainfield 
+**Artist**: ☆KUREI☆ 
 
-**Track**: stuck in the suburbs
+**Track**: Addison Rae - Diet Pepsi (Kurei Remix)
 
-Last updated at 2/11/2025, 1:35:57 PM
+Last updated at 2/11/2025, 1:38:12 PM
