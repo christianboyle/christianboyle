@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDKNFJJUWLak5QXF-E8Z3Fg-t500x500.png">](https://soundcloud.com/iamroxas/baptismal-sonata)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MAjYPcLoz89LBLgN-i1RnDw-t500x500.jpg">](https://soundcloud.com/itherokki/beast)
 
-**Artist**: ROXAS 
+**Artist**: Rokki 
 
-**Track**: baptismal sonata
+**Track**: Beast
 
-Last updated at 2/11/2025, 8:56:50 PM
+Last updated at 2/11/2025, 8:57:51 PM
