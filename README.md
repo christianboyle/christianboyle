@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GRjx4yrLGlDN3Bd-zkH7rA-t500x500.jpg">](https://soundcloud.com/mwtg-podcast/mwtg-391-kuba-sojka-hybrid-dj-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qp4VbrCcbnmmGPSq-9gtc2Q-t500x500.png">](https://soundcloud.com/ilian-tape/itps113-yamour)
 
-**Artist**: MWTG 
+**Artist**: ILIAN TAPE 
 
-**Track**: MWTG 391: Kuba Sojka [Hybrid DJ Set]
+**Track**: ITPS113 YAMOUR
 
-Last updated at 2/12/2025, 9:10:05 AM
+Last updated at 2/12/2025, 9:11:10 AM
