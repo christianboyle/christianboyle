@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OolJtmBAgADKXB0T-8x4lbA-t500x500.png">](https://soundcloud.com/hardcoreenergy/sempra-aint-going-nowhere?in=hardcoreenergy/sets/sempra-aint-going-nowhere-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dXqmgrv0zshUZg8g-EUWb9A-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-exhilarated-ego-hyperarousal)
 
-**Artist**: Hardcore Energy 
+**Artist**: Techno Wereld 
 
-**Track**: Sempra - Ain't Going Nowhere
+**Track**: Premiere: Exhilarated Ego - Hyperarousal [ILLU007]
 
-Last updated at 2/12/2025, 9:07:04 AM
+Last updated at 2/12/2025, 9:08:55 AM
