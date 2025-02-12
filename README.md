@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ITk3qVWw9O62UQV-RyNGaA-t500x500.jpg">](https://soundcloud.com/stunnapossecult/dessigner-toys-stunna-posse-cult-mix111)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e7sNmdT3TUDEjgBO-3xky1w-t500x500.jpg">](https://soundcloud.com/nocturnalpriest/deadsouls)
 
-**Artist**: STUNNA POSSE 
+**Artist**: Nocturnalprie$t 
 
-**Track**: DESSIGNER TOYS STUNNA POSSE CULT MIX
+**Track**: Dead Souls
 
-Last updated at 2/12/2025, 9:05:04 AM
+Last updated at 2/12/2025, 9:06:04 AM
