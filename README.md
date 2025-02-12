@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qp4VbrCcbnmmGPSq-9gtc2Q-t500x500.png">](https://soundcloud.com/ilian-tape/itps113-yamour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCIxSXejBDCumRNF-g799gQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/veil-x-digital-vagabond-omega)
 
-**Artist**: ILIAN TAPE 
+**Artist**: VEIL 
 
-**Track**: ITPS113 YAMOUR
+**Track**: VEIL x Digital Vagabond - OMEGA
 
-Last updated at 2/12/2025, 9:11:10 AM
+Last updated at 2/12/2025, 9:12:10 AM
