@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L721Q3dryImvEw9t-3zym0Q-t500x500.jpg">](https://soundcloud.com/noertheboy/horror-show-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPc8x75jJ20W9wqX-EzbRZw-t500x500.jpg">](https://soundcloud.com/elex_page/spirit)
 
-**Artist**: Noer the Boy 
+**Artist**: ELEX 
 
-**Track**: DJ Shadow - Horror Show feat. Danny Brown (Noer the Boy Remix)
+**Track**: Spirit
 
-Last updated at 2/11/2025, 8:54:50 PM
+Last updated at 2/11/2025, 8:55:50 PM
