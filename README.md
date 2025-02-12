@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fCIxSXejBDCumRNF-g799gQ-t500x500.jpg">](https://soundcloud.com/veilofficialx/veil-x-digital-vagabond-omega)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-516GgIgN9dtC-0-t500x500.jpg">](https://soundcloud.com/taiki-nulight-uk/out-of-control)
 
-**Artist**: VEIL 
+**Artist**: Taiki Nulight, Borne 
 
-**Track**: VEIL x Digital Vagabond - OMEGA
+**Track**: Out of Control
 
-Last updated at 2/12/2025, 9:12:10 AM
+Last updated at 2/12/2025, 9:13:40 AM
