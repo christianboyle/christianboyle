@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e7sNmdT3TUDEjgBO-3xky1w-t500x500.jpg">](https://soundcloud.com/nocturnalpriest/deadsouls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OolJtmBAgADKXB0T-8x4lbA-t500x500.png">](https://soundcloud.com/hardcoreenergy/sempra-aint-going-nowhere?in=hardcoreenergy/sets/sempra-aint-going-nowhere-ep)
 
-**Artist**: Nocturnalprie$t 
+**Artist**: Hardcore Energy 
 
-**Track**: Dead Souls
+**Track**: Sempra - Ain't Going Nowhere
 
-Last updated at 2/12/2025, 9:06:04 AM
+Last updated at 2/12/2025, 9:07:04 AM
