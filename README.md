@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPc8x75jJ20W9wqX-EzbRZw-t500x500.jpg">](https://soundcloud.com/elex_page/spirit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDKNFJJUWLak5QXF-E8Z3Fg-t500x500.png">](https://soundcloud.com/iamroxas/baptismal-sonata)
 
-**Artist**: ELEX 
+**Artist**: ROXAS 
 
-**Track**: Spirit
+**Track**: baptismal sonata
 
-Last updated at 2/11/2025, 8:55:50 PM
+Last updated at 2/11/2025, 8:56:50 PM
