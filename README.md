@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eDRjLvIzAZJsAObE-CuZwEg-t500x500.png">](https://soundcloud.com/the_kandi_kid_assassin/modern-solutions-for-silly-problems)
 
-**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
+**Artist**: The Kandi Kid Assassin 
 
-**Track**: #gutterVC 😎 [nightiger + nothing2do]
+**Track**: Modern Solutions For Silly Problems
 
-Last updated at 2/11/2025, 8:49:50 PM
+Last updated at 2/11/2025, 8:52:50 PM
