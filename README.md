@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DRK07rzVmdbeREix-7DlVYQ-t500x500.jpg">](https://soundcloud.com/wearestudio/mercy-system-through-the-static-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight)
 
-**Artist**: Mercy System 
+**Artist**: Ultravibes 
 
-**Track**: Mercy System - Through The Static [Premiere]
+**Track**: Midnight
 
-Last updated at 2/13/2025, 7:45:12 AM
+Last updated at 2/13/2025, 7:46:12 AM
