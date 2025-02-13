@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5HgokjhNrvKekly-hi9PzA-t500x500.jpg">](https://soundcloud.com/lvndquist/3urotrahhhhhh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight)
 
-**Artist**: lvndquist 
+**Artist**: Ultravibes 
 
-**Track**: €3£urotra$hhhhhh
+**Track**: Midnight
 
-Last updated at 2/13/2025, 7:47:22 AM
+Last updated at 2/13/2025, 8:13:35 AM
