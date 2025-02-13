@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Lm5OxLesVIehvsp-iyZyMQ-t500x500.png">](https://soundcloud.com/mirr-img/mirr-img-potion-seller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVDlYS8JVHfExRrt-BqEeIQ-t500x500.jpg">](https://soundcloud.com/mikaheggemann/heggemann-sofi-needs-a-ladder)
 
-**Artist**: MIRR.IMG 
+**Artist**: Mika Heggemann 
 
-**Track**: MIRR.IMG - Potion Seller [Free DL]
+**Track**: Mika Heggemann x deadmau5 - SOFI Needs A Ladder
 
-Last updated at 2/13/2025, 7:42:02 AM
+Last updated at 2/13/2025, 7:43:12 AM
