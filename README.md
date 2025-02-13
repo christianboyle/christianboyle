@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bz6xzoRTtonhkHyh-NWjxiw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/bassbrain-akyra-since-u-been-gone)
 
-**Artist**: CRAAIG 
+**Artist**: Bassbrain, Akyra 
 
-**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
+**Track**: Bassbrain & Akyra - Since U Been Gone
 
-Last updated at 2/13/2025, 8:17:37 AM
+Last updated at 2/13/2025, 8:21:57 AM
