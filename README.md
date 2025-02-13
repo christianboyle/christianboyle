@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bz6xzoRTtonhkHyh-NWjxiw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/bassbrain-akyra-since-u-been-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DRK07rzVmdbeREix-7DlVYQ-t500x500.jpg">](https://soundcloud.com/wearestudio/mercy-system-through-the-static-premiere)
 
-**Artist**: Bassbrain, Akyra 
+**Artist**: Mercy System 
 
-**Track**: Bassbrain & Akyra - Since U Been Gone
+**Track**: Mercy System - Through The Static [Premiere]
 
-Last updated at 2/13/2025, 7:44:12 AM
+Last updated at 2/13/2025, 7:45:12 AM
