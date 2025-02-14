@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ428FcDcySP-0-t500x500.jpg">](https://soundcloud.com/houseofprotection/pulling-teeth-1?in=houseofprotection/sets/galore-346878385)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
 
-**Artist**: House of Protection 
+**Artist**: S3RL ft IgikoPop & IC3MANIA 
 
-**Track**: Pulling Teeth
+**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
 
-Last updated at 2/13/2025, 4:15:56 PM
+Last updated at 2/14/2025, 5:57:00 AM
