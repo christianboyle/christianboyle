@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OUfo1bsArjvX-0-t500x500.jpg">](https://soundcloud.com/bambinodj-music/fanta-bay?in=o-s-t-music/sets/ost003-bambinodj-silent)
 
-**Artist**: S3RL ft IgikoPop & IC3MANIA 
+**Artist**: bambinodj 
 
-**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
+**Track**: Fanta Bay
 
-Last updated at 2/14/2025, 8:55:28 AM
+Last updated at 2/14/2025, 8:59:39 AM
