@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNY2iRCpjlehFudX-F56n9g-t500x500.png">](https://soundcloud.com/1nicola5/tell-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXsTbUwlW6rvOcXu-z47tTA-t500x500.png">](https://soundcloud.com/baeldorf/dusk)
 
-**Artist**: nicola5 
+**Artist**: Baeldorf, STM 
 
-**Track**: ://『Tell Me』
+**Track**: Dusk (Album) ft. STM
 
-Last updated at 2/14/2025, 7:16:33 PM
+Last updated at 2/14/2025, 7:19:30 PM
