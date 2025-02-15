@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUyDkH6U2v95A4WZ-yf62fw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fran-deliro-angel-garcia-everytime-we-touch?in=saxurn/sets/dead-code/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc?in=saxurn/sets/dead-code/)
 
-**Artist**: Fran Deliro & Angel Garcia 
+**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
 
-**Track**: Fran Deliro & Angel Garcia - Everytime We Touch
+**Track**: #gutterVC 😎 [nightiger + nothing2do]
 
-Last updated at 2/15/2025, 9:38:38 AM
+Last updated at 2/15/2025, 9:41:37 AM
