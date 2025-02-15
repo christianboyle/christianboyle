@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1)
 
-**Artist**: S3RL ft IgikoPop & IC3MANIA 
+**Artist**: CRAAIG 
 
-**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
+**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
 
-Last updated at 2/14/2025, 6:07:01 PM
+Last updated at 2/14/2025, 6:56:00 PM
