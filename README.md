@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight)
 
-**Artist**: CRAAIG 
+**Artist**: Ultravibes 
 
-**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
+**Track**: Midnight
 
-Last updated at 2/14/2025, 6:56:00 PM
+Last updated at 2/14/2025, 7:00:21 PM
