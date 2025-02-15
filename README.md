@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HnfTYU2zV6kLG1fW-Wrdiiw-t500x500.jpg">](https://soundcloud.com/dnzrecords/wildness-project-dieguiky-new-reality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iNY2iRCpjlehFudX-F56n9g-t500x500.png">](https://soundcloud.com/1nicola5/tell-me)
 
-**Artist**: Wildness Project & Dieguiky 
+**Artist**: nicola5 
 
-**Track**: Wildness Project & Dieguiky - New Reality
+**Track**: ://『Tell Me』
 
-Last updated at 2/14/2025, 7:14:54 PM
+Last updated at 2/14/2025, 7:16:33 PM
