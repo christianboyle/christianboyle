@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc?in=saxurn/sets/dead-code/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1?in=saxurn/sets/dead-code/)
 
-**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
+**Artist**: CRAAIG 
 
-**Track**: #gutterVC 😎 [nightiger + nothing2do]
+**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
 
-Last updated at 2/15/2025, 9:41:37 AM
+Last updated at 2/15/2025, 9:44:51 AM
