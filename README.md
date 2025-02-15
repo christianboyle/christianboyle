@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart?in=saxurn/sets/dead-code/)
 
-**Artist**: Ezra Hazard 
+**Artist**: S3RL ft IgikoPop & IC3MANIA 
 
-**Track**: Pentagramma Reload (Mashup)
+**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
 
-Last updated at 2/15/2025, 8:44:13 AM
+Last updated at 2/15/2025, 8:45:12 AM
