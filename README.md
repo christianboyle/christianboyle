@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1?in=saxurn/sets/zero-player-game)
 
-**Artist**: Ultravibes 
+**Artist**: CRAAIG 
 
-**Track**: Midnight
+**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
 
-Last updated at 2/15/2025, 1:48:14 PM
+Last updated at 2/15/2025, 5:59:07 PM
