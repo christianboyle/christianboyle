@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bz6xzoRTtonhkHyh-NWjxiw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/bassbrain-akyra-since-u-been-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
 
-**Artist**: Bassbrain, Akyra 
+**Artist**: S3RL ft IgikoPop & IC3MANIA 
 
-**Track**: Bassbrain & Akyra - Since U Been Gone
+**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
 
-Last updated at 2/14/2025, 10:43:38 AM
+Last updated at 2/14/2025, 6:07:01 PM
