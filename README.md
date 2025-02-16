@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps1ZVTyUCoXyGRjE-Ulc8dg-t500x500.png">](https://soundcloud.com/whalesfm/healing?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrHihC3Plah5n85W-fDw8Ig-t500x500.png">](https://soundcloud.com/craighughesdj/craaig-luv-only-me-1?in=saxurn/sets/zero-player-game)
 
-**Artist**: Whales 
+**Artist**: CRAAIG 
 
-**Track**: Whales - Healing
+**Track**: CRAAIG - LUV ONLY ME (HARD EDIT)
 
-Last updated at 2/16/2025, 11:08:12 AM
+Last updated at 2/16/2025, 11:11:03 AM
