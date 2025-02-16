@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended?in=saxurn/sets/blockbussin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzdv5RCw3sesQYP6-oSjHFA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-nito-groove-covenant?in=saxurn/sets/blockbussin)
 
-**Artist**: ‎jtski 
+**Artist**: TRANSITION 
 
-**Track**: #brrrrrrr (extendedexclusive)
+**Track**: PREMIERE: Nito – Groove Covenant
 
-Last updated at 2/16/2025, 3:13:03 PM
+Last updated at 2/16/2025, 3:14:58 PM
