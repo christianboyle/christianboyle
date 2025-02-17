@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utfJrOO5Uj0G3FzT-nRAczQ-t500x500.jpg">](https://soundcloud.com/wubaholics/blurrd-vzn-let-me-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWEzMLavYaNr7jvM-XEZoCw-t500x500.jpg">](https://soundcloud.com/vrg_music/locked-in-2025)
 
-**Artist**: Blurrd Vzn 
+**Artist**: VRG 
 
-**Track**: Blurrd Vzn - Let Me Go
+**Track**: LOCKED IN 2025
 
-Last updated at 2/16/2025, 6:58:12 PM
+Last updated at 2/16/2025, 7:00:27 PM
