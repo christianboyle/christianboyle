@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uh0RRI4EzMlG4qXN-ii50Lw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/liquid-hardcore-vs-uk-hardcore)
 
-**Artist**: DJ ColdSteel 
+**Artist**: Dj Des 
 
-**Track**: bardstyle/reset (collegiate mix)
+**Track**: Liquid Hardcore Vs Uk Hardcore   ( B2B Sessions 22 )
 
-Last updated at 2/16/2025, 7:49:38 PM
+Last updated at 2/16/2025, 7:50:38 PM
