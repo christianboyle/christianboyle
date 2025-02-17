@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U4LBSQ6yD57IjG7q-wAObiQ-t500x500.jpg">](https://soundcloud.com/bkbeats/exegesis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utfJrOO5Uj0G3FzT-nRAczQ-t500x500.jpg">](https://soundcloud.com/wubaholics/blurrd-vzn-let-me-go)
 
-**Artist**: bk beats 
+**Artist**: Blurrd Vzn 
 
-**Track**: exegesis
+**Track**: Blurrd Vzn - Let Me Go
 
-Last updated at 2/16/2025, 6:55:21 PM
+Last updated at 2/16/2025, 6:58:12 PM
