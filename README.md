@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SpK5OuCsyTxov8rL-ykNmRQ-t500x500.png">](https://soundcloud.com/grant-g-train/the-hive-025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aunqrNplMHeuyEgG-QWse1Q-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-heden-martha-shvrs004)
 
-**Artist**: In The Mix with G TRAIN 
+**Artist**: HATE, Heden  
 
-**Track**: The Hive #025
+**Track**: Premiere: Heden — Martha [SHVRS004]
 
-Last updated at 2/17/2025, 6:56:25 AM
+Last updated at 2/17/2025, 7:03:11 AM
