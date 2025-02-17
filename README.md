@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gc6cIOYEznIs1Wqd-up4Amw-t500x500.png">](https://soundcloud.com/uselet/desires-digital-horror)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SpK5OuCsyTxov8rL-ykNmRQ-t500x500.png">](https://soundcloud.com/grant-g-train/the-hive-025)
 
-**Artist**: uselet 
+**Artist**: In The Mix with G TRAIN 
 
-**Track**: desires. \\ digital horror.
+**Track**: The Hive #025
 
-Last updated at 2/17/2025, 6:54:15 AM
+Last updated at 2/17/2025, 6:56:25 AM
