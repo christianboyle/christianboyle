@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6IZ65esaNjfbJMHm-jJeQPg-t500x500.jpg">](https://soundcloud.com/1sn0/lifestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix)
 
-**Artist**: snoa 
+**Artist**: DJ ColdSteel 
 
-**Track**: lifestyle prod tgwog and yurkiez
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/17/2025, 10:00:19 AM
+Last updated at 2/17/2025, 11:52:21 AM
