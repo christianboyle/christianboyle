@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8jkONhVPiWMZvKU-ZZPmtQ-t500x500.jpg">](https://soundcloud.com/zynar/pound-of-bacon?in=saxurn/sets/old-slimeful/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GLzzfvogqCSJM9gh-9Kv3sA-t500x500.jpg">](https://soundcloud.com/gaszia/dang?in=saxurn/sets/old-slimeful/)
 
-**Artist**: Zynar, Vanilla Ice 
+**Artist**: Gaszia 
 
-**Track**: Pound of Bacon (Vanilla Ice can't get enough Costco thick Cut bacon remix)
+**Track**: Caroline Polachek - Dang (Gaszia & bk beats Remix)
 
-Last updated at 2/17/2025, 1:10:08 PM
+Last updated at 2/17/2025, 1:14:44 PM
