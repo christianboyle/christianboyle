@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Bgh3YHP9FXzRwsn-iEylEQ-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/akriza-mah-ze-tar-govinda-this-is-raga-pt-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lXxCqdEBvLW3Nk9L-ZgaBoQ-t500x500.jpg">](https://soundcloud.com/dinkthepoof/drak-whathappened-dink-the-poof-remix)
 
-**Artist**: Akriza, Mah Ze Tar, & Govinda 
+**Artist**: Dink 
 
-**Track**: Akriza, Mah Ze Tar, & Govinda - This Is Raga, Pt. II
+**Track**: drak - whathappened (dink the poof remix)
 
-Last updated at 2/16/2025, 7:43:13 PM
+Last updated at 2/16/2025, 7:44:18 PM
