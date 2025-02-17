@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aunqrNplMHeuyEgG-QWse1Q-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-heden-martha-shvrs004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5nIafvZpc022p5SE-aeQySg-t500x500.png">](https://soundcloud.com/a_red_letter_day/how-to-die-standing-still)
 
-**Artist**: HATE, Heden  
+**Artist**: a red letter day 
 
-**Track**: Premiere: Heden — Martha [SHVRS004]
+**Track**: how to die standing still
 
-Last updated at 2/17/2025, 7:03:11 AM
+Last updated at 2/17/2025, 9:41:57 AM
