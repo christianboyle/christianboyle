@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vG5XZS3o4vTgvFRb-Ls2zFQ-t500x500.png">](https://soundcloud.com/align_music/camila-cabello-baby-pink-align?in=saxurn/sets/slapper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8jkONhVPiWMZvKU-ZZPmtQ-t500x500.jpg">](https://soundcloud.com/zynar/pound-of-bacon?in=saxurn/sets/old-slimeful/)
 
-**Artist**: ALIGN 
+**Artist**: Zynar, Vanilla Ice 
 
-**Track**: Camila Cabello - Baby Pink (ALIGN Flip)
+**Track**: Pound of Bacon (Vanilla Ice can't get enough Costco thick Cut bacon remix)
 
-Last updated at 2/17/2025, 1:06:38 PM
+Last updated at 2/17/2025, 1:10:08 PM
