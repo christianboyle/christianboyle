@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvbeI0uazgjcH6f-zhWQ7w-t500x500.png">](https://soundcloud.com/valerineprisma/see-you-tomorrow?in=valerineprisma/sets/see-you-tomorrow-single)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USff6zR94fptn4KE-4dxfdg-t500x500.jpg">](https://soundcloud.com/kastra-bootlegs/abracadabraremix)
 
-**Artist**: Valerine Prisma 
+**Artist**: Kastra [Bootlegs] 
 
-**Track**: See You (tomorrow)
+**Track**: Lady Gaga - Abracadabra (Kastra Remix)
 
-Last updated at 2/17/2025, 9:55:33 AM
+Last updated at 2/17/2025, 9:57:12 AM
