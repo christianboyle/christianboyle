@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxBuazzfeZLPzvKH-i1tflg-t500x500.jpg">](https://soundcloud.com/phrva/shabba?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBVHj3iFCy7IPIwB-kvYoUQ-t500x500.jpg">](https://soundcloud.com/iamlostronaut/365-lostronaut-flip?in=saxurn/sets/old-slimeful)
 
-**Artist**: Phrva 
+**Artist**: LØSTRONAUT 
 
-**Track**: A$AP Ferg - Shabba ft. A$AP Rocky (Phrva & yojas. Flip)
+**Track**: 365 (LØSTRONAUT FLIP)
 
-Last updated at 2/17/2025, 2:23:42 PM
+Last updated at 2/17/2025, 2:27:17 PM
