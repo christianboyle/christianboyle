@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWEzMLavYaNr7jvM-XEZoCw-t500x500.jpg">](https://soundcloud.com/vrg_music/locked-in-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2WIbdG82dNaOIbVs-bspr9w-t500x500.jpg">](https://soundcloud.com/dontdieatwork/hmu-tracer)
 
-**Artist**: VRG 
+**Artist**: HMU 
 
-**Track**: LOCKED IN 2025
+**Track**: HMU - TRACER
 
-Last updated at 2/16/2025, 7:00:27 PM
+Last updated at 2/16/2025, 7:01:42 PM
