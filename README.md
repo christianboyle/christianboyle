@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5nIafvZpc022p5SE-aeQySg-t500x500.png">](https://soundcloud.com/a_red_letter_day/blunt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6K6TqTJQn4LH-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/i-cant-take-it?in=bonkers-rave/sets/i-cant-take-it-7)
 
-**Artist**: a red letter day 
+**Artist**: Jakka-B 
 
-**Track**: blunt
+**Track**: I Can't Take It
 
-Last updated at 2/17/2025, 9:43:42 AM
+Last updated at 2/17/2025, 9:45:13 AM
