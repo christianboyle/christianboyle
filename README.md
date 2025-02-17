@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yV6zgJs0hERYzrqT-1VTEvw-t500x500.jpg">](https://soundcloud.com/breakfastclubfr/emergencybreakfastclub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
 
-**Artist**: Breakfast Club 
+**Artist**: S3RL ft IgikoPop & IC3MANIA 
 
-**Track**: Paramore - Emergency (Breakfast Club Remix)
+**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
 
-Last updated at 2/17/2025, 12:04:49 PM
+Last updated at 2/17/2025, 12:06:34 PM
