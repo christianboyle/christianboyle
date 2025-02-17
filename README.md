@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXFHCaAoVHah9AtO-uopQyw-t500x500.png">](https://soundcloud.com/monsterseverywhere/coastal-fool-on-the-hill-monsters-everywhere-x-ncxtel-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Bgh3YHP9FXzRwsn-iEylEQ-t500x500.jpg">](https://soundcloud.com/gravitas-recordings/akriza-mah-ze-tar-govinda-this-is-raga-pt-ii)
 
-**Artist**: MONSTERS EVERYWHERE, NCXTEL, COASTAL 
+**Artist**: Akriza, Mah Ze Tar, & Govinda 
 
-**Track**: Coastal - Fool On The Hill (Monsters Everywhere x Ncxtel Remix)
+**Track**: Akriza, Mah Ze Tar, & Govinda - This Is Raga, Pt. II
 
-Last updated at 2/16/2025, 7:41:58 PM
+Last updated at 2/16/2025, 7:43:13 PM
