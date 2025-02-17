@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9M8rsURbg3v-0-t500x500.jpg">](https://soundcloud.com/5ebmusic/london-tipton)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRjviyev0uwodvuc-1B7aOQ-t500x500.jpg">](https://soundcloud.com/d-o-d/dod-ft-north-wrap-yourself-around-me-teaser)
 
-**Artist**: 5EB 
+**Artist**: D.O.D, NORTH 
 
-**Track**: London Tipton
+**Track**: D.O.D. ft. NORTH - Wrap Yourself Around Me (Teaser)
 
-Last updated at 2/17/2025, 9:51:08 AM
+Last updated at 2/17/2025, 9:52:08 AM
