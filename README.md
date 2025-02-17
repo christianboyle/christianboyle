@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CRjviyev0uwodvuc-1B7aOQ-t500x500.jpg">](https://soundcloud.com/d-o-d/dod-ft-north-wrap-yourself-around-me-teaser)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D3W4FWZhMt1mFBX6-W5fpBQ-t500x500.png">](https://soundcloud.com/officialrunes/sensate-x-giyuta-paranoid-ft-mikey-rotten-runes-exclusive-free-download)
 
-**Artist**: D.O.D, NORTH 
+**Artist**: SENSATE, Giyuta, MIKEY ROTTEN 
 
-**Track**: D.O.D. ft. NORTH - Wrap Yourself Around Me (Teaser)
+**Track**: SENSATE X GIYUTA - PARANOID (FT. MIKEY ROTTEN) (Runes Exclusive) Free Download
 
-Last updated at 2/17/2025, 9:52:08 AM
+Last updated at 2/17/2025, 9:53:08 AM
