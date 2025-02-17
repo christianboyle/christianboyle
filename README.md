@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/slapper/)
 
-**Artist**: S3RL ft IgikoPop & IC3MANIA 
+**Artist**: DJ ColdSteel 
 
-**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/17/2025, 12:06:34 PM
+Last updated at 2/17/2025, 12:07:45 PM
