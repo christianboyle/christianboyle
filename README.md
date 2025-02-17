@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XFjaaUJYEUw05N9c-dthWMA-t500x500.png">](https://soundcloud.com/oxxidee/1997-alegria-24-ft-isa-gt-oxide-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/old-slimeful/)
 
-**Artist**: OXIDE 
+**Artist**: DJ ColdSteel 
 
-**Track**: 1997 - Alegria 24 (Ft. Isa GT) (OXIDE FLIP)
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/17/2025, 1:53:55 PM
+Last updated at 2/17/2025, 1:54:59 PM
