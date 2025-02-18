@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReN92VODkmCFUlLD-AASAqw-t500x500.png">](https://soundcloud.com/remon-verhoeve/kill-you-free-dl?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRvg9ZI5cJfyC1WP-Z0CK3A-t500x500.jpg">](https://soundcloud.com/1gutter/guttervc?in=saxurn/sets/zero-player-game)
 
-**Artist**: Remon Verhoeve 
+**Artist**: kuromin, 00sev, starxvi, crisis, cheeto 
 
-**Track**: Kill You [Free DL]
+**Track**: #gutterVC 😎 [nightiger + nothing2do]
 
-Last updated at 2/18/2025, 9:44:34 AM
+Last updated at 2/18/2025, 9:50:15 AM
