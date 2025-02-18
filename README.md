@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReN92VODkmCFUlLD-AASAqw-t500x500.png">](https://soundcloud.com/remon-verhoeve/kill-you-free-dl?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/old-slimeful)
 
-**Artist**: Remon Verhoeve 
+**Artist**: DJ ColdSteel 
 
-**Track**: Kill You [Free DL]
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/18/2025, 4:08:06 PM
+Last updated at 2/18/2025, 4:13:27 PM
