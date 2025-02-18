@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/old-slimeful)
 
-**Artist**: Ezra Hazard 
+**Artist**: DJ ColdSteel 
 
-**Track**: Pentagramma Reload (Mashup)
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/18/2025, 9:58:51 AM
+Last updated at 2/18/2025, 10:00:39 AM
