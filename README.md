@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ESvMe44g4BedjAn-zrSe9Q-t500x500.jpg">](https://soundcloud.com/noizadikt/dirty-bass-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReN92VODkmCFUlLD-AASAqw-t500x500.png">](https://soundcloud.com/remon-verhoeve/kill-you-free-dl?in=saxurn/sets/old-slimeful)
 
-**Artist**: NOIZADIKT 
+**Artist**: Remon Verhoeve 
 
-**Track**: NOIZADIKT x RAVEN - DIRTY BASS (220 BPM)
+**Track**: Kill You [Free DL]
 
-Last updated at 2/18/2025, 1:12:44 PM
+Last updated at 2/18/2025, 1:47:57 PM
