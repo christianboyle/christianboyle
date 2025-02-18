@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lmkwEWzz7RVsS7gs-1bB1cA-t500x500.jpg">](https://soundcloud.com/bollmannx/pawlowski-fenrick-back-with-another-one-bollmann-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ESvMe44g4BedjAn-zrSe9Q-t500x500.jpg">](https://soundcloud.com/noizadikt/dirty-bass-master)
 
-**Artist**: Bollmann 
+**Artist**: NOIZADIKT 
 
-**Track**: Pawlowski & Fenrick - Back With Another One (Bollmann HARD Edit)
+**Track**: NOIZADIKT x RAVEN - DIRTY BASS (220 BPM)
 
-Last updated at 2/18/2025, 1:07:33 PM
+Last updated at 2/18/2025, 1:12:44 PM
