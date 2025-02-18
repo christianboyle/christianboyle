@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReN92VODkmCFUlLD-AASAqw-t500x500.png">](https://soundcloud.com/remon-verhoeve/kill-you-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8jkONhVPiWMZvKU-ZZPmtQ-t500x500.jpg">](https://soundcloud.com/zynar/pound-of-bacon?in=saxurn/sets/old-slimeful)
 
-**Artist**: Remon Verhoeve 
+**Artist**: Zynar, Vanilla Ice 
 
-**Track**: Kill You [Free DL]
+**Track**: Pound of Bacon (Vanilla Ice can't get enough Costco thick Cut bacon remix)
 
-Last updated at 2/18/2025, 9:10:21 AM
+Last updated at 2/18/2025, 9:16:37 AM
