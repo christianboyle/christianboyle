@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eiQmY8VeaWpyJz0u-qQ5mDg-t500x500.jpg">](https://soundcloud.com/yoshbass/rhiannon-roze-bad-habit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0yuEgwmtQq61DFi-TZza0A-t500x500.jpg">](https://soundcloud.com/bassrush/myrias-mind-scanner)
 
-**Artist**: Rhiannon Roze 
+**Artist**: MYRIAS 
 
-**Track**: Rhiannon Roze - BAD HABIT
+**Track**: MYRIAS - Mind Scanner
 
-Last updated at 2/19/2025, 9:35:41 AM
+Last updated at 2/19/2025, 9:36:50 AM
