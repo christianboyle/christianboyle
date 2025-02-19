@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7Knup2OthBwyKMn-mRWWLw-t500x500.jpg">](https://soundcloud.com/adrenalindj/happy_hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WKk5DzaUZvi7vP5q-aGss0A-t500x500.jpg">](https://soundcloud.com/yoshbass/rhiannon-roze-pursuit-of-fire-mashup)
 
-**Artist**: Adrenalin 
+**Artist**: Yosh Bass 
 
-**Track**: Happy Hardcore
+**Track**: Rhiannon Roze DJ Weapon - Pursuit Of Fire Mashup [FREE DOWNLOAD]
 
-Last updated at 2/19/2025, 9:38:52 AM
+Last updated at 2/19/2025, 9:40:15 AM
