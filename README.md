@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFdVXtzSA54q6dcA-tYH9YA-t500x500.png">](https://soundcloud.com/nastmajestmusic/bustlin?in=nastmajestmusic/sets/virenna-b-sides)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M6EGvCimj1KMfUM3-4STV7Q-t500x500.jpg">](https://soundcloud.com/708chosen/downandout)
 
-**Artist**: Nast Majest 
+**Artist**: 708Chosen 
 
-**Track**: Bustlin'
+**Track**: Down And Out (@708Chosen)
 
-Last updated at 2/18/2025, 6:56:54 PM
+Last updated at 2/18/2025, 6:57:55 PM
