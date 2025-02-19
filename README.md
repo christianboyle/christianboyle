@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ah8FpW3sl56tSPPY-nymmRQ-t500x500.jpg">](https://soundcloud.com/boltingbits/premiere-dj-physical-gucci-vibe?in=dj-physical/sets/beware-of-the-cool-kids-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsC1aLnvZdWmioys-F2NMyA-t500x500.jpg">](https://soundcloud.com/whynotusdnb/jump-whynotus-flip)
 
-**Artist**: Bolting Bits 
+**Artist**: WHYNOTUS 
 
-**Track**: PREMIERE: DJ Physical - Gucci Vibe
+**Track**: Jump Remix - Kris Kross (FREE DOWNLOAD)
 
-Last updated at 2/19/2025, 9:49:16 AM
+Last updated at 2/19/2025, 9:50:34 AM
