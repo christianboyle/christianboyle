@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fc59xvbFaZP1qR2y-E8uCjw-t500x500.jpg">](https://soundcloud.com/dj-seinfeld/with-my-luv-2025-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eiQmY8VeaWpyJz0u-qQ5mDg-t500x500.jpg">](https://soundcloud.com/yoshbass/rhiannon-roze-bad-habit)
 
-**Artist**: DJ SEINFELD 
+**Artist**: Rhiannon Roze 
 
-**Track**: With My Luv (2025 VIP)
+**Track**: Rhiannon Roze - BAD HABIT
 
-Last updated at 2/19/2025, 9:34:36 AM
+Last updated at 2/19/2025, 9:35:41 AM
