@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8LjwWOnRq8GAXSp-FfLy5g-t500x500.jpg">](https://soundcloud.com/bernzikial/no-breaks-bernzikial-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aSeZUJx2S0wDAESr-OIYm7g-t500x500.png">](https://soundcloud.com/kewljerkmusic/delrosa)
 
-**Artist**: BERNZIKIAL ✨💜 
+**Artist**: KEWLJERK, VIAL 
 
-**Track**: TroyBoi - No Breaks (BERNZIKIAL Edit)
+**Track**: KEWLJERK X VIAL - DELROSA
 
-Last updated at 2/18/2025, 6:54:34 PM
+Last updated at 2/18/2025, 6:55:49 PM
