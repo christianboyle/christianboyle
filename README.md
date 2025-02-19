@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsC1aLnvZdWmioys-F2NMyA-t500x500.jpg">](https://soundcloud.com/whynotusdnb/jump-whynotus-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnRUB6U9m8iO-0-t500x500.jpg">](https://soundcloud.com/iamhvrcrft/soul-rebel-cover-song-feat)
 
-**Artist**: WHYNOTUS 
+**Artist**: hvrcrft, DAVE SHERMAN 
 
-**Track**: Jump Remix - Kris Kross (FREE DOWNLOAD)
+**Track**: Soul Rebel (Cover Song) [feat. layne tadesse]
 
-Last updated at 2/19/2025, 9:50:34 AM
+Last updated at 2/19/2025, 9:51:16 AM
