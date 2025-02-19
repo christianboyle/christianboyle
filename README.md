@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBWJnSfOzz5PNPFv-ov2y5w-t500x500.jpg">](https://soundcloud.com/wearestudio/adrenaline-sorza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fc59xvbFaZP1qR2y-E8uCjw-t500x500.jpg">](https://soundcloud.com/dj-seinfeld/with-my-luv-2025-vip)
 
-**Artist**: STUDIO 
+**Artist**: DJ SEINFELD 
 
-**Track**: Adrenaline | Sorza
+**Track**: With My Luv (2025 VIP)
 
-Last updated at 2/19/2025, 9:33:36 AM
+Last updated at 2/19/2025, 9:34:36 AM
