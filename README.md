@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XRxE03DOpdsEE3bi-83qSdg-t500x500.jpg">](https://soundcloud.com/onlybangs/tryad-stay-connected-enormous-vision)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8DTHdqFucmPaIO7-7YaPwA-t500x500.jpg">](https://soundcloud.com/bromosapiendub/adventure-club-gold-bromosapien-flip)
 
-**Artist**: TRYAD 
+**Artist**: BroMosapien 
 
-**Track**: TRYAD - Stay Connected [Enormous Vision]
+**Track**: Adventure Club - Gold [BroMosapien Flip]
 
-Last updated at 2/18/2025, 6:52:34 PM
+Last updated at 2/18/2025, 6:53:34 PM
