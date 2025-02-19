@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GLzzfvogqCSJM9gh-9Kv3sA-t500x500.jpg">](https://soundcloud.com/gaszia/dang?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBVHj3iFCy7IPIwB-kvYoUQ-t500x500.jpg">](https://soundcloud.com/iamlostronaut/365-lostronaut-flip?in=saxurn/sets/old-slimeful)
 
-**Artist**: Gaszia 
+**Artist**: LØSTRONAUT 
 
-**Track**: Caroline Polachek - Dang (Gaszia & bk beats Remix)
+**Track**: 365 (LØSTRONAUT FLIP)
 
-Last updated at 2/18/2025, 5:18:56 PM
+Last updated at 2/18/2025, 6:51:04 PM
