@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3POayVX9YSIVqCu7-UY0Zqg-t500x500.png">](https://soundcloud.com/djnixy32/nxy-devse-all-the-girls-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBWJnSfOzz5PNPFv-ov2y5w-t500x500.jpg">](https://soundcloud.com/wearestudio/adrenaline-sorza)
 
-**Artist**: DJ N!XY [ NIXY ] 
+**Artist**: STUDIO 
 
-**Track**: N!XY & DeV!Se - All The Girls  [ BOUNCE ]   Remix of Hannah Laing Bass Boys
+**Track**: Adrenaline | Sorza
 
-Last updated at 2/18/2025, 7:01:50 PM
+Last updated at 2/18/2025, 7:03:00 PM
