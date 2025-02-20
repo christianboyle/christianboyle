@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnRUB6U9m8iO-0-t500x500.jpg">](https://soundcloud.com/iamhvrcrft/soul-rebel-cover-song-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JYmtBzbK7ltrD2z4-AizYXg-t500x500.jpg">](https://soundcloud.com/killtheclowns/kill-the-clowns-abyssal-echoes)
 
-**Artist**: hvrcrft, DAVE SHERMAN 
+**Artist**: Kill the Clowns 
 
-**Track**: Soul Rebel (Cover Song) [feat. layne tadesse]
+**Track**: Kill the Clowns - Abyssal Echoes
 
-Last updated at 2/19/2025, 9:51:16 AM
+Last updated at 2/20/2025, 9:50:52 AM
