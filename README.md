@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JYmtBzbK7ltrD2z4-AizYXg-t500x500.jpg">](https://soundcloud.com/killtheclowns/kill-the-clowns-abyssal-echoes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DjSsFbpWqGXPTcpE-KzHzCg-t500x500.jpg">](https://soundcloud.com/zuzeofficial/you-once-said-my-name)
 
-**Artist**: Kill the Clowns 
+**Artist**: ZUZE 
 
-**Track**: Kill the Clowns - Abyssal Echoes
+**Track**: you once said my name for the first time (ZUZE REMIX)
 
-Last updated at 2/20/2025, 9:50:52 AM
+Last updated at 2/20/2025, 3:08:09 PM
