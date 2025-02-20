@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqQcYmdwQg1xeaoo-q1SBIg-t500x500.png">](https://soundcloud.com/user-956186499/aap-ferg-work-lauwend-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izJTNKqVAaO5DBoI-ehWzqA-t500x500.jpg">](https://soundcloud.com/dropwizz/ball-so-hard)
 
-**Artist**: LAUWEND 
+**Artist**: DROPWIZZ 
 
-**Track**: A$AP FERG - Work (LAUWEND HARD TECHNO REMIX)
+**Track**: BALL SO HARD
 
-Last updated at 2/20/2025, 4:15:49 PM
+Last updated at 2/20/2025, 4:18:19 PM
