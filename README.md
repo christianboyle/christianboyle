@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUlQYzQEpWsHppYe-gDlcLQ-t500x500.jpg">](https://soundcloud.com/toolroom-trax/cid-dances-no-phones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q4dyRFrinsIQUE8z-367dZg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-a-milli-mondello-x-gewoonraves-techno-remix)
 
-**Artist**: CID, Dances 
+**Artist**: GEWOONRAVES 
 
-**Track**: CID, Dances - No Phones
+**Track**: [FREE DL] A Milli - Lil Wayne (Mondello Hard Techno Remix)
 
-Last updated at 2/20/2025, 3:13:57 PM
+Last updated at 2/20/2025, 4:06:03 PM
