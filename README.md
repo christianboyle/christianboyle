@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqfjfVziDoQhYMyN-cRDbOg-t500x500.jpg">](https://soundcloud.com/eazybakedbeats/withoutu-w-the-bakers?in=eazybakedbeats/sets/respawn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IGJm0Eh3djhI27ig-vLmtRA-t500x500.jpg">](https://soundcloud.com/bigmilkmusic/big-milk-back-2-what-you-know)
 
-**Artist**: EAZYBAKED, the bakers 
+**Artist**: BIG MILK 
 
-**Track**: EAZYBAKED - WithoutU w/ the bakers
+**Track**: BIG MILK - BACK 2 WHAT YOU KNOW
 
-Last updated at 2/20/2025, 3:11:29 PM
+Last updated at 2/20/2025, 3:12:39 PM
