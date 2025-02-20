@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q4dyRFrinsIQUE8z-367dZg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-a-milli-mondello-x-gewoonraves-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqQcYmdwQg1xeaoo-q1SBIg-t500x500.png">](https://soundcloud.com/user-956186499/aap-ferg-work-lauwend-hard-techno-remix)
 
-**Artist**: GEWOONRAVES 
+**Artist**: LAUWEND 
 
-**Track**: [FREE DL] A Milli - Lil Wayne (Mondello Hard Techno Remix)
+**Track**: A$AP FERG - Work (LAUWEND HARD TECHNO REMIX)
 
-Last updated at 2/20/2025, 4:06:03 PM
+Last updated at 2/20/2025, 4:15:49 PM
