@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L5bo9NIn41vQEc4r-AXoDZA-t500x500.jpg">](https://soundcloud.com/brassell_music/trippy-squid-mstr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUSxGKwym8vGfb4N-hpKpxA-t500x500.png">](https://soundcloud.com/bigtimemusic3/good-timez-blank-spaces-big)
 
-**Artist**: Brassell 
+**Artist**: Big Time 
 
-**Track**: Brassell X Bretton Smiley - Trippy Squid
+**Track**: Good Timez - Blank Spaces (Big Time Flip)
 
-Last updated at 2/21/2025, 2:02:01 PM
+Last updated at 2/21/2025, 2:03:31 PM
