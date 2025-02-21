@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KL3rIRMesxs9yPMi-y8rXEQ-t500x500.jpg">](https://soundcloud.com/pandommade/common-goal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aSeZUJx2S0wDAESr-OIYm7g-t500x500.png">](https://soundcloud.com/kewljerkmusic/delrosa)
 
-**Artist**: PANDO! 
+**Artist**: KEWLJERK, VIAL 
 
-**Track**: Ocean Eyes - Billie Eilish (PANDO! Flip)
+**Track**: KEWLJERK X VIAL - DELROSA
 
-Last updated at 2/21/2025, 1:58:50 PM
+Last updated at 2/21/2025, 2:00:30 PM
