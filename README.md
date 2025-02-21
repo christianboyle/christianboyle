@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-blWJfM2A0cHRhH9p-mAmrqw-t500x500.jpg">](https://soundcloud.com/foxstevenson/that-choice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jpwv6CZkA3mFQaAN-8QH8qg-t500x500.jpg">](https://soundcloud.com/billythekiddub/billythekid-goin-hard-1)
 
-**Artist**: Fox Stevenson 
+**Artist**: BILLYTHEKID 
 
-**Track**: That Choice
+**Track**: GOIN HARD
 
-Last updated at 2/21/2025, 11:01:47 AM
+Last updated at 2/21/2025, 11:03:42 AM
