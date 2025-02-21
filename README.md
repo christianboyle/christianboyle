@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpZV0OyrTC1EpmLI-1meyuw-t500x500.png">](https://soundcloud.com/txrecords/premiere-nvxrrx-i-love-hard-drugs-axiver-remix?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight?in=saxurn/sets/zero-player-game)
 
-**Artist**: Tx Records 
+**Artist**: Ultravibes 
 
-**Track**: PREMIERE: NVXRRX - I Love Hard Drugs (Axiver Remix)
+**Track**: Midnight
 
-Last updated at 2/21/2025, 10:00:09 AM
+Last updated at 2/21/2025, 10:04:25 AM
