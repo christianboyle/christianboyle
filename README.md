@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsC1aLnvZdWmioys-F2NMyA-t500x500.jpg">](https://soundcloud.com/whynotusdnb/jump-whynotus-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqQcYmdwQg1xeaoo-q1SBIg-t500x500.png">](https://soundcloud.com/user-956186499/aap-ferg-work-lauwend-hard-techno-remix)
 
-**Artist**: WHYNOTUS 
+**Artist**: LAUWEND 
 
-**Track**: Jump Remix - Kris Kross (FREE DOWNLOAD)
+**Track**: A$AP FERG - Work (LAUWEND HARD TECHNO REMIX)
 
-Last updated at 2/20/2025, 6:10:49 PM
+Last updated at 2/20/2025, 6:14:20 PM
