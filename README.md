@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-au8aQ9DqpekrN6Jo-pDAxEA-t500x500.png">](https://soundcloud.com/theofficialjmoss/city-girls-act-up-jmoss-x-mstic-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wt8ahXcQTqMNC8m-PDzx5Q-t500x500.jpg">](https://soundcloud.com/not_pepsi/come-back-pepsi-edit)
 
-**Artist**: JMOSS, M?STIC 
+**Artist**: Not Pepsi 
 
-**Track**: CITY GIRLS - ACT UP (JMOSS X M?STIC FLIP)
+**Track**: come back - (pepsi edit)
 
-Last updated at 2/21/2025, 1:56:05 PM
+Last updated at 2/21/2025, 1:57:45 PM
