@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z056YHqcwOeAPy9A-GDLzPA-t500x500.jpg">](https://soundcloud.com/ultravibes/midnight?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tUyDkH6U2v95A4WZ-yf62fw-t500x500.jpg">](https://soundcloud.com/dnzrecords/fran-deliro-angel-garcia-everytime-we-touch?in=saxurn/sets/zero-player-game)
 
-**Artist**: Ultravibes 
+**Artist**: Fran Deliro & Angel Garcia 
 
-**Track**: Midnight
+**Track**: Fran Deliro & Angel Garcia - Everytime We Touch
 
-Last updated at 2/21/2025, 10:04:25 AM
+Last updated at 2/21/2025, 10:08:20 AM
