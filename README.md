@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OBGbEKwzVtD4gWuJ-nQOyHg-t500x500.jpg">](https://soundcloud.com/lucytownrecords/saphir-lucy-mania-lucyva001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCasRsFP6hTxVyqv-m9dGkg-t500x500.png">](https://soundcloud.com/thraxdubz/thrax-senpaixv2)
 
-**Artist**: LUCYTOWN RECORDS 
+**Artist**: THRAXDUBZ 
 
-**Track**: SAPHIR - Lucy Mania [LUCYVA001]
+**Track**: THRAX - SENPAI v2 (FREE)
 
-Last updated at 2/21/2025, 10:36:05 AM
+Last updated at 2/21/2025, 10:37:05 AM
