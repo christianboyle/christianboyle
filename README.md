@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wt8ahXcQTqMNC8m-PDzx5Q-t500x500.jpg">](https://soundcloud.com/not_pepsi/come-back-pepsi-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KL3rIRMesxs9yPMi-y8rXEQ-t500x500.jpg">](https://soundcloud.com/pandommade/common-goal)
 
-**Artist**: Not Pepsi 
+**Artist**: PANDO! 
 
-**Track**: come back - (pepsi edit)
+**Track**: Ocean Eyes - Billie Eilish (PANDO! Flip)
 
-Last updated at 2/21/2025, 1:57:45 PM
+Last updated at 2/21/2025, 1:58:50 PM
