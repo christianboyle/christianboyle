@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jpwv6CZkA3mFQaAN-8QH8qg-t500x500.jpg">](https://soundcloud.com/billythekiddub/billythekid-goin-hard-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIpcYVm5JTss1JYg-ZvE7Hw-t500x500.png">](https://soundcloud.com/sachsentrance/nagged-sachsentrance-podcast-114)
 
-**Artist**: BILLYTHEKID 
+**Artist**: Nagged 
 
-**Track**: GOIN HARD
+**Track**: Nagged - SACHSENTRANCE PODCAST #114
 
-Last updated at 2/21/2025, 11:03:42 AM
+Last updated at 2/21/2025, 11:05:58 AM
