@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kV7QseynWy8f5x3p-QK8aAg-t500x500.png">](https://soundcloud.com/valerineprisma/valerineprisma-x-goticotropico-keep-shining-final-maybe-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBVHj3iFCy7IPIwB-kvYoUQ-t500x500.jpg">](https://soundcloud.com/iamlostronaut/365-lostronaut-flip)
 
-**Artist**: Valerine Prisma 
+**Artist**: LØSTRONAUT 
 
-**Track**: @valerineprisma x @goticotropico ''keep shining'' beatbattle #jersey
+**Track**: 365 (LØSTRONAUT FLIP)
 
-Last updated at 2/21/2025, 9:03:53 AM
+Last updated at 2/21/2025, 9:07:19 AM
