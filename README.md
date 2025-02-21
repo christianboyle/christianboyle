@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bad6azo1FT1jxWx0-zALuNg-t500x500.png">](https://soundcloud.com/phuturecollective/maak-g-shockwave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
 
-**Artist**: Maāk.G 
+**Artist**: S3RL ft IgikoPop & IC3MANIA 
 
-**Track**: Maāk.G  - Shockwave
+**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
 
-Last updated at 2/20/2025, 6:34:32 PM
+Last updated at 2/20/2025, 8:16:03 PM
