@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf9zggSM4DqZb8Zw-uYLPiA-t500x500.png">](https://soundcloud.com/bemorechildish/maniken05-x-ninajirachi-perfect-self?in=ninajirachi/sets/perfect-self)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MiswvcGlZl8Fftn6-KpL4Pg-t500x500.jpg">](https://soundcloud.com/into_the_wild_music/sex-drugs-alcohol-into-the)
 
-**Artist**: childsplay 
+**Artist**: Into the wild 
 
-**Track**: ☆💊 maniken05 x ninajirachi _ perfect self 💊𖹭
+**Track**: Sex, drugs, alcohol, (Untamed by Into the wild)
 
-Last updated at 2/21/2025, 10:46:36 AM
+Last updated at 2/21/2025, 10:50:51 AM
