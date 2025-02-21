@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izJTNKqVAaO5DBoI-ehWzqA-t500x500.jpg">](https://soundcloud.com/dropwizz/ball-so-hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix)
 
-**Artist**: DROPWIZZ 
+**Artist**: DJ ColdSteel 
 
-**Track**: BALL SO HARD
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/21/2025, 8:57:43 AM
+Last updated at 2/21/2025, 9:00:53 AM
