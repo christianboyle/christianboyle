@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvT6wAf2QDbRTWy8-kav4rw-t500x500.png">](https://soundcloud.com/zensory/free-dl-adrenaline-overdrive-zensory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf9zggSM4DqZb8Zw-uYLPiA-t500x500.png">](https://soundcloud.com/bemorechildish/maniken05-x-ninajirachi-perfect-self?in=ninajirachi/sets/perfect-self)
 
-**Artist**: Zensory 
+**Artist**: childsplay 
 
-**Track**: [FREE DL] Adrenaline Overdrive - Zensory
+**Track**: ☆💊 maniken05 x ninajirachi _ perfect self 💊𖹭
 
-Last updated at 2/21/2025, 10:39:25 AM
+Last updated at 2/21/2025, 10:46:36 AM
