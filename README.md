@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8jkONhVPiWMZvKU-ZZPmtQ-t500x500.jpg">](https://soundcloud.com/zynar/pound-of-bacon?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kpViDc4qO7qCCX3Q-uYsG1A-t500x500.jpg">](https://soundcloud.com/soundsbyanon/smoakland-415s-vip-anon-remix-free-dl?in=saxurn/sets/old-slimeful)
 
-**Artist**: Zynar, Vanilla Ice 
+**Artist**: ANON 
 
-**Track**: Pound of Bacon (Vanilla Ice can't get enough Costco thick Cut bacon remix)
+**Track**: Smoakland- 415s VIP (ANON Remix)
 
-Last updated at 2/21/2025, 11:56:47 AM
+Last updated at 2/21/2025, 12:02:48 PM
