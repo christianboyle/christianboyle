@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUSxGKwym8vGfb4N-hpKpxA-t500x500.png">](https://soundcloud.com/bigtimemusic3/good-timez-blank-spaces-big)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ghbjPIIUiFLpDT1A-ZrzyEg-t500x500.jpg">](https://soundcloud.com/zakkemery/runaway)
 
-**Artist**: Big Time 
+**Artist**: Zakk Emery 
 
-**Track**: Good Timez - Blank Spaces (Big Time Flip)
+**Track**: RUNAWAY
 
-Last updated at 2/21/2025, 2:03:31 PM
+Last updated at 2/21/2025, 2:05:16 PM
