@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsC1aLnvZdWmioys-F2NMyA-t500x500.jpg">](https://soundcloud.com/whynotusdnb/jump-whynotus-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kV7QseynWy8f5x3p-QK8aAg-t500x500.png">](https://soundcloud.com/valerineprisma/valerineprisma-x-goticotropico-keep-shining-final-maybe-not)
 
-**Artist**: WHYNOTUS 
+**Artist**: Valerine Prisma 
 
-**Track**: Jump Remix - Kris Kross (FREE DOWNLOAD)
+**Track**: @valerineprisma x @goticotropico ''keep shining'' beatbattle #jersey
 
-Last updated at 2/20/2025, 6:20:10 PM
+Last updated at 2/20/2025, 6:23:51 PM
