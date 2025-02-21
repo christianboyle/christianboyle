@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAIP1upWxvK7fLk7-tzH0Xg-t500x500.png">](https://soundcloud.com/gspacemusic/g-space-x-finneh-orchestra-id-ken-carson-x-21-savage-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReN92VODkmCFUlLD-AASAqw-t500x500.png">](https://soundcloud.com/remon-verhoeve/kill-you-free-dl)
 
-**Artist**: G-Space, finneh 
+**Artist**: Remon Verhoeve 
 
-**Track**: G-Space x finneh - Orchestra ID (Ken Carson x 21 Savage Flip)
+**Track**: Kill You [Free DL]
 
-Last updated at 2/20/2025, 6:26:11 PM
+Last updated at 2/20/2025, 6:28:51 PM
