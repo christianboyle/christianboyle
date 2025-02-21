@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aSeZUJx2S0wDAESr-OIYm7g-t500x500.png">](https://soundcloud.com/kewljerkmusic/delrosa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L5bo9NIn41vQEc4r-AXoDZA-t500x500.jpg">](https://soundcloud.com/brassell_music/trippy-squid-mstr)
 
-**Artist**: KEWLJERK, VIAL 
+**Artist**: Brassell 
 
-**Track**: KEWLJERK X VIAL - DELROSA
+**Track**: Brassell X Bretton Smiley - Trippy Squid
 
-Last updated at 2/21/2025, 2:00:30 PM
+Last updated at 2/21/2025, 2:02:01 PM
