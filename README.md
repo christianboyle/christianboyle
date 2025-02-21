@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shvjnFs2oFVkw7pj-pXrRwg-t500x500.png">](https://soundcloud.com/s3rl/hunger-for-your-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izJTNKqVAaO5DBoI-ehWzqA-t500x500.jpg">](https://soundcloud.com/dropwizz/ball-so-hard)
 
-**Artist**: S3RL ft IgikoPop & IC3MANIA 
+**Artist**: DROPWIZZ 
 
-**Track**: Hunger For Your Heart - S3RL ft IgikoPop & IC3MANIA
+**Track**: BALL SO HARD
 
-Last updated at 2/21/2025, 5:51:59 AM
+Last updated at 2/21/2025, 8:57:43 AM
