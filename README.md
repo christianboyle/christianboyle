@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ZUAYIcI7lyOnVP1-dTiakg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/galactixx-adrenalize-love-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-blWJfM2A0cHRhH9p-mAmrqw-t500x500.jpg">](https://soundcloud.com/foxstevenson/that-choice)
 
-**Artist**: Galactixx & Adrenalize 
+**Artist**: Fox Stevenson 
 
-**Track**: Galactixx & Adrenalize - Love Again
+**Track**: That Choice
 
-Last updated at 2/21/2025, 10:59:37 AM
+Last updated at 2/21/2025, 11:01:47 AM
