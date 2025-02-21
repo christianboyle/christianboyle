@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-whxzzBY6k8hHeaKC-J3LhWg-t500x500.jpg">](https://soundcloud.com/sqwurl/completion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8OP3bDieKIOC2tpw-mEwbaA-t500x500.jpg">](https://soundcloud.com/nidrabeats/tesseractium)
 
-**Artist**: SQWURL 🐿 
+**Artist**: Nidra 
 
-**Track**: Completion
+**Track**: Tesseractium
 
-Last updated at 2/21/2025, 10:33:45 AM
+Last updated at 2/21/2025, 10:34:45 AM
