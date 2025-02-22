@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sgI2TKs0Lf386t7d-Ug29ew-t500x500.jpg">](https://soundcloud.com/darn84/ratpack-raindance-meets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJw5tcKcdy1cffcu-KCsoVQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/fuck-it-up-remix)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Pretty Sweet 
 
-**Track**: Ratpack @ Raindance Meets Fantazia - The Joining of Forces (18/03/2017)
+**Track**: Fuck It Up - Disco Lines, SIDEPIECE, Mike Sherm (PRETTY SWEET FLIP)
 
-Last updated at 2/22/2025, 11:24:43 AM
+Last updated at 2/22/2025, 1:23:20 PM
