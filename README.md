@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lujbA24vcnPEkMh4-6KqlaQ-t500x500.png">](https://soundcloud.com/asw-collective/asw-premiere-ang-sytrus-adt009?in=alu-rsa/sets/premiere-ang-zero-sugar-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fuccw9ESeAuWl9Rl-8WHSGw-t500x500.jpg">](https://soundcloud.com/motztechno/motz-premiere-ang-zero?in=alu-rsa/sets/premiere-ang-zero-sugar-dance)
 
-**Artist**: ASW 
+**Artist**: MOTZ 
 
-**Track**: ASW Premiere: AnG - Sytrus [ADT009]
+**Track**: MOTZ Premiere: AnG - Zero Sugar Dance [ADT009]
 
-Last updated at 2/22/2025, 10:54:45 AM
+Last updated at 2/22/2025, 10:58:31 AM
