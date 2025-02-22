@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q4dyRFrinsIQUE8z-367dZg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-a-milli-mondello-x-gewoonraves-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBZ5wWhXmrIyd4Z8-ysHfIg-t500x500.png">](https://soundcloud.com/laxter-music/laxter-grim-feast-extended-mix)
 
-**Artist**: GEWOONRAVES 
+**Artist**: LAXTER 
 
-**Track**: [FREE DL] A Milli - Lil Wayne (Mondello Hard Techno Remix)
+**Track**: LAXTER - GRIM FEAST | FREE DL
 
-Last updated at 2/22/2025, 8:49:46 AM
+Last updated at 2/22/2025, 10:33:43 AM
