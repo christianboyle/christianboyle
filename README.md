@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zm4yQ3NBqVVX0CyJ-MeIKgQ-t500x500.png">](https://soundcloud.com/danielsvetlof/guardianoftheforest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D15IezFXjgdpewuy-5GVMSg-t500x500.png">](https://soundcloud.com/djlucky3/too-many-questions)
 
-**Artist**: Daniel Svetlof 
+**Artist**: Dj Lucky3 
 
-**Track**: Guardian of the forest
+**Track**: Too Many Questions
 
-Last updated at 2/22/2025, 10:38:14 AM
+Last updated at 2/22/2025, 10:39:49 AM
