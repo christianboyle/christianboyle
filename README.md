@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OXYLgfZVs6Ho-0-t500x500.png">](https://soundcloud.com/bbjuelz/dopamine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oiKzWBPt2qqbTtVA-0oI9qg-t500x500.jpg">](https://soundcloud.com/rexv2/thought-it-made-sense)
 
-**Artist**: Juelz 
+**Artist**: rexv2 
 
-**Track**: DOPAMINE++
+**Track**: thought it made sense
 
-Last updated at 2/22/2025, 10:36:14 AM
+Last updated at 2/22/2025, 10:37:14 AM
