@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5)
 
-**Artist**: jamesjamesjames, Spring Breaker 
+**Artist**: JDM GTYM 
 
-**Track**: ibiza is waiting for me
+**Track**: SUMMER DREAMS OF LOVE DS & DV JDM FLIP MASTER FREE DOWNLOAD
 
-Last updated at 2/21/2025, 2:27:07 PM
+Last updated at 2/21/2025, 7:04:12 PM
