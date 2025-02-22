@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tg1C25I7dOYoxpF2-UI55DA-t500x500.jpg">](https://soundcloud.com/ayyofree/joadubz-x-e4rc-space-hole?in=ayyofree/sets/joa-dubz-x-e4rc-space-hole-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZDWhhpLAbYZudvOY-ziAtpw-t500x500.png">](https://soundcloud.com/sophiplanet/carnage-lil-pump-i-shyne-sophiplanet-flip)
 
-**Artist**: JOADUBZ X E4RC 
+**Artist**: SOPHIPLANET 
 
-**Track**: JOA DUBZ X E4RC - SPACE HOLE
+**Track**: Carnage, Lil Pump - i Shyne (SOPHIPLANET FLIP)
 
-Last updated at 2/22/2025, 11:18:18 AM
+Last updated at 2/22/2025, 11:21:23 AM
