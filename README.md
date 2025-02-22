@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBZ5wWhXmrIyd4Z8-ysHfIg-t500x500.png">](https://soundcloud.com/laxter-music/laxter-grim-feast-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OXYLgfZVs6Ho-0-t500x500.png">](https://soundcloud.com/bbjuelz/dopamine)
 
-**Artist**: LAXTER 
+**Artist**: Juelz 
 
-**Track**: LAXTER - GRIM FEAST | FREE DL
+**Track**: DOPAMINE++
 
-Last updated at 2/22/2025, 10:33:43 AM
+Last updated at 2/22/2025, 10:36:14 AM
