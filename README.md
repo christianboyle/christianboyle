@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PpSTwZoKenUivkxl-C5gT9g-t500x500.png">](https://soundcloud.com/borfrok/mashup-feraltnow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RarSR3PhDxn8sS0w-ZU7kyw-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-ang-cog-adt009?in=alu-rsa/sets/premiere-ang-zero-sugar-dance)
 
-**Artist**: Meganeko, Dua Lipa, Borfrok 
+**Artist**: AnG 
 
-**Track**: Don't Start Now x Feral (Borfrok Mashup)
+**Track**: Premiere: AnG - COG [ADT009]
 
-Last updated at 2/22/2025, 10:40:59 AM
+Last updated at 2/22/2025, 10:42:39 AM
