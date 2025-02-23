@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1M97ohqvwQtR8zu4-Sri84A-t500x500.jpg">](https://soundcloud.com/14106lyn/deathwish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THieCByiL2hKjgu7-Tzf4ZQ-t500x500.png">](https://soundcloud.com/laurel-572942456/3e2)
 
-**Artist**: 14106lyn 
+**Artist**: laurel 
 
-**Track**: deathwish >c
+**Track**: i think she's spinning clockwise?
 
-Last updated at 2/22/2025, 8:38:40 PM
+Last updated at 2/22/2025, 8:40:00 PM
