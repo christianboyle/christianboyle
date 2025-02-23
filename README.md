@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJw5tcKcdy1cffcu-KCsoVQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/fuck-it-up-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqQcYmdwQg1xeaoo-q1SBIg-t500x500.png">](https://soundcloud.com/user-956186499/aap-ferg-work-lauwend-hard-techno-remix)
 
-**Artist**: Pretty Sweet 
+**Artist**: LAUWEND 
 
-**Track**: Fuck It Up - Disco Lines, SIDEPIECE, Mike Sherm (PRETTY SWEET FLIP)
+**Track**: A$AP FERG - Work (LAUWEND HARD TECHNO REMIX)
 
-Last updated at 2/22/2025, 1:23:20 PM
+Last updated at 2/22/2025, 6:16:03 PM
