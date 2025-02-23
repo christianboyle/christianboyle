@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yl1v2ondAgIAZu31-gDURXg-t500x500.jpg">](https://soundcloud.com/oaz010101/dj-wifi-like-2-ride-master)
 
-**Artist**: jamesjamesjames, Spring Breaker 
+**Artist**: DJ WIFI 
 
-**Track**: ibiza is waiting for me
+**Track**: DJ WIFI „Like 2 Ride“
 
-Last updated at 2/22/2025, 7:55:45 PM
+Last updated at 2/22/2025, 8:01:50 PM
