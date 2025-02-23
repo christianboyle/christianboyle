@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3KSCOPPzYr2GguMq-biCyvA-t500x500.png">](https://soundcloud.com/beatlabradio/galea-exclusive-mix-beat-lab-radio-499)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R2zPmW9YoLD3819j-ybl5Hg-t500x500.jpg">](https://soundcloud.com/furtha-dubs/furtha-2025-id-mix)
 
-**Artist**: Galea 
+**Artist**: FURTHA 
 
-**Track**: Galea - Exclusive Mix - Beat Lab Radio 499
+**Track**: 2025 ID SHOWCASE MIX
 
-Last updated at 2/22/2025, 8:06:56 PM
+Last updated at 2/22/2025, 8:07:56 PM
