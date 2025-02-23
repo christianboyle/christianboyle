@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf9zggSM4DqZb8Zw-uYLPiA-t500x500.png">](https://soundcloud.com/bemorechildish/maniken05-x-ninajirachi-perfect-self)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
 
-**Artist**: childsplay 
+**Artist**: jamesjamesjames, Spring Breaker 
 
-**Track**: ☆💊 maniken05 x ninajirachi _ perfect self 💊𖹭
+**Track**: ibiza is waiting for me
 
-Last updated at 2/22/2025, 7:38:28 PM
+Last updated at 2/22/2025, 7:55:45 PM
