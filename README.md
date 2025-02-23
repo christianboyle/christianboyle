@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DgWgvImbn6RWjJs-CiYC3g-t500x500.jpg">](https://soundcloud.com/underdotnet/purityleech-what-i-want-to?in=underdotnet/sets/undernet-compilation-disc-33-shimmer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWjOwynjb9iJAvZe-y6DzNA-t500x500.png">](https://soundcloud.com/b6se/no93)
 
-**Artist**: under.net 
+**Artist**: b6se 
 
-**Track**: purityleech - What I Want To Tell You
+**Track**: ain no 93 prod abcdumboy
 
-Last updated at 2/22/2025, 8:02:50 PM
+Last updated at 2/22/2025, 8:03:50 PM
