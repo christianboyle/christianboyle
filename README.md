@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5e8BhvP7BVb42i5L-Z9B8CQ-t500x500.jpg">](https://soundcloud.com/tanemusic_official/t-a-n-e-money-right-sc-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kpViDc4qO7qCCX3Q-uYsG1A-t500x500.jpg">](https://soundcloud.com/soundsbyanon/smoakland-415s-vip-anon-remix-free-dl)
 
-**Artist**: T A N E 
+**Artist**: ANON 
 
-**Track**: T A N E - MONEY RIGHT
+**Track**: Smoakland- 415s VIP (ANON Remix)
 
-Last updated at 2/22/2025, 7:24:12 PM
+Last updated at 2/22/2025, 7:33:32 PM
