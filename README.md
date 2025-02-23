@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9FGrY7lWDS1qTxX-lWfvPw-t500x500.jpg">](https://soundcloud.com/underdotnet/3-1-10-meka-love-lies-bleeding)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cXKhieO0TLBrE8Su-DQHguw-t500x500.jpg">](https://soundcloud.com/elliemillss/remember-the-rest-demo)
 
-**Artist**: under.net 
+**Artist**: ellie mills 
 
-**Track**: MEKA - Love Lies Bleeding
+**Track**: remember the rest
 
-Last updated at 2/22/2025, 8:21:04 PM
+Last updated at 2/22/2025, 8:33:40 PM
