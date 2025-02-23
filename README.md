@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQWcyiLr3Kg0CFfq-xk6EIg-t500x500.jpg">](https://soundcloud.com/trustt/disappear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DLv1TAbQWunuCGZz-M9zbhg-t500x500.jpg">](https://soundcloud.com/7akkiro/madeit)
 
-**Artist**: trustt 
+**Artist**: akkiro 
 
-**Track**: magic (ft. 72crash)
+**Track**: madeit (feardorian)
 
-Last updated at 2/22/2025, 8:35:45 PM
+Last updated at 2/22/2025, 8:37:35 PM
