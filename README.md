@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5nIafvZpc022p5SE-aeQySg-t500x500.png">](https://soundcloud.com/a_red_letter_day/how-to-die-standing-still?in=a_red_letter_day/sets/drafts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQWcyiLr3Kg0CFfq-xk6EIg-t500x500.jpg">](https://soundcloud.com/trustt/disappear)
 
-**Artist**: a red letter day 
+**Artist**: trustt 
 
-**Track**: how to die standing still
+**Track**: magic (ft. 72crash)
 
-Last updated at 2/22/2025, 8:34:45 PM
+Last updated at 2/22/2025, 8:35:45 PM
