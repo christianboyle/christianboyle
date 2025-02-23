@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptHtsjvE5AezTRkW-uzzmlQ-t500x500.jpg">](https://soundcloud.com/laurel-572942456/2e5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DgWgvImbn6RWjJs-CiYC3g-t500x500.jpg">](https://soundcloud.com/underdotnet/purityleech-what-i-want-to)
 
-**Artist**: laurel 
+**Artist**: under.net 
 
-**Track**: Do you know the sample? #ItsFamiliar 🤔
+**Track**: purityleech - What I Want To Tell You
 
-Last updated at 2/23/2025, 9:25:24 AM
+Last updated at 2/23/2025, 9:26:49 AM
