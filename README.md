@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D8Dk3QYPJRVswz71-Bt9zIw-t500x500.jpg">](https://soundcloud.com/xdmrecords/los-tucanes-de-tijuana-me-gusta-vivir-de-noche-broz-rodriguez-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t12LUGeBEMGQhwmL-VxpFMw-t500x500.png">](https://soundcloud.com/d_xtrr/vaulted-odst-prod-dexter)
 
-**Artist**: X 
+**Artist**: dexter 
 
-**Track**: Los Tucanes De Tijuana - Me Gusta Vivir De Noche (Broz Rodriguez Edit)
+**Track**: vaulted - odst prod dexter
 
-Last updated at 2/24/2025, 9:35:46 AM
+Last updated at 2/24/2025, 9:36:46 AM
