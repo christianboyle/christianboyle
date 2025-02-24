@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000473642835-tj8sut-t500x500.jpg">](https://soundcloud.com/dropwizz/darkmatter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzhRlAUTHOfZURQo-7gzSRw-t500x500.png">](https://soundcloud.com/nonamewav/5d2ffe79-5423-492f-bcf5-680742a0bd72)
 
-**Artist**: DROPWIZZ 
+**Artist**: NØNAME 
 
-**Track**: G JONES x Ekali - Dark Matter (DROPWIZZ Remix)
+**Track**: NØNAME - HARDCORE
 
-Last updated at 2/24/2025, 9:27:15 AM
+Last updated at 2/24/2025, 9:28:15 AM
