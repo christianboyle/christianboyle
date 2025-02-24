@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9nFy9dZXI50ARLzi-BP41xQ-t500x500.png">](https://soundcloud.com/motztechno/motz-premiere-paque-purple-matter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-un4eINEvcUJofF8W-6fN3Nw-t500x500.png">](https://soundcloud.com/bigcityproductions/vamp-life)
 
-**Artist**: MOTZ 
+**Artist**: Big City 
 
-**Track**: MOTZ Premiere: Paqué – Purple Matter
+**Track**: VAmP LiFe [w/ actual garbage]
 
-Last updated at 2/24/2025, 9:04:48 AM
+Last updated at 2/24/2025, 9:10:49 AM
