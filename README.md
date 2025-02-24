@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wzi7olkCzEWqXR9k-gSOnWA-t500x500.jpg">](https://soundcloud.com/nymfieldrecords/nymcast1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azYTUnKzNUzerGAn-SqtVPA-t500x500.jpg">](https://soundcloud.com/bigcityproductions/smoke)
 
-**Artist**: NYMFIELD Records 
+**Artist**: Big City 
 
-**Track**: NYMCAST#1 - Querry Veldt Presents: The Sound Of NYMFIELD
+**Track**: SmoKe [w/ Tonzology]
 
-Last updated at 2/24/2025, 9:30:36 AM
+Last updated at 2/24/2025, 9:31:36 AM
