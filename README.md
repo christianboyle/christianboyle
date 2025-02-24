@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000674631919-am1k38-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/lil-tecca-ransom-naderi-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000473642835-tj8sut-t500x500.jpg">](https://soundcloud.com/dropwizz/darkmatter)
 
-**Artist**: Naderi 
+**Artist**: DROPWIZZ 
 
-**Track**: Lil Tecca - Ransom (Naderi Remix) [FREE DOWNLOAD]
+**Track**: G JONES x Ekali - Dark Matter (DROPWIZZ Remix)
 
-Last updated at 2/24/2025, 9:24:15 AM
+Last updated at 2/24/2025, 9:27:15 AM
