@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WSCcodniilw1Iz6L-QIoRDQ-t500x500.png">](https://soundcloud.com/cmabounce/stay-with-me-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDsaaF45IWoKzSoF-79Wkxg-t500x500.png">](https://soundcloud.com/cmabounce/bouncin-bass-vol1)
 
-**Artist**: CMA & Terri Armstrong 
+**Artist**: CMA 
 
-**Track**: Stay With Me [Radio Edit]
+**Track**: Bouncin Bass Podcast Vol.1
 
-Last updated at 2/24/2025, 2:53:35 PM
+Last updated at 2/24/2025, 2:55:05 PM
