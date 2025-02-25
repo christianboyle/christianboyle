@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8Jiejv8XU5VlZ33-kmBvVQ-t500x500.png">](https://soundcloud.com/maxdoutrecords/huntbegins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IhmgE6RhbVpuqnyg-NfbvHQ-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-sandro-cardio-x-gianma-bln-energy-collider)
 
-**Artist**: MAXD OUT RECORDS 
+**Artist**: Sandro Cardio X Gianma Bln 
 
-**Track**: BLOOD PVCT- "HUNTBEGINS"
+**Track**: [FREE DL] Sandro Cardio X Gianma Bln - Energy Collider
 
-Last updated at 2/25/2025, 7:07:58 AM
+Last updated at 2/25/2025, 7:25:20 AM
