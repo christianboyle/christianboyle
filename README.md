@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsQwD81l1TvPdouX-RlmP4A-t500x500.png">](https://soundcloud.com/exodus_records/adam-y-only-one-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAwCfAJyK3BhWNOq-zFb1CA-t500x500.png">](https://soundcloud.com/ezrahazardextra/iwannago)
 
-**Artist**: Adam Y 
+**Artist**: Britney Spears 
 
-**Track**: Adam Y - Only One (Free Download)
+**Track**: I Wanna Go (Ezra Hazard & Fahjah Remix)
 
-Last updated at 2/25/2025, 8:37:09 AM
+Last updated at 2/25/2025, 8:46:58 AM
