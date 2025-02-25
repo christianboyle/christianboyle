@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yu7VTeBGp67cNGkr-FINpgw-t500x500.png">](https://soundcloud.com/club-909-remix/ctremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbgSSLVsHlVrkipw-NiHMVQ-t500x500.jpg">](https://soundcloud.com/spicyboismusic/devowr-talktome)
 
-**Artist**: CLUB 909 (Remix) 
+**Artist**: DEVOWR. 
 
-**Track**: The Weeknd - Come Through (CLUB 909 Remix) *PITCHED* [FREE DOWNLOAD]
+**Track**: DEVOWR. - TALKTOME!
 
-Last updated at 2/24/2025, 7:28:17 PM
+Last updated at 2/24/2025, 7:29:22 PM
