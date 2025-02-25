@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/old-slimeful)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruNvU5jhZ2l5oSda-zb1lnA-t500x500.jpg">](https://soundcloud.com/rainf1eld/stuck-in-the-suburbs?in=saxurn/sets/zero-player-game)
 
-**Artist**: DJ ColdSteel 
+**Artist**: rainfield 
 
-**Track**: bardstyle/reset (collegiate mix)
+**Track**: stuck in the suburbs
 
-Last updated at 2/25/2025, 3:51:18 PM
+Last updated at 2/25/2025, 3:53:38 PM
