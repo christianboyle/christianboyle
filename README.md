@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c588G1xlJQtsiRL4-FIl2uQ-t500x500.png">](https://soundcloud.com/melodinumbra/heavensent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VuUt8tjSxKLySBB5-xF3RWQ-t500x500.jpg">](https://soundcloud.com/ayyofree/frito-organism?in=ayyofree/sets/frito-organism-1)
 
-**Artist**: Melodinumbra 
+**Artist**: FRITO 
 
-**Track**: Heavensent
+**Track**: FRITO - ORGANISM
 
-Last updated at 2/25/2025, 7:00:47 AM
+Last updated at 2/25/2025, 7:02:32 AM
