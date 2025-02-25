@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGrsyvSVw2KBEAF2-Mvt2Pg-t500x500.jpg">](https://soundcloud.com/siennacell/siennamix1?in=14106lyn/sets/sets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8RnI1PKF4Sl5BQS-QUJEeA-t500x500.jpg">](https://soundcloud.com/djcoldsteel/bardstylegr8reset-collegiate-mix?in=saxurn/sets/old-slimeful)
 
-**Artist**: sienna 
+**Artist**: DJ ColdSteel 
 
-**Track**: dj sienna leap 2024 mix +_+
+**Track**: bardstyle/reset (collegiate mix)
 
-Last updated at 2/25/2025, 3:38:27 PM
+Last updated at 2/25/2025, 3:51:18 PM
