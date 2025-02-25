@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c588G1xlJQtsiRL4-FIl2uQ-t500x500.png">](https://soundcloud.com/melodinumbra/heavensent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8Jiejv8XU5VlZ33-kmBvVQ-t500x500.png">](https://soundcloud.com/maxdoutrecords/huntbegins)
 
-**Artist**: Melodinumbra 
+**Artist**: MAXD OUT RECORDS 
 
-**Track**: Heavensent
+**Track**: BLOOD PVCT- "HUNTBEGINS"
 
-Last updated at 2/25/2025, 7:04:43 AM
+Last updated at 2/25/2025, 7:07:58 AM
