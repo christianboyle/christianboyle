@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZc9GNGjzGXuSyyk-gyZrHQ-t500x500.png">](https://soundcloud.com/groupchatclub/madgrrl-x-hellbound-i-like-that?in=itshellbound/sets/madgrrl-x-hellbound-i-like)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UVkdKcgT9unyrcnO-vxyQxg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/into-the-unknown)
 
-**Artist**: Group Chat Club, MADGRRL, HELLBOUND! 
+**Artist**: Horyzon 
 
-**Track**: MADGRRL x HELLBOUND! - I LIKE THAT
+**Track**: Horyzon - Into The Unknown
 
-Last updated at 2/26/2025, 10:37:43 AM
+Last updated at 2/26/2025, 10:51:54 AM
