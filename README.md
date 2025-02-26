@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAwCfAJyK3BhWNOq-zFb1CA-t500x500.png">](https://soundcloud.com/ezrahazardextra/iwannago)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptHtsjvE5AezTRkW-uzzmlQ-t500x500.jpg">](https://soundcloud.com/laurel-572942456/2e8)
 
-**Artist**: Britney Spears 
+**Artist**: laurel 
 
-**Track**: I Wanna Go (Ezra Hazard & Fahjah Remix)
+**Track**: you know who i am... right?
 
-Last updated at 2/26/2025, 5:34:43 PM
+Last updated at 2/26/2025, 5:37:38 PM
