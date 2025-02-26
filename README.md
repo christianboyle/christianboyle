@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PZkDyzfuPBKzggZ1-R5T2QA-t500x500.png">](https://soundcloud.com/ezrahazardextra/pentagrammareload?in=saxurn/sets/zero-player-game)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/tearxyz/c24)
 
-**Artist**: Ezra Hazard 
+**Artist**: tearxyz 
 
-**Track**: Pentagramma Reload (Mashup)
+**Track**: valetical @ channel '24 - 2/18/24
 
-Last updated at 2/25/2025, 3:55:53 PM
+Last updated at 2/25/2025, 7:31:56 PM
