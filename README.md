@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptHtsjvE5AezTRkW-uzzmlQ-t500x500.jpg">](https://soundcloud.com/laurel-572942456/2e8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKzUnWHE64PbeUMI-CyMSxQ-t500x500.png">](https://soundcloud.com/yanny-448088463/froot)
 
-**Artist**: laurel 
+**Artist**: yanny 
 
-**Track**: you know who i am... right?
+**Track**: froot
 
-Last updated at 2/26/2025, 5:37:38 PM
+Last updated at 2/26/2025, 5:40:53 PM
