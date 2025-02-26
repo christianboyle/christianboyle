@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/tearxyz/c24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oCoYat4udNErvbk6-zEpKOg-t500x500.png">](https://soundcloud.com/eskr_music/eskr-einstein-cross-fauxrealz)
 
-**Artist**: tearxyz 
+**Artist**: ESKR 
 
-**Track**: valetical @ channel '24 - 2/18/24
+**Track**: ESKR - Einstein Cross [FauxRealz Remix] - (Boomslang Recordings)
 
-Last updated at 2/26/2025, 10:23:56 AM
+Last updated at 2/26/2025, 10:25:01 AM
