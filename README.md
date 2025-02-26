@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UVkdKcgT9unyrcnO-vxyQxg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/into-the-unknown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/tearxyz/c24)
 
-**Artist**: Horyzon 
+**Artist**: tearxyz 
 
-**Track**: Horyzon - Into The Unknown
+**Track**: valetical @ channel '24 - 2/18/24
 
-Last updated at 2/26/2025, 1:45:24 PM
+Last updated at 2/26/2025, 5:06:35 PM
