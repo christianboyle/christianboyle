@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf9zggSM4DqZb8Zw-uYLPiA-t500x500.png">](https://soundcloud.com/bemorechildish/maniken05-x-ninajirachi-perfect-self)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Qsul8ZMqYKbkJSz-ypFXHg-t500x500.png">](https://soundcloud.com/runnitofficial/f4u)
 
-**Artist**: childsplay 
+**Artist**: Runnit 
 
-**Track**: ☆💊 maniken05 x ninajirachi _ perfect self 💊𖹭
+**Track**: Runnit x Rausch - Fallin4U
 
-Last updated at 2/26/2025, 11:45:24 AM
+Last updated at 2/26/2025, 11:48:49 AM
