@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsQwD81l1TvPdouX-RlmP4A-t500x500.png">](https://soundcloud.com/exodus_records/adam-y-only-one-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PPVSfyjP7mPUCwYi-Mq7F2Q-t500x500.jpg">](https://soundcloud.com/thetwintigerzextras/band4band)
 
-**Artist**: Adam Y 
+**Artist**: TWINTIGERZ, Kyori, Emerson 
 
-**Track**: Adam Y - Only One (Free Download)
+**Track**: Central Cee ft Lil Baby - BAND4BAND (TWINTIGERZ X Kyori X Emerson Remix)
 
-Last updated at 2/26/2025, 5:28:22 PM
+Last updated at 2/26/2025, 5:32:27 PM
