@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2Qsul8ZMqYKbkJSz-ypFXHg-t500x500.png">](https://soundcloud.com/runnitofficial/f4u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
 
-**Artist**: Runnit 
+**Artist**: jamesjamesjames, Spring Breaker 
 
-**Track**: Runnit x Rausch - Fallin4U
+**Track**: ibiza is waiting for me
 
-Last updated at 2/26/2025, 11:48:49 AM
+Last updated at 2/26/2025, 11:51:45 AM
