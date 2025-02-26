@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q4dyRFrinsIQUE8z-367dZg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-a-milli-mondello-x-gewoonraves-techno-remix)
 
-**Artist**: jamesjamesjames, Spring Breaker 
+**Artist**: GEWOONRAVES 
 
-**Track**: ibiza is waiting for me
+**Track**: [FREE DL] A Milli - Lil Wayne (Mondello Hard Techno Remix)
 
-Last updated at 2/26/2025, 11:51:45 AM
+Last updated at 2/26/2025, 11:57:15 AM
