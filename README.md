@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cbo7IWry5BOnSXqA-QJy8pg-t500x500.jpg">](https://soundcloud.com/14106lyn/c25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9FGrY7lWDS1qTxX-lWfvPw-t500x500.jpg">](https://soundcloud.com/underdotnet/3-1-3-duzy-lemonade)
 
-**Artist**: 14106lyn 
+**Artist**: under.net 
 
-**Track**: 14106lyn @ channel '25 [02/22/25]
+**Track**: duzy - lemonade
 
-Last updated at 2/26/2025, 5:43:03 PM
+Last updated at 2/26/2025, 6:00:05 PM
