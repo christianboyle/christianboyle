@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yxdqwYzUo7P8CLz-VGTbDQ-t500x500.png">](https://soundcloud.com/beaconftp/catch-your-eye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8ybmwsAChQKh5En-5nr45A-t500x500.jpg">](https://soundcloud.com/komplvintmusic/lil-durk-x-morgan-wallen)
 
-**Artist**: BEACON 
+**Artist**: KOMPLVINT 
 
-**Track**: Slippy & 7KY - Catch Your Eye
+**Track**: LIL DURK X MORGAN WALLEN - BROADWAY GIRLS (KOMPLVINT REMIX)
 
-Last updated at 2/27/2025, 8:12:36 AM
+Last updated at 2/27/2025, 8:36:50 AM
