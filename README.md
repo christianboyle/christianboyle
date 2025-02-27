@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gkwaBGyi7hALhBZi-oRZ3ww-t500x500.jpg">](https://soundcloud.com/c4prix/c4pri-scrapped-afflictedfest-set?in=14106lyn/sets/sets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qjq8Ye2nSCKLrGpT-7i8LpA-t500x500.jpg">](https://soundcloud.com/3six03six03six0/2much?in=14106lyn/sets/prod)
 
-**Artist**: 14106lyn [3] 
+**Artist**: lyn, trustt, crusafix 
 
-**Track**: c4pri @ afflictedfest 01/20/23
+**Track**: too much
 
-Last updated at 2/26/2025, 8:23:00 PM
+Last updated at 2/26/2025, 8:24:00 PM
