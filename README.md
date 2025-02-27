@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8ybmwsAChQKh5En-5nr45A-t500x500.jpg">](https://soundcloud.com/komplvintmusic/lil-durk-x-morgan-wallen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZxHvr8VYenCf-0-t500x500.jpg">](https://soundcloud.com/r3hab/rebellion)
 
-**Artist**: KOMPLVINT 
+**Artist**: R3HAB, Michael Patrick Kelly, Shaggy 
 
-**Track**: LIL DURK X MORGAN WALLEN - BROADWAY GIRLS (KOMPLVINT REMIX)
+**Track**: Rebellion
 
-Last updated at 2/27/2025, 8:36:50 AM
+Last updated at 2/27/2025, 8:38:15 AM
