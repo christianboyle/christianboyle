@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RjMHeOJ2NR6LJIe-9t65DA-t500x500.jpg">](https://soundcloud.com/deepinparis/know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5AFnXqjiYLg7EbR6-2nnFAA-t500x500.jpg">](https://soundcloud.com/girlsynth/afternothingcomeslol)
 
-**Artist**: deepinparis 
+**Artist**: girlsynth 
 
-**Track**: they know nothing about me ft lyn prod me
+**Track**: after nothing comes @crusafix @crusey  @14106lyn
 
-Last updated at 2/26/2025, 8:25:10 PM
+Last updated at 2/26/2025, 8:26:35 PM
