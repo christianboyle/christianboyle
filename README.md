@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yl1v2ondAgIAZu31-gDURXg-t500x500.jpg">](https://soundcloud.com/oaz010101/dj-wifi-like-2-ride-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJw5tcKcdy1cffcu-KCsoVQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/fuck-it-up-remix)
 
-**Artist**: DJ WIFI 
+**Artist**: Pretty Sweet 
 
-**Track**: DJ WIFI „Like 2 Ride“
+**Track**: Fuck It Up - Disco Lines, SIDEPIECE, Mike Sherm (PRETTY SWEET FLIP)
 
-Last updated at 2/26/2025, 6:05:21 PM
+Last updated at 2/26/2025, 6:08:41 PM
