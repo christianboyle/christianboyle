@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2QzpXqAIVC6MUfvl-mKP7qg-t500x500.jpg">](https://soundcloud.com/itzkeylo614/keylo-we-dont-give-a-fuck-1)
 
-**Artist**: jamesjamesjames, Spring Breaker 
+**Artist**: Keylo 
 
-**Track**: ibiza is waiting for me
+**Track**: KEYLO - WE DONT GIVE A FUCK
 
-Last updated at 2/27/2025, 6:44:47 AM
+Last updated at 2/27/2025, 7:20:06 AM
