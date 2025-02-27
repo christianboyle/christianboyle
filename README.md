@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uejoqwBJrchb66KG-xHefKQ-t500x500.png">](https://soundcloud.com/fiyahdubs/fiyah-right-now-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yl1v2ondAgIAZu31-gDURXg-t500x500.jpg">](https://soundcloud.com/oaz010101/dj-wifi-like-2-ride-master)
 
-**Artist**: Fiyah 
+**Artist**: DJ WIFI 
 
-**Track**: Fiyah - Right Now [Clip]
+**Track**: DJ WIFI „Like 2 Ride“
 
-Last updated at 2/27/2025, 1:10:11 PM
+Last updated at 2/27/2025, 2:19:15 PM
