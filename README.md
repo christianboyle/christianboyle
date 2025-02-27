@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZxHvr8VYenCf-0-t500x500.jpg">](https://soundcloud.com/r3hab/rebellion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsgSVu4QPqFvizqR-4QYmkA-t500x500.jpg">](https://soundcloud.com/makewavs/lucas-the-flow-x-dukez-bring-it-back)
 
-**Artist**: R3HAB, Michael Patrick Kelly, Shaggy 
+**Artist**: Lucas The Flow x Dukez 
 
-**Track**: Rebellion
+**Track**: Lucas The Flow x Dukez - Bring It Back
 
-Last updated at 2/27/2025, 8:38:15 AM
+Last updated at 2/27/2025, 8:39:20 AM
