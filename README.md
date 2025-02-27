@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Aay3I9tp4Muc9tvq-9l9Ekw-t500x500.jpg">](https://soundcloud.com/saturninexo/chrome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sI4KIQ3b4e9s1NZz-cT6A1g-t500x500.jpg">](https://soundcloud.com/maemaeotl/my-mental-p-3xs)
 
-**Artist**: s4turnine 
+**Artist**: MaeMae 
 
-**Track**: CHROME
+**Track**: my mental (bonxpf, db808, katebi)
 
-Last updated at 2/27/2025, 9:10:19 AM
+Last updated at 2/27/2025, 9:11:19 AM
