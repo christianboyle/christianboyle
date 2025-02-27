@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tOWFAKehTnr57Tbt-y1GRYg-t500x500.jpg">](https://soundcloud.com/machikodubs/wayback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me?in=saxurn/sets/purp-skurp)
 
-**Artist**: Machiko 
+**Artist**: jamesjamesjames, Spring Breaker 
 
-**Track**: Wayback!
+**Track**: ibiza is waiting for me
 
-Last updated at 2/27/2025, 9:17:54 AM
+Last updated at 2/27/2025, 1:05:22 PM
