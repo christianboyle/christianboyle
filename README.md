@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqQcYmdwQg1xeaoo-q1SBIg-t500x500.png">](https://soundcloud.com/user-956186499/aap-ferg-work-lauwend-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cbo7IWry5BOnSXqA-QJy8pg-t500x500.jpg">](https://soundcloud.com/14106lyn/c25)
 
-**Artist**: LAUWEND 
+**Artist**: 14106lyn 
 
-**Track**: A$AP FERG - Work (LAUWEND HARD TECHNO REMIX)
+**Track**: 14106lyn @ channel '25 [02/22/25]
 
-Last updated at 2/26/2025, 6:31:08 PM
+Last updated at 2/26/2025, 8:19:15 PM
