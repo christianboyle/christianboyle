@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vszJ5ZUDerOT3Cab-TsLLMA-t500x500.jpg">](https://soundcloud.com/ion_music/ion-trapped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiIeXjlxAzIY00Dt-XDoWJQ-t500x500.png">](https://soundcloud.com/goshfather/littlecloser)
 
-**Artist**: ION 
+**Artist**: goshfather, papaki 
 
-**Track**: ION - Trapped
+**Track**: Goshfather x Papaki - Little Closer
 
-Last updated at 2/27/2025, 7:48:04 AM
+Last updated at 2/27/2025, 7:49:09 AM
