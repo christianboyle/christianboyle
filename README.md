@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wtJP8nJfyyVJ-0-t500x500.jpg">](https://soundcloud.com/ozzgold/again-and-again-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUzHwPCyzRPGizZE-iO7gGA-t500x500.jpg">](https://soundcloud.com/chozenofficial/chozen-x-clrnce-get-back)
 
-**Artist**: Ozz Gold 
+**Artist**: CHOZEN, CLRNCE 
 
-**Track**: Again and Again
+**Track**: CHOZEN & CLRNCE - GET BACK
 
-Last updated at 2/27/2025, 7:51:09 AM
+Last updated at 2/27/2025, 8:09:11 AM
