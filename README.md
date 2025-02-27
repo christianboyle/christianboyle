@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2QzpXqAIVC6MUfvl-mKP7qg-t500x500.jpg">](https://soundcloud.com/itzkeylo614/keylo-we-dont-give-a-fuck-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tOWFAKehTnr57Tbt-y1GRYg-t500x500.jpg">](https://soundcloud.com/machikodubs/wayback)
 
-**Artist**: Keylo 
+**Artist**: Machiko 
 
-**Track**: KEYLO - WE DONT GIVE A FUCK
+**Track**: Wayback!
 
-Last updated at 2/27/2025, 7:20:06 AM
+Last updated at 2/27/2025, 7:21:41 AM
