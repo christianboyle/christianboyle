@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dUzHwPCyzRPGizZE-iO7gGA-t500x500.jpg">](https://soundcloud.com/chozenofficial/chozen-x-clrnce-get-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOo5CbprzpQo6e0b-WzoRtw-t500x500.jpg">](https://soundcloud.com/ogallego/rainy-days)
 
-**Artist**: CHOZEN, CLRNCE 
+**Artist**: gallego 
 
-**Track**: CHOZEN & CLRNCE - GET BACK
+**Track**: rainy days
 
-Last updated at 2/27/2025, 8:09:11 AM
+Last updated at 2/27/2025, 8:10:11 AM
