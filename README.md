@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZDd9ozBXpV46yyAV-HYyLqg-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/sevsky-ancestyr-ghosts-ah-tune-tuesday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIIIJWHYdHupdn05-axbe1A-t500x500.png">](https://soundcloud.com/medicineplacedub/sonar)
 
-**Artist**: SEVSKY & Ancestyr 
+**Artist**: Medicine Place 
 
-**Track**: SEVSKY & Ancestyr - Ghosts (AH Tune Tuesday)
+**Track**: sonar.
 
-Last updated at 2/27/2025, 7:30:12 AM
+Last updated at 2/27/2025, 7:47:04 AM
