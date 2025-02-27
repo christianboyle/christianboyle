@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KL3rIRMesxs9yPMi-y8rXEQ-t500x500.jpg">](https://soundcloud.com/pandommade/common-goal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf9zggSM4DqZb8Zw-uYLPiA-t500x500.png">](https://soundcloud.com/bemorechildish/maniken05-x-ninajirachi-perfect-self)
 
-**Artist**: PANDO! 
+**Artist**: childsplay 
 
-**Track**: Ocean Eyes - Billie Eilish (PANDO! Flip)
+**Track**: ☆💊 maniken05 x ninajirachi _ perfect self 💊𖹭
 
-Last updated at 2/26/2025, 6:10:56 PM
+Last updated at 2/26/2025, 6:15:01 PM
