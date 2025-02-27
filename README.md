@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qjq8Ye2nSCKLrGpT-7i8LpA-t500x500.jpg">](https://soundcloud.com/3six03six03six0/2much?in=14106lyn/sets/prod)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3RjMHeOJ2NR6LJIe-9t65DA-t500x500.jpg">](https://soundcloud.com/deepinparis/know)
 
-**Artist**: lyn, trustt, crusafix 
+**Artist**: deepinparis 
 
-**Track**: too much
+**Track**: they know nothing about me ft lyn prod me
 
-Last updated at 2/26/2025, 8:24:00 PM
+Last updated at 2/26/2025, 8:25:10 PM
