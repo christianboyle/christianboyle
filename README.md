@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ygdgb5NAay22cExx-TvlpNQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-niclas-erlandsson-pang-i-bygget-dave-the-drummer-remix-am012)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WcEXWdHORjDhLDuz-SGFCNw-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/badlokk-buried-alive-feat-reebz-ncs-release)
 
-**Artist**: Techno Wereld, Niclas Erlandsson, D.A.V.E. The Drummer 
+**Artist**: Badlokk, REEBZ 
 
-**Track**: Premiere: Niclas Erlandsson - Pang i Bygget (D.A.V.E. The Drummer Remix) [AM012]
+**Track**: Badlokk - Buried Alive (feat. REEBZ) [NCS Release]
 
-Last updated at 2/27/2025, 7:22:41 AM
+Last updated at 2/27/2025, 7:25:57 AM
