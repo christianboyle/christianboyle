@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6x6b1lIEKiZ7ky0-Xm6I4g-t500x500.jpg">](https://soundcloud.com/ole_prog/support-for-airborne-yolo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sI4KIQ3b4e9s1NZz-cT6A1g-t500x500.jpg">](https://soundcloud.com/maemaeotl/my-mental-p-3xs)
 
-**Artist**: OLÉ X Arthur Guiot 
+**Artist**: MaeMae 
 
-**Track**: Support for Airborne @YOLO
+**Track**: my mental (bonxpf, db808, katebi)
 
-Last updated at 2/27/2025, 9:13:19 AM
+Last updated at 2/27/2025, 9:14:49 AM
