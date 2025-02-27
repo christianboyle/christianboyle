@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THieCByiL2hKjgu7-Tzf4ZQ-t500x500.png">](https://soundcloud.com/laurel-572942456/3e3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gkwaBGyi7hALhBZi-oRZ3ww-t500x500.jpg">](https://soundcloud.com/c4prix/c4pri-scrapped-afflictedfest-set?in=14106lyn/sets/sets)
 
-**Artist**: laurel 
+**Artist**: 14106lyn [3] 
 
-**Track**: dress of a lifetime
+**Track**: c4pri @ afflictedfest 01/20/23
 
-Last updated at 2/26/2025, 8:21:00 PM
+Last updated at 2/26/2025, 8:23:00 PM
