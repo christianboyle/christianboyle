@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qd3oFdizez8l3bVx-K9VjMQ-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-flawx-x-sly-clean-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZDd9ozBXpV46yyAV-HYyLqg-t500x500.jpg">](https://soundcloud.com/aspirehighermusic/sevsky-ancestyr-ghosts-ah-tune-tuesday)
 
-**Artist**: FLAWX X SLY 
+**Artist**: SEVSKY & Ancestyr 
 
-**Track**: [PREMIERE]  FLAWX X SLY - CLEAN UP
+**Track**: SEVSKY & Ancestyr - Ghosts (AH Tune Tuesday)
 
-Last updated at 2/27/2025, 7:29:12 AM
+Last updated at 2/27/2025, 7:30:12 AM
