@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/tearxyz/c24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHS7bj5zT9ByJhny-kZnoFg-t500x500.jpg">](https://soundcloud.com/v_letical/potions)
 
-**Artist**: valetical 
+**Artist**: 14106lyn 
 
-**Track**: valetical @ channel '24 [02/18/24]
+**Track**: potions
 
-Last updated at 2/27/2025, 8:42:39 AM
+Last updated at 2/27/2025, 9:05:13 AM
