@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3J1cvdFaxTZgOW9B-T9pmkA-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/steve-levi-benjamin-fr-sundan-starz-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yxdqwYzUo7P8CLz-VGTbDQ-t500x500.png">](https://soundcloud.com/beaconftp/catch-your-eye)
 
-**Artist**: Steve Levi, BENJAMIN FR. 
+**Artist**: BEACON 
 
-**Track**: Steve Levi, BENJAMIN FR. - Sundan [Starz Records]
+**Track**: Slippy & 7KY - Catch Your Eye
 
-Last updated at 2/27/2025, 8:11:11 AM
+Last updated at 2/27/2025, 8:12:36 AM
