@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISPy0p4XtPQwwZ7z-NdMwxQ-t500x500.png">](https://soundcloud.com/fallenshrine/turn-the-tide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Aay3I9tp4Muc9tvq-9l9Ekw-t500x500.jpg">](https://soundcloud.com/saturninexo/chrome)
 
-**Artist**: Fallen Shrine 
+**Artist**: s4turnine 
 
-**Track**: turn the tide
+**Track**: CHROME
 
-Last updated at 2/27/2025, 9:07:18 AM
+Last updated at 2/27/2025, 9:10:19 AM
