@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cbo7IWry5BOnSXqA-QJy8pg-t500x500.jpg">](https://soundcloud.com/14106lyn/c25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-THieCByiL2hKjgu7-Tzf4ZQ-t500x500.png">](https://soundcloud.com/laurel-572942456/3e3)
 
-**Artist**: 14106lyn 
+**Artist**: laurel 
 
-**Track**: 14106lyn @ channel '25 [02/22/25]
+**Track**: dress of a lifetime
 
-Last updated at 2/26/2025, 8:19:15 PM
+Last updated at 2/26/2025, 8:21:00 PM
