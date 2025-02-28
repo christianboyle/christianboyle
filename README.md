@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DgWgvImbn6RWjJs-CiYC3g-t500x500.jpg">](https://soundcloud.com/underdotnet/purityleech-what-i-want-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me?in=saxurn/sets/purp-skurp)
 
-**Artist**: under.net 
+**Artist**: jamesjamesjames, Spring Breaker 
 
-**Track**: purityleech - What I Want To Tell You
+**Track**: ibiza is waiting for me
 
-Last updated at 2/28/2025, 6:49:32 AM
+Last updated at 2/28/2025, 7:22:52 AM
