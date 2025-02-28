@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3roQWrzxsKVRhDT-zs7qkQ-t500x500.jpg">](https://soundcloud.com/nokris/project-h1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/tearxyz/c24)
 
-**Artist**: Nokris 
+**Artist**: valetical 
 
-**Track**: PROJECT H-1
+**Track**: valetical @ channel '24 [02/18/24]
 
-Last updated at 2/28/2025, 9:02:00 AM
+Last updated at 2/28/2025, 9:04:30 AM
