@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y4bU3YDM7fyYVqPy-WwEjyg-t500x500.png">](https://soundcloud.com/rockbottomrecs/radio-ga-ga-fame-sounds-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYYtMjdtGTaOaLpa-Ghw3cQ-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-x-dessigner-toys-work-noizon-remix)
 
-**Artist**: Fame Sounds 
+**Artist**: Blaize, Dessigner Toys 
 
-**Track**: Queen - Radio Ga Ga (Fame Sounds Edit)
+**Track**: Blaize X Dessigner Toys - Work (Noizon Remix)
 
-Last updated at 2/28/2025, 2:27:30 PM
+Last updated at 2/28/2025, 2:32:10 PM
