@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISPy0p4XtPQwwZ7z-NdMwxQ-t500x500.png">](https://soundcloud.com/fallenshrine/turn-the-tide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udWjYLErNLZye6GP-RLgmog-t500x500.png">](https://soundcloud.com/princesselfbar/bedroom-trance-hyper-trance)
 
-**Artist**: Fallen Shrine 
+**Artist**: ✧princess elf bar✧ 
 
-**Track**: turn the tide
+**Track**: BEDROOM TRANCE 1: hypertrance
 
-Last updated at 2/28/2025, 8:36:37 AM
+Last updated at 2/28/2025, 8:40:37 AM
