@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHS7bj5zT9ByJhny-kZnoFg-t500x500.jpg">](https://soundcloud.com/v_letical/potions)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyOEN7q0NONwK8ly-dEvr9w-t500x500.jpg">](https://soundcloud.com/thewbass/asap)
 
-**Artist**: 14106lyn 
+**Artist**: Thew 
 
-**Track**: potions
+**Track**: ASAP
 
-Last updated at 2/28/2025, 8:42:27 AM
+Last updated at 2/28/2025, 8:44:57 AM
