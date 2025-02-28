@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYYtMjdtGTaOaLpa-Ghw3cQ-t500x500.jpg">](https://soundcloud.com/blaize323/blaize-x-dessigner-toys-work-noizon-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xD9bkE46QlvoRGUS-2RHfUQ-t500x500.png">](https://soundcloud.com/r3yma/what-i-need)
 
-**Artist**: Blaize, Dessigner Toys 
+**Artist**: Reyma 
 
-**Track**: Blaize X Dessigner Toys - Work (Noizon Remix)
+**Track**: What I Need
 
-Last updated at 2/28/2025, 2:32:10 PM
+Last updated at 2/28/2025, 2:35:41 PM
