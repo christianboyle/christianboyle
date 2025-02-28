@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfUgg9GAZdtYqz9C-0z5sAg-t500x500.jpg">](https://soundcloud.com/proxysmusic/proxys-ft-dizzy-lvnd-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JVTNKVpLntXFessu-nrNiNg-t500x500.jpg">](https://soundcloud.com/ismael-fall-1/reveleation-set)
 
-**Artist**: Proxys, Dizzy Lvnd 
+**Artist**: Story of Light 
 
-**Track**: Proxys Ft. Dizzy Lvnd - Love Story
+**Track**: Revelation Set
 
-Last updated at 2/28/2025, 9:21:47 AM
+Last updated at 2/28/2025, 10:01:59 AM
