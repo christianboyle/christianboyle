@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptHtsjvE5AezTRkW-uzzmlQ-t500x500.jpg">](https://soundcloud.com/laurel-572942456/2e8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me?in=saxurn/sets/purp-skurp)
 
-**Artist**: laurel 
+**Artist**: jamesjamesjames, Spring Breaker 
 
-**Track**: you know who i am... right?
+**Track**: ibiza is waiting for me
 
-Last updated at 2/27/2025, 6:08:19 PM
+Last updated at 2/27/2025, 6:13:09 PM
