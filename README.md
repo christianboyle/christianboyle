@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udWjYLErNLZye6GP-RLgmog-t500x500.png">](https://soundcloud.com/princesselfbar/bedroom-trance-hyper-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHS7bj5zT9ByJhny-kZnoFg-t500x500.jpg">](https://soundcloud.com/v_letical/potions)
 
-**Artist**: ✧princess elf bar✧ 
+**Artist**: 14106lyn 
 
-**Track**: BEDROOM TRANCE 1: hypertrance
+**Track**: potions
 
-Last updated at 2/28/2025, 8:40:37 AM
+Last updated at 2/28/2025, 8:42:27 AM
