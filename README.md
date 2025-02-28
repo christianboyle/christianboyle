@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HxncFXoQb9O7LrEh-Fv0GWA-t500x500.jpg">](https://soundcloud.com/error303-records/niotech-kntrlvrlst-pump-up-the-volume-error-303)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vv8JnyWzHv8Qkklo-TyIZmg-t500x500.png">](https://soundcloud.com/wilfried-vilcoq/burn-for-you)
 
-**Artist**: NIOTECH, KNTRLVRLST 
+**Artist**: Wilfried VILCOQ 
 
-**Track**: NIOTECH & KNTRLVRLST - Pump Up The Volume [ERROR 303]
+**Track**: Burn For You
 
-Last updated at 2/28/2025, 2:39:16 PM
+Last updated at 2/28/2025, 3:20:15 PM
