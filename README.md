@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkDHZ7Zi0yXgERWn-jdiuAg-t500x500.png">](https://soundcloud.com/schmuxmusic/daydreaming)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNyRiB6ygCs7iG7S-LwE8Jw-t500x500.png">](https://soundcloud.com/wormhole-music-group/nueq-dafook)
 
-**Artist**: SCHMUX 
+**Artist**: NUEQ 
 
-**Track**: Daydreaming
+**Track**: NUEQ - Dafook
 
-Last updated at 2/28/2025, 10:53:29 AM
+Last updated at 2/28/2025, 1:15:21 PM
