@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zAwCfAJyK3BhWNOq-zFb1CA-t500x500.png">](https://soundcloud.com/ezrahazardextra/iwannago?in=saxurn/sets/purp-skurp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PPVSfyjP7mPUCwYi-Mq7F2Q-t500x500.jpg">](https://soundcloud.com/thetwintigerzextras/band4band?in=saxurn/sets/purp-skurp)
 
-**Artist**: Britney Spears 
+**Artist**: TWINTIGERZ, Kyori, Emerson 
 
-**Track**: I Wanna Go (Ezra Hazard & Fahjah Remix)
+**Track**: Central Cee ft Lil Baby - BAND4BAND (TWINTIGERZ X Kyori X Emerson Remix)
 
-Last updated at 2/27/2025, 6:27:08 PM
+Last updated at 2/27/2025, 6:29:58 PM
