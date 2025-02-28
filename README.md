@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbER2VitcCdzSfH3-LQsOzA-t500x500.jpg">](https://soundcloud.com/wtfsthatsound/2sum-low-key)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jd24LVJKB4V5bQ2P-e2o4hA-t500x500.jpg">](https://soundcloud.com/officialflozone/fetty-wap-trap-queen-flozone-flip)
 
-**Artist**: 2Sum 
+**Artist**: flozone 
 
-**Track**: 2Sum - LOW KEY
+**Track**: FETTY WAP - TRAP QUEEN (flozone flip)
 
-Last updated at 2/28/2025, 3:29:01 PM
+Last updated at 2/28/2025, 3:31:16 PM
