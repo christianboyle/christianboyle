@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utSCUTyVSt9DnEya-MH0LkQ-t500x500.jpg">](https://soundcloud.com/naemsofficial/13aca97b-80bc-4e58-95cf-08a5ea97024e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vmGUrhWB3hbf0bCF-7SMkgg-t500x500.png">](https://soundcloud.com/rynsmusic/up-down-ryns-flip)
 
-**Artist**: NAEMS 
+**Artist**: RYNS 
 
-**Track**: Don't You Worry Child (NAEMS Remix)
+**Track**: T-Pain - Up Down (RYNS FLIP)
 
-Last updated at 2/28/2025, 3:38:32 PM
+Last updated at 2/28/2025, 3:42:32 PM
