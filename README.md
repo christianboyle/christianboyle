@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br9iXYeGyjRZhDuk-xCWnGQ-t500x500.png">](https://soundcloud.com/jamesjamesjamess/ibiza-is-waiting-for-me?in=saxurn/sets/purp-skurp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsQwD81l1TvPdouX-RlmP4A-t500x500.png">](https://soundcloud.com/exodus_records/adam-y-only-one-free-download?in=saxurn/sets/purp-skurp)
 
-**Artist**: jamesjamesjames, Spring Breaker 
+**Artist**: Adam Y 
 
-**Track**: ibiza is waiting for me
+**Track**: Adam Y - Only One (Free Download)
 
-Last updated at 2/27/2025, 6:13:09 PM
+Last updated at 2/27/2025, 6:16:35 PM
