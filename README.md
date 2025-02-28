@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-py5qu0o0WXPO1ugI-esDAaw-t500x500.png">](https://soundcloud.com/maakg/dissolve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P3roQWrzxsKVRhDT-zs7qkQ-t500x500.jpg">](https://soundcloud.com/nokris/project-h1)
 
-**Artist**: Maāk.G 
+**Artist**: Nokris 
 
-**Track**: Dissolve
+**Track**: PROJECT H-1
 
-Last updated at 2/28/2025, 8:47:58 AM
+Last updated at 2/28/2025, 9:02:00 AM
