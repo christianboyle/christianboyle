@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mP9kMltjC5LcmveS-5ROBiA-t500x500.jpg">](https://soundcloud.com/witchhiker/tomeltornottomelt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMgsGJOSbxqcunlC-pRkuaA-t500x500.jpg">](https://soundcloud.com/jessvanness/lizard-brain)
 
-**Artist**: WITCH HIKER 
+**Artist**: Jess Van Ness 
 
-**Track**: || TO MELT OR NOT TO MELT?... NO QUESTION! || psy-trance freestyle dj mix
+**Track**: Lizard Brain - Progressive House & Deep Trance
 
-Last updated at 2/28/2025, 3:50:18 PM
+Last updated at 2/28/2025, 4:16:21 PM
