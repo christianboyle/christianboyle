@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jd24LVJKB4V5bQ2P-e2o4hA-t500x500.jpg">](https://soundcloud.com/officialflozone/fetty-wap-trap-queen-flozone-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B4USAgWbTzNx2GDU-TxMyyA-t500x500.png">](https://soundcloud.com/manifestdnb/yasuki-strong-enough)
 
-**Artist**: flozone 
+**Artist**: Manifest 
 
-**Track**: FETTY WAP - TRAP QUEEN (flozone flip)
+**Track**: YASUKI - Strong Enough
 
-Last updated at 2/28/2025, 3:31:16 PM
+Last updated at 2/28/2025, 3:34:21 PM
