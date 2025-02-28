@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mP9kMltjC5LcmveS-5ROBiA-t500x500.jpg">](https://soundcloud.com/witchhiker/tomeltornottomelt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tm6ffET6178Y2V6x-WyQNGA-t500x500.png">](https://soundcloud.com/p-ter-malomsoki/journey-to-the-unknown)
 
-**Artist**: WITCH HIKER 
+**Artist**: Malom 
 
-**Track**: || TO MELT OR NOT TO MELT?... NO QUESTION! || psy-trance freestyle dj mix
+**Track**: Journey to the unknown
 
-Last updated at 2/28/2025, 10:35:53 AM
+Last updated at 2/28/2025, 10:49:54 AM
