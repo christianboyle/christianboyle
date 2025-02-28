@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJw5tcKcdy1cffcu-KCsoVQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/fuck-it-up-remix?in=saxurn/sets/purp-skurp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DgWgvImbn6RWjJs-CiYC3g-t500x500.jpg">](https://soundcloud.com/underdotnet/purityleech-what-i-want-to?in=saxurn/sets/purp-skurp)
 
-**Artist**: Pretty Sweet 
+**Artist**: under.net 
 
-**Track**: Fuck It Up - Disco Lines, SIDEPIECE, Mike Sherm (PRETTY SWEET FLIP)
+**Track**: purityleech - What I Want To Tell You
 
-Last updated at 2/27/2025, 7:05:25 PM
+Last updated at 2/27/2025, 7:07:35 PM
