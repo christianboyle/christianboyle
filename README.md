@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8b0g3nyVlKSM1mRs-vGqSGw-t500x500.jpg">](https://soundcloud.com/affl1ct/type-o-negative-christian-woman-affl1cted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sost2aeyPPEI2x0I-ahzpEQ-t500x500.jpg">](https://soundcloud.com/platform/x-club-sydney)
 
-**Artist**: AFFL1CT 
+**Artist**: Boiler Room 
 
-**Track**: TYPE O NEGATIVE - CHRISTIAN WOMAN (AFFL1CTED)
+**Track**: X CLUB. | Boiler Room: Sydney
 
-Last updated at 3/1/2025, 8:51:47 AM
+Last updated at 3/1/2025, 10:35:00 AM
