@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmzTsSOiXF91SBea-DpvZFg-t500x500.jpg">](https://soundcloud.com/14106lyn/star)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HkB4nm0YsknaYzv2-4kr5zA-t500x500.png">](https://soundcloud.com/dackjaniels/panic-attack)
 
-**Artist**: 14106lyn 
+**Artist**: Dack Janiels 
 
-**Track**: star ★
+**Track**: DACK JANIELS - PANIC ATTACK
 
-Last updated at 3/2/2025, 8:26:42 AM
+Last updated at 3/2/2025, 9:26:43 AM
