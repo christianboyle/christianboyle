@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-infernum-tx054)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhGbctjgrxeMlUku-by7mpA-t500x500.jpg">](https://soundcloud.com/silv-o/m32?in=pp-21/sets/zsu6928n4bnz)
 
-**Artist**: Tx Records 
+**Artist**: Silv-o 
 
-**Track**: Bruno Aguirre - Infernum [TX054]
+**Track**: M32
 
-Last updated at 3/3/2025, 8:44:53 AM
+Last updated at 3/3/2025, 8:45:53 AM
