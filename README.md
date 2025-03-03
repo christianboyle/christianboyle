@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gQZga1YOK3rlYc1d-3ux1Fw-t500x500.jpg">](https://soundcloud.com/fgrsktr/9-gmail-auto-shop-steve-jobs?in=pp-21/sets/zsu6928n4bnz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o9S6gSVUcXyH5lZ5-C6Yqzg-t500x500.png">](https://soundcloud.com/uniontrance/vizionn_hundredbands)
 
-**Artist**: EVABOY 
+**Artist**: Union Trance Mission 
 
-**Track**: 9. GMAIL AUTO SHOP STEVE JOBS
+**Track**: Vizionn - Hundred Bands
 
-Last updated at 3/3/2025, 9:42:54 AM
+Last updated at 3/3/2025, 2:08:46 PM
