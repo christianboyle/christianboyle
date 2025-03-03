@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MhGbctjgrxeMlUku-by7mpA-t500x500.jpg">](https://soundcloud.com/silv-o/blues?in=pp-21/sets/zsu6928n4bnz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38Reb5lk7Rkt7pb4-2UA2gw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/oblast?in=pp-21/sets/zsu6928n4bnz)
 
-**Artist**: Silv-o 
+**Artist**: gyrofield 
 
-**Track**: Blues
+**Track**: Oblast
 
-Last updated at 3/3/2025, 8:57:39 AM
+Last updated at 3/3/2025, 9:02:20 AM
