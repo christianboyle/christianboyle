@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38Reb5lk7Rkt7pb4-2UA2gw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/oblast?in=pp-21/sets/zsu6928n4bnz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gQ9Dfd7M1iGq-0-t500x500.png">](https://soundcloud.com/varg2tm/hitty?in=pp-21/sets/zsu6928n4bnz)
 
-**Artist**: gyrofield 
+**Artist**: Varg²™ and Thaiboy Digital 
 
-**Track**: Oblast
+**Track**: Hitty
 
-Last updated at 3/3/2025, 9:02:20 AM
+Last updated at 3/3/2025, 9:07:55 AM
