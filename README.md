@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nxEbJnQDfeOgy38-ESKFlQ-t500x500.jpg">](https://soundcloud.com/opal707/caprisun-cigar?in=pp-21/sets/zsu6928n4bnz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zH7otXVUthGuj0-9DnB6Q-t500x500.jpg">](https://soundcloud.com/deleted900000/something-off?in=pp-21/sets/zsu6928n4bnz)
 
-**Artist**: opal 
+**Artist**: Deleted 
 
-**Track**: opal & blastah - capri sun with cigar
+**Track**: Camille Keller - Something Off
 
-Last updated at 3/3/2025, 8:49:04 AM
+Last updated at 3/3/2025, 8:51:24 AM
