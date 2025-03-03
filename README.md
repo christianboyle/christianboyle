@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7g6sRHZpflCDa4K-uqBnLw-t500x500.jpg">](https://soundcloud.com/platform/cltx-lyon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Od2Z5r7UMzEBaa0h-9quV1w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-yanamaste-ohohoi-mr032)
 
-**Artist**: Boiler Room 
+**Artist**: HATE 
 
-**Track**: CLTX | Boiler Room: Lyon
+**Track**: Premiere: Yanamaste — Ohohoi [MR032]
 
-Last updated at 3/3/2025, 2:20:50 PM
+Last updated at 3/3/2025, 4:10:47 PM
