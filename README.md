@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yNkkxszz225BQ1y-XWyP2w-t500x500.png">](https://soundcloud.com/remyheartmusic/cry-for-me-rh-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Od2Z5r7UMzEBaa0h-9quV1w-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-yanamaste-ohohoi-mr032)
 
-**Artist**: Remy Heart 
+**Artist**: HATE 
 
-**Track**: The Weeeknd - Cry for me (Remy Heart Flip) **Vocal Pitched for SC
+**Track**: Premiere: Yanamaste — Ohohoi [MR032]
 
-Last updated at 3/3/2025, 2:09:54 PM
+Last updated at 3/3/2025, 2:15:30 PM
