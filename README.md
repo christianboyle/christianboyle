@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-80zFWCGqR0pvSxg7-tSemdA-t500x500.jpg">](https://soundcloud.com/prodniteclef/hollywood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMgsGJOSbxqcunlC-pRkuaA-t500x500.jpg">](https://soundcloud.com/jessvanness/lizard-brain)
 
-**Artist**: clef 
+**Artist**: Jess Van Ness 
 
-**Track**: ⋆｡°✩ #hollywood pack feb '25 💝🤩
+**Track**: Lizard Brain - Progressive House & Deep Trance
 
-Last updated at 3/2/2025, 10:30:39 AM
+Last updated at 3/3/2025, 7:32:23 AM
