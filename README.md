@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2KufhSQgWeEOhbE-NBXi3Q-t500x500.png">](https://soundcloud.com/djhungergames1/dunge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-infernum-tx054)
 
-**Artist**: DJ CRIME 
+**Artist**: Tx Records 
 
-**Track**: dunge
+**Track**: Bruno Aguirre - Infernum [TX054]
 
-Last updated at 3/3/2025, 8:41:25 AM
+Last updated at 3/3/2025, 8:44:53 AM
