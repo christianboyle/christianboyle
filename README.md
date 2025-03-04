@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-infernum-tx054)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bu6E6jl3ENZnyxLX-q1blzg-t500x500.png">](https://soundcloud.com/technowereld/premiere-obseth-white-ceremony-evilgroove)
 
-**Artist**: Tx Records 
+**Artist**: Techno Wereld 
 
-**Track**: Bruno Aguirre - Infernum [TX054]
+**Track**: Premiere: Obseth - White Ceremony [EvilGroove]
 
-Last updated at 3/4/2025, 1:18:40 PM
+Last updated at 3/4/2025, 1:23:35 PM
