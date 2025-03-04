@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0QiXfpsAgguAnD9R-gFoaPg-t500x500.png">](https://soundcloud.com/tron3x/18cb615c-15e5-4a3f-afba-76d412b7e542)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LHZfPbTXA94lVTdo-Es1zdw-t500x500.png">](https://soundcloud.com/jjjacksen/heavyweight)
 
-**Artist**: TRON3X 
+**Artist**: jjjacksen 
 
-**Track**: TRON3X - Sauce Surfin
+**Track**: jjjacksen - Heavyweight
 
-Last updated at 3/4/2025, 8:32:09 AM
+Last updated at 3/4/2025, 12:59:08 PM
