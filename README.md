@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-infernum-tx054)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-noldAMpbas0yJXd7-zgFsCQ-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/astrowilk-x-steven-roys-x-blookers-hola-free-download)
 
-**Artist**: Tx Records 
+**Artist**: Astrowilk, Steven Roys, Blookers 
 
-**Track**: Bruno Aguirre - Infernum [TX054]
+**Track**: Astrowilk X Steven Roys X Blookers - Hola [FREE DOWNLOAD] Supported by Will Sparks!
 
-Last updated at 3/4/2025, 6:15:16 AM
+Last updated at 3/4/2025, 8:28:54 AM
