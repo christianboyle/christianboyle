@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38Reb5lk7Rkt7pb4-2UA2gw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/oblast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-find-your-soul-tx054)
 
-**Artist**: gyrofield 
+**Artist**: Tx Records 
 
-**Track**: Oblast
+**Track**: PREMIERE: Bruno Aguirre - Find Your Soul [TX054]
 
-Last updated at 3/4/2025, 1:08:09 PM
+Last updated at 3/4/2025, 1:13:39 PM
