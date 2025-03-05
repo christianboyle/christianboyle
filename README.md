@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cZxPa2mBZm3ckbwW-eDhMLA-t500x500.jpg">](https://soundcloud.com/officialpedromc/sonny-fodera-jazzy-dod-somedays-ft-tina-pedro-geo-mcd-pj-the-dj-remix-custom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bu6E6jl3ENZnyxLX-q1blzg-t500x500.png">](https://soundcloud.com/technowereld/premiere-obseth-white-ceremony-evilgroove)
 
-**Artist**: OfficialPedro 
+**Artist**: Techno Wereld 
 
-**Track**: Sonny Fodera & Jazzy & D.O.D - Somedays Ft Tina [ Pedro, Geo Mcd & PJ The Dj ] Remix [ Custom ]
+**Track**: Premiere: Obseth - White Ceremony [EvilGroove]
 
-Last updated at 3/4/2025, 8:36:28 PM
+Last updated at 3/4/2025, 8:39:03 PM
