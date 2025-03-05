@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zu8bptPkqu5G-0-t500x500.jpg">](https://soundcloud.com/jaxomy/shes-so-high?in=saxurn/sets/just-say-yo-to-rugs/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAESpvzrjzQ3pblk-kkJBIA-t500x500.png">](https://soundcloud.com/secretstvsh/ghost-mode)
 
-**Artist**: Jaxomy x Conor Maynard 
+**Artist**: STVSH 
 
-**Track**: She's So High
+**Track**: GHOST MODE
 
-Last updated at 3/5/2025, 11:56:53 AM
+Last updated at 3/5/2025, 11:57:53 AM
