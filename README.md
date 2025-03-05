@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHAyytGd8qcRVsSi-zrneqg-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgr-040s-freeloadr-strangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p8LjwWOnRq8GAXSp-FfLy5g-t500x500.jpg">](https://soundcloud.com/bernzikial/no-breaks-bernzikial-remix)
 
-**Artist**: freeloadr 
+**Artist**: BERNZIKIAL ✨💜 
 
-**Track**: QGR-040S | freeloadr - Strangers
+**Track**: TroyBoi - No Breaks (BERNZIKIAL Edit)
 
-Last updated at 3/4/2025, 7:48:32 PM
+Last updated at 3/4/2025, 7:49:32 PM
