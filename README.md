@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vmGUrhWB3hbf0bCF-7SMkgg-t500x500.png">](https://soundcloud.com/rynsmusic/up-down-ryns-flip?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WFasxwOzMvyGI6sw-8TN59w-t500x500.png">](https://soundcloud.com/rankzsound/thefunctionrankzflip)
 
-**Artist**: RYNS 
+**Artist**: RANKZ 
 
-**Track**: T-Pain - Up Down (RYNS FLIP)
+**Track**: Ship Wrek - The Function (RANKZ Flip)
 
-Last updated at 3/5/2025, 10:37:20 AM
+Last updated at 3/5/2025, 10:40:30 AM
