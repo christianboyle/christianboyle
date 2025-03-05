@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IqI02KJJXtBDgnWm-1802Jw-t500x500.jpg">](https://soundcloud.com/desacore/sea-shanty-2-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-atgtZz7qYeLH9zzR-4tJw0g-t500x500.jpg">](https://soundcloud.com/all-lo_collective/nothin-new?in=tfmarz/sets/all-lo-releases)
 
-**Artist**: Desacore 
+**Artist**: TF Marz 
 
-**Track**: Sea Shanty 2 Flip
+**Track**: Nothin New
 
-Last updated at 3/4/2025, 7:53:08 PM
+Last updated at 3/4/2025, 7:54:24 PM
