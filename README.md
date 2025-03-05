@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yawEhQlZ7mk35TZ0-SyzI7w-t500x500.jpg">](https://soundcloud.com/pablo-diazdemera/psp-feel-it-all-original-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfxKEI5tb543d2X5-NbrUVA-t500x500.jpg">](https://soundcloud.com/innergatetechno/nargremi-come-2-me)
 
-**Artist**: PSP 
+**Artist**: INNERGATED 
 
-**Track**: PSP - FEEL IT ALL (Original Mix)
+**Track**: NARGREMI - COME 2 ME [INNERGATED]
 
-Last updated at 3/5/2025, 12:05:54 PM
+Last updated at 3/5/2025, 12:10:59 PM
