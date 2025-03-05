@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zkfj0oaEgGOHyIG-qWNXwQ-t500x500.png">](https://soundcloud.com/veilofficialx/ririflip?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zu8bptPkqu5G-0-t500x500.jpg">](https://soundcloud.com/jaxomy/shes-so-high?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: VEIL 
+**Artist**: Jaxomy x Conor Maynard 
 
-**Track**: Young Miko - Riri [VEIL FLIP]
+**Track**: She's So High
 
-Last updated at 3/5/2025, 10:19:08 AM
+Last updated at 3/5/2025, 10:21:44 AM
