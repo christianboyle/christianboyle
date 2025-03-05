@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38Reb5lk7Rkt7pb4-2UA2gw-t500x500.jpg">](https://soundcloud.com/gyrofieldmusic/oblast?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-find-your-soul-tx054?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: gyrofield 
+**Artist**: Tx Records 
 
-**Track**: Oblast
+**Track**: PREMIERE: Bruno Aguirre - Find Your Soul [TX054]
 
-Last updated at 3/5/2025, 10:24:29 AM
+Last updated at 3/5/2025, 10:30:04 AM
