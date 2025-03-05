@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WFasxwOzMvyGI6sw-8TN59w-t500x500.png">](https://soundcloud.com/rankzsound/thefunctionrankzflip?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zkfj0oaEgGOHyIG-qWNXwQ-t500x500.png">](https://soundcloud.com/veilofficialx/ririflip?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: RANKZ 
+**Artist**: VEIL 
 
-**Track**: Ship Wrek - The Function (RANKZ Flip)
+**Track**: Young Miko - Riri [VEIL FLIP]
 
-Last updated at 3/5/2025, 7:45:21 AM
+Last updated at 3/5/2025, 10:19:08 AM
