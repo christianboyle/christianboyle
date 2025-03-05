@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uw0To5AvaxSnAW5z-SJFDQQ-t500x500.png">](https://soundcloud.com/tsunamimusicx/eye2eye-jai-wolf-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HJ8PzlVGbpOQAkOM-0zh3WQ-t500x500.png">](https://soundcloud.com/sweetsoundscollective/dluzion-diamonds)
 
-**Artist**: Tsu Nami, Jai Wolf 
+**Artist**: Sweet Sounds Collective 
 
-**Track**: eye2eye - Jai Wolf Remix
+**Track**: DLuZion - DIAMONDS
 
-Last updated at 3/4/2025, 8:27:54 PM
+Last updated at 3/4/2025, 8:29:14 PM
