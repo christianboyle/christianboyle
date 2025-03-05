@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WFasxwOzMvyGI6sw-8TN59w-t500x500.png">](https://soundcloud.com/rankzsound/thefunctionrankzflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zu8bptPkqu5G-0-t500x500.jpg">](https://soundcloud.com/jaxomy/shes-so-high?in=saxurn/sets/just-say-yo-to-rugs/)
 
-**Artist**: RANKZ 
+**Artist**: Jaxomy x Conor Maynard 
 
-**Track**: Ship Wrek - The Function (RANKZ Flip)
+**Track**: She's So High
 
-Last updated at 3/5/2025, 11:54:00 AM
+Last updated at 3/5/2025, 11:56:53 AM
