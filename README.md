@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzkktwXbrNL1E81b-HhCMXQ-t500x500.png">](https://soundcloud.com/carbonsigil/bomb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
 
-**Artist**: Carbon Sigil 
+**Artist**: djjoecraig 
 
-**Track**: The Bucketheads - BOMB (Sigilized by Carbon Sigil)
+**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
 
-Last updated at 3/5/2025, 1:05:54 PM
+Last updated at 3/5/2025, 1:10:45 PM
