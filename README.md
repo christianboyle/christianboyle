@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlbOUf9urpz3Nzby-bfkPsQ-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/rose-bruno-mars-apt-tatsunoshin-remix?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zu8bptPkqu5G-0-t500x500.jpg">](https://soundcloud.com/jaxomy/shes-so-high?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: ROSÉ & Bruno Mars 
+**Artist**: Jaxomy x Conor Maynard 
 
-**Track**: ROSÉ & Bruno Mars - APT. (Tatsunoshin Remix) Played by Da Tweekaz
+**Track**: She's So High
 
-Last updated at 3/6/2025, 8:16:37 AM
+Last updated at 3/6/2025, 8:20:03 AM
