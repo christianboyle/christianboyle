@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-find-your-soul-tx054?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfxKEI5tb543d2X5-NbrUVA-t500x500.jpg">](https://soundcloud.com/innergatetechno/nargremi-come-2-me?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: Tx Records 
+**Artist**: INNERGATED 
 
-**Track**: PREMIERE: Bruno Aguirre - Find Your Soul [TX054]
+**Track**: NARGREMI - COME 2 ME [INNERGATED]
 
-Last updated at 3/6/2025, 8:30:44 AM
+Last updated at 3/6/2025, 8:35:44 AM
