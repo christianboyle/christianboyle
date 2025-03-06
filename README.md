@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6J45pIf56Wez6Hlh-5kZ6Rw-t500x500.jpg">](https://soundcloud.com/bpmbullyz/qfx-rave-n-days-nrg-hardy-m-colosseum-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HASSvFJTNmqa6hJQ-vwASLA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-stronger?in=saxurn/sets/just-say-yo-to-rugs/)
 
-**Artist**: Hardy M 
+**Artist**: Rewired Records 
 
-**Track**: QFX - Rave N Days (NRG & Hardy M Colosseum Mix)
+**Track**: Infinite - Stronger
 
-Last updated at 3/5/2025, 6:43:30 PM
+Last updated at 3/5/2025, 7:25:24 PM
