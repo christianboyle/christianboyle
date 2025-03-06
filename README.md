@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfxKEI5tb543d2X5-NbrUVA-t500x500.jpg">](https://soundcloud.com/innergatetechno/nargremi-come-2-me?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pSO1fuPp77p7bWWg-4tMBTg-t500x500.png">](https://soundcloud.com/nikpmusic/split-em-up)
 
-**Artist**: INNERGATED 
+**Artist**: NIK P 
 
-**Track**: NARGREMI - COME 2 ME [INNERGATED]
+**Track**: Split Em Up
 
-Last updated at 3/6/2025, 2:53:24 PM
+Last updated at 3/6/2025, 5:05:02 PM
