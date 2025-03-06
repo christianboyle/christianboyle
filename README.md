@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVmREvy0M4RKvnKH-sGDrdQ-t500x500.jpg">](https://soundcloud.com/1sn0/flowstate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z68BEqg2ybFu2yIP-Q8hDNA-t500x500.png">](https://soundcloud.com/s3rl/let-the-music-take-control?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: snoa 
+**Artist**: S3RL ft SONJA 
 
-**Track**: states w glost prod 444jet envyother
+**Track**: Let the Music Take Control
 
-Last updated at 3/5/2025, 9:41:56 PM
+Last updated at 3/5/2025, 9:45:18 PM
