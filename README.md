@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HASSvFJTNmqa6hJQ-vwASLA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-stronger?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nfxKEI5tb543d2X5-NbrUVA-t500x500.jpg">](https://soundcloud.com/innergatetechno/nargremi-come-2-me)
 
-**Artist**: Rewired Records 
+**Artist**: INNERGATED 
 
-**Track**: Infinite - Stronger
+**Track**: NARGREMI - COME 2 ME [INNERGATED]
 
-Last updated at 3/5/2025, 7:35:37 PM
+Last updated at 3/5/2025, 7:57:26 PM
