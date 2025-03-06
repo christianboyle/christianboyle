@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z68BEqg2ybFu2yIP-Q8hDNA-t500x500.png">](https://soundcloud.com/s3rl/let-the-music-take-control?in=saxurn/sets/just-say-yo-to-rugs/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-find-your-soul-tx054/s-BqgFniclbdM?in=saxurn/sets/just-say-yo-to-rugs/)
 
-**Artist**: S3RL ft SONJA 
+**Artist**: Tx Records 
 
-**Track**: Let the Music Take Control
+**Track**: PREMIERE: Bruno Aguirre - Find Your Soul [TX054]
 
-Last updated at 3/5/2025, 7:31:35 PM
+Last updated at 3/5/2025, 7:32:40 PM
