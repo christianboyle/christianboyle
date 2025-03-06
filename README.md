@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlbOUf9urpz3Nzby-bfkPsQ-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/rose-bruno-mars-apt-tatsunoshin-remix?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OGuLz2s0VvTwP9rH-smsBVg-t500x500.png">](https://soundcloud.com/txrecords/premiere-bruno-aguirre-find-your-soul-tx054?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: ROSÉ & Bruno Mars 
+**Artist**: Tx Records 
 
-**Track**: ROSÉ & Bruno Mars - APT. (Tatsunoshin Remix) Played by Da Tweekaz
+**Track**: PREMIERE: Bruno Aguirre - Find Your Soul [TX054]
 
-Last updated at 3/5/2025, 9:47:38 PM
+Last updated at 3/5/2025, 9:49:33 PM
