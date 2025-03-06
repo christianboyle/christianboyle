@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zkfj0oaEgGOHyIG-qWNXwQ-t500x500.png">](https://soundcloud.com/veilofficialx/ririflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HASSvFJTNmqa6hJQ-vwASLA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-stronger?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: VEIL 
+**Artist**: Rewired Records 
 
-**Track**: Young Miko - Riri [VEIL FLIP]
+**Track**: Infinite - Stronger
 
-Last updated at 3/6/2025, 6:13:39 AM
+Last updated at 3/6/2025, 7:37:42 AM
