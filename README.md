@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6J45pIf56Wez6Hlh-5kZ6Rw-t500x500.jpg">](https://soundcloud.com/bpmbullyz/qfx-rave-n-days-nrg-hardy-m-colosseum-mix)
 
-**Artist**: djjoecraig 
+**Artist**: Hardy M 
 
-**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
+**Track**: QFX - Rave N Days (NRG & Hardy M Colosseum Mix)
 
-Last updated at 3/5/2025, 6:40:42 PM
+Last updated at 3/5/2025, 6:41:57 PM
