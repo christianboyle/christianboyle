@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z68BEqg2ybFu2yIP-Q8hDNA-t500x500.png">](https://soundcloud.com/s3rl/let-the-music-take-control?in=saxurn/sets/just-say-yo-to-rugs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlbOUf9urpz3Nzby-bfkPsQ-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/rose-bruno-mars-apt-tatsunoshin-remix?in=saxurn/sets/just-say-yo-to-rugs)
 
-**Artist**: S3RL ft SONJA 
+**Artist**: ROSÉ & Bruno Mars 
 
-**Track**: Let the Music Take Control
+**Track**: ROSÉ & Bruno Mars - APT. (Tatsunoshin Remix) Played by Da Tweekaz
 
-Last updated at 3/5/2025, 9:45:18 PM
+Last updated at 3/5/2025, 9:47:38 PM
