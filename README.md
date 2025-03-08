@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U7RqncWGXQq2MNBP-bllDWQ-t500x500.png">](https://soundcloud.com/wearestudio/bird-brain-goon-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71wW07lUBMEPvaVI-LTOIqA-t500x500.png">](https://soundcloud.com/smokeandmirrors255/smoke-and-mirrors-pulsefire)
 
-**Artist**: STUDIO 
+**Artist**: Smoke & Mirrors 
 
-**Track**: BirdBrain - Goon [Premiere]
+**Track**: Pulsefire
 
-Last updated at 3/8/2025, 8:37:33 AM
+Last updated at 3/8/2025, 8:52:52 AM
