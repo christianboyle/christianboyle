@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vnFiTlAROmdHWsi-SJRABw-t500x500.jpg">](https://soundcloud.com/petruswave/filhadaputa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3yabXe2b06MLYPK-fj4VWQ-t500x500.jpg">](https://soundcloud.com/nebita/allofthose)
 
-**Artist**: PETRUS 
+**Artist**: Carl Wheezer 
 
-**Track**: petrus.wav, Novin Yarp - FILHA DA PUTA
+**Track**: All of Those! (prod. Nebita)
 
-Last updated at 3/8/2025, 9:34:30 AM
+Last updated at 3/8/2025, 9:35:30 AM
