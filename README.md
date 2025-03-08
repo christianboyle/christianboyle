@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7iNk6O3zYnyZebyl-78Eb9g-t500x500.png">](https://soundcloud.com/barongfamily/2spade-royalty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U7RqncWGXQq2MNBP-bllDWQ-t500x500.png">](https://soundcloud.com/wearestudio/bird-brain-goon-premiere)
 
-**Artist**: 2Spade 
+**Artist**: STUDIO 
 
-**Track**: 2Spade - ROYALT¥
+**Track**: BirdBrain - Goon [Premiere]
 
-Last updated at 3/8/2025, 8:35:28 AM
+Last updated at 3/8/2025, 8:37:33 AM
