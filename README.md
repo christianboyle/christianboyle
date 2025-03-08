@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71wW07lUBMEPvaVI-LTOIqA-t500x500.png">](https://soundcloud.com/smokeandmirrors255/smoke-and-mirrors-pulsefire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J9adF8bvKbzzDyo3-Nvt1jg-t500x500.jpg">](https://soundcloud.com/nathan-ebbing/illuminate-resonant-divinity)
 
-**Artist**: Smoke & Mirrors 
+**Artist**: IllumiNate 
 
-**Track**: Pulsefire
+**Track**: IllumiNate - Resonant Divinity
 
-Last updated at 3/8/2025, 8:52:52 AM
+Last updated at 3/8/2025, 8:53:57 AM
