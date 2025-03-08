@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3yabXe2b06MLYPK-fj4VWQ-t500x500.jpg">](https://soundcloud.com/nebita/allofthose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c8Pa8yvHCdibeXZ5-5y5zoA-t500x500.png">](https://soundcloud.com/djhedo/skrillex-x-fred-again-x-flowdan-rumble-hedo-baile-edit)
 
-**Artist**: Carl Wheezer 
+**Artist**: Skrillex x Fred Again.. x Flowdan 
 
-**Track**: All of Those! (prod. Nebita)
+**Track**: Skrillex x Fred Again.. x Flowdan - Rumble (HEDO baile edit)
 
-Last updated at 3/8/2025, 9:35:30 AM
+Last updated at 3/8/2025, 9:36:40 AM
