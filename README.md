@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzrI9Dc8p4ziquyU-CT9rXg-t500x500.png">](https://soundcloud.com/djtink-1/iguesswerenotthesametinkremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RkvZQyyV3T4vG855-Y8ZcnA-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/fafaq-never-let-me-go-widerworks)
 
-**Artist**: TINK 
+**Artist**: Fafaq 
 
-**Track**: Sammy Virji - I Guess We're Not The Same (TINK Remix)
+**Track**: Fafaq - Never Let Me Go  [widerworks]
 
-Last updated at 3/8/2025, 8:11:40 AM
+Last updated at 3/8/2025, 8:13:31 AM
