@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yo5H2tWSMoLY7OQ9-PgHeig-t500x500.jpg">](https://soundcloud.com/jadudala/montycler-all-black-jadu259)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
 
-**Artist**: MontyCler 
+**Artist**: djjoecraig 
 
-**Track**: MontyCler - All Black (JADŪ259)
+**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
 
-Last updated at 3/8/2025, 9:37:50 AM
+Last updated at 3/8/2025, 10:10:28 AM
