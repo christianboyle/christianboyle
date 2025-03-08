@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58NOGu66473holOL-FZczqQ-t500x500.jpg">](https://soundcloud.com/dsffctd/wiley-100-publishing-disaffected-bootleg-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sMLISn7ZLM3WzLgk-BzWJ0g-t500x500.jpg">](https://soundcloud.com/andixofficial/i-am-free?in=saxurn/sets/func-comp/)
 
-**Artist**: Disaffected 
+**Artist**: Andix 
 
-**Track**: Wiley - 100% Publishing (Disaffected Bootleg)
+**Track**: I Am Free
 
-Last updated at 3/8/2025, 10:11:28 AM
+Last updated at 3/8/2025, 10:15:53 AM
