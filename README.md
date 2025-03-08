@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7g6sRHZpflCDa4K-uqBnLw-t500x500.jpg">](https://soundcloud.com/platform/cltx-lyon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzrI9Dc8p4ziquyU-CT9rXg-t500x500.png">](https://soundcloud.com/djtink-1/iguesswerenotthesametinkremix)
 
-**Artist**: Boiler Room 
+**Artist**: TINK 
 
-**Track**: CLTX | Boiler Room: Lyon
+**Track**: Sammy Virji - I Guess We're Not The Same (TINK Remix)
 
-Last updated at 3/8/2025, 8:10:15 AM
+Last updated at 3/8/2025, 8:11:40 AM
