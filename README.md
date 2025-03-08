@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0bPHywBoRDxlFkux-21ShfA-t500x500.jpg">](https://soundcloud.com/darn84/swan-e-double-dipped-christmas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7iNk6O3zYnyZebyl-78Eb9g-t500x500.png">](https://soundcloud.com/barongfamily/2spade-royalty)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: 2Spade 
 
-**Track**: Swan E @ Double Dipped - Christmas Party (16/12/1994)
+**Track**: 2Spade - ROYALT¥
 
-Last updated at 3/8/2025, 8:14:41 AM
+Last updated at 3/8/2025, 8:35:28 AM
