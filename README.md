@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MlGlnqQGDd8fEAoa-CI1npg-t500x500.jpg">](https://soundcloud.com/hvteddubstep/fat4l-x-hvted-voicemails)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqOXPRFfzRF01zaT-EsRZIQ-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/spritzur-przm-mine)
 
-**Artist**: HVTED 
+**Artist**: PRZM & Spritzur 
 
-**Track**: FAT4L x HVTED - Voicemails
+**Track**: Spritzur & PRZM - Mine
 
-Last updated at 3/9/2025, 10:19:14 AM
+Last updated at 3/9/2025, 10:20:14 AM
