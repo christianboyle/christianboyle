@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p35j7hiiCC7pRbxE-C9Z6fQ-t500x500.jpg">](https://soundcloud.com/objectivecollective/2tall-jumped-on-82nd)
 
-**Artist**: djjoecraig 
+**Artist**: 2TALL 
 
-**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
+**Track**: 2TALL - Jumped On 82nd
 
-Last updated at 3/9/2025, 10:14:50 AM
+Last updated at 3/9/2025, 10:18:14 AM
