@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tqOXPRFfzRF01zaT-EsRZIQ-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/spritzur-przm-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Srr6dymSgszKuVzT-M5zphg-t500x500.png">](https://soundcloud.com/dynasty_999/awo)
 
-**Artist**: PRZM & Spritzur 
+**Artist**: dynasty 
 
-**Track**: Spritzur & PRZM - Mine
+**Track**: a way out (centrlx+erdo)
 
-Last updated at 3/9/2025, 10:20:14 AM
+Last updated at 3/9/2025, 10:21:14 AM
