@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mJvwBdkAJpIGjpr8-Iqzc7g-t500x500.png">](https://soundcloud.com/levity_music/doechii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MuluKFfhNzypXNeY-1GaoYg-t500x500.png">](https://soundcloud.com/kula_1/kula_trap_future_bass)
 
-**Artist**: Levity 
+**Artist**: KULA 
 
-**Track**: Denial is a River vs. Flight Fm (Levity Flip)
+**Track**: KULA_Trap_Future_Bass_1
 
-Last updated at 3/9/2025, 10:25:04 AM
+Last updated at 3/9/2025, 10:26:04 AM
