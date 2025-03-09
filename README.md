@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p35j7hiiCC7pRbxE-C9Z6fQ-t500x500.jpg">](https://soundcloud.com/objectivecollective/2tall-jumped-on-82nd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MlGlnqQGDd8fEAoa-CI1npg-t500x500.jpg">](https://soundcloud.com/hvteddubstep/fat4l-x-hvted-voicemails)
 
-**Artist**: 2TALL 
+**Artist**: HVTED 
 
-**Track**: 2TALL - Jumped On 82nd
+**Track**: FAT4L x HVTED - Voicemails
 
-Last updated at 3/9/2025, 10:18:14 AM
+Last updated at 3/9/2025, 10:19:14 AM
