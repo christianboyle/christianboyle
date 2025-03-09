@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
 
-**Artist**: cwta 
+**Artist**: djjoecraig 
 
-**Track**: lyn - count me out (cwta, kita, heartsodull)
+**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
 
-Last updated at 3/8/2025, 12:18:12 PM
+Last updated at 3/9/2025, 10:14:50 AM
