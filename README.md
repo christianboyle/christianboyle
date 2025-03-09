@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHr6md7fctD3QITJ-ueFwBw-t500x500.jpg">](https://soundcloud.com/saint-baek/fantasy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mJvwBdkAJpIGjpr8-Iqzc7g-t500x500.png">](https://soundcloud.com/levity_music/doechii)
 
-**Artist**: SAINT MILLER 
+**Artist**: Levity 
 
-**Track**: FANTASY
+**Track**: Denial is a River vs. Flight Fm (Levity Flip)
 
-Last updated at 3/9/2025, 10:23:59 AM
+Last updated at 3/9/2025, 10:25:04 AM
