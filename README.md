@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Srr6dymSgszKuVzT-M5zphg-t500x500.png">](https://soundcloud.com/dynasty_999/awo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bykjmK6c0iRS6zN-Wqq8Bw-t500x500.png">](https://soundcloud.com/iameazley/i-know)
 
-**Artist**: dynasty 
+**Artist**: EAZLEY 
 
-**Track**: a way out (centrlx+erdo)
+**Track**: EAZLEY - I KNOW
 
-Last updated at 3/9/2025, 10:21:14 AM
+Last updated at 3/9/2025, 10:22:24 AM
