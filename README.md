@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9bykjmK6c0iRS6zN-Wqq8Bw-t500x500.png">](https://soundcloud.com/iameazley/i-know)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHr6md7fctD3QITJ-ueFwBw-t500x500.jpg">](https://soundcloud.com/saint-baek/fantasy-1)
 
-**Artist**: EAZLEY 
+**Artist**: SAINT MILLER 
 
-**Track**: EAZLEY - I KNOW
+**Track**: FANTASY
 
-Last updated at 3/9/2025, 10:22:24 AM
+Last updated at 3/9/2025, 10:23:59 AM
