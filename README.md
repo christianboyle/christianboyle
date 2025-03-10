@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flpy12hfiKUfzd07-qN7CWw-t500x500.png">](https://soundcloud.com/jmau5_jesse/creedflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ek3iADVP99xu5ady-MXhBRg-t500x500.png">](https://soundcloud.com/whoiscpark/new-level-asap-ferg-cpark-flip)
 
-**Artist**: JMAU5, DYKOTOMI 
+**Artist**: CPARK 
 
-**Track**: Creed - One Last Breath (JMAU5 X DYKOTOMI FLIP) [Free DL]
+**Track**: NEW LEVEL - A$AP FERG [CPARK FLIP]
 
-Last updated at 3/10/2025, 8:51:46 AM
+Last updated at 3/10/2025, 8:54:47 AM
