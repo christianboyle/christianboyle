@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58NOGu66473holOL-FZczqQ-t500x500.jpg">](https://soundcloud.com/dsffctd/wiley-100-publishing-disaffected-bootleg-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B694976dxpUyIKJ7-TpyJuA-t500x500.png">](https://soundcloud.com/averro/thats-so-true-gracie-abrams-averro-olly-gi-arellano-festival-remix)
 
-**Artist**: Disaffected 
+**Artist**: AVERRO, Olly Gi, Arellano 
 
-**Track**: Wiley - 100% Publishing (Disaffected Bootleg)
+**Track**: Thats So True - Gracie Abrams (AVERRO, Olly Gi & Arellano Festival Remix)
 
-Last updated at 3/10/2025, 9:00:37 AM
+Last updated at 3/10/2025, 9:05:13 AM
