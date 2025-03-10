@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58NOGu66473holOL-FZczqQ-t500x500.jpg">](https://soundcloud.com/dsffctd/wiley-100-publishing-disaffected-bootleg-1)
 
-**Artist**: cwta 
+**Artist**: Disaffected 
 
-**Track**: lyn - count me out (cwta, kita, heartsodull)
+**Track**: Wiley - 100% Publishing (Disaffected Bootleg)
 
-Last updated at 3/10/2025, 8:59:22 AM
+Last updated at 3/10/2025, 9:00:37 AM
