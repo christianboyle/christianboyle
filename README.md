@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-flpy12hfiKUfzd07-qN7CWw-t500x500.png">](https://soundcloud.com/jmau5_jesse/creedflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HASSvFJTNmqa6hJQ-vwASLA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-stronger)
 
-**Artist**: JMAU5, DYKOTOMI 
+**Artist**: Rewired Records 
 
-**Track**: Creed - One Last Breath (JMAU5 X DYKOTOMI FLIP) [Free DL]
+**Track**: Infinite - Stronger
 
-Last updated at 3/9/2025, 2:15:51 PM
+Last updated at 3/10/2025, 8:45:48 AM
