@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFIxE19pV9L6-0-t500x500.png">](https://soundcloud.com/maddixmusic/hellfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSy90RTm2ireir9a-5aFedQ-t500x500.jpg">](https://soundcloud.com/doubledrop23/double-drop-live-synergic-150225)
 
-**Artist**: Maddix and Gabry Ponte 
+**Artist**: double-drop 
 
-**Track**: Hellfire
+**Track**: The Bass Lab Essentials (Double Drop Live @ Synergic 15.02.25)
 
-Last updated at 3/11/2025, 8:35:40 AM
+Last updated at 3/11/2025, 8:45:33 AM
