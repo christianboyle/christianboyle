@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osNTZCEWQQq9aY0a-muvOpA-t500x500.jpg">](https://soundcloud.com/lodiun/adele-skyfall-lodiun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out)
 
-**Artist**: LØDIUN 
+**Artist**: cwta 
 
-**Track**: Adele - Skyfall (LODIUN REMIX)
+**Track**: lyn - count me out (cwta, kita, heartsodull)
 
-Last updated at 3/11/2025, 9:36:03 AM
+Last updated at 3/11/2025, 4:26:56 PM
