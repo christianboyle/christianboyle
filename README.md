@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B694976dxpUyIKJ7-TpyJuA-t500x500.png">](https://soundcloud.com/averro/thats-so-true-gracie-abrams-averro-olly-gi-arellano-festival-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gFIxE19pV9L6-0-t500x500.png">](https://soundcloud.com/maddixmusic/hellfire)
 
-**Artist**: AVERRO, Olly Gi, Arellano 
+**Artist**: Maddix and Gabry Ponte 
 
-**Track**: Thats So True - Gracie Abrams (AVERRO, Olly Gi & Arellano Festival Remix)
+**Track**: Hellfire
 
-Last updated at 3/11/2025, 7:34:19 AM
+Last updated at 3/11/2025, 8:35:40 AM
