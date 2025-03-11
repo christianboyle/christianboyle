@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGLaIpQVB276hJGs-auW02Q-t500x500.png">](https://soundcloud.com/dreamloader/ttwe-w-xx-eu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B694976dxpUyIKJ7-TpyJuA-t500x500.png">](https://soundcloud.com/averro/thats-so-true-gracie-abrams-averro-olly-gi-arellano-festival-remix)
 
-**Artist**: dreamloader, xx.eu 
+**Artist**: AVERRO, Olly Gi, Arellano 
 
-**Track**: TTWE \w xx.eu
+**Track**: Thats So True - Gracie Abrams (AVERRO, Olly Gi & Arellano Festival Remix)
 
-Last updated at 3/10/2025, 9:07:13 AM
+Last updated at 3/11/2025, 7:34:19 AM
