@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSy90RTm2ireir9a-5aFedQ-t500x500.jpg">](https://soundcloud.com/doubledrop23/double-drop-live-synergic-150225)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osNTZCEWQQq9aY0a-muvOpA-t500x500.jpg">](https://soundcloud.com/lodiun/adele-skyfall-lodiun-remix)
 
-**Artist**: double-drop 
+**Artist**: LØDIUN 
 
-**Track**: The Bass Lab Essentials (Double Drop Live @ Synergic 15.02.25)
+**Track**: Adele - Skyfall (LODIUN REMIX)
 
-Last updated at 3/11/2025, 8:45:33 AM
+Last updated at 3/11/2025, 9:36:03 AM
