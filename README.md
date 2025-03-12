@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aujvdChC2zHe2S3G-bUfrnA-t500x500.png">](https://soundcloud.com/hardcoreenergy/unlimited-vibes-crow-road)
 
-**Artist**: cwta 
+**Artist**: Hardcore Energy 
 
-**Track**: lyn - count me out (cwta, kita, heartsodull)
+**Track**: Unlimited Vibes - Crow Road
 
-Last updated at 3/12/2025, 9:23:21 AM
+Last updated at 3/12/2025, 10:18:05 AM
