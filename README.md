@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jvdQVPrqYosXu1Ye-pRNgWw-t500x500.png">](https://soundcloud.com/lenizdnb/leniz-suddenly-ep-vinyl-pre-order?in=lenizdnb/sets/leniz-suddenly-vinyl-only-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RONDvYj8QEU9oQpF-ilx49Q-t500x500.jpg">](https://soundcloud.com/flybassmusic/push-flip)
 
-**Artist**: Leniz 
+**Artist**: FLY 
 
-**Track**: LENIZ - SUDDENLY EP [VINYL PRE-ORDER]
+**Track**: PUSH FLIP
 
-Last updated at 3/12/2025, 10:20:47 AM
+Last updated at 3/12/2025, 10:22:17 AM
