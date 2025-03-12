@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LPUZdK0LAYDLd4xy-AEGEjQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-hexagonsound-gangnam-drift-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000545985684-7dk774-t500x500.jpg">](https://soundcloud.com/electronyze-me/dryskill-burnout)
 
-**Artist**: Techno Wereld, HexagonSound 
+**Artist**: Dryskill 
 
-**Track**: Premiere: HexagonSound - Gangnam Drift [Free Download]
+**Track**: Dryskill - Burnout
 
-Last updated at 3/12/2025, 10:56:20 AM
+Last updated at 3/12/2025, 10:57:30 AM
