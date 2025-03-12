@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShKOaymzzs1o0Ftz-PuygnA-t500x500.jpg">](https://soundcloud.com/whalesfm/hypnotized-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HXdYWvF8CrMDIoK8-szOKVA-t500x500.png">](https://soundcloud.com/ilian-tape/itps114-reeko)
 
-**Artist**: WHALES 
+**Artist**: ILIAN TAPE 
 
-**Track**: ANYMA & ELLIE GOULDING - HYPNOTIZED (WHALES REMIX)
+**Track**: ITPS114 REEKO
 
-Last updated at 3/12/2025, 10:58:30 AM
+Last updated at 3/12/2025, 11:08:04 AM
