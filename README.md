@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aujvdChC2zHe2S3G-bUfrnA-t500x500.png">](https://soundcloud.com/hardcoreenergy/unlimited-vibes-wheel?in=hardcoreenergy/sets/unlimited-vibes-vibes-by-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rmSZPPmQNWKQMVxU-DMQlFw-t500x500.jpg">](https://soundcloud.com/electronyze-me/bormann-the-beginning-1)
 
-**Artist**: Hardcore Energy 
+**Artist**: Bormann 
 
-**Track**: Unlimited Vibes - Wheel
+**Track**: BORMANN - THE BEGINNING
 
-Last updated at 3/12/2025, 10:29:47 AM
+Last updated at 3/12/2025, 10:51:14 AM
