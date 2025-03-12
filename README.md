@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p7tF7QCXxuFWnOzB-EWp1Dg-t500x500.png">](https://soundcloud.com/horse-vision/toxoplasma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LPUZdK0LAYDLd4xy-AEGEjQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-hexagonsound-gangnam-drift-free-download)
 
-**Artist**: Horse Vision 
+**Artist**: Techno Wereld, HexagonSound 
 
-**Track**: Toxoplasma
+**Track**: Premiere: HexagonSound - Gangnam Drift [Free Download]
 
-Last updated at 3/12/2025, 10:52:14 AM
+Last updated at 3/12/2025, 10:56:20 AM
