@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzgaSAA8hhty4Qzy-prsY1w-t500x500.png">](https://soundcloud.com/dnzrecords/dj-mateu-feat-eira-endless-night-short-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G9DrwwI4ax6xSzBt-a2y56w-t500x500.png">](https://soundcloud.com/elotrance/antonym-black-or-white-1)
 
-**Artist**: DJ Mateu Feat. Eira 
+**Artist**: ELOTRANCE 
 
-**Track**: DJ Mateu Feat. Eira - Endless Night Short Mix
+**Track**: Antonym - Black Or White
 
-Last updated at 3/13/2025, 9:00:22 AM
+Last updated at 3/13/2025, 9:02:29 AM
