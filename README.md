@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyum7U8R0g9eIdRK-UTOCdA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-transcend?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugdLf2Ip9SqOLfyC-R3sw2w-t500x500.jpg">](https://soundcloud.com/electronyze-me/droflam-x-pouce-next-move)
 
-**Artist**: Horyzon 
+**Artist**: Droflam, po.uce 
 
-**Track**: Horyzon - Transcend
+**Track**: Droflam & po.uce - Next Move
 
-Last updated at 3/13/2025, 11:12:45 AM
+Last updated at 3/13/2025, 1:16:46 PM
