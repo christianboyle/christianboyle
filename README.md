@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyum7U8R0g9eIdRK-UTOCdA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-transcend?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: Arya 
+**Artist**: Horyzon 
 
-**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
+**Track**: Horyzon - Transcend
 
-Last updated at 3/13/2025, 11:11:40 AM
+Last updated at 3/13/2025, 11:12:45 AM
