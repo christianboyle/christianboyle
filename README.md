@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-htBWYQH4lXtXrRh1-ywpzvQ-t500x500.png">](https://soundcloud.com/deod2ra/late)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: deod2ra 
+**Artist**: cwta 
 
-**Track**: late late night (prod.bycian x ay0ley)
+**Track**: lyn - count me out (cwta, kita, heartsodull)
 
-Last updated at 3/13/2025, 5:10:16 PM
+Last updated at 3/13/2025, 5:11:38 PM
