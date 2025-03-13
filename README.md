@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HXdYWvF8CrMDIoK8-szOKVA-t500x500.png">](https://soundcloud.com/ilian-tape/itps114-reeko)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aujvdChC2zHe2S3G-bUfrnA-t500x500.png">](https://soundcloud.com/hardcoreenergy/unlimited-vibes-wheel)
 
-**Artist**: ILIAN TAPE 
+**Artist**: Hardcore Energy 
 
-**Track**: ITPS114 REEKO
+**Track**: Unlimited Vibes - Wheel
 
-Last updated at 3/12/2025, 11:08:04 AM
+Last updated at 3/12/2025, 7:54:24 PM
