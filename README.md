@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G9DrwwI4ax6xSzBt-a2y56w-t500x500.png">](https://soundcloud.com/elotrance/antonym-black-or-white-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAO7u8jQvoK6-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/apologise)
 
-**Artist**: ELOTRANCE 
+**Artist**: Andy Whitby, GBX 
 
-**Track**: Antonym - Black Or White
+**Track**: Apologise
 
-Last updated at 3/13/2025, 9:02:29 AM
+Last updated at 3/13/2025, 9:04:34 AM
