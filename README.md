@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWrMzB1nnZw9KjUM-4z5vow-t500x500.jpg">](https://soundcloud.com/deodor/insomniac)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrGLcZfwodwz-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/castles-in-the-sky)
 
-**Artist**: deodora 
+**Artist**: Andy Whitby 
 
-**Track**: insomniac (drma x hiiidrax)
+**Track**: Castles In The Sky
 
-Last updated at 3/13/2025, 3:43:16 PM
+Last updated at 3/13/2025, 3:50:32 PM
