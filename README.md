@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B694976dxpUyIKJ7-TpyJuA-t500x500.png">](https://soundcloud.com/averro/thats-so-true-gracie-abrams-averro-olly-gi-arellano-festival-remix?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrGLcZfwodwz-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/castles-in-the-sky?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: AVERRO, Olly Gi, Arellano 
+**Artist**: Andy Whitby 
 
-**Track**: Thats So True - Gracie Abrams (AVERRO, Olly Gi & Arellano Festival Remix)
+**Track**: Castles In The Sky
 
-Last updated at 3/13/2025, 5:02:56 PM
+Last updated at 3/13/2025, 5:05:01 PM
