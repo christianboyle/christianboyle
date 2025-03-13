@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAO7u8jQvoK6-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/apologise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000545985684-7dk774-t500x500.jpg">](https://soundcloud.com/electronyze-me/dryskill-burnout)
 
-**Artist**: Andy Whitby, GBX 
+**Artist**: Dryskill 
 
-**Track**: Apologise
+**Track**: Dryskill - Burnout
 
-Last updated at 3/13/2025, 9:04:34 AM
+Last updated at 3/13/2025, 9:08:29 AM
