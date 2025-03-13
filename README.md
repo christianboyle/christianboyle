@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vT6yH4VBPbFMZp1b-nYBQVQ-t500x500.jpg">](https://soundcloud.com/umru/1st-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5j7OYwFDBTQiXa1f-5dz0tA-t500x500.jpg">](https://soundcloud.com/voartyx-music/ark-x-voartyx-retrospective)
 
-**Artist**: umru, Jacques Greene 
+**Artist**: Voartyx,A.R.K 
 
-**Track**: 1st Light
+**Track**: A.R.K. x Voartyx - Retrospective
 
-Last updated at 3/13/2025, 9:16:00 AM
+Last updated at 3/13/2025, 9:18:41 AM
