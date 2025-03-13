@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugdLf2Ip9SqOLfyC-R3sw2w-t500x500.jpg">](https://soundcloud.com/electronyze-me/droflam-x-pouce-next-move)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yn8q1MhgyKLZJufE-iNE08g-t500x500.png">](https://soundcloud.com/xantics/kevingates)
 
-**Artist**: Droflam, po.uce 
+**Artist**: Indicuh 
 
-**Track**: Droflam & po.uce - Next Move
+**Track**: Pissed Off
 
-Last updated at 3/13/2025, 1:16:46 PM
+Last updated at 3/13/2025, 1:56:20 PM
