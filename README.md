@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yn8q1MhgyKLZJufE-iNE08g-t500x500.png">](https://soundcloud.com/xantics/kevingates)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nWrMzB1nnZw9KjUM-4z5vow-t500x500.jpg">](https://soundcloud.com/deodor/insomniac)
 
-**Artist**: Indicuh 
+**Artist**: deodora 
 
-**Track**: Pissed Off
+**Track**: insomniac (drma x hiiidrax)
 
-Last updated at 3/13/2025, 1:56:20 PM
+Last updated at 3/13/2025, 1:58:00 PM
