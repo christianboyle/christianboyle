@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-htBWYQH4lXtXrRh1-ywpzvQ-t500x500.png">](https://soundcloud.com/deod2ra/late)
 
-**Artist**: Arya 
+**Artist**: deod2ra 
 
-**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
+**Track**: late late night (prod.bycian x ay0ley)
 
-Last updated at 3/13/2025, 5:07:51 PM
+Last updated at 3/13/2025, 5:10:16 PM
