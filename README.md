@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-17KVQokNtU5QTLMu-SBZtoQ-t500x500.png">](https://soundcloud.com/djnefu/nefu-cd-project-when-i-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzgaSAA8hhty4Qzy-prsY1w-t500x500.png">](https://soundcloud.com/dnzrecords/dj-mateu-feat-eira-endless-night-short-mix)
 
-**Artist**: Nefu, CD Project 
+**Artist**: DJ Mateu Feat. Eira 
 
-**Track**: Nefu & CD Project - When I Die
+**Track**: DJ Mateu Feat. Eira - Endless Night Short Mix
 
-Last updated at 3/13/2025, 8:58:54 AM
+Last updated at 3/13/2025, 9:00:22 AM
