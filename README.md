@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Uwg9uiRaCx0MlU9-3v5oHw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/firelite-losty-adrenaline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6Bx44Z6DpFXUS0p-97MXzg-t500x500.png">](https://soundcloud.com/waterl0w/6d678373-302f-42bf-8a8f-03bf14b9e90c)
 
-**Artist**: Firelite, Losty 
+**Artist**: Waterlow 
 
-**Track**: Firelite & Losty - Adrenaline
+**Track**: Push The Bounce (Free DL)
 
-Last updated at 3/14/2025, 10:24:48 AM
+Last updated at 3/14/2025, 10:27:58 AM
