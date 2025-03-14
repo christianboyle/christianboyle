@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-qaoz-feelings?in=millirecs/sets/2-va)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvH7lTNsQjwJnRPd-U6a8fw-t500x500.jpg">](https://soundcloud.com/sxf-thunderscream/technotierchen-traumland)
 
-**Artist**: MILLI RECORDS 
+**Artist**: Technotierchen 
 
-**Track**: [MRVA002] Qaoz - FEELINGS
+**Track**: Technotierchen - Traumland
 
-Last updated at 3/14/2025, 5:46:28 PM
+Last updated at 3/14/2025, 5:47:33 PM
