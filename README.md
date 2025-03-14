@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhtnajC5ELkrpMBN-WtPEyQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/all-or-nothing?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNULzB9n2RwoWFSa-mkeNMw-t500x500.jpg">](https://soundcloud.com/egotrikkz/blakswan-kids-with-guns-ego-fed)
 
-**Artist**: Quickdrop, MKL 
+**Artist**: eGotriKKz 
 
-**Track**: All Or Nothing
+**Track**: BLAKSWAN - Kids With Guns (EGO FED)
 
-Last updated at 3/14/2025, 3:35:43 PM
+Last updated at 3/14/2025, 3:39:19 PM
