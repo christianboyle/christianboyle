@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/canumaboys-move?in=millirecs/sets/2-va)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-qaoz-feelings?in=millirecs/sets/2-va)
 
-**Artist**: Canumaboys 
+**Artist**: MILLI RECORDS 
 
-**Track**: [MRVA002] CANUMABOYS - MOVE
+**Track**: [MRVA002] Qaoz - FEELINGS
 
-Last updated at 3/14/2025, 5:45:23 PM
+Last updated at 3/14/2025, 5:46:28 PM
