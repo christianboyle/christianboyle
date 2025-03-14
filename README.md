@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58NOGu66473holOL-FZczqQ-t500x500.jpg">](https://soundcloud.com/dsffctd/wiley-100-publishing-disaffected-bootleg-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx)
 
-**Artist**: Disaffected 
+**Artist**: Arya 
 
-**Track**: Wiley - 100% Publishing (Disaffected Bootleg)
+**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
 
-Last updated at 3/14/2025, 4:27:33 PM
+Last updated at 3/14/2025, 4:28:38 PM
