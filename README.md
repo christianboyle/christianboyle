@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: deodora, Akhimei 
+**Artist**: cwta 
 
-**Track**: rA9 w/ Akhimei (nightiger)
+**Track**: lyn - count me out (cwta, kita, heartsodull)
 
-Last updated at 3/14/2025, 10:31:09 AM
+Last updated at 3/14/2025, 10:32:39 AM
