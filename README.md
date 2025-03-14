@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrGLcZfwodwz-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/castles-in-the-sky)
 
-**Artist**: Arya 
+**Artist**: Andy Whitby 
 
-**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
+**Track**: Castles In The Sky
 
-Last updated at 3/14/2025, 4:28:38 PM
+Last updated at 3/14/2025, 4:34:29 PM
