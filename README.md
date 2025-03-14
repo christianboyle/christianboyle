@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfhUTSKnqxwt6KQp-JPWY8w-t500x500.png">](https://soundcloud.com/bloodpvct/marauda-avoidable-cause-blood-pvct-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PqAnRuKaqKvuRBQh-7PdZiQ-t500x500.png">](https://soundcloud.com/soundzorganic/ch3mistree-glitch-in-my-swamp)
 
-**Artist**: BLOOD PVCT 
+**Artist**: Ch3mistree 
 
-**Track**: MARAUDA- AVOIDABLE CAUSE (BLOOD PVCT REMIX) FREE DOWNLOAD
+**Track**: Ch3mistree - Glitch In My Swamp
 
-Last updated at 3/14/2025, 3:22:07 PM
+Last updated at 3/14/2025, 3:24:47 PM
