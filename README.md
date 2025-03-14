@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6Bx44Z6DpFXUS0p-97MXzg-t500x500.png">](https://soundcloud.com/waterl0w/6d678373-302f-42bf-8a8f-03bf14b9e90c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: Waterlow 
+**Artist**: deodora, Akhimei 
 
-**Track**: Push The Bounce (Free DL)
+**Track**: rA9 w/ Akhimei (nightiger)
 
-Last updated at 3/14/2025, 10:27:58 AM
+Last updated at 3/14/2025, 10:31:09 AM
