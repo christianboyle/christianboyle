@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JvH7lTNsQjwJnRPd-U6a8fw-t500x500.jpg">](https://soundcloud.com/sxf-thunderscream/technotierchen-traumland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E4zEaXEXVBFS0lkK-0WUzXQ-t500x500.png">](https://soundcloud.com/aajaradio/millie-rose-dobree-aaja-channel-1-01-03-25)
 
-**Artist**: Technotierchen 
+**Artist**: Aaja Music 
 
-**Track**: Technotierchen - Traumland
+**Track**: Millie Rose Dobree - Aaja Channel 1 - 01 03 25
 
-Last updated at 3/14/2025, 5:47:33 PM
+Last updated at 3/14/2025, 5:48:38 PM
