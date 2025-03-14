@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PqAnRuKaqKvuRBQh-7PdZiQ-t500x500.png">](https://soundcloud.com/soundzorganic/ch3mistree-glitch-in-my-swamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPTkuzagy1LwnYyl-RLbVDQ-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-into-the-groove-sample)
 
-**Artist**: Ch3mistree 
+**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
 
-**Track**: Ch3mistree - Glitch In My Swamp
+**Track**: Yes ii - Into The Groove. (sample)
 
-Last updated at 3/14/2025, 3:24:47 PM
+Last updated at 3/14/2025, 3:26:07 PM
