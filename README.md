@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyum7U8R0g9eIdRK-UTOCdA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-transcend?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Uwg9uiRaCx0MlU9-3v5oHw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/firelite-losty-adrenaline)
 
-**Artist**: Horyzon 
+**Artist**: Firelite, Losty 
 
-**Track**: Horyzon - Transcend
+**Track**: Firelite & Losty - Adrenaline
 
-Last updated at 3/14/2025, 10:20:32 AM
+Last updated at 3/14/2025, 10:24:48 AM
