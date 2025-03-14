@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrGLcZfwodwz-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyum7U8R0g9eIdRK-UTOCdA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-transcend)
 
-**Artist**: Andy Whitby 
+**Artist**: Horyzon 
 
-**Track**: Castles In The Sky
+**Track**: Horyzon - Transcend
 
-Last updated at 3/14/2025, 4:34:29 PM
+Last updated at 3/14/2025, 4:37:34 PM
