@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out?in=saxurn/sets/mid-state-liminal/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vT6yH4VBPbFMZp1b-nYBQVQ-t500x500.jpg">](https://soundcloud.com/umru/1st-light?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: cwta 
+**Artist**: umru, Jacques Greene 
 
-**Track**: lyn - count me out (cwta, kita, heartsodull)
+**Track**: 1st Light
 
-Last updated at 3/14/2025, 3:31:24 PM
+Last updated at 3/14/2025, 3:32:39 PM
