@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-75AGzlflZzFtbz2k-OUOkBw-t500x500.jpg">](https://soundcloud.com/chromebodies/mixedsignals)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfhUTSKnqxwt6KQp-JPWY8w-t500x500.png">](https://soundcloud.com/bloodpvct/marauda-avoidable-cause-blood-pvct-remix-free-download)
 
-**Artist**: CHROMEBODIES 
+**Artist**: BLOOD PVCT 
 
-**Track**: SKRILLEX , SWAE LEE - MIXED SIGNALS (CHROMEBODIED)
+**Track**: MARAUDA- AVOIDABLE CAUSE (BLOOD PVCT REMIX) FREE DOWNLOAD
 
-Last updated at 3/14/2025, 3:20:46 PM
+Last updated at 3/14/2025, 3:22:07 PM
