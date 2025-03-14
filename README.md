@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6shdQ9oYeNuTEJH-y3Gd6w-t500x500.png">](https://soundcloud.com/yerbownik2/encore-une-fois-club-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in=saxurn/sets/mid-state-liminal/)
 
-**Artist**: yerbby dj 
+**Artist**: deodora, Akhimei 
 
-**Track**: encore une fois (club edit)
+**Track**: rA9 w/ Akhimei (nightiger)
 
-Last updated at 3/14/2025, 3:28:07 PM
+Last updated at 3/14/2025, 3:29:23 PM
