@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNULzB9n2RwoWFSa-mkeNMw-t500x500.jpg">](https://soundcloud.com/egotrikkz/blakswan-kids-with-guns-ego-fed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in=saxurn/sets/mid-state-liminal)
 
-**Artist**: eGotriKKz 
+**Artist**: deodora, Akhimei 
 
-**Track**: BLAKSWAN - Kids With Guns (EGO FED)
+**Track**: rA9 w/ Akhimei (nightiger)
 
-Last updated at 3/14/2025, 3:39:19 PM
+Last updated at 3/14/2025, 3:41:19 PM
