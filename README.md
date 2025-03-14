@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPTkuzagy1LwnYyl-RLbVDQ-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-into-the-groove-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyjZMdy7Pe2yRS3S-TbzYAg-t500x500.jpg">](https://soundcloud.com/dewpointsounds/hyperreal-dj-set)
 
-**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
+**Artist**: Dewpoint 
 
-**Track**: Yes ii - Into The Groove. (sample)
+**Track**: Hyperreal - DJ Set
 
-Last updated at 3/14/2025, 3:26:07 PM
+Last updated at 3/14/2025, 3:27:07 PM
