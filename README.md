@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out)
 
-**Artist**: Arya 
+**Artist**: cwta 
 
-**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
+**Track**: lyn - count me out (cwta, kita, heartsodull)
 
-Last updated at 3/16/2025, 6:12:56 PM
+Last updated at 3/16/2025, 6:13:56 PM
