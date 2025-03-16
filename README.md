@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7ZNzjMM5wFRIDBj-zuKJyQ-t500x500.png">](https://soundcloud.com/wubaholics/cozykevgetdown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaLoHIjGb7NVdoWK-UifZwg-t500x500.jpg">](https://soundcloud.com/gardella/vibrate)
 
-**Artist**: cozy kev 
+**Artist**: Gardella 
 
-**Track**: cozy kev - GET DOWN
+**Track**: Gardella - Vibrate
 
-Last updated at 3/16/2025, 9:14:39 AM
+Last updated at 3/16/2025, 9:56:33 AM
