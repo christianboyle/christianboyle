@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P9n2jmjIr5e5ixJE-PqzznQ-t500x500.jpg">](https://soundcloud.com/sfamofficial/floss-mosh-pit-sfam-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yguMuxIHfi0vEaLB-0hvIkg-t500x500.jpg">](https://soundcloud.com/basiliskbass/brain-speaker-louis-forward)
 
-**Artist**: sfam 
+**Artist**: Brain, Speaker Louis 
 
-**Track**: flosstradamus - mosh pit (sfam remix) *skip to :30*
+**Track**: Brain & Speaker Louis - Forward
 
-Last updated at 3/16/2025, 9:11:58 AM
+Last updated at 3/16/2025, 9:12:58 AM
