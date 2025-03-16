@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOzP8MMlrEDsy6cV-y2rt1g-t500x500.jpg">](https://soundcloud.com/luin/deee-lite-stay-in-bed-forget-the-rest-luins-la-trobe-graffiti-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Tx9dop1HcyXHKTj-rZ4w6w-t500x500.jpg">](https://soundcloud.com/odyzeymusic/jordnmoody-backn4th)
 
-**Artist**: Luin 
+**Artist**: Odyzey Music 
 
-**Track**: Deee-Lite - Stay In Bed, Forget The Rest (Luin's La Trobe Graffiti Mix)
+**Track**: jordnmoody - BACKN4TH
 
-Last updated at 3/16/2025, 10:00:48 AM
+Last updated at 3/16/2025, 10:04:39 AM
