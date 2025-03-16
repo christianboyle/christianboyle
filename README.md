@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6objDuimb3zlHnuF-4FYjiQ-t500x500.png">](https://soundcloud.com/eyelander_music/left-to-suffer-paleface-swiss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A9wDdtjXR6k5-0-t500x500.png">](https://soundcloud.com/rose-caviar/talinda)
 
-**Artist**: EYELANDER 
+**Artist**: Rose Caviar and Pablo Casanova 
 
-**Track**: Left to Suffer & Paleface Swiss - Lost in the Dark (EYELANDER FLIP)
+**Track**: Talinda
 
-Last updated at 3/16/2025, 2:44:44 PM
+Last updated at 3/16/2025, 2:46:04 PM
