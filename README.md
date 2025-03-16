@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmhePgI2gmL4HE2-gZwqFA-t500x500.png">](https://soundcloud.com/aychofficial/schoolboy-q-collard-greens-feat-kendrick-lamar-aych-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enJqGJexYi8LwyEy-142S0w-t500x500.jpg">](https://soundcloud.com/hobibeats/chemicalmemory)
 
-**Artist**: AYCH 
+**Artist**: hobi 
 
-**Track**: Schoolboy Q - Collard Greens feat. Kendrick Lamar (AYCH FLIP)
+**Track**: chemical memory (all original unreleased ‘25)
 
-Last updated at 3/15/2025, 8:11:07 PM
+Last updated at 3/15/2025, 8:12:17 PM
