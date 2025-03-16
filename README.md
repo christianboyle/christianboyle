@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-juice-wrld-robbery-dj-jays-trance-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIrVzsxEqxINpXCw-7kERSA-t500x500.png">](https://soundcloud.com/millirecs/mrva001-ali-overdrive-i-can-heal-you)
 
-**Artist**: MILLI RECORDS 
+**Artist**: ALI OVERDRIVE 
 
-**Track**: [MRVA002] JUICE WRLD - ROBBERY (DJ JAYS TRANCE EDIT)
+**Track**: [MRVA001] ALI OVERDRIVE - I CAN HEAL YOU
 
-Last updated at 3/16/2025, 5:45:09 PM
+Last updated at 3/16/2025, 5:50:49 PM
