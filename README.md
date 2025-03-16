@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yguMuxIHfi0vEaLB-0hvIkg-t500x500.jpg">](https://soundcloud.com/basiliskbass/brain-speaker-louis-forward)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7ZNzjMM5wFRIDBj-zuKJyQ-t500x500.png">](https://soundcloud.com/wubaholics/cozykevgetdown)
 
-**Artist**: Brain, Speaker Louis 
+**Artist**: cozy kev 
 
-**Track**: Brain & Speaker Louis - Forward
+**Track**: cozy kev - GET DOWN
 
-Last updated at 3/16/2025, 9:12:58 AM
+Last updated at 3/16/2025, 9:14:39 AM
