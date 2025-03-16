@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QUPJqTYhNudWo86k-VcCv2Q-t500x500.png">](https://soundcloud.com/anotherdaypassesmeby/worth-it-shrinemaiden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HnezRocPwsZtvqxf-8ZeUyw-t500x500.png">](https://soundcloud.com/entangled-mind/minimix-2025)
 
-**Artist**: liliya 
+**Artist**: Entangled Mind 
 
-**Track**: worth it (shrinemaiden)
+**Track**: Entangled Realms - 2025 Minimix
 
-Last updated at 3/15/2025, 9:06:37 PM
+Last updated at 3/15/2025, 9:50:38 PM
