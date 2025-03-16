@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jI5rJmnQVtw270r4-RzX6xw-t500x500.jpg">](https://soundcloud.com/friend-110010855/eternalstarcrossed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vT6yH4VBPbFMZp1b-nYBQVQ-t500x500.jpg">](https://soundcloud.com/umru/1st-light)
 
-**Artist**: friendd, ivu 
+**Artist**: umru, Jacques Greene 
 
-**Track**: starcrossed
+**Track**: 1st Light
 
-Last updated at 3/16/2025, 6:07:16 PM
+Last updated at 3/16/2025, 6:09:31 PM
