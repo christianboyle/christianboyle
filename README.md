@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vT6yH4VBPbFMZp1b-nYBQVQ-t500x500.jpg">](https://soundcloud.com/umru/1st-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUzRkq1AjmviGphT-iIt8AA-t500x500.jpg">](https://soundcloud.com/arya51/john-summit-sub-focus-go-back-ft-julia-church-arya-rmx)
 
-**Artist**: umru, Jacques Greene 
+**Artist**: Arya 
 
-**Track**: 1st Light
+**Track**: John Summit & Sub Focus - Go Back ft. Julia Church (Arya Remix)
 
-Last updated at 3/16/2025, 6:09:31 PM
+Last updated at 3/16/2025, 6:12:56 PM
