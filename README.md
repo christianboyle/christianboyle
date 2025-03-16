@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TFstpnoRMdhViqBz-zll9QQ-t500x500.png">](https://soundcloud.com/46b/yyyyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2M2RZaw8wJTOAzR4-QTDejw-t500x500.jpg">](https://soundcloud.com/sommerklange/when-the-empire-falls)
 
-**Artist**: edyn 
+**Artist**: SOMMERKLÄNGE 
 
-**Track**: isabenjiprod160Yyyyy_f
+**Track**: When The Empire Falls
 
-Last updated at 3/15/2025, 8:17:42 PM
+Last updated at 3/15/2025, 8:18:47 PM
