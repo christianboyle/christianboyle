@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugdLf2Ip9SqOLfyC-R3sw2w-t500x500.jpg">](https://soundcloud.com/electronyze-me/droflam-shibusen-feat-juda-jay-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xz7fzzvtPApMmGJY-HpEQFA-t500x500.png">](https://soundcloud.com/dj_skyr3sh/skyr3sh-dungeons-party-formula-records)
 
-**Artist**: Droflam, Juda Jay 
+**Artist**: DJ SKYR3SH 
 
-**Track**: Droflam - Shibusen (feat. Juda Jay)
+**Track**: SKYR3SH - Dungeon's Party [Formula Records]
 
-Last updated at 3/17/2025, 3:23:10 PM
+Last updated at 3/17/2025, 3:25:45 PM
