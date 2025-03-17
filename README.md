@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGPhfpj5wiTQSPS6-iRzxNg-t500x500.jpg">](https://soundcloud.com/frickbeige/bipolar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZ1Wh4MzAaBFJqfu-SL0yTA-t500x500.jpg">](https://soundcloud.com/erbesextras/loot-erbes-edit)
 
-**Artist**: beige 
+**Artist**: ERBES Extras 
 
-**Track**: bipolar
+**Track**: eliozie - loot (ERBES Edit)(FDL)
 
-Last updated at 3/17/2025, 7:28:14 AM
+Last updated at 3/17/2025, 7:29:20 AM
