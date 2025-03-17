@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIrVzsxEqxINpXCw-7kERSA-t500x500.png">](https://soundcloud.com/millirecs/mrva001-ali-overdrive-i-can-heal-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in=saxurn/sets/mid-state-liminal)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: deodora, Akhimei 
 
-**Track**: [MRVA001] ALI OVERDRIVE - I CAN HEAL YOU
+**Track**: rA9 w/ Akhimei (nightiger)
 
-Last updated at 3/17/2025, 9:36:41 AM
+Last updated at 3/17/2025, 10:52:48 AM
