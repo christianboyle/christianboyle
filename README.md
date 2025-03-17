@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RQkZQd9y5G7x43Td-6lE3Pw-t500x500.png">](https://soundcloud.com/travelermusic/the-prophet-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXSz7Tz5gz97G6PE-pay9FA-t500x500.png">](https://soundcloud.com/kyetrevor/soulmate-wixxy)
 
-**Artist**: Traveler 
+**Artist**: kye trevor 
 
-**Track**: The Prophet (Original Mix)
+**Track**: soulmate (wixxy)
 
-Last updated at 3/17/2025, 7:25:09 AM
+Last updated at 3/17/2025, 7:26:15 AM
