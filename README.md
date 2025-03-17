@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out?in=saxurn/sets/mid-state-liminal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhtnajC5ELkrpMBN-WtPEyQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/all-or-nothing?in=saxurn/sets/mid-state-liminal)
 
-**Artist**: cwta 
+**Artist**: Quickdrop, MKL 
 
-**Track**: lyn - count me out (cwta, kita, heartsodull)
+**Track**: All Or Nothing
 
-Last updated at 3/16/2025, 7:38:07 PM
+Last updated at 3/16/2025, 7:39:22 PM
