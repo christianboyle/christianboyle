@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WFasxwOzMvyGI6sw-8TN59w-t500x500.png">](https://soundcloud.com/rankzsound/thefunctionrankzflip?in=saxurn/sets/tail-f/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJaho4Vfj1OxzK69-qINkVQ-t500x500.png">](https://soundcloud.com/weewahofficial/lost-in-you?in=saxurn/sets/tail-f/)
 
-**Artist**: RANKZ 
+**Artist**: Weewah 
 
-**Track**: Ship Wrek - The Function (RANKZ Flip)
+**Track**: Lost in You
 
-Last updated at 3/17/2025, 3:02:48 PM
+Last updated at 3/17/2025, 3:04:38 PM
