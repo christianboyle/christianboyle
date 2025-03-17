@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uhtnajC5ELkrpMBN-WtPEyQ-t500x500.jpg">](https://soundcloud.com/quickdropmusic/all-or-nothing?in=saxurn/sets/mid-state-liminal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B694976dxpUyIKJ7-TpyJuA-t500x500.png">](https://soundcloud.com/averro/thats-so-true-gracie-abrams-averro-olly-gi-arellano-festival-remix?in=saxurn/sets/mid-state-liminal)
 
-**Artist**: Quickdrop, MKL 
+**Artist**: AVERRO, Olly Gi, Arellano 
 
-**Track**: All Or Nothing
+**Track**: Thats So True - Gracie Abrams (AVERRO, Olly Gi & Arellano Festival Remix)
 
-Last updated at 3/16/2025, 7:39:22 PM
+Last updated at 3/16/2025, 7:42:28 PM
