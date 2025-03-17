@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJaho4Vfj1OxzK69-qINkVQ-t500x500.png">](https://soundcloud.com/weewahofficial/lost-in-you)
 
-**Artist**: MUGEN 
+**Artist**: Weewah 
 
-**Track**: A$AP Ferg - Work (MUGEN Remix)
+**Track**: Lost in You
 
-Last updated at 3/16/2025, 9:11:55 PM
+Last updated at 3/16/2025, 9:16:06 PM
