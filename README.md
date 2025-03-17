@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXSz7Tz5gz97G6PE-pay9FA-t500x500.png">](https://soundcloud.com/kyetrevor/soulmate-wixxy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxuVEsoxsQSwfhq1-uZMsIg-t500x500.png">](https://soundcloud.com/ravenscoon/sbtrkt-wildfire-ravenscoon-x-emurse-flip)
 
-**Artist**: kye trevor 
+**Artist**: RAVENSCOON, Emurse 
 
-**Track**: soulmate (wixxy)
+**Track**: SBTRKT - Wildfire (RAVENSCOON x Emurse Flip)
 
-Last updated at 3/17/2025, 7:26:15 AM
+Last updated at 3/17/2025, 7:27:14 AM
