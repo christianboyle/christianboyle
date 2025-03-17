@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIrVzsxEqxINpXCw-7kERSA-t500x500.png">](https://soundcloud.com/millirecs/mrva001-ali-overdrive-i-can-heal-you?in=saxurn/sets/mid-state-liminal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix?in=saxurn/sets/tail-f/)
 
-**Artist**: ALI OVERDRIVE 
+**Artist**: Marshmello, TRICKSTAR, Lil Jon 
 
-**Track**: [MRVA001] ALI OVERDRIVE - I CAN HEAL YOU
+**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
 
-Last updated at 3/17/2025, 2:03:55 PM
+Last updated at 3/17/2025, 2:49:17 PM
