@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix?in=saxurn/sets/tail-f/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ab32i2iLEoZBuM0R-Y1wBeQ-t500x500.png">](https://soundcloud.com/below_the_surface/wynde-up-mud-muscle?in=saxurn/sets/tail-f/)
 
-**Artist**: MUGEN 
+**Artist**: Wynde Up 
 
-**Track**: A$AP Ferg - Work (MUGEN Remix)
+**Track**: Mud Muscle
 
-Last updated at 3/17/2025, 2:55:38 PM
+Last updated at 3/17/2025, 2:59:53 PM
