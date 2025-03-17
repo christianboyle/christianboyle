@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ek3iADVP99xu5ady-MXhBRg-t500x500.png">](https://soundcloud.com/whoiscpark/new-level-asap-ferg-cpark-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58NOGu66473holOL-FZczqQ-t500x500.jpg">](https://soundcloud.com/dsffctd/wiley-100-publishing-disaffected-bootleg-1?in=saxurn/sets/mid-state-liminal)
 
-**Artist**: CPARK 
+**Artist**: Disaffected 
 
-**Track**: NEW LEVEL - A$AP FERG [CPARK FLIP]
+**Track**: Wiley - 100% Publishing (Disaffected Bootleg)
 
-Last updated at 3/16/2025, 7:54:05 PM
+Last updated at 3/16/2025, 8:01:05 PM
