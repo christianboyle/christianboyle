@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJaho4Vfj1OxzK69-qINkVQ-t500x500.png">](https://soundcloud.com/weewahofficial/lost-in-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-juice-wrld-robbery-dj-jays-trance-edit)
 
-**Artist**: Weewah 
+**Artist**: MILLI RECORDS 
 
-**Track**: Lost in You
+**Track**: [MRVA002] JUICE WRLD - ROBBERY (DJ JAYS TRANCE EDIT)
 
-Last updated at 3/17/2025, 9:27:10 AM
+Last updated at 3/17/2025, 9:31:00 AM
