@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmhePgI2gmL4HE2-gZwqFA-t500x500.png">](https://soundcloud.com/aychofficial/schoolboy-q-collard-greens-feat-kendrick-lamar-aych-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix)
 
-**Artist**: AYCH 
+**Artist**: MUGEN 
 
-**Track**: Schoolboy Q - Collard Greens feat. Kendrick Lamar (AYCH FLIP)
+**Track**: A$AP Ferg - Work (MUGEN Remix)
 
-Last updated at 3/16/2025, 9:08:35 PM
+Last updated at 3/16/2025, 9:11:55 PM
