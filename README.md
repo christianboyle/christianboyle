@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fu7Q3ErZHROKlfyX-NY5HlA-t500x500.png">](https://soundcloud.com/spaceshipearthmusix/gift-of-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix)
 
-**Artist**: Spaceship Earth, Ace On Earth 
+**Artist**: Marshmello, TRICKSTAR, Lil Jon 
 
-**Track**: Gift of Life
+**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
 
-Last updated at 3/17/2025, 9:12:33 AM
+Last updated at 3/17/2025, 9:16:09 AM
