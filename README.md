@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxuVEsoxsQSwfhq1-uZMsIg-t500x500.png">](https://soundcloud.com/ravenscoon/sbtrkt-wildfire-ravenscoon-x-emurse-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KGPhfpj5wiTQSPS6-iRzxNg-t500x500.jpg">](https://soundcloud.com/frickbeige/bipolar)
 
-**Artist**: RAVENSCOON, Emurse 
+**Artist**: beige 
 
-**Track**: SBTRKT - Wildfire (RAVENSCOON x Emurse Flip)
+**Track**: bipolar
 
-Last updated at 3/17/2025, 7:27:14 AM
+Last updated at 3/17/2025, 7:28:14 AM
