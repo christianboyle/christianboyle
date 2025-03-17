@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsFZrYtgA1jJy0z9-x0Mnew-t500x500.png">](https://soundcloud.com/charmlink/softworld-neverend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix)
 
-**Artist**: charmlink 
+**Artist**: MUGEN 
 
-**Track**: softworld - neverend
+**Track**: A$AP Ferg - Work (MUGEN Remix)
 
-Last updated at 3/17/2025, 9:19:09 AM
+Last updated at 3/17/2025, 9:22:59 AM
