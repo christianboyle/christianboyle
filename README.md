@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FsFZrYtgA1jJy0z9-x0Mnew-t500x500.png">](https://soundcloud.com/charmlink/softworld-neverend)
 
-**Artist**: Marshmello, TRICKSTAR, Lil Jon 
+**Artist**: charmlink 
 
-**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
+**Track**: softworld - neverend
 
-Last updated at 3/17/2025, 9:16:09 AM
+Last updated at 3/17/2025, 9:19:09 AM
