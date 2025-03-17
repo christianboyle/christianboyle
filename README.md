@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jI5rJmnQVtw270r4-RzX6xw-t500x500.jpg">](https://soundcloud.com/friend-110010855/eternalstarcrossed?in=saxurn/sets/tail-f/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-juice-wrld-robbery-dj-jays-trance-edit?in=saxurn/sets/tail-f/)
 
-**Artist**: friendd, ivu 
+**Artist**: MILLI RECORDS 
 
-**Track**: starcrossed
+**Track**: [MRVA002] JUICE WRLD - ROBBERY (DJ JAYS TRANCE EDIT)
 
-Last updated at 3/17/2025, 3:08:29 PM
+Last updated at 3/17/2025, 3:10:44 PM
