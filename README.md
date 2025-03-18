@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000223934054-gzkjh7-t500x500.jpg">](https://soundcloud.com/electronyze-me/firefly-kiss-em-molly-recs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zvHGpTf9z7AusDcF-SGchRw-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-moto-moto-nepo-lunatic-kosmos)
 
-**Artist**: FireFLY 
+**Artist**: Raven Musik 
 
-**Track**: FireFLY - Kiss
+**Track**: PREMIERE: Moto Moto, NEPØ - Lunatic [KOSMOS]
 
-Last updated at 3/18/2025, 9:08:55 AM
+Last updated at 3/18/2025, 9:13:50 AM
