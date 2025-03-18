@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ns57lYBOLPzyNCq2-tyTHqw-t500x500.jpg">](https://soundcloud.com/angel_ray_2k/charli-xcx-360-angelray-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-svEjtd3NdKpJD5Ob-uroZkQ-t500x500.png">](https://soundcloud.com/citysproblem/hulahoop-mood-ring-315-mix)
 
-**Artist**: angelRay 
+**Artist**: CITYSPROBLEM 
 
-**Track**: Charli XCX - 360 (angelRay Remix)
+**Track**: hulaHOOP @ Mood Ring NYC 3/15 MIX
 
-Last updated at 3/18/2025, 9:24:43 AM
+Last updated at 3/18/2025, 2:53:01 PM
