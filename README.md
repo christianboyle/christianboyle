@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FDwo16wVzLNvyqq3-qiczCw-t500x500.jpg">](https://soundcloud.com/hestermusic/hester-rhythm-is-a-mystery-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyKEdtj9hKTM07Jj-KDvBTA-t500x500.jpg">](https://soundcloud.com/polarity_official/get-the-fxck-up)
 
-**Artist**: HESTER 
+**Artist**: Polarity 
 
-**Track**: HESTER - Rhythm Is A Mystery
+**Track**: Polarity - Get The Fxck Up (FREE DL)
 
-Last updated at 3/18/2025, 8:31:47 AM
+Last updated at 3/18/2025, 8:33:43 AM
