@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053863236-r0ee63-t500x500.jpg">](https://soundcloud.com/nettwerkmusicgroup/delerium-chrysalis-heart-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzVZyEtyghSzpQ2z-aCVoVA-t500x500.png">](https://soundcloud.com/angel_ray_2k/oklou-ict-angelray-edit)
 
-**Artist**: Nettwerk Music Group 
+**Artist**: Oklou, angelRay 
 
-**Track**: Delerium (ft. Stef Lang) - Chrysalis Heart (Stereojackers vs Mark Loverush Remix)
+**Track**: oklou - ict (angelRay edit)
 
-Last updated at 3/18/2025, 9:20:30 AM
+Last updated at 3/18/2025, 9:23:43 AM
