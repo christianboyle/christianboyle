@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G0llMM8yOTE9z0xT-xpTjbw-t500x500.png">](https://soundcloud.com/extrakt_music/peekaboo-lyny-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QsalVIYJUDtZTck-jfCw9A-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/katy-perry-last-friday-night-febration-x-daevo-remix-free-download)
 
-**Artist**: Extrakt 
+**Artist**: Febration, Daevo 
 
-**Track**: Peekaboo & Lyny - Like That (Extrakt Flip)
+**Track**: Katy Perry - Last Friday Night (Febration & Daevo Remix) [FREE DOWNLOAD]
 
-Last updated at 3/18/2025, 9:02:14 AM
+Last updated at 3/18/2025, 9:05:39 AM
