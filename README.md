@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyLBZ6hGNHoJ-0-t500x500.jpg">](https://soundcloud.com/mythmofficial/rough-jordnmoody-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9x0pG930sITAtaE-WK06uQ-t500x500.png">](https://soundcloud.com/cristianmarchi/cristian-marchi-feat-reverend-haus-motivation-radio-edit)
 
-**Artist**: MYTHM, Rakjay 
+**Artist**: Cristian Marchi 
 
-**Track**: Rough (jordnmoody Remix)
+**Track**: CRISTIAN MARCHI Feat Reverend Haus - Motivation (Radio Edit)
 
-Last updated at 3/18/2025, 8:10:40 AM
+Last updated at 3/18/2025, 8:11:55 AM
