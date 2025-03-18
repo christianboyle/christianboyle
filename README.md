@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IJaho4Vfj1OxzK69-qINkVQ-t500x500.png">](https://soundcloud.com/weewahofficial/lost-in-you?in=saxurn/sets/tail-f/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jI5rJmnQVtw270r4-RzX6xw-t500x500.jpg">](https://soundcloud.com/friend-110010855/eternalstarcrossed?in=saxurn/sets/tail-f/)
 
-**Artist**: Weewah 
+**Artist**: friendd, ivu 
 
-**Track**: Lost in You
+**Track**: starcrossed
 
-Last updated at 3/17/2025, 7:49:50 PM
+Last updated at 3/17/2025, 7:53:40 PM
