@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyKEdtj9hKTM07Jj-KDvBTA-t500x500.jpg">](https://soundcloud.com/polarity_official/get-the-fxck-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLxSCUixkZkxrVUU-kF1B4A-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/soren-ft-jorik-burema-haunted-by-you)
 
-**Artist**: Polarity 
+**Artist**: SOREN, Jorik Burema 
 
-**Track**: Polarity - Get The Fxck Up (FREE DL)
+**Track**: SOREN ft. Jorik Burema - HAUNTED BY YOU
 
-Last updated at 3/18/2025, 8:33:43 AM
+Last updated at 3/18/2025, 8:34:47 AM
