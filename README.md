@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz4vpWL3uzzXKlqy-KZ0Prg-t500x500.jpg">](https://soundcloud.com/sandsconnection/anna-naklab-supergirl-gaz-summers-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: Marshmello, TRICKSTAR, Lil Jon 
 
-**Track**: anna naklab -supergirl (Gaz Summers Remix)
+**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
 
-Last updated at 3/18/2025, 3:21:04 PM
+Last updated at 3/18/2025, 3:24:14 PM
