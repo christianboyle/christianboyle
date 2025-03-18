@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XsGyV2u6GJQeCtjs-1t1A8g-t500x500.jpg">](https://soundcloud.com/the-techno-community/premiere-thiso-insomnia-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sUaKWqFNL9UdolwH-J5m3kQ-t500x500.jpg">](https://soundcloud.com/charliebarrell/bounce-to-the-rhythm)
 
-**Artist**: THISO 
+**Artist**: Charlie Barrell 
 
-**Track**: Premiere | THISO - Insomnia [Free DL]
+**Track**: Bounce To The Rhythm (FREE DOWNLOAD)
 
-Last updated at 3/18/2025, 3:10:38 PM
+Last updated at 3/18/2025, 3:14:43 PM
