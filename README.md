@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053863236-r0ee63-t500x500.jpg">](https://soundcloud.com/nettwerkmusicgroup/delerium-chrysalis-heart-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhmJ1yiMJG4Kykok-B9XETg-t500x500.png">](https://soundcloud.com/justsickness/freak)
 
-**Artist**: Nettwerk Music Group 
+**Artist**: JustS!ck 
 
-**Track**: Delerium (ft. Stef Lang) - Chrysalis Heart (Stereojackers vs Mark Loverush Remix)
+**Track**: FREAK
 
-Last updated at 3/18/2025, 2:57:37 PM
+Last updated at 3/18/2025, 3:05:07 PM
