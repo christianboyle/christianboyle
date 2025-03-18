@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201892588-52c1ca-t500x500.jpg">](https://soundcloud.com/electronyze-me/data-wave-shaking-down-em-tgs-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G0llMM8yOTE9z0xT-xpTjbw-t500x500.png">](https://soundcloud.com/extrakt_music/peekaboo-lyny-like-that)
 
-**Artist**: Data Wave 
+**Artist**: Extrakt 
 
-**Track**: Data Wave - Shaking Down
+**Track**: Peekaboo & Lyny - Like That (Extrakt Flip)
 
-Last updated at 3/18/2025, 8:58:34 AM
+Last updated at 3/18/2025, 9:02:14 AM
