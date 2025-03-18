@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zDyOA9WW5OIZZmJ6-jrvbdA-t500x500.jpg">](https://soundcloud.com/bleaubeard/sicko-mode-bleaubeard-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000201892588-52c1ca-t500x500.jpg">](https://soundcloud.com/electronyze-me/data-wave-shaking-down-em-tgs-exclusive)
 
-**Artist**: Bleaubeard 
+**Artist**: Data Wave 
 
-**Track**: Sicko Mode (Bleaubeard Flip)
+**Track**: Data Wave - Shaking Down
 
-Last updated at 3/18/2025, 8:54:58 AM
+Last updated at 3/18/2025, 8:58:34 AM
