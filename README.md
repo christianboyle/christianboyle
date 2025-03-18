@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QsalVIYJUDtZTck-jfCw9A-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/katy-perry-last-friday-night-febration-x-daevo-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000223934054-gzkjh7-t500x500.jpg">](https://soundcloud.com/electronyze-me/firefly-kiss-em-molly-recs)
 
-**Artist**: Febration, Daevo 
+**Artist**: FireFLY 
 
-**Track**: Katy Perry - Last Friday Night (Febration & Daevo Remix) [FREE DOWNLOAD]
+**Track**: FireFLY - Kiss
 
-Last updated at 3/18/2025, 9:05:39 AM
+Last updated at 3/18/2025, 9:08:55 AM
