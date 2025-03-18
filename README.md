@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VIUmlxu7PPvyPuTl-lBcnzw-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/i-wanna-dance-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NC2qjktC8FtLubzk-Jnoeyg-t500x500.jpg">](https://soundcloud.com/peterblu3/qlo-bendecio)
 
-**Artist**: Olly James 
+**Artist**: PETERBLUE 
 
-**Track**: I Wanna Dance (Preview)
+**Track**: PETERBLUE ☆ BENDECIO ☆
 
-Last updated at 3/18/2025, 8:08:10 AM
+Last updated at 3/18/2025, 8:09:15 AM
