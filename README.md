@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PrGLcZfwodwz-0-t500x500.jpg">](https://soundcloud.com/djandywhitby/castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzVZyEtyghSzpQ2z-aCVoVA-t500x500.png">](https://soundcloud.com/angel_ray_2k/oklou-ict-angelray-edit)
 
-**Artist**: Andy Whitby 
+**Artist**: Oklou, angelRay 
 
-**Track**: Castles In The Sky
+**Track**: oklou - ict (angelRay edit)
 
-Last updated at 3/18/2025, 3:49:37 PM
+Last updated at 3/18/2025, 4:48:44 PM
