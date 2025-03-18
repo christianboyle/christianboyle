@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acCkbNOOC75C2cf1-1KDYEw-t500x500.jpg">](https://soundcloud.com/reinelexrecs/heaven-fell-malaise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053863236-r0ee63-t500x500.jpg">](https://soundcloud.com/nettwerkmusicgroup/delerium-chrysalis-heart-remix)
 
-**Artist**: Heaven Fell 
+**Artist**: Nettwerk Music Group 
 
-**Track**: Heaven Fell - Malaise
+**Track**: Delerium (ft. Stef Lang) - Chrysalis Heart (Stereojackers vs Mark Loverush Remix)
 
-Last updated at 3/18/2025, 9:15:15 AM
+Last updated at 3/18/2025, 9:20:30 AM
