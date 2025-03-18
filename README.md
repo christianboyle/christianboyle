@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmhePgI2gmL4HE2-gZwqFA-t500x500.png">](https://soundcloud.com/aychofficial/schoolboy-q-collard-greens-feat-kendrick-lamar-aych-flip)
 
-**Artist**: Marshmello, TRICKSTAR, Lil Jon 
+**Artist**: AYCH 
 
-**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
+**Track**: Schoolboy Q - Collard Greens feat. Kendrick Lamar (AYCH FLIP)
 
-Last updated at 3/18/2025, 3:24:14 PM
+Last updated at 3/18/2025, 3:27:14 PM
