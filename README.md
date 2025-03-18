@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9x0pG930sITAtaE-WK06uQ-t500x500.png">](https://soundcloud.com/cristianmarchi/cristian-marchi-feat-reverend-haus-motivation-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FDwo16wVzLNvyqq3-qiczCw-t500x500.jpg">](https://soundcloud.com/hestermusic/hester-rhythm-is-a-mystery-1)
 
-**Artist**: Cristian Marchi 
+**Artist**: HESTER 
 
-**Track**: CRISTIAN MARCHI Feat Reverend Haus - Motivation (Radio Edit)
+**Track**: HESTER - Rhythm Is A Mystery
 
-Last updated at 3/18/2025, 8:11:55 AM
+Last updated at 3/18/2025, 8:31:47 AM
