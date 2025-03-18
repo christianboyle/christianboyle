@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zY7YnfHUZyO5y8UR-g2LbDw-t500x500.png">](https://soundcloud.com/scafettamusic/hey-there-mr-brooks-scafetta-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZZOEjD7DFLAU4uz-LyuTbw-t500x500.png">](https://soundcloud.com/dejansetechno/prorok-2025-version)
 
-**Artist**: ScAℲeTtA_Music 
+**Artist**: Dejan (SE) 
 
-**Track**: Asking Alexandria-Hey There Mr Brooks (Scafetta Remix)
+**Track**: Prorok 2025
 
-Last updated at 3/18/2025, 8:37:22 AM
+Last updated at 3/18/2025, 8:50:38 AM
