@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z30tDbJOj5EKXgXO-6jiWmw-t500x500.jpg">](https://soundcloud.com/millirecs/mrva002-juice-wrld-robbery-dj-jays-trance-edit?in=saxurn/sets/tail-f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhmJ1yiMJG4Kykok-B9XETg-t500x500.png">](https://soundcloud.com/justsickness/freak?in=saxurn/sets/tail-f)
 
-**Artist**: MILLI RECORDS 
+**Artist**: JustS!ck 
 
-**Track**: [MRVA002] JUICE WRLD - ROBBERY (DJ JAYS TRANCE EDIT)
+**Track**: FREAK
 
-Last updated at 3/18/2025, 8:45:51 PM
+Last updated at 3/18/2025, 8:50:16 PM
