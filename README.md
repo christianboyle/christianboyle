@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/da-da-da-hekler-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix?in=saxurn/sets/goth-cloth)
 
-**Artist**: Marshmello 
+**Artist**: Marshmello, TRICKSTAR, Lil Jon 
 
-**Track**: Marshmello - Da Da Da (The Arp Song) (HEKLER Remix)
+**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
 
-Last updated at 3/18/2025, 9:47:27 PM
+Last updated at 3/18/2025, 9:59:10 PM
