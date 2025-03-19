@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix?in=saxurn/sets/tail-f/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzVZyEtyghSzpQ2z-aCVoVA-t500x500.png">](https://soundcloud.com/angel_ray_2k/oklou-ict-angelray-edit)
 
-**Artist**: MUGEN 
+**Artist**: Oklou, angelRay 
 
-**Track**: A$AP Ferg - Work (MUGEN Remix)
+**Track**: oklou - ict (angelRay edit)
 
-Last updated at 3/18/2025, 5:27:34 PM
+Last updated at 3/18/2025, 8:14:52 PM
