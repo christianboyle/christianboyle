@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srqujCGrH81BUVgj-MrxPLw-t500x500.jpg">](https://soundcloud.com/dstbltechno/dstbl-face-down-ass-up-2024-edit?in=saxurn/sets/tail-f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053863236-r0ee63-t500x500.jpg">](https://soundcloud.com/nettwerkmusicgroup/delerium-chrysalis-heart-remix?in=saxurn/sets/goth-cloth)
 
-**Artist**: DSTBL 
+**Artist**: Nettwerk Music Group 
 
-**Track**: DSTBL - Face Down Ass Up (2024 EDIT) [FREE DOWNLOAD]
+**Track**: Delerium (ft. Stef Lang) - Chrysalis Heart (Stereojackers vs Mark Loverush Remix)
 
-Last updated at 3/18/2025, 9:04:13 PM
+Last updated at 3/18/2025, 9:09:36 PM
