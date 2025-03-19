@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhmJ1yiMJG4Kykok-B9XETg-t500x500.png">](https://soundcloud.com/justsickness/freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XsGyV2u6GJQeCtjs-1t1A8g-t500x500.jpg">](https://soundcloud.com/the-techno-community/premiere-thiso-insomnia-free-dl?in=saxurn/sets/goth-cloth)
 
-**Artist**: JustS!ck 
+**Artist**: THISO 
 
-**Track**: FREAK
+**Track**: Premiere | THISO - Insomnia [Free DL]
 
-Last updated at 3/18/2025, 9:33:47 PM
+Last updated at 3/18/2025, 9:37:16 PM
