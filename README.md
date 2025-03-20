@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srqujCGrH81BUVgj-MrxPLw-t500x500.jpg">](https://soundcloud.com/dstbltechno/dstbl-face-down-ass-up-2024-edit?in=saxurn/sets/goth-cloth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix?in=saxurn/sets/goth-cloth)
 
-**Artist**: DSTBL 
+**Artist**: Marshmello, TRICKSTAR, Lil Jon 
 
-**Track**: DSTBL - Face Down Ass Up (2024 EDIT) [FREE DOWNLOAD]
+**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
 
-Last updated at 3/20/2025, 8:58:22 AM
+Last updated at 3/20/2025, 10:42:17 AM
