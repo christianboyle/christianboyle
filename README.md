@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZxZ4qRXW6Zy4zPI6-CFsltg-t500x500.jpg">](https://soundcloud.com/kxchr/2-unlimited-get-ready-for-this-kx-chr-hard-techno-edit-free-dl-extended?in=saxurn/sets/goth-cloth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XsGyV2u6GJQeCtjs-1t1A8g-t500x500.jpg">](https://soundcloud.com/the-techno-community/premiere-thiso-insomnia-free-dl?in=saxurn/sets/goth-cloth)
 
-**Artist**: KX CHR 
+**Artist**: THISO 
 
-**Track**: 2 Unlimited - Get Ready For This (KX CHR Hard Techno Edit) FREE DL EXTENDED
+**Track**: Premiere | THISO - Insomnia [Free DL]
 
-Last updated at 3/19/2025, 8:50:44 PM
+Last updated at 3/19/2025, 9:08:58 PM
