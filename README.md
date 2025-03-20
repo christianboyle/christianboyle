@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000053863236-r0ee63-t500x500.jpg">](https://soundcloud.com/nettwerkmusicgroup/delerium-chrysalis-heart-remix?in=saxurn/sets/goth-cloth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix?in=saxurn/sets/goth-cloth)
 
-**Artist**: Nettwerk Music Group 
+**Artist**: MUGEN 
 
-**Track**: Delerium (ft. Stef Lang) - Chrysalis Heart (Stereojackers vs Mark Loverush Remix)
+**Track**: A$AP Ferg - Work (MUGEN Remix)
 
-Last updated at 3/20/2025, 8:28:14 AM
+Last updated at 3/20/2025, 8:35:44 AM
