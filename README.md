@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ok15sX907kEj4EKC-oncXsg-t500x500.png">](https://soundcloud.com/mugensound/aap-ferg-work-mugen-remix?in=saxurn/sets/goth-cloth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fz4vpWL3uzzXKlqy-KZ0Prg-t500x500.jpg">](https://soundcloud.com/sandsconnection/anna-naklab-supergirl-gaz-summers-remix?in=saxurn/sets/goth-cloth)
 
-**Artist**: MUGEN 
+**Artist**: Gaz Summers (uk hardcore dj/producer) 
 
-**Track**: A$AP Ferg - Work (MUGEN Remix)
+**Track**: anna naklab -supergirl (Gaz Summers Remix)
 
-Last updated at 3/20/2025, 2:50:53 PM
+Last updated at 3/20/2025, 2:55:08 PM
