@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix?in=saxurn/sets/goth-cloth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzVZyEtyghSzpQ2z-aCVoVA-t500x500.png">](https://soundcloud.com/angel_ray_2k/oklou-ict-angelray-edit?in=saxurn/sets/goth-cloth)
 
-**Artist**: Marshmello, TRICKSTAR, Lil Jon 
+**Artist**: Oklou, angelRay 
 
-**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
+**Track**: oklou - ict (angelRay edit)
 
-Last updated at 3/20/2025, 10:42:17 AM
+Last updated at 3/20/2025, 2:38:52 PM
