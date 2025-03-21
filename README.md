@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Daf9HSYFqYPukOTh-jKOYJw-t500x500.jpg">](https://soundcloud.com/hyfenmusic/like-jennie-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pp5eq5dmlzpb89Ps-L9oVfA-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/fabrication-melodys-enemy-control-chaos-gabriel-moraes-remix-stone-seed)
 
-**Artist**: hyfen 
+**Artist**: Fabrication, Melody's Enemy, Gabriel Morae 
 
-**Track**: like JENNIE x Rewind x Whiplash - JENNIE, Knock2, aespa (EDM Mashup)
+**Track**: Fabrication, Melody's Enemy - Control Chaos (Gabriel Moraes Remix) [Stone Seed]
 
-Last updated at 3/21/2025, 8:31:32 AM
+Last updated at 3/21/2025, 8:33:28 AM
