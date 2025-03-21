@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F8Y98SKzGhoLsk03-wwelxw-t500x500.jpg">](https://soundcloud.com/djshockz-482767440/taio-cruz-dynamite-shockz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WvTEWc8CYHJ8PJr2-ojqJnA-t500x500.jpg">](https://soundcloud.com/tnt_ofc/premiere-npa-get-naughty-12)
 
-**Artist**: Shockz 
+**Artist**: TNT 
 
-**Track**: Taio Cruz - Dynamite (Shockz Remix) * FREE DOWNLOAD*
+**Track**: PREMIERE: No Phones Allowed – Get Naughty
 
-Last updated at 3/21/2025, 12:04:48 PM
+Last updated at 3/21/2025, 12:08:13 PM
