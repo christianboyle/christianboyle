@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kTUK5X73oRBJofEZ-HI3P8w-t500x500.jpg">](https://soundcloud.com/bkayeofficial/broke-my-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhYAbIa16t10MAAd-UkCXGQ-t500x500.png">](https://soundcloud.com/ourdevotion/owari-liliya-by-myself-yandere)
 
-**Artist**: BKAYE 
+**Artist**: our devotion 
 
-**Track**: Broke My Rules (ft. Lilyisthatyou)
+**Track**: owari x liliya - by myself (yandere)
 
-Last updated at 3/21/2025, 8:34:23 AM
+Last updated at 3/21/2025, 8:35:48 AM
