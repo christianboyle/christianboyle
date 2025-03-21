@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpOd8ZAlPzTR9pCH-9yqoEg-t500x500.png">](https://soundcloud.com/scarreddigital-com/sethrow-embracing-the-light-scarredcollective)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F8Y98SKzGhoLsk03-wwelxw-t500x500.jpg">](https://soundcloud.com/djshockz-482767440/taio-cruz-dynamite-shockz-remix)
 
-**Artist**: Sethrow 
+**Artist**: Shockz 
 
-**Track**: 4. SethroW - Embracing the light ( Scarred Collective Album )
+**Track**: Taio Cruz - Dynamite (Shockz Remix) * FREE DOWNLOAD*
 
-Last updated at 3/21/2025, 8:36:43 AM
+Last updated at 3/21/2025, 12:04:48 PM
