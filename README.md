@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gg8yEHNwh9ftINvK-YlksmQ-t500x500.png">](https://soundcloud.com/neo_trance/3amdisco-nobody-else)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ra7kwTPFSPVV7WEy-XQqdOQ-t500x500.png">](https://soundcloud.com/sublabmusic/aquarius)
 
-**Artist**: 3amdisco 
+**Artist**: Sublab & enjoii 
 
-**Track**: 3amdisco - Nobody Else
+**Track**: Aquarius
 
-Last updated at 3/21/2025, 7:34:56 AM
+Last updated at 3/21/2025, 8:23:12 AM
