@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PipWafwkFK5IkUbP-zlYIpQ-t500x500.png">](https://soundcloud.com/saint-baek/the-weeknd-playboi-carti-timeless-saint-miller-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOAflT4vuzrozsxU-XtTF7A-t500x500.jpg">](https://soundcloud.com/yub-second-profile/split-cocaine-nose)
 
-**Artist**: The Weeknd, Playboi Carti 
+**Artist**: YuB & Mo27Da 
 
-**Track**: Timeless (SAINT MILLER REMIX)
+**Track**: Playboi Carti VS Tiësto & The Chainsmokers - Split Cocaine Nose (YuB & Mo27Da Techno VIP)
 
-Last updated at 3/21/2025, 8:24:32 AM
+Last updated at 3/21/2025, 8:25:37 AM
