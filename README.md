@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NK6a6mqS19SIqGI6-IRuVKw-t500x500.png">](https://soundcloud.com/vlackon/vlackon-pressure-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cVBwkg90QnSUic7r-vyVmmw-t500x500.jpg">](https://soundcloud.com/whynotmusic-italy/katy-perry-firework-shockz-x-why-not-remixpitched)
 
-**Artist**: Vlackon 
+**Artist**: Why Not 
 
-**Track**: Vlackon - Pressure
+**Track**: Katy Perry - Firework (Shockz X Why Not Remix)(PITCHED)
 
-Last updated at 3/21/2025, 8:28:42 AM
+Last updated at 3/21/2025, 8:29:37 AM
