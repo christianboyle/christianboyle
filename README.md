@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9Bz5G1rJ54vKZEJ-vqAf8w-t500x500.png">](https://soundcloud.com/djjoecraig/447-dj-joe-craig-makina-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gg8yEHNwh9ftINvK-YlksmQ-t500x500.png">](https://soundcloud.com/neo_trance/3amdisco-nobody-else)
 
-**Artist**: djjoecraig 
+**Artist**: 3amdisco 
 
-**Track**: 447.Dj Joe Craig - Makina Mix March 2025 (04-03-25)
+**Track**: 3amdisco - Nobody Else
 
-Last updated at 3/21/2025, 7:13:56 AM
+Last updated at 3/21/2025, 7:34:56 AM
