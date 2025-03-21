@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0ePtuob09ppwW1R-IxQUAg-t500x500.png">](https://soundcloud.com/soundsbymystic/paul-wall-big-pokey-sittin-sidewayz-mstic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Daf9HSYFqYPukOTh-jKOYJw-t500x500.jpg">](https://soundcloud.com/hyfenmusic/like-jennie-mashup)
 
-**Artist**: M?STIC 
+**Artist**: hyfen 
 
-**Track**: PAUL WALL & BIG POKEY - SITTIN' SIDEWAYZ (M?STIC REMIX)
+**Track**: like JENNIE x Rewind x Whiplash - JENNIE, Knock2, aespa (EDM Mashup)
 
-Last updated at 3/21/2025, 8:30:37 AM
+Last updated at 3/21/2025, 8:31:32 AM
