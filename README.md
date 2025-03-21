@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOAflT4vuzrozsxU-XtTF7A-t500x500.jpg">](https://soundcloud.com/yub-second-profile/split-cocaine-nose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9qj7SaH3lmYIboB-jMiWDA-t500x500.png">](https://soundcloud.com/gspacemusic/crazy-guitar-jam?in=gspacemusic/sets/2025-beats-u-slept-on)
 
-**Artist**: YuB & Mo27Da 
+**Artist**: G-Space 
 
-**Track**: Playboi Carti VS Tiësto & The Chainsmokers - Split Cocaine Nose (YuB & Mo27Da Techno VIP)
+**Track**: crazy guitar jam
 
-Last updated at 3/21/2025, 8:25:37 AM
+Last updated at 3/21/2025, 8:26:32 AM
