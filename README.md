@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EC1PzTU47ER2-0-t500x500.jpg">](https://soundcloud.com/mythmofficial/forbidden-auracle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsKSsrGJiwyOnVHV-DzLyvQ-t500x500.jpg">](https://soundcloud.com/kennedysucks/superstar-noahmadethiss-jolst)
 
-**Artist**: MYTHM 
+**Artist**: kennedyxoxo 
 
-**Track**: Forbidden (Auracle Remix)
+**Track**: superstar (noahmadethiss+jolst)
 
-Last updated at 3/21/2025, 12:24:15 PM
+Last updated at 3/21/2025, 1:31:10 PM
