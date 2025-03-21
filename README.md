@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhYAbIa16t10MAAd-UkCXGQ-t500x500.png">](https://soundcloud.com/ourdevotion/owari-liliya-by-myself-yandere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpOd8ZAlPzTR9pCH-9yqoEg-t500x500.png">](https://soundcloud.com/scarreddigital-com/sethrow-embracing-the-light-scarredcollective)
 
-**Artist**: our devotion 
+**Artist**: Sethrow 
 
-**Track**: owari x liliya - by myself (yandere)
+**Track**: 4. SethroW - Embracing the light ( Scarred Collective Album )
 
-Last updated at 3/21/2025, 8:35:48 AM
+Last updated at 3/21/2025, 8:36:43 AM
