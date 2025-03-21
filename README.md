@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PipWafwkFK5IkUbP-zlYIpQ-t500x500.png">](https://soundcloud.com/saint-baek/the-weeknd-playboi-carti-timeless-saint-miller-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EC1PzTU47ER2-0-t500x500.jpg">](https://soundcloud.com/mythmofficial/forbidden-auracle-remix)
 
-**Artist**: The Weeknd, Playboi Carti 
+**Artist**: MYTHM 
 
-**Track**: Timeless (SAINT MILLER REMIX)
+**Track**: Forbidden (Auracle Remix)
 
-Last updated at 3/21/2025, 1:57:28 PM
+Last updated at 3/21/2025, 2:00:38 PM
