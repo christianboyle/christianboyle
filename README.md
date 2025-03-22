@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsKSsrGJiwyOnVHV-DzLyvQ-t500x500.jpg">](https://soundcloud.com/kennedysucks/superstar-noahmadethiss-jolst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgAhK4CAS54AH29F-F6DClw-t500x500.jpg">](https://soundcloud.com/hemi-wav/skinny-limbs-x-big-nut-chuck-you-feel-dat)
 
-**Artist**: kennedyxoxo 
+**Artist**: Skinny Limbs, Big Nut Chuck 
 
-**Track**: superstar (noahmadethiss+jolst)
+**Track**: Skinny Limbs & Big Nut Chuck - You Feel Dat?
 
-Last updated at 3/22/2025, 7:32:16 AM
+Last updated at 3/22/2025, 8:29:05 AM
