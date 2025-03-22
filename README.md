@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2zALDibi2PTx8Q1-kHSDWw-t500x500.jpg">](https://soundcloud.com/darn84/dj-unknown-fusion-best-of)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tmuyq0YS8QvyK5Te-qRCjpQ-t500x500.png">](https://soundcloud.com/hybridtrapmusic/blindfaith)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Autodepth, SMWLAYY 
 
-**Track**: DJ Unknown @ Fusion - Best of British - Ravedome Hounslow (23091995)
+**Track**: Autodepth & SMWLAYY - Blind Faith
 
-Last updated at 3/22/2025, 8:35:50 AM
+Last updated at 3/22/2025, 8:43:01 AM
