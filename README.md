@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTOePNjBfwyIqeOe-S4RQVQ-t500x500.png">](https://soundcloud.com/eufeion/djsinfulleffectremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2zALDibi2PTx8Q1-kHSDWw-t500x500.jpg">](https://soundcloud.com/darn84/dj-unknown-fusion-best-of)
 
-**Artist**: Jimmy J, Cru-L-T 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: Jimmy J & Cru-L-T - DJs In Full Effect (Eufeion Remix) - (Remix Records) - OUT NOW!!
+**Track**: DJ Unknown @ Fusion - Best of British - Ravedome Hounslow (23091995)
 
-Last updated at 3/22/2025, 8:33:00 AM
+Last updated at 3/22/2025, 8:35:50 AM
