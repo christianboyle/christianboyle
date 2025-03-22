@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BOcWyy0aaHllGpRo-5dz0ag-t500x500.jpg">](https://soundcloud.com/frasathy-lab/comoantes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8uKMWJPZwDhAyNJ-Izr7vw-t500x500.png">](https://soundcloud.com/bangerangnetwork/bn074)
 
-**Artist**: RX BY FRASATHY 
+**Artist**: Bangerang Network, Ozee 
 
-**Track**: BAD BUNNY - COMO ANTES  X100PRE [FRASATHY RX] VOICES COPYRIGHT FILTERED
+**Track**: Ozee - Metamorphosis
 
-Last updated at 3/22/2025, 11:14:16 AM
+Last updated at 3/22/2025, 11:17:47 AM
