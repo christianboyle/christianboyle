@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q1zuW9cLjOBLwszS-kDNR5Q-t500x500.png">](https://soundcloud.com/dj-a-k/dj-ak-90s-scott-brown-classics-mix-part-2-180125)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTOePNjBfwyIqeOe-S4RQVQ-t500x500.png">](https://soundcloud.com/eufeion/djsinfulleffectremix)
 
-**Artist**: DJ A.K. 
+**Artist**: Jimmy J, Cru-L-T 
 
-**Track**: DJ A.K. - 90's Scott Brown Classics Mix PART 2 18.01.25
+**Track**: Jimmy J & Cru-L-T - DJs In Full Effect (Eufeion Remix) - (Remix Records) - OUT NOW!!
 
-Last updated at 3/22/2025, 8:30:04 AM
+Last updated at 3/22/2025, 8:33:00 AM
