@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpUyWQtqAKmd5ywq-zEix6A-t500x500.png">](https://soundcloud.com/savagebehemoth/3-skrush-x-hyvemynd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhw1ZbFxlZIwSNwa-UVaFjQ-t500x500.png">](https://soundcloud.com/halflyfe/blast-mf)
 
-**Artist**: SKRUSH, HYVEMYND 
+**Artist**: Halflyfe 
 
-**Track**: SKRUSH x HYVEMYND - Dismemberment
+**Track**: Blast MF
 
-Last updated at 3/22/2025, 8:45:06 AM
+Last updated at 3/22/2025, 8:47:26 AM
