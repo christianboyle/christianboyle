@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGXtEev4f1emFpvf-yyp6Fg-t500x500.jpg">](https://soundcloud.com/trueundergroundone/victor-fernandez-true-techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jsKSsrGJiwyOnVHV-DzLyvQ-t500x500.jpg">](https://soundcloud.com/kennedysucks/superstar-noahmadethiss-jolst)
 
-**Artist**: True Underground (True Techno Podcast) 
+**Artist**: kennedyxoxo 
 
-**Track**: Victor Fernandez | True Techno Podcast - Episode 87
+**Track**: superstar (noahmadethiss+jolst)
 
-Last updated at 3/22/2025, 8:51:32 AM
+Last updated at 3/22/2025, 9:21:10 AM
