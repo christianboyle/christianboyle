@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1h03bSNX9hTInyD-vHj1eg-t500x500.jpg">](https://soundcloud.com/v_letical/you-again)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWFzziRNgHblc76J-ySdeJg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-feel-alive-radio)
 
-**Artist**: 14106lyn 
+**Artist**: Adam Mohican 
 
-**Track**: you again +isai
+**Track**: Adam Mohican - Feel Alive (Radio Edit)
 
-Last updated at 3/26/2025, 3:01:23 PM
+Last updated at 3/26/2025, 3:03:43 PM
