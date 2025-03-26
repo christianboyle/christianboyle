@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytrNrrMoOdrqtdul-CHMY2A-t500x500.jpg">](https://soundcloud.com/bigmilkmusic/slide-big-milk-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hsMey5xK6XhvT5qF-vhoGqQ-t500x500.png">](https://soundcloud.com/melodica_exp/mldrcd001)
 
-**Artist**: BIG MILK 
+**Artist**: AN3M, aqeliki 
 
-**Track**: SLIDE [BIG MILK REMIX]
+**Track**: AN3M - Healing (ft. aqeliki)
 
-Last updated at 3/25/2025, 8:59:42 PM
+Last updated at 3/25/2025, 9:02:05 PM
