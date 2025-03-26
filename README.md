@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klZXAOMzGlZpJfqy-0zBvew-t500x500.png">](https://soundcloud.com/all172things/gzy-anvil-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1h3MOVXqhLjnxkoV-Sj36Rw-t500x500.png">](https://soundcloud.com/aychofficial/bobbybaychvelcroshirt)
 
-**Artist**: All172Things 
+**Artist**: Bobby Shmurda, AYCH, VelcroShirt 
 
-**Track**: GZY - Anvil [Premiere]
+**Track**: Bobby Bitch (AYCH x VelcroShirt Flip)
 
-Last updated at 3/26/2025, 8:04:18 AM
+Last updated at 3/26/2025, 8:08:13 AM
