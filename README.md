@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3auxzbLQQybN3kGG-w5iY6g-t500x500.png">](https://soundcloud.com/rawppl/premiere-dj-plant-texture-life-tresor376)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhHyxdyoSZTGBJvY-BbqAVQ-t500x500.jpg">](https://soundcloud.com/gltymusic/enough-flip)
 
-**Artist**: DJ Plant Texture 
+**Artist**: GLTY 
 
-**Track**: Premiere: DJ Plant Texture - Life [Tresor376]
+**Track**: Cardi B - Enough (GLTY Flip)
 
-Last updated at 3/26/2025, 2:39:30 PM
+Last updated at 3/26/2025, 2:47:01 PM
