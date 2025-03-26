@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKUOJDmN5z1XkAfD-SheAJA-t500x500.jpg">](https://soundcloud.com/darn84/gatecrasher-red-cd2-1999)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-50SUNpfZygP7vumy-HWCWYQ-t500x500.png">](https://soundcloud.com/polishtechnology/premiere-elisa-batti-isabel-soto-liminal-entities-syva004a)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Elisa Batti, Isabel Soto 
 
-**Track**: Gatecrasher - Red - CD2 (1999)
+**Track**: [PREMIERE] | Elisa Batti, Isabel Soto - Liminal Entities [SYVA004A]
 
-Last updated at 3/25/2025, 9:05:35 PM
+Last updated at 3/26/2025, 7:30:45 AM
