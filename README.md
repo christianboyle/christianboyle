@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tj7EX2KSn6Prfz8b-U0SVRQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-west-code-menos-presskit-mas-drumkit-trsn033)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eCqovjpozS8mGy2P-QO1IBw-t500x500.jpg">](https://soundcloud.com/ah-nice_music/190125-ahnice-la-cova)
 
-**Artist**: HATE, West Code 
+**Artist**: AH-NICE 
 
-**Track**: Premiere: West Code — Menos Presskit Mas Drumkit [TRSN033]
+**Track**: 3H Closing Set at @la_cova
 
-Last updated at 3/26/2025, 8:54:48 AM
+Last updated at 3/26/2025, 8:55:48 AM
