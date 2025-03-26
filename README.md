@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAOQtR5zFSu98L1f-V5UzfQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/borai-dontforgettogohome-praise-god?in=hardcoreenergy/sets/sssound-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nP2bKbTNC4T6Ur4Q-RvJlig-t500x500.jpg">](https://soundcloud.com/flomatik/project-pat-life-we-live)
 
-**Artist**: Hardcore Energy 
+**Artist**: Flomatik 
 
-**Track**: Borai & dontforgettogohome - Praise God
+**Track**: Project Pat - Life We Live (Flomatik Flip)
 
-Last updated at 3/26/2025, 9:04:24 AM
+Last updated at 3/26/2025, 9:05:34 AM
