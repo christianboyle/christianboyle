@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWFzziRNgHblc76J-ySdeJg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-feel-alive-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3auxzbLQQybN3kGG-w5iY6g-t500x500.png">](https://soundcloud.com/rawppl/premiere-dj-plant-texture-life-tresor376)
 
-**Artist**: Adam Mohican 
+**Artist**: DJ Plant Texture 
 
-**Track**: Adam Mohican - Feel Alive (Radio Edit)
+**Track**: Premiere: DJ Plant Texture - Life [Tresor376]
 
-Last updated at 3/26/2025, 9:49:37 AM
+Last updated at 3/26/2025, 9:52:32 AM
