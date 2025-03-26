@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5mh0wjolAo9fvyv-FRB86w-t500x500.png">](https://soundcloud.com/mybadmusic/chingy-right-thurr-my-bad-x-arius-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLz5Q8fONZzLzXfF-rWjk0A-t500x500.jpg">](https://soundcloud.com/nght_vzn/run-it-back)
 
-**Artist**: MY BAD, ARIUS 
+**Artist**: NGHT VZN 
 
-**Track**: Chingy - Right Thurr (MY BAD x ARIUS Remix)
+**Track**: RUN IT BACK
 
-Last updated at 3/26/2025, 2:49:56 PM
+Last updated at 3/26/2025, 2:51:42 PM
