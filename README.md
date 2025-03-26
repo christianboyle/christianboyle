@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hrjm8ahTZz5V1CWz-dhGodQ-t500x500.jpg">](https://soundcloud.com/envyrisk/dippin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hnOBwkSgW8SpQDM-RgSy9Q-t500x500.jpg">](https://soundcloud.com/bouttaofficial/boutta-ready-go)
 
-**Artist**: risk 
+**Artist**: Boutta 
 
-**Track**: baked prod twovrt boolymon marrgielaa
+**Track**: Boutta - Ready, Go
 
-Last updated at 3/26/2025, 10:08:34 AM
+Last updated at 3/26/2025, 10:10:19 AM
