@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1h03bSNX9hTInyD-vHj1eg-t500x500.jpg">](https://soundcloud.com/v_letical/you-again)
 
-**Artist**: RÜMI!Lavigne [@fuckrumi] 
+**Artist**: 14106lyn 
 
-**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
+**Track**: you again +isai
 
-Last updated at 3/26/2025, 2:32:00 PM
+Last updated at 3/26/2025, 2:34:15 PM
