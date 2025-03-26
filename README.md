@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hnOBwkSgW8SpQDM-RgSy9Q-t500x500.jpg">](https://soundcloud.com/bouttaofficial/boutta-ready-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Da23ep7LKWQItEUR-E3ATKg-t500x500.jpg">](https://soundcloud.com/yeschef444/new-day)
 
-**Artist**: Boutta 
+**Artist**: YES CHEF 
 
-**Track**: Boutta - Ready, Go
+**Track**: new day
 
-Last updated at 3/26/2025, 10:10:19 AM
+Last updated at 3/26/2025, 10:13:04 AM
