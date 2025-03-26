@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYBkWLr2BbNjAaU9-UdkgCg-t500x500.jpg">](https://soundcloud.com/shokuofficial/ninety-nine-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHNKyJB4qUXG9yzC-fPZzwA-t500x500.png">](https://soundcloud.com/vazio-57/vou)
 
-**Artist**: Shoku 
+**Artist**: Agazero 
 
-**Track**: ninety nine.
+**Track**: Agazero - Bailento
 
-Last updated at 3/26/2025, 9:08:10 AM
+Last updated at 3/26/2025, 9:09:10 AM
