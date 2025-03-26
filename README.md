@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mVMMeMq7mXmgoZNQ-mMghWA-t500x500.png">](https://soundcloud.com/dnzrecords/bl-73-i-need-you-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m2G3mR2R8U7N6bhf-ajUPhQ-t500x500.jpg">](https://soundcloud.com/imaeneas/aeneas-bafu-so-much-more)
 
-**Artist**: BL-73 
+**Artist**: AENEAS 
 
-**Track**: BL-73 - I Need You Now
+**Track**: AENEAS & BAFU - So Much More (ft. Akacia)
 
-Last updated at 3/26/2025, 7:45:21 AM
+Last updated at 3/26/2025, 7:48:37 AM
