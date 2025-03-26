@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R01M71jTpJQ5YI3T-gJ1gpQ-t500x500.png">](https://soundcloud.com/birdbrainbass/anomaly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QUOcIUeWaVcP18dy-EwcTyA-t500x500.jpg">](https://soundcloud.com/frasathy/frasathy-cigarettes-and-sex)
 
-**Artist**: BirdBrain 
+**Artist**: FRASATHY 
 
-**Track**: Anomaly
+**Track**: FRASATHY - Cigarettes And Sex (Cigarettes And Sex)
 
-Last updated at 3/26/2025, 7:51:57 AM
+Last updated at 3/26/2025, 7:54:47 AM
