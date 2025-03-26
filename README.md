@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHNKyJB4qUXG9yzC-fPZzwA-t500x500.png">](https://soundcloud.com/vazio-57/vou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq936fXDSjxwKckl-7I8zmQ-t500x500.jpg">](https://soundcloud.com/alleycvt/secretsflip)
 
-**Artist**: Agazero 
+**Artist**: ALLEYCVT 
 
-**Track**: Agazero - Bailento
+**Track**: Tiësto & KSHMR - Secrets (feat. VASSY) (ALLEYCVT Flip)
 
-Last updated at 3/26/2025, 9:09:10 AM
+Last updated at 3/26/2025, 9:10:15 AM
