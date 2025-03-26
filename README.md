@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JglkMqyBvUGuxWg-4oLTUw-t500x500.jpg">](https://soundcloud.com/ramenshopmixes/future-percocet-stripper-joint-rammies-miami-bass-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qqq2ctZoyNxDLznt-DWfkuQ-t500x500.jpg">](https://soundcloud.com/novembrmusic/far-east-movement-like-a-g6)
 
-**Artist**: RAMMIE 
+**Artist**: NOVEMBR 
 
-**Track**: PERCOCET STRIPPER JOINT (RAMMIE'S MIAMI BASS FLIP) - FUTURE
+**Track**: Far East Movement - Like a G6 (NOVEMBR Flip)
 
-Last updated at 3/26/2025, 10:03:29 AM
+Last updated at 3/26/2025, 10:06:04 AM
