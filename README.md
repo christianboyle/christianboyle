@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjNQY14FJPbC1z8a-wd7KYQ-t500x500.jpg">](https://soundcloud.com/hiseph/hex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLvasUAJjPhFeBgZ-n5jQxQ-t500x500.jpg">](https://soundcloud.com/dropwizz/whenilookatyou)
 
-**Artist**: seph 
+**Artist**: Emalkay 
 
-**Track**: hex #dynastyXO ⁺‧₊˚ ཐི⋆𖢻⋆ཋྀ ˚₊‧⁺
+**Track**: When I Look at You (DROPWIZZ flip)
 
-Last updated at 3/25/2025, 9:03:15 PM
+Last updated at 3/25/2025, 9:04:25 PM
