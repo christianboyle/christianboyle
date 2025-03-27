@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nH6RS9WyhmDxki4T-dvtDKA-t500x500.png">](https://soundcloud.com/tracksinsanas/tsk-phonic-we-go-crazy-tirf86?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper?in=saxurn/sets/cursed/)
 
-**Artist**: TSK PHONIC 
+**Artist**: RÜMI!Lavigne [@fuckrumi] 
 
-**Track**: TSK PHØNIČ - We Go Crazy [TIRF86]
+**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
 
-Last updated at 3/27/2025, 8:28:35 AM
+Last updated at 3/27/2025, 8:41:46 AM
