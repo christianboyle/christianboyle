@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq936fXDSjxwKckl-7I8zmQ-t500x500.jpg">](https://soundcloud.com/alleycvt/secretsflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d4V6Hn80adFEehFB-EH3KtA-t500x500.jpg">](https://soundcloud.com/funeral/nice-for-a-minute)
 
-**Artist**: ALLEYCVT 
+**Artist**: funeral 
 
-**Track**: Tiësto & KSHMR - Secrets (feat. VASSY) (ALLEYCVT Flip)
+**Track**: nice for a minute
 
-Last updated at 3/27/2025, 7:20:25 AM
+Last updated at 3/27/2025, 7:23:00 AM
