@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JglkMqyBvUGuxWg-4oLTUw-t500x500.jpg">](https://soundcloud.com/ramenshopmixes/future-percocet-stripper-joint-rammies-miami-bass-flip?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1tXCbxtkKeNVd0G-yYTKHg-t500x500.png">](https://soundcloud.com/wubaholics/cozykevthatlife?in=saxurn/sets/cursed/)
 
-**Artist**: RAMMIE 
+**Artist**: Cozy Kev 
 
-**Track**: PERCOCET STRIPPER JOINT (RAMMIE'S MIAMI BASS FLIP) - FUTURE
+**Track**: cozy kev - THAT LIFE
 
-Last updated at 3/27/2025, 8:21:00 AM
+Last updated at 3/27/2025, 8:23:28 AM
