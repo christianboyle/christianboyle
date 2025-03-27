@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IWFzziRNgHblc76J-ySdeJg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-feel-alive-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KpOd8ZAlPzTR9pCH-9yqoEg-t500x500.png">](https://soundcloud.com/scarreddigital-com/7-paul-dreamz-4d-together)
 
-**Artist**: Adam Mohican 
+**Artist**: Paul Dreamz & 4D 
 
-**Track**: Adam Mohican - Feel Alive (Radio Edit)
+**Track**: 7. Paul Dreamz & 4D - Together Forever
 
-Last updated at 3/26/2025, 3:03:43 PM
+Last updated at 3/27/2025, 7:17:50 AM
