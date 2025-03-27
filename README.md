@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1h03bSNX9hTInyD-vHj1eg-t500x500.jpg">](https://soundcloud.com/v_letical/you-again?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3JglkMqyBvUGuxWg-4oLTUw-t500x500.jpg">](https://soundcloud.com/ramenshopmixes/future-percocet-stripper-joint-rammies-miami-bass-flip?in=saxurn/sets/cursed/)
 
-**Artist**: 14106lyn 
+**Artist**: RAMMIE 
 
-**Track**: you again +isai
+**Track**: PERCOCET STRIPPER JOINT (RAMMIE'S MIAMI BASS FLIP) - FUTURE
 
-Last updated at 3/27/2025, 8:44:01 AM
+Last updated at 3/27/2025, 8:46:16 AM
