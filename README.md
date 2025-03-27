@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Da23ep7LKWQItEUR-E3ATKg-t500x500.jpg">](https://soundcloud.com/yeschef444/new-day?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper?in=saxurn/sets/cursed/)
 
-**Artist**: YES CHEF 
+**Artist**: RÜMI!Lavigne [@fuckrumi] 
 
-**Track**: new day
+**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
 
-Last updated at 3/27/2025, 7:27:19 AM
+Last updated at 3/27/2025, 7:28:18 AM
