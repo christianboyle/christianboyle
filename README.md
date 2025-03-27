@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1tXCbxtkKeNVd0G-yYTKHg-t500x500.png">](https://soundcloud.com/wubaholics/cozykevthatlife?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hnOBwkSgW8SpQDM-RgSy9Q-t500x500.jpg">](https://soundcloud.com/bouttaofficial/boutta-ready-go?in=saxurn/sets/cursed/)
 
-**Artist**: Cozy Kev 
+**Artist**: Boutta 
 
-**Track**: cozy kev - THAT LIFE
+**Track**: Boutta - Ready, Go
 
-Last updated at 3/27/2025, 8:59:32 AM
+Last updated at 3/27/2025, 9:01:48 AM
