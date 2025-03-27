@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5mh0wjolAo9fvyv-FRB86w-t500x500.png">](https://soundcloud.com/mybadmusic/chingy-right-thurr-my-bad-x-arius-remix?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq936fXDSjxwKckl-7I8zmQ-t500x500.jpg">](https://soundcloud.com/alleycvt/secretsflip?in=saxurn/sets/cursed/)
 
-**Artist**: MY BAD, ARIUS 
+**Artist**: ALLEYCVT 
 
-**Track**: Chingy - Right Thurr (MY BAD x ARIUS Remix)
+**Track**: Tiësto & KSHMR - Secrets (feat. VASSY) (ALLEYCVT Flip)
 
-Last updated at 3/27/2025, 8:55:12 AM
+Last updated at 3/27/2025, 8:56:57 AM
