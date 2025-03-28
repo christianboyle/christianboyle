@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IRfbkWyhFz2fCXon-yNCw2A-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/calvin-harris-sam-smith-desire-viani-mave-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
 
-**Artist**: VIANI, Mave 
+**Artist**: canary yellow 
 
-**Track**: Calvin Harris & Sam Smith - Desire (VIANI & Mave Remix) [FREE DOWNLOAD]
+**Track**: You Were The One
 
-Last updated at 3/28/2025, 7:38:09 AM
+Last updated at 3/28/2025, 7:39:39 AM
