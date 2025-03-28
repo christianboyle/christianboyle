@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7z6R0EMWR3eAsEf-9upsfg-t500x500.png">](https://soundcloud.com/marshmellomusic/bad-boys-crunchi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shwaRng0El64Xxzd-yeUwuQ-t500x500.jpg">](https://soundcloud.com/adamenoise/descending-meteorites)
 
-**Artist**: Marshmello, TRICKSTAR, Lil Jon 
+**Artist**: ADAME 
 
-**Track**: Marshmello, TRICKSTAR, Lil Jon - Bad Boys (CRUNCHi Remix)
+**Track**: Descending Meteorites
 
-Last updated at 3/27/2025, 7:48:30 PM
+Last updated at 3/27/2025, 7:49:35 PM
