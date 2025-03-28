@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yuv6FIQyObJ4AZh-47OXWw-t500x500.png">](https://soundcloud.com/doof_music/keep-on-running)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmsOb6qQ4uAuh2Ti-YYivFw-t500x500.png">](https://soundcloud.com/esoxmusic/denial-is-a-river-plastik-funk-esox-edit)
 
-**Artist**: MDDLTN, Uberjak'd 
+**Artist**: Doechii 
 
-**Track**: MDDLTN & Uberjak'd - Keep On Running (ft. Ella Young) (Preview)
+**Track**: Denial Is A River (Plastik Funk & Esox Edit) - Doechii [FREE DOWNLOAD]
 
-Last updated at 3/28/2025, 7:26:18 AM
+Last updated at 3/28/2025, 7:27:28 AM
