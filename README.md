@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rdVDcjZBsr6ACEZ-WZK5Vw-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/shakewell-my-beanie-gone-ash-me-outside-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWNk1Al8W7wyUU9l-OEim7A-t500x500.jpg">](https://soundcloud.com/rave_alert/promises-mero-mstr-2)
 
-**Artist**: ash me outside 
+**Artist**: Rave Alert 
 
-**Track**: Shakewell - My Beanie Gone (ash me outside flip)
+**Track**: MËRO - Promises
 
-Last updated at 3/28/2025, 10:45:38 AM
+Last updated at 3/28/2025, 10:47:38 AM
