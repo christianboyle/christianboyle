@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyyGdsSZ3RdY6CHK-owT5qw-t500x500.png">](https://soundcloud.com/digitalvibrationshq/pretty-sweet-echo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2y5ymvkNvw1h388-hy2Wfg-t500x500.jpg">](https://soundcloud.com/lebawski/lintscape-x-le-bawski-asphyxiant)
 
-**Artist**: Digital Vibrations, Pretty Sweet 
+**Artist**: Lintscape, LE BAWSKI 
 
-**Track**: Pretty Sweet - ECHO
+**Track**: Lintscape X LE BAWSKI - asphyxiant.
 
-Last updated at 3/28/2025, 7:33:54 AM
+Last updated at 3/28/2025, 7:35:24 AM
