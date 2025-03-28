@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxzsjGQtrSjwKzbt-dKsHdw-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/move)
 
-**Artist**: canary yellow 
+**Artist**: Sonorous 
 
-**Track**: You Were The One
+**Track**: MOVE
 
-Last updated at 3/28/2025, 7:39:39 AM
+Last updated at 3/28/2025, 8:13:37 AM
