@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWNk1Al8W7wyUU9l-OEim7A-t500x500.jpg">](https://soundcloud.com/rave_alert/promises-mero-mstr-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70c2peFFpT8eif3a-GJteSg-t500x500.png">](https://soundcloud.com/killsafari/enter-sandstorm-killsafari-remix)
 
-**Artist**: Rave Alert 
+**Artist**: Kill Safari 
 
-**Track**: MËRO - Promises
+**Track**: ENTER SANDSTORM (KILLSAFARI REMIX)
 
-Last updated at 3/28/2025, 3:51:40 PM
+Last updated at 3/28/2025, 3:55:40 PM
