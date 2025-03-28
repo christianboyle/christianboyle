@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmsOb6qQ4uAuh2Ti-YYivFw-t500x500.png">](https://soundcloud.com/esoxmusic/denial-is-a-river-plastik-funk-esox-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2hxigyyNLlsUYAN-H73Yjw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/primeshock-nlck-speedrun)
 
-**Artist**: Doechii 
+**Artist**: Primeshock, NLCK 
 
-**Track**: Denial Is A River (Plastik Funk & Esox Edit) - Doechii [FREE DOWNLOAD]
+**Track**: Primeshock & NLCK - Speedrun
 
-Last updated at 3/28/2025, 7:27:28 AM
+Last updated at 3/28/2025, 7:28:28 AM
