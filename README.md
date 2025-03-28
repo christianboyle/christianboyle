@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sFz34J3QtKjDfz8R-SYMKEA-t500x500.png">](https://soundcloud.com/bcco/dj-physical-boneyard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tmwyiGCR9PCJiAuK-MHozDA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/adrenalize-deezl-remedy)
 
-**Artist**: BCCO 
+**Artist**: Adrenalize, DEEZL 
 
-**Track**: DJ Physical - Boneyard
+**Track**: Adrenalize & DEEZL - Remedy
 
-Last updated at 3/28/2025, 12:08:36 PM
+Last updated at 3/28/2025, 12:13:42 PM
