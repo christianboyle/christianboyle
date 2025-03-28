@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
 
-**Artist**: canary yellow 
+**Artist**: Lookas, Saint Miller 
 
-**Track**: You Were The One
+**Track**: TIME
 
-Last updated at 3/28/2025, 10:35:12 AM
+Last updated at 3/28/2025, 10:39:53 AM
