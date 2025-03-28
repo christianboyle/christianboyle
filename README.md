@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUbGZyccvpngaOiY-OTVSSQ-t500x500.png">](https://soundcloud.com/rynsmusic/j-cole-no-role-modelz-ryns)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHLPQxljGKzTGTyj-pPByyw-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/vic-get-silly-star-monster-flip)
 
-**Artist**: RYNS 
+**Artist**: Star Monster 
 
-**Track**: J. Cole - No Role Modelz (RYNS Flip)
+**Track**: V.I.C.- Get Silly {Star Monster Flip}
 
-Last updated at 3/28/2025, 11:03:20 AM
+Last updated at 3/28/2025, 11:06:35 AM
