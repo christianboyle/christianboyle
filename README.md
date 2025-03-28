@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ga8CGNJAhytcJJxE-KC24OA-t500x500.png">](https://soundcloud.com/pedicure-records/a-tribe-called-quest-1nce-again-shopworn-reblend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rdVDcjZBsr6ACEZ-WZK5Vw-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/shakewell-my-beanie-gone-ash-me-outside-flip)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: ash me outside 
 
-**Track**: A Tribe Called Quest - 1nce again (Shopworn reblend)
+**Track**: Shakewell - My Beanie Gone (ash me outside flip)
 
-Last updated at 3/28/2025, 10:42:38 AM
+Last updated at 3/28/2025, 10:45:38 AM
