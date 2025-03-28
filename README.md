@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHLPQxljGKzTGTyj-pPByyw-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/vic-get-silly-star-monster-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5mh0wjolAo9fvyv-FRB86w-t500x500.png">](https://soundcloud.com/mybadmusic/chingy-right-thurr-my-bad-x-arius-remix)
 
-**Artist**: Star Monster 
+**Artist**: MY BAD, ARIUS 
 
-**Track**: V.I.C.- Get Silly {Star Monster Flip}
+**Track**: Chingy - Right Thurr (MY BAD x ARIUS Remix)
 
-Last updated at 3/28/2025, 11:06:35 AM
+Last updated at 3/28/2025, 11:09:46 AM
