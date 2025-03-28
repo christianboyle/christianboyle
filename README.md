@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QeON3SrMaj1rqxC1-rHaf8Q-t500x500.jpg">](https://soundcloud.com/atomixu/solo-leveling-dark-aria-atomix-nugget-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
 
-**Artist**: ATOMIX, NUGGET 
+**Artist**: Lookas, Saint Miller 
 
-**Track**: Solo Leveling - Dark Aria (Atomix & NUGGET REMIX)
+**Track**: TIME
 
-Last updated at 3/28/2025, 7:36:19 AM
+Last updated at 3/28/2025, 7:37:14 AM
