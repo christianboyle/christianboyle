@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nH6RS9WyhmDxki4T-dvtDKA-t500x500.png">](https://soundcloud.com/tracksinsanas/tsk-phonic-we-go-crazy-tirf86)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
 
-**Artist**: TSK PHONIC 
+**Artist**: canary yellow 
 
-**Track**: TSK PHØNIČ - We Go Crazy [TIRF86]
+**Track**: You Were The One
 
-Last updated at 3/28/2025, 12:22:48 PM
+Last updated at 3/28/2025, 3:39:08 PM
