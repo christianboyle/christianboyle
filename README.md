@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rdVDcjZBsr6ACEZ-WZK5Vw-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/shakewell-my-beanie-gone-ash-me-outside-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyyGdsSZ3RdY6CHK-owT5qw-t500x500.png">](https://soundcloud.com/digitalvibrationshq/pretty-sweet-echo)
 
-**Artist**: ash me outside 
+**Artist**: Digital Vibrations, Pretty Sweet 
 
-**Track**: Shakewell - My Beanie Gone (ash me outside flip)
+**Track**: Pretty Sweet - ECHO
 
-Last updated at 3/28/2025, 7:32:53 AM
+Last updated at 3/28/2025, 7:33:54 AM
