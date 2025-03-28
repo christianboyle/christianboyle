@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55IZODpzwyygon7o-n6Np2A-t500x500.png">](https://soundcloud.com/kyrosradio/radio-016-felipe-moya-live-theofficefrequency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdl0SkRmuyMjsVJh-vBmfeg-t500x500.png">](https://soundcloud.com/researchagency/rsh010)
 
-**Artist**: Kyros Radio 
+**Artist**: Hindorian, True Self 
 
-**Track**: Episode 016 - Felipe Moya (Live @TheOfficeFrequency) [San José, Costa Rica]
+**Track**: Hindorian-Graive Consequences (True Self Remix) (RSH010) FREE DOWNLOAD!
 
-Last updated at 3/28/2025, 8:14:32 AM
+Last updated at 3/28/2025, 8:20:14 AM
