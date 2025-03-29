@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHLPQxljGKzTGTyj-pPByyw-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/vic-get-silly-star-monster-flip?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
 
-**Artist**: Star Monster 
+**Artist**: Lookas, Saint Miller 
 
-**Track**: V.I.C.- Get Silly {Star Monster Flip}
+**Track**: TIME
 
-Last updated at 3/29/2025, 11:11:28 AM
+Last updated at 3/29/2025, 2:12:18 PM
