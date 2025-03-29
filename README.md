@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnRUB6U9m8iO-0-t500x500.jpg">](https://soundcloud.com/iamhvrcrft/soul-rebel-cover-song-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
 
-**Artist**: hvrcrft, DAVE SHERMAN 
+**Artist**: canary yellow 
 
-**Track**: Soul Rebel (Cover Song) [feat. layne tadesse]
+**Track**: You Were The One
 
-Last updated at 3/29/2025, 8:33:20 AM
+Last updated at 3/29/2025, 10:21:27 AM
