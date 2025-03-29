@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70c2peFFpT8eif3a-GJteSg-t500x500.png">](https://soundcloud.com/killsafari/enter-sandstorm-killsafari-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P4ZtA6e4A6vv4h3i-L4h0bw-t500x500.jpg">](https://soundcloud.com/bvcketsbass/mystek)
 
-**Artist**: Kill Safari 
+**Artist**: Bvckets 
 
-**Track**: ENTER SANDSTORM (KILLSAFARI REMIX)
+**Track**: mystek
 
-Last updated at 3/29/2025, 7:49:01 AM
+Last updated at 3/29/2025, 8:18:24 AM
