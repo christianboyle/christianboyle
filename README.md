@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUbGZyccvpngaOiY-OTVSSQ-t500x500.png">](https://soundcloud.com/rynsmusic/j-cole-no-role-modelz-ryns?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70c2peFFpT8eif3a-GJteSg-t500x500.png">](https://soundcloud.com/killsafari/enter-sandstorm-killsafari-remix?in=saxurn/sets/recursed)
 
-**Artist**: RYNS 
+**Artist**: Kill Safari 
 
-**Track**: J. Cole - No Role Modelz (RYNS Flip)
+**Track**: ENTER SANDSTORM (KILLSAFARI REMIX)
 
-Last updated at 3/29/2025, 2:39:57 PM
+Last updated at 3/29/2025, 2:43:08 PM
