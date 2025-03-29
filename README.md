@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper)
 
-**Artist**: Lookas, Saint Miller 
+**Artist**: RÜMI!Lavigne [@fuckrumi] 
 
-**Track**: TIME
+**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
 
-Last updated at 3/29/2025, 2:12:18 PM
+Last updated at 3/29/2025, 2:13:19 PM
