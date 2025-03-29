@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq936fXDSjxwKckl-7I8zmQ-t500x500.jpg">](https://soundcloud.com/alleycvt/secretsflip?in=saxurn/sets/recursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
 
-**Artist**: ALLEYCVT 
+**Artist**: Lookas, Saint Miller 
 
-**Track**: Tiësto & KSHMR - Secrets (feat. VASSY) (ALLEYCVT Flip)
+**Track**: TIME
 
-Last updated at 3/29/2025, 2:17:11 PM
+Last updated at 3/29/2025, 2:18:16 PM
