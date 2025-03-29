@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Da23ep7LKWQItEUR-E3ATKg-t500x500.jpg">](https://soundcloud.com/yeschef444/new-day?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWNk1Al8W7wyUU9l-OEim7A-t500x500.jpg">](https://soundcloud.com/rave_alert/promises-mero-mstr-2?in=saxurn/sets/recursed)
 
-**Artist**: YES CHEF 
+**Artist**: Rave Alert 
 
-**Track**: new day
+**Track**: MËRO - Promises
 
-Last updated at 3/29/2025, 2:27:51 PM
+Last updated at 3/29/2025, 2:30:41 PM
