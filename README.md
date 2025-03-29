@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5mh0wjolAo9fvyv-FRB86w-t500x500.png">](https://soundcloud.com/mybadmusic/chingy-right-thurr-my-bad-x-arius-remix?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUbGZyccvpngaOiY-OTVSSQ-t500x500.png">](https://soundcloud.com/rynsmusic/j-cole-no-role-modelz-ryns?in=saxurn/sets/recursed)
 
-**Artist**: MY BAD, ARIUS 
+**Artist**: RYNS 
 
-**Track**: Chingy - Right Thurr (MY BAD x ARIUS Remix)
+**Track**: J. Cole - No Role Modelz (RYNS Flip)
 
-Last updated at 3/29/2025, 2:38:12 PM
+Last updated at 3/29/2025, 2:39:57 PM
