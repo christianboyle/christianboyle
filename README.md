@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq936fXDSjxwKckl-7I8zmQ-t500x500.jpg">](https://soundcloud.com/alleycvt/secretsflip?in=saxurn/sets/recursed/)
 
-**Artist**: RÜMI!Lavigne [@fuckrumi] 
+**Artist**: ALLEYCVT 
 
-**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
+**Track**: Tiësto & KSHMR - Secrets (feat. VASSY) (ALLEYCVT Flip)
 
-Last updated at 3/29/2025, 2:15:19 PM
+Last updated at 3/29/2025, 2:17:11 PM
