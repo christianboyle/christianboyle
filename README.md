@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper?in=saxurn/sets/cursed/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHLPQxljGKzTGTyj-pPByyw-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/vic-get-silly-star-monster-flip?in=saxurn/sets/cursed/)
 
-**Artist**: RÜMI!Lavigne [@fuckrumi] 
+**Artist**: Star Monster 
 
-**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
+**Track**: V.I.C.- Get Silly {Star Monster Flip}
 
-Last updated at 3/29/2025, 11:09:18 AM
+Last updated at 3/29/2025, 11:11:28 AM
