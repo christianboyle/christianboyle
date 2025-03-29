@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7NrQizoKnuRkoVIQ-mFCLNA-t500x500.png">](https://soundcloud.com/canaryyellowmusic/you-were-the-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper?in=saxurn/sets/cursed/)
 
-**Artist**: canary yellow 
+**Artist**: RÜMI!Lavigne [@fuckrumi] 
 
-**Track**: You Were The One
+**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
 
-Last updated at 3/29/2025, 11:07:38 AM
+Last updated at 3/29/2025, 11:09:18 AM
