@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ga8CGNJAhytcJJxE-KC24OA-t500x500.png">](https://soundcloud.com/pedicure-records/a-tribe-called-quest-1nce-again-shopworn-reblend?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHLPQxljGKzTGTyj-pPByyw-t500x500.jpg">](https://soundcloud.com/starmonsterofficial/vic-get-silly-star-monster-flip?in=saxurn/sets/recursed)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: Star Monster 
 
-**Track**: A Tribe Called Quest - 1nce again (Shopworn reblend)
+**Track**: V.I.C.- Get Silly {Star Monster Flip}
 
-Last updated at 3/29/2025, 2:21:36 PM
+Last updated at 3/29/2025, 2:24:41 PM
