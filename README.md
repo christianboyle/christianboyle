@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWNk1Al8W7wyUU9l-OEim7A-t500x500.jpg">](https://soundcloud.com/rave_alert/promises-mero-mstr-2?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhHyxdyoSZTGBJvY-BbqAVQ-t500x500.jpg">](https://soundcloud.com/gltymusic/enough-flip?in=saxurn/sets/recursed)
 
-**Artist**: Rave Alert 
+**Artist**: GLTY 
 
-**Track**: MËRO - Promises
+**Track**: Cardi B - Enough (GLTY Flip)
 
-Last updated at 3/29/2025, 2:30:41 PM
+Last updated at 3/29/2025, 2:34:47 PM
