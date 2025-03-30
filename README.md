@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70c2peFFpT8eif3a-GJteSg-t500x500.png">](https://soundcloud.com/killsafari/enter-sandstorm-killsafari-remix?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper)
 
-**Artist**: Kill Safari 
+**Artist**: RÜMI!Lavigne [@fuckrumi] 
 
-**Track**: ENTER SANDSTORM (KILLSAFARI REMIX)
+**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
 
-Last updated at 3/29/2025, 2:43:08 PM
+Last updated at 3/30/2025, 7:42:46 AM
