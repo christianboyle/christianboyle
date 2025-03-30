@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ALnZGIN5JppBz9jn-R8LT1w-t500x500.jpg">](https://soundcloud.com/thrashwhore/a-spaceship-lullaby-for-the-aliens-of-planet-nazareth-prod-sleepytrxpper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ga8CGNJAhytcJJxE-KC24OA-t500x500.png">](https://soundcloud.com/pedicure-records/a-tribe-called-quest-1nce-again-shopworn-reblend?in=saxurn/sets/recursed)
 
-**Artist**: RÜMI!Lavigne [@fuckrumi] 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: a spaceship lullaby for the aliens of planet nazareth [prod. sleepytrxpper]
+**Track**: A Tribe Called Quest - 1nce again (Shopworn reblend)
 
-Last updated at 3/30/2025, 7:42:46 AM
+Last updated at 3/30/2025, 8:22:10 AM
