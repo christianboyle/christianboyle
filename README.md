@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BSWP52y1EWgE0mAU-jYLoIw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/dave-central-cee-sprinter-b3nte-amero-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xKlMEGU5fSROy8L-zGlDGw-t500x500.jpg">](https://soundcloud.com/festivaltrap/amiixa-fyuurie-red-hot)
 
-**Artist**: B3nte, Amero 
+**Artist**: Amiixa, Fyuurie 
 
-**Track**: Dave & Central Cee - Sprinter (B3nte & Amero Remix) [FREE DOWNLOAD]
+**Track**: Amiixa, Fyuurie - Red Hot
 
-Last updated at 3/31/2025, 11:33:44 AM
+Last updated at 3/31/2025, 11:37:05 AM
