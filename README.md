@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71wW07lUBMEPvaVI-LTOIqA-t500x500.png">](https://soundcloud.com/smokeandmirrors255/smoke-and-mirrors-pulsefire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZZsf2dCdlI8EjKW-uSPHzQ-t500x500.png">](https://soundcloud.com/djreecerose/a-bay-bay-dub)
 
-**Artist**: Smoke & Mirrors 
+**Artist**: Reece Rosé 
 
-**Track**: Pulsefire
+**Track**: A Bay Bay (Dub)
 
-Last updated at 3/31/2025, 1:19:28 PM
+Last updated at 3/31/2025, 1:57:09 PM
