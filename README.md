@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nj1PKbryYU8hVdKA-jg1hBw-t500x500.jpg">](https://soundcloud.com/fuxwithit-1/fuxwithit-guest-mix-261-more-creativity-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9BMNmijWk0WeRS7-1guAfQ-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-511)
 
-**Artist**: FUXWITHIT 
+**Artist**: DJ EZC 
 
-**Track**: FUXWITHIT Guest Mix: 261 - more creativity records
+**Track**: Hardcore Will Never Die Episode 511
 
-Last updated at 3/31/2025, 2:34:13 PM
+Last updated at 3/31/2025, 2:47:04 PM
