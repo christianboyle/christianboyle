@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHVdUTP3jpS2-0-t500x500.png">](https://soundcloud.com/cynthia-lacle/hardcore-m-therf-ker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FqjxsTNjAPlmyL3l-bloaVA-t500x500.png">](https://soundcloud.com/beatsfordayz23/resident-president-ottctogon)
 
-**Artist**: Cynthia Laclé 
+**Artist**: BeatsforDayz Music 
 
-**Track**: Hardcore M+therF**ker
+**Track**: Resident President - Ottctogon
 
-Last updated at 3/31/2025, 2:01:19 PM
+Last updated at 3/31/2025, 2:04:25 PM
