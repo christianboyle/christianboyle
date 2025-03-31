@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ED4KJ6RJcROHsOMg-GtSmGA-t500x500.jpg">](https://soundcloud.com/blackworksclub/premiere-sancer-digital-domination-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abQLPlud5wr4H67i-V5QCHg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dextro-element-one-mr033)
 
-**Artist**: Blackworks 
+**Artist**: HATE, Dextro  
 
-**Track**: PREMIERE: Sancer - Digital Domination (Original Mix) [Free Download 10 days]
+**Track**: Premiere: Dextro — Element One [MR033]
 
-Last updated at 3/31/2025, 9:01:20 AM
+Last updated at 3/31/2025, 9:02:20 AM
