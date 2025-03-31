@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KWNk1Al8W7wyUU9l-OEim7A-t500x500.jpg">](https://soundcloud.com/rave_alert/promises-mero-mstr-2?in=saxurn/sets/recursed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nH6RS9WyhmDxki4T-dvtDKA-t500x500.png">](https://soundcloud.com/tracksinsanas/tsk-phonic-we-go-crazy-tirf86)
 
-**Artist**: Rave Alert 
+**Artist**: TSK PHONIC 
 
-**Track**: MËRO - Promises
+**Track**: TSK PHØNIČ - We Go Crazy [TIRF86]
 
-Last updated at 3/30/2025, 8:31:15 AM
+Last updated at 3/31/2025, 7:28:40 AM
