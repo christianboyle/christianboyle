@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W32NJ8PPzYZjgomp-syTsgw-t500x500.png">](https://soundcloud.com/garret_music/garret-pres-pack-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-dBQGIle03zJpAOIE-BIQxDw-t500x500.jpg">](https://soundcloud.com/andy-underhill-205835562/fun-random-mix-29-3-25-wav)
 
-**Artist**: Garret 
+**Artist**: dj vikin 
 
-**Track**: Garret Pres. Pack Vol.1
+**Track**: fun random mix 29.3.25.wav
 
-Last updated at 3/31/2025, 8:53:20 AM
+Last updated at 3/31/2025, 8:55:00 AM
