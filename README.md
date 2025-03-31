@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v1VZ92GVfKmBJUAs-y6w0rg-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-flame-of-ambition-vinka-x-gewoonraves)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RAS5M2JPajSM7p4S-RuICNA-t500x500.png">](https://soundcloud.com/dnzrecords/dj-addo-eloy-verdu-juan-dj-dont-let-me)
 
-**Artist**: GEWOONRAVES 
+**Artist**: DJ Addo, Eloy Verdu, Juan DJ 
 
-**Track**: [FREE DL] Flame of Ambition - Vinka Wydro x All In This
+**Track**: DJ Addo, Eloy Verdu, Juan DJ - Don't Let Me
 
-Last updated at 3/31/2025, 8:56:05 AM
+Last updated at 3/31/2025, 8:58:40 AM
