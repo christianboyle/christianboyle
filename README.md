@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjsRoc601Pr2vQRk-4Nittw-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/hooligan-breaking-and-entering)
 
-**Artist**: NVADRZ 
+**Artist**: Hooligan 
 
-**Track**: He Says, She Says
+**Track**: Hooligan - Breaking and Entering
 
-Last updated at 3/31/2025, 2:27:37 PM
+Last updated at 3/31/2025, 2:31:47 PM
