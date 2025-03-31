@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sJ33jnkZfwDIUHOz-EjUmbw-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-do-whar-ya-like)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W32NJ8PPzYZjgomp-syTsgw-t500x500.png">](https://soundcloud.com/garret_music/garret-pres-pack-vol1)
 
-**Artist**: DJ Pleasure 
+**Artist**: Garret 
 
-**Track**: Dj Pleasure - Do Whar Ya Like.mp3
+**Track**: Garret Pres. Pack Vol.1
 
-Last updated at 3/31/2025, 8:49:49 AM
+Last updated at 3/31/2025, 8:53:20 AM
