@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JldzXbK3uZm4lvKG-o4rb8A-t500x500.jpg">](https://soundcloud.com/autonikdubz/cybertron-x-azabim-x-glockz-jagerwomb-autonik-x-bitch-vipfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9BMNmijWk0WeRS7-1guAfQ-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-511)
 
-**Artist**: AUTONIK (SORCERERS CREW) 
+**Artist**: DJ EZC 
 
-**Track**: CYBERTRON X AZABIM X GLOCKZ - JAGERWOMB (AUTONIK ‘X BITCH’ VIP)(FREE DL)
+**Track**: Hardcore Will Never Die Episode 511
 
-Last updated at 3/31/2025, 11:29:49 AM
+Last updated at 3/31/2025, 11:30:49 AM
