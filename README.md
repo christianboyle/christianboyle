@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9BMNmijWk0WeRS7-1guAfQ-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-511)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BSWP52y1EWgE0mAU-jYLoIw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/dave-central-cee-sprinter-b3nte-amero-remix-free-download)
 
-**Artist**: DJ EZC 
+**Artist**: B3nte, Amero 
 
-**Track**: Hardcore Will Never Die Episode 511
+**Track**: Dave & Central Cee - Sprinter (B3nte & Amero Remix) [FREE DOWNLOAD]
 
-Last updated at 3/31/2025, 11:30:49 AM
+Last updated at 3/31/2025, 11:33:44 AM
