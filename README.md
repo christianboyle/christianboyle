@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xKlMEGU5fSROy8L-zGlDGw-t500x500.jpg">](https://soundcloud.com/festivaltrap/amiixa-fyuurie-red-hot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tzy3BrQGvEtCL9PQ-pE9ujw-t500x500.png">](https://soundcloud.com/sythstep/starless)
 
-**Artist**: Amiixa, Fyuurie 
+**Artist**: SŸTH 
 
-**Track**: Amiixa, Fyuurie - Red Hot
+**Track**: STARLESS (FREE DL)
 
-Last updated at 3/31/2025, 11:37:05 AM
+Last updated at 3/31/2025, 11:39:40 AM
