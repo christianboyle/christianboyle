@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9BMNmijWk0WeRS7-1guAfQ-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-511)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUbGZyccvpngaOiY-OTVSSQ-t500x500.png">](https://soundcloud.com/rynsmusic/j-cole-no-role-modelz-ryns)
 
-**Artist**: DJ EZC 
+**Artist**: RYNS 
 
-**Track**: Hardcore Will Never Die Episode 511
+**Track**: J. Cole - No Role Modelz (RYNS Flip)
 
-Last updated at 3/31/2025, 2:47:04 PM
+Last updated at 3/31/2025, 5:27:13 PM
