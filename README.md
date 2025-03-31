@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7gWTOniuQyCvJMpD-uMVwMg-t500x500.png">](https://soundcloud.com/luhvmusic/chief-keef-semi-on-em-luhv-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71wW07lUBMEPvaVI-LTOIqA-t500x500.png">](https://soundcloud.com/smokeandmirrors255/smoke-and-mirrors-pulsefire)
 
-**Artist**: Luhv 
+**Artist**: Smoke & Mirrors 
 
-**Track**: Chief Keef - Semi on EM (Luhv REMIX)
+**Track**: Pulsefire
 
-Last updated at 3/31/2025, 1:16:58 PM
+Last updated at 3/31/2025, 1:19:28 PM
