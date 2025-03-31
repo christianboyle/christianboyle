@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-86d2iiRpUvna-0-t500x500.jpg">](https://soundcloud.com/rekchampa/focus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WH2SOErJW2wb4qW3-LRTz7A-t500x500.png">](https://soundcloud.com/kerutunes/artifacts)
 
-**Artist**: Stefan Ringer 
+**Artist**: KERU 
 
-**Track**: Focus
+**Track**: ARTIFACTS
 
-Last updated at 3/31/2025, 9:05:26 AM
+Last updated at 3/31/2025, 9:06:26 AM
