@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abQLPlud5wr4H67i-V5QCHg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dextro-element-one-mr033)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaozyTrqvxfWFQ5Z-yTqQPQ-t500x500.png">](https://soundcloud.com/keyimagazine/premiere-dj-plant-texture-sogno-tresor-records)
 
-**Artist**: HATE, Dextro  
+**Artist**: DJ Plant Texture 
 
-**Track**: Premiere: Dextro — Element One [MR033]
+**Track**: PREMIERE: DJ Plant Texture - Sogno [ Tresor Records ]
 
-Last updated at 3/31/2025, 9:02:20 AM
+Last updated at 3/31/2025, 9:03:46 AM
