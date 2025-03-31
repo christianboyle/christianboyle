@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nH6RS9WyhmDxki4T-dvtDKA-t500x500.png">](https://soundcloud.com/tracksinsanas/tsk-phonic-we-go-crazy-tirf86)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKXtGYW91jrhVwCd-9hB9AQ-t500x500.jpg">](https://soundcloud.com/dojinletters/testing-greyrock-takecare04)
 
-**Artist**: TSK PHONIC 
+**Artist**: dojin 
 
-**Track**: TSK PHØNIČ - We Go Crazy [TIRF86]
+**Track**: testing. #AFTERIMAGESONGWARS
 
-Last updated at 3/31/2025, 8:46:09 AM
+Last updated at 3/31/2025, 8:48:44 AM
