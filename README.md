@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WHfjG0GmICW5SSv-wTiZqQ-t500x500.jpg">](https://soundcloud.com/overeazybeats/leavemealone-overeazy-x-aukina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmJsc0QlyTNmi2KV-G62LTg-t500x500.jpg">](https://soundcloud.com/nvadrz/he-says-she-says)
 
-**Artist**: OVEREAZY 
+**Artist**: NVADRZ 
 
-**Track**: Fred Again.. & Baby Keem - Leavemealone (OVEREAZY X AUKINA FLIP)
+**Track**: He Says, She Says
 
-Last updated at 3/31/2025, 2:25:02 PM
+Last updated at 3/31/2025, 2:27:37 PM
