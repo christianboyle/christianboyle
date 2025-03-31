@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s0Nai9DqH8o1-0-t500x500.png">](https://soundcloud.com/sidtrus-music/we-own-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wHVdUTP3jpS2-0-t500x500.png">](https://soundcloud.com/cynthia-lacle/hardcore-m-therf-ker)
 
-**Artist**: Sidtrus 
+**Artist**: Cynthia Laclé 
 
-**Track**: We Own The Night
+**Track**: Hardcore M+therF**ker
 
-Last updated at 3/31/2025, 1:58:14 PM
+Last updated at 3/31/2025, 2:01:19 PM
