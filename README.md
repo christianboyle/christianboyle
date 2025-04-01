@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sf3Cny6tFVyKoHm3-01lrRQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/cyber-paranoid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOyqUVhByL9YWxmy-dqqKKg-t500x500.jpg">](https://soundcloud.com/voidnoize/void-noize-ft-dracula-tunnelzexefree)
 
-**Artist**: Cyber 
+**Artist**: Void noize[HERETIC] 
 
-**Track**: Cyber - Paranoid
+**Track**: Void noize Ft DRACULA  - Tunnelz.exe(FREE direct dl)
 
-Last updated at 3/31/2025, 8:24:19 PM
+Last updated at 3/31/2025, 8:25:20 PM
