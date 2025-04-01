@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dhZa6zmz67hWgkGT-Lwojgg-t500x500.png">](https://soundcloud.com/questtunes/shogunate-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9qMB763QmJb66Dt5-VcF8Qg-t500x500.png">](https://soundcloud.com/makewavs/meadoh-trouble)
 
-**Artist**: questtunes 
+**Artist**: Meadoh 
 
-**Track**: shogunate
+**Track**: Meadoh - Trouble
 
-Last updated at 3/31/2025, 8:19:49 PM
+Last updated at 3/31/2025, 8:20:54 PM
