@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V1VKF4H3wUvsayKy-cfersQ-t500x500.png">](https://soundcloud.com/spira_sounds/marshmello-juicy-j-eptic-hitta-spira-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sf3Cny6tFVyKoHm3-01lrRQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/cyber-paranoid)
 
-**Artist**: Spira 
+**Artist**: Cyber 
 
-**Track**: Juicy J, Eptic, Marshmello - Hitta (Spira Bootleg)
+**Track**: Cyber - Paranoid
 
-Last updated at 3/31/2025, 8:23:19 PM
+Last updated at 3/31/2025, 8:24:19 PM
