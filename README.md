@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqw8KXCElkndo3sQ-UN5AKA-t500x500.png">](https://soundcloud.com/all172things/aduken-x-dante-rose-feat-marge-a-rush-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dRPz55rgFqLWzcfb-xRAvhw-t500x500.jpg">](https://soundcloud.com/ninopaid/pain-possibilities)
 
-**Artist**: All172Things 
+**Artist**: Nino Paid 
 
-**Track**: ADUKEN x Dante Rose feat. Marge - A Rush [Premiere]
+**Track**: Pain & Possibilities
 
-Last updated at 4/1/2025, 9:39:04 AM
+Last updated at 4/1/2025, 9:47:40 AM
