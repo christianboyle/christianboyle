@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rsPaQm7hxRPv6Nmg-D7yjJg-t500x500.jpg">](https://soundcloud.com/taylortorrencemusic/where-you-are-future-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqw8KXCElkndo3sQ-UN5AKA-t500x500.png">](https://soundcloud.com/all172things/aduken-x-dante-rose-feat-marge-a-rush-premiere)
 
-**Artist**: Taylor Torrence 
+**Artist**: All172Things 
 
-**Track**: John Summit & Hayla - Where You Are (Taylor Torrence Future Techno Remix) [FREE DOWNLOAD] [PREVIEW]
+**Track**: ADUKEN x Dante Rose feat. Marge - A Rush [Premiere]
 
-Last updated at 4/1/2025, 9:36:44 AM
+Last updated at 4/1/2025, 9:39:04 AM
