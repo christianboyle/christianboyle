@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VrgAjbfDr6gyUxzM-zOKRBw-t500x500.jpg">](https://soundcloud.com/eskapistsound/puulse-call-your-name-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7aI5BnYp3VlrHKb-IpzntA-t500x500.jpg">](https://soundcloud.com/kh0official/big-bang-kh0ma-speedtech-remix-20c)
 
-**Artist**: Eskapist 
+**Artist**: kh0mA 
 
-**Track**: puulse - call your name (feat. maybealice) [eskapist flip]
+**Track**: Big Bang - DJ Snake & Crankdat (Kh0ma Flip)
 
-Last updated at 3/31/2025, 8:28:10 PM
+Last updated at 3/31/2025, 8:34:51 PM
