@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7aI5BnYp3VlrHKb-IpzntA-t500x500.jpg">](https://soundcloud.com/kh0official/big-bang-kh0ma-speedtech-remix-20c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k0udcLIYEMWDJZ9M-vpRLFQ-t500x500.png">](https://soundcloud.com/onlybangs/then-365-slvr-remix-now-recordingss)
 
-**Artist**: kh0mA 
+**Artist**: Th;en, SLVR 
 
-**Track**: Big Bang - DJ Snake & Crankdat (Kh0ma Flip)
+**Track**: Th;en - 365 (SLVR Remix) [NOW Recordings]
 
-Last updated at 3/31/2025, 8:34:51 PM
+Last updated at 3/31/2025, 8:36:01 PM
