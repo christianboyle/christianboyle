@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfy5Y3LlAjmKHNkn-MlCTkQ-t500x500.png">](https://soundcloud.com/maysev/05e6203c-f947-486a-98f3-601f4347c76e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPUaWimCrw8ZRPYt-Cb7zeQ-t500x500.jpg">](https://soundcloud.com/komplvintmusic/komplvint-like-this)
 
-**Artist**: Maysev 
+**Artist**: KOMPLVINT 
 
-**Track**: Maysev - CUT ME LOOSE
+**Track**: KOMPLVINT - LIKE THIS
 
-Last updated at 4/1/2025, 9:30:08 AM
+Last updated at 4/1/2025, 9:33:14 AM
