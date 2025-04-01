@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUbGZyccvpngaOiY-OTVSSQ-t500x500.png">](https://soundcloud.com/rynsmusic/j-cole-no-role-modelz-ryns)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dhZa6zmz67hWgkGT-Lwojgg-t500x500.png">](https://soundcloud.com/questtunes/shogunate-1)
 
-**Artist**: RYNS 
+**Artist**: questtunes 
 
-**Track**: J. Cole - No Role Modelz (RYNS Flip)
+**Track**: shogunate
 
-Last updated at 3/31/2025, 8:18:49 PM
+Last updated at 3/31/2025, 8:19:49 PM
