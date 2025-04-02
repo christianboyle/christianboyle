@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trahiXlokrAvF4nk-hR397Q-t500x500.png">](https://soundcloud.com/halfstepcrew/lockedoutofheavenrun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-feCyXto66hCistui-iyoB3g-t500x500.jpg">](https://soundcloud.com/zillionaire-remixes/locked-out-of-heaven-zillionaire-remix)
 
-**Artist**: HALFSTEP 
+**Artist**: Zillionaire Remixes 
 
-**Track**: Bruno Mars X Justin Prime, Tbr - Locked Out Of Heaven Run (HALFSTEP Edit)
+**Track**: Locked Out Of Heaven (Zillionaire Remix) - Bruno Mars
 
-Last updated at 4/2/2025, 8:45:48 AM
+Last updated at 4/2/2025, 8:50:33 AM
