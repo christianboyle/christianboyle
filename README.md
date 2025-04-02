@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-feCyXto66hCistui-iyoB3g-t500x500.jpg">](https://soundcloud.com/zillionaire-remixes/locked-out-of-heaven-zillionaire-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JXgXPDyWJNzqJKY-Xj7pjA-t500x500.png">](https://soundcloud.com/wearestudio/visages-stuka-ju-87-premiere)
 
-**Artist**: Zillionaire Remixes 
+**Artist**: STUDIO 
 
-**Track**: Locked Out Of Heaven (Zillionaire Remix) - Bruno Mars
+**Track**: Visages - Stuka Ju 87 [Premiere]
 
-Last updated at 4/2/2025, 8:50:33 AM
+Last updated at 4/2/2025, 8:53:39 AM
