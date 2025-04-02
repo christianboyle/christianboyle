@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0gG3DE5zBC8Ch1l-eMWhVQ-t500x500.png">](https://soundcloud.com/carouseedinburgh/dj-wifi-x-gio-back-it-up-crsva004-3?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x3uL49Ah7vUwzvuS-ey8Z5Q-t500x500.png">](https://soundcloud.com/1-1-7/dj-alex-untitled-unix666-08?in=saxurn/sets/blissed-out/)
 
-**Artist**: DJ WIFI X GI.O 
+**Artist**: DJ Alex 
 
-**Track**: DJ WIFI x GI.O - Back It Up [CRSVA004]
+**Track**: DJ ALEX - "UNTITLED" [UNIX666-08]
 
-Last updated at 4/1/2025, 8:34:54 PM
+Last updated at 4/1/2025, 8:39:09 PM
