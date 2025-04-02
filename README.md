@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r8TuZ4q78wQPpVfY-4Rr27A-t500x500.png">](https://soundcloud.com/whynotusdnb/creep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LfQGZ9yW8c2sm3T7-yHazqw-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/emocial-experience)
 
-**Artist**: WHYNOTUS 
+**Artist**: Rewired Records 
 
-**Track**: Creep
+**Track**: Emocial - Experience
 
-Last updated at 4/1/2025, 9:50:10 AM
+Last updated at 4/1/2025, 8:16:26 PM
