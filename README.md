@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rdVDcjZBsr6ACEZ-WZK5Vw-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/shakewell-my-beanie-gone-ash-me-outside-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014?in=saxurn/sets/blissed-out/)
 
-**Artist**: ash me outside 
+**Artist**: Joey Risdon 
 
-**Track**: Shakewell - My Beanie Gone (ash me outside flip)
+**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
 
-Last updated at 4/1/2025, 8:20:51 PM
+Last updated at 4/1/2025, 8:21:51 PM
