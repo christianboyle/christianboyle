@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LfQGZ9yW8c2sm3T7-yHazqw-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/emocial-experience/s-Bqx5j7NRohz?in=saxurn/sets/blissed-out)
 
-**Artist**: Joey Risdon 
+**Artist**: Rewired Records 
 
-**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
+**Track**: Emocial - Experience
 
-Last updated at 4/1/2025, 8:21:51 PM
+Last updated at 4/1/2025, 8:22:50 PM
