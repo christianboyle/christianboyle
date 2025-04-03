@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQmkoP7K9rjlIMNC-6iCuPw-t500x500.png">](https://soundcloud.com/kyokee/caspa-smoke-and-mirrors-kyokee-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Da23ep7LKWQItEUR-E3ATKg-t500x500.jpg">](https://soundcloud.com/yeschef444/new-day)
 
-**Artist**: Kyokee 
+**Artist**: YES CHEF 
 
-**Track**: Caspa - Smoke and Mirrors (Kyokee Flip)
+**Track**: new day
 
-Last updated at 4/3/2025, 9:21:12 AM
+Last updated at 4/3/2025, 9:24:32 AM
