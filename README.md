@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WHfjG0GmICW5SSv-wTiZqQ-t500x500.jpg">](https://soundcloud.com/overeazybeats/leavemealone-overeazy-x-aukina?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYX8Wo80VudGDkqO-w2lFsg-t500x500.jpg">](https://soundcloud.com/millirecs/aexhy-n-m-y?in=saxurn/sets/blissed-out/)
 
-**Artist**: OVEREAZY 
+**Artist**: MILLI RECORDS 
 
-**Track**: Fred Again.. & Baby Keem - Leavemealone (OVEREAZY X AUKINA FLIP)
+**Track**: AEXHY - N-M-Y
 
-Last updated at 4/3/2025, 2:27:34 PM
+Last updated at 4/3/2025, 2:30:59 PM
