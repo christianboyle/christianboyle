@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PgEyrWQq9rtiZz2i-lMOLcg-t500x500.jpg">](https://soundcloud.com/girlsynth/ruff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9qMB763QmJb66Dt5-VcF8Qg-t500x500.png">](https://soundcloud.com/makewavs/idroppa-let-one-go)
 
-**Artist**: girlsynth 
+**Artist**: iDroppa 
 
-**Track**: these moments are ours alone
+**Track**: iDroppa - Let One Go
 
-Last updated at 4/3/2025, 9:05:14 AM
+Last updated at 4/3/2025, 9:06:14 AM
