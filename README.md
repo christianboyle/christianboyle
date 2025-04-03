@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0ePtuob09ppwW1R-IxQUAg-t500x500.png">](https://soundcloud.com/soundsbymystic/paul-wall-big-pokey-sittin-sidewayz-mstic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAfd3TBJUw6qvypX-RySlUw-t500x500.jpg">](https://soundcloud.com/novembrmusic/bbbflip)
 
-**Artist**: M?STIC 
+**Artist**: NOVEMBR 
 
-**Track**: PAUL WALL & BIG POKEY - SITTIN' SIDEWAYZ (M?STIC REMIX)
+**Track**: Lloyd Banks - Beamer, Benz, or Bentley (NOVEMBR Flip)
 
-Last updated at 4/3/2025, 9:03:14 AM
+Last updated at 4/3/2025, 9:04:14 AM
