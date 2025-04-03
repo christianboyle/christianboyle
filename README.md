@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9BMNmijWk0WeRS7-1guAfQ-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die-episode-511)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGhjcidEK9JcmBrT-vSyW8g-t500x500.png">](https://soundcloud.com/nahlexis_exe/skrillexrightinnahlexisflip)
 
-**Artist**: DJ EZC 
+**Artist**: NahLexis 
 
-**Track**: Hardcore Will Never Die Episode 511
+**Track**: Skrillex - Right In (NAHLEXIS FLIP) (FREE DL)
 
-Last updated at 4/3/2025, 5:43:42 AM
+Last updated at 4/3/2025, 7:15:15 AM
