@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ3un8N0Opg5kRyL-zKQ9aA-t500x500.jpg">](https://soundcloud.com/kimatimusic/kimati-x-zurglin-ft?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQmkoP7K9rjlIMNC-6iCuPw-t500x500.png">](https://soundcloud.com/kyokee/caspa-smoke-and-mirrors-kyokee-flip)
 
-**Artist**: Kimati, ZURGLIN, CONTEMPORARY VICE 
+**Artist**: Kyokee 
 
-**Track**: Bad In A Good Way - Kimati , ZURGLIN , CONTEMPORARY VICE
+**Track**: Caspa - Smoke and Mirrors (Kyokee Flip)
 
-Last updated at 4/3/2025, 9:19:02 AM
+Last updated at 4/3/2025, 9:21:12 AM
