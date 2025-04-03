@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8WKcYTyPYjuQgJJ-AyhZmQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/theopera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyNZwZRZ6IBb5HFS-ygMyfg-t500x500.png">](https://soundcloud.com/onlybangs/anturage-alexey-union-keke)
 
-**Artist**: VIVID, SIDES 
+**Artist**: Alexey Union, Anturage 
 
-**Track**: VIVID & SIDES - The Opera
+**Track**: Anturage & Alexey Union - Keke [Stil vor Talent]
 
-Last updated at 4/3/2025, 8:55:48 AM
+Last updated at 4/3/2025, 8:56:53 AM
