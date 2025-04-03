@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyNZwZRZ6IBb5HFS-ygMyfg-t500x500.png">](https://soundcloud.com/onlybangs/anturage-alexey-union-keke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3EOyna6zsqPGpFjP-9Iy2hQ-t500x500.jpg">](https://soundcloud.com/jpky/day-11-kickstrt)
 
-**Artist**: Alexey Union, Anturage 
+**Artist**: JPKy 
 
-**Track**: Anturage & Alexey Union - Keke [Stil vor Talent]
+**Track**: day 11 - kickstrt
 
-Last updated at 4/3/2025, 8:56:53 AM
+Last updated at 4/3/2025, 8:57:53 AM
