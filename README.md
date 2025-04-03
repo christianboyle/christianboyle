@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ECp9MKmtwy7zQTgg-JLkqxQ-t500x500.jpg">](https://soundcloud.com/voodoodubs/bags-w-spacepak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ3un8N0Opg5kRyL-zKQ9aA-t500x500.jpg">](https://soundcloud.com/kimatimusic/kimati-x-zurglin-ft?in=saxurn/sets/blissed-out)
 
-**Artist**: Voodoo, SpacePak 
+**Artist**: Kimati, ZURGLIN, CONTEMPORARY VICE 
 
-**Track**: BAGS
+**Track**: Bad In A Good Way - Kimati , ZURGLIN , CONTEMPORARY VICE
 
-Last updated at 4/3/2025, 9:27:22 AM
+Last updated at 4/3/2025, 12:01:57 PM
