@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gMIKUiZDzpUfouj-zM4jew-t500x500.jpg">](https://soundcloud.com/kryturemuze/scratchv4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wtnq4Ist75KrqJL9-AypVtg-t500x500.jpg">](https://soundcloud.com/warblebeats/runnin)
 
-**Artist**: KRYTURE 
+**Artist**: Warble 
 
-**Track**: SCRATCH
+**Track**: Runnin
 
-Last updated at 4/3/2025, 9:08:55 AM
+Last updated at 4/3/2025, 9:10:45 AM
