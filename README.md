@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R5VQl8Ey7PmnURMz-I0WqMQ-t500x500.jpg">](https://soundcloud.com/selected-berlin/kaydee-upper-tension-dj-sun-remix-r7m033)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7uYNFz998qhD7SGf-7PW2xw-t500x500.png">](https://soundcloud.com/rj-wlkr/post-malone-i-fall-apart-rj-wlkr-x-spoone-flip)
 
-**Artist**: DJ SUN 
+**Artist**: RJ-WLKR, Spoone 
 
-**Track**: KAYDEE - Upper Tension (DJ SUN Remix) [R7M033]
+**Track**: POST MALONE - I FALL APART (RJ-WLKR X SPOONE FLIP)
 
-Last updated at 4/3/2025, 12:06:39 PM
+Last updated at 4/3/2025, 12:52:38 PM
