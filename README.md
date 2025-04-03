@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hPC7P8Df7W0x-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/echoes-of-the-journey-official)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-miLMzxuRjZl4XZca-wVbSyQ-t500x500.png">](https://soundcloud.com/weebntrash/heartless)
 
-**Artist**: DEEZL, Anderex & Teal 
+**Artist**: WeebTrash 
 
-**Track**: Echoes Of The Journey (Official Gearbox Australia 2025 Anthem)
+**Track**: Heartless
 
-Last updated at 4/3/2025, 8:58:49 AM
+Last updated at 4/3/2025, 8:59:49 AM
