@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1h3MOVXqhLjnxkoV-Sj36Rw-t500x500.png">](https://soundcloud.com/aychofficial/bobbybaychvelcroshirt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0ePtuob09ppwW1R-IxQUAg-t500x500.png">](https://soundcloud.com/soundsbymystic/paul-wall-big-pokey-sittin-sidewayz-mstic-remix)
 
-**Artist**: Bobby Shmurda, AYCH, VelcroShirt 
+**Artist**: M?STIC 
 
-**Track**: Bobby Bitch (AYCH x VelcroShirt Flip)
+**Track**: PAUL WALL & BIG POKEY - SITTIN' SIDEWAYZ (M?STIC REMIX)
 
-Last updated at 4/3/2025, 9:02:09 AM
+Last updated at 4/3/2025, 9:03:14 AM
