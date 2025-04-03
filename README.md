@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXZ60H83f9vu0E5i-UMIb6w-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/suspect-mutilate-acid-reign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYZPRvJFsA4Rl3Lb-HaKvjg-t500x500.png">](https://soundcloud.com/prime-audio-1/smokestax-hornet-swarm-8)
 
-**Artist**: Suspect 
+**Artist**: Various Artists  
 
-**Track**: Suspect - MUTILATE (Acid Reign)
+**Track**: Smokestax - Hornet Swarm
 
-Last updated at 4/3/2025, 7:16:15 AM
+Last updated at 4/3/2025, 7:18:25 AM
