@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ3un8N0Opg5kRyL-zKQ9aA-t500x500.jpg">](https://soundcloud.com/kimatimusic/kimati-x-zurglin-ft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sf3Cny6tFVyKoHm3-01lrRQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/cyber-paranoid?in=saxurn/sets/blissed-out/)
 
-**Artist**: Kimati, ZURGLIN, CONTEMPORARY VICE 
+**Artist**: Cyber 
 
-**Track**: Bad In A Good Way - Kimati , ZURGLIN , CONTEMPORARY VICE
+**Track**: Cyber - Paranoid
 
-Last updated at 4/3/2025, 9:17:01 AM
+Last updated at 4/3/2025, 9:18:02 AM
