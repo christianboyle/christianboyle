@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzewyufcFsklLZYT-gha5SA-t500x500.jpg">](https://soundcloud.com/tresorberlin/dj-plant-texture-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WHfjG0GmICW5SSv-wTiZqQ-t500x500.jpg">](https://soundcloud.com/overeazybeats/leavemealone-overeazy-x-aukina)
 
-**Artist**: DJ Plant Texture 
+**Artist**: OVEREAZY 
 
-**Track**: DJ Plant Texture - Life
+**Track**: Fred Again.. & Baby Keem - Leavemealone (OVEREAZY X AUKINA FLIP)
 
-Last updated at 4/4/2025, 9:03:57 AM
+Last updated at 4/4/2025, 10:05:59 AM
