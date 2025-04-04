@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014?in=saxurn/sets/blissed-out/)
 
-**Artist**: Squired 
+**Artist**: Joey Risdon 
 
-**Track**: Black Ice Mudra (Squired Rave Edit)
+**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
 
-Last updated at 4/4/2025, 3:50:44 PM
+Last updated at 4/4/2025, 3:51:43 PM
