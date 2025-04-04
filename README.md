@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CMmBDwGbNyyVX3Mw-4U1jTg-t500x500.jpg">](https://soundcloud.com/aubree-korte-775849199/halfway)
 
-**Artist**: Joey Risdon 
+**Artist**: breezy.wav 
 
-**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
+**Track**: Halfway
 
-Last updated at 4/4/2025, 6:47:45 AM
+Last updated at 4/4/2025, 8:29:50 AM
