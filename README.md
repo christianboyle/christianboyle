@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYX8Wo80VudGDkqO-w2lFsg-t500x500.jpg">](https://soundcloud.com/millirecs/aexhy-n-m-y?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enJqGJexYi8LwyEy-142S0w-t500x500.jpg">](https://soundcloud.com/hobibeats/chemicalmemory)
 
-**Artist**: MILLI RECORDS 
+**Artist**: hobi 
 
-**Track**: AEXHY - N-M-Y
+**Track**: chemical memory (all original unreleased ‘25)
 
-Last updated at 4/4/2025, 11:21:17 AM
+Last updated at 4/4/2025, 12:02:38 PM
