@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WHfjG0GmICW5SSv-wTiZqQ-t500x500.jpg">](https://soundcloud.com/overeazybeats/leavemealone-overeazy-x-aukina?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1h03bSNX9hTInyD-vHj1eg-t500x500.jpg">](https://soundcloud.com/v_letical/you-again?in=saxurn/sets/blissed-out/)
 
-**Artist**: OVEREAZY 
+**Artist**: 14106lyn 
 
-**Track**: Fred Again.. & Baby Keem - Leavemealone (OVEREAZY X AUKINA FLIP)
+**Track**: you again +isai
 
-Last updated at 4/4/2025, 3:47:05 PM
+Last updated at 4/4/2025, 3:48:19 PM
