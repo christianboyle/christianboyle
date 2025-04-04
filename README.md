@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014?in=saxurn/sets/blissed-out/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WHfjG0GmICW5SSv-wTiZqQ-t500x500.jpg">](https://soundcloud.com/overeazybeats/leavemealone-overeazy-x-aukina?in=saxurn/sets/blissed-out)
 
-**Artist**: Joey Risdon 
+**Artist**: OVEREAZY 
 
-**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
+**Track**: Fred Again.. & Baby Keem - Leavemealone (OVEREAZY X AUKINA FLIP)
 
-Last updated at 4/4/2025, 3:51:43 PM
+Last updated at 4/4/2025, 3:54:55 PM
