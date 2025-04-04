@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPcHhq0OtNBzu5kT-dgnRKA-t500x500.jpg">](https://soundcloud.com/dur_label/premiere-joey-risdon-without-drugs-rr014?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7aI5BnYp3VlrHKb-IpzntA-t500x500.jpg">](https://soundcloud.com/kh0official/big-bang-kh0ma-speedtech-remix-20c?in=saxurn/sets/blissed-out)
 
-**Artist**: Joey Risdon 
+**Artist**: kh0mA 
 
-**Track**: PREMIERE : Joey Risdon - Without Drugs [RR014]
+**Track**: Big Bang - DJ Snake & Crankdat (Kh0ma Flip)
 
-Last updated at 4/4/2025, 4:14:01 PM
+Last updated at 4/4/2025, 4:20:57 PM
