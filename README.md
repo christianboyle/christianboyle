@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0ePtuob09ppwW1R-IxQUAg-t500x500.png">](https://soundcloud.com/soundsbymystic/paul-wall-big-pokey-sittin-sidewayz-mstic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHiaO7df2Noj7Iyt-57qXSw-t500x500.png">](https://soundcloud.com/bauti_music/bauti-volume-unit-letmego)
 
-**Artist**: M?STIC 
+**Artist**: bauti, Volume Unit 
 
-**Track**: PAUL WALL & BIG POKEY - SITTIN' SIDEWAYZ (M?STIC REMIX)
+**Track**: bauti & Volume Unit - LETMEGO
 
-Last updated at 4/4/2025, 12:27:59 PM
+Last updated at 4/4/2025, 1:21:01 PM
