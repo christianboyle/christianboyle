@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0gG3DE5zBC8Ch1l-eMWhVQ-t500x500.png">](https://soundcloud.com/carouseedinburgh/dj-wifi-x-gio-back-it-up-crsva004-3?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lH8BC3hEgz4fS75x-2y3e4g-t500x500.jpg">](https://soundcloud.com/candyflip030/nanno-vivid-fantasy?in=saxurn/sets/blissed-out)
 
-**Artist**: DJ WIFI X GI.O 
+**Artist**: Nanno 
 
-**Track**: DJ WIFI x GI.O - Back It Up [CRSVA004]
+**Track**: Nanno - Vivid Fantasy
 
-Last updated at 4/4/2025, 4:01:55 PM
+Last updated at 4/4/2025, 4:06:06 PM
