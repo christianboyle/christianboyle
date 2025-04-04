@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vKZ9tO5oUnhNY0hh-LTodnw-t500x500.jpg">](https://soundcloud.com/nikko/kelis-milkshake-nikko-rmx)
 
-**Artist**: Squired 
+**Artist**: nikko 
 
-**Track**: Black Ice Mudra (Squired Rave Edit)
+**Track**: KELIS - MILKSHAKE [NIKKO RMX]
 
-Last updated at 4/4/2025, 4:29:23 PM
+Last updated at 4/4/2025, 4:31:58 PM
