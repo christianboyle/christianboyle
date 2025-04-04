@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-enJqGJexYi8LwyEy-142S0w-t500x500.jpg">](https://soundcloud.com/hobibeats/chemicalmemory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwRy17AxYzII0ZSO-So8FJA-t500x500.jpg">](https://soundcloud.com/inariwubs/chappell-roan-hot-to-go-1)
 
-**Artist**: hobi 
+**Artist**: Inari x just john 
 
-**Track**: chemical memory (all original unreleased ‘25)
+**Track**: Chappell Roan- HOT TO GO! (Inari x just john Flip)
 
-Last updated at 4/4/2025, 12:02:38 PM
+Last updated at 4/4/2025, 12:05:18 PM
