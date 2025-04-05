@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d7aI5BnYp3VlrHKb-IpzntA-t500x500.jpg">](https://soundcloud.com/kh0official/big-bang-kh0ma-speedtech-remix-20c?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yH6qSZedooorhCWQ-kZ2Apg-t500x500.png">](https://soundcloud.com/killthenoise/knife-party-sleaze-kill-the-noise-logmix?in=saxurn/sets/blissed-out)
 
-**Artist**: kh0mA 
+**Artist**: Kill The Noise 
 
-**Track**: Big Bang - DJ Snake & Crankdat (Kh0ma Flip)
+**Track**: Knife Party sleaze (kill the noise logmix)
 
-Last updated at 4/5/2025, 11:08:10 AM
+Last updated at 4/5/2025, 11:12:06 AM
