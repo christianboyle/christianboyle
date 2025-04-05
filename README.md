@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yH6qSZedooorhCWQ-kZ2Apg-t500x500.png">](https://soundcloud.com/killthenoise/knife-party-sleaze-kill-the-noise-logmix?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit?in=saxurn/sets/blissed-out)
 
-**Artist**: Kill The Noise 
+**Artist**: Squired 
 
-**Track**: Knife Party sleaze (kill the noise logmix)
+**Track**: Black Ice Mudra (Squired Rave Edit)
 
-Last updated at 4/5/2025, 11:12:06 AM
+Last updated at 4/5/2025, 11:26:02 AM
