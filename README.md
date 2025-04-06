@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3m75b6rDgfleLcuE-qGhYsA-t500x500.jpg">](https://soundcloud.com/athens_sound/athens-dont-stop-the-music-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2c6OqRt62dSB2Bhp-EVWYDA-t500x500.jpg">](https://soundcloud.com/alphieafterlife/uglystray)
 
-**Artist**: ATHENS 
+**Artist**: alphie afterlife 
 
-**Track**: Rihanna - Don't Stop The Music (ATHENS Flip)
+**Track**: ugly stray
 
-Last updated at 4/6/2025, 8:50:03 AM
+Last updated at 4/6/2025, 8:51:15 AM
