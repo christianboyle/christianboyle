@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNdAZM3wN8lO7S7J-bPding-t500x500.png">](https://soundcloud.com/dancingdeadrecords/smitech-wesson-whisper-feat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3m75b6rDgfleLcuE-qGhYsA-t500x500.jpg">](https://soundcloud.com/athens_sound/athens-dont-stop-the-music-rmx)
 
-**Artist**: Smitech Wesson, Teresa Meads 
+**Artist**: ATHENS 
 
-**Track**: Smitech Wesson - Whisper (feat. Teresa Meads)
+**Track**: Rihanna - Don't Stop The Music (ATHENS Flip)
 
-Last updated at 4/6/2025, 8:49:02 AM
+Last updated at 4/6/2025, 8:50:03 AM
