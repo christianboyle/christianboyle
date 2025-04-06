@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-t9yxe7JNjrk5jD4Q-M56UeA-t500x500.jpg">](https://soundcloud.com/kanstrukt/encoder)
 
-**Artist**: Squired 
+**Artist**: KVNSTRVKT 
 
-**Track**: Black Ice Mudra (Squired Rave Edit)
+**Track**: ENCODER [FREE DL]
 
-Last updated at 4/6/2025, 7:29:09 AM
+Last updated at 4/6/2025, 8:45:32 AM
