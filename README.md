@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1h03bSNX9hTInyD-vHj1eg-t500x500.jpg">](https://soundcloud.com/v_letical/you-again?in=saxurn/sets/blissed-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit)
 
-**Artist**: 14106lyn 
+**Artist**: Squired 
 
-**Track**: you again +isai
+**Track**: Black Ice Mudra (Squired Rave Edit)
 
-Last updated at 4/5/2025, 7:43:02 PM
+Last updated at 4/6/2025, 7:29:09 AM
