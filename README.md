@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yH7XgF4D55HVMEzh-AdB2AA-t500x500.png">](https://soundcloud.com/dancingdeadrecords/no)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lNdAZM3wN8lO7S7J-bPding-t500x500.png">](https://soundcloud.com/dancingdeadrecords/smitech-wesson-whisper-feat-1)
 
-**Artist**: CABUIZEE 
+**Artist**: Smitech Wesson, Teresa Meads 
 
-**Track**: CABUIZEE - NO!
+**Track**: Smitech Wesson - Whisper (feat. Teresa Meads)
 
-Last updated at 4/6/2025, 8:47:31 AM
+Last updated at 4/6/2025, 8:49:02 AM
