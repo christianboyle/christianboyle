@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zPwT8CMYMlaIbqs-IJZOfA-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/woah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jvh5khT2z2MsEkl-PiSJvg-t500x500.png">](https://soundcloud.com/aurelios-edits-mashups-2/bob-sinclar-rock-this-party-aurelios-remix-free-download)
 
-**Artist**: High Caliber Records 
+**Artist**: Aurelios Edits & Mashups 2 
 
-**Track**: Hoojuh- Woah
+**Track**: Bob Sinclar - Rock This Party (Aurelios Remix) [FREE DOWNLOAD]
 
-Last updated at 4/7/2025, 8:20:44 AM
+Last updated at 4/7/2025, 8:21:43 AM
