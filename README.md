@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AGQlAyn7d0uEO1y-8y76kw-t500x500.png">](https://soundcloud.com/lumberjvck/earworm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DDK0lTSMzeKV4Y9W-tnykpw-t500x500.jpg">](https://soundcloud.com/xhrdy/serious)
 
-**Artist**: LUMBERJVCK, DIALYUP 
+**Artist**: h4rdy 
 
-**Track**: EARWORM
+**Track**: serious
 
-Last updated at 4/7/2025, 9:17:52 AM
+Last updated at 4/7/2025, 9:19:48 AM
