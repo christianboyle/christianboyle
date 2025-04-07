@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEoHVdyT8VXbrq17-rBRWpg-t500x500.jpg">](https://soundcloud.com/frisianhousenation/frisian-house-nation-she-doesnt-mind-2)
 
-**Artist**: Vctmz 
+**Artist**: Frisian House Nation 
 
-**Track**: HITBOX (Feat Dojin)
+**Track**: Frisian House Nation - She Doesn't Mind
 
-Last updated at 4/7/2025, 10:34:07 AM
+Last updated at 4/7/2025, 10:35:27 AM
