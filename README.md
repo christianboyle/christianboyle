@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CH1GTGWUZefnxNGz-4PyzTA-t500x500.jpg">](https://soundcloud.com/angel-nalani/dreams-come-true-shell2wig)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JizATZ7NDKRTDFaI-m8GZVw-t500x500.png">](https://soundcloud.com/rankzsound/rankz-move-that-body-1)
 
-**Artist**: Shell2Wig 
+**Artist**: RANKZ 
 
-**Track**: Under Skies of Blue - Shell2Wig (Angel Nalani Remix)
+**Track**: RANKZ - Move That Body
 
-Last updated at 4/7/2025, 7:34:49 AM
+Last updated at 4/7/2025, 7:35:49 AM
