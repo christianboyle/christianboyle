@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DDK0lTSMzeKV4Y9W-tnykpw-t500x500.jpg">](https://soundcloud.com/xhrdy/serious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kS8HFeszIzNdUYO7-WOHGTA-t500x500.png">](https://soundcloud.com/levianth/skrillex-andy-levianth-remix)
 
-**Artist**: h4rdy 
+**Artist**: Levianth 
 
-**Track**: serious
+**Track**: SKRILLEX - ANDY (LEVIANTH REMIX)
 
-Last updated at 4/7/2025, 9:19:48 AM
+Last updated at 4/7/2025, 9:21:20 AM
