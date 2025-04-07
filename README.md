@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSFabtBye6zd4R2O-9dwyrQ-t500x500.jpg">](https://soundcloud.com/artem-techno/ono-cliq-drunken-masters-bauchnabelpiercing-artem-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEoHVdyT8VXbrq17-rBRWpg-t500x500.jpg">](https://soundcloud.com/frisianhousenation/frisian-house-nation-she-doesnt-mind-2)
 
-**Artist**: ARTEM 
+**Artist**: Frisian House Nation 
 
-**Track**: $ONO$ CLIQ & Drunken Masters - Bauchnabelpiercing (mrgnstrn x POETRY EDIT)
+**Track**: Frisian House Nation - She Doesn't Mind
 
-Last updated at 4/7/2025, 8:22:44 AM
+Last updated at 4/7/2025, 8:24:42 AM
