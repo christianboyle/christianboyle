@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAfd3TBJUw6qvypX-RySlUw-t500x500.jpg">](https://soundcloud.com/novembrmusic/bbbflip?in=saxurn/sets/frondly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AGQlAyn7d0uEO1y-8y76kw-t500x500.png">](https://soundcloud.com/lumberjvck/earworm?in=saxurn/sets/frondly)
 
-**Artist**: NOVEMBR 
+**Artist**: LUMBERJVCK, DIALYUP 
 
-**Track**: Lloyd Banks - Beamer, Benz, or Bentley (NOVEMBR Flip)
+**Track**: EARWORM
 
-Last updated at 4/7/2025, 2:04:46 PM
+Last updated at 4/7/2025, 2:06:46 PM
