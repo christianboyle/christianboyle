@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NalKwHKBUlCdOXpq-sbOvfQ-t500x500.png">](https://soundcloud.com/beatzfreq/clean-bandit-rather-be-creekboys-beatz-freq-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zPwT8CMYMlaIbqs-IJZOfA-t500x500.jpg">](https://soundcloud.com/highcaliberrecs/woah)
 
-**Artist**: Beatz Freq 
+**Artist**: High Caliber Records 
 
-**Track**: Clean Bandit - Rather Be (CreekBoys & Beatz Freq Remix)
+**Track**: Hoojuh- Woah
 
-Last updated at 4/7/2025, 8:19:28 AM
+Last updated at 4/7/2025, 8:20:44 AM
