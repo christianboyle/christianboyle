@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jvTcYptyzGULQUBh-syrLeA-t500x500.png">](https://soundcloud.com/maakg/heal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/frondly/)
 
-**Artist**: Maāk.G 
+**Artist**: Vctmz 
 
-**Track**: Heal
+**Track**: HITBOX (Feat Dojin)
 
-Last updated at 4/7/2025, 3:52:10 PM
+Last updated at 4/7/2025, 3:57:08 PM
