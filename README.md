@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEoHVdyT8VXbrq17-rBRWpg-t500x500.jpg">](https://soundcloud.com/frisianhousenation/frisian-house-nation-she-doesnt-mind-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AGQlAyn7d0uEO1y-8y76kw-t500x500.png">](https://soundcloud.com/lumberjvck/earworm)
 
-**Artist**: Frisian House Nation 
+**Artist**: LUMBERJVCK, DIALYUP 
 
-**Track**: Frisian House Nation - She Doesn't Mind
+**Track**: EARWORM
 
-Last updated at 4/7/2025, 10:35:27 AM
+Last updated at 4/7/2025, 10:36:42 AM
