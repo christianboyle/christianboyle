@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iHRwvy9cxNnMqydT-Cx1rzg-t500x500.jpg">](https://soundcloud.com/imsg/funds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nBmQNHf1tWfFTTJE-7OwICA-t500x500.jpg">](https://soundcloud.com/1geno/duttpack)
 
-**Artist**: imsg 
+**Artist**: geno 
 
-**Track**: funds
+**Track**: duttpack ft aviorts prod heavn0nevaeh
 
-Last updated at 4/7/2025, 7:22:08 AM
+Last updated at 4/7/2025, 7:23:13 AM
