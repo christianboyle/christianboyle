@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Jvh5khT2z2MsEkl-PiSJvg-t500x500.png">](https://soundcloud.com/aurelios-edits-mashups-2/bob-sinclar-rock-this-party-aurelios-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSFabtBye6zd4R2O-9dwyrQ-t500x500.jpg">](https://soundcloud.com/artem-techno/ono-cliq-drunken-masters-bauchnabelpiercing-artem-edit)
 
-**Artist**: Aurelios Edits & Mashups 2 
+**Artist**: ARTEM 
 
-**Track**: Bob Sinclar - Rock This Party (Aurelios Remix) [FREE DOWNLOAD]
+**Track**: $ONO$ CLIQ & Drunken Masters - Bauchnabelpiercing (mrgnstrn x POETRY EDIT)
 
-Last updated at 4/7/2025, 8:21:43 AM
+Last updated at 4/7/2025, 8:22:44 AM
