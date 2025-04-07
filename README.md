@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmqsONugkugMFiiQ-rHEpyw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/asap-ferg-work-proppa-rich-dietz-smith-sorren-edit?in=saxurn/sets/frondly/)
 
-**Artist**: Vctmz 
+**Artist**: Hood Politics Records Edits 
 
-**Track**: HITBOX (Feat Dojin)
+**Track**: ASAP Ferg - Work (Proppa, Rich DietZ, Smith & Sorren Edit) [SUPPORTED BY DIPLO, ALESSO, TIESTO)]
 
-Last updated at 4/7/2025, 3:58:18 PM
+Last updated at 4/7/2025, 3:59:48 PM
