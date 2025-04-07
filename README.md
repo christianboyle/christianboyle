@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2XBRbiHA0xrCwX1-GUkHIg-t500x500.png">](https://soundcloud.com/blxkmntn/omerta-remix?in=saxurn/sets/frondly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAfd3TBJUw6qvypX-RySlUw-t500x500.jpg">](https://soundcloud.com/novembrmusic/bbbflip?in=saxurn/sets/frondly)
 
-**Artist**: BLXK MNTN 
+**Artist**: NOVEMBR 
 
-**Track**: Lamb of God - Omertà (BLXK MNTN Remix)
+**Track**: Lloyd Banks - Beamer, Benz, or Bentley (NOVEMBR Flip)
 
-Last updated at 4/7/2025, 2:01:25 PM
+Last updated at 4/7/2025, 2:04:46 PM
