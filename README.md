@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmqsONugkugMFiiQ-rHEpyw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/asap-ferg-work-proppa-rich-dietz-smith-sorren-edit?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaHe5rvrpq5lVL1R-5GaqNg-t500x500.jpg">](https://soundcloud.com/huckjorris/c-m-130bpm-gunna-fukumean-huck?in=saxurn/sets/frondly/)
 
-**Artist**: Hood Politics Records Edits 
+**Artist**: huck.jorris 
 
-**Track**: ASAP Ferg - Work (Proppa, Rich DietZ, Smith & Sorren Edit) [SUPPORTED BY DIPLO, ALESSO, TIESTO)]
+**Track**: gunna - fukumean [huck.jorris flip]
 
-Last updated at 4/7/2025, 3:59:48 PM
+Last updated at 4/7/2025, 4:04:43 PM
