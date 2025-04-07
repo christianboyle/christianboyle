@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2XBRbiHA0xrCwX1-GUkHIg-t500x500.png">](https://soundcloud.com/blxkmntn/omerta-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AGQlAyn7d0uEO1y-8y76kw-t500x500.png">](https://soundcloud.com/lumberjvck/earworm)
 
-**Artist**: BLXK MNTN 
+**Artist**: LUMBERJVCK, DIALYUP 
 
-**Track**: Lamb of God - Omertà (BLXK MNTN Remix)
+**Track**: EARWORM
 
-Last updated at 4/7/2025, 9:15:42 AM
+Last updated at 4/7/2025, 9:17:52 AM
