@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaHe5rvrpq5lVL1R-5GaqNg-t500x500.jpg">](https://soundcloud.com/huckjorris/c-m-130bpm-gunna-fukumean-huck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GXj34zj1DzCokYgp-N3SF8w-t500x500.png">](https://soundcloud.com/mindsplitter/itcango)
 
-**Artist**: huck.jorris 
+**Artist**: Mind Splitter 
 
-**Track**: gunna - fukumean [huck.jorris flip]
+**Track**: ITCANGO
 
-Last updated at 4/8/2025, 6:46:12 AM
+Last updated at 4/8/2025, 7:37:53 AM
