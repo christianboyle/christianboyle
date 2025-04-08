@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPQ65UyEtDlMN2fG-xDsBKg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/finn-penny-x-liam-parkins-this-is-the-anthem-tntx026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRhGIJOG8tf3SaoK-SqChPw-t500x500.jpg">](https://soundcloud.com/itschorp/xavierwolfwhiplash-chorpedit)
 
-**Artist**: TNT 
+**Artist**: CHORP 
 
-**Track**: Finn Penny x Liam Parkins – This Is The Anthem [TNTX026]
+**Track**: XAVIER WULF WHIPLASH-CHORP EDIT
 
-Last updated at 4/8/2025, 8:36:20 AM
+Last updated at 4/8/2025, 8:37:35 AM
