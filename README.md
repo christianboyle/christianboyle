@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hg2yDY7zeI4d0fbe-LyYyfg-t500x500.jpg">](https://soundcloud.com/longstoryshortvip/jauz-rock-the-party-longstoryshort-ukg-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bs41dr4PKwnaFMZ5-ontxTA-t500x500.png">](https://soundcloud.com/vulturemakeshouse/sexy-back-vulture-theory-remix)
 
-**Artist**: longstoryshortVIP 
+**Artist**: VULTURE THEORY 
 
-**Track**: Jauz - Rock The Party (longstoryshort UKG Flip)
+**Track**: Sexy Back - Justin Timberlake (Vulture Theory Remix)
 
-Last updated at 4/8/2025, 8:33:50 AM
+Last updated at 4/8/2025, 8:35:20 AM
