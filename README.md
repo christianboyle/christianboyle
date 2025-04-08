@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYyUkGOSXZ1jlxVW-QIsoeA-t500x500.jpg">](https://soundcloud.com/xxena_00/4-mind-xxena-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jjF4ElYaaZhtSeZj-SxWFQA-t500x500.jpg">](https://soundcloud.com/peanut_wub/my-money)
 
-**Artist**: xxena 
+**Artist**: PEANUT_WUBZ 
 
-**Track**: 4 MIND [XXENA RMX]
+**Track**: MY MONEY
 
-Last updated at 4/8/2025, 8:25:29 AM
+Last updated at 4/8/2025, 8:26:39 AM
