@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaHe5rvrpq5lVL1R-5GaqNg-t500x500.jpg">](https://soundcloud.com/huckjorris/c-m-130bpm-gunna-fukumean-huck?in=saxurn/sets/frondly/)
 
-**Artist**: Vctmz 
+**Artist**: huck.jorris 
 
-**Track**: HITBOX (Feat Dojin)
+**Track**: gunna - fukumean [huck.jorris flip]
 
-Last updated at 4/8/2025, 1:55:22 PM
+Last updated at 4/8/2025, 1:57:24 PM
