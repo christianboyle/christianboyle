@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000489652413-exhhf7-t500x500.jpg">](https://soundcloud.com/offspringmusic/darkside-prod-by-offspring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sGuslVj43tZyUYLk-y2WMKQ-t500x500.png">](https://soundcloud.com/digitalvibrationshq/brainwavez-seda-deep-forward-1)
 
-**Artist**: Offspring Mysterious 
+**Artist**: Digital Vibrations, BRAINWAVEZ, SEDA 
 
-**Track**: Darkside
+**Track**: BRAINWAVEZ & SEDA - Deep Forward
 
-Last updated at 4/8/2025, 8:28:39 AM
+Last updated at 4/8/2025, 8:31:40 AM
