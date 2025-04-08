@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYyUkGOSXZ1jlxVW-QIsoeA-t500x500.jpg">](https://soundcloud.com/xxena_00/4-mind-xxena-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/frondly/)
 
-**Artist**: xxena 
+**Artist**: Vctmz 
 
-**Track**: 4 MIND [XXENA RMX]
+**Track**: HITBOX (Feat Dojin)
 
-Last updated at 4/8/2025, 9:25:20 AM
+Last updated at 4/8/2025, 1:55:22 PM
