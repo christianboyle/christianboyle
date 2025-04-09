@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHiaO7df2Noj7Iyt-57qXSw-t500x500.png">](https://soundcloud.com/bauti_music/bauti-volume-unit-letmego)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MF8s0nyqUcj2BvMZ-t7KZDw-t500x500.png">](https://soundcloud.com/circuselectric/dream-weaver)
 
-**Artist**: bauti, Volume Unit 
+**Artist**: Convexity x KERO 
 
-**Track**: bauti & Volume Unit - LETMEGO
+**Track**: Dream Weaver
 
-Last updated at 4/9/2025, 3:26:41 PM
+Last updated at 4/9/2025, 3:29:41 PM
