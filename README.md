@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ab32i2iLEoZBuM0R-Y1wBeQ-t500x500.png">](https://soundcloud.com/below_the_surface/wynde-up-mud-muscle?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqJFZiYAx1vWojNw-pHFMow-t500x500.png">](https://soundcloud.com/chromebodies/laserbeam?in=saxurn/sets/frondly/)
 
-**Artist**: Wynde Up 
+**Artist**: CHROMEBODIES, RAY VOLPE 
 
-**Track**: Mud Muscle
+**Track**: LASERBEAM (CHROMEBODIED)
 
-Last updated at 4/9/2025, 8:22:01 AM
+Last updated at 4/9/2025, 8:24:55 AM
