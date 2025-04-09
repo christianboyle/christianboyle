@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGTsNZj9sPC3pqA6-fPSRQg-t500x500.png">](https://soundcloud.com/gehenamusic/touchtheground)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1Znd6san90H-0-t500x500.jpg">](https://soundcloud.com/raydiumsound/rep-my)
 
-**Artist**: Gehena 
+**Artist**: RAYDIUM 
 
-**Track**: Touch the Ground
+**Track**: Rep My
 
-Last updated at 4/9/2025, 2:04:32 PM
+Last updated at 4/9/2025, 2:07:02 PM
