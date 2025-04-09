@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EInxV8zZ2VPUqKTc-jp2fwA-t500x500.png">](https://soundcloud.com/abelationmusic/switchblade-abelation-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGTsNZj9sPC3pqA6-fPSRQg-t500x500.png">](https://soundcloud.com/gehenamusic/touchtheground)
 
-**Artist**: MYTHM 
+**Artist**: Gehena 
 
-**Track**: Switchblade (Abelation Remix)
+**Track**: Touch the Ground
 
-Last updated at 4/9/2025, 2:03:27 PM
+Last updated at 4/9/2025, 2:04:32 PM
