@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOdyAl33ScW8k8GE-MeyiuQ-t500x500.png">](https://soundcloud.com/event-whalien/ployzz-bounce-babe-wha054?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AGQlAyn7d0uEO1y-8y76kw-t500x500.png">](https://soundcloud.com/lumberjvck/earworm?in=saxurn/sets/frondly/)
 
-**Artist**: Whalien 
+**Artist**: LUMBERJVCK, DIALYUP 
 
-**Track**: PLOYZZ - BOUNCE BABE [WHA054]
+**Track**: EARWORM
 
-Last updated at 4/9/2025, 1:44:00 PM
+Last updated at 4/9/2025, 1:48:41 PM
