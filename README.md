@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2KlBtJijZZ1zInPs-wbZpYQ-t500x500.png">](https://soundcloud.com/gltymusic/bugeater)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHiaO7df2Noj7Iyt-57qXSw-t500x500.png">](https://soundcloud.com/bauti_music/bauti-volume-unit-letmego)
 
-**Artist**: GLTY 
+**Artist**: bauti, Volume Unit 
 
-**Track**: AHEE - Bug Eater (GLTY Flip)
+**Track**: bauti & Volume Unit - LETMEGO
 
-Last updated at 4/9/2025, 3:23:26 PM
+Last updated at 4/9/2025, 3:26:41 PM
