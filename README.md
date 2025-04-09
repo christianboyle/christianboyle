@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yH7XgF4D55HVMEzh-AdB2AA-t500x500.png">](https://soundcloud.com/dancingdeadrecords/no?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOdyAl33ScW8k8GE-MeyiuQ-t500x500.png">](https://soundcloud.com/event-whalien/ployzz-bounce-babe-wha054?in=saxurn/sets/frondly/)
 
-**Artist**: CABUIZEE 
+**Artist**: Whalien 
 
-**Track**: CABUIZEE - NO!
+**Track**: PLOYZZ - BOUNCE BABE [WHA054]
 
-Last updated at 4/9/2025, 8:29:51 AM
+Last updated at 4/9/2025, 1:44:00 PM
