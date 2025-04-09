@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOdyAl33ScW8k8GE-MeyiuQ-t500x500.png">](https://soundcloud.com/event-whalien/ployzz-bounce-babe-wha054)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPQ65UyEtDlMN2fG-xDsBKg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/finn-penny-x-liam-parkins-this-is-the-anthem-tntx026?in=saxurn/sets/frondly/)
 
-**Artist**: Whalien 
+**Artist**: TNT 
 
-**Track**: PLOYZZ - BOUNCE BABE [WHA054]
+**Track**: Finn Penny x Liam Parkins – This Is The Anthem [TNTX026]
 
-Last updated at 4/9/2025, 8:08:34 AM
+Last updated at 4/9/2025, 8:12:49 AM
