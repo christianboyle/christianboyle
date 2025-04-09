@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1Znd6san90H-0-t500x500.jpg">](https://soundcloud.com/raydiumsound/rep-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KItEFdv5X7ilZVwp-zkvQeA-t500x500.png">](https://soundcloud.com/madjestickasual/getting-by-1?in=madjestickasual/sets/getting-by-in-my-head-hosted-by-mk)
 
-**Artist**: RAYDIUM 
+**Artist**: Madjestic Kasual 
 
-**Track**: Rep My
+**Track**: Getting by
 
-Last updated at 4/9/2025, 2:07:02 PM
+Last updated at 4/9/2025, 3:03:59 PM
