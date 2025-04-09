@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaHe5rvrpq5lVL1R-5GaqNg-t500x500.jpg">](https://soundcloud.com/huckjorris/c-m-130bpm-gunna-fukumean-huck?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ab32i2iLEoZBuM0R-Y1wBeQ-t500x500.png">](https://soundcloud.com/below_the_surface/wynde-up-mud-muscle?in=saxurn/sets/frondly/)
 
-**Artist**: huck.jorris 
+**Artist**: Wynde Up 
 
-**Track**: gunna - fukumean [huck.jorris flip]
+**Track**: Mud Muscle
 
-Last updated at 4/9/2025, 8:18:55 AM
+Last updated at 4/9/2025, 8:22:01 AM
