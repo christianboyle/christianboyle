@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXzcgiTSA0COc6kU-YTnEIA-t500x500.jpg">](https://soundcloud.com/officialdrumad/canis-sirius-disco-dirtbox-recordings-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X6Om7jGwmin1ycdf-TLQ2zA-t500x500.png">](https://soundcloud.com/whethan/ruffneckflex)
 
-**Artist**: Drumad 
+**Artist**: Whethan 
 
-**Track**: Canis & Sirius - Disco [Dirtbox Recordings] PREMIERE
+**Track**: Skrillex - Ruffneck Flex (Whethan Remix)
 
-Last updated at 4/9/2025, 1:59:07 PM
+Last updated at 4/9/2025, 2:02:27 PM
