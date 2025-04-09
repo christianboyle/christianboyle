@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXzcgiTSA0COc6kU-YTnEIA-t500x500.jpg">](https://soundcloud.com/officialdrumad/canis-sirius-disco-dirtbox-recordings-premiere)
 
-**Artist**: Lookas, Saint Miller 
+**Artist**: Drumad 
 
-**Track**: TIME
+**Track**: Canis & Sirius - Disco [Dirtbox Recordings] PREMIERE
 
-Last updated at 4/9/2025, 1:56:21 PM
+Last updated at 4/9/2025, 1:59:07 PM
