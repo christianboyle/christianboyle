@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4zkRKkFzvLDvm9s-ve2ekQ-t500x500.png">](https://soundcloud.com/officialsullymusic/severanceflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDgwOayUkgna1TmR-fs1EfA-t500x500.jpg">](https://soundcloud.com/fluidspacemusic/kept-me-awake-when-i-was)
 
-**Artist**: Sully, RAWS 
+**Artist**: FLUID SPACE 
 
-**Track**: Severance Theme (Sully x RAWS Flip)
+**Track**: kept me awake when i was asleep
 
-Last updated at 4/10/2025, 5:13:25 PM
+Last updated at 4/10/2025, 5:14:20 PM
