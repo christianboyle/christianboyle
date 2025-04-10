@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ihQbbzlhqfuwQRlf-pfEWgQ-t500x500.png">](https://soundcloud.com/skrillex/fck-u-skrillex-you-think-ur-andy-warhol-but-ur-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFAlBInqyL4qg5YR-kVwANA-t500x500.jpg">](https://soundcloud.com/oli_west/euphoria)
 
-**Artist**: Skrillex 
+**Artist**: Oli West 
 
-**Track**: F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3
+**Track**: Oli West - Euphoria
 
-Last updated at 4/10/2025, 7:27:51 AM
+Last updated at 4/10/2025, 5:12:05 PM
