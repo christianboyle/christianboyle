@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFAlBInqyL4qg5YR-kVwANA-t500x500.jpg">](https://soundcloud.com/oli_west/euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4zkRKkFzvLDvm9s-ve2ekQ-t500x500.png">](https://soundcloud.com/officialsullymusic/severanceflip)
 
-**Artist**: Oli West 
+**Artist**: Sully, RAWS 
 
-**Track**: Oli West - Euphoria
+**Track**: Severance Theme (Sully x RAWS Flip)
 
-Last updated at 4/10/2025, 5:12:05 PM
+Last updated at 4/10/2025, 5:13:25 PM
