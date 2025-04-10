@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ItnzNOyZMACGGDbi-EBXWJA-t500x500.png">](https://soundcloud.com/klubbheads/klubbehads-lift-your-hands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5qaBny3yEyjETF49-oLSE6g-t500x500.png">](https://soundcloud.com/technowereld/premiere-slud-rustycrew-la-panthere-remix-ligh004)
 
-**Artist**: Klubbheads 
+**Artist**: Techno Wereld, Slud, La Panthère 
 
-**Track**: Klubbheads - Lift Your Hands
+**Track**: Premiere: Slud - Rustycrew (La Panthère Remix) [LIGH004]
 
-Last updated at 4/10/2025, 6:29:02 PM
+Last updated at 4/10/2025, 6:30:02 PM
