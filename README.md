@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbDl1dKG6WVmaxov-q8psYA-t500x500.jpg">](https://soundcloud.com/jumble0_0/if-we-ever-meet-again-bootleg?in=saxurn/sets/frondly/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5BGtlJC4EEy4Xyv-waADCQ-t500x500.png">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-my-anthem?in=saxurn/sets/frondly/)
 
-**Artist**: jumble 
+**Artist**: Ghost in Real Life 
 
-**Track**: if we ever meet again
+**Track**: Ghost in Real Life - My Anthem
 
-Last updated at 4/10/2025, 6:40:27 PM
+Last updated at 4/10/2025, 6:44:37 PM
