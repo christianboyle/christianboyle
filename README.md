@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ihQbbzlhqfuwQRlf-pfEWgQ-t500x500.png">](https://soundcloud.com/skrillex/fck-u-skrillex-you-think-ur-andy-warhol-but-ur-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPQ65UyEtDlMN2fG-xDsBKg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/finn-penny-x-liam-parkins-this-is-the-anthem-tntx026)
 
-**Artist**: Skrillex 
+**Artist**: TNT 
 
-**Track**: F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3
+**Track**: Finn Penny x Liam Parkins – This Is The Anthem [TNTX026]
 
-Last updated at 4/10/2025, 6:37:13 PM
+Last updated at 4/10/2025, 6:39:28 PM
