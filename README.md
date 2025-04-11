@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X9kBVDsCk8UpFvZu-d89qrQ-t500x500.jpg">](https://soundcloud.com/sebjin/count)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBfEkyzkcwnDcU6j-IEKFbw-t500x500.png">](https://soundcloud.com/pedicure-records/lipgloss-twinks-intimate-violence)
 
-**Artist**: sebjin 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: COUNT
+**Track**: Lipgloss Twinks - Intimate Violence
 
-Last updated at 4/11/2025, 8:14:23 AM
+Last updated at 4/11/2025, 8:15:18 AM
