@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukJBCadiYb1ENMYy-f0JaRA-t500x500.png">](https://soundcloud.com/psychocybinrec/type99torrent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IvxHQqOhMHvTa8dG-AfGpjQ-t500x500.jpg">](https://soundcloud.com/pirapus/rufus-du-sol-innerbloom-pirapus-bootleg)
 
-**Artist**: Type 99 
+**Artist**: Pirapus 
 
-**Track**: Type 99 - Torrent
+**Track**: Rüfüs Du Sol - Innerbloom (Pirapus Bootleg)
 
-Last updated at 4/11/2025, 7:48:54 AM
+Last updated at 4/11/2025, 8:10:06 AM
