@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cNHYP1BoHIPUzqnR-FfzQyw-t500x500.jpg">](https://soundcloud.com/tomvalbyrotary/charli-xcx-360-tom-vr-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVBrTEqArWzrQ12f-n9BqHQ-t500x500.png">](https://soundcloud.com/tomvalbyrotary/fontaines-d-c-in-the-modern-1)
 
 **Artist**: Tom VR 
 
-**Track**: Charli XCX - 360 (Tom VR Edit)
+**Track**: Fontaines D.C - In The Modern World (Tom VR Edit)
 
-Last updated at 4/11/2025, 10:48:02 AM
+Last updated at 4/11/2025, 10:54:18 AM
