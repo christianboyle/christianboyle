@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmNY3MSsHVYuFDFn-eFC3eg-t500x500.png">](https://soundcloud.com/user_paperskies/thankuskrill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBfEkyzkcwnDcU6j-IEKFbw-t500x500.png">](https://soundcloud.com/pedicure-records/lipgloss-twinks-hotline-miami)
 
-**Artist**: Paper Skies 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: THANK U SKRILLEX
+**Track**: Lipgloss Twinks - Hotline Miami
 
-Last updated at 4/11/2025, 8:16:18 AM
+Last updated at 4/11/2025, 8:19:14 AM
