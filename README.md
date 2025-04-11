@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idl3I7AzGhMsZU3J-fQsglA-t500x500.jpg">](https://soundcloud.com/povoasound/povoa-fuck-la-techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UirzgtD5W9I2vNaC-kPtHSQ-t500x500.png">](https://soundcloud.com/inquisitiveremixes/nolimit)
 
-**Artist**: Povoa 
+**Artist**: Inquisitive [Remixes] 
 
-**Track**: Povoa - Fuck La Techno
+**Track**: 2 Unlimited - No Limit (Inquisitive x SATOSHI x Atomix Remix)
 
-Last updated at 4/11/2025, 11:11:25 AM
+Last updated at 4/11/2025, 11:16:31 AM
