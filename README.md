@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVBrTEqArWzrQ12f-n9BqHQ-t500x500.png">](https://soundcloud.com/tomvalbyrotary/fontaines-d-c-in-the-modern-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc)
 
-**Artist**: Tom VR 
+**Artist**: SUBSICC, M?STIC 
 
-**Track**: Fontaines D.C - In The Modern World (Tom VR Edit)
+**Track**: M?STIC & SUBSICC - ELEVATE
 
-Last updated at 4/11/2025, 10:54:18 AM
+Last updated at 4/11/2025, 11:00:13 AM
