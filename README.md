@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnRySxhxyMkYjUJ9-qdHn0w-t500x500.png">](https://soundcloud.com/elvis-ma-162262106/f0618cba-96f5-4020-a19f-47370ab6e2d3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4eKGjboQF7jWmXU-RToezw-t500x500.png">](https://soundcloud.com/tnt_ofc/premiere-konings-barqiemoon-mad-things)
 
-**Artist**: ElvisK 
+**Artist**: TNT 
 
-**Track**: Bruno Mars - Just The Way You Are (ElvisK - Hard remix) [Full Version in DL]
+**Track**: PREMIERE: Konings & Barqiemoon – Mad Things
 
-Last updated at 4/11/2025, 8:11:01 AM
+Last updated at 4/11/2025, 8:12:16 AM
