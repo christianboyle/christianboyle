@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1MTTqKtoGoDfPIyf-NREdow-t500x500.jpg">](https://soundcloud.com/need-more-speed/tom-hengst-2-zopfe-drickberg-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukJBCadiYb1ENMYy-f0JaRA-t500x500.png">](https://soundcloud.com/psychocybinrec/type99torrent)
 
-**Artist**: Need More Speed 
+**Artist**: Type 99 
 
-**Track**: Tom Hengst - 2 Zöpfe (Drickberg Edit)
+**Track**: Type 99 - Torrent
 
-Last updated at 4/11/2025, 7:47:59 AM
+Last updated at 4/11/2025, 7:48:54 AM
