@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4aTqF0eIpRoJpNE5-ELp6LQ-t500x500.png">](https://soundcloud.com/iamhardstyle/toneshifterz-sdee-lets-go)
 
-**Artist**: SUBSICC, M?STIC 
+**Artist**: I AM HARDSTYLE 
 
-**Track**: M?STIC & SUBSICC - ELEVATE
+**Track**: Toneshifterz & SDEE - Let's Go Party (OMG)
 
-Last updated at 4/11/2025, 11:00:13 AM
+Last updated at 4/11/2025, 11:03:29 AM
