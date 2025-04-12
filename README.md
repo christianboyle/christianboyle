@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idl3I7AzGhMsZU3J-fQsglA-t500x500.jpg">](https://soundcloud.com/povoasound/povoa-fuck-la-techno?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmNY3MSsHVYuFDFn-eFC3eg-t500x500.png">](https://soundcloud.com/user_paperskies/thankuskrill?in=saxurn/sets/curved)
 
-**Artist**: Povoa 
+**Artist**: Paper Skies 
 
-**Track**: Povoa - Fuck La Techno
+**Track**: THANK U SKRILLEX
 
-Last updated at 4/12/2025, 11:37:25 AM
+Last updated at 4/12/2025, 11:46:11 AM
