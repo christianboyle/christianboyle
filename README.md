@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UirzgtD5W9I2vNaC-kPtHSQ-t500x500.png">](https://soundcloud.com/inquisitiveremixes/nolimit?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-id9AKuRcSqsEQTTo-Gmw8YA-t500x500.png">](https://soundcloud.com/lucatestamusic/bow-chi-bow-hypertechno)
 
-**Artist**: Inquisitive [Remixes] 
+**Artist**: Luca Testa 
 
-**Track**: 2 Unlimited - No Limit (Inquisitive x SATOSHI x Atomix Remix)
+**Track**: Luca Testa & Phil Od - Bow Chi Bow [Techno Remix]
 
-Last updated at 4/12/2025, 11:15:16 AM
+Last updated at 4/12/2025, 11:18:07 AM
