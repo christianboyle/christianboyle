@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywgLtzeNDONP20En-Mx4z4g-t500x500.png">](https://soundcloud.com/badmouthrecs/small-talk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxuVEsoxsQSwfhq1-uZMsIg-t500x500.png">](https://soundcloud.com/ravenscoon/sbtrkt-wildfire-ravenscoon-x-emurse-flip)
 
-**Artist**: TOE 
+**Artist**: RAVENSCOON, Emurse 
 
-**Track**: SMALL TALK
+**Track**: SBTRKT - Wildfire (RAVENSCOON x Emurse Flip)
 
-Last updated at 4/12/2025, 7:13:16 AM
+Last updated at 4/12/2025, 7:14:16 AM
