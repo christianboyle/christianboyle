@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fmNY3MSsHVYuFDFn-eFC3eg-t500x500.png">](https://soundcloud.com/user_paperskies/thankuskrill?in=saxurn/sets/curved)
 
-**Artist**: SUBSICC, M?STIC 
+**Artist**: Paper Skies 
 
-**Track**: M?STIC & SUBSICC - ELEVATE
+**Track**: THANK U SKRILLEX
 
-Last updated at 4/12/2025, 11:00:45 AM
+Last updated at 4/12/2025, 11:05:18 AM
