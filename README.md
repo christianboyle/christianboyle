@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d2RPtvFxV6O2VX9a-wjaWYg-t500x500.jpg">](https://soundcloud.com/bundarr/illadelph-what-lonely-does)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4zkRKkFzvLDvm9s-ve2ekQ-t500x500.png">](https://soundcloud.com/officialsullymusic/severanceflip)
 
-**Artist**: Bundarr, Illadelph 
+**Artist**: Sully, RAWS 
 
-**Track**: ILLADELPH - WHAT LONELY DOES (Bundarr Remix) FREE DOWNLOAD
+**Track**: Severance Theme (Sully x RAWS Flip)
 
-Last updated at 4/12/2025, 7:40:48 AM
+Last updated at 4/12/2025, 7:44:08 AM
