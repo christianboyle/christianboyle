@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xf5fe9o1wgZkyfsG-wLfmEQ-t500x500.jpg">](https://soundcloud.com/applecrosscollective/applecross-mix-series-006-quartzzion-opulence-in-all-of-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgON2wq5gTrQcfbq-CyOC5Q-t500x500.jpg">](https://soundcloud.com/reapernoises/15th-and-the-1st)
 
-**Artist**: Applecross Collective 
+**Artist**: REAPER 
 
-**Track**: Applecross Mix Series 006: Quartzzion - opulence in all of us
+**Track**: Gucci Mane & Waka Flocka Flame - 15th and the 1st (REAPER Flip)
 
-Last updated at 4/12/2025, 7:16:16 AM
+Last updated at 4/12/2025, 7:17:17 AM
