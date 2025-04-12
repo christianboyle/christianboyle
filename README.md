@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idl3I7AzGhMsZU3J-fQsglA-t500x500.jpg">](https://soundcloud.com/povoasound/povoa-fuck-la-techno?in=saxurn/sets/curved)
 
-**Artist**: SUBSICC, M?STIC 
+**Artist**: Povoa 
 
-**Track**: M?STIC & SUBSICC - ELEVATE
+**Track**: Povoa - Fuck La Techno
 
-Last updated at 4/12/2025, 11:32:59 AM
+Last updated at 4/12/2025, 11:37:25 AM
