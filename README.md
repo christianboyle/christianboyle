@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie?in=saxurn/sets/no-scope/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cNHYP1BoHIPUzqnR-FfzQyw-t500x500.jpg">](https://soundcloud.com/tomvalbyrotary/charli-xcx-360-tom-vr-edit-1?in=saxurn/sets/no-scope/)
 
-**Artist**: DJ KELSEY, yx2 
+**Artist**: Tom VR 
 
-**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
+**Track**: Charli XCX - 360 (Tom VR Edit)
 
-Last updated at 4/12/2025, 10:20:00 AM
+Last updated at 4/12/2025, 10:50:12 AM
