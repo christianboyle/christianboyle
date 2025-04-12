@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqJFZiYAx1vWojNw-pHFMow-t500x500.png">](https://soundcloud.com/chromebodies/laserbeam?in=saxurn/sets/frondly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yH7XgF4D55HVMEzh-AdB2AA-t500x500.png">](https://soundcloud.com/dancingdeadrecords/no?in=saxurn/sets/frondly)
 
-**Artist**: CHROMEBODIES, RAY VOLPE 
+**Artist**: CABUIZEE 
 
-**Track**: LASERBEAM (CHROMEBODIED)
+**Track**: CABUIZEE - NO!
 
-Last updated at 4/12/2025, 12:14:58 PM
+Last updated at 4/12/2025, 12:19:54 PM
