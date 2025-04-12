@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cNHYP1BoHIPUzqnR-FfzQyw-t500x500.jpg">](https://soundcloud.com/tomvalbyrotary/charli-xcx-360-tom-vr-edit-1?in=saxurn/sets/curved)
 
-**Artist**: Vctmz 
+**Artist**: Tom VR 
 
-**Track**: HITBOX (Feat Dojin)
+**Track**: Charli XCX - 360 (Tom VR Edit)
 
-Last updated at 4/12/2025, 6:33:59 PM
+Last updated at 4/12/2025, 6:35:19 PM
