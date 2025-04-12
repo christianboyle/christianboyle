@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-id9AKuRcSqsEQTTo-Gmw8YA-t500x500.png">](https://soundcloud.com/lucatestamusic/bow-chi-bow-hypertechno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox?in=saxurn/sets/curved)
 
-**Artist**: Luca Testa 
+**Artist**: Vctmz 
 
-**Track**: Luca Testa & Phil Od - Bow Chi Bow [Techno Remix]
+**Track**: HITBOX (Feat Dojin)
 
-Last updated at 4/12/2025, 11:18:07 AM
+Last updated at 4/12/2025, 11:22:33 AM
