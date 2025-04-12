@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-id9AKuRcSqsEQTTo-Gmw8YA-t500x500.png">](https://soundcloud.com/lucatestamusic/bow-chi-bow-hypertechno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x6gVgwb0VZqlVykI-f08Xtw-t500x500.jpg">](https://soundcloud.com/lucatestamusic/chemicals)
 
-**Artist**: Luca Testa 
+**Artist**: Luca Testa, Goldistic, Alex D'Rosso 
 
-**Track**: Luca Testa & Phil Od - Bow Chi Bow [Techno Remix]
+**Track**: Chemicals
 
-Last updated at 4/12/2025, 10:17:28 AM
+Last updated at 4/12/2025, 10:18:28 AM
