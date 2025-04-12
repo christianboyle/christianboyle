@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GzCRvdShOJhka3k-jg3xHA-t500x500.jpg">](https://soundcloud.com/woddofficial/riddim-tale-kannibalen-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SFJ77J9lwgxYeSeT-QWrxfA-t500x500.png">](https://soundcloud.com/slothmuzik/skrillex-bangarang-ft-sirah-sloth-flip)
 
-**Artist**: Wodd 
+**Artist**: SLOTH 
 
-**Track**: RIDDIM TALE [Kannibalen Records]
+**Track**: SKRILLEX - BANGARANG (FT. SIRAH) (SLOTH FLIP) (FREE DOWNLOAD)
 
-Last updated at 4/12/2025, 7:55:04 AM
+Last updated at 4/12/2025, 9:03:11 AM
