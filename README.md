@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UirzgtD5W9I2vNaC-kPtHSQ-t500x500.png">](https://soundcloud.com/inquisitiveremixes/nolimit?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5BGtlJC4EEy4Xyv-waADCQ-t500x500.png">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-my-anthem?in=saxurn/sets/frondly)
 
-**Artist**: Inquisitive [Remixes] 
+**Artist**: Ghost in Real Life 
 
-**Track**: 2 Unlimited - No Limit (Inquisitive x SATOSHI x Atomix Remix)
+**Track**: Ghost in Real Life - My Anthem
 
-Last updated at 4/12/2025, 11:54:46 AM
+Last updated at 4/12/2025, 12:06:53 PM
