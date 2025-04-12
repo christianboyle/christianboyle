@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRmhePgI2gmL4HE2-gZwqFA-t500x500.png">](https://soundcloud.com/aychofficial/schoolboy-q-collard-greens-feat-kendrick-lamar-aych-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sedRGzxPUzP4jsP-gt1rsw-t500x500.png">](https://soundcloud.com/itsydg/cloonee-young-ma-inntraw-stephanie-ydg-remix)
 
-**Artist**: AYCH 
+**Artist**: YDG 
 
-**Track**: Schoolboy Q - Collard Greens feat. Kendrick Lamar (AYCH FLIP)
+**Track**: Cloonee, Young M.A. & InntRaw - Stephanie (YDG Remix)
 
-Last updated at 4/12/2025, 9:07:17 AM
+Last updated at 4/12/2025, 9:56:31 AM
