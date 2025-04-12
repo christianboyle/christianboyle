@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sedRGzxPUzP4jsP-gt1rsw-t500x500.png">](https://soundcloud.com/itsydg/cloonee-young-ma-inntraw-stephanie-ydg-remix?in=saxurn/sets/curved/)
 
-**Artist**: Vctmz 
+**Artist**: YDG 
 
-**Track**: HITBOX (Feat Dojin)
+**Track**: Cloonee, Young M.A. & InntRaw - Stephanie (YDG Remix)
 
-Last updated at 4/12/2025, 11:10:07 AM
+Last updated at 4/12/2025, 11:11:06 AM
