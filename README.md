@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Qqd7V18GbsBTHnl-RGKOsA-t500x500.png">](https://soundcloud.com/lucatestamusic/say-it-right-hypertechno?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5KFzjKKIvvengUcy-z4bQNw-t500x500.jpg">](https://soundcloud.com/monstercat/nanobii-blush?in=saxurn/sets/curved)
 
-**Artist**: Luca Testa 
+**Artist**: nanobii 
 
-**Track**: Luca Testa, Lex & Jay - Say It Right [Techno Remix]
+**Track**: nanobii - BLUSH
 
-Last updated at 4/12/2025, 11:49:51 AM
+Last updated at 4/12/2025, 11:51:56 AM
