@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D4zkRKkFzvLDvm9s-ve2ekQ-t500x500.png">](https://soundcloud.com/officialsullymusic/severanceflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gaLoHIjGb7NVdoWK-UifZwg-t500x500.jpg">](https://soundcloud.com/gardella/vibrate)
 
-**Artist**: Sully, RAWS 
+**Artist**: Gardella 
 
-**Track**: Severance Theme (Sully x RAWS Flip)
+**Track**: Gardella - Vibrate
 
-Last updated at 4/12/2025, 7:44:08 AM
+Last updated at 4/12/2025, 7:45:48 AM
