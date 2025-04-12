@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLz5Q8fONZzLzXfF-rWjk0A-t500x500.jpg">](https://soundcloud.com/nght_vzn/run-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie?in=saxurn/sets/curved)
 
-**Artist**: NGHT VZN 
+**Artist**: DJ KELSEY, yx2 
 
-**Track**: RUN IT BACK
+**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
 
-Last updated at 4/12/2025, 6:36:19 PM
+Last updated at 4/12/2025, 6:38:09 PM
