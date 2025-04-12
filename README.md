@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sedRGzxPUzP4jsP-gt1rsw-t500x500.png">](https://soundcloud.com/itsydg/cloonee-young-ma-inntraw-stephanie-ydg-remix?in=saxurn/sets/curved)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc?in=saxurn/sets/curved)
 
-**Artist**: YDG 
+**Artist**: SUBSICC, M?STIC 
 
-**Track**: Cloonee, Young M.A. & InntRaw - Stephanie (YDG Remix)
+**Track**: M?STIC & SUBSICC - ELEVATE
 
-Last updated at 4/12/2025, 11:30:09 AM
+Last updated at 4/12/2025, 11:32:59 AM
