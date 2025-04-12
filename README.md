@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-my7RljhSZ9mGCj3V-oiqsdw-t500x500.png">](https://soundcloud.com/tape-b-official/effin-x-tape-b-ups-and-downs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24dRUBCgLTHx5r1e-zw8bHw-t500x500.jpg">](https://soundcloud.com/mavicbeats/kiss-me-thru-the-phone-mavic-flip-1)
 
-**Artist**: Tape B, Effin 
+**Artist**: MAVIC 
 
-**Track**: Effin x Tape B - Ups and Downs
+**Track**: KISS ME THRU THE PHONE (MAVIC FLIP)
 
-Last updated at 4/12/2025, 7:18:42 AM
+Last updated at 4/12/2025, 7:20:07 AM
