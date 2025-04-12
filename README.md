@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie?in=saxurn/sets/no-scope/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmqsONugkugMFiiQ-rHEpyw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/asap-ferg-work-proppa-rich-dietz-smith-sorren-edit?in=saxurn/sets/no-scope/)
 
-**Artist**: DJ KELSEY, yx2 
+**Artist**: Hood Politics Records Edits 
 
-**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
+**Track**: ASAP Ferg - Work (Proppa, Rich DietZ, Smith & Sorren Edit) [SUPPORTED BY DIPLO, ALESSO, TIESTO)]
 
-Last updated at 4/12/2025, 10:15:14 AM
+Last updated at 4/12/2025, 10:16:18 AM
