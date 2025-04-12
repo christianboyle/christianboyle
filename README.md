@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idl3I7AzGhMsZU3J-fQsglA-t500x500.jpg">](https://soundcloud.com/povoasound/povoa-fuck-la-techno?in=saxurn/sets/curved/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ae9dJtNU3BITHTm-Kh4ywg-t500x500.png">](https://soundcloud.com/vctmzz/hitbox)
 
-**Artist**: Povoa 
+**Artist**: Vctmz 
 
-**Track**: Povoa - Fuck La Techno
+**Track**: HITBOX (Feat Dojin)
 
-Last updated at 4/12/2025, 11:08:36 AM
+Last updated at 4/12/2025, 11:10:07 AM
