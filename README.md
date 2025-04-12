@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmqsONugkugMFiiQ-rHEpyw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/asap-ferg-work-proppa-rich-dietz-smith-sorren-edit?in=saxurn/sets/no-scope/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-id9AKuRcSqsEQTTo-Gmw8YA-t500x500.png">](https://soundcloud.com/lucatestamusic/bow-chi-bow-hypertechno)
 
-**Artist**: Hood Politics Records Edits 
+**Artist**: Luca Testa 
 
-**Track**: ASAP Ferg - Work (Proppa, Rich DietZ, Smith & Sorren Edit) [SUPPORTED BY DIPLO, ALESSO, TIESTO)]
+**Track**: Luca Testa & Phil Od - Bow Chi Bow [Techno Remix]
 
-Last updated at 4/12/2025, 10:16:18 AM
+Last updated at 4/12/2025, 10:17:28 AM
