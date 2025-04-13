@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFQrFPbs7MdOvWx8-w1vLpQ-t500x500.png">](https://soundcloud.com/psychocybinrec/tron3xtakemeaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ3un8N0Opg5kRyL-zKQ9aA-t500x500.jpg">](https://soundcloud.com/kimatimusic/kimati-x-zurglin-ft)
 
-**Artist**: TRON3X 
+**Artist**: Kimati, ZURGLIN, CONTEMPORARY VICE 
 
-**Track**: TRON3X - Take Me Away
+**Track**: Bad In A Good Way - Kimati , ZURGLIN , CONTEMPORARY VICE
 
-Last updated at 4/13/2025, 8:52:53 AM
+Last updated at 4/13/2025, 8:53:59 AM
