@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-id9AKuRcSqsEQTTo-Gmw8YA-t500x500.png">](https://soundcloud.com/lucatestamusic/bow-chi-bow-hypertechno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-znxgzm1x5f3DUzpl-u2ZrQw-t500x500.png">](https://soundcloud.com/subsicc_sound/elevate-mstic-subsicc)
 
-**Artist**: Luca Testa 
+**Artist**: SUBSICC, M?STIC 
 
-**Track**: Luca Testa & Phil Od - Bow Chi Bow [Techno Remix]
+**Track**: M?STIC & SUBSICC - ELEVATE
 
-Last updated at 4/13/2025, 8:38:18 AM
+Last updated at 4/13/2025, 8:40:28 AM
