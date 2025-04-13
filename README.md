@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QZ3un8N0Opg5kRyL-zKQ9aA-t500x500.jpg">](https://soundcloud.com/kimatimusic/kimati-x-zurglin-ft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eP4zz0Hl1WYHC3Bp-4NDKlw-t500x500.jpg">](https://soundcloud.com/itzkeylo614/keylo-vibe)
 
-**Artist**: Kimati, ZURGLIN, CONTEMPORARY VICE 
+**Artist**: Keylo 
 
-**Track**: Bad In A Good Way - Kimati , ZURGLIN , CONTEMPORARY VICE
+**Track**: KEYLO - VIBE
 
-Last updated at 4/13/2025, 8:53:59 AM
+Last updated at 4/13/2025, 8:54:59 AM
