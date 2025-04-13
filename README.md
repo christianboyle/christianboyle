@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qwhQHSAtt8ZIZCV1-x0ARpQ-t500x500.png">](https://soundcloud.com/2tdmusic/playboi-carti-hba-2td-fip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kUdU4AFCIC9KUHHu-7OzU9Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-im-bored-original-mix)
 
-**Artist**: 2TD 
+**Artist**: Fatal Energy Records 
 
-**Track**: PLAYBOI CARTI - HBA [2TD FLIP]
+**Track**: Amaru - I'm Bored (Original Mix)
 
-Last updated at 4/13/2025, 8:50:48 AM
+Last updated at 4/13/2025, 8:51:48 AM
