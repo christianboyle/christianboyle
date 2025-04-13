@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kUdU4AFCIC9KUHHu-7OzU9Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-im-bored-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mFQrFPbs7MdOvWx8-w1vLpQ-t500x500.png">](https://soundcloud.com/psychocybinrec/tron3xtakemeaway)
 
-**Artist**: Fatal Energy Records 
+**Artist**: TRON3X 
 
-**Track**: Amaru - I'm Bored (Original Mix)
+**Track**: TRON3X - Take Me Away
 
-Last updated at 4/13/2025, 8:51:48 AM
+Last updated at 4/13/2025, 8:52:53 AM
