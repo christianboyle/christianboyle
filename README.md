@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOkBhxPoCaXHlnvc-B0Uz2A-t500x500.png">](https://soundcloud.com/keyvslocket/halfenough)
 
-**Artist**: DJ KELSEY, yx2 
+**Artist**: keyvslocket 
 
-**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
+**Track**: half enough
 
-Last updated at 4/14/2025, 9:06:27 AM
+Last updated at 4/14/2025, 9:10:17 AM
