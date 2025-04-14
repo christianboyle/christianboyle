@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0UEzwGb4mLvEF09F-MGBxzg-t500x500.jpg">](https://soundcloud.com/user_paperskies/thankuskrill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wJn5gBs1MU6MnKo-C2rdJA-t500x500.png">](https://soundcloud.com/radiorudina/kichta-radio-rudina)
 
-**Artist**: Paper Skies 
+**Artist**: Radio Rudina 
 
-**Track**: THANK U SKRILLEX
+**Track**: Kichta | Radio Rudina
 
-Last updated at 4/14/2025, 9:13:33 AM
+Last updated at 4/14/2025, 9:15:13 AM
