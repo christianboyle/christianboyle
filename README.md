@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SwRfxR3bYe2MsD1i-CzWWbA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-diversion-space-between-worlds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOABD0MzRHQps31Z-lF40aQ-t500x500.png">](https://soundcloud.com/rothlisbeats/worth-it)
 
-**Artist**: TRANSITION 
+**Artist**: Rothlis 
 
-**Track**: PREMIERE: DIVERSION – Space Between Worlds
+**Track**: WORTH IT
 
-Last updated at 4/14/2025, 8:35:01 AM
+Last updated at 4/14/2025, 8:36:26 AM
