@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wJn5gBs1MU6MnKo-C2rdJA-t500x500.png">](https://soundcloud.com/radiorudina/kichta-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cs9otQPOMMxAJ2zR-DKyTYg-t500x500.jpg">](https://soundcloud.com/karmalasting/woundsallovermybody)
 
-**Artist**: Radio Rudina 
+**Artist**: ren 
 
-**Track**: Kichta | Radio Rudina
+**Track**: misery
 
-Last updated at 4/14/2025, 8:41:52 AM
+Last updated at 4/14/2025, 8:43:30 AM
