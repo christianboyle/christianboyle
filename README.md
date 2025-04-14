@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sedRGzxPUzP4jsP-gt1rsw-t500x500.png">](https://soundcloud.com/itsydg/cloonee-young-ma-inntraw-stephanie-ydg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie)
 
-**Artist**: YDG 
+**Artist**: DJ KELSEY, yx2 
 
-**Track**: Cloonee, Young M.A. & InntRaw - Stephanie (YDG Remix)
+**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
 
-Last updated at 4/14/2025, 9:02:07 AM
+Last updated at 4/14/2025, 9:06:27 AM
