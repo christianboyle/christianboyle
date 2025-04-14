@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wJn5gBs1MU6MnKo-C2rdJA-t500x500.png">](https://soundcloud.com/radiorudina/kichta-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uU3ATfdu49sL-0-t500x500.jpg">](https://soundcloud.com/jawnino/sweden-freestyle)
 
-**Artist**: Radio Rudina 
+**Artist**: Jawnino 
 
-**Track**: Kichta | Radio Rudina
+**Track**: Sweden Freestyle
 
-Last updated at 4/14/2025, 9:15:13 AM
+Last updated at 4/14/2025, 10:14:54 AM
