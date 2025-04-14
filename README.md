@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cs9otQPOMMxAJ2zR-DKyTYg-t500x500.jpg">](https://soundcloud.com/karmalasting/woundsallovermybody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nyml6HQTp6GNmE6o-j2hLZQ-t500x500.jpg">](https://soundcloud.com/uhenzo/she-want-my-tip-bad-w-priv)
 
-**Artist**: ren 
+**Artist**: enzo 
 
-**Track**: misery
+**Track**: she want my tip bad w/ priv (priv)
 
-Last updated at 4/14/2025, 8:43:30 AM
+Last updated at 4/14/2025, 8:45:35 AM
