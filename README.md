@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq9DkYNR7kiEpHoP-cvZg1g-t500x500.jpg">](https://soundcloud.com/tanfa/dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geHb2aN1OYf3vdzu-DDTqDw-t500x500.png">](https://soundcloud.com/sickish/cubeflip)
 
-**Artist**: TANFA 
+**Artist**: SICKISH 
 
-**Track**: dancefloor
+**Track**: CUBEFLIP
 
-Last updated at 4/15/2025, 5:25:43 PM
+Last updated at 4/15/2025, 6:50:25 PM
