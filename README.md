@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lqjMvCjmLe789zzG-UYMc3g-t500x500.png">](https://soundcloud.com/barongfamily/bromad-flashcult-lift-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjOXUsFMESyffLdF-vAzzFA-t500x500.png">](https://soundcloud.com/vyharamusic/thats-the-one)
 
-**Artist**: Bromad & Flashcult 
+**Artist**: Vyhara 
 
-**Track**: Bromad & Flashcult - Lift Me Up!
+**Track**: That's The One
 
-Last updated at 4/15/2025, 8:57:19 AM
+Last updated at 4/15/2025, 8:58:19 AM
