@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0IQVnAUCFRSG2LS-YyfRvw-t500x500.png">](https://soundcloud.com/user-349505379/noirodyn-portal-head-nrx-5252-02-party-crash-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qdJ0gcPbKqIaRI7-BEjPfw-t500x500.jpg">](https://soundcloud.com/zoinks_mp3/zoinks-blow-up-v3)
 
-**Artist**: Noirodyn 
+**Artist**: Zoinks 
 
-**Track**: Noirodyn - Portal Head (NRX-5252) - 02 Party & Crash
+**Track**: Blow Up [Free Download]
 
-Last updated at 4/15/2025, 7:43:12 AM
+Last updated at 4/15/2025, 8:19:30 AM
