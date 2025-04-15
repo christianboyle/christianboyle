@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyyTmlKTFGpTMs8o-rksaGg-t500x500.jpg">](https://soundcloud.com/emorave/half-dead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsyiQP8JRE28ojeK-E0p1bA-t500x500.png">](https://soundcloud.com/digitalvibrationshq/sevsky-rave-final)
 
-**Artist**: emorave 
+**Artist**: Digital Vibrations 
 
-**Track**: half dead prod. kuru & ginseng
+**Track**: SEVSKY - Rave
 
-Last updated at 4/15/2025, 8:40:22 AM
+Last updated at 4/15/2025, 8:43:38 AM
