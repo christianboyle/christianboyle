@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9HGdJNUDivDXnSxo-MErtwQ-t500x500.png">](https://soundcloud.com/marmaaaaa/dont-ever-let-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFx7pe70hIqyJGAA-9zsHHw-t500x500.jpg">](https://soundcloud.com/hallucinate/wherehaveyoubeenflip)
 
-**Artist**: MARMA 
+**Artist**: Hallucinate 
 
-**Track**: Dont Ever Let Go
+**Track**: Where Have You Been (Hallucinate Flip)
 
-Last updated at 4/15/2025, 8:50:43 AM
+Last updated at 4/15/2025, 8:53:48 AM
