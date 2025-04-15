@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mq6OZbJb1D3ze0Ig-kdYCHw-t500x500.jpg">](https://soundcloud.com/whosdiced/das-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geHb2aN1OYf3vdzu-DDTqDw-t500x500.png">](https://soundcloud.com/sickish/cubeflip)
 
-**Artist**: 01ashes 
+**Artist**: SICKISH 
 
-**Track**: ssign outt prod. ginseng
+**Track**: CUBEFLIP
 
-Last updated at 4/15/2025, 8:59:19 AM
+Last updated at 4/15/2025, 9:00:24 AM
