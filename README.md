@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Jux4u9ZbmMjdKMyU-Ml9f2w-t500x500.jpg">](https://soundcloud.com/dopecontents/see-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eBGN2W85P5u17rzl-r5wgbg-t500x500.jpg">](https://soundcloud.com/djstephenhurtley/saberz-vs-lady-gaga-no-bloody-angels-stephen-hurtley-edit)
 
-**Artist**: tamara 
+**Artist**: Stephen Hurtley 
 
-**Track**: See you
+**Track**: SaberZ vs. Lady Gaga - No Bloody Angels (Stephen Hurtley Edit)
 
-Last updated at 4/15/2025, 7:14:59 AM
+Last updated at 4/15/2025, 7:32:46 AM
