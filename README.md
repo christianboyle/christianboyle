@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0CNpxNi5DbBooMi1-0rNAZw-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-x-alox-sexy-sexy-bpx040-pt9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5Vz31zF8JO43Ral-2cFNqg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/every-nightt)
 
-**Artist**: HATE, X-Alox 
+**Artist**: AJSE 
 
-**Track**: Premiere: X-Alox — Sexy Sexy [BPX040-PT9]
+**Track**: AJSE - Every Night [Gold Digger]
 
-Last updated at 4/15/2025, 8:24:16 AM
+Last updated at 4/15/2025, 8:35:32 AM
