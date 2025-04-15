@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geHb2aN1OYf3vdzu-DDTqDw-t500x500.png">](https://soundcloud.com/sickish/cubeflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70dE6c4EwShGo01R-2eUs0w-t500x500.png">](https://soundcloud.com/mantra_sounds/split-lip)
 
-**Artist**: SICKISH 
+**Artist**: Mantra Sounds 
 
-**Track**: CUBEFLIP
+**Track**: Split Lip
 
-Last updated at 4/15/2025, 9:00:24 AM
+Last updated at 4/15/2025, 9:02:29 AM
