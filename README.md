@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CxyPHYiidI4OR4my-PYTTZA-t500x500.png">](https://soundcloud.com/gewoonraves/aa6d6ceb-d77d-452e-a1b7-99d06fe41c22)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1sedRGzxPUzP4jsP-gt1rsw-t500x500.png">](https://soundcloud.com/itsydg/cloonee-young-ma-inntraw-stephanie-ydg-remix)
 
-**Artist**: GEWOONRAVES 
+**Artist**: YDG 
 
-**Track**: [FREE DL] FHNX x 808Donkey x GEWOONRAVES - HARD PHONK (EXTENDED MIX)
+**Track**: Cloonee, Young M.A. & InntRaw - Stephanie (YDG Remix)
 
-Last updated at 4/14/2025, 12:47:30 PM
+Last updated at 4/15/2025, 7:07:56 AM
