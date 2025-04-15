@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fjOXUsFMESyffLdF-vAzzFA-t500x500.png">](https://soundcloud.com/vyharamusic/thats-the-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mq6OZbJb1D3ze0Ig-kdYCHw-t500x500.jpg">](https://soundcloud.com/whosdiced/das-me)
 
-**Artist**: Vyhara 
+**Artist**: 01ashes 
 
-**Track**: That's The One
+**Track**: ssign outt prod. ginseng
 
-Last updated at 4/15/2025, 8:58:19 AM
+Last updated at 4/15/2025, 8:59:19 AM
