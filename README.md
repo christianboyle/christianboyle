@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C0x5iaKq5VuzbzFQ-LiJisg-t500x500.jpg">](https://soundcloud.com/itzkeylo614/fomo-xlnt-lose-control-keylo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NIzhdW4VXDFCMcIz-mrhDIw-t500x500.jpg">](https://soundcloud.com/wastelvndrecords/scafetta-my-mourning-face)
 
-**Artist**: Keylo 
+**Artist**: WASTELVND RECORDS 
 
-**Track**: FOMO & XLNT - LOSE CONTROL (KEYLO FLIP)
+**Track**: SCAFETTA - MY MOURNING FACE
 
-Last updated at 4/15/2025, 8:22:06 AM
+Last updated at 4/15/2025, 8:23:16 AM
