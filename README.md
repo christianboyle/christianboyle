@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qdJ0gcPbKqIaRI7-BEjPfw-t500x500.jpg">](https://soundcloud.com/zoinks_mp3/zoinks-blow-up-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6GkPpyTwenzNzdBu-2yocNA-t500x500.jpg">](https://soundcloud.com/duma_dubs/duma-born-dead)
 
-**Artist**: Zoinks 
+**Artist**: DUMA 
 
-**Track**: Blow Up [Free Download]
+**Track**: DUMA - Born Dead [FREE DL]
 
-Last updated at 4/15/2025, 8:19:30 AM
+Last updated at 4/15/2025, 8:20:55 AM
