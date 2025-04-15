@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6GkPpyTwenzNzdBu-2yocNA-t500x500.jpg">](https://soundcloud.com/duma_dubs/duma-born-dead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C0x5iaKq5VuzbzFQ-LiJisg-t500x500.jpg">](https://soundcloud.com/itzkeylo614/fomo-xlnt-lose-control-keylo-flip)
 
-**Artist**: DUMA 
+**Artist**: Keylo 
 
-**Track**: DUMA - Born Dead [FREE DL]
+**Track**: FOMO & XLNT - LOSE CONTROL (KEYLO FLIP)
 
-Last updated at 4/15/2025, 8:20:55 AM
+Last updated at 4/15/2025, 8:22:06 AM
