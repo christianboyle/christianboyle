@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5nrPjMEMjrp9Ffgc-KDUCZg-t500x500.jpg">](https://soundcloud.com/bo0tyleak/ili)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CxyPHYiidI4OR4my-PYTTZA-t500x500.png">](https://soundcloud.com/gewoonraves/aa6d6ceb-d77d-452e-a1b7-99d06fe41c22)
 
-**Artist**: BOOTY LEAK, Sticky Key, TECHNO KING 
+**Artist**: GEWOONRAVES 
 
-**Track**: Booty Leak + Sticky Key & TECHNO KING - I Like It [ FREE DOWNLOAD ]
+**Track**: [FREE DL] FHNX x 808Donkey x GEWOONRAVES - HARD PHONK (EXTENDED MIX)
 
-Last updated at 4/15/2025, 7:10:15 AM
+Last updated at 4/15/2025, 7:12:21 AM
