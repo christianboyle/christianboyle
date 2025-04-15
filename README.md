@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OsyiQP8JRE28ojeK-E0p1bA-t500x500.png">](https://soundcloud.com/digitalvibrationshq/sevsky-rave-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vOABD0MzRHQps31Z-lF40aQ-t500x500.png">](https://soundcloud.com/rothlisbeats/worth-it)
 
-**Artist**: Digital Vibrations 
+**Artist**: Rothlis 
 
-**Track**: SEVSKY - Rave
+**Track**: WORTH IT
 
-Last updated at 4/15/2025, 8:43:38 AM
+Last updated at 4/15/2025, 8:47:23 AM
