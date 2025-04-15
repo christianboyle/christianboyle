@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5Vz31zF8JO43Ral-2cFNqg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/every-nightt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H3TeXTi1nBPa2yCK-uUYwUA-t500x500.png">](https://soundcloud.com/whethan/blicksum)
 
-**Artist**: AJSE 
+**Artist**: Whethan 
 
-**Track**: AJSE - Every Night [Gold Digger]
+**Track**: Latto, Playboi Carti - Blick Sum (Whethan Remix)
 
-Last updated at 4/15/2025, 8:35:32 AM
+Last updated at 4/15/2025, 8:37:27 AM
