@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xojLkK1EqByyJ9ls-n9oFkw-t500x500.png">](https://soundcloud.com/margam8/656f9ce4-2dc1-48db-8d1e-693e81d40257)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0IQVnAUCFRSG2LS-YyfRvw-t500x500.png">](https://soundcloud.com/user-349505379/noirodyn-portal-head-nrx-5252-02-party-crash-2)
 
-**Artist**: Marga 
+**Artist**: Noirodyn 
 
-**Track**: KISSES (MARGA EDIT)
+**Track**: Noirodyn - Portal Head (NRX-5252) - 02 Party & Crash
 
-Last updated at 4/15/2025, 7:42:12 AM
+Last updated at 4/15/2025, 7:43:12 AM
