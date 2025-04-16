@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyyTmlKTFGpTMs8o-rksaGg-t500x500.jpg">](https://soundcloud.com/emorave/half-dead?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wALx9hKnlSzgXcmo-1Z3UpQ-t500x500.jpg">](https://soundcloud.com/exhaleofc/flkn-rumble?in=saxurn/sets/wheezing/)
 
-**Artist**: emorave 
+**Artist**: FLKN 
 
-**Track**: half dead prod. kuru & ginseng
+**Track**: FLKN - Rumble
 
-Last updated at 4/16/2025, 11:04:18 AM
+Last updated at 4/16/2025, 11:07:34 AM
