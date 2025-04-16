@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwrzhrZ1Hyy55XQZ-HEfL7A-t500x500.jpg">](https://soundcloud.com/vyharamusic/didntknow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXVgPRsHrSC9byzU-szbGPA-t500x500.png">](https://soundcloud.com/maeliveson/icarus-lyn-2rel?in=saxurn/sets/wheezing/)
 
-**Artist**: Vyhara 
+**Artist**: maeri 
 
-**Track**: Didn't Know
+**Track**: icarus (lyn + 2rel)
 
-Last updated at 4/16/2025, 9:00:10 AM
+Last updated at 4/16/2025, 9:01:25 AM
