@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwrzhrZ1Hyy55XQZ-HEfL7A-t500x500.jpg">](https://soundcloud.com/vyharamusic/didntknow?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FF6OEcGguLVSTosU-MHpEDg-t500x500.png">](https://soundcloud.com/weewahofficial/wyha-weemix-finale?in=saxurn/sets/wheezing/)
 
-**Artist**: Vyhara 
+**Artist**: Weewah 
 
-**Track**: Didn't Know
+**Track**: WYHA Weemix
 
-Last updated at 4/16/2025, 10:55:08 AM
+Last updated at 4/16/2025, 10:58:03 AM
