@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXVgPRsHrSC9byzU-szbGPA-t500x500.png">](https://soundcloud.com/maeliveson/icarus-lyn-2rel?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yEbpiPWVWfxV1II-iPwWhQ-t500x500.jpg">](https://soundcloud.com/hassanfilename/talk?in=saxurn/sets/wheezing/)
 
-**Artist**: maeri 
+**Artist**: san 
 
-**Track**: icarus (lyn + 2rel)
+**Track**: talk
 
-Last updated at 4/16/2025, 8:47:47 AM
+Last updated at 4/16/2025, 8:49:22 AM
