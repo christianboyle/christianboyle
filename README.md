@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4HBFfy4w0Dx8zWzV-Dyzftg-t500x500.jpg">](https://soundcloud.com/strobez-music/getlouder-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d62p2XqAWtPDxwyX-wEP2aw-t500x500.jpg">](https://soundcloud.com/aswordinthestone/labyrinth?in=saxurn/sets/wheezing)
 
-**Artist**: Strobez & dheeman 
+**Artist**: A Sword in the Stone 
 
-**Track**: getLOUDER! (VIP)
+**Track**: Labyrinth
 
-Last updated at 4/16/2025, 11:19:00 AM
+Last updated at 4/16/2025, 3:53:34 PM
