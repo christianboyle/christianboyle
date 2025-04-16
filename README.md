@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LyhTNltPYGF8FvFs-rYUvzA-t500x500.jpg">](https://soundcloud.com/tars_music/ram-jam-black-betty-tars-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0IQVnAUCFRSG2LS-YyfRvw-t500x500.png">](https://soundcloud.com/user-349505379/noirodyn-portal-head-nrx-5252-04-woofer-4)
 
-**Artist**: TARS 
+**Artist**: Noirodyn 
 
-**Track**: Ram Jam - Black Betty (TARS Rave Edit) (FREE DL)
+**Track**: Noirodyn - Portal Head (NRX-5252) - 04 Woofer
 
-Last updated at 4/16/2025, 8:36:35 AM
+Last updated at 4/16/2025, 8:37:35 AM
