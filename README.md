@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mpdcu52WkyM1el2p-WuyfPg-t500x500.jpg">](https://soundcloud.com/kyleisdeafnotdead/last-day-on-earth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2BMQNVjji5gRl3dl-MzN0lw-t500x500.png">](https://soundcloud.com/innergatetechno/skrillex-voltage-angel-cannon-edit)
 
-**Artist**: mute theory 
+**Artist**: INNERGATED 
 
-**Track**: Last Day on Earth
+**Track**: Premiere: SKRILLEX - VOLTAGE (ANGEL CANNON EDIT) [FREE DL]
 
-Last updated at 4/16/2025, 8:39:35 AM
+Last updated at 4/16/2025, 8:45:02 AM
