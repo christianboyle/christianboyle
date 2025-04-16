@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yEbpiPWVWfxV1II-iPwWhQ-t500x500.jpg">](https://soundcloud.com/hassanfilename/talk?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geHb2aN1OYf3vdzu-DDTqDw-t500x500.png">](https://soundcloud.com/sickish/cubeflip?in=saxurn/sets/wheezing/)
 
-**Artist**: san 
+**Artist**: SICKISH 
 
-**Track**: talk
+**Track**: CUBEFLIP
 
-Last updated at 4/16/2025, 8:49:22 AM
+Last updated at 4/16/2025, 8:51:28 AM
