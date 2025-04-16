@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0IQVnAUCFRSG2LS-YyfRvw-t500x500.png">](https://soundcloud.com/user-349505379/noirodyn-portal-head-nrx-5252-04-woofer-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MSRvQAazGwGxvTKt-44NjOw-t500x500.jpg">](https://soundcloud.com/oblivionaudio/ry3n-terrorcore-kfu-remix)
 
-**Artist**: Noirodyn 
+**Artist**: KFU 
 
-**Track**: Noirodyn - Portal Head (NRX-5252) - 04 Woofer
+**Track**: RY3N - TERRORCORE (KFU Remix)
 
-Last updated at 4/16/2025, 8:37:35 AM
+Last updated at 4/16/2025, 8:38:35 AM
