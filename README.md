@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geHb2aN1OYf3vdzu-DDTqDw-t500x500.png">](https://soundcloud.com/sickish/cubeflip?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFx7pe70hIqyJGAA-9zsHHw-t500x500.jpg">](https://soundcloud.com/hallucinate/wherehaveyoubeenflip?in=saxurn/sets/wheezing/)
 
-**Artist**: SICKISH 
+**Artist**: Hallucinate 
 
-**Track**: CUBEFLIP
+**Track**: Where Have You Been (Hallucinate Flip)
 
-Last updated at 4/16/2025, 8:51:28 AM
+Last updated at 4/16/2025, 8:59:05 AM
