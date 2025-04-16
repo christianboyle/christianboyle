@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FF6OEcGguLVSTosU-MHpEDg-t500x500.png">](https://soundcloud.com/weewahofficial/wyha-weemix-finale?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d62p2XqAWtPDxwyX-wEP2aw-t500x500.jpg">](https://soundcloud.com/aswordinthestone/labyrinth?in=saxurn/sets/wheezing/)
 
-**Artist**: Weewah 
+**Artist**: A Sword in the Stone 
 
-**Track**: WYHA Weemix
+**Track**: Labyrinth
 
-Last updated at 4/16/2025, 10:58:03 AM
+Last updated at 4/16/2025, 11:01:18 AM
