@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wALx9hKnlSzgXcmo-1Z3UpQ-t500x500.jpg">](https://soundcloud.com/exhaleofc/flkn-rumble?in=saxurn/sets/wheezing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXVgPRsHrSC9byzU-szbGPA-t500x500.png">](https://soundcloud.com/maeliveson/icarus-lyn-2rel?in=saxurn/sets/wheezing)
 
-**Artist**: FLKN 
+**Artist**: maeri 
 
-**Track**: FLKN - Rumble
+**Track**: icarus (lyn + 2rel)
 
-Last updated at 4/16/2025, 11:07:34 AM
+Last updated at 4/16/2025, 11:11:19 AM
