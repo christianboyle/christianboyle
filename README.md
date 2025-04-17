@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwrzhrZ1Hyy55XQZ-HEfL7A-t500x500.jpg">](https://soundcloud.com/vyharamusic/didntknow?in=saxurn/sets/wheezing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq9DkYNR7kiEpHoP-cvZg1g-t500x500.jpg">](https://soundcloud.com/tanfa/dancefloor)
 
-**Artist**: Vyhara 
+**Artist**: TANFA 
 
-**Track**: Didn't Know
+**Track**: dancefloor
 
-Last updated at 4/17/2025, 7:03:14 AM
+Last updated at 4/17/2025, 4:49:18 PM
