@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d62p2XqAWtPDxwyX-wEP2aw-t500x500.jpg">](https://soundcloud.com/aswordinthestone/labyrinth?in=saxurn/sets/wheezing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXrYT3xo8eTPSVp7-Fo3k3A-t500x500.png">](https://soundcloud.com/lookasmusic/time)
 
-**Artist**: A Sword in the Stone 
+**Artist**: Lookas, Saint Miller 
 
-**Track**: Labyrinth
+**Track**: TIME
 
-Last updated at 4/16/2025, 3:53:34 PM
+Last updated at 4/16/2025, 7:21:46 PM
