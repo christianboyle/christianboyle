@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ry1AtRL7TPjLIe40-cJzTBw-t500x500.png">](https://soundcloud.com/definitepartymaterial/jimmy-rouge-flow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mX5FTMD5snoB-0-t500x500.jpg">](https://soundcloud.com/andrewrayel/trance-is-the-rhythm)
 
-**Artist**: Jimmy Rouge 
+**Artist**: Andrew Rayel 
 
-**Track**: PREMIERE: Jimmy Rouge - Flow [Suckerpunch]
+**Track**: Trance Is The Rhythm
 
-Last updated at 4/18/2025, 7:44:13 AM
+Last updated at 4/18/2025, 8:09:05 AM
