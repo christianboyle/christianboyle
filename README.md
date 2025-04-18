@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mX5FTMD5snoB-0-t500x500.jpg">](https://soundcloud.com/andrewrayel/trance-is-the-rhythm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzuy6mLGvlKUSraV-oLjZzg-t500x500.png">](https://soundcloud.com/uniontrance/millie-forsberg-feel-what-im-feeling-1)
 
-**Artist**: Andrew Rayel 
+**Artist**: Union Trance Mission 
 
-**Track**: Trance Is The Rhythm
+**Track**: Millie Forsberg - Feel What I'm Feeling
 
-Last updated at 4/18/2025, 8:09:05 AM
+Last updated at 4/18/2025, 8:10:35 AM
