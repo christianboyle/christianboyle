@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q1MQzieY6N9ca1xK-3RXzUQ-t500x500.png">](https://soundcloud.com/doof_music/will-atkinson-la-la-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zh0tE9vWJtXoISvd-O73HtA-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-matto-matto-man-2-masked-rave-tfcd-025)
 
-**Artist**: Will Atkinson 
+**Artist**: M-Project 
 
-**Track**: Will Atkinson - La La La
+**Track**: M-Project & Matto Matto Man - 2 Masked Rave (TFCD-025)
 
-Last updated at 4/18/2025, 9:11:10 AM
+Last updated at 4/18/2025, 9:14:21 AM
