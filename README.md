@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybTHfAyEc2zhUafE-2rUqdQ-t500x500.png">](https://soundcloud.com/bo0tyleak/whup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K1yhZjOnUHzPlbV-Fj1BiQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/depths-soundzzz-to-the-moon)
 
-**Artist**: BOOTY LEAK, HOMINID, TECHNO KING, Nito-Onna 
+**Artist**: SoundzZz x Depths 
 
-**Track**: Booty Leak + HOMINID & TECHNO KING feat. Nito-Onna - What's Up [ FREE DOWNLOAD ]
+**Track**: Depths & SoundzZz - To The Moon
 
-Last updated at 4/19/2025, 8:57:47 AM
+Last updated at 4/19/2025, 9:01:13 AM
