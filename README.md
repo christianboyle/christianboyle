@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nlbTEQuhWsJzldcz-oq5JuA-t500x500.png">](https://soundcloud.com/officialdoil/skrillex-space-laces-recovery-doil-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jw5T7x4rL263IOLp-8jLpVw-t500x500.png">](https://soundcloud.com/adventureclub/alexwarrenordinaryremix)
 
-**Artist**: DOIL 
+**Artist**: Adventure Club 
 
-**Track**: SKRILLEX & SPACE LACES - RECOVERY (DOIL FLIP)
+**Track**: Alex Warren - Ordinary (Adventure Club Remix)
 
-Last updated at 4/19/2025, 8:54:11 AM
+Last updated at 4/19/2025, 8:55:27 AM
