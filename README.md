@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uwAC9XuijOVy1Eaf-T0Cyfw-t500x500.jpg">](https://soundcloud.com/dopecontents/see-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z0Mw97RlRQyLhOId-avClXw-t500x500.png">](https://soundcloud.com/gravitas-recordings/savej-spectrum-3)
 
-**Artist**: tamara 
+**Artist**: Savej 
 
-**Track**: See you
+**Track**: Savej - Spectrum
 
-Last updated at 4/19/2025, 8:26:20 AM
+Last updated at 4/19/2025, 8:27:20 AM
