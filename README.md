@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jw5T7x4rL263IOLp-8jLpVw-t500x500.png">](https://soundcloud.com/adventureclub/alexwarrenordinaryremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-llUroCy4ylfazeU8-2ShhDA-t500x500.jpg">](https://soundcloud.com/stijn-schrijber/0fd57039-0ca7-4457-8d10-e423b27bbbb6)
 
-**Artist**: Adventure Club 
+**Artist**: styn 
 
-**Track**: Alex Warren - Ordinary (Adventure Club Remix)
+**Track**: STYN - ALICIA 2 RIDDIM
 
-Last updated at 4/19/2025, 8:55:27 AM
+Last updated at 4/19/2025, 8:56:26 AM
