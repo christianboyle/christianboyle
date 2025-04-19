@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-llUroCy4ylfazeU8-2ShhDA-t500x500.jpg">](https://soundcloud.com/stijn-schrijber/0fd57039-0ca7-4457-8d10-e423b27bbbb6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybTHfAyEc2zhUafE-2rUqdQ-t500x500.png">](https://soundcloud.com/bo0tyleak/whup)
 
-**Artist**: styn 
+**Artist**: BOOTY LEAK, HOMINID, TECHNO KING, Nito-Onna 
 
-**Track**: STYN - ALICIA 2 RIDDIM
+**Track**: Booty Leak + HOMINID & TECHNO KING feat. Nito-Onna - What's Up [ FREE DOWNLOAD ]
 
-Last updated at 4/19/2025, 8:56:26 AM
+Last updated at 4/19/2025, 8:57:47 AM
