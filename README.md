@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33dA5fPXkHRQgF1D-ngI4dw-t500x500.jpg">](https://soundcloud.com/darn84/squad-e-b2b-klubfiller-uproar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUzqbcS9oZ9yNpr9-JOYrVg-t500x500.jpg">](https://soundcloud.com/novembrmusic/hotel-cali-flip)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: NOVEMBR 
 
-**Track**: Squad-E B2B Klubfiller @ Uproar - The Laser Spectacular (25/08/2012)
+**Track**: Eagles - Hotel California (NOVEMBR Flip)
 
-Last updated at 4/19/2025, 8:30:26 AM
+Last updated at 4/19/2025, 8:31:31 AM
