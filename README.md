@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3syiucNJ0LF5ewz-zJZqtQ-t500x500.jpg">](https://soundcloud.com/echodronemusic/moshpxt-ft-skullyboy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpkUjytdu4842k4v-zu33MQ-t500x500.jpg">](https://soundcloud.com/snowballet/redsae)
 
-**Artist**: Echo Drone, Skullyboy 
+**Artist**: Egobreak 
 
-**Track**: MOSHPXT (ft. Skullyboy)
+**Track**: habit w/ prettifun & lucy bedroque (egobreak prettifun)
 
-Last updated at 4/20/2025, 9:15:10 AM
+Last updated at 4/20/2025, 9:17:00 AM
