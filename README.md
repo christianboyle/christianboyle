@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hl9TC2D4ECbWXbKN-jrhk8Q-t500x500.png">](https://soundcloud.com/wearelumii/deep-end-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szi5chR2X4REuWEp-CtPQNg-t500x500.png">](https://soundcloud.com/afterimageislive/replay-dojin-countin)
 
-**Artist**: lumii 
+**Artist**: replay, dojin 
 
-**Track**: DEEP END
+**Track**: replay, dojin - countin!
 
-Last updated at 4/20/2025, 8:57:13 AM
+Last updated at 4/20/2025, 8:58:18 AM
