@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4M8AVaEW0KvEMDvZ-nnUgHQ-t500x500.png">](https://soundcloud.com/320rip/pop-smoke-welcome-2-the-function-dj-puff-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySVMXxiGTgSVl2zT-7A3Q5w-t500x500.jpg">](https://soundcloud.com/drewyates/itdoesntgetdarkat5pmanymore)
 
-**Artist**: DJ PUFF 
+**Artist**: YATES! 
 
-**Track**: pop smoke - welcome 2 the function (dj puff edit)
+**Track**: itdoesntgetdarkat5pmanymore.
 
-Last updated at 4/20/2025, 9:00:38 AM
+Last updated at 4/20/2025, 9:01:38 AM
