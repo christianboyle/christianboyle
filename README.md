@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQQDD7UOnTSGhLKp-I0aqtA-t500x500.jpg">](https://soundcloud.com/fakemink/music-and-me101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uey4n1ch7sjtcCcA-x2D4bA-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/menso-loadjaxx-darbuka-free-download)
 
-**Artist**: fakemink 
+**Artist**: Menso, Loadjaxx 
 
-**Track**: Music And Me (Prod OK)
+**Track**: Menso X Loadjaxx - Darbuka [FREE DOWNLOAD] Supported by Djs From Mars!
 
-Last updated at 4/20/2025, 8:49:42 AM
+Last updated at 4/20/2025, 8:50:47 AM
