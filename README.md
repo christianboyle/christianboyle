@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uwAC9XuijOVy1Eaf-T0Cyfw-t500x500.jpg">](https://soundcloud.com/dopecontents/see-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RZ8xAEPiQEjK8ubi-xCxEGA-t500x500.jpg">](https://soundcloud.com/giowaw/gio-interesting-master)
 
-**Artist**: tamara 
+**Artist**: GIØ 
 
-**Track**: See you
+**Track**: GIØ - SISTEM ERROR
 
-Last updated at 4/20/2025, 8:47:12 AM
+Last updated at 4/20/2025, 8:48:22 AM
