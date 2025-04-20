@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uey4n1ch7sjtcCcA-x2D4bA-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/menso-loadjaxx-darbuka-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GiR9S4cvHzzEydeU-jaAAkQ-t500x500.png">](https://soundcloud.com/phrva/quintuplet-riddim)
 
-**Artist**: Menso, Loadjaxx 
+**Artist**: Phrva 
 
-**Track**: Menso X Loadjaxx - Darbuka [FREE DOWNLOAD] Supported by Djs From Mars!
+**Track**: Quintuplet Riddim
 
-Last updated at 4/20/2025, 8:50:47 AM
+Last updated at 4/20/2025, 8:51:47 AM
