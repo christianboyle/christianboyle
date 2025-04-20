@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GiR9S4cvHzzEydeU-jaAAkQ-t500x500.png">](https://soundcloud.com/phrva/quintuplet-riddim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NWNVjoarOJve-0-t500x500.jpg">](https://soundcloud.com/winksounds/weightless)
 
-**Artist**: Phrva 
+**Artist**: WINK 
 
-**Track**: Quintuplet Riddim
+**Track**: weightless
 
-Last updated at 4/20/2025, 8:51:47 AM
+Last updated at 4/20/2025, 8:52:47 AM
