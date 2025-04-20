@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k8DEfzPZIvZyCse7-TcSDWQ-t500x500.jpg">](https://soundcloud.com/2summusic/cant-save-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2ibvVp0IBHxbSag-4fyiHg-t500x500.jpg">](https://soundcloud.com/hellgnar/praise-the-lord)
 
-**Artist**: 2SUM 
+**Artist**: HellGnar 
 
-**Track**: ICANTSAVEU
+**Track**: A$AP ROCKY x SKEPTA- PRAISE THE LORD (HELLGNAR FLIP)
 
-Last updated at 4/20/2025, 10:20:31 AM
+Last updated at 4/20/2025, 10:22:51 AM
