@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTg7dBO7O4rwJjIX-9tlnAQ-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/no-crumbs-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZgfTHLm73FfQ3kD-bpCtfQ-t500x500.jpg">](https://soundcloud.com/itsgladez/skillex-andy-gladez-flip-wip)
 
-**Artist**: Crumb Pit 
+**Artist**: GLADEZ 
 
-**Track**: No Crumbs
+**Track**: Skrillex - Andy (Gladez Flip)
 
-Last updated at 4/20/2025, 10:30:17 AM
+Last updated at 4/20/2025, 10:32:42 AM
