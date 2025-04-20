@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K1yhZjOnUHzPlbV-Fj1BiQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/depths-soundzzz-to-the-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uwAC9XuijOVy1Eaf-T0Cyfw-t500x500.jpg">](https://soundcloud.com/dopecontents/see-you)
 
-**Artist**: SoundzZz x Depths 
+**Artist**: tamara 
 
-**Track**: Depths & SoundzZz - To The Moon
+**Track**: See you
 
-Last updated at 4/20/2025, 7:20:02 AM
+Last updated at 4/20/2025, 8:47:12 AM
