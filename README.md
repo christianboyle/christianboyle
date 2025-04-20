@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kljQI7ZXN4VZyFui-FvPmXg-t500x500.png">](https://soundcloud.com/elxrdj/fly-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpkUjytdu4842k4v-zu33MQ-t500x500.jpg">](https://soundcloud.com/snowballet/redsae)
 
-**Artist**: ELXR 
+**Artist**: Egobreak 
 
-**Track**: Fly Away
+**Track**: habit w/ prettifun & lucy bedroque (egobreak prettifun)
 
-Last updated at 4/20/2025, 10:52:54 AM
+Last updated at 4/20/2025, 11:01:53 AM
