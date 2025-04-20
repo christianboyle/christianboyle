@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rWnxXDvOEAaAc7Yt-460rZQ-t500x500.jpg">](https://soundcloud.com/tyler-brown-245/lady-killers-offspd-x-dieminds-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3syiucNJ0LF5ewz-zJZqtQ-t500x500.jpg">](https://soundcloud.com/echodronemusic/moshpxt-ft-skullyboy)
 
-**Artist**: DieMinds x OFFSPD 
+**Artist**: Echo Drone, Skullyboy 
 
-**Track**: Lady Killers(OFFSPD x DieMinds Flip)
+**Track**: MOSHPXT (ft. Skullyboy)
 
-Last updated at 4/20/2025, 9:11:34 AM
+Last updated at 4/20/2025, 9:15:10 AM
