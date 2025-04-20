@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-an0dHsprr4njoAYZ-tXSOlg-t500x500.png">](https://soundcloud.com/taiki-nulight-uk/142-godzilla)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OeJdYsKxCYuAi5sI-cSbsLA-t500x500.png">](https://soundcloud.com/psychocybinrec/ethos)
 
-**Artist**: Taiki Nulight 
+**Artist**: Rekka Wubz, Psyoptic 
 
-**Track**: 142 GODZILLA
+**Track**: Psyoptic & Rekka Wubz - Ethos
 
-Last updated at 4/20/2025, 8:54:47 AM
+Last updated at 4/20/2025, 8:56:03 AM
