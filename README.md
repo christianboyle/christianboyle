@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eeaj5NZxaAEIv3Uv-gHF6Jw-t500x500.png">](https://soundcloud.com/malfunktionmusic/mike_wazowski)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5Vk26gb2IC894Dk-mOsuKw-t500x500.jpg">](https://soundcloud.com/stemacmusic/belters-only-jazzy-here-to)
 
-**Artist**: Malfunktion 
+**Artist**: Ste Mac 
 
-**Track**: Malfunktion - Mike Wazowski
+**Track**: Belters Only & Jazzy - Niels Van Gogh - Here To Stay - Ste Mac Remix
 
-Last updated at 4/20/2025, 9:02:48 AM
+Last updated at 4/20/2025, 9:08:44 AM
