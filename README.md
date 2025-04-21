@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXhz8RybKhdxiFAy-0gzRyw-t500x500.jpg">](https://soundcloud.com/theonlymajed/betsy-sigma-boy-majed-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YvaNKwYrkyyUxOo8-JFnUCA-t500x500.jpg">](https://soundcloud.com/future-bassnet/tom-silves-faded-love-future-bass-release)
 
-**Artist**: Majed      ماجد 
+**Artist**: Tom Silves 
 
-**Track**: Betsy - Sigma Boy (Majed Remix)
+**Track**: Tom Silves - Faded Love [Future Bass Release]
 
-Last updated at 4/21/2025, 7:29:45 AM
+Last updated at 4/21/2025, 7:33:31 AM
