@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTg7dBO7O4rwJjIX-9tlnAQ-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/no-crumbs-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MCdNKcqHeoTYYvCB-Uyg5YA-t500x500.jpg">](https://soundcloud.com/beaudidier/beau-didier-whoomp-beau005)
 
-**Artist**: Crumb Pit 
+**Artist**: Beau Didier 
 
-**Track**: No Crumbs
+**Track**: Whoomp! [BEAU005]
 
-Last updated at 4/21/2025, 7:11:51 AM
+Last updated at 4/21/2025, 7:12:56 AM
