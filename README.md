@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYdkAzUKqYQbXPuB-AD71qg-t500x500.png">](https://soundcloud.com/bernzikial/bhad-bhabie-hi-bich-bernzikial)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTg7dBO7O4rwJjIX-9tlnAQ-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/no-crumbs-promo)
 
-**Artist**: BERNZIKIAL 
+**Artist**: Crumb Pit 
 
-**Track**: Bhad Bhabie - hi bich (BERNZIKIAL Edit)
+**Track**: No Crumbs
 
-Last updated at 4/20/2025, 7:44:14 PM
+Last updated at 4/20/2025, 7:46:35 PM
