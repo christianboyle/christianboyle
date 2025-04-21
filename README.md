@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KG3C4n4bwOJNzLcd-x1aACg-t500x500.jpg">](https://soundcloud.com/arid/leavingme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTg7dBO7O4rwJjIX-9tlnAQ-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/no-crumbs-promo)
 
-**Artist**: arid 
+**Artist**: Crumb Pit 
 
-**Track**: leaving me w karson (malloy + jkei)
+**Track**: No Crumbs
 
-Last updated at 4/20/2025, 9:08:22 PM
+Last updated at 4/21/2025, 7:11:51 AM
