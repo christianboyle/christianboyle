@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKtRNAFGesquksee-wxv9qA-t500x500.png">](https://soundcloud.com/smokestaxmusic/pillz-gucci-mane-liquid-jungle-flip-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQQDD7UOnTSGhLKp-I0aqtA-t500x500.jpg">](https://soundcloud.com/fakemink/music-and-me101)
 
-**Artist**: Smokestax 
+**Artist**: fakemink 
 
-**Track**: Pillz - Gucci Mane (Liquid Jungle Flip)
+**Track**: Music And Me (Prod OK)
 
-Last updated at 4/21/2025, 3:36:03 PM
+Last updated at 4/21/2025, 3:42:25 PM
