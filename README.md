@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVQR0fADmJhAJ2sq-GzyRpw-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/linds-downtown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6QSKB2k1fTHyGsxN-gm9CAw-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/2hot2play-x-armin-hermann-fucked-up)
 
 **Artist**: Polyamor Records 
 
-**Track**: Linds - Downtown
+**Track**: 2HOT2PLAY & Armin Hermann - Fucked Up
 
-Last updated at 4/21/2025, 7:22:33 AM
+Last updated at 4/21/2025, 7:25:08 AM
