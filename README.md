@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MBNutRv7Jhb0SeNZ-3NbkjA-t500x500.jpg">](https://soundcloud.com/2hot2play/let-me-think-about-it-2hot2play-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVQR0fADmJhAJ2sq-GzyRpw-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/linds-downtown)
 
-**Artist**: 2HOT2PLAY 
+**Artist**: Polyamor Records 
 
-**Track**: Ida Corr, 2HOT2PLAY - Think About It
+**Track**: Linds - Downtown
 
-Last updated at 4/21/2025, 7:20:18 AM
+Last updated at 4/21/2025, 7:22:33 AM
