@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lm8gKRHaok6W-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/mf-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QAN4XyeO11BmDA9S-X8NQNw-t500x500.jpg">](https://soundcloud.com/aychofficial/papu)
 
-**Artist**: TACCERS 
+**Artist**: AYCH, Buzz Junior 
 
-**Track**: MF ONE
+**Track**: PAPU!
 
-Last updated at 4/21/2025, 7:35:36 AM
+Last updated at 4/21/2025, 7:37:06 AM
