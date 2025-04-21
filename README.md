@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6QSKB2k1fTHyGsxN-gm9CAw-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/2hot2play-x-armin-hermann-fucked-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cmIhByUxcdlp7CNn-1GjTzg-t500x500.png">](https://soundcloud.com/wearestudio/miyamoro-falling4me-premiere)
 
-**Artist**: Polyamor Records 
+**Artist**: STUDIO, MIYAMORO 
 
-**Track**: 2HOT2PLAY & Armin Hermann - Fucked Up
+**Track**: MIYAMORO - Falling4Me [Premiere]
 
-Last updated at 4/21/2025, 7:25:08 AM
+Last updated at 4/21/2025, 7:26:23 AM
