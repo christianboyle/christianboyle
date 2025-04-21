@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-irEBx0gkwU9K6eMb-RG4ZvQ-t500x500.png">](https://soundcloud.com/beatsfordayz23/trowl-nocturnal-transmission)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAC5Hy8ndkYHCtCg-zJxHxA-t500x500.png">](https://soundcloud.com/jayronmusic/jayron-azulo-happy-now-1)
 
-**Artist**: BeatsforDayz Music 
+**Artist**: Jayron 
 
-**Track**: TROWL - Nocturnal Transmission
+**Track**: Jayron & Azulo - Happy Now [FREE DOWNLOAD]
 
-Last updated at 4/21/2025, 7:41:32 AM
+Last updated at 4/21/2025, 7:43:07 AM
