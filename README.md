@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XHBG4Euakf3gyzXn-3Xt5Rw-t500x500.png">](https://soundcloud.com/undehfined/2025-id-mix-part-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBDPi9zClBwWr22m-LtaHjg-t500x500.jpg">](https://soundcloud.com/spira_sounds/kompany-ivory-jackpot-spira-bootleg)
 
-**Artist**: Undehfined 
+**Artist**: Spira 
 
-**Track**: 2025 ID MIX [PART 1]
+**Track**: Kompany & Ivory - Jackpot (Spira Bootleg)
 
-Last updated at 4/21/2025, 7:38:16 AM
+Last updated at 4/21/2025, 7:39:21 AM
