@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTg7dBO7O4rwJjIX-9tlnAQ-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/no-crumbs-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jafzas12CPoU5wF8-DlqSNQ-t500x500.png">](https://soundcloud.com/muti/audiovoid-watch-your-step)
 
-**Artist**: Crumb Pit 
+**Artist**: Audiovoid 
 
-**Track**: No Crumbs
+**Track**: Audiovoid - Watch Your Step
 
-Last updated at 4/20/2025, 11:56:22 AM
+Last updated at 4/20/2025, 7:30:17 PM
