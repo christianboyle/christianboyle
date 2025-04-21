@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FRxl8wfhfBzbNlzj-lZytzw-t500x500.png">](https://soundcloud.com/phultsar/concept-12-04-25-unreleased)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-irEBx0gkwU9K6eMb-RG4ZvQ-t500x500.png">](https://soundcloud.com/beatsfordayz23/trowl-nocturnal-transmission)
 
-**Artist**: PHULTSAR 
+**Artist**: BeatsforDayz Music 
 
-**Track**: Concept [12-04-25] (UNRELEASED - BUNDA🍑)
+**Track**: TROWL - Nocturnal Transmission
 
-Last updated at 4/21/2025, 7:40:21 AM
+Last updated at 4/21/2025, 7:41:32 AM
