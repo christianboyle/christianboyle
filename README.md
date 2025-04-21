@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UaxdYvIgLqyMEZ9d-M4SAGA-t500x500.png">](https://soundcloud.com/djrennessy/xaviersobased_swagged-out_lunamatic-elxncedjrennessyexclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YVf0Wg8gmzunmh64-TXkZoA-t500x500.png">](https://soundcloud.com/thealekople/keep-the-focus)
 
-**Artist**: Dj Rennessy 
+**Artist**: GIGASHADOW 
 
-**Track**: XAVIERSOBASED_SWAGGED_OUT_(LUNAMATIC ELXNCE)=DjRennessyexclusive
+**Track**: KEEP THE FOCUS
 
-Last updated at 4/21/2025, 7:27:38 AM
+Last updated at 4/21/2025, 7:28:45 AM
