@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKj4BXQdSZkBzTj6-Ux7zlQ-t500x500.png">](https://soundcloud.com/all172things/ammon-sober-big-g-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AYTpbac7h60ST111-ZjKteQ-t500x500.jpg">](https://soundcloud.com/djrenaux/dont-wake-me-up-james-hype-renaux-remix)
 
-**Artist**: Ammon & Sober 
+**Artist**: Renaux 
 
-**Track**: Ammon & Sober - Big G [Premiere]
+**Track**: Don't Wake Me Up - James Hype (RENAUX REMIX)
 
-Last updated at 4/22/2025, 8:14:01 AM
+Last updated at 4/22/2025, 8:15:06 AM
