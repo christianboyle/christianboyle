@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AYTpbac7h60ST111-ZjKteQ-t500x500.jpg">](https://soundcloud.com/djrenaux/dont-wake-me-up-james-hype-renaux-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRcPyZ87vVy0oedt-Zc01fw-t500x500.png">](https://soundcloud.com/user-911607540/hi-edits-vol-3-techno-edit-pack)
 
-**Artist**: Renaux 
+**Artist**: Hi Ed 
 
-**Track**: Don't Wake Me Up - James Hype (RENAUX REMIX)
+**Track**: Hi Edits Vol. 3- Techno Edit Pack *FREE DOWNLOAD*
 
-Last updated at 4/22/2025, 8:15:06 AM
+Last updated at 4/22/2025, 8:17:22 AM
