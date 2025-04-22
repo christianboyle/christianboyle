@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAC5Hy8ndkYHCtCg-zJxHxA-t500x500.png">](https://soundcloud.com/jayronmusic/jayron-azulo-happy-now-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zkwkry4G4vWHMFmm-gy86vQ-t500x500.png">](https://soundcloud.com/sadkomusic/things-she-said)
 
-**Artist**: Jayron 
+**Artist**: SVDKO, Jawnsin 
 
-**Track**: Jayron & Azulo - Happy Now [FREE DOWNLOAD]
+**Track**: THINGS SHE SAID
 
-Last updated at 4/22/2025, 5:27:01 PM
+Last updated at 4/22/2025, 6:01:55 PM
