@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v5yuIk7pAwCFZyQN-lYqK6g-t500x500.jpg">](https://soundcloud.com/sxnny_music/sxnny-gon-give-it-to-ya-sxnny-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hXawxwnDk7vWG3We-vFnCbg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-the-equation)
 
-**Artist**: SXNNY 
+**Artist**: Adam Mohican 
 
-**Track**: S(X)NNY Gon' Give It To Ya (SXNNY Hard Techno Edit)
+**Track**: Adam Mohican - The Equation OUT NOW!
 
-Last updated at 4/22/2025, 8:21:35 AM
+Last updated at 4/22/2025, 8:25:35 AM
