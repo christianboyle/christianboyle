@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpkUjytdu4842k4v-zu33MQ-t500x500.jpg">](https://soundcloud.com/snowballet/redsae)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAC5Hy8ndkYHCtCg-zJxHxA-t500x500.png">](https://soundcloud.com/jayronmusic/jayron-azulo-happy-now-1)
 
-**Artist**: Egobreak 
+**Artist**: Jayron 
 
-**Track**: habit w/ prettifun & lucy bedroque (egobreak prettifun)
+**Track**: Jayron & Azulo - Happy Now [FREE DOWNLOAD]
 
-Last updated at 4/22/2025, 8:49:45 AM
+Last updated at 4/22/2025, 5:27:01 PM
