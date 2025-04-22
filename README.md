@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqxDWfy6TyjabysK-3IjI6g-t500x500.jpg">](https://soundcloud.com/naemsofficial/33f83cde-b97a-4fa1-95be-dd337e877c4b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uwAC9XuijOVy1Eaf-T0Cyfw-t500x500.jpg">](https://soundcloud.com/dopecontents/see-you)
 
-**Artist**: NAEMS 
+**Artist**: tamara 
 
-**Track**: Here Without You (NAEMS Remix)
+**Track**: See you
 
-Last updated at 4/22/2025, 6:41:13 AM
+Last updated at 4/22/2025, 7:41:59 AM
