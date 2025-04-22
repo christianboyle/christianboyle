@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRcPyZ87vVy0oedt-Zc01fw-t500x500.png">](https://soundcloud.com/user-911607540/hi-edits-vol-3-techno-edit-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v5yuIk7pAwCFZyQN-lYqK6g-t500x500.jpg">](https://soundcloud.com/sxnny_music/sxnny-gon-give-it-to-ya-sxnny-hard-techno-edit)
 
-**Artist**: Hi Ed 
+**Artist**: SXNNY 
 
-**Track**: Hi Edits Vol. 3- Techno Edit Pack *FREE DOWNLOAD*
+**Track**: S(X)NNY Gon' Give It To Ya (SXNNY Hard Techno Edit)
 
-Last updated at 4/22/2025, 8:17:22 AM
+Last updated at 4/22/2025, 8:21:35 AM
