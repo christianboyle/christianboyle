@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dyw91Y4q2iEile94-dz5zPA-t500x500.jpg">](https://soundcloud.com/theraverepublic/8425f889-ec6b-4ae1-afd1-f0064f29a97c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKj4BXQdSZkBzTj6-Ux7zlQ-t500x500.png">](https://soundcloud.com/all172things/ammon-sober-big-g-premiere)
 
-**Artist**: Rave Republic 
+**Artist**: Ammon & Sober 
 
-**Track**: CeeLo Green - F*ck You (Rave Republic Festival Mix)
+**Track**: Ammon & Sober - Big G [Premiere]
 
-Last updated at 4/22/2025, 7:43:09 AM
+Last updated at 4/22/2025, 8:14:01 AM
