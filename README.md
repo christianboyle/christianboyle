@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OpkUjytdu4842k4v-zu33MQ-t500x500.jpg">](https://soundcloud.com/snowballet/redsae)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSGzpmFewGGnyrCC-KKz2Tg-t500x500.jpg">](https://soundcloud.com/2summusic/cant-save-u)
 
-**Artist**: Egobreak 
+**Artist**: 2SUM 
 
-**Track**: habit w/ prettifun & lucy bedroque (egobreak prettifun)
+**Track**: ICANTSAVEU
 
-Last updated at 4/23/2025, 2:12:18 PM
+Last updated at 4/23/2025, 2:14:58 PM
