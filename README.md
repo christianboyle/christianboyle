@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1lXdHROoEXUdlN3B-7TMyyg-t500x500.jpg">](https://soundcloud.com/camilo-andres-54/bia-im-that-bitch-kilo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKtRNAFGesquksee-wxv9qA-t500x500.png">](https://soundcloud.com/smokestaxmusic/pillz-gucci-mane-liquid-jungle-flip-4)
 
-**Artist**: KiLO 
+**Artist**: Smokestax 
 
-**Track**: Bia - IM THAT BITCH (KiLO Flip)
+**Track**: Pillz - Gucci Mane (Liquid Jungle Flip)
 
-Last updated at 4/23/2025, 2:54:26 PM
+Last updated at 4/23/2025, 2:57:32 PM
