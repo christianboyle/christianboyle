@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYdkAzUKqYQbXPuB-AD71qg-t500x500.png">](https://soundcloud.com/bernzikial/bhad-bhabie-hi-bich-bernzikial)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZgfTHLm73FfQ3kD-bpCtfQ-t500x500.jpg">](https://soundcloud.com/itsgladez/skillex-andy-gladez-flip-wip)
 
-**Artist**: BERNZIKIAL 
+**Artist**: GLADEZ 
 
-**Track**: Bhad Bhabie - hi bich (BERNZIKIAL Edit)
+**Track**: Skrillex - Andy (Gladez Flip)
 
-Last updated at 4/23/2025, 11:06:05 AM
+Last updated at 4/23/2025, 11:09:25 AM
