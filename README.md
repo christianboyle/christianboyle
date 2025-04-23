@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lm8gKRHaok6W-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/mf-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UaxdYvIgLqyMEZ9d-M4SAGA-t500x500.png">](https://soundcloud.com/djrennessy/xaviersobased_swagged-out_lunamatic-elxncedjrennessyexclusive)
 
-**Artist**: TACCERS 
+**Artist**: Dj Rennessy 
 
-**Track**: MF ONE
+**Track**: XAVIERSOBASED_SWAGGED_OUT_(LUNAMATIC ELXNCE)=DjRennessyexclusive
 
-Last updated at 4/23/2025, 10:36:01 AM
+Last updated at 4/23/2025, 10:39:34 AM
