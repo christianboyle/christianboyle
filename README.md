@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOdyAl33ScW8k8GE-MeyiuQ-t500x500.png">](https://soundcloud.com/event-whalien/ployzz-bounce-babe-wha054)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYyUkGOSXZ1jlxVW-QIsoeA-t500x500.jpg">](https://soundcloud.com/xxena_00/4-mind-xxena-rmx)
 
-**Artist**: Whalien 
+**Artist**: xxena 
 
-**Track**: PLOYZZ - BOUNCE BABE [WHA054]
+**Track**: 4 MIND [XXENA RMX]
 
-Last updated at 4/23/2025, 5:54:40 PM
+Last updated at 4/23/2025, 5:59:25 PM
