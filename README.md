@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lH8BC3hEgz4fS75x-2y3e4g-t500x500.jpg">](https://soundcloud.com/candyflip030/nanno-vivid-fantasy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit)
 
-**Artist**: Nanno 
+**Artist**: Squired 
 
-**Track**: Nanno - Vivid Fantasy
+**Track**: Black Ice Mudra (Squired Rave Edit)
 
-Last updated at 4/23/2025, 6:25:58 PM
+Last updated at 4/23/2025, 6:31:04 PM
