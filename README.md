@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2BMQNVjji5gRl3dl-MzN0lw-t500x500.png">](https://soundcloud.com/innergatetechno/skrillex-voltage-angel-cannon-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yEbpiPWVWfxV1II-iPwWhQ-t500x500.jpg">](https://soundcloud.com/hassanfilename/talk)
 
-**Artist**: INNERGATED 
+**Artist**: san 
 
-**Track**: Premiere: SKRILLEX - VOLTAGE (ANGEL CANNON EDIT) [FREE DL]
+**Track**: talk
 
-Last updated at 4/23/2025, 3:22:24 PM
+Last updated at 4/23/2025, 3:26:24 PM
