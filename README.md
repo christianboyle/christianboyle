@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kljQI7ZXN4VZyFui-FvPmXg-t500x500.png">](https://soundcloud.com/elxrdj/fly-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idaUYNINAXlbJwf4-I2TR8Q-t500x500.jpg">](https://soundcloud.com/fiendi/idgaf-flip)
 
-**Artist**: ELXR 
+**Artist**: FIENDI 
 
-**Track**: Fly Away
+**Track**: IDGAF - YEAT (FIENDI FLIP)
 
-Last updated at 4/23/2025, 3:04:17 PM
+Last updated at 4/23/2025, 3:08:33 PM
