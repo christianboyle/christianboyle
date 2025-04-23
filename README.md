@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zkwkry4G4vWHMFmm-gy86vQ-t500x500.png">](https://soundcloud.com/sadkomusic/things-she-said)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1lXdHROoEXUdlN3B-7TMyyg-t500x500.jpg">](https://soundcloud.com/camilo-andres-54/bia-im-that-bitch-kilo-flip)
 
-**Artist**: SVDKO, Jawnsin 
+**Artist**: KiLO 
 
-**Track**: THINGS SHE SAID
+**Track**: Bia - IM THAT BITCH (KiLO Flip)
 
-Last updated at 4/23/2025, 2:32:24 PM
+Last updated at 4/23/2025, 2:35:15 PM
