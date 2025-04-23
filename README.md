@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K1yhZjOnUHzPlbV-Fj1BiQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/werd-scum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yykeZRYTe98qFZm-sHfsyg-t500x500.png">](https://soundcloud.com/gualafied/basslinevato)
 
-**Artist**: WerD 
+**Artist**: GUÄLA 
 
-**Track**: WerD - Scum
+**Track**: BASSLINE VATO
 
-Last updated at 4/23/2025, 5:53:46 AM
+Last updated at 4/23/2025, 7:33:13 AM
