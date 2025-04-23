@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wALx9hKnlSzgXcmo-1Z3UpQ-t500x500.jpg">](https://soundcloud.com/exhaleofc/flkn-rumble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2BMQNVjji5gRl3dl-MzN0lw-t500x500.png">](https://soundcloud.com/innergatetechno/skrillex-voltage-angel-cannon-edit)
 
-**Artist**: FLKN 
+**Artist**: INNERGATED 
 
-**Track**: FLKN - Rumble
+**Track**: Premiere: SKRILLEX - VOLTAGE (ANGEL CANNON EDIT) [FREE DL]
 
-Last updated at 4/23/2025, 3:17:44 PM
+Last updated at 4/23/2025, 3:22:24 PM
