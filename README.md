@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZgfTHLm73FfQ3kD-bpCtfQ-t500x500.jpg">](https://soundcloud.com/itsgladez/skillex-andy-gladez-flip-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
 
-**Artist**: GLADEZ 
+**Artist**: Low Poly 
 
-**Track**: Skrillex - Andy (Gladez Flip)
+**Track**: Voltage (Low Poly Edit)
 
-Last updated at 4/23/2025, 11:09:25 AM
+Last updated at 4/23/2025, 1:48:25 PM
