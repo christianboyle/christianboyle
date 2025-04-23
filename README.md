@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eYyUkGOSXZ1jlxVW-QIsoeA-t500x500.jpg">](https://soundcloud.com/xxena_00/4-mind-xxena-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WmqsONugkugMFiiQ-rHEpyw-t500x500.jpg">](https://soundcloud.com/hoodpoliticsrecordsedits/asap-ferg-work-proppa-rich-dietz-smith-sorren-edit)
 
-**Artist**: xxena 
+**Artist**: Hood Politics Records Edits 
 
-**Track**: 4 MIND [XXENA RMX]
+**Track**: ASAP Ferg - Work (Proppa, Rich DietZ, Smith & Sorren Edit) [SUPPORTED BY DIPLO, ALESSO, TIESTO)]
 
-Last updated at 4/23/2025, 5:59:25 PM
+Last updated at 4/23/2025, 6:02:26 PM
