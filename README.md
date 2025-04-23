@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAC5Hy8ndkYHCtCg-zJxHxA-t500x500.png">](https://soundcloud.com/jayronmusic/jayron-azulo-happy-now-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lm8gKRHaok6W-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/mf-one)
 
-**Artist**: Jayron 
+**Artist**: TACCERS 
 
-**Track**: Jayron & Azulo - Happy Now [FREE DOWNLOAD]
+**Track**: MF ONE
 
-Last updated at 4/23/2025, 1:53:31 PM
+Last updated at 4/23/2025, 1:57:16 PM
