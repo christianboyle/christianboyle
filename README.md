@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ihQbbzlhqfuwQRlf-pfEWgQ-t500x500.png">](https://soundcloud.com/skrillex/fck-u-skrillex-you-think-ur-andy-warhol-but-ur-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5BGtlJC4EEy4Xyv-waADCQ-t500x500.png">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-my-anthem)
 
-**Artist**: Skrillex 
+**Artist**: Ghost in Real Life 
 
-**Track**: F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3
+**Track**: Ghost in Real Life - My Anthem
 
-Last updated at 4/23/2025, 4:53:53 PM
+Last updated at 4/23/2025, 5:40:23 PM
