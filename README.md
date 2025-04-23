@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXVgPRsHrSC9byzU-szbGPA-t500x500.png">](https://soundcloud.com/maeliveson/icarus-lyn-2rel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UhADsWz5uGBLgUfT-F4K6cA-t500x500.png">](https://soundcloud.com/akagitune/akagitune-you-make-me-feelfc-bvr-ep-vol3)
 
-**Artist**: maeri 
+**Artist**: Akagitune 
 
-**Track**: icarus (lyn + 2rel)
+**Track**: Akagitune - You Make Me Feel【F/C BVR EP VOL.3】
 
-Last updated at 4/23/2025, 3:49:12 PM
+Last updated at 4/23/2025, 3:50:42 PM
