@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqxDWfy6TyjabysK-3IjI6g-t500x500.jpg">](https://soundcloud.com/naemsofficial/33f83cde-b97a-4fa1-95be-dd337e877c4b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wALx9hKnlSzgXcmo-1Z3UpQ-t500x500.jpg">](https://soundcloud.com/exhaleofc/flkn-rumble)
 
-**Artist**: NAEMS 
+**Artist**: FLKN 
 
-**Track**: Here Without You (NAEMS Remix)
+**Track**: FLKN - Rumble
 
-Last updated at 4/23/2025, 3:12:58 PM
+Last updated at 4/23/2025, 3:17:44 PM
