@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyyTmlKTFGpTMs8o-rksaGg-t500x500.jpg">](https://soundcloud.com/emorave/half-dead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FF6OEcGguLVSTosU-MHpEDg-t500x500.png">](https://soundcloud.com/weewahofficial/wyha-weemix-finale)
 
-**Artist**: emorave 
+**Artist**: Weewah 
 
-**Track**: half dead prod. kuru & ginseng
+**Track**: WYHA Weemix (FreeDL)
 
-Last updated at 4/23/2025, 3:42:47 PM
+Last updated at 4/23/2025, 3:45:56 PM
