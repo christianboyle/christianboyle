@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5BGtlJC4EEy4Xyv-waADCQ-t500x500.png">](https://soundcloud.com/ghostinreallife/ghost-in-real-life-my-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPQ65UyEtDlMN2fG-xDsBKg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/finn-penny-x-liam-parkins-this-is-the-anthem-tntx026)
 
-**Artist**: Ghost in Real Life 
+**Artist**: TNT 
 
-**Track**: Ghost in Real Life - My Anthem
+**Track**: Finn Penny x Liam Parkins – This Is The Anthem [TNTX026]
 
-Last updated at 4/23/2025, 5:40:23 PM
+Last updated at 4/23/2025, 5:43:39 PM
