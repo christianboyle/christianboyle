@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0QqVK7MiGRRtYrdd-myHB7Q-t500x500.png">](https://soundcloud.com/itsxono/die-for)
 
-**Artist**: Low Poly 
+**Artist**: xono 
 
-**Track**: Voltage (Low Poly Edit)
+**Track**: die for
 
-Last updated at 4/23/2025, 8:13:07 AM
+Last updated at 4/23/2025, 8:16:42 AM
