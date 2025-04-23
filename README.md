@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FF6OEcGguLVSTosU-MHpEDg-t500x500.png">](https://soundcloud.com/weewahofficial/wyha-weemix-finale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXVgPRsHrSC9byzU-szbGPA-t500x500.png">](https://soundcloud.com/maeliveson/icarus-lyn-2rel)
 
-**Artist**: Weewah 
+**Artist**: maeri 
 
-**Track**: WYHA Weemix (FreeDL)
+**Track**: icarus (lyn + 2rel)
 
-Last updated at 4/23/2025, 3:45:56 PM
+Last updated at 4/23/2025, 3:49:12 PM
