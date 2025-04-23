@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c2vIDDHsRMp3epmv-N6hfSA-t500x500.png">](https://soundcloud.com/squired/blackiceedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
 
-**Artist**: Squired 
+**Artist**: Low Poly 
 
-**Track**: Black Ice Mudra (Squired Rave Edit)
+**Track**: Voltage (Low Poly Edit)
 
-Last updated at 4/23/2025, 6:31:04 PM
+Last updated at 4/23/2025, 6:32:39 PM
