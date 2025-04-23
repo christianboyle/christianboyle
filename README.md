@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqJFZiYAx1vWojNw-pHFMow-t500x500.png">](https://soundcloud.com/chromebodies/laserbeam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOdyAl33ScW8k8GE-MeyiuQ-t500x500.png">](https://soundcloud.com/event-whalien/ployzz-bounce-babe-wha054)
 
-**Artist**: CHROMEBODIES, RAY VOLPE 
+**Artist**: Whalien 
 
-**Track**: LASERBEAM (CHROMEBODIED)
+**Track**: PLOYZZ - BOUNCE BABE [WHA054]
 
-Last updated at 4/23/2025, 5:49:49 PM
+Last updated at 4/23/2025, 5:54:40 PM
