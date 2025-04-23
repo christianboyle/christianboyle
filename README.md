@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPQ65UyEtDlMN2fG-xDsBKg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/finn-penny-x-liam-parkins-this-is-the-anthem-tntx026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqJFZiYAx1vWojNw-pHFMow-t500x500.png">](https://soundcloud.com/chromebodies/laserbeam)
 
-**Artist**: TNT 
+**Artist**: CHROMEBODIES, RAY VOLPE 
 
-**Track**: Finn Penny x Liam Parkins – This Is The Anthem [TNTX026]
+**Track**: LASERBEAM (CHROMEBODIED)
 
-Last updated at 4/23/2025, 5:43:39 PM
+Last updated at 4/23/2025, 5:49:49 PM
