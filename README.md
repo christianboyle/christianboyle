@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UhADsWz5uGBLgUfT-F4K6cA-t500x500.png">](https://soundcloud.com/akagitune/akagitune-you-make-me-feelfc-bvr-ep-vol3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nyml6HQTp6GNmE6o-j2hLZQ-t500x500.jpg">](https://soundcloud.com/uhenzo/she-want-my-tip-bad-w-priv)
 
-**Artist**: Akagitune 
+**Artist**: enzo 
 
-**Track**: Akagitune - You Make Me Feel【F/C BVR EP VOL.3】
+**Track**: she want my tip bad w/ priv (priv)
 
-Last updated at 4/23/2025, 3:50:42 PM
+Last updated at 4/23/2025, 3:54:47 PM
