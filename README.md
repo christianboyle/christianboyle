@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwrzhrZ1Hyy55XQZ-HEfL7A-t500x500.jpg">](https://soundcloud.com/vyharamusic/didntknow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFx7pe70hIqyJGAA-9zsHHw-t500x500.jpg">](https://soundcloud.com/hallucinate/wherehaveyoubeenflip)
 
-**Artist**: Vyhara 
+**Artist**: Hallucinate 
 
-**Track**: Didn't Know
+**Track**: Where Have You Been (Hallucinate Flip)
 
-Last updated at 4/23/2025, 3:36:21 PM
+Last updated at 4/23/2025, 3:39:16 PM
