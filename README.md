@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v58VufBr4L61TA4M-8XvUKQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-feat-jared-rowan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jafzas12CPoU5wF8-DlqSNQ-t500x500.png">](https://soundcloud.com/muti/audiovoid-watch-your-step)
 
-**Artist**: JGS & INTENT, Jared Rowan 
+**Artist**: Audiovoid 
 
-**Track**: JGS & INTENT Feat. Jared Rowan - Shoreline (Glasgow Mix)
+**Track**: Audiovoid - Watch Your Step
 
-Last updated at 4/23/2025, 10:43:19 AM
+Last updated at 4/23/2025, 10:52:33 AM
