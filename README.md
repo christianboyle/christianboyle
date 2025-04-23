@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFx7pe70hIqyJGAA-9zsHHw-t500x500.jpg">](https://soundcloud.com/hallucinate/wherehaveyoubeenflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyyTmlKTFGpTMs8o-rksaGg-t500x500.jpg">](https://soundcloud.com/emorave/half-dead)
 
-**Artist**: Hallucinate 
+**Artist**: emorave 
 
-**Track**: Where Have You Been (Hallucinate Flip)
+**Track**: half dead prod. kuru & ginseng
 
-Last updated at 4/23/2025, 3:39:16 PM
+Last updated at 4/23/2025, 3:42:47 PM
