@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idaUYNINAXlbJwf4-I2TR8Q-t500x500.jpg">](https://soundcloud.com/fiendi/idgaf-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BSKyGXBrE3ZVZ8uc-lKi7qA-t500x500.jpg">](https://soundcloud.com/xaviersobased/nett-x-xav-come-in-pairs-mag)
 
-**Artist**: FIENDI 
+**Artist**: xaviersobased 
 
-**Track**: IDGAF - YEAT (FIENDI FLIP)
+**Track**: nett x xav - come in pairs (mag) *NEW 2025*
 
-Last updated at 4/22/2025, 8:43:42 PM
+Last updated at 4/22/2025, 8:44:51 PM
