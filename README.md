@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UirzgtD5W9I2vNaC-kPtHSQ-t500x500.png">](https://soundcloud.com/inquisitiveremixes/nolimit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5KFzjKKIvvengUcy-z4bQNw-t500x500.jpg">](https://soundcloud.com/monstercat/nanobii-blush)
 
-**Artist**: Inquisitive [Remixes] 
+**Artist**: nanobii 
 
-**Track**: 2 Unlimited - No Limit (Inquisitive x SATOSHI x Atomix Remix)
+**Track**: nanobii - BLUSH
 
-Last updated at 4/23/2025, 4:30:06 PM
+Last updated at 4/23/2025, 4:32:56 PM
