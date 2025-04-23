@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hXawxwnDk7vWG3We-vFnCbg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-the-equation)
 
-**Artist**: Low Poly 
+**Artist**: Adam Mohican 
 
-**Track**: Voltage (Low Poly Edit)
+**Track**: Adam Mohican - The Equation OUT NOW!
 
-Last updated at 4/23/2025, 1:48:25 PM
+Last updated at 4/23/2025, 1:50:50 PM
