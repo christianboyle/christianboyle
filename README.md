@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jafzas12CPoU5wF8-DlqSNQ-t500x500.png">](https://soundcloud.com/muti/audiovoid-watch-your-step)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqxDWfy6TyjabysK-3IjI6g-t500x500.jpg">](https://soundcloud.com/naemsofficial/33f83cde-b97a-4fa1-95be-dd337e877c4b)
 
-**Artist**: Audiovoid 
+**Artist**: NAEMS 
 
-**Track**: Audiovoid - Watch Your Step
+**Track**: Here Without You (NAEMS Remix)
 
-Last updated at 4/24/2025, 5:07:06 PM
+Last updated at 4/24/2025, 5:08:11 PM
