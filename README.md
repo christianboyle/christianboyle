@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0QqVK7MiGRRtYrdd-myHB7Q-t500x500.png">](https://soundcloud.com/itsxono/die-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UaxdYvIgLqyMEZ9d-M4SAGA-t500x500.png">](https://soundcloud.com/djrennessy/xaviersobased_swagged-out_lunamatic-elxncedjrennessyexclusive)
 
-**Artist**: xono 
+**Artist**: Dj Rennessy 
 
-**Track**: die for
+**Track**: XAVIERSOBASED_SWAGGED_OUT_(LUNAMATIC ELXNCE)=DjRennessyexclusive
 
-Last updated at 4/24/2025, 4:53:30 PM
+Last updated at 4/24/2025, 4:59:00 PM
