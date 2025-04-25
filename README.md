@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kljQI7ZXN4VZyFui-FvPmXg-t500x500.png">](https://soundcloud.com/elxrdj/fly-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQQDD7UOnTSGhLKp-I0aqtA-t500x500.jpg">](https://soundcloud.com/fakemink/music-and-me101)
 
-**Artist**: ELXR 
+**Artist**: fakemink 
 
-**Track**: Fly Away
+**Track**: Music And Me (Prod OK)
 
-Last updated at 4/25/2025, 11:12:22 AM
+Last updated at 4/25/2025, 1:21:16 PM
