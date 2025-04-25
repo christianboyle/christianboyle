@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QdnDyWjTZbFsR77q-pk5R6g-t500x500.png">](https://soundcloud.com/hate_music/premiere-nadia-struiwigh-echoing-glade-t3r016)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRO9ElwwsXH29ax7-So0Hvg-t500x500.jpg">](https://soundcloud.com/no-mercy-label/premiere-angel-cannon-overload-no-mercy)
 
-**Artist**: HATE, Nadia Struiwigh 
+**Artist**: Angel Cannon 
 
-**Track**: Premiere: Nadia Struiwigh — Echoing Glade [T3R016]
+**Track**: ANGEL CANNON - Overload [No Mercy]
 
-Last updated at 4/25/2025, 9:34:43 AM
+Last updated at 4/25/2025, 9:41:19 AM
