@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpMimwwNp3mqhl1m-VTocBw-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-malo-tebya-hard-techno-edit-roncero)
 
-**Artist**: DJSM 
+**Artist**: GEWOONRAVES 
 
-**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
+**Track**: [FREE DL] Malo Tebya (HARD TECHNO EDIT) - Roncero x Gewoonraves
 
-Last updated at 4/25/2025, 9:53:55 AM
+Last updated at 4/25/2025, 9:58:10 AM
