@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ou9Pb8J4lhs-0-t500x500.jpg">](https://soundcloud.com/k1n_music/2fast-fastlane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJJZwUzEUZSEFYcc-bl2pMQ-t500x500.jpg">](https://soundcloud.com/disentr/readytoflydisentrflip)
 
-**Artist**: K1N 
+**Artist**: DISENTR 
 
-**Track**: 2FAST (FASTLANE)
+**Track**: Ready To Fly (Sub Focus & Dimension) (Disentr Flip)
 
-Last updated at 4/25/2025, 9:19:14 AM
+Last updated at 4/25/2025, 9:20:59 AM
