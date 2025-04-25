@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xskHEAjhcc1Q4Vg-xSxQAg-t500x500.png">](https://soundcloud.com/blxty/insane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2ibvVp0IBHxbSag-4fyiHg-t500x500.jpg">](https://soundcloud.com/hellgnar/praise-the-lord)
 
-**Artist**: blxty 
+**Artist**: HellGnar 
 
-**Track**: insane (exo)
+**Track**: A$AP ROCKY x SKEPTA- PRAISE THE LORD (HELLGNAR FLIP)
 
-Last updated at 4/25/2025, 4:57:18 PM
+Last updated at 4/25/2025, 4:58:23 PM
