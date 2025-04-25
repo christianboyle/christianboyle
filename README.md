@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
 
-**Artist**: DJSM 
+**Artist**: Low Poly 
 
-**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
+**Track**: Voltage (Low Poly Edit)
 
-Last updated at 4/25/2025, 1:25:21 PM
+Last updated at 4/25/2025, 1:32:37 PM
