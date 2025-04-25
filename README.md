@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T8tbvg4S7sNNYBeF-g9IDlA-t500x500.png">](https://soundcloud.com/lowpolysound/voltage-low-poly-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMMKyAoAQlPWPXHu-6OHwkw-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away-dnb-edit)
 
-**Artist**: Low Poly 
+**Artist**: WLLWS 
 
-**Track**: Voltage (Low Poly Edit)
+**Track**: Away (VIP)
 
-Last updated at 4/25/2025, 1:32:37 PM
+Last updated at 4/25/2025, 1:53:44 PM
