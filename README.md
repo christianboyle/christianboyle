@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ruQO36248fI8cG2F-whNCHg-t500x500.jpg">](https://soundcloud.com/speed89music/cant-get-you-out-of-my-head-speed89-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOhDHhzR8vbzglIC-opNrSA-t500x500.png">](https://soundcloud.com/dramaclubrecs/sfam-shanghai-doom-rewind-3)
 
-**Artist**: Speed89 
+**Artist**: sfam, Shanghai Doom 
 
-**Track**: Can't Get You Out Of My Head (Speed89 Remix)
+**Track**: sfam, Shanghai Doom - Rewind
 
-Last updated at 4/25/2025, 8:12:31 AM
+Last updated at 4/25/2025, 8:13:42 AM
