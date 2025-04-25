@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBzyPSHi52L9e9yJ-yz01Ng-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-mbtr-juan-schreiber-goliath-extended-mix-rezongar-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fBqVcuzM1k2X-0-t500x500.jpg">](https://soundcloud.com/wandw/bad)
 
-**Artist**: Raven Musik 
+**Artist**: W&W, KSHMR 
 
-**Track**: PREMIERE: M.B.T.R., Juan Schreiber - Goliath (Extended Mix) [Rezongar Music]
+**Track**: Bad
 
-Last updated at 4/25/2025, 9:16:14 AM
+Last updated at 4/25/2025, 9:17:14 AM
