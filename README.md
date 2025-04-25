@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v58VufBr4L61TA4M-8XvUKQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-feat-jared-rowan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLnhku3XzdXjGH4p-tDiqUw-t500x500.png">](https://soundcloud.com/billykinn/kinn-feel-alive-freedownload)
 
-**Artist**: JGS & INTENT, Jared Rowan 
+**Artist**: KINN 
 
-**Track**: JGS & INTENT Feat. Jared Rowan - Shoreline (Glasgow Mix)
+**Track**: KINN - FEEL ALIVE **FREEDOWNLOAD**
 
-Last updated at 4/25/2025, 10:23:07 AM
+Last updated at 4/25/2025, 10:25:48 AM
