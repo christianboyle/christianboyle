@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tZSib6DXhmZxyI4O-hRgY7w-t500x500.png">](https://soundcloud.com/txrecords/cltx-rave-in-k3nya-feat-the-devil-dwarf-pnk001s1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
 
-**Artist**: CLTX, The Devil Dwarf 
+**Artist**: DJSM 
 
-**Track**: CLTX - RAVE iN K3NYA feat. The Devil Dwarf [PNK001S1]
+**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
 
-Last updated at 4/25/2025, 9:49:39 AM
+Last updated at 4/25/2025, 9:53:55 AM
