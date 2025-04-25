@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMMKyAoAQlPWPXHu-6OHwkw-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away-dnb-edit)
 
-**Artist**: DJSM 
+**Artist**: WLLWS 
 
-**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
+**Track**: Away (VIP)
 
-Last updated at 4/25/2025, 2:26:42 PM
+Last updated at 4/25/2025, 2:43:29 PM
