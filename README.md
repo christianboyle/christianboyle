@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v58VufBr4L61TA4M-8XvUKQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-feat-jared-rowan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKtRNAFGesquksee-wxv9qA-t500x500.png">](https://soundcloud.com/smokestaxmusic/pillz-gucci-mane-liquid-jungle-flip-4)
 
-**Artist**: JGS & INTENT, Jared Rowan 
+**Artist**: Smokestax 
 
-**Track**: JGS & INTENT Feat. Jared Rowan - Shoreline (Glasgow Mix)
+**Track**: Pillz - Gucci Mane (Liquid Jungle Flip)
 
-Last updated at 4/25/2025, 5:57:58 AM
+Last updated at 4/25/2025, 8:09:26 AM
