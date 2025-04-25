@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpMimwwNp3mqhl1m-VTocBw-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-malo-tebya-hard-techno-edit-roncero)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8ZGInO5lyJgR3Kh-rUjJMg-t500x500.png">](https://soundcloud.com/ditiswescalatie/vengaboys-boom-boom-boom)
 
-**Artist**: GEWOONRAVES 
+**Artist**: Vengaboys 
 
-**Track**: [FREE DL] Malo Tebya (HARD TECHNO EDIT) - Roncero x Gewoonraves
+**Track**: Vengaboys - Boom Boom Boom (Wescalatie Remix)
 
-Last updated at 4/25/2025, 9:58:10 AM
+Last updated at 4/25/2025, 10:01:10 AM
