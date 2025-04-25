@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGrZPLyrisyNbW8b-byzEvw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/adrenalize-ft-adn-lewis-finish-line?in=dirtyworkzofficial/sets/adrenalize-vibes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xBzyPSHi52L9e9yJ-yz01Ng-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-mbtr-juan-schreiber-goliath-extended-mix-rezongar-music)
 
-**Artist**: Adrenalize, ADN Lewis 
+**Artist**: Raven Musik 
 
-**Track**: Adrenalize ft. ADN Lewis - Finish Line
+**Track**: PREMIERE: M.B.T.R., Juan Schreiber - Goliath (Extended Mix) [Rezongar Music]
 
-Last updated at 4/25/2025, 9:15:09 AM
+Last updated at 4/25/2025, 9:16:14 AM
