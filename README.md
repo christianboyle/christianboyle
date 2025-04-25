@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UaxdYvIgLqyMEZ9d-M4SAGA-t500x500.png">](https://soundcloud.com/djrennessy/xaviersobased_swagged-out_lunamatic-elxncedjrennessyexclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v58VufBr4L61TA4M-8XvUKQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-feat-jared-rowan)
 
-**Artist**: Dj Rennessy 
+**Artist**: JGS & INTENT, Jared Rowan 
 
-**Track**: XAVIERSOBASED_SWAGGED_OUT_(LUNAMATIC ELXNCE)=DjRennessyexclusive
+**Track**: JGS & INTENT Feat. Jared Rowan - Shoreline (Glasgow Mix)
 
-Last updated at 4/25/2025, 10:21:52 AM
+Last updated at 4/25/2025, 10:23:07 AM
