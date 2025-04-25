@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRO9ElwwsXH29ax7-So0Hvg-t500x500.jpg">](https://soundcloud.com/no-mercy-label/premiere-angel-cannon-overload-no-mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t5C2I6m1yzOT9izP-cuRveA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/adrenalize-underneath)
 
-**Artist**: Angel Cannon 
+**Artist**: Adrenalize 
 
-**Track**: ANGEL CANNON - Overload [No Mercy]
+**Track**: Adrenalize - Underneath
 
-Last updated at 4/25/2025, 9:41:19 AM
+Last updated at 4/25/2025, 9:46:39 AM
