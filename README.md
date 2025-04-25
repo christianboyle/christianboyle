@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuOFp4r0IAEu-0-t500x500.jpg">](https://soundcloud.com/fromfloridasfinest/sincerity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZGrZPLyrisyNbW8b-byzEvw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/adrenalize-ft-adn-lewis-finish-line?in=dirtyworkzofficial/sets/adrenalize-vibes)
 
-**Artist**: SAILORR 
+**Artist**: Adrenalize, ADN Lewis 
 
-**Track**: SINCERITY
+**Track**: Adrenalize ft. ADN Lewis - Finish Line
 
-Last updated at 4/25/2025, 9:14:04 AM
+Last updated at 4/25/2025, 9:15:09 AM
