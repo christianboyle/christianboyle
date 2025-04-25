@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fBqVcuzM1k2X-0-t500x500.jpg">](https://soundcloud.com/wandw/bad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y41zsAJa6lgyKwNK-XhGdjA-t500x500.png">](https://soundcloud.com/iamhardstyle/brennan-heart-until-we-fall-down)
 
-**Artist**: W&W, KSHMR 
+**Artist**: I AM HARDSTYLE 
 
-**Track**: Bad
+**Track**: Brennan Heart - Until We Fall Down
 
-Last updated at 4/25/2025, 9:17:14 AM
+Last updated at 4/25/2025, 9:18:14 AM
