@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQQDD7UOnTSGhLKp-I0aqtA-t500x500.jpg">](https://soundcloud.com/fakemink/music-and-me101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEO9tbRePuV5HuM5-Y3z1Lg-t500x500.jpg">](https://soundcloud.com/fakemink/25cccb3d-29b4-4ed8-92ba-902237e93c6a)
 
 **Artist**: fakemink 
 
-**Track**: Music And Me (Prod OK)
+**Track**: Milk (Prod Me)
 
-Last updated at 4/25/2025, 1:21:16 PM
+Last updated at 4/25/2025, 1:23:21 PM
