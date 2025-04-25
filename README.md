@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8ZGInO5lyJgR3Kh-rUjJMg-t500x500.png">](https://soundcloud.com/ditiswescalatie/vengaboys-boom-boom-boom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyYDeydEo93ff6vC-taXYMQ-t500x500.jpg">](https://soundcloud.com/suspekt7/one-master-blade)
 
-**Artist**: Vengaboys 
+**Artist**: SUSPEKT 
 
-**Track**: Vengaboys - Boom Boom Boom (Wescalatie Remix)
+**Track**: SUSPEKT - One Master Blade (Free Download)
 
-Last updated at 4/25/2025, 10:01:10 AM
+Last updated at 4/25/2025, 10:03:46 AM
