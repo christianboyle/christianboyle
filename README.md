@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYy7H7E6mCByJ8Wq-rT6pKg-t500x500.jpg">](https://soundcloud.com/opask/rave-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ou9Pb8J4lhs-0-t500x500.jpg">](https://soundcloud.com/k1n_music/2fast-fastlane)
 
-**Artist**: OpasK 
+**Artist**: K1N 
 
-**Track**: R@V3 SH!T
+**Track**: 2FAST (FASTLANE)
 
-Last updated at 4/25/2025, 1:55:54 PM
+Last updated at 4/25/2025, 1:58:40 PM
