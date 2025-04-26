@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpMimwwNp3mqhl1m-VTocBw-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-malo-tebya-hard-techno-edit-roncero?in=saxurn/sets/morphin/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRO9ElwwsXH29ax7-So0Hvg-t500x500.jpg">](https://soundcloud.com/no-mercy-label/premiere-angel-cannon-overload-no-mercy?in=saxurn/sets/morphin/)
 
-**Artist**: GEWOONRAVES 
+**Artist**: Angel Cannon 
 
-**Track**: [FREE DL] Malo Tebya (HARD TECHNO EDIT) - Roncero x Gewoonraves
+**Track**: ANGEL CANNON - Overload [No Mercy]
 
-Last updated at 4/26/2025, 9:01:29 AM
+Last updated at 4/26/2025, 9:04:29 AM
