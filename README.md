@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ou9Pb8J4lhs-0-t500x500.jpg">](https://soundcloud.com/k1n_music/2fast-fastlane?in=saxurn/sets/morphin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5Vz31zF8JO43Ral-2cFNqg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/bentley)
 
-**Artist**: K1N 
+**Artist**: GOLD DiGGER [RECORDS] 
 
-**Track**: 2FAST (FASTLANE)
+**Track**: AJSE - Bentley [Gold Digger]
 
-Last updated at 4/26/2025, 9:40:11 AM
+Last updated at 4/26/2025, 9:43:27 AM
