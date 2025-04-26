@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLnhku3XzdXjGH4p-tDiqUw-t500x500.png">](https://soundcloud.com/billykinn/kinn-feel-alive-freedownload)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idaUYNINAXlbJwf4-I2TR8Q-t500x500.jpg">](https://soundcloud.com/fiendi/idgaf-flip)
 
-**Artist**: KINN 
+**Artist**: FIENDI 
 
-**Track**: KINN - FEEL ALIVE **FREEDOWNLOAD**
+**Track**: IDGAF - YEAT (FIENDI FLIP)
 
-Last updated at 4/26/2025, 8:34:40 AM
+Last updated at 4/26/2025, 8:35:40 AM
