@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5Vz31zF8JO43Ral-2cFNqg-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/every-nightt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGCgAQZV9jPApVz7-AsHJSA-t500x500.png">](https://soundcloud.com/hanconscious/eviljordanremix)
 
-**Artist**: AJSE 
+**Artist**: Han Conscious 
 
-**Track**: AJSE - Every Night [Gold Digger]
+**Track**: Playboi Carti - Evil Jordan (House Remix) [Han Conscious Remix] | Evil Jordan Remix
 
-Last updated at 4/26/2025, 9:45:47 AM
+Last updated at 4/26/2025, 9:47:42 AM
