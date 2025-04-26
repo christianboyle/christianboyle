@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2ibvVp0IBHxbSag-4fyiHg-t500x500.jpg">](https://soundcloud.com/hellgnar/praise-the-lord)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hXawxwnDk7vWG3We-vFnCbg-t500x500.png">](https://soundcloud.com/adam_mohican/adam-mohican-the-equation)
 
-**Artist**: HellGnar 
+**Artist**: Adam Mohican 
 
-**Track**: A$AP ROCKY x SKEPTA- PRAISE THE LORD (HELLGNAR FLIP)
+**Track**: Adam Mohican - The Equation OUT NOW!
 
-Last updated at 4/25/2025, 4:58:23 PM
+Last updated at 4/26/2025, 7:38:05 AM
