@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGCgAQZV9jPApVz7-AsHJSA-t500x500.png">](https://soundcloud.com/hanconscious/eviljordanremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lm8gKRHaok6W-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/mf-one)
 
-**Artist**: Han Conscious 
+**Artist**: TACCERS 
 
-**Track**: Playboi Carti - Evil Jordan (House Remix) [Han Conscious Remix] | Evil Jordan Remix
+**Track**: MF ONE
 
-Last updated at 4/26/2025, 10:41:10 AM
+Last updated at 4/27/2025, 6:53:36 AM
