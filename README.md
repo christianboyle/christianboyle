@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lm8gKRHaok6W-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/mf-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eQQDD7UOnTSGhLKp-I0aqtA-t500x500.jpg">](https://soundcloud.com/fakemink/music-and-me101?in=saxurn/sets/morphin)
 
-**Artist**: TACCERS 
+**Artist**: fakemink 
 
-**Track**: MF ONE
+**Track**: Music And Me (Prod OK)
 
-Last updated at 4/27/2025, 6:53:36 AM
+Last updated at 4/27/2025, 3:15:57 PM
