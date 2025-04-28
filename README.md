@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRO9ElwwsXH29ax7-So0Hvg-t500x500.jpg">](https://soundcloud.com/no-mercy-label/premiere-angel-cannon-overload-no-mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
 
-**Artist**: Angel Cannon 
+**Artist**: Niko Demus 
 
-**Track**: ANGEL CANNON - Overload [No Mercy]
+**Track**: Ocean Drift (bambinodj Remix)
 
-Last updated at 4/28/2025, 2:41:13 PM
+Last updated at 4/28/2025, 2:56:48 PM
