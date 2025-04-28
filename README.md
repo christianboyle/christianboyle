@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtCaQ7mxu3MM1PMo-K5Fq2w-t500x500.png">](https://soundcloud.com/badmouthrecs/pressure-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTpgTnGwsiiaXCIg-J4W4xA-t500x500.jpg">](https://soundcloud.com/avilys_muzik/dream-garden-avilys-wav)
 
-**Artist**: JESTIC 
+**Artist**: AVILYS 
 
-**Track**: PRESSURE
+**Track**: DREAM GARDEN
 
-Last updated at 4/27/2025, 7:01:31 PM
+Last updated at 4/27/2025, 7:07:41 PM
