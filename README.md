@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvtJDoK1tFh3hoNr-hJrjYQ-t500x500.png">](https://soundcloud.com/idkymusic/sammy-virji-i-guess-were-not)
 
-**Artist**: Niko Demus 
+**Artist**: IDK-Y, Sammy Virji 
 
-**Track**: Ocean Drift (bambinodj Remix)
+**Track**: Sammy Virji - I Guess We're Not The Same (IDK-Y Remix)
 
-Last updated at 4/28/2025, 9:05:40 AM
+Last updated at 4/28/2025, 9:12:21 AM
