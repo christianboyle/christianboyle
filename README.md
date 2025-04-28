@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhkIeBtp9v9PP6N8-J7345g-t500x500.png">](https://soundcloud.com/keep_it_locked_tapes/force-styles-simply-electric-mixtape)
 
-**Artist**: Niko Demus 
+**Artist**: Keep_It_Locked 
 
-**Track**: Ocean Drift (bambinodj Remix)
+**Track**: Force & Styles - Simply Electric Mixtape
 
-Last updated at 4/28/2025, 8:18:01 AM
+Last updated at 4/28/2025, 8:19:01 AM
