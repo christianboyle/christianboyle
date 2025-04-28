@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAaYc9rwo0Um-0-t500x500.png">](https://soundcloud.com/nikitathewicked/leave-u-alone?in=sadkomusic/sets/leave-u-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vDF2sgooCZczmyXT-JObQpg-t500x500.jpg">](https://soundcloud.com/999999999music/sikoti-one-more-time-ntnd014)
 
-**Artist**: Nikita, the Wicked, SVDKO 
+**Artist**: Sikoti 
 
-**Track**: LEAVE U ALONE
+**Track**: SIKOTI - One More Time [NTND014]
 
-Last updated at 4/28/2025, 8:16:01 AM
+Last updated at 4/28/2025, 8:17:01 AM
