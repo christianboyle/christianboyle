@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYy7H7E6mCByJ8Wq-rT6pKg-t500x500.jpg">](https://soundcloud.com/opask/rave-shit?in=saxurn/sets/morphin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtCaQ7mxu3MM1PMo-K5Fq2w-t500x500.png">](https://soundcloud.com/badmouthrecs/pressure-3)
 
-**Artist**: OpasK 
+**Artist**: JESTIC 
 
-**Track**: R@V3 SH!T
+**Track**: PRESSURE
 
-Last updated at 4/27/2025, 3:20:23 PM
+Last updated at 4/27/2025, 7:01:31 PM
