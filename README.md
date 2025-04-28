@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xskHEAjhcc1Q4Vg-xSxQAg-t500x500.png">](https://soundcloud.com/blxty/insane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
 
-**Artist**: blxty 
+**Artist**: Niko Demus 
 
-**Track**: insane (exo)
+**Track**: Ocean Drift (bambinodj Remix)
 
-Last updated at 4/28/2025, 9:34:33 AM
+Last updated at 4/28/2025, 9:54:30 AM
