@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMMKyAoAQlPWPXHu-6OHwkw-t500x500.jpg">](https://soundcloud.com/wllwsofficial/away-dnb-edit)
 
-**Artist**: Tisoki 
+**Artist**: WLLWS 
 
-**Track**: Tisoki - GONE FOR A MINUTE
+**Track**: Away (VIP)
 
-Last updated at 4/28/2025, 2:27:47 PM
+Last updated at 4/28/2025, 2:30:02 PM
