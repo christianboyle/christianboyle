@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xskHEAjhcc1Q4Vg-xSxQAg-t500x500.png">](https://soundcloud.com/blxty/insane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NYy7H7E6mCByJ8Wq-rT6pKg-t500x500.jpg">](https://soundcloud.com/opask/rave-shit)
 
-**Artist**: blxty 
+**Artist**: OpasK 
 
-**Track**: insane (exo)
+**Track**: R@V3 SH!T
 
-Last updated at 4/28/2025, 9:00:45 AM
+Last updated at 4/28/2025, 9:02:35 AM
