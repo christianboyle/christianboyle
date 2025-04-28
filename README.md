@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
 
-**Artist**: DJSM 
+**Artist**: Niko Demus 
 
-**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
+**Track**: Ocean Drift (bambinodj Remix)
 
-Last updated at 4/28/2025, 11:28:28 AM
+Last updated at 4/28/2025, 11:29:58 AM
