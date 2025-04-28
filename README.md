@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Dj22VuaNxORayNW-AbDoLA-t500x500.png">](https://soundcloud.com/itsyokomusic/official-mid-century-modular)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlvSMJSh31Fpm3Vy-o7eS9w-t500x500.png">](https://soundcloud.com/tactixbass/6f64cc97-8743-4530-8deb-9b6c0c4a7e86)
 
-**Artist**: Yoko 
+**Artist**: TACTIX 
 
-**Track**: Mid-Century Modular
+**Track**: TACTIX - CRANK IT
 
-Last updated at 4/27/2025, 7:10:07 PM
+Last updated at 4/27/2025, 7:11:32 PM
