@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfU9ZW4tOkg3qJR2-HCyRGQ-t500x500.jpg">](https://soundcloud.com/mellow_bender/ripple-effect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bsd90KjCXfWY-0-t500x500.jpg">](https://soundcloud.com/twentyonepilots/doubt)
 
-**Artist**: Mellow Bender 
+**Artist**: twenty one pilots 
 
-**Track**: Ripple Effect
+**Track**: Doubt
 
-Last updated at 4/28/2025, 7:05:36 AM
+Last updated at 4/28/2025, 8:14:51 AM
