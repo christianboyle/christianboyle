@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bsd90KjCXfWY-0-t500x500.jpg">](https://soundcloud.com/twentyonepilots/doubt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAaYc9rwo0Um-0-t500x500.png">](https://soundcloud.com/nikitathewicked/leave-u-alone?in=sadkomusic/sets/leave-u-alone)
 
-**Artist**: twenty one pilots 
+**Artist**: Nikita, the Wicked, SVDKO 
 
-**Track**: Doubt
+**Track**: LEAVE U ALONE
 
-Last updated at 4/28/2025, 8:14:51 AM
+Last updated at 4/28/2025, 8:16:01 AM
