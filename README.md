@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFGxB02UV8pTmj6E-T4qJAw-t500x500.png">](https://soundcloud.com/gravitas-recordings/magma-final-boss-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute)
 
-**Artist**: MAGMA  
+**Artist**: Tisoki 
 
-**Track**: MAGMA - Final Boss
+**Track**: Tisoki - GONE FOR A MINUTE
 
-Last updated at 4/28/2025, 1:13:43 PM
+Last updated at 4/28/2025, 2:27:47 PM
