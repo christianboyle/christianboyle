@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdP7TzwVfO3DiA6Y-2pNmJw-t500x500.png">](https://soundcloud.com/ctrl_ctrl_ctrl/ctrl-talking-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfU9ZW4tOkg3qJR2-HCyRGQ-t500x500.jpg">](https://soundcloud.com/mellow_bender/ripple-effect)
 
-**Artist**: Ctrl 
+**Artist**: Mellow Bender 
 
-**Track**: Ctrl - Talking 2 [Free Download]
+**Track**: Ripple Effect
 
-Last updated at 4/27/2025, 7:15:22 PM
+Last updated at 4/27/2025, 7:23:16 PM
