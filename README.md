@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kRO9ElwwsXH29ax7-So0Hvg-t500x500.jpg">](https://soundcloud.com/no-mercy-label/premiere-angel-cannon-overload-no-mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix)
 
-**Artist**: Angel Cannon 
+**Artist**: DJSM 
 
-**Track**: ANGEL CANNON - Overload [No Mercy]
+**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
 
-Last updated at 4/28/2025, 11:23:13 AM
+Last updated at 4/28/2025, 11:28:28 AM
