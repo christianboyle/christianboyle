@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vDF2sgooCZczmyXT-JObQpg-t500x500.jpg">](https://soundcloud.com/999999999music/sikoti-one-more-time-ntnd014)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
 
-**Artist**: Sikoti 
+**Artist**: Niko Demus 
 
-**Track**: SIKOTI - One More Time [NTND014]
+**Track**: Ocean Drift (bambinodj Remix)
 
-Last updated at 4/28/2025, 8:17:01 AM
+Last updated at 4/28/2025, 8:18:01 AM
