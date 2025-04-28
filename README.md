@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOBqqKyEj6A8AyVR-UuWtuA-t500x500.jpg">](https://soundcloud.com/dabinlee/summers-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFGxB02UV8pTmj6E-T4qJAw-t500x500.png">](https://soundcloud.com/gravitas-recordings/magma-final-boss-8)
 
-**Artist**: DABIN, Frosttop 
+**Artist**: MAGMA  
 
-**Track**: Summer's Gone (feat. Tiffany Day)
+**Track**: MAGMA - Final Boss
 
-Last updated at 4/28/2025, 10:10:46 AM
+Last updated at 4/28/2025, 10:14:21 AM
