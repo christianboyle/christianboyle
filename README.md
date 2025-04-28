@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhkIeBtp9v9PP6N8-J7345g-t500x500.png">](https://soundcloud.com/keep_it_locked_tapes/force-styles-simply-electric-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IlvSMJSh31Fpm3Vy-o7eS9w-t500x500.png">](https://soundcloud.com/tactixbass/6f64cc97-8743-4530-8deb-9b6c0c4a7e86)
 
-**Artist**: Keep_It_Locked 
+**Artist**: TACTIX 
 
-**Track**: Force & Styles - Simply Electric Mixtape
+**Track**: TACTIX - CRANK IT
 
-Last updated at 4/28/2025, 8:19:01 AM
+Last updated at 4/28/2025, 8:34:03 AM
