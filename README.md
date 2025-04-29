@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rawE1KD9L9Nj8R5Z-zrQskA-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/raverbaby-is-coming-to-glasgow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vm5BJuL8mCxHHtzd-NGGuSw-t500x500.png">](https://soundcloud.com/a01211581/ripscooter)
 
-**Artist**: Dj Des 
+**Artist**: sunsǝt 
 
-**Track**: RaverBaby is Coming to Glasgow ..... ( 2000 - 2003 Classics )
+**Track**: RIP SCOOTER
 
-Last updated at 4/29/2025, 9:05:22 AM
+Last updated at 4/29/2025, 9:06:27 AM
