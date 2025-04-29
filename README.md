@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9lbSeOvLwwpf-0-t500x500.jpg">](https://soundcloud.com/poltergst/open-your-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
 
-**Artist**: POLTERGST 
+**Artist**: Niko Demus 
 
-**Track**: Open Your Eyes
+**Track**: Ocean Drift (bambinodj Remix)
 
-Last updated at 4/29/2025, 1:34:12 PM
+Last updated at 4/29/2025, 1:37:27 PM
