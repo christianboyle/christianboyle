@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NaZ5qNamMfidix0A-fIY23Q-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-enos-saintbull-anubis-astral-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tgrV8yUkyF1Y4yeR-VMFEMQ-t500x500.png">](https://soundcloud.com/ollyjamesmusic/hey-boy-hey-girl)
 
-**Artist**: Raven Musik 
+**Artist**: Olly James 
 
-**Track**: PREMIERE: ENØS, Saintbull - Anubis [Astral Records]
+**Track**: Hey Boy Hey Girl
 
-Last updated at 4/29/2025, 8:44:10 AM
+Last updated at 4/29/2025, 8:50:20 AM
