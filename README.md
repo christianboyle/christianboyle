@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U67qXtg7AzXJfSDZ-rD2guw-t500x500.png">](https://soundcloud.com/hemi-wav/jush-for-you)
 
-**Artist**: Niko Demus 
+**Artist**: JUSH 
 
-**Track**: Ocean Drift (bambinodj Remix)
+**Track**: JUSH - For You
 
-Last updated at 4/29/2025, 1:37:27 PM
+Last updated at 4/29/2025, 1:45:23 PM
