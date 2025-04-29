@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28k9cK84or3FmAa0-WDFmzg-t500x500.jpg">](https://soundcloud.com/interalia_0/wtwcb-w-niko-demus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gXfqslhhZvqnvKnR-FtBz6A-t500x500.png">](https://soundcloud.com/houseofgrooveofficial/gus-its-only-me)
 
-**Artist**: inter alia 
+**Artist**: Gus 
 
-**Track**: wtwcb (w/ Niko Demus)
+**Track**: Gus - It's Only Me
 
-Last updated at 4/29/2025, 8:19:04 AM
+Last updated at 4/29/2025, 8:22:14 AM
