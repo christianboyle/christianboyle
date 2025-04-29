@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28k9cK84or3FmAa0-WDFmzg-t500x500.jpg">](https://soundcloud.com/interalia_0/wtwcb-w-niko-demus)
 
-**Artist**: Niko Demus 
+**Artist**: inter alia 
 
-**Track**: Ocean Drift (bambinodj Remix)
+**Track**: wtwcb (w/ Niko Demus)
 
-Last updated at 4/29/2025, 8:12:13 AM
+Last updated at 4/29/2025, 8:19:04 AM
