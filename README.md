@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5R7jjAmA8zQ4q8Sa-GU8RlA-t500x500.jpg">](https://soundcloud.com/a01211581/gud_ktrap_aaa_intentions_125)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYicDvDT0LaVJ6yf-Jlxgsw-t500x500.png">](https://soundcloud.com/a01211581/starstogether)
 
 **Artist**: sunsǝt 
 
-**Track**: GUD_KTRAP_AAA_INTENTIONS_125
+**Track**: STARSTOGETHER
 
-Last updated at 4/29/2025, 9:09:42 AM
+Last updated at 4/29/2025, 9:11:02 AM
