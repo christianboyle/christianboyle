@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IDjxd48h2pmIZC2-FW3t1g-t500x500.png">](https://soundcloud.com/starrynn/memories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOBqqKyEj6A8AyVR-UuWtuA-t500x500.jpg">](https://soundcloud.com/dabinlee/summers-gone)
 
-**Artist**: starry 
+**Artist**: DABIN, Frosttop 
 
-**Track**: pictures / memories (rhek + rel)
+**Track**: Summer's Gone (feat. Tiffany Day)
 
-Last updated at 4/29/2025, 1:48:28 PM
+Last updated at 4/29/2025, 1:50:48 PM
