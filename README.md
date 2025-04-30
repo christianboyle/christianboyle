@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mifKGlVVvjoGal0y-yAvv5A-t500x500.jpg">](https://soundcloud.com/kenetic-kannibalz/death-on-knees)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjqeWQO9wKZlVaLQ-ywPvtA-t500x500.jpg">](https://soundcloud.com/ethanplus/schlarge)
 
-**Artist**: Voydoom, Kenetic Kannibalz 
+**Artist**: ethanplus 
 
-**Track**: DEATH ON KNEES
+**Track**: Schlarge
 
-Last updated at 4/30/2025, 6:08:46 AM
+Last updated at 4/30/2025, 8:06:07 AM
