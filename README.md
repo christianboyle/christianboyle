@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cphWnok9YcyIy52-8pHWyw-t500x500.png">](https://soundcloud.com/laxter-music/beauz-ocho-laxter-hard-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzPmsmqXSVnLsjTM-xHczeQ-t500x500.jpg">](https://soundcloud.com/outforce/2-sick-puppiez-its-been-a-while-original-bouncy-techno-mix)
 
-**Artist**: LAXTER 
+**Artist**: Outforce 
 
-**Track**: BEAUZ - OCHO (LAXTER HARD EDIT) | FREE DL
+**Track**: 2 Sick Puppiez - It's Been A While (Original Bouncy Techno Mix)
 
-Last updated at 4/30/2025, 10:23:36 AM
+Last updated at 4/30/2025, 1:36:50 PM
