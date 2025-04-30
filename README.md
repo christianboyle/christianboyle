@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOkBhxPoCaXHlnvc-B0Uz2A-t500x500.png">](https://soundcloud.com/keyvslocket/halfenough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzPmsmqXSVnLsjTM-xHczeQ-t500x500.jpg">](https://soundcloud.com/outforce/2-sick-puppiez-its-been-a-while-original-bouncy-techno-mix)
 
-**Artist**: keyvslocket 
+**Artist**: Outforce 
 
-**Track**: half enough
+**Track**: 2 Sick Puppiez - It's Been A While (Original Bouncy Techno Mix)
 
-Last updated at 4/30/2025, 10:00:14 AM
+Last updated at 4/30/2025, 10:02:39 AM
