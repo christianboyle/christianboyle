@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FOBqqKyEj6A8AyVR-UuWtuA-t500x500.jpg">](https://soundcloud.com/dabinlee/summers-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute)
 
-**Artist**: DABIN, Frosttop 
+**Artist**: Tisoki 
 
-**Track**: Summer's Gone (feat. Tiffany Day)
+**Track**: Tisoki - GONE FOR A MINUTE
 
-Last updated at 4/30/2025, 2:57:37 PM
+Last updated at 4/30/2025, 3:00:29 PM
