@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-28k9cK84or3FmAa0-WDFmzg-t500x500.jpg">](https://soundcloud.com/interalia_0/wtwcb-w-niko-demus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0QqVK7MiGRRtYrdd-myHB7Q-t500x500.png">](https://soundcloud.com/itsxono/die-for)
 
-**Artist**: inter alia 
+**Artist**: xono 
 
-**Track**: wtwcb (w/ Niko Demus)
+**Track**: die for
 
-Last updated at 4/30/2025, 9:54:48 AM
+Last updated at 4/30/2025, 9:57:03 AM
