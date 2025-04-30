@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzyqkJF50TFxyizN-jlVYhw-t500x500.jpg">](https://soundcloud.com/jpky/kyotoflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jw5T7x4rL263IOLp-8jLpVw-t500x500.png">](https://soundcloud.com/adventureclub/alexwarrenordinaryremix)
 
-**Artist**: JPKy 
+**Artist**: Adventure Club 
 
-**Track**: skrillex - kyoto (jpky flip)
+**Track**: Alex Warren - Ordinary (Adventure Club Remix)
 
-Last updated at 4/30/2025, 8:13:03 AM
+Last updated at 4/30/2025, 8:14:03 AM
