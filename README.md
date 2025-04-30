@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzPmsmqXSVnLsjTM-xHczeQ-t500x500.jpg">](https://soundcloud.com/outforce/2-sick-puppiez-its-been-a-while-original-bouncy-techno-mix?in=saxurn/sets/immaculate/)
 
-**Artist**: Tisoki 
+**Artist**: Outforce 
 
-**Track**: Tisoki - GONE FOR A MINUTE
+**Track**: 2 Sick Puppiez - It's Been A While (Original Bouncy Techno Mix)
 
-Last updated at 4/30/2025, 3:00:29 PM
+Last updated at 4/30/2025, 3:02:41 PM
