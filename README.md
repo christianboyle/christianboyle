@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h2M2zH2VgGzRl1jK-tVfXzQ-t500x500.png">](https://soundcloud.com/swords2/sick-sun-prod-evas1ons-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back)
 
-**Artist**: Swords2 
+**Artist**: NSCLT 
 
-**Track**: sick sun [prod. evasi0ns]
+**Track**: NSCLT - Bring It Back
 
-Last updated at 4/30/2025, 6:06:25 AM
+Last updated at 4/30/2025, 6:07:31 AM
