@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbscSPBWLsVurVxm-yEdduA-t500x500.jpg">](https://soundcloud.com/deltaoctagon/panda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back)
 
-**Artist**: Delta Octagon 
+**Artist**: NSCLT 
 
-**Track**: Panda (FREE DL)
+**Track**: NSCLT - Bring It Back
 
-Last updated at 4/30/2025, 10:10:40 AM
+Last updated at 4/30/2025, 10:18:55 AM
