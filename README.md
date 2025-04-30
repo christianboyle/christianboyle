@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3REGWzw1kadbjKP-cd0quw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-chris-davies-baby-i-like-you-just-the-way-u-r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpEJx8xUIwU2ldbq-fczlWA-t500x500.jpg">](https://soundcloud.com/groove030/kunsttechnologe-frecuencia-anfetamina)
 
-**Artist**: DJ Chris Davies 
+**Artist**: KunstTechnologe 
 
-**Track**: DJ Chris Davies - Baby I Like You Just The Way U R
+**Track**: KunstTechnologe - Frecuencia Anfetamina
 
-Last updated at 4/30/2025, 6:04:05 AM
+Last updated at 4/30/2025, 6:05:05 AM
