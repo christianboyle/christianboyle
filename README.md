@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back?in=saxurn/sets/immaculate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9lbSeOvLwwpf-0-t500x500.jpg">](https://soundcloud.com/poltergst/open-your-eyes?in=saxurn/sets/immaculate)
 
-**Artist**: NSCLT 
+**Artist**: POLTERGST 
 
-**Track**: NSCLT - Bring It Back
+**Track**: Open Your Eyes
 
-Last updated at 4/30/2025, 4:51:51 PM
+Last updated at 4/30/2025, 4:55:21 PM
