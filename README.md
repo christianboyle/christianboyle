@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mifKGlVVvjoGal0y-yAvv5A-t500x500.jpg">](https://soundcloud.com/kenetic-kannibalz/death-on-knees)
 
-**Artist**: NSCLT 
+**Artist**: Voydoom, Kenetic Kannibalz 
 
-**Track**: NSCLT - Bring It Back
+**Track**: DEATH ON KNEES
 
-Last updated at 4/30/2025, 6:07:31 AM
+Last updated at 4/30/2025, 6:08:46 AM
