@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U67qXtg7AzXJfSDZ-rD2guw-t500x500.png">](https://soundcloud.com/hemi-wav/jush-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IDjxd48h2pmIZC2-FW3t1g-t500x500.png">](https://soundcloud.com/starrynn/memories)
 
-**Artist**: JUSH 
+**Artist**: starry 
 
-**Track**: JUSH - For You
+**Track**: pictures / memories (rhek + rel)
 
-Last updated at 4/30/2025, 2:49:47 PM
+Last updated at 4/30/2025, 2:52:52 PM
