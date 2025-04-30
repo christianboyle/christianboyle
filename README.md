@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fN5hmP8V7Hyrfy3h-b6DqCA-t500x500.jpg">](https://soundcloud.com/user-421781243/bel-mercy-azathoth-remixbooi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CoOzbgoWZ7lXaL9Y-QFYHtA-t500x500.jpg">](https://soundcloud.com/a01211581/rgf)
 
-**Artist**: AZATHOTH 
+**Artist**: sunsǝt 
 
-**Track**: Bel Mercy (Azathoth Remix)
+**Track**: RGFISLAND_RISEAGAIN
 
-Last updated at 4/30/2025, 8:45:37 AM
+Last updated at 4/30/2025, 9:27:31 AM
