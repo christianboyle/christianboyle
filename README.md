@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzPmsmqXSVnLsjTM-xHczeQ-t500x500.jpg">](https://soundcloud.com/outforce/2-sick-puppiez-its-been-a-while-original-bouncy-techno-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lYekDc1tIrAfSD3-E48z4g-t500x500.png">](https://soundcloud.com/jamesjamesjamess/oneinamillion)
 
-**Artist**: Outforce 
+**Artist**: jamesjamesjames 
 
-**Track**: 2 Sick Puppiez - It's Been A While (Original Bouncy Techno Mix)
+**Track**: one in a million
 
-Last updated at 4/30/2025, 10:02:39 AM
+Last updated at 4/30/2025, 10:06:04 AM
