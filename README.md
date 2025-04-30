@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xHLOdPNvk9yCm5fM-xwThgg-t500x500.jpg">](https://soundcloud.com/rebolation/dj-e6c41-do-gloria-promise-me-a-buceta-nova)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EPyIgX0QlzzLPA2x-NWTQEg-t500x500.jpg">](https://soundcloud.com/01-427226688/d2346665-pointless-extension)
 
-**Artist**: NAÇÃOREBOLATION69 
+**Artist**: DJ RA1N 
 
-**Track**: DJ e6c41 DO GLÓRIA - PROMISE ME A BUCETA NOVA
+**Track**: d2346665[   .Pointless Extension ]
 
-Last updated at 4/30/2025, 8:10:07 AM
+Last updated at 4/30/2025, 8:11:33 AM
