@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cphWnok9YcyIy52-8pHWyw-t500x500.png">](https://soundcloud.com/laxter-music/beauz-ocho-laxter-hard-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U67qXtg7AzXJfSDZ-rD2guw-t500x500.png">](https://soundcloud.com/hemi-wav/jush-for-you)
 
-**Artist**: LAXTER 
+**Artist**: JUSH 
 
-**Track**: BEAUZ - OCHO (LAXTER HARD EDIT) | FREE DL
+**Track**: JUSH - For You
 
-Last updated at 4/30/2025, 1:59:27 PM
+Last updated at 4/30/2025, 2:49:47 PM
