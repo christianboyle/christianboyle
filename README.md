@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cphWnok9YcyIy52-8pHWyw-t500x500.png">](https://soundcloud.com/laxter-music/beauz-ocho-laxter-hard-edit-free-dl)
 
-**Artist**: NSCLT 
+**Artist**: LAXTER 
 
-**Track**: NSCLT - Bring It Back
+**Track**: BEAUZ - OCHO (LAXTER HARD EDIT) | FREE DL
 
-Last updated at 4/30/2025, 1:55:56 PM
+Last updated at 4/30/2025, 1:59:27 PM
