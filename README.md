@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cphWnok9YcyIy52-8pHWyw-t500x500.png">](https://soundcloud.com/laxter-music/beauz-ocho-laxter-hard-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fN5hmP8V7Hyrfy3h-b6DqCA-t500x500.jpg">](https://soundcloud.com/user-421781243/bel-mercy-azathoth-remixbooi)
 
-**Artist**: LAXTER 
+**Artist**: AZATHOTH 
 
-**Track**: BEAUZ - OCHO (LAXTER HARD EDIT) | FREE DL
+**Track**: Bel Mercy (Azathoth Remix)
 
-Last updated at 4/30/2025, 8:40:41 AM
+Last updated at 4/30/2025, 8:45:37 AM
