@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpEJx8xUIwU2ldbq-fczlWA-t500x500.jpg">](https://soundcloud.com/groove030/kunsttechnologe-frecuencia-anfetamina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h2M2zH2VgGzRl1jK-tVfXzQ-t500x500.png">](https://soundcloud.com/swords2/sick-sun-prod-evas1ons-1)
 
-**Artist**: KunstTechnologe 
+**Artist**: Swords2 
 
-**Track**: KunstTechnologe - Frecuencia Anfetamina
+**Track**: sick sun [prod. evasi0ns]
 
-Last updated at 4/30/2025, 6:05:05 AM
+Last updated at 4/30/2025, 6:06:25 AM
