@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fN5hmP8V7Hyrfy3h-b6DqCA-t500x500.jpg">](https://soundcloud.com/user-421781243/bel-mercy-azathoth-remixbooi?in=saxurn/sets/immaculate/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0xskHEAjhcc1Q4Vg-xSxQAg-t500x500.png">](https://soundcloud.com/blxty/insane)
 
-**Artist**: AZATHOTH 
+**Artist**: blxty 
 
-**Track**: Bel Mercy (Azathoth Remix)
+**Track**: insane (exo)
 
-Last updated at 5/1/2025, 8:09:25 AM
+Last updated at 5/1/2025, 8:13:56 AM
