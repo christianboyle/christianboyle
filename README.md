@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute?in=saxurn/sets/immaculate/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dgNhTlvfLlsNbzIj-A3Caow-t500x500.png">](https://soundcloud.com/casterscurse/drift_edit)
 
-**Artist**: Tisoki 
+**Artist**: CASTER 
 
-**Track**: Tisoki - GONE FOR A MINUTE
+**Track**: G JONES - DRIFT (CURSED BY CASTER)
 
-Last updated at 4/30/2025, 8:11:04 PM
+Last updated at 4/30/2025, 8:13:14 PM
