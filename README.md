@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1h0zX9OF8VViTfuP-rGvO4w-t500x500.png">](https://soundcloud.com/remkmusic/airplanes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dgNhTlvfLlsNbzIj-A3Caow-t500x500.png">](https://soundcloud.com/casterscurse/drift_edit)
 
-**Artist**: RemK 
+**Artist**: CASTER 
 
-**Track**: RemK - Airplanes
+**Track**: G JONES - DRIFT (CURSED BY CASTER)
 
-Last updated at 5/1/2025, 4:15:41 PM
+Last updated at 5/1/2025, 4:19:07 PM
