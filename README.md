@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yvb684PB3tuLU1Fl-9n2hPQ-t500x500.jpg">](https://soundcloud.com/vincent_official/desire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMmyAeKS5G1n1eXJ-kBwy2A-t500x500.jpg">](https://soundcloud.com/xerxessounds/holdon2me)
 
-**Artist**: Vincent 
+**Artist**: Xerxes, Ruxxi 
 
-**Track**: Desire!
+**Track**: HOLDON2ME - Xerxes & Ruxxi
 
-Last updated at 5/1/2025, 5:12:07 PM
+Last updated at 5/1/2025, 5:14:32 PM
