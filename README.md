@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzPmsmqXSVnLsjTM-xHczeQ-t500x500.jpg">](https://soundcloud.com/outforce/2-sick-puppiez-its-been-a-while-original-bouncy-techno-mix?in=saxurn/sets/immaculate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbscSPBWLsVurVxm-yEdduA-t500x500.jpg">](https://soundcloud.com/deltaoctagon/panda?in=saxurn/sets/immaculate)
 
-**Artist**: Outforce 
+**Artist**: Delta Octagon 
 
-**Track**: 2 Sick Puppiez - It's Been A While (Original Bouncy Techno Mix)
+**Track**: Panda (FREE DL)
 
-Last updated at 5/1/2025, 8:21:59 AM
+Last updated at 5/1/2025, 8:25:44 AM
