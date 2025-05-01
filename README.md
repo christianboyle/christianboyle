@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IDjxd48h2pmIZC2-FW3t1g-t500x500.png">](https://soundcloud.com/starrynn/memories?in=saxurn/sets/immaculate/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lYekDc1tIrAfSD3-E48z4g-t500x500.png">](https://soundcloud.com/jamesjamesjamess/oneinamillion?in=saxurn/sets/immaculate/)
 
-**Artist**: starry 
+**Artist**: jamesjamesjames 
 
-**Track**: pictures / memories (rhek + rel)
+**Track**: one in a million
 
-Last updated at 5/1/2025, 6:32:26 AM
+Last updated at 5/1/2025, 7:14:55 AM
