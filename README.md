@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IizoumxMkKQiYksz-KVIS3w-t500x500.png">](https://soundcloud.com/whoisblvze/what-it-takes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1h0zX9OF8VViTfuP-rGvO4w-t500x500.png">](https://soundcloud.com/remkmusic/airplanes)
 
-**Artist**: BLVZE 
+**Artist**: RemK 
 
-**Track**: WHAT IT TAKES
+**Track**: RemK - Airplanes
 
-Last updated at 5/1/2025, 4:12:51 PM
+Last updated at 5/1/2025, 4:15:41 PM
