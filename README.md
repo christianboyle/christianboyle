@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BaWzRdhXbomoYZGQ-hTueGA-t500x500.jpg">](https://soundcloud.com/tisoki/turn-me-up-louder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IizoumxMkKQiYksz-KVIS3w-t500x500.png">](https://soundcloud.com/whoisblvze/what-it-takes)
 
-**Artist**: Tisoki 
+**Artist**: BLVZE 
 
-**Track**: Tisoki - TURN ME UP (LOUDER)
+**Track**: WHAT IT TAKES
 
-Last updated at 5/1/2025, 4:11:16 PM
+Last updated at 5/1/2025, 4:12:51 PM
