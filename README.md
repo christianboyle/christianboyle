@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cphWnok9YcyIy52-8pHWyw-t500x500.png">](https://soundcloud.com/laxter-music/beauz-ocho-laxter-hard-edit-free-dl?in=saxurn/sets/immaculate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9zIBnsExVUEI216-VqbJgQ-t500x500.jpg">](https://soundcloud.com/tisoki/gone-for-a-minute?in=saxurn/sets/immaculate)
 
-**Artist**: LAXTER 
+**Artist**: Tisoki 
 
-**Track**: BEAUZ - OCHO (LAXTER HARD EDIT) | FREE DL
+**Track**: Tisoki - GONE FOR A MINUTE
 
-Last updated at 5/1/2025, 8:43:31 AM
+Last updated at 5/1/2025, 8:47:56 AM
