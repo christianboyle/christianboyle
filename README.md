@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMmyAeKS5G1n1eXJ-kBwy2A-t500x500.jpg">](https://soundcloud.com/xerxessounds/holdon2me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fyvHek0yh1Xva3Ur-cz43xg-t500x500.png">](https://soundcloud.com/lookasmusic/itsgoindown)
 
-**Artist**: Xerxes, Ruxxi 
+**Artist**: Lookas 
 
-**Track**: HOLDON2ME - Xerxes & Ruxxi
+**Track**: It's Goin Down
 
-Last updated at 5/1/2025, 5:14:32 PM
+Last updated at 5/1/2025, 5:17:47 PM
