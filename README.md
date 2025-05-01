@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4qtRJNDQpOayssF-QFXLwg-t500x500.png">](https://soundcloud.com/hiimdryden/volume)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mEMDerkEHDZlQ37w-rwuCBw-t500x500.png">](https://soundcloud.com/itsedisoncole/hypnotized)
 
-**Artist**: DRYDEN 
+**Artist**: EDISON COLE 
 
-**Track**: VOLUME
+**Track**: ANYMA X ELLIE GOULDING - HYPNOTIZED (EDISON COLE REMIX) FREE DOWNLOAD
 
-Last updated at 5/1/2025, 4:24:37 PM
+Last updated at 5/1/2025, 4:27:28 PM
