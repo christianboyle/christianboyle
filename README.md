@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TDGE1uEOrZJEerHI-FLaBSg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/noisecult-bring-it-back?in=saxurn/sets/immaculate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFGxB02UV8pTmj6E-T4qJAw-t500x500.png">](https://soundcloud.com/gravitas-recordings/magma-final-boss-8?in=saxurn/sets/immaculate)
 
-**Artist**: NSCLT 
+**Artist**: MAGMA  
 
-**Track**: NSCLT - Bring It Back
+**Track**: MAGMA - Final Boss
 
-Last updated at 5/1/2025, 8:31:50 AM
+Last updated at 5/1/2025, 8:35:20 AM
