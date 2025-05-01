@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P694ZbvFyO7lm5kN-VW17Lg-t500x500.png">](https://soundcloud.com/vari_music/node2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yvb684PB3tuLU1Fl-9n2hPQ-t500x500.jpg">](https://soundcloud.com/vincent_official/desire)
 
-**Artist**: VARI 
+**Artist**: Vincent 
 
-**Track**: NODE_2 [ID MIX]
+**Track**: Desire!
 
-Last updated at 5/1/2025, 4:33:13 PM
+Last updated at 5/1/2025, 5:12:07 PM
