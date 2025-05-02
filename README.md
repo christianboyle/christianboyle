@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7n37jKKUQXj2M0sp-EkLaJw-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-forever-makina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SqUvACeAMPVpvwE-V7lxSw-t500x500.jpg">](https://soundcloud.com/gregor-le-dahl/2-sick-puppiez-gregor-le-dahl)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: Gregor le Dahl 
 
-**Track**: 2 Sick Puppiez - Forever Makina
+**Track**: 2 Sick Puppiez & Gregor le Dahl - 90s Space
 
-Last updated at 5/1/2025, 8:56:16 PM
+Last updated at 5/1/2025, 8:57:17 PM
