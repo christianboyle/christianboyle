@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyBUiYtukcxBkoGC-eZenjQ-t500x500.jpg">](https://soundcloud.com/disgo_music/disgo-corey-divine-gangstas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tn7yKesJb5GdriUn-kzSm1Q-t500x500.png">](https://soundcloud.com/dubbeldutch/endless-5)
 
-**Artist**: DISGO 
+**Artist**: dubbel dutch 
 
-**Track**: DISGO & COREY DIVINE - GANGSTAS
+**Track**: Endless
 
-Last updated at 5/2/2025, 9:46:17 AM
+Last updated at 5/2/2025, 9:50:28 AM
