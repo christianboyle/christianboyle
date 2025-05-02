@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmconPizdwCzsjCi-roD0HA-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-dont-deserve-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wF5U72xTxXpJvDHP-4e1zdg-t500x500.png">](https://soundcloud.com/chozenofficial/chozen-the-transmission-tapes-mission-ballroom)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: CHOZEN 
 
-**Track**: 2 Sick Puppiez - Don't Deserve You
+**Track**: CHOZEN - The Transmission Tapes 🛸 Mission Ballroom
 
-Last updated at 5/2/2025, 5:58:56 AM
+Last updated at 5/2/2025, 7:04:39 AM
