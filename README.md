@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wF5U72xTxXpJvDHP-4e1zdg-t500x500.png">](https://soundcloud.com/chozenofficial/chozen-the-transmission-tapes-mission-ballroom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qQCjxNp5hLdzQbn-F0KCxw-t500x500.jpg">](https://soundcloud.com/onlybangs/va-mo-la-masala-v3-records)
 
-**Artist**: CHOZEN 
+**Artist**: VA MO LA 
 
-**Track**: CHOZEN - The Transmission Tapes 🛸 Mission Ballroom
+**Track**: FREE DL: VA MO LA - Masala (Original Mix) [OB038]
 
-Last updated at 5/2/2025, 7:04:39 AM
+Last updated at 5/2/2025, 7:05:43 AM
