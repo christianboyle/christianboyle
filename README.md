@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lxr2pwoJ43hUTh4a-vJkdNQ-t500x500.jpg">](https://soundcloud.com/abyssfields/mmm-hmm-ft-lancey-foux-sexxy-red-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9ad6YjG9H28bFmN-9rMAsg-t500x500.png">](https://soundcloud.com/daunter-music/49a401be-4972-4a99-8e2f-e4079a983056)
 
-**Artist**: abyssfields 
+**Artist**: Daunter 
 
-**Track**: MMM HMM FT. LANCEY FOUX, SEXXY RED #remix
+**Track**: LET GO (FREE DOWNLOAD)
 
-Last updated at 5/2/2025, 7:11:19 AM
+Last updated at 5/2/2025, 7:12:39 AM
