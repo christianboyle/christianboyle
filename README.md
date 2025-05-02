@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RlVuLJa1pBuw-0-t500x500.jpg">](https://soundcloud.com/yung-lean-doer/jonatan-intro?in=yung-lean-doer/sets/jonatan-719183030)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jTsziUQRg2KP-0-t500x500.png">](https://soundcloud.com/alstorm/comin-on-strong-original?in=alstorm/sets/comin-on-strong-original)
 
-**Artist**: Yung Lean 
+**Artist**: Al Storm, Euphony, Bad Onion 
 
-**Track**: Jonatan Intro
+**Track**: Comin On Strong (Original' Warped Science' Mix)
 
-Last updated at 5/2/2025, 8:08:09 AM
+Last updated at 5/2/2025, 8:09:49 AM
