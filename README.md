@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOOkMNdXRGWG-0-t500x500.jpg">](https://soundcloud.com/1985music1985/myb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RlVuLJa1pBuw-0-t500x500.jpg">](https://soundcloud.com/yung-lean-doer/jonatan-intro?in=yung-lean-doer/sets/jonatan-719183030)
 
-**Artist**: GLM 
+**Artist**: Yung Lean 
 
-**Track**: MYB
+**Track**: Jonatan Intro
 
-Last updated at 5/2/2025, 7:37:46 AM
+Last updated at 5/2/2025, 8:08:09 AM
