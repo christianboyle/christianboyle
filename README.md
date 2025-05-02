@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5PQ8JZSXRaOwpmd-qJhP6A-t500x500.png">](https://soundcloud.com/anotherdaypassesmeby/killed-by-an-angel-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3kYDXYP6Qs0c8CPc-8yGN7Q-t500x500.jpg">](https://soundcloud.com/bbxmusiic/black-gold)
 
-**Artist**: liliya 
+**Artist**: BBX 
 
-**Track**: killed by an angel 𓇢𓆸
+**Track**: BBX - Black & Gold
 
-Last updated at 5/2/2025, 7:28:51 AM
+Last updated at 5/2/2025, 7:29:55 AM
