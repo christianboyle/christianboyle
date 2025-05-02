@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tl9TlSa3jR8kCooE-403HZA-t500x500.png">](https://soundcloud.com/grazcore/graz-ultraliminal-massive?in=grazcore/sets/graz-hostej-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJYqE3t2zJJEIudc-M7CnEA-t500x500.png">](https://soundcloud.com/lowincomesquad/nts-residency-49)
 
-**Artist**: Graz 
+**Artist**: Low Income $quad 
 
-**Track**: Graz - Ultraliminal Massive
+**Track**: NTS Residency Show #49 (02.04.2025.)
 
-Last updated at 5/2/2025, 7:34:11 AM
+Last updated at 5/2/2025, 7:35:11 AM
