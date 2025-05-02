@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ikfruGGPgX5ePcy-IGA51w-t500x500.png">](https://soundcloud.com/pedicure-records/halcyone-hxxtape?in=pedicure-records/sets/pd177-halcyone-hxxtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OeJdYsKxCYuAi5sI-cSbsLA-t500x500.png">](https://soundcloud.com/psychocybinrec/ethos)
 
-**Artist**: PEDICURE RECORDS 
+**Artist**: Rekka Wubz, Psyoptic 
 
-**Track**: Halcyone - HXXTAPE
+**Track**: Psyoptic & Rekka Wubz - Ethos
 
-Last updated at 5/2/2025, 7:32:11 AM
+Last updated at 5/2/2025, 7:33:11 AM
