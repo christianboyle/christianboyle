@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FgXPRgheeUO2MGZ-oJl1Lg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-we-like-to-party-hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HizZhdEZyratWP5e-oIhc4w-t500x500.png">](https://soundcloud.com/jjjacksen/needya)
 
-**Artist**: AudioBoyz 
+**Artist**: jjjacksen 
 
-**Track**: AudioBoyz - We Like To Party Hard
+**Track**: jjjacksen - Needya
 
-Last updated at 5/2/2025, 7:06:43 AM
+Last updated at 5/2/2025, 7:07:53 AM
