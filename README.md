@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3kYDXYP6Qs0c8CPc-8yGN7Q-t500x500.jpg">](https://soundcloud.com/bbxmusiic/black-gold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4ikfruGGPgX5ePcy-IGA51w-t500x500.png">](https://soundcloud.com/pedicure-records/halcyone-hxxtape?in=pedicure-records/sets/pd177-halcyone-hxxtape)
 
-**Artist**: BBX 
+**Artist**: PEDICURE RECORDS 
 
-**Track**: BBX - Black & Gold
+**Track**: Halcyone - HXXTAPE
 
-Last updated at 5/2/2025, 7:29:55 AM
+Last updated at 5/2/2025, 7:32:11 AM
