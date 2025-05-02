@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tGRk0t6o0USarR4w-zq78JQ-t500x500.jpg">](https://soundcloud.com/nobodyhardcore/fullmetal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7n37jKKUQXj2M0sp-EkLaJw-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-forever-makina)
 
-**Artist**: Nobody (Justice Hardcore) 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Rob IYF & Nobody - Full Metal Soldier (NEW ALBUM / OUT NOW)
+**Track**: 2 Sick Puppiez - Forever Makina
 
-Last updated at 5/1/2025, 8:55:19 PM
+Last updated at 5/1/2025, 8:56:16 PM
