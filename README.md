@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcvrSSOBl8eBtxw3-aubqZA-t500x500.jpg">](https://soundcloud.com/tnt_ofc/premiere-lil-silva-seasons-django-dub-sbd006)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMyzrJDNbV1Q0o9y-z8XXWA-t500x500.jpg">](https://soundcloud.com/darn84/darren-styles-b2b-hixxy-mc)
 
-**Artist**: TNT 
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: PREMIERE: Lil Silva – Seasons (DJANGO Dub) [SBD006]
+**Track**: Darren Styles B2B Hixxy & MC Storm @ SV - Easter Spectacular (22/03/2008)
 
-Last updated at 5/2/2025, 7:19:05 AM
+Last updated at 5/2/2025, 7:26:51 AM
