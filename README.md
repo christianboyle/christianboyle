@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R85JS1utSTGJ-0-t500x500.jpg">](https://soundcloud.com/user-84259839-761639035/wheres-the-party-at)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOhDHhzR8vbzglIC-opNrSA-t500x500.png">](https://soundcloud.com/dramaclubrecs/sfam-shanghai-doom-rewind-3)
 
-**Artist**: J.K. Rollin 
+**Artist**: sfam, Shanghai Doom 
 
-**Track**: Where's The Party At?
+**Track**: sfam, Shanghai Doom - Rewind
 
-Last updated at 5/2/2025, 8:14:29 AM
+Last updated at 5/2/2025, 8:15:29 AM
