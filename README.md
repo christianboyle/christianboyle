@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMyzrJDNbV1Q0o9y-z8XXWA-t500x500.jpg">](https://soundcloud.com/darn84/darren-styles-b2b-hixxy-mc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5PQ8JZSXRaOwpmd-qJhP6A-t500x500.png">](https://soundcloud.com/anotherdaypassesmeby/killed-by-an-angel-3)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: liliya 
 
-**Track**: Darren Styles B2B Hixxy & MC Storm @ SV - Easter Spectacular (22/03/2008)
+**Track**: killed by an angel 𓇢𓆸
 
-Last updated at 5/2/2025, 7:26:51 AM
+Last updated at 5/2/2025, 7:28:51 AM
