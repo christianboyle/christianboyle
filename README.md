@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RcCfzjHPHu4f445y-fXXiCA-t500x500.png">](https://soundcloud.com/joanna4eva/disappear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyBUiYtukcxBkoGC-eZenjQ-t500x500.jpg">](https://soundcloud.com/disgo_music/disgo-corey-divine-gangstas)
 
-**Artist**: joanna ⋆ ☆ 
+**Artist**: DISGO 
 
-**Track**: disappear
+**Track**: DISGO & COREY DIVINE - GANGSTAS
 
-Last updated at 5/3/2025, 7:27:55 AM
+Last updated at 5/3/2025, 7:30:45 AM
