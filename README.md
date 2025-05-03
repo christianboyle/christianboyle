@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wz4IlZ0FyqnGKj52-lafpOw-t500x500.png">](https://soundcloud.com/confession/wenzday-closer-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMSzM0vYq5zyQn0r-Kxkvpg-t500x500.png">](https://soundcloud.com/azabim/plugged)
 
-**Artist**: Wenzday 
+**Artist**: AZABIM 
 
-**Track**: Wenzday - Closer
+**Track**: AZABIM  - Plugged [Free]
 
-Last updated at 5/3/2025, 5:32:15 PM
+Last updated at 5/3/2025, 5:33:20 PM
