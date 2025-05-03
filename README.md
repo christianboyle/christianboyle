@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMSzM0vYq5zyQn0r-Kxkvpg-t500x500.png">](https://soundcloud.com/azabim/plugged)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vmg4ckG9wpBTDpfR-Moy1nQ-t500x500.jpg">](https://soundcloud.com/cozykevvv/like-this)
 
-**Artist**: AZABIM 
+**Artist**: cozy kev 
 
-**Track**: AZABIM  - Plugged [Free]
+**Track**: LIKE THIS
 
-Last updated at 5/3/2025, 5:33:20 PM
+Last updated at 5/3/2025, 5:34:20 PM
