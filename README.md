@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RcCfzjHPHu4f445y-fXXiCA-t500x500.png">](https://soundcloud.com/joanna4eva/disappear)
 
-**Artist**: Joeyy 
+**Artist**: joanna ⋆ ☆ 
 
-**Track**: Fruit
+**Track**: disappear
 
-Last updated at 5/2/2025, 4:26:10 PM
+Last updated at 5/2/2025, 7:21:39 PM
