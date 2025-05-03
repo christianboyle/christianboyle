@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Pb0FyKwkTyqy1NY-hz3zbg-t500x500.png">](https://soundcloud.com/2sickpuppiez/everytime)
 
-**Artist**: Joeyy 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Fruit
+**Track**: 2 Sick Puppiez - Everytime
 
-Last updated at 5/3/2025, 6:22:34 AM
+Last updated at 5/3/2025, 6:23:40 AM
