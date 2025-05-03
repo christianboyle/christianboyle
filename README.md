@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y8ZGInO5lyJgR3Kh-rUjJMg-t500x500.png">](https://soundcloud.com/ditiswescalatie/vengaboys-boom-boom-boom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit?in=saxurn/sets/backlash/)
 
-**Artist**: Vengaboys 
+**Artist**: Joeyy 
 
-**Track**: Vengaboys - Boom Boom Boom (Wescalatie Remix)
+**Track**: Fruit
 
-Last updated at 5/3/2025, 12:52:50 PM
+Last updated at 5/3/2025, 12:53:55 PM
