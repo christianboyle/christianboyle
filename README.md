@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ljsvg7qOMiw1GIpy-C5aJBg-t500x500.png">](https://soundcloud.com/touristmusic/pure-shores-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmconPizdwCzsjCi-roD0HA-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-dont-deserve-you)
 
-**Artist**: All Saints, Tourist 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Pure Shores (Extended)
+**Track**: 2 Sick Puppiez - Don't Deserve You
 
-Last updated at 5/2/2025, 7:39:11 PM
+Last updated at 5/2/2025, 7:44:31 PM
