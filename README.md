@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmconPizdwCzsjCi-roD0HA-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-dont-deserve-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhT7mD7s8ytyiRwL-hh7sow-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-rvrz-of-the-nyt)
 
 **Artist**: 2 Sick Puppiez 
 
-**Track**: 2 Sick Puppiez - Don't Deserve You
+**Track**: 2 Sick Puppiez - RVRZ OF THE NYT
 
-Last updated at 5/2/2025, 7:44:31 PM
+Last updated at 5/2/2025, 7:47:01 PM
