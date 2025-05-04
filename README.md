@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckYv4FHTyxbk45Mu-zEK43A-t500x500.png">](https://soundcloud.com/finninghamofficial/finningham-scavengers-fate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8cT52k0NpIxGIzT4-IwFL3g-t500x500.png">](https://soundcloud.com/flybassmusic/dust-ft-vayu)
 
-**Artist**: FINNINGHAM 
+**Artist**: FLY x SAKA 
 
-**Track**: FINNINGHAM - SCAVENGER'S FATE (FREE DOWNLOAD)
+**Track**: DUST (ft. VAYU)
 
-Last updated at 5/4/2025, 9:04:27 AM
+Last updated at 5/4/2025, 9:05:37 AM
