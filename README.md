@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyzGldqNZmCrz9js-Tn2o1A-t500x500.jpg">](https://soundcloud.com/walk_ill/jive2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnpYH810AflB-0-t500x500.jpg">](https://soundcloud.com/effieofficial/put-my-hoodie-on)
 
-**Artist**: walk_ill 
+**Artist**: Effie 
 
-**Track**: jiive
+**Track**: put my hoodie on
 
-Last updated at 5/4/2025, 9:10:08 AM
+Last updated at 5/4/2025, 9:12:28 AM
