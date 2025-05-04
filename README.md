@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sEe1DzMfeyXhIiXM-hPx7Ow-t500x500.png">](https://soundcloud.com/dancingdeadrecords/misenscene)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4FHtvZNht0iNfWJt-82QzXA-t500x500.png">](https://soundcloud.com/zack-schneller/zealr-perfect-day-vip-1)
 
-**Artist**: Damn Low, Umbree 
+**Artist**: ZEALR 
 
-**Track**: Damn Low x Umbree (feat Shade.) - Mise en Scène
+**Track**: ZEALR - Perfect Day (VIP)
 
-Last updated at 5/4/2025, 7:45:46 AM
+Last updated at 5/4/2025, 7:46:51 AM
