@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnMre4nHwdOaTLn7-13kWXg-t500x500.png">](https://soundcloud.com/samuel-moriero/skrillex-kendrick-lamar-humble-samuel-moriero-remix?in=saxurn/sets/wandering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-raOXELHx9ayNzLrE-WyoP7Q-t500x500.png">](https://soundcloud.com/notatrisk/devious)
 
-**Artist**: DJSM 
+**Artist**: RISK 
 
-**Track**: Skrillex, Kendrick Lamar - HUMBLE (Samuel Moriero REMIX)
+**Track**: Devious
 
-Last updated at 5/4/2025, 9:25:14 AM
+Last updated at 5/4/2025, 9:38:56 AM
