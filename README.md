@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qHu1uZiATWyo9Fc3-teoYLQ-t500x500.png">](https://soundcloud.com/transition_ofc/odyssey091)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckYv4FHTyxbk45Mu-zEK43A-t500x500.png">](https://soundcloud.com/finninghamofficial/finningham-scavengers-fate)
 
-**Artist**: TRANSITION 
+**Artist**: FINNINGHAM 
 
-**Track**: ODYSSEY091: MAURER
+**Track**: FINNINGHAM - SCAVENGER'S FATE (FREE DOWNLOAD)
 
-Last updated at 5/4/2025, 7:51:01 AM
+Last updated at 5/4/2025, 9:04:27 AM
