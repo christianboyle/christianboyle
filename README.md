@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tZ5IUp2XZ6rHSnwV-yY3BZg-t500x500.png">](https://soundcloud.com/lookasmusic/wheresyourheadatlookasremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzCTeETwt235-0-t500x500.png">](https://soundcloud.com/medusobass/want-more)
 
-**Artist**: Basement Jaxx, Lookas♾️ 
+**Artist**: Meduso 
 
-**Track**: Where's Your Head At (Lookas Remix)
+**Track**: Want More
 
-Last updated at 5/4/2025, 7:09:16 AM
+Last updated at 5/4/2025, 7:21:19 AM
