@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GQLX8gkrpM9bKkxM-JXFUXw-t500x500.png">](https://soundcloud.com/enablesecret/steath-archer?in=saxurn/sets/wandering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ljsvg7qOMiw1GIpy-C5aJBg-t500x500.png">](https://soundcloud.com/touristmusic/pure-shores-extended?in=saxurn/sets/wandering)
 
-**Artist**: enable secret 
+**Artist**: All Saints, Tourist 
 
-**Track**: HYPERSTEALTH-ARCHER+
+**Track**: Pure Shores (Extended)
 
-Last updated at 5/5/2025, 8:54:43 AM
+Last updated at 5/5/2025, 8:57:43 AM
