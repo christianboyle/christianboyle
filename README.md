@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TIweYMhBmTdo29Vs-dt3xJA-t500x500.png">](https://soundcloud.com/viskus/i-need-to-hear-it-w-xenotype-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vmtfuiivc4x53rmY-iGEnng-t500x500.png">](https://soundcloud.com/helenfrey/helen-frey-let-me-dream-original-mix)
 
-**Artist**: VISKUS 
+**Artist**: HELEN FREY 
 
-**Track**: I Need to Hear it (w/ Xenotype)
+**Track**: Helen Frey - Let Me Dream (Original Mix)
 
-Last updated at 5/5/2025, 9:31:39 AM
+Last updated at 5/5/2025, 9:32:39 AM
