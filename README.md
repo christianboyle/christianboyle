@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GQLX8gkrpM9bKkxM-JXFUXw-t500x500.png">](https://soundcloud.com/enablesecret/steath-archer?in=saxurn/sets/wandering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit?in=saxurn/sets/wandering)
 
-**Artist**: enable secret 
+**Artist**: Joeyy 
 
-**Track**: HYPERSTEALTH-ARCHER+
+**Track**: Fruit
 
-Last updated at 5/4/2025, 10:19:58 AM
+Last updated at 5/5/2025, 7:01:22 AM
