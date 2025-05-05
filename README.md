@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1TnLN6pNTKvczvUY-fdmM3Q-t500x500.png">](https://soundcloud.com/dj_rish/rish-pai-dui-set-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDaYcVBLGafq3Nvj-eJYl8A-t500x500.png">](https://soundcloud.com/thelotradio/madjestic-kasual-the-lot-radio)
 
-**Artist**: RISH 
+**Artist**: The Lot Radio 
 
-**Track**: RISH Pai Dui Set 2025
+**Track**: Madjestic Kasual @ The Lot Radio 03-02-2025
 
-Last updated at 5/5/2025, 10:47:01 AM
+Last updated at 5/5/2025, 1:03:19 PM
