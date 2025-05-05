@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dnpYH810AflB-0-t500x500.jpg">](https://soundcloud.com/effieofficial/put-my-hoodie-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit?in=saxurn/sets/wandering)
 
-**Artist**: Effie 
+**Artist**: Joeyy 
 
-**Track**: put my hoodie on
+**Track**: Fruit
 
-Last updated at 5/5/2025, 5:27:39 PM
+Last updated at 5/5/2025, 6:15:48 PM
