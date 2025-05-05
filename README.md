@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tn7yKesJb5GdriUn-kzSm1Q-t500x500.png">](https://soundcloud.com/dubbeldutch/endless-5?in=saxurn/sets/wandering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oTgfOFTOyG8ps4F-fFtpSA-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/pemex-flip)
 
-**Artist**: dubbel dutch 
+**Artist**: ash me outside, aftrnoondlite 
 
-**Track**: Endless
+**Track**: Shakewell & Fat Nick - Pemex (ash me outside & aftrnoondlite flip)
 
-Last updated at 5/5/2025, 6:21:49 PM
+Last updated at 5/5/2025, 6:23:59 PM
