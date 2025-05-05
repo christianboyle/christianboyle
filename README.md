@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wxeuC2AN3h3-0-t500x500.jpg">](https://soundcloud.com/effieofficial/maybe-baby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0QqVK7MiGRRtYrdd-myHB7Q-t500x500.png">](https://soundcloud.com/itsxono/die-for)
 
-**Artist**: Effie 
+**Artist**: xono 
 
-**Track**: maybe baby
+**Track**: die for
 
-Last updated at 5/5/2025, 9:16:12 AM
+Last updated at 5/5/2025, 9:18:01 AM
