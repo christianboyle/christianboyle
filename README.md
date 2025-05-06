@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o5yJcSj6fJnT0lnZ-s2cbDQ-t500x500.jpg">](https://soundcloud.com/bossmanakirah/aap-ferg-ft-future-new-level-akirah-bootleg-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vtg56ZsocxpqnsBN-XWxKqQ-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-gzmo-what-u-came-4)
 
-**Artist**: AKIRAH 
+**Artist**: Craigy B! & GZMO 
 
-**Track**: A$AP FERG FT FUTURE - NEW LEVEL (AKIRAH FLIP)
+**Track**: Craigy B! & GZMO - What U Came 4
 
-Last updated at 5/6/2025, 6:21:16 AM
+Last updated at 5/6/2025, 6:22:30 AM
