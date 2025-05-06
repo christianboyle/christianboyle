@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ljsvg7qOMiw1GIpy-C5aJBg-t500x500.png">](https://soundcloud.com/touristmusic/pure-shores-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit)
 
-**Artist**: All Saints, Tourist 
+**Artist**: Joeyy 
 
-**Track**: Pure Shores (Extended)
+**Track**: Fruit
 
-Last updated at 5/6/2025, 10:26:43 AM
+Last updated at 5/6/2025, 11:08:58 AM
