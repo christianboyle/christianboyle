@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzCTeETwt235-0-t500x500.png">](https://soundcloud.com/medusobass/want-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRzfXItOe1mqPoeM-lYulTw-t500x500.jpg">](https://soundcloud.com/dredlokmusic/owl-city-fireflies-dredlok)
 
-**Artist**: Meduso 
+**Artist**: Dredlok 
 
-**Track**: Want More
+**Track**: Owl City - Fireflies (Dredlok Flip)
 
-Last updated at 5/6/2025, 6:34:56 AM
+Last updated at 5/6/2025, 6:35:55 AM
