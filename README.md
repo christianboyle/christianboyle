@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7eN1xkV42P6bUp1w-9QVBpg-t500x500.jpg">](https://soundcloud.com/hgods/jackie-kennedy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzCTeETwt235-0-t500x500.png">](https://soundcloud.com/medusobass/want-more)
 
-**Artist**: HGods 
+**Artist**: Meduso 
 
-**Track**: JACKIE KENNEDY
+**Track**: Want More
 
-Last updated at 5/6/2025, 6:31:16 AM
+Last updated at 5/6/2025, 6:34:56 AM
