@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u54hnh3e2vxu-0-t500x500.jpg">](https://soundcloud.com/effieofficial/open-ur-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MIZC7NUrCdfB5ZSu-aezebg-t500x500.jpg">](https://soundcloud.com/tnt_ofc/benjamin-move-ya-ass-tntx028)
 
-**Artist**: Effie 
+**Artist**: TNT 
 
-**Track**: open ur eyes
+**Track**: Benjamin – Move Ya Ass [TNTX028]
 
-Last updated at 5/6/2025, 5:53:38 AM
+Last updated at 5/6/2025, 6:15:38 AM
