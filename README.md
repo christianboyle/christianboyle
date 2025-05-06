@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYBTkZ8DEyVyA6g5-LdBVkg-t500x500.png">](https://soundcloud.com/floretloret/questseeker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zG1y46xrTadt1P8f-zhApHw-t500x500.png">](https://soundcloud.com/tabfart2025/person)
 
-**Artist**: Floret Loret 
+**Artist**: cluu 
 
-**Track**: Floret Loret presents: "QUESTSEEKER" (new mix series, thank you for 10k)
+**Track**: person
 
-Last updated at 5/6/2025, 6:29:16 AM
+Last updated at 5/6/2025, 6:30:16 AM
