@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-du6qN00EKZZWlzXq-Gwatow-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/dizrupt-real)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwGTETmwzuyXoXiz-09RKjA-t500x500.jpg">](https://soundcloud.com/hellrazermusic/circlesremix)
 
-**Artist**: Dizrupt 
+**Artist**: HELLRAZER 
 
-**Track**: Dizrupt - Real
+**Track**: ADAM F - CIRCLES (HELLRAZER REMIX)
 
-Last updated at 5/7/2025, 7:22:12 AM
+Last updated at 5/7/2025, 7:41:58 AM
