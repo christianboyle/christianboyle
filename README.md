@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OwxqE9RdU8b2-0-t500x500.jpg">](https://soundcloud.com/skepsisproducer/arctic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wriEpnWJp2W4-0-t500x500.jpg">](https://soundcloud.com/ambrxse/wtftf-1)
 
-**Artist**: Skepsis x Doktor 
+**Artist**: Ambrxse 
 
-**Track**: Arctic
+**Track**: WTFTF?
 
-Last updated at 5/7/2025, 7:42:58 AM
+Last updated at 5/7/2025, 7:45:43 AM
