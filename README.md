@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l9wKGnP8lPPKH4Td-xGnuSw-t500x500.png">](https://soundcloud.com/pesstomusic/byebyebye-pessto-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d20sjpYm7P2YlE7H-ynAwIw-t500x500.png">](https://soundcloud.com/fangshuiofficial/fang-shui-reflections)
 
-**Artist**: *NSYNC, Pessto 
+**Artist**: Fang Shui 
 
-**Track**: *NSYNC - Bye Bye Bye (Pessto Remix)
+**Track**: Fang Shui - Reflections
 
-Last updated at 5/7/2025, 7:49:18 AM
+Last updated at 5/7/2025, 8:50:15 AM
