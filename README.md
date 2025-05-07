@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r7i6jza8Ns1xxmmF-jzH3YQ-t500x500.png">](https://soundcloud.com/sodownbassmusic/cry-me-a-river-interlude-mfinity-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYTIb26w0zJ3-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/what-should-i-do)
 
-**Artist**: SoDown, Mfinity 
+**Artist**: Pokkun, Riku 
 
-**Track**: Cry Me A River (INTERLUDE) (Mfinity Remix)
+**Track**: What Should I Do
 
-Last updated at 5/7/2025, 4:21:06 PM
+Last updated at 5/7/2025, 4:23:37 PM
