@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DVjf0xnyAKLjikI-sojZPQ-t500x500.jpg">](https://soundcloud.com/expertsonly/chris-avantgarde-kevin-de-vries-killa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-du6qN00EKZZWlzXq-Gwatow-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/dizrupt-real)
 
-**Artist**: Experts Only 
+**Artist**: Dizrupt 
 
-**Track**: Chris Avantgarde & Kevin De Vries - Killa
+**Track**: Dizrupt - Real
 
-Last updated at 5/7/2025, 7:21:12 AM
+Last updated at 5/7/2025, 7:22:12 AM
