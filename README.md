@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4NDQdrcShtvwfcfs-WGyZ0Q-t500x500.png">](https://soundcloud.com/user-63968721/ship-wrek-the-function-costa-rj-wlkr-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/aych-x-zondo-rock-your-body)
 
-**Artist**: COSTA, RJ-WLKR 
+**Artist**: AYCH, ZONDO 
 
-**Track**: SHIP WREK - THE FUNCTION (COSTA + RJ-WLKR FLIP)
+**Track**: Justin Timberlake - Rock Your Body (AYCH x ZONDO Flip)
 
-Last updated at 5/7/2025, 4:06:05 PM
+Last updated at 5/7/2025, 4:08:05 PM
