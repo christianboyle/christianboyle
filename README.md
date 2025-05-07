@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d20sjpYm7P2YlE7H-ynAwIw-t500x500.png">](https://soundcloud.com/fangshuiofficial/fang-shui-reflections)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHC29okyoJC2oWr0-QXvDYw-t500x500.jpg">](https://soundcloud.com/grandalliancemusic/acceptance)
 
-**Artist**: Fang Shui 
+**Artist**: REAL 
 
-**Track**: Fang Shui - Reflections
+**Track**: REAL - Acceptance (Grand Alliance Music)
 
-Last updated at 5/7/2025, 8:50:15 AM
+Last updated at 5/7/2025, 9:39:13 AM
