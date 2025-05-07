@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYvdZAzE3uy7C7qC-78XHJA-t500x500.jpg">](https://soundcloud.com/thefactory93/layton-giordani-better-than-u-thought)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DVjf0xnyAKLjikI-sojZPQ-t500x500.jpg">](https://soundcloud.com/expertsonly/chris-avantgarde-kevin-de-vries-killa)
 
-**Artist**: Layton Giordani 
+**Artist**: Experts Only 
 
-**Track**: Layton Giordani - Better Than U Thought
+**Track**: Chris Avantgarde & Kevin De Vries - Killa
 
-Last updated at 5/7/2025, 7:20:12 AM
+Last updated at 5/7/2025, 7:21:12 AM
