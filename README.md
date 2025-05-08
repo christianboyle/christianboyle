@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0rjeyu2iY9WEqWsJ-xtKJpQ-t500x500.png">](https://soundcloud.com/w-a-production/mixboss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkN8zq3AoFw4yB9K-qIXcNg-t500x500.png">](https://soundcloud.com/wormhole-music-group/bass-temple-boom)
 
-**Artist**: W. A. Production® 
+**Artist**: Bass Temple 
 
-**Track**: MixBoss - Boss Your Mix (VST / AU / AAX)
+**Track**: Bass Temple - Boom
 
-Last updated at 5/8/2025, 6:11:15 PM
+Last updated at 5/8/2025, 6:13:16 PM
