@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5QIZvVfLyWpaKuy-8AGyjg-t500x500.jpg">](https://soundcloud.com/yfwqp/beside-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwGTETmwzuyXoXiz-09RKjA-t500x500.jpg">](https://soundcloud.com/hellrazermusic/circlesremix)
 
-**Artist**: milli 
+**Artist**: HELLRAZER 
 
-**Track**: like that prod zeromandia x crusey
+**Track**: ADAM F - CIRCLES (HELLRAZER REMIX)
 
-Last updated at 5/8/2025, 6:18:11 PM
+Last updated at 5/8/2025, 6:19:51 PM
