@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JliDM5Qxt89eYI7q-zT4zQQ-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/goom-gum-to-trajadao-avtook)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5QIZvVfLyWpaKuy-8AGyjg-t500x500.jpg">](https://soundcloud.com/yfwqp/beside-me)
 
-**Artist**: Goom Gum 
+**Artist**: milli 
 
-**Track**: Goom Gum - To Trajadão [Avtook]
+**Track**: like that prod zeromandia x crusey
 
-Last updated at 5/8/2025, 6:16:56 PM
+Last updated at 5/8/2025, 6:18:11 PM
