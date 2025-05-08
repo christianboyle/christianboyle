@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Kl9JadZg1PAnmCJ-JNnfcQ-t500x500.jpg">](https://soundcloud.com/darn84/vibes-helter-skelter-deja-vu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vCN2cL3JAw4YL3W-7dRFkQ-t500x500.png">](https://soundcloud.com/staysickmusic/tether)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: Staysick 
 
-**Track**: Vibes @ Helter Skelter - Deja Vu - Es Paradis Ibiza (Summer 2002)
+**Track**: Tether
 
-Last updated at 5/8/2025, 6:24:56 PM
+Last updated at 5/8/2025, 6:28:47 PM
