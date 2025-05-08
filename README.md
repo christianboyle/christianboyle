@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sILCnqPg7V1Jv1cK-nhV2LA-t500x500.png">](https://soundcloud.com/ion_music/ion-acid-test)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-suGUrS6oTeTx-0-t500x500.jpg">](https://soundcloud.com/steveaoki/radio-hekler-remix)
 
-**Artist**: ION 
+**Artist**: Steve Aoki, Trippie Redd, Jessica Baio, KABU, Hekler 
 
-**Track**: ION - ACID TEST
+**Track**: Radio (Hekler Remix)
 
-Last updated at 5/8/2025, 6:21:01 PM
+Last updated at 5/8/2025, 6:22:16 PM
