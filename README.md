@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkN8zq3AoFw4yB9K-qIXcNg-t500x500.png">](https://soundcloud.com/wormhole-music-group/bass-temple-boom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbqm5TrXyHmaQJ51-1N64XA-t500x500.png">](https://soundcloud.com/beatlabradio/esch-exclusive-mix-beat-lab-radio-509)
 
-**Artist**: Bass Temple 
+**Artist**: Esch 
 
-**Track**: Bass Temple - Boom
+**Track**: Esch - Exclusive Mix - Beat Lab Radio 509
 
-Last updated at 5/8/2025, 6:13:16 PM
+Last updated at 5/8/2025, 6:16:31 PM
