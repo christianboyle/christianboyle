@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oTgfOFTOyG8ps4F-fFtpSA-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/pemex-flip?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/whoomp-there-it-is-aych-flip?in=saxurn/sets/splish)
 
-**Artist**: ash me outside, aftrnoondlite 
+**Artist**: AYCH 
 
-**Track**: Shakewell & Fat Nick - Pemex (ash me outside & aftrnoondlite flip)
+**Track**: Tag Team - Whoomp! (There it is) (AYCH FLIP)
 
-Last updated at 5/9/2025, 1:35:25 PM
+Last updated at 5/9/2025, 1:38:25 PM
