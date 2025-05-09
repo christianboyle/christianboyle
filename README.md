@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujhUbZwNpl4BTeXD-AERn0g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sept-object-of-desire-opus002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6SrmPZkXxwglZNR-gT8Lng-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/zhivina-better-off-alone)
 
-**Artist**: HATE, Sept 
+**Artist**: Zhivina 
 
-**Track**: Premiere: Sept — Object Of Desire [OPUS002]
+**Track**: Zhivina - Better Off Alone
 
-Last updated at 5/9/2025, 9:32:06 AM
+Last updated at 5/9/2025, 9:45:44 AM
