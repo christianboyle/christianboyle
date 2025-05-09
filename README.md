@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uCH87kvzyChblmNY-gcjB5w-t500x500.png">](https://soundcloud.com/dj_guestlist/dj-guestlist-cravings320-rave-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2hsjElHAnLSqczS-XrkGkA-t500x500.png">](https://soundcloud.com/carbonsigil/lmlu)
 
-**Artist**: DJ GUESTLIST, CRAVINGS320  
+**Artist**: Carbon Sigil 
 
-**Track**: DJ GUESTLIST & CRAVINGS320 - RAVE GIRL
+**Track**: BAAUER - LMLU (Sigilized by Carbon Sigil)
 
-Last updated at 5/9/2025, 12:30:24 PM
+Last updated at 5/9/2025, 12:57:28 PM
