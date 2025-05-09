@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2hsjElHAnLSqczS-XrkGkA-t500x500.png">](https://soundcloud.com/carbonsigil/lmlu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-809bzZLAI0DUvogD-06HKyg-t500x500.png">](https://soundcloud.com/jkukhardcore/coldplay-x-bts-my-universe-jk-remix?in=saxurn/sets/splish)
 
-**Artist**: Carbon Sigil 
+**Artist**: J.K 
 
-**Track**: BAAUER - LMLU (Sigilized by Carbon Sigil)
+**Track**: Coldplay X BTS - My Universe (J.K Remix)
 
-Last updated at 5/9/2025, 12:57:28 PM
+Last updated at 5/9/2025, 12:59:01 PM
