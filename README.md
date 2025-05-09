@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8WakfA2Ez4hOBKyU-IJ8btg-t500x500.jpg">](https://soundcloud.com/bergo_fi/wolfs-hour-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MRyuxsxrsXy6Uaum-oyIkiQ-t500x500.png">](https://soundcloud.com/andixofficial/wont-forget-you)
 
-**Artist**: bergö 
+**Artist**: ANDIX 
 
-**Track**: Wolf's Hour (Halloween '24)
+**Track**: Won't Forget You
 
-Last updated at 5/8/2025, 6:31:47 PM
+Last updated at 5/9/2025, 6:41:34 AM
