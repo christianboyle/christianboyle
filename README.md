@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/whoomp-there-it-is-aych-flip/s-zAg1v63HDuI?in=saxurn/sets/half-lash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uCH87kvzyChblmNY-gcjB5w-t500x500.png">](https://soundcloud.com/dj_guestlist/dj-guestlist-cravings320-rave-girl)
 
-**Artist**: AYCH 
+**Artist**: DJ GUESTLIST, CRAVINGS320  
 
-**Track**: Tag Team - Whoomp! (There it is) (AYCH FLIP)
+**Track**: DJ GUESTLIST & CRAVINGS320 - RAVE GIRL
 
-Last updated at 5/9/2025, 11:00:25 AM
+Last updated at 5/9/2025, 12:30:24 PM
