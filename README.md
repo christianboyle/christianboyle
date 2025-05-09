@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGpObK36d78QExkJ-j9IihQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/raverslullaby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujhUbZwNpl4BTeXD-AERn0g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sept-object-of-desire-opus002)
 
-**Artist**: Rudeejay, Da Brozz, EDMMARO 
+**Artist**: HATE, Sept 
 
-**Track**: Rudeejay, Da Brozz &  EDMMARO - Raver’s Lullaby
+**Track**: Premiere: Sept — Object Of Desire [OPUS002]
 
-Last updated at 5/9/2025, 10:40:29 AM
+Last updated at 5/9/2025, 10:43:50 AM
