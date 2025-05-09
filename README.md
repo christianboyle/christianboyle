@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qc2BKUf4jzLXRFt-ly6wxw-t500x500.jpg">](https://soundcloud.com/the_widdler/frankenstoned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-396j0QvPFgNM9tzw-DbFNzg-t500x500.png">](https://soundcloud.com/sub49records/zehr-dance-serum)
 
-**Artist**: The_Widdler 
+**Artist**: Zehr 
 
-**Track**: The Widdler - Frankenstoned [FREEBIE]
+**Track**: ZEHR | DANCE SERUM
 
-Last updated at 5/9/2025, 9:06:49 AM
+Last updated at 5/9/2025, 9:09:44 AM
