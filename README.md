@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6GYVBxAppGy7lVWl-QNTZsQ-t500x500.jpg">](https://soundcloud.com/unhinged-839498841/ayda-unhinged-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6SrmPZkXxwglZNR-gT8Lng-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/zhivina-better-off-alone)
 
-**Artist**: MIX 017 - AYDJ 
+**Artist**: Zhivina 
 
-**Track**: MIX 017 - AYDJ
+**Track**: Zhivina - Better Off Alone
 
-Last updated at 5/9/2025, 9:14:49 AM
+Last updated at 5/9/2025, 9:15:49 AM
