@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pyv2WMidTj7FkctD-58GeuQ-t500x500.png">](https://soundcloud.com/youngfinneh/migos-straightenin-m-stic-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6bLDt2KpUqMy76y-hci8Zg-t500x500.png">](https://soundcloud.com/drfresch/j-cole-no-role-modelz-dr)
 
-**Artist**: finneh, M?STIC 
+**Artist**: DR. FRESCH 
 
-**Track**: Migos - STRAIGHTENIN (M?STIC x finneh Remix)
+**Track**: J. Cole - No Role Modelz (Dr. Fresch Remix)
 
-Last updated at 5/9/2025, 10:11:47 AM
+Last updated at 5/9/2025, 10:14:22 AM
