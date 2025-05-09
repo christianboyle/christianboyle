@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzNUdmlI0xLym2J8-oMKqQg-t500x500.jpg">](https://soundcloud.com/technomeetstalent/koffeintablette-break-the-silence-tmtva4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune)
 
-**Artist**: Koffeintablette 
+**Artist**: Shanghai Doom 
 
-**Track**: Koffeintablette - Break The Silence [TMTVA4]
+**Track**: Shanghai Doom - Dune
 
-Last updated at 5/9/2025, 10:35:09 AM
+Last updated at 5/9/2025, 10:37:54 AM
