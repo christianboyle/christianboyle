@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2hsjElHAnLSqczS-XrkGkA-t500x500.png">](https://soundcloud.com/carbonsigil/lmlu?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oTgfOFTOyG8ps4F-fFtpSA-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/pemex-flip?in=saxurn/sets/splish)
 
-**Artist**: Carbon Sigil 
+**Artist**: ash me outside, aftrnoondlite 
 
-**Track**: BAAUER - LMLU (Sigilized by Carbon Sigil)
+**Track**: Shakewell & Fat Nick - Pemex (ash me outside & aftrnoondlite flip)
 
-Last updated at 5/9/2025, 1:25:19 PM
+Last updated at 5/9/2025, 1:35:25 PM
