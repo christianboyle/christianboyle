@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N9VMG6FwUrMQbglM-rWPZlQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/gldy-lx-voodoo-trip?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzNUdmlI0xLym2J8-oMKqQg-t500x500.jpg">](https://soundcloud.com/technomeetstalent/koffeintablette-break-the-silence-tmtva4?in=saxurn/sets/splish)
 
-**Artist**: GLDY LX 
+**Artist**: Koffeintablette 
 
-**Track**: GLDY LX - Voodoo Trip
+**Track**: Koffeintablette - Break The Silence [TMTVA4]
 
-Last updated at 5/10/2025, 9:07:52 AM
+Last updated at 5/10/2025, 9:10:12 AM
