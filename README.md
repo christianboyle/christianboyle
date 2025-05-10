@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VzNUdmlI0xLym2J8-oMKqQg-t500x500.jpg">](https://soundcloud.com/technomeetstalent/koffeintablette-break-the-silence-tmtva4?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGpObK36d78QExkJ-j9IihQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/raverslullaby?in=saxurn/sets/splish)
 
-**Artist**: Koffeintablette 
+**Artist**: Rudeejay, Da Brozz, EDMMARO 
 
-**Track**: Koffeintablette - Break The Silence [TMTVA4]
+**Track**: Rudeejay, Da Brozz &  EDMMARO - Raver’s Lullaby
 
-Last updated at 5/10/2025, 9:10:12 AM
+Last updated at 5/10/2025, 9:11:17 AM
