@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKjVGCmGaeI8GIJz-0Gwafg-t500x500.png">](https://soundcloud.com/killsafari/avicii-levels-kill-safari-flip?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDzuN1hwc6eR-0-t500x500.jpg">](https://soundcloud.com/sonnywern/macarena?in=saxurn/sets/splish)
 
-**Artist**: Kill Safari, Avicii 
+**Artist**: Sonny Wern 
 
-**Track**: AVICII - LEVELS (KILL SAFARI FLIP) - [FREE DL]
+**Track**: Macarena
 
-Last updated at 5/10/2025, 8:43:14 AM
+Last updated at 5/10/2025, 8:46:04 AM
