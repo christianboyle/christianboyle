@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-809bzZLAI0DUvogD-06HKyg-t500x500.png">](https://soundcloud.com/jkukhardcore/coldplay-x-bts-my-universe-jk-remix?in=saxurn/sets/splish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKjVGCmGaeI8GIJz-0Gwafg-t500x500.png">](https://soundcloud.com/killsafari/avicii-levels-kill-safari-flip?in=saxurn/sets/splish)
 
-**Artist**: J.K 
+**Artist**: Kill Safari, Avicii 
 
-**Track**: Coldplay X BTS - My Universe (J.K Remix)
+**Track**: AVICII - LEVELS (KILL SAFARI FLIP) - [FREE DL]
 
-Last updated at 5/10/2025, 8:36:59 AM
+Last updated at 5/10/2025, 8:43:14 AM
