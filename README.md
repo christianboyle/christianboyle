@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOhDHhzR8vbzglIC-opNrSA-t500x500.png">](https://soundcloud.com/dramaclubrecs/sfam-jordnmoody-bms-feat-slowie-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TvtppkpCBDX0yAxp-7rJZmQ-t500x500.jpg">](https://soundcloud.com/bernzikial/the-largest-bernzikial-remix)
 
-**Artist**: Sfam, Jordnmoody 
+**Artist**: BERNZIKIAL ✨ 
 
-**Track**: sfam, Jordnmoody - BMS (feat. Slowie)
+**Track**: The Largest (BERNZIKIAL Remix)
 
-Last updated at 5/11/2025, 9:31:03 AM
+Last updated at 5/11/2025, 9:55:22 AM
