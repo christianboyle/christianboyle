@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EX2icb5HbmOBhYZy-FxSlhg-t500x500.jpg">](https://soundcloud.com/thearmary/miracle-maker-arma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yr0wIFXtD8f6TUbJ-eTPgMQ-t500x500.jpg">](https://soundcloud.com/lwo_music/lwo-x-fnrz-x-manx-first-of-the-year-ya-masteringcom-v1)
 
-**Artist**: ARMA 
+**Artist**: LWØ, FNRZ, MANX 
 
-**Track**: Dom Dolla - Miracle Maker (ARMA Remix) [SUPPORTED BY HANNAH LAING]
+**Track**: Skrillex - First Of The Year (LWØ x FNRZ x MANX Hard Techno Edit) [FREE DL]
 
-Last updated at 5/11/2025, 9:08:57 AM
+Last updated at 5/11/2025, 9:10:07 AM
