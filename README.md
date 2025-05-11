@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGZLwu5dgn3M-0-t500x500.jpg">](https://soundcloud.com/biggigantic/free-spirits?in=align_music/sets/big-gigantic-align-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GyNqss99o1kUr7R-ty6qYQ-t500x500.png">](https://soundcloud.com/melodicdancemusic/qubiko-automatica-stil-vor)
 
-**Artist**: Big Gigantic, ALIGN 
+**Artist**: Qubiko 
 
-**Track**: Free Spirits
+**Track**: Qubiko - Automatica [Stil vor Talent]
 
-Last updated at 5/11/2025, 9:27:54 AM
+Last updated at 5/11/2025, 9:29:54 AM
