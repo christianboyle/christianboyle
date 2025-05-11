@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hawy8z2qjTj9q36y-FGmVyA-t500x500.png">](https://soundcloud.com/old-ghost-records/primal-stalker-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AhzLrNQsFyWQoXwg-gISVmw-t500x500.jpg">](https://soundcloud.com/donjamalmusic/don-jamal-peso-flip)
 
-**Artist**: Old Ghost Records 
+**Artist**: Don Jamal 
 
-**Track**: Primal - Stalker
+**Track**: Peso Flip
 
-Last updated at 5/11/2025, 9:24:34 AM
+Last updated at 5/11/2025, 9:25:34 AM
