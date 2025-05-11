@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AhzLrNQsFyWQoXwg-gISVmw-t500x500.jpg">](https://soundcloud.com/donjamalmusic/don-jamal-peso-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CSyxplsqJzoFwpq-Tp3LxQ-t500x500.png">](https://soundcloud.com/seinjuhyung/crush-sein-edit)
 
-**Artist**: Don Jamal 
+**Artist**: Sein 
 
-**Track**: Peso Flip
+**Track**: Crush (Sein Edit)
 
-Last updated at 5/11/2025, 9:25:34 AM
+Last updated at 5/11/2025, 9:26:34 AM
