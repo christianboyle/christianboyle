@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yr0wIFXtD8f6TUbJ-eTPgMQ-t500x500.jpg">](https://soundcloud.com/lwo_music/lwo-x-fnrz-x-manx-first-of-the-year-ya-masteringcom-v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmT66NrrpYGkCuq3-50tS5g-t500x500.jpg">](https://soundcloud.com/jotismusic/bring-me-to-life-jotis-edit)
 
-**Artist**: LWØ, FNRZ, MANX 
+**Artist**: JOTIS 
 
-**Track**: Skrillex - First Of The Year (LWØ x FNRZ x MANX Hard Techno Edit) [FREE DL]
+**Track**: Bring Me To Life (JOTIS Edit) [FREE DL]
 
-Last updated at 5/11/2025, 9:10:07 AM
+Last updated at 5/11/2025, 9:11:27 AM
