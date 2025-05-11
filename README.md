@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9GyNqss99o1kUr7R-ty6qYQ-t500x500.png">](https://soundcloud.com/melodicdancemusic/qubiko-automatica-stil-vor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sOhDHhzR8vbzglIC-opNrSA-t500x500.png">](https://soundcloud.com/dramaclubrecs/sfam-jordnmoody-bms-feat-slowie-1)
 
-**Artist**: Qubiko 
+**Artist**: Sfam, Jordnmoody 
 
-**Track**: Qubiko - Automatica [Stil vor Talent]
+**Track**: sfam, Jordnmoody - BMS (feat. Slowie)
 
-Last updated at 5/11/2025, 9:29:54 AM
+Last updated at 5/11/2025, 9:31:03 AM
