@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKdPzndbUEjKBSp3-3mMM8g-t500x500.jpg">](https://soundcloud.com/dj-panda-6/dj-panda-its-a-dream-t78-don-paolo-2024-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oodNtFLMhiO0cWEp-0penXg-t500x500.png">](https://soundcloud.com/technowereld/premiere-ravers-diary-question)
 
-**Artist**: Dj Panda 
+**Artist**: Techno Wereld, Raver's Diary 
 
-**Track**: It's a Dream (T78 - Don Paolo 2024 Remix)
+**Track**: Premiere: Raver's Diary - Question
 
-Last updated at 5/12/2025, 1:38:34 PM
+Last updated at 5/12/2025, 1:43:59 PM
