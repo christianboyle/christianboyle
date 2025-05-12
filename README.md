@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5fJ4uI9DlkBrzCTN-1vTf8w-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/yellow-claw-dj-turn-it-up-rogerson-vip-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGCPHTwMmvgRGy2y-2BiR6A-t500x500.jpg">](https://soundcloud.com/ihateshinigami/sore-loser-prod-holy-mountain)
 
-**Artist**: Rogerson 
+**Artist**: shinigami 
 
-**Track**: Yellow Claw - DJ Turn It Up (Rogerson VIP Edit) [FREE DOWNLOAD]
+**Track**: sore loser (prod. holy mountain)
 
-Last updated at 5/12/2025, 9:54:51 AM
+Last updated at 5/12/2025, 10:13:16 AM
