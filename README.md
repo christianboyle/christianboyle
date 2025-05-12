@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ju3T6Q7J8PS3s546-HsxjkQ-t500x500.png">](https://soundcloud.com/uraiofficial/kendrick-lamar-dna-urai-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBRF8e4C0rBV17rS-t763yg-t500x500.jpg">](https://soundcloud.com/saint-baek/skanka)
 
-**Artist**: URAI 
+**Artist**: Hamdi , SAINT MILLER 
 
-**Track**: KENDRICK LAMAR - DNA. (URAI FLIP)
+**Track**: SKANKA
 
-Last updated at 5/12/2025, 8:55:13 AM
+Last updated at 5/12/2025, 8:56:33 AM
