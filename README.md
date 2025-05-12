@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H1Znd6san90H-0-t500x500.jpg">](https://soundcloud.com/raydiumsound/rep-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qSd2fYLVsQyJdPSn-LlugzA-t500x500.png">](https://soundcloud.com/dackjaniels/circadian-riddim)
 
-**Artist**: RAYDIUM 
+**Artist**: Dack Janiels 
 
-**Track**: Rep My
+**Track**: DACK JANIELS - CIRCADIAN RIDDIM
 
-Last updated at 5/12/2025, 9:23:56 AM
+Last updated at 5/12/2025, 9:28:02 AM
