@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ktu2ddJWzy33snsk-xulSkg-t500x500.jpg">](https://soundcloud.com/remyheartmusic/rh-mx-echoes-of-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vm5BJuL8mCxHHtzd-NGGuSw-t500x500.png">](https://soundcloud.com/a01211581/ripscooter)
 
-**Artist**: Remy Heart, Max Clouder 
+**Artist**: sunsǝt 
 
-**Track**: Echoes of us
+**Track**: RIP SCOOTER
 
-Last updated at 5/12/2025, 8:46:02 AM
+Last updated at 5/12/2025, 8:50:20 AM
