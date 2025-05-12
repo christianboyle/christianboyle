@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0xRnxA7JieiEiZE-o7n8DQ-t500x500.jpg">](https://soundcloud.com/monk000_dj/monk000-this-is-overdosefree-dl-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKdPzndbUEjKBSp3-3mMM8g-t500x500.jpg">](https://soundcloud.com/dj-panda-6/dj-panda-its-a-dream-t78-don-paolo-2024-remix)
 
-**Artist**: Monk000 
+**Artist**: Dj Panda 
 
-**Track**: Monk000 - This Is Overdose
+**Track**: It's a Dream (T78 - Don Paolo 2024 Remix)
 
-Last updated at 5/12/2025, 1:34:24 PM
+Last updated at 5/12/2025, 1:38:34 PM
