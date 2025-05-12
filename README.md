@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71ySVYyvgzXmdl9F-r2zShg-t500x500.jpg">](https://soundcloud.com/autektone/atk181-t78-plur-original-mixpreviewautektone-recordsout-170125)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ju3T6Q7J8PS3s546-HsxjkQ-t500x500.png">](https://soundcloud.com/uraiofficial/kendrick-lamar-dna-urai-flip)
 
-**Artist**: T78 
+**Artist**: URAI 
 
-**Track**: ATK181 - T78 "Plur" (Original Mix)(Preview)(Autektone Records)(Out Now)
+**Track**: KENDRICK LAMAR - DNA. (URAI FLIP)
 
-Last updated at 5/12/2025, 8:52:43 AM
+Last updated at 5/12/2025, 8:55:13 AM
