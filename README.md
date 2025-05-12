@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6y8QDC6AzQhN79q-EsvVmg-t500x500.jpg">](https://soundcloud.com/nicekeed/nice-keed-we-are-your-friends-free-dl-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0xRnxA7JieiEiZE-o7n8DQ-t500x500.jpg">](https://soundcloud.com/monk000_dj/monk000-this-is-overdosefree-dl-1)
 
-**Artist**: NICE KEED 
+**Artist**: Monk000 
 
-**Track**: NICE KEED // WE ARE YOUR FRIENDS [FREE DL EXTENDED]
+**Track**: Monk000 - This Is Overdose
 
-Last updated at 5/12/2025, 1:30:38 PM
+Last updated at 5/12/2025, 1:34:24 PM
