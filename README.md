@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-026U2O33DWxy0RgJ-KsTyyw-t500x500.png">](https://soundcloud.com/exhaleofc/2hot2play-linds-type-of-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cKdPzndbUEjKBSp3-3mMM8g-t500x500.jpg">](https://soundcloud.com/dj-panda-6/dj-panda-its-a-dream-t78-don-paolo-2024-remix)
 
-**Artist**: Exhale 
+**Artist**: Dj Panda 
 
-**Track**: 2HOT2PLAY, Linds - Type Of Beat
+**Track**: It's a Dream (T78 - Don Paolo 2024 Remix)
 
-Last updated at 5/12/2025, 10:18:22 AM
+Last updated at 5/12/2025, 10:25:28 AM
