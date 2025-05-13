@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujhUbZwNpl4BTeXD-AERn0g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sept-object-of-desire-opus002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qishjJ6OBT0T-0-t500x500.png">](https://soundcloud.com/bbjuelz/hacking-the-gate)
 
-**Artist**: HATE, Sept 
+**Artist**: Juelz 
 
-**Track**: Premiere: Sept — Object Of Desire [OPUS002]
+**Track**: HACKING THE GATE
 
-Last updated at 5/13/2025, 9:13:42 AM
+Last updated at 5/13/2025, 9:14:59 AM
