@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oodNtFLMhiO0cWEp-0penXg-t500x500.png">](https://soundcloud.com/technowereld/premiere-ravers-diary-question)
 
-**Artist**: yuuta 
+**Artist**: Techno Wereld, Raver's Diary 
 
-**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
+**Track**: Premiere: Raver's Diary - Question
 
-Last updated at 5/13/2025, 9:25:24 AM
+Last updated at 5/13/2025, 9:36:20 AM
