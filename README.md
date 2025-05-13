@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0xRnxA7JieiEiZE-o7n8DQ-t500x500.jpg">](https://soundcloud.com/monk000_dj/monk000-this-is-overdosefree-dl-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0wkyrdmn8WesAQBz-V7DTkA-t500x500.jpg">](https://soundcloud.com/1almostblue/comedown)
 
-**Artist**: Monk000 
+**Artist**: 𝒂𝒍𝒎𝒐𝒔𝒕 𝒃𝒍𝒖𝒆 
 
-**Track**: Monk000 - This Is Overdose
+**Track**: 𝒄 𝒐 𝒎 𝒆 𝒅 ☆ 𝒘 𝒏
 
-Last updated at 5/13/2025, 8:56:35 AM
+Last updated at 5/13/2025, 9:01:35 AM
