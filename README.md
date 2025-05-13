@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReMdPCFzdIOVYIuQ-Vvlh8Q-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-totem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
 
-**Artist**: SubCarbon Records 
+**Artist**: yuuta 
 
-**Track**: The Widdler - Totem
+**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
 
-Last updated at 5/13/2025, 9:21:58 AM
+Last updated at 5/13/2025, 9:25:24 AM
