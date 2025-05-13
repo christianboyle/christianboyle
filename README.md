@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TvtppkpCBDX0yAxp-7rJZmQ-t500x500.jpg">](https://soundcloud.com/bernzikial/the-largest-bernzikial-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ktu2ddJWzy33snsk-xulSkg-t500x500.jpg">](https://soundcloud.com/remyheartmusic/rh-mx-echoes-of-us)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: Remy Heart, Max Clouder 
 
-**Track**: The Largest (BERNZIKIAL Remix)
+**Track**: Echoes of us
 
-Last updated at 5/13/2025, 9:39:41 AM
+Last updated at 5/13/2025, 9:41:11 AM
