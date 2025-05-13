@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXzY9jGRWxYCiAE4-Id10Ag-t500x500.png">](https://soundcloud.com/spraelle/les-lambeaux-davril)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cdTyHouwHZuyD4yu-hbdwFg-t500x500.jpg">](https://soundcloud.com/onlytr4nce/zwyrg-polarity)
 
-**Artist**: Sprælle 
+**Artist**: zwyrg 
 
-**Track**: les lambeaux d'avril
+**Track**: zwyrg - Polarity
 
-Last updated at 5/13/2025, 6:13:52 AM
+Last updated at 5/13/2025, 6:14:51 AM
