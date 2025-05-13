@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-026U2O33DWxy0RgJ-KsTyyw-t500x500.png">](https://soundcloud.com/exhaleofc/2hot2play-linds-type-of-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReMdPCFzdIOVYIuQ-Vvlh8Q-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-totem)
 
-**Artist**: Exhale 
+**Artist**: SubCarbon Records 
 
-**Track**: 2HOT2PLAY, Linds - Type Of Beat
+**Track**: The Widdler - Totem
 
-Last updated at 5/13/2025, 9:17:52 AM
+Last updated at 5/13/2025, 9:21:58 AM
