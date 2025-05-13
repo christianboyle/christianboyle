@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oodNtFLMhiO0cWEp-0penXg-t500x500.png">](https://soundcloud.com/technowereld/premiere-ravers-diary-question)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TvtppkpCBDX0yAxp-7rJZmQ-t500x500.jpg">](https://soundcloud.com/bernzikial/the-largest-bernzikial-remix)
 
-**Artist**: Techno Wereld, Raver's Diary 
+**Artist**: BERNZIKIAL ✨ 
 
-**Track**: Premiere: Raver's Diary - Question
+**Track**: The Largest (BERNZIKIAL Remix)
 
-Last updated at 5/13/2025, 9:36:20 AM
+Last updated at 5/13/2025, 9:39:41 AM
