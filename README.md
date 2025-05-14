@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ii5Wta7Sk9QTs4YM-3YxdrA-t500x500.png">](https://soundcloud.com/vapidwav/mitigation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTKnJziSQvC7lzeG-nyyyPA-t500x500.png">](https://soundcloud.com/technowereld/premiere-warind-illusion-tisva001)
 
-**Artist**: Vapid 
+**Artist**: Techno Wereld, WarinD 
 
-**Track**: MITIGATION (FREE DL)
+**Track**: Premiere: WarinD - Illusion [TISVA001]
 
-Last updated at 5/14/2025, 9:01:54 AM
+Last updated at 5/14/2025, 9:02:54 AM
