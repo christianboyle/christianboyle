@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OlCGzR6B48HG-0-t500x500.jpg">](https://soundcloud.com/petetong/rhythm-of-the-night-feat-jules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHXCL4aTmLBC1SJA-55tupg-t500x500.png">](https://soundcloud.com/mardudubz/shards)
 
-**Artist**: Pete Tong, RoRo 
+**Artist**: MARDU dubz 
 
-**Track**: Rhythm Of The Night (feat. Jules Buckley & The Essential Orchestra)
+**Track**: SHARDS (AVAILABLE ON BANDCAMP)
 
-Last updated at 5/14/2025, 9:06:59 AM
+Last updated at 5/14/2025, 9:07:59 AM
