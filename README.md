@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTKnJziSQvC7lzeG-nyyyPA-t500x500.png">](https://soundcloud.com/technowereld/premiere-warind-illusion-tisva001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBrWUdzwNZcNETQ4-xdASNA-t500x500.png">](https://soundcloud.com/rival_official/rival-shadows-with-treetalk)
 
-**Artist**: Techno Wereld, WarinD 
+**Artist**: Rival, Treetalk 
 
-**Track**: Premiere: WarinD - Illusion [TISVA001]
+**Track**: Rival - Shadows (with Treetalk)
 
-Last updated at 5/14/2025, 9:02:54 AM
+Last updated at 5/14/2025, 9:04:29 AM
