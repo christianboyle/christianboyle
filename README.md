@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReMdPCFzdIOVYIuQ-Vvlh8Q-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-totem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujhUbZwNpl4BTeXD-AERn0g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sept-object-of-desire-opus002)
 
-**Artist**: SubCarbon Records 
+**Artist**: HATE, Sept 
 
-**Track**: The Widdler - Totem
+**Track**: Premiere: Sept — Object Of Desire [OPUS002]
 
-Last updated at 5/13/2025, 9:58:32 AM
+Last updated at 5/14/2025, 6:21:05 AM
