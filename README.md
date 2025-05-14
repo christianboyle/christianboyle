@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujhUbZwNpl4BTeXD-AERn0g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sept-object-of-desire-opus002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ii5Wta7Sk9QTs4YM-3YxdrA-t500x500.png">](https://soundcloud.com/vapidwav/mitigation)
 
-**Artist**: HATE, Sept 
+**Artist**: Vapid 
 
-**Track**: Premiere: Sept — Object Of Desire [OPUS002]
+**Track**: MITIGATION (FREE DL)
 
-Last updated at 5/14/2025, 6:21:05 AM
+Last updated at 5/14/2025, 9:01:54 AM
