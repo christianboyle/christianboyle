@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHXCL4aTmLBC1SJA-55tupg-t500x500.png">](https://soundcloud.com/mardudubz/shards)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QrCCKvqlUeZG1sqU-krCyig-t500x500.png">](https://soundcloud.com/stunnapossecult/finneh-stunna-posse-cult-mix)
 
-**Artist**: MARDU dubz 
+**Artist**: STUNNA POSSE, FINNEH 
 
-**Track**: SHARDS (AVAILABLE ON BANDCAMP)
+**Track**: FINNEH STUNNA POSSE CULT MIX
 
-Last updated at 5/14/2025, 9:07:59 AM
+Last updated at 5/14/2025, 9:09:00 AM
