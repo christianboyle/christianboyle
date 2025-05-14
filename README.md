@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qishjJ6OBT0T-0-t500x500.png">](https://soundcloud.com/bbjuelz/hacking-the-gate)
 
-**Artist**: yuuta 
+**Artist**: Juelz 
 
-**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
+**Track**: HACKING THE GATE
 
-Last updated at 5/14/2025, 6:29:28 PM
+Last updated at 5/14/2025, 6:31:28 PM
