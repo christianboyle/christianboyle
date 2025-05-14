@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBrWUdzwNZcNETQ4-xdASNA-t500x500.png">](https://soundcloud.com/rival_official/rival-shadows-with-treetalk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLzx7H3XhgFDlyfK-8fOwbA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/jk-walker-survival-staro)
 
-**Artist**: Rival, Treetalk 
+**Artist**: Fatal Energy Records 
 
-**Track**: Rival - Shadows (with Treetalk)
+**Track**: JK Walker - Survival (Staro Bootleg Remix)
 
-Last updated at 5/14/2025, 9:04:29 AM
+Last updated at 5/14/2025, 9:05:59 AM
