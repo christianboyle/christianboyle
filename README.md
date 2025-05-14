@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QrCCKvqlUeZG1sqU-krCyig-t500x500.png">](https://soundcloud.com/stunnapossecult/finneh-stunna-posse-cult-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
 
-**Artist**: STUNNA POSSE, FINNEH 
+**Artist**: yuuta 
 
-**Track**: FINNEH STUNNA POSSE CULT MIX
+**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
 
-Last updated at 5/14/2025, 9:09:00 AM
+Last updated at 5/14/2025, 6:29:28 PM
