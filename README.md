@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBHoIzaYbBpvsFIj-UawkHw-t500x500.jpg">](https://soundcloud.com/vamossandros/the-dico-cat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71wVz7yx5YN2wUsX-UVRczw-t500x500.png">](https://soundcloud.com/jesseeofficial/jessee-day-n-nite)
 
-**Artist**: Gambafreaks, Stefano Gambarelli, Christian Fischer, Peepin, Bobby Blanco, Nick Bennett, Justin Irby, Illyus & Barrientos, Mad Funk, Qubiko, Angelo Ferreri, Foo Funkers 
+**Artist**: Jessee 
 
-**Track**: The Black Cat - Catch me if you Can
+**Track**: Day 'N' Nite (Free Download)
 
-Last updated at 5/15/2025, 7:06:25 AM
+Last updated at 5/15/2025, 7:08:00 AM
