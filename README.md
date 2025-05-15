@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsljAq6Sm49bd92Q-QWojcw-t500x500.png">](https://soundcloud.com/digitalvibrationshq/anon-heat)
 
-**Artist**: Smochi 
+**Artist**: Digital Vibrations 
 
-**Track**: Wannabe (Smochi Grind)
+**Track**: ANON- HEAT
 
-Last updated at 5/15/2025, 7:48:32 AM
+Last updated at 5/15/2025, 7:49:37 AM
