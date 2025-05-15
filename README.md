@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNqyzDPAWNyulCIT-G0iv5Q-t500x500.png">](https://soundcloud.com/r3ndofficial/wtf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdBxme5ZuNMMMvq8-Yb95dQ-t500x500.png">](https://soundcloud.com/karepkg/stompout-master)
 
-**Artist**: R3ND X GUESTLI$T 
+**Artist**: kare.pkg 
 
-**Track**: WTF
+**Track**: STOMP OUT
 
-Last updated at 5/14/2025, 8:05:34 PM
+Last updated at 5/14/2025, 8:06:34 PM
