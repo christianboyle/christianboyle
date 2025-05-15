@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FLyiMy0dYya40sJ-f83DGg-t500x500.jpg">](https://soundcloud.com/tsketch/aly-aj-potential-breakup-song-tsketch-x-wilco-beats-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBHoIzaYbBpvsFIj-UawkHw-t500x500.jpg">](https://soundcloud.com/vamossandros/the-dico-cat)
 
-**Artist**: TSKETCH 
+**Artist**: Gambafreaks, Stefano Gambarelli, Christian Fischer, Peepin, Bobby Blanco, Nick Bennett, Justin Irby, Illyus & Barrientos, Mad Funk, Qubiko, Angelo Ferreri, Foo Funkers 
 
-**Track**: Aly & AJ - Potential Breakup Song (TSKETCH x Wilco Beats Remix)
+**Track**: The Black Cat - Catch me if you Can
 
-Last updated at 5/15/2025, 6:57:50 AM
+Last updated at 5/15/2025, 7:06:25 AM
