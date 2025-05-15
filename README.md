@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TtknbOc3NEyFtmQ-TpzxeQ-t500x500.png">](https://soundcloud.com/speckz_yeetz/speckz-trapanese)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9ilxjAh4hWnl5sZ-gOAZKA-t500x500.jpg">](https://soundcloud.com/groundscoredubz/track222)
 
-**Artist**: SPECKZ 
+**Artist**: ground score 
 
-**Track**: SPECKZ - TRAPANESE
+**Track**: Flume - Track 1.5 [Ground Score Bootleg]
 
-Last updated at 5/14/2025, 8:08:04 PM
+Last updated at 5/14/2025, 8:09:04 PM
