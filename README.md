@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1WinPLgvAzu0AsaQ-IZoWeA-t500x500.jpg">](https://soundcloud.com/pirapus/titanium-pirapus-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-39pzQzU8xMdVmzDe-aOefIA-t500x500.png">](https://soundcloud.com/advmbombmusic/skrillex-space-laces-recovery-advm-bomb-remix-24)
 
-**Artist**: Pirapus 
+**Artist**: ADVM BOMB, SKRILLEX 
 
-**Track**: Titanium (Pirapus Bootleg)
+**Track**: SKRILLEX & SPACE LACES - RECOVERY [ADVM BOMB REMIX]
 
-Last updated at 5/15/2025, 7:12:10 AM
+Last updated at 5/15/2025, 7:13:10 AM
