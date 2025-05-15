@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOSFGIkEzn5L69QH-IZW4gA-t500x500.png">](https://soundcloud.com/weareklown/wicked-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll1ZKA4uHTMCUvzl-zViXeA-t500x500.png">](https://soundcloud.com/levianth/skrillex-andy-levianth-remix-vip)
 
-**Artist**: KLOWN 
+**Artist**: Levianth, Skrillex 
 
-**Track**: WICKED
+**Track**: SKRILLEX - ANDY (LEVIANTH REMIX VIP)
 
-Last updated at 5/15/2025, 7:27:11 AM
+Last updated at 5/15/2025, 7:30:52 AM
