@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdBxme5ZuNMMMvq8-Yb95dQ-t500x500.png">](https://soundcloud.com/karepkg/stompout-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TtknbOc3NEyFtmQ-TpzxeQ-t500x500.png">](https://soundcloud.com/speckz_yeetz/speckz-trapanese)
 
-**Artist**: kare.pkg 
+**Artist**: SPECKZ 
 
-**Track**: STOMP OUT
+**Track**: SPECKZ - TRAPANESE
 
-Last updated at 5/14/2025, 8:06:34 PM
+Last updated at 5/14/2025, 8:08:04 PM
