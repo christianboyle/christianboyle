@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V2TMe45aa0vQlhGh-oAyjUw-t500x500.jpg">](https://soundcloud.com/theobsessed_uk/the-obsessed-need-to-free-yourself-darren-styles-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuYI2Ou0MFJE2yUW-Tv2pyQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/toza-anderex-neovision-acid-reign)
 
-**Artist**: The Obsessed 
+**Artist**: TOZA, Anderex 
 
-**Track**: The Obsessed  - Need To Free Yourself (Darren Styles Edit)
+**Track**: TOZA & Anderex - NEOVISION (Acid Reign)
 
-Last updated at 5/15/2025, 7:09:00 AM
+Last updated at 5/15/2025, 7:10:05 AM
