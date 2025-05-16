@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind?in=saxurn/sets/hyperobjectification)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S3icziz4EnhGjIs-SStvWQ-t500x500.jpg">](https://soundcloud.com/user-265793708/messy-mero-edit-4?in=saxurn/sets/hyperobjectification)
 
-**Artist**: Smochi 
+**Artist**: MËRO 
 
-**Track**: Wannabe (Smochi Grind)
+**Track**: Messy - MËRO EDIT
 
-Last updated at 5/16/2025, 9:33:21 AM
+Last updated at 5/16/2025, 9:36:26 AM
