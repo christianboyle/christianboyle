@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6y8QDC6AzQhN79q-EsvVmg-t500x500.jpg">](https://soundcloud.com/nicekeed/nice-keed-we-are-your-friends-free-dl-extended?in=saxurn/sets/hyperobjectification)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTQnaemHUCsL2gCb-lFzpOw-t500x500.jpg">](https://soundcloud.com/carlokalu/tsunami-carlo-kalu-hard-2)
 
-**Artist**: NICE KEED 
+**Artist**: carlo kalu 
 
-**Track**: NICE KEED // WE ARE YOUR FRIENDS [FREE DL EXTENDED]
+**Track**: DVBBS & Borgeous - TSUNAMI (carlo kalu "HARD TECHNO" EDIT)
 
-Last updated at 5/16/2025, 9:50:58 AM
+Last updated at 5/16/2025, 9:54:43 AM
