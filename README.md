@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTQnaemHUCsL2gCb-lFzpOw-t500x500.jpg">](https://soundcloud.com/carlokalu/tsunami-carlo-kalu-hard-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FgXPRgheeUO2MGZ-oJl1Lg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-we-like-to-party-hard?in=saxurn/sets/hyperobjectification/)
 
-**Artist**: carlo kalu 
+**Artist**: AudioBoyz 
 
-**Track**: DVBBS & Borgeous - TSUNAMI (carlo kalu "HARD TECHNO" EDIT)
+**Track**: AudioBoyz - We Like To Party Hard
 
-Last updated at 5/16/2025, 9:13:04 AM
+Last updated at 5/16/2025, 9:14:59 AM
