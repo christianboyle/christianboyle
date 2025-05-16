@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FgXPRgheeUO2MGZ-oJl1Lg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-we-like-to-party-hard?in=saxurn/sets/hyperobjectification/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWQqPfZ2CYUsBZSU-wxIpVw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-if-today-was-your-last-day?in=saxurn/sets/hyperobjectification)
 
-**Artist**: AudioBoyz 
+**Artist**: Carlos Tafalla 
 
-**Track**: AudioBoyz - We Like To Party Hard
+**Track**: Carlos Tafalla - If Today Was Your Last Day
 
-Last updated at 5/16/2025, 9:14:59 AM
+Last updated at 5/16/2025, 9:21:55 AM
