@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TiayY3UPSSw2FQNs-Oh7yTA-t500x500.jpg">](https://soundcloud.com/morganhermand/like-a-prayer-gan-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngdINTgJbFiFySRu-tglY0w-t500x500.png">](https://soundcloud.com/hartshorn303/hartshorn-you-i)
 
-**Artist**: Gan 
+**Artist**: Hartshorn 
 
-**Track**: Like A Prayer-Gan | FREE Download
+**Track**: Hartshorn - You & I
 
-Last updated at 5/16/2025, 8:10:52 AM
+Last updated at 5/16/2025, 8:12:22 AM
