@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shWsQ8FUsV54Zz6w-SppWqQ-t500x500.png">](https://soundcloud.com/saint-baek/panic-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O0mUk8rj9ebQ-0-t500x500.jpg">](https://soundcloud.com/banksbanksbanks/stay-acoustic)
 
-**Artist**: SAINT MILLER 
+**Artist**: BANKS 
 
-**Track**: PANIC
+**Track**: Stay (Acoustic)
 
-Last updated at 5/16/2025, 8:06:52 AM
+Last updated at 5/16/2025, 8:07:57 AM
