@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xv9gC3kpYU0tnOUH-1WdG6w-t500x500.png">](https://soundcloud.com/kyur0/anarchy-kuru-fast-life-bedside-kyuro-mh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MerzW37niOZtLDzc-pJRhsQ-t500x500.png">](https://soundcloud.com/strykersteele/pushed-through-a-thin-veil-2)
 
-**Artist**: Kyuro 
+**Artist**: StrykerSteele 
 
-**Track**: ANARCHY + KURU - FAST LIFE / BEDSIDE (KYURO MH)
+**Track**: Pushed Through a Thin Veil
 
-Last updated at 5/16/2025, 7:45:09 AM
+Last updated at 5/16/2025, 8:05:31 AM
