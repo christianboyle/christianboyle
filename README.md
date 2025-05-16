@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-026U2O33DWxy0RgJ-KsTyyw-t500x500.png">](https://soundcloud.com/exhaleofc/2hot2play-linds-type-of-beat?in=saxurn/sets/hyperobjectification/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qishjJ6OBT0T-0-t500x500.png">](https://soundcloud.com/bbjuelz/hacking-the-gate?in=saxurn/sets/hyperobjectification/)
 
-**Artist**: Exhale 
+**Artist**: Juelz 
 
-**Track**: 2HOT2PLAY, Linds - Type Of Beat
+**Track**: HACKING THE GATE
 
-Last updated at 5/16/2025, 9:05:27 AM
+Last updated at 5/16/2025, 9:09:22 AM
