@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ODoo2iUsUTfzZhT0-zhfzbQ-t500x500.png">](https://soundcloud.com/dnzrecords/jumpin-jack-the-riddle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Evi2BFpVyGnfnEun-BoMc8A-t500x500.png">](https://soundcloud.com/dnzrecords/wezmeister-not-over-yet)
 
-**Artist**: Jumpin Jack 
+**Artist**: Wezmeister 
 
-**Track**: Jumpin Jack - The Riddle
+**Track**: Wezmeister - Not Over Yet
 
-Last updated at 5/16/2025, 8:30:57 AM
+Last updated at 5/16/2025, 8:32:27 AM
