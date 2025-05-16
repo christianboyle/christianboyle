@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0wkyrdmn8WesAQBz-V7DTkA-t500x500.jpg">](https://soundcloud.com/1almostblue/comedown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWQqPfZ2CYUsBZSU-wxIpVw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-if-today-was-your-last-day?in=saxurn/sets/hyperobjectification)
 
-**Artist**: 𝒂𝒍𝒎𝒐𝒔𝒕 𝒃𝒍𝒖𝒆 
+**Artist**: Carlos Tafalla 
 
-**Track**: 𝒄 𝒐 𝒎 𝒆 𝒅 ☆ 𝒘 𝒏
+**Track**: Carlos Tafalla - If Today Was Your Last Day
 
-Last updated at 5/16/2025, 11:13:26 AM
+Last updated at 5/16/2025, 11:15:30 AM
