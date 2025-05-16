@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qishjJ6OBT0T-0-t500x500.png">](https://soundcloud.com/bbjuelz/hacking-the-gate?in=saxurn/sets/hyperobjectification)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6y8QDC6AzQhN79q-EsvVmg-t500x500.jpg">](https://soundcloud.com/nicekeed/nice-keed-we-are-your-friends-free-dl-extended?in=saxurn/sets/hyperobjectification)
 
-**Artist**: Juelz 
+**Artist**: NICE KEED 
 
-**Track**: HACKING THE GATE
+**Track**: NICE KEED // WE ARE YOUR FRIENDS [FREE DL EXTENDED]
 
-Last updated at 5/16/2025, 9:48:02 AM
+Last updated at 5/16/2025, 9:50:58 AM
