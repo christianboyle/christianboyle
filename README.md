@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WDiHFrslBNIUb0xy-XPzFUA-t500x500.jpg">](https://soundcloud.com/joongloom411/lv-sandals-remix-esdeekid-fakemink-and-rico-ace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough)
 
-**Artist**: Joon Gloom 
+**Artist**: DJ Diamond Feat. Eira 
 
-**Track**: LV Sandals - EsDeeKid, fakemink, and Rico Ace (Joon Gloom Remix)
+**Track**: DJ Diamond Feat. Eira - Can't Get Enough
 
-Last updated at 5/16/2025, 8:37:04 AM
+Last updated at 5/16/2025, 8:39:35 AM
