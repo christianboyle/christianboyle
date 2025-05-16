@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FgXPRgheeUO2MGZ-oJl1Lg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-we-like-to-party-hard)
 
-**Artist**: DJ Diamond Feat. Eira 
+**Artist**: AudioBoyz 
 
-**Track**: DJ Diamond Feat. Eira - Can't Get Enough
+**Track**: AudioBoyz - We Like To Party Hard
 
-Last updated at 5/16/2025, 8:39:35 AM
+Last updated at 5/16/2025, 8:40:55 AM
