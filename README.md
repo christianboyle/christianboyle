@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RCStmjVwS2XTywlu-RlLgLw-t500x500.png">](https://soundcloud.com/dnzrecords/dtah-all-out-of-love)
 
-**Artist**: Smochi 
+**Artist**: DTAH 
 
-**Track**: Wannabe (Smochi Grind)
+**Track**: DTAH - All Out Of Love
 
-Last updated at 5/16/2025, 8:25:01 AM
+Last updated at 5/16/2025, 8:26:06 AM
