@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l21VNy9T5eAdTYc9-qd1ktA-t500x500.png">](https://soundcloud.com/jadudala/ahee-brain-tickler-gunpoint-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WDiHFrslBNIUb0xy-XPzFUA-t500x500.jpg">](https://soundcloud.com/joongloom411/lv-sandals-remix-esdeekid-fakemink-and-rico-ace)
 
-**Artist**: AHEE, Gunpoint 
+**Artist**: Joon Gloom 
 
-**Track**: AHEE - Brain Tickler (Gunpoint Remix)
+**Track**: LV Sandals - EsDeeKid, fakemink, and Rico Ace (Joon Gloom Remix)
 
-Last updated at 5/16/2025, 8:35:54 AM
+Last updated at 5/16/2025, 8:37:04 AM
