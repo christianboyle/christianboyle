@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FgXPRgheeUO2MGZ-oJl1Lg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-we-like-to-party-hard?in=saxurn/sets/hyperobjectification/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind?in=saxurn/sets/hyperobjectification/)
 
-**Artist**: AudioBoyz 
+**Artist**: Smochi 
 
-**Track**: AudioBoyz - We Like To Party Hard
+**Track**: Wannabe (Smochi Grind)
 
-Last updated at 5/16/2025, 8:45:47 AM
+Last updated at 5/16/2025, 8:46:52 AM
