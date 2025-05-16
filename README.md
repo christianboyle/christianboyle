@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTQnaemHUCsL2gCb-lFzpOw-t500x500.jpg">](https://soundcloud.com/carlokalu/tsunami-carlo-kalu-hard-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWQqPfZ2CYUsBZSU-wxIpVw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-if-today-was-your-last-day?in=saxurn/sets/hyperobjectification)
 
-**Artist**: carlo kalu 
+**Artist**: Carlos Tafalla 
 
-**Track**: DVBBS & Borgeous - TSUNAMI (carlo kalu "HARD TECHNO" EDIT)
+**Track**: Carlos Tafalla - If Today Was Your Last Day
 
-Last updated at 5/16/2025, 9:54:43 AM
+Last updated at 5/16/2025, 9:59:24 AM
