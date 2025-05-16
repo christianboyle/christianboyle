@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gF8xTCU5sLs1jr79-kuE0Lg-t500x500.png">](https://soundcloud.com/dnzrecords/fran-deliro-had-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wf7v1R8pM1Q12WAw-KWFqtg-t500x500.png">](https://soundcloud.com/dnzrecords/illintent-jayme-d-start-to-cry)
 
-**Artist**: Fran Deliro 
+**Artist**: Illintent & Jayme D 
 
-**Track**: Fran Deliro - Had You
+**Track**: Illintent & Jayme D - Start To Cry
 
-Last updated at 5/16/2025, 8:33:47 AM
+Last updated at 5/16/2025, 8:34:47 AM
