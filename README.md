@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzFT2yye0HFIXBP7-byTREg-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/feeling-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGCPHTwMmvgRGy2y-2BiR6A-t500x500.jpg">](https://soundcloud.com/ihateshinigami/sore-loser-prod-holy-mountain)
 
-**Artist**: Infinite 
+**Artist**: shinigami 
 
-**Track**: Infinite - Feeling (Radio Edit)
+**Track**: sore loser (prod. holy mountain)
 
-Last updated at 5/17/2025, 6:48:58 PM
+Last updated at 5/17/2025, 6:51:59 PM
