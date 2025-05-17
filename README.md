@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWQqPfZ2CYUsBZSU-wxIpVw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-if-today-was-your-last-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngdINTgJbFiFySRu-tglY0w-t500x500.png">](https://soundcloud.com/hartshorn303/hartshorn-lights-on)
 
-**Artist**: Carlos Tafalla 
+**Artist**: Hartshorn 
 
-**Track**: Carlos Tafalla - If Today Was Your Last Day
+**Track**: Hartshorn - Lights On
 
-Last updated at 5/17/2025, 6:20:56 PM
+Last updated at 5/17/2025, 6:25:06 PM
