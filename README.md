@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sGlCVewJXc32b3qW-xdR5Zw-t500x500.jpg">](https://soundcloud.com/dopecontents/with-you)
 
-**Artist**: yuuta 
+**Artist**: 9ne 
 
-**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
+**Track**: With You
 
-Last updated at 5/17/2025, 7:52:21 AM
+Last updated at 5/17/2025, 8:07:25 AM
