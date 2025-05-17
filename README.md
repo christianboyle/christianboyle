@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1enx18MH4hDewpw9-g3tgbw-t500x500.png">](https://soundcloud.com/fatalenergyrecords/jona-d-adam-3sixty-getting-older-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S3icziz4EnhGjIs-SStvWQ-t500x500.jpg">](https://soundcloud.com/user-265793708/messy-mero-edit-4)
 
-**Artist**: Fatal Energy Records 
+**Artist**: MËRO 
 
-**Track**: Jona D & Adam 3Sixty - Getting Older (Original Mix)
+**Track**: Messy - MËRO EDIT
 
-Last updated at 5/17/2025, 6:41:13 PM
+Last updated at 5/17/2025, 6:44:28 PM
