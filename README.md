@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLK7EMewk8uq-0-t500x500.jpg">](https://soundcloud.com/vrdgo/believe-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFyHwpkwpoWp2hJb-eOIzZQ-t500x500.png">](https://soundcloud.com/dnzrecords/david-navas-beyond-the-horizon)
 
-**Artist**: VRDGO 
+**Artist**: David Navas 
 
-**Track**: Believe
+**Track**: David Navas - Beyond The Horizon
 
-Last updated at 5/17/2025, 6:28:51 PM
+Last updated at 5/17/2025, 6:33:12 PM
