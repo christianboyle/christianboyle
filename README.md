@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGCPHTwMmvgRGy2y-2BiR6A-t500x500.jpg">](https://soundcloud.com/ihateshinigami/sore-loser-prod-holy-mountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qishjJ6OBT0T-0-t500x500.png">](https://soundcloud.com/bbjuelz/hacking-the-gate)
 
-**Artist**: shinigami 
+**Artist**: Juelz 
 
-**Track**: sore loser (prod. holy mountain)
+**Track**: HACKING THE GATE
 
-Last updated at 5/17/2025, 6:51:59 PM
+Last updated at 5/17/2025, 6:54:09 PM
