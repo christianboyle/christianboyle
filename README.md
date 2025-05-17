@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPDAA6BCzVj9n8W7-25DsHg-t500x500.jpg">](https://soundcloud.com/enablesecret/esx-z-w-zhnoi)
 
-**Artist**: vibe.digital 
+**Artist**: enable secret 
 
-**Track**: Maāk.G - Escape
+**Track**: esx-z (w zhnoi)
 
-Last updated at 5/17/2025, 8:51:25 AM
+Last updated at 5/17/2025, 4:40:51 PM
