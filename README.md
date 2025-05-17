@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPDAA6BCzVj9n8W7-25DsHg-t500x500.jpg">](https://soundcloud.com/enablesecret/healing-w-purityleech?in=enablesecret/sets/these-werent-originally-my-memories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rw1D8LqZMMJPwJcT-bYpzyQ-t500x500.png">](https://soundcloud.com/miownize/2dabe4b4-b53e-4acc-9104-930e90f774c6)
 
-**Artist**: enable secret 
+**Artist**: MioWnize 
 
-**Track**: healing (w purityleech)
+**Track**: Cattywampus
 
-Last updated at 5/17/2025, 8:48:10 AM
+Last updated at 5/17/2025, 8:49:55 AM
