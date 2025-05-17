@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1enx18MH4hDewpw9-g3tgbw-t500x500.png">](https://soundcloud.com/fatalenergyrecords/jona-d-adam-3sixty-getting-older-original-mix)
 
-**Artist**: Smochi 
+**Artist**: Fatal Energy Records 
 
-**Track**: Wannabe (Smochi Grind)
+**Track**: Jona D & Adam 3Sixty - Getting Older (Original Mix)
 
-Last updated at 5/17/2025, 6:38:03 PM
+Last updated at 5/17/2025, 6:41:13 PM
