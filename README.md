@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ngdINTgJbFiFySRu-tglY0w-t500x500.png">](https://soundcloud.com/hartshorn303/hartshorn-lights-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLK7EMewk8uq-0-t500x500.jpg">](https://soundcloud.com/vrdgo/believe-1)
 
-**Artist**: Hartshorn 
+**Artist**: VRDGO 
 
-**Track**: Hartshorn - Lights On
+**Track**: Believe
 
-Last updated at 5/17/2025, 6:25:06 PM
+Last updated at 5/17/2025, 6:28:51 PM
