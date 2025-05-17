@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0S3icziz4EnhGjIs-SStvWQ-t500x500.jpg">](https://soundcloud.com/user-265793708/messy-mero-edit-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzFT2yye0HFIXBP7-byTREg-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/feeling-radio-edit)
 
-**Artist**: MËRO 
+**Artist**: Infinite 
 
-**Track**: Messy - MËRO EDIT
+**Track**: Infinite - Feeling (Radio Edit)
 
-Last updated at 5/17/2025, 6:44:28 PM
+Last updated at 5/17/2025, 6:48:58 PM
