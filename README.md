@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ywQY1eBH0v6rp7M6-yO8YQQ-t500x500.png">](https://soundcloud.com/jayjaywav/mindonthebeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yg2aqVDCtf4Ah70-ST0KcA-t500x500.jpg">](https://soundcloud.com/eamonmcveigh/new-bottega-acid-rework-emcv)
 
-**Artist**: Jay-Jay 
+**Artist**: DJ Eamon McVeigh, Azaelia Banks & Torren Foot 
 
-**Track**: Jay-Jay - Mind On The Beat
+**Track**: New Bottega (ACID Rework by Eamon McV Extended Mix)
 
-Last updated at 5/17/2025, 8:23:56 AM
+Last updated at 5/17/2025, 8:25:06 AM
