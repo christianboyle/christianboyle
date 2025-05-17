@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFyHwpkwpoWp2hJb-eOIzZQ-t500x500.png">](https://soundcloud.com/dnzrecords/david-navas-beyond-the-horizon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll1ZKA4uHTMCUvzl-zViXeA-t500x500.png">](https://soundcloud.com/levianth/skrillex-andy-levianth-remix-vip)
 
-**Artist**: David Navas 
+**Artist**: Levianth, Skrillex 
 
-**Track**: David Navas - Beyond The Horizon
+**Track**: SKRILLEX - ANDY (LEVIANTH REMIX VIP)
 
-Last updated at 5/17/2025, 6:33:12 PM
+Last updated at 5/17/2025, 6:36:07 PM
