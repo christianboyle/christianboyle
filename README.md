@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ktu2ddJWzy33snsk-xulSkg-t500x500.jpg">](https://soundcloud.com/remyheartmusic/rh-mx-echoes-of-us)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta)
 
-**Artist**: Remy Heart, Max Clouder 
+**Artist**: yuuta 
 
-**Track**: Echoes of us
+**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
 
-Last updated at 5/17/2025, 7:05:50 PM
+Last updated at 5/17/2025, 7:09:00 PM
