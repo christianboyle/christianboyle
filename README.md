@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReMdPCFzdIOVYIuQ-Vvlh8Q-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-totem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune)
 
-**Artist**: SubCarbon Records 
+**Artist**: Shanghai Doom 
 
-**Track**: The Widdler - Totem
+**Track**: Shanghai Doom - Dune
 
-Last updated at 5/17/2025, 7:23:11 PM
+Last updated at 5/17/2025, 7:26:27 PM
