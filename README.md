@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tZ5IUp2XZ6rHSnwV-yY3BZg-t500x500.png">](https://soundcloud.com/lookasmusic/wheresyourheadatlookasremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2fSVCV4svdb9-0-t500x500.jpg">](https://soundcloud.com/jxxyy/fruit)
 
-**Artist**: Basement Jaxx, Lookas♾️ 
+**Artist**: Joeyy 
 
-**Track**: Where's Your Head At (Lookas Remix)
+**Track**: Fruit
 
-Last updated at 5/17/2025, 8:30:01 PM
+Last updated at 5/17/2025, 8:33:06 PM
