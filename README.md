@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGpObK36d78QExkJ-j9IihQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/raverslullaby)
 
-**Artist**: Shanghai Doom 
+**Artist**: Rudeejay, Da Brozz, EDMMARO 
 
-**Track**: Shanghai Doom - Dune
+**Track**: Rudeejay, Da Brozz &  EDMMARO - Raver’s Lullaby
 
-Last updated at 5/17/2025, 7:26:27 PM
+Last updated at 5/17/2025, 7:28:57 PM
