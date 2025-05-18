@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N9VMG6FwUrMQbglM-rWPZlQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/gldy-lx-voodoo-trip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uCH87kvzyChblmNY-gcjB5w-t500x500.png">](https://soundcloud.com/dj_guestlist/dj-guestlist-cravings320-rave-girl)
 
-**Artist**: GLDY LX 
+**Artist**: DJ GUESTLIST, CRAVINGS320  
 
-**Track**: GLDY LX - Voodoo Trip
+**Track**: DJ GUESTLIST & CRAVINGS320 - RAVE GIRL
 
-Last updated at 5/17/2025, 7:54:05 PM
+Last updated at 5/17/2025, 7:56:35 PM
