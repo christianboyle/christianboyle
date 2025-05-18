@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDzuN1hwc6eR-0-t500x500.jpg">](https://soundcloud.com/sonnywern/macarena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wxeuC2AN3h3-0-t500x500.jpg">](https://soundcloud.com/effieofficial/maybe-baby)
 
-**Artist**: Sonny Wern 
+**Artist**: Effie 
 
-**Track**: Macarena
+**Track**: maybe baby
 
-Last updated at 5/17/2025, 8:15:29 PM
+Last updated at 5/17/2025, 8:17:44 PM
