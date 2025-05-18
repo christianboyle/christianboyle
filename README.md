@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVlm70zVCctx-0-t500x500.jpg">](https://soundcloud.com/official-hilo/inferno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Hk4hV3KVLlpKI2e-sSTEQw-t500x500.jpg">](https://soundcloud.com/drumcode/konstantin-sibold-the-arrival-drumcode-dc315)
 
-**Artist**: HI-LO, Kasablanca 
+**Artist**: Drumcode 
 
-**Track**: INFERNO
+**Track**: Konstantin Sibold - The Arrival - Drumcode - DC315
 
-Last updated at 5/18/2025, 7:11:52 AM
+Last updated at 5/18/2025, 7:17:28 AM
