@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-37P91XOL90uhUxSP-DUPmyA-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/qgrs-049-golden-child-x-asau-torque)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zE9WexRzABbonkT4-FiBW1Q-t500x500.png">](https://soundcloud.com/bleep_bot/bleep-mix-301-sully)
 
-**Artist**: golden child x asáu 
+**Artist**: Sully 
 
-**Track**: QGRS-049 | golden child x asáu - Torque
+**Track**: Bleep Mix #301 - Sully
 
-Last updated at 5/18/2025, 7:23:54 AM
+Last updated at 5/18/2025, 7:25:15 AM
