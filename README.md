@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1AZ2z6unUu7nCre-gnBT6g-t500x500.jpg">](https://soundcloud.com/lucatestamusic/luca-testa-flowers-hardstyle-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz0y2X4zDkUDteiH-HmSxMw-t500x500.png">](https://soundcloud.com/fhcselection/nic-johnston-dante-i-love-rock)
 
-**Artist**: Luca Testa 
+**Artist**: Nic Johnston & Dante 
 
-**Track**: Luca Testa - Billie Jean [Hardstyle Remix]
+**Track**: Nic Johnston & Dante - I Love Rock 'N Roll (ft. ANLIL)
 
-Last updated at 5/17/2025, 8:10:34 PM
+Last updated at 5/17/2025, 8:13:09 PM
