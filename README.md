@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oENPKhtQNSEyPNSq-DY2nzg-t500x500.png">](https://soundcloud.com/luvx-32762402/rebirth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-raOXELHx9ayNzLrE-WyoP7Q-t500x500.png">](https://soundcloud.com/notatrisk/devious)
 
-**Artist**: luvxlaini 
+**Artist**: RISK 
 
-**Track**: #rebirth w/ minok0 (cr1sis)
+**Track**: Devious
 
-Last updated at 5/17/2025, 8:25:30 PM
+Last updated at 5/17/2025, 8:27:36 PM
