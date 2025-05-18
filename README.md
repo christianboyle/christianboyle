@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-026U2O33DWxy0RgJ-KsTyyw-t500x500.png">](https://soundcloud.com/exhaleofc/2hot2play-linds-type-of-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oodNtFLMhiO0cWEp-0penXg-t500x500.png">](https://soundcloud.com/technowereld/premiere-ravers-diary-question)
 
-**Artist**: Exhale 
+**Artist**: Techno Wereld, Raver's Diary 
 
-**Track**: 2HOT2PLAY, Linds - Type Of Beat
+**Track**: Premiere: Raver's Diary - Question
 
-Last updated at 5/17/2025, 6:57:04 PM
+Last updated at 5/17/2025, 7:00:59 PM
