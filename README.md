@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0wkyrdmn8WesAQBz-V7DTkA-t500x500.jpg">](https://soundcloud.com/1almostblue/comedown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReMdPCFzdIOVYIuQ-Vvlh8Q-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-totem)
 
-**Artist**: 𝒂𝒍𝒎𝒐𝒔𝒕 𝒃𝒍𝒖𝒆 
+**Artist**: SubCarbon Records 
 
-**Track**: 𝒄 𝒐 𝒎 𝒆 𝒅 ☆ 𝒘 𝒏
+**Track**: The Widdler - Totem
 
-Last updated at 5/17/2025, 7:20:16 PM
+Last updated at 5/17/2025, 7:23:11 PM
