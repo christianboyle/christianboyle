@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Pb0FyKwkTyqy1NY-hz3zbg-t500x500.png">](https://soundcloud.com/2sickpuppiez/everytime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NVlm70zVCctx-0-t500x500.jpg">](https://soundcloud.com/official-hilo/inferno)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: HI-LO, Kasablanca 
 
-**Track**: 2 Sick Puppiez - Everytime
+**Track**: INFERNO
 
-Last updated at 5/18/2025, 7:10:47 AM
+Last updated at 5/18/2025, 7:11:52 AM
