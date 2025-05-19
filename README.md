@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough?in=saxurn/sets/pit-viper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPDAA6BCzVj9n8W7-25DsHg-t500x500.jpg">](https://soundcloud.com/enablesecret/esx-z-w-zhnoi?in=saxurn/sets/pit-viper/)
 
-**Artist**: DJ Diamond Feat. Eira 
+**Artist**: enable secret 
 
-**Track**: DJ Diamond Feat. Eira - Can't Get Enough
+**Track**: esx-z (w zhnoi)
 
-Last updated at 5/19/2025, 12:28:03 PM
+Last updated at 5/19/2025, 12:31:38 PM
