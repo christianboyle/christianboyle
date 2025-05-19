@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJw8zsyJlhkueCyL-iXyUtw-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-make-it-far)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WskXM3npEP02zzR4-9ixIAQ-t500x500.jpg">](https://soundcloud.com/lewisina/palo-hands-up-mstr)
 
-**Artist**: Kichta 
+**Artist**: PALØ 
 
-**Track**: Kichta - Make It Far
+**Track**: PALØ - Hands Up [FREE DL]
 
-Last updated at 5/19/2025, 9:34:11 AM
+Last updated at 5/19/2025, 9:39:02 AM
