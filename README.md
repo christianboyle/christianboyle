@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pyv2WMidTj7FkctD-58GeuQ-t500x500.png">](https://soundcloud.com/youngfinneh/migos-straightenin-m-stic-x?in=saxurn/sets/pit-viper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BomaDyoZSBcmSA0L-sE4AMg-t500x500.jpg">](https://soundcloud.com/achat01/smack-my-bitch-up-achat-edit?in=saxurn/sets/pit-viper/)
 
-**Artist**: finneh, M?STIC 
+**Artist**: Achat 
 
-**Track**: Migos - STRAIGHTENIN (M?STIC x finneh Remix)
+**Track**: The Prodigy - Smack My Bitch Up [Achat Edit]
 
-Last updated at 5/19/2025, 12:39:44 PM
+Last updated at 5/19/2025, 12:42:19 PM
