@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BaeFublAOynz76iW-mT3BAA-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/hardcore-get-go-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KarQi0duhh8ev7qH-1ZBbXw-t500x500.png">](https://soundcloud.com/danyushuu/chaotic-system)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: Dr. Ushūu 
 
-**Track**: HARDCORE GET GO LIVE -💥2025  DJ STE MAJOR MIX
+**Track**: Chaotic System [DUBSTEP FBI PREMIERE]
 
-Last updated at 5/19/2025, 9:50:48 AM
+Last updated at 5/19/2025, 12:04:26 PM
