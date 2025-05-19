@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHiHsG7iymCXkUFx-mpMT7w-t500x500.png">](https://soundcloud.com/ghost_rook/corvidae-chatter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape?in=saxurn/sets/pit-viper/)
 
-**Artist**: Ghost Rook 
+**Artist**: vibe.digital 
 
-**Track**: Corvidae Chatter Vol. 1
+**Track**: Maāk.G - Escape
 
-Last updated at 5/19/2025, 12:10:19 PM
+Last updated at 5/19/2025, 12:12:40 PM
