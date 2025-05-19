@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-shWsQ8FUsV54Zz6w-SppWqQ-t500x500.png">](https://soundcloud.com/saint-baek/panic-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJw8zsyJlhkueCyL-iXyUtw-t500x500.jpg">](https://soundcloud.com/kichta-music/kichta-make-it-far)
 
-**Artist**: SAINT MILLER 
+**Artist**: Kichta 
 
-**Track**: PANIC
+**Track**: Kichta - Make It Far
 
-Last updated at 5/19/2025, 9:32:01 AM
+Last updated at 5/19/2025, 9:34:11 AM
