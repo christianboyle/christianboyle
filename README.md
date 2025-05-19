@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SrW6F9IEwIx1wYlJ-esByrw-t500x500.jpg">](https://soundcloud.com/dalwendj/dalwen-feel-the-bass-drop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utEwsWB7kdhPkyGv-b87IwA-t500x500.jpg">](https://soundcloud.com/polarity_official/polarity-amplifier)
 
-**Artist**: Dalwen 
+**Artist**: Polarity 
 
-**Track**: Dalwen - Feel The Bass Drop (FREE DL)
+**Track**: Polarity - Amplifier (FREE DL)
 
-Last updated at 5/19/2025, 9:42:52 AM
+Last updated at 5/19/2025, 9:48:12 AM
