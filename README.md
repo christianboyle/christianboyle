@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oodNtFLMhiO0cWEp-0penXg-t500x500.png">](https://soundcloud.com/technowereld/premiere-ravers-diary-question?in=saxurn/sets/pit-viper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap?in=saxurn/sets/pit-viper/)
 
-**Artist**: Techno Wereld, Raver's Diary 
+**Artist**: 4URA 
 
-**Track**: Premiere: Raver's Diary - Question
+**Track**: LOUDER
 
-Last updated at 5/19/2025, 12:33:58 PM
+Last updated at 5/19/2025, 12:37:24 PM
