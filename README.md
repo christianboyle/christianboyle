@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KarQi0duhh8ev7qH-1ZBbXw-t500x500.png">](https://soundcloud.com/danyushuu/chaotic-system)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xVOzechj4ibUsWP-DO3vig-t500x500.jpg">](https://soundcloud.com/doug-graves-2/bullet)
 
-**Artist**: Dr. Ushūu 
+**Artist**: DOUGLAS 1 
 
-**Track**: Chaotic System [DUBSTEP FBI PREMIERE]
+**Track**: Bullet
 
-Last updated at 5/19/2025, 12:04:26 PM
+Last updated at 5/19/2025, 12:06:01 PM
