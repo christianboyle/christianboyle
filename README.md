@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MgBAVKWAcwE67yk7-An8skg-t500x500.png">](https://soundcloud.com/badkillrecords/traptor-time-original-mix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UU6GC0b0LVsgAcyi-4GCgzg-t500x500.jpg">](https://soundcloud.com/boogaardmusic/daft-punk-technologic-boogaard)
 
-**Artist**: BADKILL RECORDS 
+**Artist**: Boogaard 
 
-**Track**: TRAPTOR - Time (Original Mix)
+**Track**: Daft Punk - Technologic (Boogaard Flip)
 
-Last updated at 5/20/2025, 8:49:38 AM
+Last updated at 5/20/2025, 9:13:01 AM
