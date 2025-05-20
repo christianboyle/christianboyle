@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VP6yrU0aPyzisQay-4NGfKw-t500x500.jpg">](https://soundcloud.com/jakka-b/whats-a-girl-to-do-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape?in=saxurn/sets/pit-viper/)
 
-**Artist**: Jakka-B 
+**Artist**: vibe.digital 
 
-**Track**: Luvstruck - Whats a girl to do [Jakka-B Edit] [FREE DOWNLOAD]
+**Track**: Maāk.G - Escape
 
-Last updated at 5/20/2025, 9:14:06 AM
+Last updated at 5/20/2025, 9:15:56 AM
