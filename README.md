@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6LxhQ1UzryfaVfx-67aFwg-t500x500.jpg">](https://soundcloud.com/kantkry/utrynok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GSRcvSqze2Twsf8Y-DYyz6A-t500x500.png">](https://soundcloud.com/myriasmusic/the-limit)
 
-**Artist**: boodah 
+**Artist**: MYRIAS 
 
-**Track**: UTRYNOK *kryottik
+**Track**: THE LIMIT
 
-Last updated at 5/20/2025, 8:40:42 AM
+Last updated at 5/20/2025, 8:41:47 AM
