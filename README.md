@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bY20eK1oyuMNxkj0-LQa2rQ-t500x500.jpg">](https://soundcloud.com/chefjulezmusic/e967af06-e5d7-4e19-b93d-97dad8c96473)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MgBAVKWAcwE67yk7-An8skg-t500x500.png">](https://soundcloud.com/badkillrecords/traptor-midnight-wave-original-mix-2?in=badkillrecords/sets/bk126-traptor-time-ep)
 
-**Artist**: Chef Julez 
+**Artist**: BADKILL RECORDS 
 
-**Track**: Banana Foster - Chef Julez ft. KXNE (Free Download)
+**Track**: TRAPTOR - Midnight Wave (Original Mix)
 
-Last updated at 5/20/2025, 8:42:47 AM
+Last updated at 5/20/2025, 8:43:48 AM
