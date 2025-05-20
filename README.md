@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7xfDwnkaGJzJvux-4xh6jw-t500x500.jpg">](https://soundcloud.com/innergatetechno/sorenga-sutcliffe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BI3R88ptgeOooTzz-uVIb3Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-philosophy-original-mix)
 
-**Artist**: Sørenga, INNERGATE RECORDS 
+**Artist**: Fatal Energy Records 
 
-**Track**: Sørenga - Sutcliffe [SINNERGATE VA00] (Free Download)
+**Track**: D-Railed - Philosophy (Original Mix)
 
-Last updated at 5/20/2025, 8:09:19 AM
+Last updated at 5/20/2025, 8:15:25 AM
