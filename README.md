@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbDLK4cmOW0RW8lc-3b1yBw-t500x500.jpg">](https://soundcloud.com/jaydedd/nle-choppa-slut-me-out-2-jaydedd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y35VNl6aoEDfFZYz-5448ZA-t500x500.jpg">](https://soundcloud.com/absnthmusic/uproar-edit-v2)
 
-**Artist**: JΛYDEDD 
+**Artist**: ABSNTH 
 
-**Track**: NLE Choppa - Slut Me Out 2 (Jaydedd Remix)
+**Track**: Lil Wayne - Uproar (ABSNTH Remix)
 
-Last updated at 5/20/2025, 8:22:25 AM
+Last updated at 5/20/2025, 8:23:41 AM
