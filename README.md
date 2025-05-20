@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJ0uH4Jb6JArYtWy-UOElBA-t500x500.png">](https://soundcloud.com/stemmily/temptation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f6LxhQ1UzryfaVfx-67aFwg-t500x500.jpg">](https://soundcloud.com/kantkry/utrynok)
 
-**Artist**: Stemmily 
+**Artist**: boodah 
 
-**Track**: Temptation
+**Track**: UTRYNOK *kryottik
 
-Last updated at 5/20/2025, 8:39:37 AM
+Last updated at 5/20/2025, 8:40:42 AM
