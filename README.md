@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MgBAVKWAcwE67yk7-An8skg-t500x500.png">](https://soundcloud.com/badkillrecords/traptor-midnight-wave-original-mix-2?in=badkillrecords/sets/bk126-traptor-time-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MgBAVKWAcwE67yk7-An8skg-t500x500.png">](https://soundcloud.com/badkillrecords/traptor-time-original-mix-3)
 
 **Artist**: BADKILL RECORDS 
 
-**Track**: TRAPTOR - Midnight Wave (Original Mix)
+**Track**: TRAPTOR - Time (Original Mix)
 
-Last updated at 5/20/2025, 8:43:48 AM
+Last updated at 5/20/2025, 8:49:38 AM
