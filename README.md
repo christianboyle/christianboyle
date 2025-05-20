@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UU6GC0b0LVsgAcyi-4GCgzg-t500x500.jpg">](https://soundcloud.com/boogaardmusic/daft-punk-technologic-boogaard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VP6yrU0aPyzisQay-4NGfKw-t500x500.jpg">](https://soundcloud.com/jakka-b/whats-a-girl-to-do-edit)
 
-**Artist**: Boogaard 
+**Artist**: Jakka-B 
 
-**Track**: Daft Punk - Technologic (Boogaard Flip)
+**Track**: Luvstruck - Whats a girl to do [Jakka-B Edit] [FREE DOWNLOAD]
 
-Last updated at 5/20/2025, 9:13:01 AM
+Last updated at 5/20/2025, 9:14:06 AM
