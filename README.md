@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sGlCVewJXc32b3qW-xdR5Zw-t500x500.jpg">](https://soundcloud.com/dopecontents/with-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7xfDwnkaGJzJvux-4xh6jw-t500x500.jpg">](https://soundcloud.com/innergatetechno/sorenga-sutcliffe)
 
-**Artist**: 9ne 
+**Artist**: Sørenga, INNERGATE RECORDS 
 
-**Track**: With You
+**Track**: Sørenga - Sutcliffe [SINNERGATE VA00] (Free Download)
 
-Last updated at 5/20/2025, 8:07:54 AM
+Last updated at 5/20/2025, 8:09:19 AM
