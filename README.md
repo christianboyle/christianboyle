@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIDz7yZzihZPJhgD-qJINxw-t500x500.jpg">](https://soundcloud.com/spicyboismusic/erbes-lexolee-darkside-whisper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjvoCOaJhcWygjz5-OVLIVA-t500x500.jpg">](https://soundcloud.com/41rossco/19-5-25)
 
-**Artist**: ERBES, Lexolee Darkside 
+**Artist**: DJ.Rossco 
 
-**Track**: Whisper
+**Track**: 19.5.25
 
-Last updated at 5/20/2025, 8:19:20 AM
+Last updated at 5/20/2025, 8:21:15 AM
