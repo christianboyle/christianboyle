@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-398VPdPql8Ft1dxu-nLixIA-t500x500.png">](https://soundcloud.com/wubaholics/acyan-keota-2?in=saxurn/sets/pit-of-vipers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xLfvWithKJJDczh-lkAeZw-t500x500.jpg">](https://soundcloud.com/b-pomp/avril-lavigne-bite-me-ben?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Acyan 
+**Artist**: Ben Journiee 
 
-**Track**: Acyan - KEOTA
+**Track**: Avril Lavigne - Bite Me (Ben Journiee Remix)
 
-Last updated at 5/21/2025, 9:26:29 AM
+Last updated at 5/21/2025, 9:29:44 AM
