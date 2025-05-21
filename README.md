@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5tr41ZzO9sqH20M-C6eB7g-t500x500.jpg">](https://soundcloud.com/achat01/achat-tactical-mayonnaise-7777777-scoville-version?in=saxurn/sets/pit-of-vipers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BI3R88ptgeOooTzz-uVIb3Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-philosophy-original-mix?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Achat 
+**Artist**: Fatal Energy Records 
 
-**Track**: Achat - Tactical Mayonnaise (7,777,777 Scoville Version)
+**Track**: D-Railed - Philosophy (Original Mix)
 
-Last updated at 5/21/2025, 9:37:15 AM
+Last updated at 5/21/2025, 9:43:40 AM
