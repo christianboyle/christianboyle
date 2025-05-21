@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKZw6b5yYBRmjMtC-85gbDQ-t500x500.png">](https://soundcloud.com/skysia/brain-tickler-skysia-remix)
 
-**Artist**: 4URA 
+**Artist**: Skysia 
 
-**Track**: LOUDER
+**Track**: Ahee - Brain Tickler (Skysia Remix)
 
-Last updated at 5/21/2025, 7:23:14 AM
+Last updated at 5/21/2025, 7:24:14 AM
