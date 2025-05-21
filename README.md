@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xLfvWithKJJDczh-lkAeZw-t500x500.jpg">](https://soundcloud.com/b-pomp/avril-lavigne-bite-me-ben?in=saxurn/sets/pit-of-vipers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Ben Journiee 
+**Artist**: DJ Diamond Feat. Eira 
 
-**Track**: Avril Lavigne - Bite Me (Ben Journiee Remix)
+**Track**: DJ Diamond Feat. Eira - Can't Get Enough
 
-Last updated at 5/21/2025, 9:29:44 AM
+Last updated at 5/21/2025, 9:33:39 AM
