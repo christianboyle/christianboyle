@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRnhvXrWtJTUyGVC-PITwvA-t500x500.png">](https://soundcloud.com/tana/new-cash)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjdDzBJEO295tdfA-O86RFQ-t500x500.png">](https://soundcloud.com/jampagnemusic/hot-in-here-4b-x-jampagne)
 
-**Artist**: tana 
+**Artist**: JAMPAGNE, 4B 
 
-**Track**: New Cash
+**Track**: HOT IN HERE (4B x JAMPAGNE REMIX)
 
-Last updated at 5/21/2025, 7:06:28 AM
+Last updated at 5/21/2025, 7:07:33 AM
