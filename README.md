@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape?in=saxurn/sets/pit-of-vipers/)
 
-**Artist**: 4URA 
+**Artist**: vibe.digital 
 
-**Track**: LOUDER
+**Track**: Maāk.G - Escape
 
-Last updated at 5/21/2025, 8:10:36 AM
+Last updated at 5/21/2025, 8:16:12 AM
