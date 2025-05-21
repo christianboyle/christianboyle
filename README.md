@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap?in=saxurn/sets/pit-vipers/)
 
-**Artist**: Shanghai Doom 
+**Artist**: 4URA 
 
-**Track**: Shanghai Doom - Dune
+**Track**: LOUDER
 
-Last updated at 5/21/2025, 7:22:14 AM
+Last updated at 5/21/2025, 7:23:14 AM
