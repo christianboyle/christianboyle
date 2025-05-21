@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKZw6b5yYBRmjMtC-85gbDQ-t500x500.png">](https://soundcloud.com/skysia/brain-tickler-skysia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BomaDyoZSBcmSA0L-sE4AMg-t500x500.jpg">](https://soundcloud.com/achat01/smack-my-bitch-up-achat-edit?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Skysia 
+**Artist**: Achat 
 
-**Track**: Ahee - Brain Tickler (Skysia Remix)
+**Track**: The Prodigy - Smack My Bitch Up [Achat Edit]
 
-Last updated at 5/21/2025, 9:05:02 AM
+Last updated at 5/21/2025, 9:10:17 AM
