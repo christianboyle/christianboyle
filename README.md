@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BI3R88ptgeOooTzz-uVIb3Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-philosophy-original-mix?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BomaDyoZSBcmSA0L-sE4AMg-t500x500.jpg">](https://soundcloud.com/achat01/smack-my-bitch-up-achat-edit?in=saxurn/sets/pit-vipers/)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Achat 
 
-**Track**: D-Railed - Philosophy (Original Mix)
+**Track**: The Prodigy - Smack My Bitch Up [Achat Edit]
 
-Last updated at 5/21/2025, 8:00:20 AM
+Last updated at 5/21/2025, 8:05:20 AM
