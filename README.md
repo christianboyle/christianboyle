@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape?in=saxurn/sets/pit-viper/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/sexyy-red-get-it-sexyy-aych-flip)
 
-**Artist**: vibe.digital 
+**Artist**: AYCH 
 
-**Track**: Maāk.G - Escape
+**Track**: Sexyy Red - Get It Sexyy (AYCH FLIP)
 
-Last updated at 5/20/2025, 9:20:21 AM
+Last updated at 5/21/2025, 5:38:57 AM
