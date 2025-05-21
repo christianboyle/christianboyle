@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZyCXcG7aoM0BKJj-0fjbCw-t500x500.png">](https://soundcloud.com/mogotvibez/maddin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wRnhvXrWtJTUyGVC-PITwvA-t500x500.png">](https://soundcloud.com/tana/new-cash)
 
-**Artist**: Mo Vibez 
+**Artist**: tana 
 
-**Track**: maddin
+**Track**: New Cash
 
-Last updated at 5/21/2025, 6:56:52 AM
+Last updated at 5/21/2025, 7:06:28 AM
