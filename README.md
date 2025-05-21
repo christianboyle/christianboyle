@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jt5qECxbDlifYcdw-6lqieg-t500x500.jpg">](https://soundcloud.com/yuutayuuji/thegr4mmy4award5-stylas-yuuta?in=saxurn/sets/hyperobjectification)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll1ZKA4uHTMCUvzl-zViXeA-t500x500.png">](https://soundcloud.com/levianth/skrillex-andy-levianth-remix-vip?in=saxurn/sets/hyperobjectification)
 
-**Artist**: yuuta 
+**Artist**: Levianth, Skrillex 
 
-**Track**: *:･ﾟʕっ•ᴥ•ʔっthegr4mmy4award5 ₍ᐢ•ﻌ•ᐢ₎*:・ﾟ (stylas + yuuta)
+**Track**: SKRILLEX - ANDY (LEVIANTH REMIX VIP)
 
-Last updated at 5/21/2025, 5:56:45 PM
+Last updated at 5/21/2025, 5:59:15 PM
