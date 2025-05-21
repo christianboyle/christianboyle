@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/sexyy-red-get-it-sexyy-aych-flip?in=saxurn/sets/pit-of-vipers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-398VPdPql8Ft1dxu-nLixIA-t500x500.png">](https://soundcloud.com/wubaholics/acyan-keota-2?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: AYCH 
+**Artist**: Acyan 
 
-**Track**: Sexyy Red - Get It Sexyy (AYCH FLIP)
+**Track**: Acyan - KEOTA
 
-Last updated at 5/21/2025, 5:18:51 PM
+Last updated at 5/21/2025, 5:21:16 PM
