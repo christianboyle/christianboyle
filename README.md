@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W0oqi5vTiAQyH0py-fdyxQw-t500x500.jpg">](https://soundcloud.com/aychofficial/sexyy-red-get-it-sexyy-aych-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjlyKEX8jl7ShBqQ-75yGdw-t500x500.jpg">](https://soundcloud.com/hystericdubs/bane)
 
-**Artist**: AYCH 
+**Artist**: Hysteric 
 
-**Track**: Sexyy Red - Get It Sexyy (AYCH FLIP)
+**Track**: BANE - 災い
 
-Last updated at 5/21/2025, 5:38:57 AM
+Last updated at 5/21/2025, 6:52:36 AM
