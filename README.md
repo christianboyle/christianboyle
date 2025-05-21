@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5j7q7fmQ22dCsz6Z-7qz7BQ-t500x500.png">](https://soundcloud.com/evalutionmusic/fatboy-slim-praise-you-evalution-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBFAiwmROjFwgM2b-awRcng-t500x500.jpg">](https://soundcloud.com/ablonn/ar-det-vart-att-gena)
 
-**Artist**: Evalution 
+**Artist**: ablon! 
 
-**Track**: Fatboy Slim - Praise You (Evalution Remix) [FREE DL]
+**Track**: Är det värt att gena?
 
-Last updated at 5/21/2025, 7:11:53 AM
+Last updated at 5/21/2025, 7:14:28 AM
