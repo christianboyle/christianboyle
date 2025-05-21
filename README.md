@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBFAiwmROjFwgM2b-awRcng-t500x500.jpg">](https://soundcloud.com/ablonn/ar-det-vart-att-gena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMvwplIzQiUamd0C-yTqEFw-t500x500.png">](https://soundcloud.com/psychocybinrec/illbedisvip)
 
-**Artist**: ablon! 
+**Artist**: Tron3x, Psyoptic 
 
-**Track**: Är det värt att gena?
+**Track**: TRON3X & Psyoptic - I'll Be Dis (VIP)
 
-Last updated at 5/21/2025, 7:14:28 AM
+Last updated at 5/21/2025, 7:17:04 AM
