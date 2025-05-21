@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-398VPdPql8Ft1dxu-nLixIA-t500x500.png">](https://soundcloud.com/wubaholics/acyan-keota-2?in=saxurn/sets/pit-vipers/)
 
-**Artist**: DJ Diamond Feat. Eira 
+**Artist**: Acyan 
 
-**Track**: DJ Diamond Feat. Eira - Can't Get Enough
+**Track**: Acyan - KEOTA
 
-Last updated at 5/21/2025, 7:38:26 AM
+Last updated at 5/21/2025, 7:39:31 AM
