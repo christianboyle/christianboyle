@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jB9A1WKi9SHcDbKp-MjzmlA-t500x500.png">](https://soundcloud.com/squired/takeoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Squired 
+**Artist**: 4URA 
 
-**Track**: TAKEOFF
+**Track**: LOUDER
 
-Last updated at 5/21/2025, 9:59:32 AM
+Last updated at 5/21/2025, 12:17:45 PM
