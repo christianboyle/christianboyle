@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GSRcvSqze2Twsf8Y-DYyz6A-t500x500.png">](https://soundcloud.com/myriasmusic/the-limit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5j7q7fmQ22dCsz6Z-7qz7BQ-t500x500.png">](https://soundcloud.com/evalutionmusic/fatboy-slim-praise-you-evalution-remix-free-dl)
 
-**Artist**: MYRIAS 
+**Artist**: Evalution 
 
-**Track**: THE LIMIT
+**Track**: Fatboy Slim - Praise You (Evalution Remix) [FREE DL]
 
-Last updated at 5/21/2025, 7:10:48 AM
+Last updated at 5/21/2025, 7:11:53 AM
