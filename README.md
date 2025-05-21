@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BqBZLHexzXqZXCqY-EKR4Yg-t500x500.png">](https://soundcloud.com/vibe-digital/maakg-escape?in=saxurn/sets/pit-of-vipers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: vibe.digital 
+**Artist**: Shanghai Doom 
 
-**Track**: Maāk.G - Escape
+**Track**: Shanghai Doom - Dune
 
-Last updated at 5/21/2025, 4:59:09 PM
+Last updated at 5/21/2025, 5:16:16 PM
