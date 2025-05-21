@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jB9A1WKi9SHcDbKp-MjzmlA-t500x500.png">](https://soundcloud.com/squired/takeoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHE8T5cuB65eNOB-owGKfA-t500x500.jpg">](https://soundcloud.com/bassrush/shanghai-doom-dune?in=saxurn/sets/pit-of-vipers)
 
-**Artist**: Squired 
+**Artist**: Shanghai Doom 
 
-**Track**: TAKEOFF
+**Track**: Shanghai Doom - Dune
 
-Last updated at 5/21/2025, 9:17:53 AM
+Last updated at 5/21/2025, 9:21:28 AM
