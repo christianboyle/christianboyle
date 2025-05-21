@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SD9i88jVcx2qd2yi-6bezLw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-diamond-feat-eira-cant-get-enough?in=saxurn/sets/pit-vipers/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k5tr41ZzO9sqH20M-C6eB7g-t500x500.jpg">](https://soundcloud.com/achat01/achat-tactical-mayonnaise-7777777-scoville-version?in=saxurn/sets/pit-vipers/)
 
-**Artist**: DJ Diamond Feat. Eira 
+**Artist**: Achat 
 
-**Track**: DJ Diamond Feat. Eira - Can't Get Enough
+**Track**: Achat - Tactical Mayonnaise (7,777,777 Scoville Version)
 
-Last updated at 5/21/2025, 7:50:19 AM
+Last updated at 5/21/2025, 7:53:49 AM
