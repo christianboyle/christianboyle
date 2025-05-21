@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKZw6b5yYBRmjMtC-85gbDQ-t500x500.png">](https://soundcloud.com/skysia/brain-tickler-skysia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-398VPdPql8Ft1dxu-nLixIA-t500x500.png">](https://soundcloud.com/wubaholics/acyan-keota-2)
 
-**Artist**: Skysia 
+**Artist**: Acyan 
 
-**Track**: Ahee - Brain Tickler (Skysia Remix)
+**Track**: Acyan - KEOTA
 
-Last updated at 5/21/2025, 12:34:22 PM
+Last updated at 5/21/2025, 3:32:42 PM
