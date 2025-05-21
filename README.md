@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMvwplIzQiUamd0C-yTqEFw-t500x500.png">](https://soundcloud.com/psychocybinrec/illbedisvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CzV5VO9f0mMgnWyz-kEnNAA-t500x500.png">](https://soundcloud.com/cloutfarmpod/episode-39-a-buffs-lament-feat-peter-vack-aka-the-masterofcum)
 
-**Artist**: Tron3x, Psyoptic 
+**Artist**: Clout Farm 
 
-**Track**: TRON3X & Psyoptic - I'll Be Dis (VIP)
+**Track**: Episode 39: “A BUFF'S LAMENT” feat. Peter Vack aka themasterofcum *PREVIEW — FULL EP ON PATREON*
 
-Last updated at 5/21/2025, 7:17:04 AM
+Last updated at 5/21/2025, 7:18:29 AM
