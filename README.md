@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jB9A1WKi9SHcDbKp-MjzmlA-t500x500.png">](https://soundcloud.com/squired/takeoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-733mj9FzwcddmcVo-eVW2TQ-t500x500.jpg">](https://soundcloud.com/tisoki/brostep-forever)
 
-**Artist**: Squired 
+**Artist**: Tisoki, Tucker Kreway 
 
-**Track**: TAKEOFF
+**Track**: Tisoki & Tucker Kreway - BROSTEP FOREVER
 
-Last updated at 5/22/2025, 1:21:14 PM
+Last updated at 5/22/2025, 1:24:14 PM
