@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRb3263wyeZOusLG-0pbvPg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-our-old-song)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJ8wLTEdNmkkVa9r-mUaKpw-t500x500.jpg">](https://soundcloud.com/user-131280077/munkjack-dropped-the-ball-pez-remix)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: PEZ 
 
-**Track**: 2 Sick Puppiez - Our Old Song
+**Track**: Munkjack - Dropped The Ball - Pez - Remix
 
-Last updated at 5/22/2025, 9:12:43 AM
+Last updated at 5/22/2025, 10:49:02 AM
