@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-733mj9FzwcddmcVo-eVW2TQ-t500x500.jpg">](https://soundcloud.com/tisoki/brostep-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKZw6b5yYBRmjMtC-85gbDQ-t500x500.png">](https://soundcloud.com/skysia/brain-tickler-skysia-remix)
 
-**Artist**: Tisoki, Tucker Kreway 
+**Artist**: Skysia 
 
-**Track**: Tisoki & Tucker Kreway - BROSTEP FOREVER
+**Track**: Ahee - Brain Tickler (Skysia Remix)
 
-Last updated at 5/22/2025, 1:24:14 PM
+Last updated at 5/22/2025, 1:26:25 PM
