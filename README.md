@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NgM2Lt4iMtnUE7uU-u8B1vA-t500x500.png">](https://soundcloud.com/indigenousdubz/infekt-hamro-da-pit-ft-xae-indigenous-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WAWdfcYravFtzFJK-yLZz5A-t500x500.png">](https://soundcloud.com/thisomusic/3f17f6d8-a4bc-4a44-a9f4-2c1515337511)
 
-**Artist**: infekt, hamro, xae 
+**Artist**: THISO 
 
-**Track**: INFEKT & HAMRO - DA PIT ft. XAE (INDIGENOUS REMIX)
+**Track**: THISO - Back From The Death [Free DL]
 
-Last updated at 5/22/2025, 8:26:12 AM
+Last updated at 5/22/2025, 8:33:23 AM
