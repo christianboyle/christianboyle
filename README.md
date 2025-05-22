@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OX4RHD9tU37yBV1a-K8IRFA-t500x500.jpg">](https://soundcloud.com/djsmochibeats/wannabe-smochi-grind?in=saxurn/sets/hyperobjectification)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyfSfS5qrfcsmXPV-XhNLsw-t500x500.jpg">](https://soundcloud.com/4uraofficial/louder-140bpm-uk-trap)
 
-**Artist**: Smochi 
+**Artist**: 4URA 
 
-**Track**: Wannabe (Smochi Grind)
+**Track**: LOUDER
 
-Last updated at 5/21/2025, 6:01:10 PM
+Last updated at 5/22/2025, 7:05:25 AM
