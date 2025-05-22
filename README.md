@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKZw6b5yYBRmjMtC-85gbDQ-t500x500.png">](https://soundcloud.com/skysia/brain-tickler-skysia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVMpu7YswmAaPhrk-zTqrPg-t500x500.png">](https://soundcloud.com/lowpolysound/nostylist-jungle-edit)
 
-**Artist**: Skysia 
+**Artist**: Low Poly 
 
-**Track**: Ahee - Brain Tickler (Skysia Remix)
+**Track**: NOSTYLIST (Low Poly Jungle Edit)
 
-Last updated at 5/22/2025, 1:26:25 PM
+Last updated at 5/22/2025, 1:29:40 PM
