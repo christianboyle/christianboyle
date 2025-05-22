@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-k3LtOSkKpQ0waovU-BkSKuQ-t500x500.jpg">](https://soundcloud.com/awakesincetoday/on-a-night-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8mDYwH0oDTDwlDY-unQNyg-t500x500.png">](https://soundcloud.com/2sickpuppiez/wheredowego)
 
-**Artist**: awakesincetoday, beansclub 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: on a night like this
+**Track**: 2 Sick Puppiez - Where Do We Go
 
-Last updated at 5/22/2025, 12:51:46 PM
+Last updated at 5/22/2025, 12:54:06 PM
