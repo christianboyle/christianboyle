@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzNnLFA6mQxnkqqf-IYNCFQ-t500x500.jpg">](https://soundcloud.com/sachsentrance/02_acid-metric-mastered-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRb3263wyeZOusLG-0pbvPg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-our-old-song)
 
-**Artist**: DJ Reiz 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: DJ Reiz - Acid Metric
+**Track**: 2 Sick Puppiez - Our Old Song
 
-Last updated at 5/22/2025, 9:07:07 AM
+Last updated at 5/22/2025, 9:10:58 AM
