@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHOXEtk4g6uFQLzI-SDEKCA-t500x500.png">](https://soundcloud.com/virxmusic/doechii-jt-alter-ego-virx-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jB9A1WKi9SHcDbKp-MjzmlA-t500x500.png">](https://soundcloud.com/squired/takeoff)
 
-**Artist**: VIRX 
+**Artist**: Squired 
 
-**Track**: Doechii, JT - Alter Ego (VIRX REMIX)
+**Track**: TAKEOFF
 
-Last updated at 5/23/2025, 10:32:42 AM
+Last updated at 5/23/2025, 10:34:57 AM
