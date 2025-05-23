@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8mDYwH0oDTDwlDY-unQNyg-t500x500.png">](https://soundcloud.com/2sickpuppiez/wheredowego)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmuQsc2kIGj2IUfJ-PLOJDg-t500x500.jpg">](https://soundcloud.com/michaelraywen/calvin-harris-summer-michael-raywen-remix-3)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: ⚡ MICHAEL RAYWEN ⚡ 
 
-**Track**: 2 Sick Puppiez - Where Do We Go
+**Track**: Calvin Harris - Summer [MICHAEL RAYWEN REMIX] (Filtered)
 
-Last updated at 5/22/2025, 8:16:34 PM
+Last updated at 5/23/2025, 6:19:25 AM
