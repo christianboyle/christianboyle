@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmuQsc2kIGj2IUfJ-PLOJDg-t500x500.jpg">](https://soundcloud.com/michaelraywen/calvin-harris-summer-michael-raywen-remix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRb3263wyeZOusLG-0pbvPg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-our-old-song)
 
-**Artist**: ⚡ MICHAEL RAYWEN ⚡ 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Calvin Harris - Summer [MICHAEL RAYWEN REMIX] (Filtered)
+**Track**: 2 Sick Puppiez - Our Old Song
 
-Last updated at 5/22/2025, 1:45:16 PM
+Last updated at 5/22/2025, 8:13:38 PM
