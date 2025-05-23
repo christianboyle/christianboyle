@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n2VnmT6UyjuUsT7n-ZNZoMg-t500x500.jpg">](https://soundcloud.com/ricdelarge/cascada-everytime-we-touch-ric-de-large-dnb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHOXEtk4g6uFQLzI-SDEKCA-t500x500.png">](https://soundcloud.com/virxmusic/doechii-jt-alter-ego-virx-remix)
 
-**Artist**: Cascada, Ric de Large 
+**Artist**: VIRX 
 
-**Track**: Cascada - Everytime We Touch (Ric de Large dnb Remix)
+**Track**: Doechii, JT - Alter Ego (VIRX REMIX)
 
-Last updated at 5/23/2025, 10:28:27 AM
+Last updated at 5/23/2025, 10:32:42 AM
