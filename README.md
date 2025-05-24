@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozRAX6esbjrv3Vxy-gP5Vog-t500x500.jpg">](https://soundcloud.com/leniz-music/leniz-revelation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XgKiMyr5Fo34UHl1-QSXvZg-t500x500.png">](https://soundcloud.com/genomeshanghai/online-threat-softly-in-the-flow-1)
 
-**Artist**: Leniz 
+**Artist**: online threat 
 
-**Track**: Revelation [Liquid V]
+**Track**: online threat – softly in the flow
 
-Last updated at 5/24/2025, 8:09:19 AM
+Last updated at 5/24/2025, 8:10:19 AM
