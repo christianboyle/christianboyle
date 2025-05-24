@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hO1hzE5ZGQo2ehsG-EzcGwA-t500x500.png">](https://soundcloud.com/user-131280077/4-non-blondes-whats-up-pez-remix-2025-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rUmQLmKAar0qZmCF-2HmQPw-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/makina-eyes-open-2025)
 
-**Artist**: PEZ 
+**Artist**: DJ STE MAJOR 
 
-**Track**: 4 Non Blondes - What's up-Pez Remix-2025-[ FREE DOWNLOAD]
+**Track**: MAKINA 💫 EYES OPEN 💫 2025  DJ STE MAJOR MIX
 
-Last updated at 5/24/2025, 8:11:29 AM
+Last updated at 5/24/2025, 9:43:16 AM
