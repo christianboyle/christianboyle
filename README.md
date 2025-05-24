@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhldDw5yk5A6RDWp-vO9A9w-t500x500.png">](https://soundcloud.com/ripplewarp/alpha-ceph-template)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JunsllUTLVjtHgho-u8fRZA-t500x500.jpg">](https://soundcloud.com/emscomposer/falling-through-us)
 
-**Artist**: Ripple Warp 
+**Artist**: EMS 
 
-**Track**: Alpha Ceph  - Template (RW053)
+**Track**: Falling Through Us
 
-Last updated at 5/23/2025, 1:27:22 PM
+Last updated at 5/24/2025, 8:08:09 AM
