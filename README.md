@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CBnZinBG9PKVRpva-jVsgfA-t500x500.jpg">](https://soundcloud.com/officialcelo/celo-forbidden-kingdom-2024?in=officialcelo/sets/guest-mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRb3263wyeZOusLG-0pbvPg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-our-old-song)
 
-**Artist**: CELO 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: CELO @ FORBIDDEN KINGDOM 2024
+**Track**: 2 Sick Puppiez - Our Old Song
 
-Last updated at 5/24/2025, 5:03:47 PM
+Last updated at 5/24/2025, 5:06:17 PM
