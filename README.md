@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dd8wKcDb0PnunKyB-iFbIZw-t500x500.jpg">](https://soundcloud.com/lyn_u/dimension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkbJfeZWKPFlNxAB-IjM8pA-t500x500.png">](https://soundcloud.com/nocturnnne/13170-w-crash)
 
-**Artist**: lynU, isai 
+**Artist**: nocturnnne 
 
-**Track**: dimension +isai
+**Track**: 13170 w/ 72crash
 
-Last updated at 5/25/2025, 10:12:01 AM
+Last updated at 5/25/2025, 10:13:04 AM
