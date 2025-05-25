@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-k3LtOSkKpQ0waovU-BkSKuQ-t500x500.jpg">](https://soundcloud.com/awakesincetoday/on-a-night-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVMpu7YswmAaPhrk-zTqrPg-t500x500.png">](https://soundcloud.com/lowpolysound/nostylist-jungle-edit)
 
-**Artist**: awakesincetoday, beansclub 
+**Artist**: Low Poly 
 
-**Track**: on a night like this
+**Track**: NOSTYLIST (Low Poly Jungle Edit)
 
-Last updated at 5/24/2025, 5:16:23 PM
+Last updated at 5/25/2025, 7:03:48 AM
