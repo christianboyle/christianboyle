@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-k3LtOSkKpQ0waovU-BkSKuQ-t500x500.jpg">](https://soundcloud.com/awakesincetoday/on-a-night-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dmuQsc2kIGj2IUfJ-PLOJDg-t500x500.jpg">](https://soundcloud.com/michaelraywen/calvin-harris-summer-michael-raywen-remix-3)
 
-**Artist**: awakesincetoday, beansclub 
+**Artist**: ⚡ MICHAEL RAYWEN ⚡ 
 
-**Track**: on a night like this
+**Track**: Calvin Harris - Summer [MICHAEL RAYWEN REMIX] (Filtered)
 
-Last updated at 5/25/2025, 11:12:25 AM
+Last updated at 5/25/2025, 11:16:25 AM
