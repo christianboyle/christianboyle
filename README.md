@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGsNeYeytemYPwu2-zl08yg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-upgrade-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/idkk-2)
 
-**Artist**: Fatal Energy Records 
+**Artist**: dj something 
 
-**Track**: Amaru - Upgrade (Original Mix)
+**Track**: idkk 2
 
-Last updated at 5/25/2025, 4:09:24 PM
+Last updated at 5/25/2025, 4:14:04 PM
