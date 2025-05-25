@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUF7rA6XSxWMLHw8-RzCWDA-t500x500.png">](https://soundcloud.com/lookasmusic/neededu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRb3263wyeZOusLG-0pbvPg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-our-old-song)
 
-**Artist**: Lookas 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Needed U
+**Track**: 2 Sick Puppiez - Our Old Song
 
-Last updated at 5/25/2025, 4:29:36 PM
+Last updated at 5/25/2025, 4:32:36 PM
