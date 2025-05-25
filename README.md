@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21r1p9E6XhOEcUmE-yo0lug-t500x500.jpg">](https://soundcloud.com/code-e/whiskey-glasses-code-e-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m0zp5L7axx1KS1kJ-V6XX6A-t500x500.jpg">](https://soundcloud.com/johnniezone/johnnie-zone-summer-sizzlers-1)
 
-**Artist**: Code-E 
+**Artist**: Johnnie Zone 
 
-**Track**: Morgan Wallen - Whiskey Glasses (Code - E Remix)
+**Track**: Johnnie Zone - Summer Sizzlers
 
-Last updated at 5/25/2025, 1:13:26 PM
+Last updated at 5/25/2025, 3:54:57 PM
