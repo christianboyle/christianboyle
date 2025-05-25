@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m0zp5L7axx1KS1kJ-V6XX6A-t500x500.jpg">](https://soundcloud.com/johnniezone/johnnie-zone-summer-sizzlers-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rydlLMkyOui0j23B-1NYKSQ-t500x500.jpg">](https://soundcloud.com/lyn_u/tbt3)
 
-**Artist**: Johnnie Zone 
+**Artist**: lynU, crusafix 
 
-**Track**: Johnnie Zone - Summer Sizzlers
+**Track**: heartBeat +crusafix
 
-Last updated at 5/25/2025, 3:54:57 PM
+Last updated at 5/25/2025, 4:03:33 PM
