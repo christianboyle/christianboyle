@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVMpu7YswmAaPhrk-zTqrPg-t500x500.png">](https://soundcloud.com/lowpolysound/nostylist-jungle-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3dllaoa4eqzZyoeR-u7Gz2A-t500x500.png">](https://soundcloud.com/synovamusic/synova-aeros-theme-wakeup-remix)
 
-**Artist**: Low Poly 
+**Artist**: Synova 
 
-**Track**: NOSTYLIST (Low Poly Jungle Edit)
+**Track**: Synova - Aero's Theme // (wakeup remix)
 
-Last updated at 5/25/2025, 7:03:48 AM
+Last updated at 5/25/2025, 9:58:28 AM
