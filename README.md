@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DE8bP8AYmXoJA39-jp2I3Q-t500x500.jpg">](https://soundcloud.com/exodusera/squidmeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZUF7rA6XSxWMLHw8-RzCWDA-t500x500.png">](https://soundcloud.com/lookasmusic/neededu)
 
-**Artist**: Exodus Era 
+**Artist**: Lookas 
 
-**Track**: Exodus Era - Squidmeat (FREE DOWNLOAD)
+**Track**: Needed U
 
-Last updated at 5/25/2025, 4:25:45 PM
+Last updated at 5/25/2025, 4:29:36 PM
