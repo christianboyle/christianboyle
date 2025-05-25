@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/idkk-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsGIIlgwTlsHpkDZ-LMiUSw-t500x500.jpg">](https://soundcloud.com/qwyattbeats/denzel-curry-hot-oneqwyattbeats-bootleg)
 
-**Artist**: dj something 
+**Artist**: Qwyattbeats 
 
-**Track**: idkk 2
+**Track**: Denzel Curry - Hot One(Qwyattbeats Bootleg)
 
-Last updated at 5/25/2025, 10:25:11 AM
+Last updated at 5/25/2025, 10:51:53 AM
