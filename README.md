@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIGmVJyZtkTbYiBg-SzyLvA-t500x500.jpg">](https://soundcloud.com/drauga/drauga-x-criioz-skull-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dd8wKcDb0PnunKyB-iFbIZw-t500x500.jpg">](https://soundcloud.com/lyn_u/dimension)
 
-**Artist**: DRAUGA x CRiiOZ 
+**Artist**: lynU, isai 
 
-**Track**: DRAUGA x CRiiOZ - SKULL GRINDER
+**Track**: dimension +isai
 
-Last updated at 5/25/2025, 10:09:33 AM
+Last updated at 5/25/2025, 10:10:36 AM
