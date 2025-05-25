@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yESgPKlCpzxpEkn2-DbCX2w-t500x500.jpg">](https://soundcloud.com/calltheluvdr/dont-stop-the-rock-luv-dr-luv-affair-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbPAXyvUmNmPfHr0-C3crjQ-t500x500.png">](https://soundcloud.com/lyn_u/tbt2)
 
-**Artist**: Luv Dr. 
+**Artist**: lynU, trustt 
 
-**Track**: Don't Stop The Rock - Luv Dr. [Luv Affair Music]
+**Track**: surprise +trustt
 
-Last updated at 5/25/2025, 10:14:04 AM
+Last updated at 5/25/2025, 10:16:39 AM
