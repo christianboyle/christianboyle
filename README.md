@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDnEZqztaJhQNhRK-WLikyg-t500x500.jpg">](https://soundcloud.com/justin-fallon12/vennootschap-boys-of-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21r1p9E6XhOEcUmE-yo0lug-t500x500.jpg">](https://soundcloud.com/code-e/whiskey-glasses-code-e-remix)
 
-**Artist**: Justin Fallon-vennootschap 
+**Artist**: Code-E 
 
-**Track**: Vennootschap - Boys Of Summer SAMPLE.wav
+**Track**: Morgan Wallen - Whiskey Glasses (Code - E Remix)
 
-Last updated at 5/25/2025, 1:10:11 PM
+Last updated at 5/25/2025, 1:13:26 PM
