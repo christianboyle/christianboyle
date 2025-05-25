@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PvVbLj4IbdXWE5PD-bYMUOQ-t500x500.jpg">](https://soundcloud.com/hisnail/decisions?in=sloverreal/sets/prod-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7UNIqcSZxzPkyT8x-4yE2Dw-t500x500.jpg">](https://soundcloud.com/djsmth/jame2)
 
-**Artist**: snail 
+**Artist**: dj something 
 
-**Track**: decisions
+**Track**: jame2
 
-Last updated at 5/25/2025, 10:04:58 AM
+Last updated at 5/25/2025, 10:05:58 AM
