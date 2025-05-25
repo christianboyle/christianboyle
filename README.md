@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rydlLMkyOui0j23B-1NYKSQ-t500x500.jpg">](https://soundcloud.com/lyn_u/tbt3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbPAXyvUmNmPfHr0-C3crjQ-t500x500.png">](https://soundcloud.com/lyn_u/tbt2)
 
-**Artist**: lynU, crusafix 
+**Artist**: lynU, trustt 
 
-**Track**: heartBeat +crusafix
+**Track**: surprise +trustt
 
-Last updated at 5/25/2025, 4:03:33 PM
+Last updated at 5/25/2025, 4:05:33 PM
