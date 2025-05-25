@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZBG9Aa77QWkYrbyt-RysCxg-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-say-it-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rQ4JgRJ3Bn2JNKFI-GDyUtA-t500x500.png">](https://soundcloud.com/helenadlx/ibiza-is-the-answer)
 
-**Artist**: The Bounce Brothers 
+**Artist**: HELENA DLX 
 
-**Track**: The Bounce Brothers - Say It Right
+**Track**: Ibiza Is The Answer
 
-Last updated at 5/25/2025, 10:01:53 AM
+Last updated at 5/25/2025, 10:02:58 AM
