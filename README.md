@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzzK53xNNbCtPK9n-khNE9w-t500x500.jpg">](https://soundcloud.com/kritikalmassmusic/floorfillaz-kiss-the-rain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000211077261-b0cntb-t500x500.jpg">](https://soundcloud.com/christopher-tyrie-remixes/fleetwood-mac)
 
-**Artist**: Kritikal Mass Music 
+**Artist**: Christopher Tyrie 
 
-**Track**: Floorfillaz - Kiss The Rain
+**Track**: Fleetwood mac (preview)
 
-Last updated at 5/26/2025, 9:15:33 AM
+Last updated at 5/26/2025, 9:16:38 AM
