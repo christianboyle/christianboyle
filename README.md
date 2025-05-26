@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6RuFqH7uRY8a-0-t500x500.jpg">](https://soundcloud.com/jetfaze/tayki)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpvBHJtbcPc4y4z0-QZfF2g-t500x500.png">](https://soundcloud.com/yeschef444/wiley-flow-flip-yes-chef)
 
-**Artist**: JETFAZE 
+**Artist**: YES CHEF 
 
-**Track**: TAYKI
+**Track**: stormzy - wiley flow (yes chef flip)
 
-Last updated at 5/26/2025, 9:20:58 AM
+Last updated at 5/26/2025, 9:21:58 AM
