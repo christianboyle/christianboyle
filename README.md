@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dd8wKcDb0PnunKyB-iFbIZw-t500x500.jpg">](https://soundcloud.com/lyn_u/dimension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGsNeYeytemYPwu2-zl08yg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-upgrade-original-mix)
 
-**Artist**: lynU, isai 
+**Artist**: Fatal Energy Records 
 
-**Track**: dimension +isai
+**Track**: Amaru - Upgrade (Original Mix)
 
-Last updated at 5/26/2025, 10:47:49 AM
+Last updated at 5/26/2025, 10:49:39 AM
