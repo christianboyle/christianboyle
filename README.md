@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-57pU50Pz9MyICH0n-JoirBg-t500x500.jpg">](https://soundcloud.com/tabfart2025/show-off)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eK5K5w6nXIswry9r-c39fLw-t500x500.png">](https://soundcloud.com/user-203386955/free-dl-linkin-park-numb-azzik-hard-edit)
 
-**Artist**: cluu, starry 
+**Artist**: AZZIK 
 
-**Track**: show off (lyn)
+**Track**: Linkin Park - Numb (Azzik Hard Edit) [FREE DL]
 
-Last updated at 5/26/2025, 1:57:31 PM
+Last updated at 5/26/2025, 1:59:01 PM
