@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpvBHJtbcPc4y4z0-QZfF2g-t500x500.png">](https://soundcloud.com/yeschef444/wiley-flow-flip-yes-chef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rydlLMkyOui0j23B-1NYKSQ-t500x500.jpg">](https://soundcloud.com/lyn_u/tbt3)
 
-**Artist**: YES CHEF 
+**Artist**: lynU, crusafix 
 
-**Track**: stormzy - wiley flow (yes chef flip)
+**Track**: heartBeat +crusafix
 
-Last updated at 5/26/2025, 9:21:58 AM
+Last updated at 5/26/2025, 9:23:08 AM
