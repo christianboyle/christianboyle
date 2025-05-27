@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yxYmwZj8wSU4-0-t500x500.jpg">](https://soundcloud.com/rhythmsoundofficial/king-in-my-empire-with-cornel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGsNeYeytemYPwu2-zl08yg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-farewell-original-mix)
 
-**Artist**: Rhythm & Sound 
+**Artist**: Fatal Energy Records 
 
-**Track**: King in My Empire
+**Track**: Amaru - Farewell (Original Mix)
 
-Last updated at 5/27/2025, 9:40:58 AM
+Last updated at 5/27/2025, 9:42:08 AM
