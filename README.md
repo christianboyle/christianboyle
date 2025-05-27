@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kxDzFMBrGrXbiHv6-9uT1Hw-t500x500.png">](https://soundcloud.com/wakaan/xotix-feat-pure-powers-speakerhead)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5lnEyqRS8kJMdox-gxkUyA-t500x500.jpg">](https://soundcloud.com/nght_vzn/energy)
 
-**Artist**: Wakaan 
+**Artist**: NGHT VZN 
 
-**Track**: Xotix feat. Pure Powers  - SPEAKERHEAD
+**Track**: ENERGY
 
-Last updated at 5/27/2025, 9:44:13 AM
+Last updated at 5/27/2025, 9:45:16 AM
