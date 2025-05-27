@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmFUk8L640CKIyuZ-UHtbOg-t500x500.png">](https://soundcloud.com/14106lyn/tbt4?in=lyn_u/sets/throwbackthursday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yW7Tec0iyf0Nr4al-CpNySQ-t500x500.jpg">](https://soundcloud.com/lyn_u/testurluck)
 
-**Artist**: lynU, trustt 
+**Artist**: lynU 
 
-**Track**: fakeFriends +trustt [#tbt bonus]
+**Track**: Test.Ur.Luck
 
-Last updated at 5/27/2025, 1:48:43 PM
+Last updated at 5/27/2025, 1:50:48 PM
