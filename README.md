@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5lnEyqRS8kJMdox-gxkUyA-t500x500.jpg">](https://soundcloud.com/nght_vzn/energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmFUk8L640CKIyuZ-UHtbOg-t500x500.png">](https://soundcloud.com/14106lyn/tbt4)
 
-**Artist**: NGHT VZN 
+**Artist**: lynU, trustt 
 
-**Track**: ENERGY
+**Track**: fakeFriends +trustt [#tbt bonus]
 
-Last updated at 5/27/2025, 9:46:58 AM
+Last updated at 5/27/2025, 9:54:10 AM
