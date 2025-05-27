@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nq9DkYNR7kiEpHoP-cvZg1g-t500x500.jpg">](https://soundcloud.com/tanfa/dancefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eK5K5w6nXIswry9r-c39fLw-t500x500.png">](https://soundcloud.com/user-203386955/free-dl-linkin-park-numb-azzik-hard-edit)
 
-**Artist**: TANFA 
+**Artist**: AZZIK 
 
-**Track**: dancefloor
+**Track**: Linkin Park - Numb (Azzik Hard Edit) [FREE DL]
 
-Last updated at 5/27/2025, 8:28:04 AM
+Last updated at 5/27/2025, 8:29:41 AM
