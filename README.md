@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DE8bP8AYmXoJA39-jp2I3Q-t500x500.jpg">](https://soundcloud.com/exodusera/squidmeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmFUk8L640CKIyuZ-UHtbOg-t500x500.png">](https://soundcloud.com/14106lyn/tbt4)
 
-**Artist**: Exodus Era 
+**Artist**: lynU, trustt 
 
-**Track**: Exodus Era - Squidmeat (FREE DOWNLOAD)
+**Track**: fakeFriends +trustt [#tbt bonus]
 
-Last updated at 5/27/2025, 1:35:17 PM
+Last updated at 5/27/2025, 1:38:32 PM
