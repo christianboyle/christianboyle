@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsGIIlgwTlsHpkDZ-LMiUSw-t500x500.jpg">](https://soundcloud.com/qwyattbeats/denzel-curry-hot-oneqwyattbeats-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCB9MhzVeRzNXcR5-oMkGAQ-t500x500.png">](https://soundcloud.com/kyros_f/ice-mc-thinking-about-the-way-kyros-remix)
 
-**Artist**: Qwyattbeats 
+**Artist**: Kyros 
 
-**Track**: Denzel Curry - Hot One(Qwyattbeats Bootleg)
+**Track**: Ice MC - Thinking About The Way (Kyros Remix)
 
-Last updated at 5/27/2025, 1:27:31 PM
+Last updated at 5/27/2025, 1:31:31 PM
