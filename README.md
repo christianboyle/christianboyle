@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3MzePheZLZyIIaO-lUakVA-t500x500.png">](https://soundcloud.com/trueundergroundone/pisapia-true-techno-episode-89)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yxYmwZj8wSU4-0-t500x500.jpg">](https://soundcloud.com/rhythmsoundofficial/king-in-my-empire-with-cornel)
 
-**Artist**: True Underground (ONE / True Techno Podcast) 
+**Artist**: Rhythm & Sound 
 
-**Track**: PISAPIA True Techno Episode 89
+**Track**: King in My Empire
 
-Last updated at 5/27/2025, 8:37:34 AM
+Last updated at 5/27/2025, 9:40:58 AM
