@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yW7Tec0iyf0Nr4al-CpNySQ-t500x500.jpg">](https://soundcloud.com/lyn_u/testurluck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amgMCYdniXn40KzV-ugLAqg-t500x500.jpg">](https://soundcloud.com/cruseyyyy/party)
 
-**Artist**: lynU 
+**Artist**: crusey, akkiro 
 
-**Track**: Test.Ur.Luck
+**Track**: at the party prod me n lyn
 
-Last updated at 5/27/2025, 1:50:48 PM
+Last updated at 5/27/2025, 1:52:29 PM
