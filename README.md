@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QEDlJKL4VvRlOTRw-60TLpg-t500x500.jpg">](https://soundcloud.com/lyn_u/tbt3?in=lyn_u/sets/throwbackthursday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmFUk8L640CKIyuZ-UHtbOg-t500x500.png">](https://soundcloud.com/14106lyn/tbt4?in=lyn_u/sets/throwbackthursday)
 
-**Artist**: lynU, crusafix 
+**Artist**: lynU, trustt 
 
-**Track**: heartBeat +crusafix
+**Track**: fakeFriends +trustt [#tbt bonus]
 
-Last updated at 5/27/2025, 1:46:43 PM
+Last updated at 5/27/2025, 1:48:43 PM
