@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AmFUk8L640CKIyuZ-UHtbOg-t500x500.png">](https://soundcloud.com/14106lyn/tbt4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yu29vZ6NVpolFVzC-ek6lPQ-t500x500.jpg">](https://soundcloud.com/millirecs/pinklotion-10cc)
 
-**Artist**: lynU, trustt 
+**Artist**: pinklotion 
 
-**Track**: fakeFriends +trustt [#tbt bonus]
+**Track**: pinklotion - 10CC
 
-Last updated at 5/27/2025, 1:38:32 PM
+Last updated at 5/27/2025, 1:40:37 PM
