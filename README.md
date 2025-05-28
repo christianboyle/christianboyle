@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38dFUzzgls9TX9m0-wSXYfA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/ephoric-ft-strio-high-school-kid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OLanHtsfablyfo3P-rJBYMg-t500x500.jpg">](https://soundcloud.com/brokawmusic/pressurechange)
 
-**Artist**: Ephoric, STRIO 
+**Artist**: Brokaw 
 
-**Track**: Ephoric ft. STRIO - High School Kid
+**Track**: Pressure
 
-Last updated at 5/28/2025, 8:07:26 AM
+Last updated at 5/28/2025, 8:08:31 AM
