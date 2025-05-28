@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0u7xQCqqYBtBtBh-lytpog-t500x500.png">](https://soundcloud.com/psychocybinrec/phunkbiasdufflebag)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KOHsRizvAzpVD3ir-ZdtFvA-t500x500.png">](https://soundcloud.com/secretstvsh/stvsh-spot-vol-1)
 
-**Artist**: Phunk Bias 
+**Artist**: STVSH 
 
-**Track**: Phunk Bias - Duffle Bag
+**Track**: STVSH SPOT VOL 1
 
-Last updated at 5/28/2025, 8:16:13 AM
+Last updated at 5/28/2025, 8:17:13 AM
