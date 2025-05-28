@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOAxcmp1zzLGpYDt-Xz8yjg-t500x500.png">](https://soundcloud.com/felmax/finalflashh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcOc9Bp2nCljwKtG-eGC2Rg-t500x500.jpg">](https://soundcloud.com/risklvp/you)
 
-**Artist**: FELMAX 
+**Artist**: risk, starry 
 
-**Track**: Felmax & Kluster Flux-Final  Flash
+**Track**: you w/ starry (tiresss + risk)
 
-Last updated at 5/28/2025, 8:18:53 AM
+Last updated at 5/28/2025, 10:27:13 AM
