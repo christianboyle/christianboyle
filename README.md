@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VYYcyBysAwTwVXv9-a055UQ-t500x500.png">](https://soundcloud.com/lucytownrecords/saphir-dolores-ltsr001-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-38dFUzzgls9TX9m0-wSXYfA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/ephoric-ft-strio-high-school-kid)
 
-**Artist**: LUCYTOWN RECORDS 
+**Artist**: Ephoric, STRIO 
 
-**Track**: SAPHIR - Dolores [LTSR001] (Free Download)
+**Track**: Ephoric ft. STRIO - High School Kid
 
-Last updated at 5/28/2025, 8:06:26 AM
+Last updated at 5/28/2025, 8:07:26 AM
