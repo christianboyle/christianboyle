@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9yDUi70pvbCrS40-2QEtlQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/nyquist-jungle-jam-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VYYcyBysAwTwVXv9-a055UQ-t500x500.png">](https://soundcloud.com/lucytownrecords/saphir-dolores-ltsr001-free-download)
 
-**Artist**: Nyquist 
+**Artist**: LUCYTOWN RECORDS 
 
-**Track**: Nyquist - Jungle Jam
+**Track**: SAPHIR - Dolores [LTSR001] (Free Download)
 
-Last updated at 5/28/2025, 8:05:01 AM
+Last updated at 5/28/2025, 8:06:26 AM
