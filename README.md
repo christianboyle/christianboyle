@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQvtdB1cLP2VN9fa-A6mAWw-t500x500.png">](https://soundcloud.com/jmau5_jesse/rob49-wthelly-jmau5-x-dykotomi-flip-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0u7xQCqqYBtBtBh-lytpog-t500x500.png">](https://soundcloud.com/psychocybinrec/phunkbiasdufflebag)
 
-**Artist**: JMAU5, DYKOTOMI 
+**Artist**: Phunk Bias 
 
-**Track**: ROB49 - WTHELLY (JMAU5 X DYKOTOMI Flip) [Free DL]
+**Track**: Phunk Bias - Duffle Bag
 
-Last updated at 5/28/2025, 8:14:58 AM
+Last updated at 5/28/2025, 8:16:13 AM
