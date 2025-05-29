@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KVQHP2tfMU2UnFyq-Gzar0g-t500x500.jpg">](https://soundcloud.com/arcadian_sound/plasma-gun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcOc9Bp2nCljwKtG-eGC2Rg-t500x500.jpg">](https://soundcloud.com/risklvp/you)
 
-**Artist**: Arcadian Sound 
+**Artist**: risk, starry 
 
-**Track**: Plasma Gun
+**Track**: you w/ starry (tiresss + risk)
 
-Last updated at 5/29/2025, 7:57:32 AM
+Last updated at 5/29/2025, 7:58:42 AM
