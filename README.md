@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-erDS0psjlforyKh1-jL186g-t500x500.jpg">](https://soundcloud.com/mythic-creature/peaknobu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6o8qAirw5youRuW-FXmivg-t500x500.png">](https://soundcloud.com/6enkio/goyard-prod-imsg)
 
-**Artist**: Mythic Creature 
+**Artist**: kio 
 
-**Track**: Mythic Creature - Dolos
+**Track**: goyard prod imsg
 
-Last updated at 5/29/2025, 7:51:31 AM
+Last updated at 5/29/2025, 7:53:07 AM
