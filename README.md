@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eK5K5w6nXIswry9r-c39fLw-t500x500.png">](https://soundcloud.com/user-203386955/free-dl-linkin-park-numb-azzik-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbPAXyvUmNmPfHr0-C3crjQ-t500x500.png">](https://soundcloud.com/lyn_u/tbt2)
 
-**Artist**: AZZIK 
+**Artist**: lynU, trustt 
 
-**Track**: Linkin Park - Numb (Azzik Hard Edit) [FREE DL]
+**Track**: surprise +trustt
 
-Last updated at 5/29/2025, 8:01:02 AM
+Last updated at 5/29/2025, 8:03:08 AM
