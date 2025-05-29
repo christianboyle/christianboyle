@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HZjAhyKFyqyDYDs3-mimklA-t500x500.jpg">](https://soundcloud.com/sachsentrance/premieregeorge-aka-drradsport-pssy-ass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OqYXSApDKmpuQFhB-5ZKc2g-t500x500.jpg">](https://soundcloud.com/darn84/brockie-helter-skelter-human)
 
-**Artist**: GEORGE aka DR.RADSPORT  
+**Artist**: Hardcore Hooligan ™️ 
 
-**Track**: [PREMIERE] GEORGE aka DR.RADSPORT - P*SSY ASS
+**Track**: Brockie @ Helter Skelter - Human Nature (06/06/1998)
 
-Last updated at 5/29/2025, 7:48:06 AM
+Last updated at 5/29/2025, 7:49:16 AM
