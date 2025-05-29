@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ey1mkFtn4mTXltCj-1JcALQ-t500x500.jpg">](https://soundcloud.com/aaeiku/god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HZjAhyKFyqyDYDs3-mimklA-t500x500.jpg">](https://soundcloud.com/sachsentrance/premieregeorge-aka-drradsport-pssy-ass)
 
-**Artist**: aeiku 
+**Artist**: GEORGE aka DR.RADSPORT  
 
-**Track**: god
+**Track**: [PREMIERE] GEORGE aka DR.RADSPORT - P*SSY ASS
 
-Last updated at 5/29/2025, 7:47:01 AM
+Last updated at 5/29/2025, 7:48:06 AM
