@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SOMQVMeBJg8zzrzp-AzMCyQ-t500x500.jpg">](https://soundcloud.com/14106lyn/tbt4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ey1mkFtn4mTXltCj-1JcALQ-t500x500.jpg">](https://soundcloud.com/aaeiku/god)
 
-**Artist**: lynU, trustt 
+**Artist**: aeiku 
 
-**Track**: fakeFriends +trustt [#tbt bonus]
+**Track**: god
 
-Last updated at 5/29/2025, 7:46:01 AM
+Last updated at 5/29/2025, 7:47:01 AM
