@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KOHsRizvAzpVD3ir-ZdtFvA-t500x500.png">](https://soundcloud.com/secretstvsh/stvsh-spot-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KVQHP2tfMU2UnFyq-Gzar0g-t500x500.jpg">](https://soundcloud.com/arcadian_sound/plasma-gun)
 
-**Artist**: STVSH 
+**Artist**: Arcadian Sound 
 
-**Track**: STVSH SPOT VOL 1
+**Track**: Plasma Gun
 
-Last updated at 5/29/2025, 7:56:17 AM
+Last updated at 5/29/2025, 7:57:32 AM
