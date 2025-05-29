@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AnuoxajTiqUvxGtc-fLO8CQ-t500x500.jpg">](https://soundcloud.com/kalopsia_dj/intentions)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-erDS0psjlforyKh1-jL186g-t500x500.jpg">](https://soundcloud.com/mythic-creature/peaknobu)
 
-**Artist**: KALOPSIA 
+**Artist**: Mythic Creature 
 
-**Track**: INTENTIONS
+**Track**: Mythic Creature - Dolos
 
-Last updated at 5/29/2025, 7:50:31 AM
+Last updated at 5/29/2025, 7:51:31 AM
