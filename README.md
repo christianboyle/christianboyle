@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tkAQvVNdXpHLG6oh-LzsPTQ-t500x500.jpg">](https://soundcloud.com/gewoonraves/manex-x-no-id-just-dance-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eK5K5w6nXIswry9r-c39fLw-t500x500.png">](https://soundcloud.com/user-203386955/free-dl-linkin-park-numb-azzik-hard-edit)
 
-**Artist**: GEWOONRAVES, MANEX, No-ID 
+**Artist**: AZZIK 
 
-**Track**: [FREE DL] JUST DANCE (TECHNO EDIT) - MANEX X NO-ID
+**Track**: Linkin Park - Numb (Azzik Hard Edit) [FREE DL]
 
-Last updated at 5/29/2025, 8:00:02 AM
+Last updated at 5/29/2025, 8:01:02 AM
