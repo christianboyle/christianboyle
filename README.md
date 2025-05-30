@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dd8wKcDb0PnunKyB-iFbIZw-t500x500.jpg">](https://soundcloud.com/lyn_u/tbt1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-57pU50Pz9MyICH0n-JoirBg-t500x500.jpg">](https://soundcloud.com/tabfart2025/show-off)
 
-**Artist**: lynU, isai 
+**Artist**: cluu, starry 
 
-**Track**: dimension +isai
+**Track**: show off (lyn)
 
-Last updated at 5/30/2025, 8:31:13 AM
+Last updated at 5/30/2025, 8:50:20 AM
