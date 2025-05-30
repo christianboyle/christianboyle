@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bXaH9WaBwUUxgbI-qdSr6w-t500x500.png">](https://soundcloud.com/undehfined/chopped-livah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4XhQzMgbjiAcGDZr-PD3SmQ-t500x500.png">](https://soundcloud.com/dnbranger/edit-wayside)
 
-**Artist**: Undehfined 
+**Artist**: Ed:it 
 
-**Track**: Chopped Livah
+**Track**: Ed:it - Wayside
 
-Last updated at 5/30/2025, 7:47:54 AM
+Last updated at 5/30/2025, 7:48:54 AM
