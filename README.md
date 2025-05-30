@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8XT2oBswBoO7U954-zdz3kQ-t500x500.jpg">](https://soundcloud.com/beansclub/makkabootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AB9bpGyP9WyxNwoH-e0Ea2Q-t500x500.jpg">](https://soundcloud.com/volumeunitmusic/volume-unit-hype-funk-1)
 
-**Artist**: beansclub 
+**Artist**: Volume Unit 
 
-**Track**: fakemink & ecco2k - MAKKA (beansclub bootleg)
+**Track**: Volume Unit - Hype Funk
 
-Last updated at 5/30/2025, 8:00:34 AM
+Last updated at 5/30/2025, 8:03:00 AM
