@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCB9MhzVeRzNXcR5-oMkGAQ-t500x500.png">](https://soundcloud.com/kyros_f/ice-mc-thinking-about-the-way-kyros-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcOc9Bp2nCljwKtG-eGC2Rg-t500x500.jpg">](https://soundcloud.com/risklvp/you?in=saxurn/sets/h2whoa/)
 
-**Artist**: Kyros 
+**Artist**: risk, starry 
 
-**Track**: Ice MC - Thinking About The Way (Kyros Remix)
+**Track**: you w/ starry (tiresss + risk)
 
-Last updated at 5/30/2025, 9:01:01 AM
+Last updated at 5/30/2025, 9:04:21 AM
