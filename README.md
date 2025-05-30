@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGsNeYeytemYPwu2-zl08yg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-upgrade-original-mix?in=saxurn/sets/h2whoa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqNH0QLPEm83-0-t500x500.jpg">](https://soundcloud.com/cloudstechno/cyan-1)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Clouds 
 
-**Track**: Amaru - Upgrade (Original Mix)
+**Track**: Cyan
 
-Last updated at 5/30/2025, 9:53:40 AM
+Last updated at 5/30/2025, 9:57:05 AM
