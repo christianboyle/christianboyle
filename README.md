@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H2b2DSyuqfyS8o4X-cciG5A-t500x500.png">](https://soundcloud.com/subsidia/mikes-revenge-sucker-punch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OeCa5S88wbRvUwsD-FsEvSw-t500x500.jpg">](https://soundcloud.com/deletetheinternet/violent-reaction-remix)
 
-**Artist**: Mikes Revenge 
+**Artist**: Distinguisher 
 
-**Track**: Mikes Revenge - Sucker Punch
+**Track**: Distinguisher - Violent Reaction (deletetheinternet Remix)
 
-Last updated at 5/30/2025, 2:42:18 PM
+Last updated at 5/30/2025, 3:06:20 PM
