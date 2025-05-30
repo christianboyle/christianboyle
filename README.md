@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBL7Ihx21JyAiPVj-21PpAQ-t500x500.jpg">](https://soundcloud.com/ooweemusic/deftones-my-own-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spbtl4YMNMrGFXfO-t6p78g-t500x500.png">](https://soundcloud.com/lordgenmu/lord-genmu-blicksum-edit)
 
-**Artist**: OOWEE, TSKETCH 
+**Artist**: lord genmu 
 
-**Track**: Deftones - My Own Summer (Shove It) [OOWEE & TSKETCH REMIX]
+**Track**: BLICKSUM EDIT
 
-Last updated at 5/30/2025, 8:05:20 AM
+Last updated at 5/30/2025, 8:08:40 AM
