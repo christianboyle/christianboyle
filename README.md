@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jZ8rZAe75zfnCTd-YXzHew-t500x500.png">](https://soundcloud.com/itsyokomusic/spanish-moss-yoko-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZSPA3IyAAiUvzdyO-YfqSyA-t500x500.png">](https://soundcloud.com/rit_hk/lost-dogs-yung-krypto-dan-larkin-x-spaceboyry-6)
 
-**Artist**: Yoko 
+**Artist**: Rit 
 
-**Track**: Of The Trees - Spanish Moss (Yoko Bootleg)
+**Track**: lost dogs + yung krypto [dan larkin x spaceboyry]
 
-Last updated at 5/30/2025, 2:40:12 PM
+Last updated at 5/30/2025, 2:41:12 PM
