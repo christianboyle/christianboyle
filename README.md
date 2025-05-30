@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqNH0QLPEm83-0-t500x500.jpg">](https://soundcloud.com/cloudstechno/cyan-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GcOc9Bp2nCljwKtG-eGC2Rg-t500x500.jpg">](https://soundcloud.com/risklvp/you)
 
-**Artist**: Clouds 
+**Artist**: risk, starry 
 
-**Track**: Cyan
+**Track**: you w/ starry (tiresss + risk)
 
-Last updated at 5/30/2025, 8:12:06 AM
+Last updated at 5/30/2025, 8:17:01 AM
