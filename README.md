@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DE8bP8AYmXoJA39-jp2I3Q-t500x500.jpg">](https://soundcloud.com/exodusera/squidmeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0DtM4CEr8d7I-0-t500x500.jpg">](https://soundcloud.com/tripolism/groove-on)
 
-**Artist**: Exodus Era 
+**Artist**: Tripolism & Avangart Tabldot 
 
-**Track**: Exodus Era - Squidmeat (FREE DOWNLOAD)
+**Track**: Groove On
 
-Last updated at 5/30/2025, 6:20:12 AM
+Last updated at 5/30/2025, 7:45:39 AM
