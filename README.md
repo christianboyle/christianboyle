@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPaX3CYajzMvGcH0-1fpuyQ-t500x500.jpg">](https://soundcloud.com/raprave/brandy-love-wouldnt-count-me-out-miss-jay-bootleg-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnQ7xCazynTe-0-t500x500.jpg">](https://soundcloud.com/nafeesisboujee-music/stephanie)
 
-**Artist**: ʀᴀᴘʀᴀᴠᴇ 
+**Artist**: Nafeesisboujee 
 
-**Track**: Brandy - Love Wouldn't Count Me Out (Miss Jay Bootleg)
+**Track**: Stephanie
 
-Last updated at 5/30/2025, 9:58:05 AM
+Last updated at 5/30/2025, 2:36:27 PM
