@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vqNH0QLPEm83-0-t500x500.jpg">](https://soundcloud.com/cloudstechno/cyan-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPaX3CYajzMvGcH0-1fpuyQ-t500x500.jpg">](https://soundcloud.com/raprave/brandy-love-wouldnt-count-me-out-miss-jay-bootleg-6)
 
-**Artist**: Clouds 
+**Artist**: ʀᴀᴘʀᴀᴠᴇ 
 
-**Track**: Cyan
+**Track**: Brandy - Love Wouldn't Count Me Out (Miss Jay Bootleg)
 
-Last updated at 5/30/2025, 9:57:05 AM
+Last updated at 5/30/2025, 9:58:05 AM
