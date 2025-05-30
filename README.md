@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yu29vZ6NVpolFVzC-ek6lPQ-t500x500.jpg">](https://soundcloud.com/millirecs/pinklotion-10cc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rbPAXyvUmNmPfHr0-C3crjQ-t500x500.png">](https://soundcloud.com/lyn_u/tbt2)
 
-**Artist**: pinklotion, MILLI RECORDS 
+**Artist**: lynU, trustt 
 
-**Track**: pinklotion - 10CC
+**Track**: surprise +trustt
 
-Last updated at 5/30/2025, 8:27:07 AM
+Last updated at 5/30/2025, 8:29:12 AM
