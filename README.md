@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnQ7xCazynTe-0-t500x500.jpg">](https://soundcloud.com/nafeesisboujee-music/stephanie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vmg4ckG9wpBTDpfR-Moy1nQ-t500x500.jpg">](https://soundcloud.com/cozykevvv/like-this)
 
-**Artist**: Nafeesisboujee 
+**Artist**: cozy kev 
 
-**Track**: Stephanie
+**Track**: LIKE THIS
 
-Last updated at 5/30/2025, 2:36:27 PM
+Last updated at 5/30/2025, 2:37:47 PM
