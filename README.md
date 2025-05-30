@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nt092Bhydxr7b05W-OfuAZQ-t500x500.jpg">](https://soundcloud.com/darn84/styles-breeze-black-magic-bad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BHnyNbEtHZMxEzGJ-MG9yCg-t500x500.jpg">](https://soundcloud.com/anotherdaypassesmeby/baecation-gothfm)
 
-**Artist**: Hardcore Hooligan ™️ 
+**Artist**: liliya 
 
-**Track**: Styles & Breeze - Black Magic bad magic - Raverbaby (2002)
+**Track**: BAECATiON @gothfm
 
-Last updated at 5/30/2025, 7:57:04 AM
+Last updated at 5/30/2025, 7:58:10 AM
