@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lrybeIFLcmPQ5AXE-YzgZew-t500x500.jpg">](https://soundcloud.com/dv5k/home-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Knj85Ivn0Yu5EthC-sGkRsA-t500x500.png">](https://soundcloud.com/barongfamily/danny-ores-thomas-deil-kiss-of-death)
 
-**Artist**: Laszlo feat. Richard Caddock 
+**Artist**: Danny Ores & Thomas Deil 
 
-**Track**: Home [dv5k Flip]
+**Track**: Danny Ores & Thomas Deil - Kiss Of Death
 
-Last updated at 5/30/2025, 3:08:20 PM
+Last updated at 5/30/2025, 3:09:55 PM
