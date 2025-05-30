@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsGIIlgwTlsHpkDZ-LMiUSw-t500x500.jpg">](https://soundcloud.com/qwyattbeats/denzel-curry-hot-oneqwyattbeats-bootleg?in=saxurn/sets/h2whoa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spbtl4YMNMrGFXfO-t6p78g-t500x500.png">](https://soundcloud.com/lordgenmu/lord-genmu-blicksum-edit?in=saxurn/sets/h2whoa)
 
-**Artist**: Qwyattbeats 
+**Artist**: lord genmu 
 
-**Track**: Denzel Curry - Hot One(Qwyattbeats Bootleg)
+**Track**: BLICKSUM EDIT
 
-Last updated at 5/30/2025, 9:41:09 AM
+Last updated at 5/30/2025, 9:45:09 AM
