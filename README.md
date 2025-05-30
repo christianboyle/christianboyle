@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjLyYbpL37R8xMqi-W4FyOQ-t500x500.jpg">](https://soundcloud.com/killthenoise/damager_ktn_remix_140)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jZ8rZAe75zfnCTd-YXzHew-t500x500.png">](https://soundcloud.com/itsyokomusic/spanish-moss-yoko-bootleg)
 
-**Artist**: Kill The Noise 
+**Artist**: Yoko 
 
-**Track**: DAMAGER [Kill The Noise FLIP] (FREE DL)
+**Track**: Of The Trees - Spanish Moss (Yoko Bootleg)
 
-Last updated at 5/30/2025, 2:39:07 PM
+Last updated at 5/30/2025, 2:40:12 PM
