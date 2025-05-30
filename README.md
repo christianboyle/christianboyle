@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCB9MhzVeRzNXcR5-oMkGAQ-t500x500.png">](https://soundcloud.com/kyros_f/ice-mc-thinking-about-the-way-kyros-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2DE8bP8AYmXoJA39-jp2I3Q-t500x500.jpg">](https://soundcloud.com/exodusera/squidmeat)
 
-**Artist**: Kyros 
+**Artist**: Exodus Era 
 
-**Track**: Ice MC - Thinking About The Way (Kyros Remix)
+**Track**: Exodus Era - Squidmeat (FREE DOWNLOAD)
 
-Last updated at 5/29/2025, 7:51:01 PM
+Last updated at 5/29/2025, 7:54:45 PM
