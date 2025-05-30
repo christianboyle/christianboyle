@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4XhQzMgbjiAcGDZr-PD3SmQ-t500x500.png">](https://soundcloud.com/dnbranger/edit-wayside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XnPFRiJcbtSzqdAt-xU5fEw-t500x500.png">](https://soundcloud.com/ascentrecordings/one-in-a-million)
 
-**Artist**: Ed:it 
+**Artist**: Artena, Ren Faye 
 
-**Track**: Ed:it - Wayside
+**Track**: One in a Million
 
-Last updated at 5/30/2025, 7:48:54 AM
+Last updated at 5/30/2025, 7:49:54 AM
