@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGsNeYeytemYPwu2-zl08yg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-upgrade-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsGIIlgwTlsHpkDZ-LMiUSw-t500x500.jpg">](https://soundcloud.com/qwyattbeats/denzel-curry-hot-oneqwyattbeats-bootleg)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Qwyattbeats 
 
-**Track**: Amaru - Upgrade (Original Mix)
+**Track**: Denzel Curry - Hot One(Qwyattbeats Bootleg)
 
-Last updated at 5/29/2025, 7:42:24 PM
+Last updated at 5/29/2025, 7:47:05 PM
