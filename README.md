@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AB9bpGyP9WyxNwoH-e0Ea2Q-t500x500.jpg">](https://soundcloud.com/volumeunitmusic/volume-unit-hype-funk-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPaX3CYajzMvGcH0-1fpuyQ-t500x500.jpg">](https://soundcloud.com/raprave/doechii-nissan-altima-cam-girl-gaszia-edit-2)
 
-**Artist**: Volume Unit 
+**Artist**: ʀᴀᴘʀᴀᴠᴇ 
 
-**Track**: Volume Unit - Hype Funk
+**Track**: Doechii - Nissan Altima (CAM GIRL & Gaszia Edit)
 
-Last updated at 6/1/2025, 2:59:50 PM
+Last updated at 6/1/2025, 3:04:10 PM
