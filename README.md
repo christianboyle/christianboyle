@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VZ6ehx5QnAKPprA6-4UxulA-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/rauschhaus-peer-kusiv-memory-forevermore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jE1zFV0anHMOyKAR-5TEg2A-t500x500.png">](https://soundcloud.com/superxfuture/icedout)
 
-**Artist**: Rauschhaus, Peer Kusiv 
+**Artist**: Super Future, rSUN 
 
-**Track**: Rauschhaus, Peer Kusiv - Memory [Forevermore]
+**Track**: Iced Out [OdyZey Records]
 
-Last updated at 6/2/2025, 8:52:06 AM
+Last updated at 6/2/2025, 8:53:21 AM
