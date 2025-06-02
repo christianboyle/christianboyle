@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKqRzhZwjzyuSyB1-f33iSg-t500x500.jpg">](https://soundcloud.com/jawdroppingrec/matija-bounce-line)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wjwUqAVcWmfSavo-b7vEhA-t500x500.jpg">](https://soundcloud.com/deletetheinternet/polyphia-bloodbath-deletetheinternet-remix)
 
-**Artist**: Matija 
+**Artist**: Polyphia 
 
-**Track**: Matija - Bounce Line (PREMIERE)
+**Track**: Polyphia - Bloodbath ft. Chino Moreno (deletetheinternet re-wire)
 
-Last updated at 6/2/2025, 9:09:22 AM
+Last updated at 6/2/2025, 9:10:23 AM
