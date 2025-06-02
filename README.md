@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8XT2oBswBoO7U954-zdz3kQ-t500x500.jpg">](https://soundcloud.com/beansclub/makkabootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AEb1NFqeACvN-0-t500x500.jpg">](https://soundcloud.com/averyannamusic/mr-predictable)
 
-**Artist**: beansclub 
+**Artist**: Avery Anna 
 
-**Track**: fakemink & ecco2k - MAKKA (beansclub bootleg)
+**Track**: Mr. Predictable
 
-Last updated at 6/1/2025, 3:06:20 PM
+Last updated at 6/2/2025, 8:50:56 AM
