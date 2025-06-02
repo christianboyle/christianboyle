@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T6yFuF7kYICyvuU5-is7pGw-t500x500.jpg">](https://soundcloud.com/drpsilicon/dr-psilicon_broken-kaleidoscope_eoom-mastered-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9jZ8rZAe75zfnCTd-YXzHew-t500x500.png">](https://soundcloud.com/itsyokomusic/spanish-moss-yoko-bootleg)
 
-**Artist**: Dr. Psilicon 
+**Artist**: Yoko 
 
-**Track**: Broken kaleidoscope
+**Track**: Of The Trees - Spanish Moss (Yoko Bootleg)
 
-Last updated at 6/2/2025, 8:56:27 AM
+Last updated at 6/2/2025, 8:57:52 AM
