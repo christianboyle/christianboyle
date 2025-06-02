@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/05-purityleech-nxc-the-sun-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jKqRzhZwjzyuSyB1-f33iSg-t500x500.jpg">](https://soundcloud.com/jawdroppingrec/matija-bounce-line)
 
-**Artist**: ¡SOY MAKINERO! 
+**Artist**: Matija 
 
-**Track**: 05 - PURITYLEECH - NXC THE SUN
+**Track**: Matija - Bounce Line (PREMIERE)
 
-Last updated at 6/2/2025, 9:08:22 AM
+Last updated at 6/2/2025, 9:09:22 AM
