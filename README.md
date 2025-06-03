@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nUMOFNyhHK08vVTv-Qi3w0A-t500x500.png">](https://soundcloud.com/rreecc/coldlove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3Hefc9U1JndpmyJ-DrOhCw-t500x500.jpg">](https://soundcloud.com/qualiasound/herbalistek-arboreal)
 
-**Artist**: rec 
+**Artist**: Herbalistek 
 
-**Track**: cold love
+**Track**: Herbalistek - Arboreal
 
-Last updated at 6/3/2025, 11:19:09 AM
+Last updated at 6/3/2025, 11:32:19 AM
