@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sQUen1bJdq3OU4LD-f9Q0RQ-t500x500.jpg">](https://soundcloud.com/gewoonraves/free-dl-zhu-faded-dezo-x-manex-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DvGzu6HjNUWJ1WQu-DIGHAg-t500x500.jpg">](https://soundcloud.com/millirecs/sievert-serviert-vacuum)
 
-**Artist**: GEWOONRAVES, MANEX, DEZO 
+**Artist**: Sievert Serviert 
 
-**Track**: [FREE DL] ZHU - Faded (DEZO x MANEX HARD TECHNO EDIT)
+**Track**: Sievert Serviert - Vacuum Cleaner 9000
 
-Last updated at 6/3/2025, 8:16:09 AM
+Last updated at 6/3/2025, 8:18:19 AM
