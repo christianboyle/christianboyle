@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tidfpmCWCMNAPFp-TypRMQ-t500x500.png">](https://soundcloud.com/revolution-records-uk/quality-bounce-high-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yzv1yIyQV2uVKQ5c-bwuORQ-t500x500.png">](https://soundcloud.com/hexagon/adem-bogoceli-x-farenthide-yimanya)
 
-**Artist**: Revolution-Records UK 
+**Artist**: HEXAGON 
 
-**Track**: QUALITY BOUNCE - HIGH IN THE SKY
+**Track**: Adem Bogoceli x Farenthide - Yimanya
 
-Last updated at 6/3/2025, 8:13:16 AM
+Last updated at 6/3/2025, 8:15:02 AM
