@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjUF79vDFMIazGzu-s4FTFw-t500x500.png">](https://soundcloud.com/event-whalien/mx2-sick-another-fucking-system-wha063)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnE6lJRRoIxLRFE1-pPtgBw-t500x500.jpg">](https://soundcloud.com/kyle-blendz/slob-on-my-dic)
 
-**Artist**: Whalien 
+**Artist**: BIGKYLE 
 
-**Track**: Mx2 & Sick- Another Fucking System [WHA063]
+**Track**: slob on my dic
 
-Last updated at 6/3/2025, 8:10:16 AM
+Last updated at 6/3/2025, 8:11:36 AM
