@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnE6lJRRoIxLRFE1-pPtgBw-t500x500.jpg">](https://soundcloud.com/kyle-blendz/slob-on-my-dic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9tidfpmCWCMNAPFp-TypRMQ-t500x500.png">](https://soundcloud.com/revolution-records-uk/quality-bounce-high-in-the-sky)
 
-**Artist**: BIGKYLE 
+**Artist**: Revolution-Records UK 
 
-**Track**: slob on my dic
+**Track**: QUALITY BOUNCE - HIGH IN THE SKY
 
-Last updated at 6/3/2025, 8:11:36 AM
+Last updated at 6/3/2025, 8:13:16 AM
