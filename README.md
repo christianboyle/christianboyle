@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eOZaROFJA3nKrvir-MriOhg-t500x500.png">](https://soundcloud.com/highzombiemusic/heartbreak-highzombie-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VcYhEulIfrODnGeG-NzpqeA-t500x500.png">](https://soundcloud.com/cyclopsrecs/sfam-gimme-that-beat-2)
 
-**Artist**: High Zombie 
+**Artist**: sfam, noertheboy 
 
-**Track**: Boombox Cartel, Dillon Francis, NEVVE, urboi - Heartbreak (High Zombie Bootleg)
+**Track**: sfam - give me that beat
 
-Last updated at 6/4/2025, 8:38:23 AM
+Last updated at 6/4/2025, 8:39:43 AM
