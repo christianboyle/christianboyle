@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVLzFj8Ly74i1kpi-zMWd2A-t500x500.png">](https://soundcloud.com/holytrapmusic/cxb-radioactive-attack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XV7vfbFzARJz9W6L-2KKkGg-t500x500.png">](https://soundcloud.com/cba_tbh/charlie-xcx-guess-cba_tbh-remix-free-download)
 
-**Artist**: CXB 
+**Artist**: cba_tbh 
 
-**Track**: CXB - RADIOACTIVE ATTACK
+**Track**: charlie xcx - guess (cba_tbh remix) (free download)
 
-Last updated at 6/4/2025, 8:57:35 AM
+Last updated at 6/4/2025, 8:58:54 AM
