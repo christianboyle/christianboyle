@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIMiMQgN7kQE8ABu-LR5NNQ-t500x500.jpg">](https://soundcloud.com/pickledyeetz/greywood-damaged)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3)
 
-**Artist**: Greywood 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: Greywood - Damaged
+**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
 
-Last updated at 6/4/2025, 10:53:35 AM
+Last updated at 6/4/2025, 10:58:12 AM
