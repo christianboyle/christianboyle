@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8AJWd6tdWiRsa1B-qOLe6Q-t500x500.png">](https://soundcloud.com/ekonovah/3f27de9d-c40a-4752-8eaa-325908a1ff10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3Hefc9U1JndpmyJ-DrOhCw-t500x500.jpg">](https://soundcloud.com/qualiasound/herbalistek-arboreal)
 
-**Artist**: CAZZETTE, Ekonovah 
+**Artist**: Herbalistek 
 
-**Track**: CAZZETTE - Sleepless (Ekonovah Remix)
+**Track**: Herbalistek - Arboreal
 
-Last updated at 6/4/2025, 9:47:48 AM
+Last updated at 6/4/2025, 10:41:39 AM
