@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XV7vfbFzARJz9W6L-2KKkGg-t500x500.png">](https://soundcloud.com/cba_tbh/charlie-xcx-guess-cba_tbh-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JQRImNOvKyI6zfWy-Zd65Jg-t500x500.png">](https://soundcloud.com/ruiiinofficial/propellant-100-followers)
 
-**Artist**: cba_tbh 
+**Artist**: RUiIIN 
 
-**Track**: charlie xcx - guess (cba_tbh remix) (free download)
+**Track**: PROPELLANT (100 Followers)
 
-Last updated at 6/4/2025, 8:58:54 AM
+Last updated at 6/4/2025, 9:27:16 AM
