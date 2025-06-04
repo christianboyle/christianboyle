@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siBHY20cISyMfeeS-H8J7rg-t500x500.png">](https://soundcloud.com/inariwubs/la-bouche-be-my-lover-inari-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uVLzFj8Ly74i1kpi-zMWd2A-t500x500.png">](https://soundcloud.com/holytrapmusic/cxb-radioactive-attack)
 
-**Artist**: Inari 
+**Artist**: CXB 
 
-**Track**: La Bouche - Be My Lover (Inari Flip)
+**Track**: CXB - RADIOACTIVE ATTACK
 
-Last updated at 6/4/2025, 8:56:35 AM
+Last updated at 6/4/2025, 8:57:35 AM
