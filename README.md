@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC17NtNuszdgqj7z-C8kk7Q-t500x500.jpg">](https://soundcloud.com/beauzworld/look-at-me-now-beauz-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHGG5Vey9Hh7u1Ys-3mZtLw-t500x500.png">](https://soundcloud.com/casaazulnetwork/azul001)
 
-**Artist**: BEAUZ 
+**Artist**: Sotica, KULTO, Afreak  
 
-**Track**: Look At Me Now (BEAUZ Hard Techno Remix)
+**Track**: Sotica, KULTO & Afreak - Summertime Sadness
 
-Last updated at 6/4/2025, 8:48:19 AM
+Last updated at 6/4/2025, 8:49:24 AM
