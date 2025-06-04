@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1tB9WSeYyBuSyxj-LE14xw-t500x500.jpg">](https://soundcloud.com/arya51/betterbreakoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3)
 
-**Artist**: Arya 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: BETTER BREAK OFF
+**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
 
-Last updated at 6/4/2025, 9:39:22 AM
+Last updated at 6/4/2025, 9:41:27 AM
