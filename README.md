@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHGG5Vey9Hh7u1Ys-3mZtLw-t500x500.png">](https://soundcloud.com/casaazulnetwork/azul001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VcYhEulIfrODnGeG-NzpqeA-t500x500.png">](https://soundcloud.com/cyclopsrecs/sfam-x-noertheboy-ode-to-courteous-1)
 
-**Artist**: Sotica, KULTO, Afreak  
+**Artist**: sfam, noertheboy 
 
-**Track**: Sotica, KULTO & Afreak - Summertime Sadness
+**Track**: sfam x Noer the Boy - ode to courteous
 
-Last updated at 6/4/2025, 8:49:24 AM
+Last updated at 6/4/2025, 8:50:24 AM
