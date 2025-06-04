@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q3Hefc9U1JndpmyJ-DrOhCw-t500x500.jpg">](https://soundcloud.com/qualiasound/herbalistek-arboreal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QwyVCHFSq5MkuIHw-cR61rQ-t500x500.png">](https://soundcloud.com/joyntmusic/playboi-carti-the-weeknd-rather-lie-joynt-sevsky-flip)
 
-**Artist**: Herbalistek 
+**Artist**: Joynt & SEVSKY 
 
-**Track**: Herbalistek - Arboreal
+**Track**: Playboi Carti & The Weeknd - Rather Lie (Joynt & SEVSKY Flip)
 
-Last updated at 6/4/2025, 6:19:52 AM
+Last updated at 6/4/2025, 8:37:03 AM
