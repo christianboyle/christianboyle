@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBbF8yU6KxIUyUXa-n0LRMQ-t500x500.png">](https://soundcloud.com/hellrazermusic/becauseofu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC17NtNuszdgqj7z-C8kk7Q-t500x500.jpg">](https://soundcloud.com/beauzworld/look-at-me-now-beauz-hard-techno-remix)
 
-**Artist**: HELLRAZER 
+**Artist**: BEAUZ 
 
-**Track**: RL GRIME - BECAUSE OF U (HELLRAZER X NOCTIIL REMIX)
+**Track**: Look At Me Now (BEAUZ Hard Techno Remix)
 
-Last updated at 6/4/2025, 8:47:19 AM
+Last updated at 6/4/2025, 8:48:19 AM
