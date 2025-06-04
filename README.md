@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ql5XHaoiLlxr8aIy-FjEzyQ-t500x500.png">](https://soundcloud.com/crucialwav/locked-ft-rakjay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-siBHY20cISyMfeeS-H8J7rg-t500x500.png">](https://soundcloud.com/inariwubs/la-bouche-be-my-lover-inari-flip)
 
-**Artist**: Crucial, Rakjay 
+**Artist**: Inari 
 
-**Track**: LOCKED ft. Rakjay
+**Track**: La Bouche - Be My Lover (Inari Flip)
 
-Last updated at 6/4/2025, 8:55:39 AM
+Last updated at 6/4/2025, 8:56:35 AM
