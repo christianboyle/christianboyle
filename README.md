@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VcYhEulIfrODnGeG-NzpqeA-t500x500.png">](https://soundcloud.com/cyclopsrecs/sfam-x-noertheboy-ode-to-courteous-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mSJnukfGL3SVxwDT-QvfH1g-t500x500.png">](https://soundcloud.com/theunmonkey/big-bada-boom-unmonkey-x-remix-will-atkinson)
 
-**Artist**: sfam, noertheboy 
+**Artist**: UNMONKEY 
 
-**Track**: sfam x Noer the Boy - ode to courteous
+**Track**: Big Bada Boom (Unmonkey Remix)  - Will Atkinson
 
-Last updated at 6/4/2025, 8:50:24 AM
+Last updated at 6/4/2025, 8:51:24 AM
