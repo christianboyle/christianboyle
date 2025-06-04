@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbQ1fqt1RFbhsweO-UQj03Q-t500x500.jpg">](https://soundcloud.com/selliott-937442749/today)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ql5XHaoiLlxr8aIy-FjEzyQ-t500x500.png">](https://soundcloud.com/crucialwav/locked-ft-rakjay)
 
-**Artist**: Selliott 
+**Artist**: Crucial, Rakjay 
 
-**Track**: Today
+**Track**: LOCKED ft. Rakjay
 
-Last updated at 6/4/2025, 8:54:39 AM
+Last updated at 6/4/2025, 8:55:39 AM
