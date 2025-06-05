@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p3EeK8xL0fAQoxO8-MSUQUg-t500x500.png">](https://soundcloud.com/gesesmusic/eviljordan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMoaMxvwCjMMH4wG-qdblUw-t500x500.jpg">](https://soundcloud.com/bernzikial/young-and-beautiful-bernzikial)
 
-**Artist**: GESES 
+**Artist**: BERNZIKIAL ✨ 
 
-**Track**: PLAYBOI CARTI - EVIL J0RDAN (GESES Hard Techno Remix) *SUPPORTED BY I HATE MODELS & RESTRICTED**
+**Track**: Young and Beautiful (BERNZIKIAL Remix)
 
-Last updated at 6/5/2025, 9:29:55 AM
+Last updated at 6/5/2025, 9:31:10 AM
