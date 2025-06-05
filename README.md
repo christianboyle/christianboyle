@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMoaMxvwCjMMH4wG-qdblUw-t500x500.jpg">](https://soundcloud.com/bernzikial/young-and-beautiful-bernzikial)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmKe2hWHYHjkv7jq-b1QMzA-t500x500.png">](https://soundcloud.com/stvnkfvcemusic/jabs-in-the-pit-stvnk-fvce-x-wheysted-ft-blupill)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: STVNK FVCE 
 
-**Track**: Young and Beautiful (BERNZIKIAL Remix)
+**Track**: Jabs in the Pit - STVNK FVCE x Wheysted ft Blupill
 
-Last updated at 6/5/2025, 9:31:10 AM
+Last updated at 6/5/2025, 9:32:10 AM
