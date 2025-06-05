@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDB65X2bbQzD9pKZ-ITnzdA-t500x500.jpg">](https://soundcloud.com/technowereld/bukin-zip-zip-twep010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9FIgWEja6BjIbxC-7mu7eg-t500x500.jpg">](https://soundcloud.com/adam_mohican/adam-mohican-rave-mix-2025?in=adam_mohican/sets/2025-mixes)
 
-**Artist**: Techno Wereld, Bukin 
+**Artist**: Adam Mohican 
 
-**Track**: Bukin - Zip Zip [TWEP010]
+**Track**: Adam Mohican - Rave Mix 2025
 
-Last updated at 6/5/2025, 8:39:07 AM
+Last updated at 6/5/2025, 9:28:55 AM
