@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRWUg88OA7UCAUvZ-kV8mFQ-t500x500.png">](https://soundcloud.com/whalesfm/xotourlif3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvZLbk8fx5T7OI2G-oozyHg-t500x500.jpg">](https://soundcloud.com/basscon/rayray-gammer-never-enough)
 
-**Artist**: WHALES 
+**Artist**: RayRay & Gammer 
 
-**Track**: LIL UZI VERT - XO TOUR LIF3 (WHALES REMIX)
+**Track**: RayRay & Gammer - Never Enough
 
-Last updated at 6/5/2025, 8:32:55 AM
+Last updated at 6/5/2025, 8:34:40 AM
