@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9FIgWEja6BjIbxC-7mu7eg-t500x500.jpg">](https://soundcloud.com/adam_mohican/adam-mohican-rave-mix-2025?in=adam_mohican/sets/2025-mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p3EeK8xL0fAQoxO8-MSUQUg-t500x500.png">](https://soundcloud.com/gesesmusic/eviljordan)
 
-**Artist**: Adam Mohican 
+**Artist**: GESES 
 
-**Track**: Adam Mohican - Rave Mix 2025
+**Track**: PLAYBOI CARTI - EVIL J0RDAN (GESES Hard Techno Remix) *SUPPORTED BY I HATE MODELS & RESTRICTED**
 
-Last updated at 6/5/2025, 9:28:55 AM
+Last updated at 6/5/2025, 9:29:55 AM
