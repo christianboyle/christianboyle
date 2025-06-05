@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rwzRh0UMrOik27Hz-KrjWng-t500x500.png">](https://soundcloud.com/donatachi/pinkpantheress-illegal-donatachi-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDB65X2bbQzD9pKZ-ITnzdA-t500x500.jpg">](https://soundcloud.com/technowereld/bukin-zip-zip-twep010)
 
-**Artist**: Donatachi 
+**Artist**: Techno Wereld, Bukin 
 
-**Track**: PinkPantheress - Illegal (Donatachi Flip)
+**Track**: Bukin - Zip Zip [TWEP010]
 
-Last updated at 6/5/2025, 8:38:07 AM
+Last updated at 6/5/2025, 8:39:07 AM
