@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2jiZBDL6VwMr5HYz-714jbQ-t500x500.png">](https://soundcloud.com/s3rl/pika-girl-lucky-rabbit-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wl7Gl8HovejaSpTP-Wz9QmQ-t500x500.png">](https://soundcloud.com/togekidub/vic-wobble-togeki-bootleg)
 
-**Artist**: S3RL, Lucky Rabbit 
+**Artist**: togeki 
 
-**Track**: Pika Girl (Lucky Rabbit Remix) - S3RL
+**Track**: V.I.C. - 'Wobble' (togeki bootleg)
 
-Last updated at 6/5/2025, 7:11:10 AM
+Last updated at 6/5/2025, 8:29:30 AM
