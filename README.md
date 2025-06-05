@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wl7Gl8HovejaSpTP-Wz9QmQ-t500x500.png">](https://soundcloud.com/togekidub/vic-wobble-togeki-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAsql5hT94EZ9SNI-MH8RPA-t500x500.jpg">](https://soundcloud.com/ukf/particle-visions)
 
-**Artist**: togeki 
+**Artist**: Particle 
 
-**Track**: V.I.C. - 'Wobble' (togeki bootleg)
+**Track**: Particle - Visions
 
-Last updated at 6/5/2025, 8:29:30 AM
+Last updated at 6/5/2025, 8:30:40 AM
