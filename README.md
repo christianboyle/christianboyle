@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpUsBVnpdfwbOcFk-Nnw3xA-t500x500.jpg">](https://soundcloud.com/xxxxhendrixxx/vsn-kitchen-liquid-drum-and)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cIexwnoTiBzNk7yi-KLznXQ-t500x500.png">](https://soundcloud.com/obscuurrecords/henk-keep-up-the-rave)
 
-**Artist**: Hendrix 
+**Artist**: Henk 
 
-**Track**: VSN Kitchen Liquid Drum and Bass Set
+**Track**: Henk - Keep Up The Rave
 
-Last updated at 6/6/2025, 6:47:08 AM
+Last updated at 6/6/2025, 6:52:03 AM
