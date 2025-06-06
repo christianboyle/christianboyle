@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSsxvlIMKhMwu7Mr-yxUMPA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/orbit-im-balling-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sePzjj3K1rDupYcw-wg1etw-t500x500.png">](https://soundcloud.com/stunnapossecult/first-edition-stunna-posse-cult-mix)
 
-**Artist**: Fatal Energy Records 
+**Artist**: STUNNA POSSE 
 
-**Track**: Orbit - I'm Balling (Original Mix)
+**Track**: FIRST EDITION. STUNNA POSSE CULT MIX
 
-Last updated at 6/5/2025, 9:34:40 AM
+Last updated at 6/6/2025, 6:44:34 AM
