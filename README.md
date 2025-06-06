@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qtP4Yogd5qQGzSfe-oLhndw-t500x500.png">](https://soundcloud.com/steelcitydancediscs/dro-carey-boulevarder-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySXecGJpaqy5Unwp-aKhvkw-t500x500.png">](https://soundcloud.com/ascentrecordings/we-evolve-original-mix)
 
-**Artist**: Steel City Dance Discs 
+**Artist**: LawrenceQ 
 
-**Track**: Dro Carey - BOULEVARDER
+**Track**: We Evolve (Original Mix)
 
-Last updated at 6/6/2025, 6:53:13 AM
+Last updated at 6/6/2025, 6:54:53 AM
