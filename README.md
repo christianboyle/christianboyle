@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z7CRXL4CXHpJB5Hh-IbfCpg-t500x500.png">](https://soundcloud.com/future-house-cloud/oliver-cricket-blaze-u-happens)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26VcTwZKKu6nNC0K-DNUk2A-t500x500.jpg">](https://soundcloud.com/brokitz/tn-prod-byttt-19)
 
-**Artist**: Oliver Cricket & Blaze U 
+**Artist**: kitz 
 
-**Track**: Oliver Cricket & Blaze U - Happens All The Time (ft. Nevve)
+**Track**: TN [prod. byttt]
 
-Last updated at 6/6/2025, 6:56:24 AM
+Last updated at 6/6/2025, 6:57:38 AM
