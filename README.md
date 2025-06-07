@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9yDUi70pvbCrS40-2QEtlQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/nyquist-x-comisar-broken-beat-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgdeDvp0J7ySnyTR-gHFQJw-t500x500.png">](https://soundcloud.com/djmauriciocury/mauricio-cury-sweet-caroline)
 
-**Artist**: Nyquist & Comisar 
+**Artist**: Mauricio Cury 
 
-**Track**: Nyquist x Comisar - Broken Beat
+**Track**: Mauricio Cury - Sweet Caroline (Edit)
 
-Last updated at 6/6/2025, 9:12:48 PM
+Last updated at 6/7/2025, 7:03:37 AM
