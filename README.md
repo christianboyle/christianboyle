@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EhflDL5u87oQL5zm-zxm9RA-t500x500.png">](https://soundcloud.com/jumble0_0/brakence-sample-in-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U9yDUi70pvbCrS40-2QEtlQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/nyquist-x-comisar-broken-beat-2)
 
-**Artist**: jumble 
+**Artist**: Nyquist & Comisar 
 
-**Track**: brakence sample in 2025...
+**Track**: Nyquist x Comisar - Broken Beat
 
-Last updated at 6/6/2025, 5:47:04 PM
+Last updated at 6/6/2025, 9:12:48 PM
