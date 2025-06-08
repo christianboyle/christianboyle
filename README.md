@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vBvau16d0VtGMO7w-unh5jA-t500x500.jpg">](https://soundcloud.com/marviista/ghost-voices-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1M56kxUHsJTrVR6U-kntE2g-t500x500.png">](https://soundcloud.com/willdabeastofficial/chilldabeast5)
 
-**Artist**: MAR VISTA 
+**Artist**: Chilldabeast 
 
-**Track**: GHOST VOICES (MAR VISTA DUB)
+**Track**: Good Karma
 
-Last updated at 6/7/2025, 7:47:54 PM
+Last updated at 6/8/2025, 8:36:15 AM
