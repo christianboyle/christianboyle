@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fNTYvpqaoeDna8mA-elEY3A-t500x500.jpg">](https://soundcloud.com/elzym/left-2-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vBvau16d0VtGMO7w-unh5jA-t500x500.jpg">](https://soundcloud.com/marviista/ghost-voices-dub)
 
-**Artist**: Elzym 
+**Artist**: MAR VISTA 
 
-**Track**: LEFT 2 RIGHT - WESTFALL & ELZYM
+**Track**: GHOST VOICES (MAR VISTA DUB)
 
-Last updated at 6/7/2025, 7:46:18 PM
+Last updated at 6/7/2025, 7:47:54 PM
