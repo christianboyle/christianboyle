@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UObW7901hyoE9yy8-6vDLTA-t500x500.jpg">](https://soundcloud.com/dontdieatwork/2td-webdings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EG8AvMxa9ZroRH27-dHB8Og-t500x500.png">](https://soundcloud.com/scafettamusic/scafetta-the-hollowing)
 
-**Artist**: 2TD 
+**Artist**: ScAℲeTtA_Music 
 
-**Track**: 2TD - WEBDINGS
+**Track**: Scafetta-The Hollowing
 
-Last updated at 6/7/2025, 7:15:52 PM
+Last updated at 6/7/2025, 7:18:52 PM
