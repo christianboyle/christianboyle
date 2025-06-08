@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lgdeDvp0J7ySnyTR-gHFQJw-t500x500.png">](https://soundcloud.com/djmauriciocury/mauricio-cury-sweet-caroline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3)
 
-**Artist**: Mauricio Cury 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: Mauricio Cury - Sweet Caroline (Edit)
+**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
 
-Last updated at 6/7/2025, 7:03:37 AM
+Last updated at 6/7/2025, 7:14:47 PM
