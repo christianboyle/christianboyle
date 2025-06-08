@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TnwWtqXhXrzaRhik-y4PoTg-t500x500.jpg">](https://soundcloud.com/djonlywithyou/onlywithyou-midnight-sun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fNTYvpqaoeDna8mA-elEY3A-t500x500.jpg">](https://soundcloud.com/elzym/left-2-right)
 
-**Artist**: OnlyWithYou 
+**Artist**: Elzym 
 
-**Track**: MIDNIGHT SUN
+**Track**: LEFT 2 RIGHT - WESTFALL & ELZYM
 
-Last updated at 6/7/2025, 7:21:33 PM
+Last updated at 6/7/2025, 7:46:18 PM
