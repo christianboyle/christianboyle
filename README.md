@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UObW7901hyoE9yy8-6vDLTA-t500x500.jpg">](https://soundcloud.com/dontdieatwork/2td-webdings)
 
-**Artist**: ¡SOY MAKINERO! 
+**Artist**: 2TD 
 
-**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
+**Track**: 2TD - WEBDINGS
 
-Last updated at 6/7/2025, 7:14:47 PM
+Last updated at 6/7/2025, 7:15:52 PM
