@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8iHPymmzLzkB5sD-tuqZLQ-t500x500.png">](https://soundcloud.com/austin-crow-632127303/cr0w-lasers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yegfKpL795OiG4e-f9UuSA-t500x500.png">](https://soundcloud.com/knights-of-volition/paramore-decode-knights-of-volition-remix)
 
-**Artist**: Cr0w 
+**Artist**: Knights of Volition 
 
-**Track**: Cr0w - Lasers
+**Track**: Paramore - Decode ( Knights of Volition Remix )
 
-Last updated at 6/9/2025, 10:32:59 AM
+Last updated at 6/9/2025, 10:37:10 AM
