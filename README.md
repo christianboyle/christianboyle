@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jE1zFV0anHMOyKAR-5TEg2A-t500x500.png">](https://soundcloud.com/superxfuture/icedout?in=saxurn/sets/dot-matrix/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26VcTwZKKu6nNC0K-DNUk2A-t500x500.jpg">](https://soundcloud.com/brokitz/one-more-song-prod-t57thetank-14)
 
-**Artist**: Super Future, rSUN 
+**Artist**: kitz 
 
-**Track**: Iced Out [OdyZey Records]
+**Track**: ONE MORE SONG [prod. t57thetank]
 
-Last updated at 6/9/2025, 10:21:26 AM
+Last updated at 6/9/2025, 10:23:56 AM
