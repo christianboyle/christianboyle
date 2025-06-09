@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzK54DzEekQ03uVl-ipR17Q-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgr-041s-pala-chrome-feat-33moon-juice?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26VcTwZKKu6nNC0K-DNUk2A-t500x500.jpg">](https://soundcloud.com/brokitz/one-more-song-prod-t57thetank-14?in=saxurn/sets/dot-matrix)
 
-**Artist**: Pala Chrome, 33Moon 
+**Artist**: kitz 
 
-**Track**: QGR-041S | Pala Chrome feat. 33Moon - Juice
+**Track**: ONE MORE SONG [prod. t57thetank]
 
-Last updated at 6/9/2025, 3:02:27 PM
+Last updated at 6/9/2025, 3:05:27 PM
