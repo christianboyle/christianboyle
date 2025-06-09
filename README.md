@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPaX3CYajzMvGcH0-1fpuyQ-t500x500.jpg">](https://soundcloud.com/raprave/doechii-nissan-altima-cam-girl-gaszia-edit-2?in=saxurn/sets/dot-matrix/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzMH4Sa6oUL76aHr-nz97kQ-t500x500.jpg">](https://soundcloud.com/gouzouu/gouzou-meow-let-me-cunt-2)
 
-**Artist**: ʀᴀᴘʀᴀᴠᴇ 
+**Artist**: GOUZOU 
 
-**Track**: Doechii - Nissan Altima (CAM GIRL & Gaszia Edit)
+**Track**: GOUZOU - MEOW [LET ME CUNT #2]
 
-Last updated at 6/9/2025, 10:14:50 AM
+Last updated at 6/9/2025, 10:17:00 AM
