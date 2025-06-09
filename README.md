@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8AJWd6tdWiRsa1B-qOLe6Q-t500x500.png">](https://soundcloud.com/ekonovah/3f27de9d-c40a-4752-8eaa-325908a1ff10?in=saxurn/sets/dot-matrix/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3?in=saxurn/sets/dot-matrix/)
 
-**Artist**: CAZZETTE, Ekonovah 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: CAZZETTE - Sleepless (Ekonovah Remix)
+**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
 
-Last updated at 6/9/2025, 10:05:54 AM
+Last updated at 6/9/2025, 10:09:44 AM
