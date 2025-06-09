@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqR6io6cmgnHoZgX-TirdkQ-t500x500.png">](https://soundcloud.com/s3rl/together?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jE1zFV0anHMOyKAR-5TEg2A-t500x500.png">](https://soundcloud.com/superxfuture/icedout?in=saxurn/sets/dot-matrix)
 
-**Artist**: S3RL x Fatshaudi x Luca Rain 
+**Artist**: Super Future, rSUN 
 
-**Track**: Together - S3RL x Fatshaudi x Luca Rain
+**Track**: Iced Out [OdyZey Records]
 
-Last updated at 6/9/2025, 2:48:40 PM
+Last updated at 6/9/2025, 2:51:51 PM
