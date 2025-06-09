@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yegfKpL795OiG4e-f9UuSA-t500x500.png">](https://soundcloud.com/knights-of-volition/paramore-decode-knights-of-volition-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIhvfPAf0mwW-0-t500x500.jpg">](https://soundcloud.com/ghostinreallife/out-of-control)
 
-**Artist**: Knights of Volition 
+**Artist**: Ghost in Real Life 
 
-**Track**: Paramore - Decode ( Knights of Volition Remix )
+**Track**: Out of Control
 
-Last updated at 6/9/2025, 10:37:10 AM
+Last updated at 6/9/2025, 10:39:35 AM
