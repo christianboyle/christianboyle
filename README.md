@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lIhvfPAf0mwW-0-t500x500.jpg">](https://soundcloud.com/ghostinreallife/out-of-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26VcTwZKKu6nNC0K-DNUk2A-t500x500.jpg">](https://soundcloud.com/brokitz/one-more-song-prod-t57thetank-14?in=saxurn/sets/dot-matrix/)
 
-**Artist**: Ghost in Real Life 
+**Artist**: kitz 
 
-**Track**: Out of Control
+**Track**: ONE MORE SONG [prod. t57thetank]
 
-Last updated at 6/9/2025, 10:39:35 AM
+Last updated at 6/9/2025, 10:40:47 AM
