@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6iMFyaAMyvZizev-vwMWmA-t500x500.png">](https://soundcloud.com/bkbeats/no_patience?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcF8rJVE4tnb6rb3-qMipbA-t500x500.png">](https://soundcloud.com/savagef80/ecstasy?in=saxurn/sets/dot-matrix)
 
-**Artist**: bk beats 
+**Artist**: SAVAGE 
 
-**Track**: 450 - no patience (bk beats edit)
+**Track**: ATB - ECSTASY (SAVAGE REMIX)
 
-Last updated at 6/8/2025, 7:44:26 PM
+Last updated at 6/8/2025, 7:46:46 PM
