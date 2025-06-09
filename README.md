@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cyt0F9zzUAiufeDh-8RE7aA-t500x500.png">](https://soundcloud.com/highdruhdub/noxious-highdruh-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-26VcTwZKKu6nNC0K-DNUk2A-t500x500.jpg">](https://soundcloud.com/brokitz/one-more-song-prod-t57thetank-14?in=saxurn/sets/dot-matrix)
 
-**Artist**: HighdruH 
+**Artist**: kitz 
 
-**Track**: LYNY - Noxious (Highdruh Flip)
+**Track**: ONE MORE SONG [prod. t57thetank]
 
-Last updated at 6/8/2025, 7:41:05 PM
+Last updated at 6/8/2025, 7:42:41 PM
