@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3?in=saxurn/sets/dot-matrix/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPaX3CYajzMvGcH0-1fpuyQ-t500x500.jpg">](https://soundcloud.com/raprave/doechii-nissan-altima-cam-girl-gaszia-edit-2?in=saxurn/sets/dot-matrix/)
 
-**Artist**: ¡SOY MAKINERO! 
+**Artist**: ʀᴀᴘʀᴀᴠᴇ 
 
-**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
+**Track**: Doechii - Nissan Altima (CAM GIRL & Gaszia Edit)
 
-Last updated at 6/9/2025, 10:09:44 AM
+Last updated at 6/9/2025, 10:14:50 AM
