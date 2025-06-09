@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jE1zFV0anHMOyKAR-5TEg2A-t500x500.png">](https://soundcloud.com/superxfuture/icedout?in=saxurn/sets/dot-matrix/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8AJWd6tdWiRsa1B-qOLe6Q-t500x500.png">](https://soundcloud.com/ekonovah/3f27de9d-c40a-4752-8eaa-325908a1ff10?in=saxurn/sets/dot-matrix/)
 
-**Artist**: Super Future, rSUN 
+**Artist**: CAZZETTE, Ekonovah 
 
-**Track**: Iced Out [OdyZey Records]
+**Track**: CAZZETTE - Sleepless (Ekonovah Remix)
 
-Last updated at 6/9/2025, 10:02:38 AM
+Last updated at 6/9/2025, 10:05:54 AM
