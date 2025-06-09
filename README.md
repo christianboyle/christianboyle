@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jE1zFV0anHMOyKAR-5TEg2A-t500x500.png">](https://soundcloud.com/superxfuture/icedout?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/03-gasoiid-when-it-was-me-3?in=saxurn/sets/dot-matrix)
 
-**Artist**: Super Future, rSUN 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: Iced Out [OdyZey Records]
+**Track**: 03 - gasoiid - when it was me (ft. dj boonie)
 
-Last updated at 6/9/2025, 5:00:27 PM
+Last updated at 6/9/2025, 5:03:42 PM
