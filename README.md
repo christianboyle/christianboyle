@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nADoEs3oXyB93SLr-lT7QeQ-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-let-me-hold-you-netsky-x-hybrid-minds-el5-techno-edit?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqR6io6cmgnHoZgX-TirdkQ-t500x500.png">](https://soundcloud.com/s3rl/together?in=saxurn/sets/dot-matrix)
 
-**Artist**: GEWOONRAVES, EL5 
+**Artist**: S3RL x Fatshaudi x Luca Rain 
 
-**Track**: [FREE DL] Let Me Hold You - Netsky x Hybrid minds (EL5 TECHNO EDIT)
+**Track**: Together - S3RL x Fatshaudi x Luca Rain
 
-Last updated at 6/9/2025, 2:40:35 PM
+Last updated at 6/9/2025, 2:48:40 PM
