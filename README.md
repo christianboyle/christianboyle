@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ky5gHvmFAub0gjGY-KhQulg-t500x500.png">](https://soundcloud.com/lowshade/doctor-p-flux-pavilion-louder-lowshade-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d8iHPymmzLzkB5sD-tuqZLQ-t500x500.png">](https://soundcloud.com/austin-crow-632127303/cr0w-lasers)
 
-**Artist**: L*o*wshade 
+**Artist**: Cr0w 
 
-**Track**: Doctor P & Flux Pavilion - Louder (L*o*wshade Flip) [FREE DL]
+**Track**: Cr0w - Lasers
 
-Last updated at 6/9/2025, 10:29:29 AM
+Last updated at 6/9/2025, 10:32:59 AM
