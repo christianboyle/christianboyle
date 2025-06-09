@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqR6io6cmgnHoZgX-TirdkQ-t500x500.png">](https://soundcloud.com/s3rl/together?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F6iMFyaAMyvZizev-vwMWmA-t500x500.png">](https://soundcloud.com/bkbeats/no_patience)
 
-**Artist**: S3RL x Fatshaudi x Luca Rain 
+**Artist**: bk beats 
 
-**Track**: Together - S3RL x Fatshaudi x Luca Rain
+**Track**: 450 - no patience (bk beats edit)
 
-Last updated at 6/9/2025, 11:08:46 AM
+Last updated at 6/9/2025, 12:41:08 PM
