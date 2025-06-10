@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mC38Axqaxo4FrwZY-77LJsA-t500x500.jpg">](https://soundcloud.com/hynsk/rebel-instinct)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZCnJ4ugdboy2KDy-xbhMPA-t500x500.jpg">](https://soundcloud.com/kirarrii/nameless-prod-isai-lyn)
 
-**Artist**: Hynsk 
+**Artist**: kirari 
 
-**Track**: Rebel Instinct
+**Track**: nameless prod isai + lyn
 
-Last updated at 6/10/2025, 8:23:06 AM
+Last updated at 6/10/2025, 8:25:17 AM
