@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pZCnJ4ugdboy2KDy-xbhMPA-t500x500.jpg">](https://soundcloud.com/kirarrii/nameless-prod-isai-lyn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jkr7s6VE7kuV8M43-N4yH3Q-t500x500.png">](https://soundcloud.com/phydrabass/thew-phydra-live-at-untz-2025)
 
-**Artist**: kirari 
+**Artist**: Phydra, Thew 
 
-**Track**: nameless prod isai + lyn
+**Track**: Thew & Phydra live at Untz 2025
 
-Last updated at 6/10/2025, 8:25:17 AM
+Last updated at 6/10/2025, 8:26:52 AM
