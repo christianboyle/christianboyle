@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzK54DzEekQ03uVl-ipR17Q-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgr-041s-pala-chrome-feat-33moon-juice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msj2aQOYuFwb75Ls-lVlvYg-t500x500.png">](https://soundcloud.com/groupchatclub/jstjr-gimme-that-vip)
 
-**Artist**: Pala Chrome, 33Moon 
+**Artist**: Group Chat, JSTJR 
 
-**Track**: QGR-041S | Pala Chrome feat. 33Moon - Juice
+**Track**: JSTJR - Gimme That (VIP)
 
-Last updated at 6/10/2025, 8:00:04 AM
+Last updated at 6/10/2025, 8:01:14 AM
