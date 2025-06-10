@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XV7vfbFzARJz9W6L-2KKkGg-t500x500.png">](https://soundcloud.com/cba_tbh/charlie-xcx-guess-cba_tbh-remix-free-download?in=saxurn/sets/dot-matrix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzK54DzEekQ03uVl-ipR17Q-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgr-041s-pala-chrome-feat-33moon-juice)
 
-**Artist**: cba_tbh 
+**Artist**: Pala Chrome, 33Moon 
 
-**Track**: charlie xcx - guess (cba_tbh remix) (free download)
+**Track**: QGR-041S | Pala Chrome feat. 33Moon - Juice
 
-Last updated at 6/9/2025, 5:08:48 PM
+Last updated at 6/10/2025, 8:00:04 AM
