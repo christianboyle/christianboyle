@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myz3kvOwMNLMB6Kd-i0s4Rw-t500x500.jpg">](https://soundcloud.com/pawsouth/wasted)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nqBbdAC14z57DfiL-MYhjvA-t500x500.png">](https://soundcloud.com/stucamusic/mau-p-gimme-that-bounce-stuca-flip)
 
-**Artist**: southpaw 
+**Artist**: STUCA 
 
-**Track**: Wasted
+**Track**: Mau P - Gimme That Bounce (STUCA Flip)
 
-Last updated at 6/10/2025, 8:15:35 AM
+Last updated at 6/10/2025, 8:21:01 AM
