@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MCqRgAzqO19nbKUx-i4oedw-t500x500.jpg">](https://soundcloud.com/xaev/unironically-002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xnFA0vJvcCziQZEu-5STfpg-t500x500.png">](https://soundcloud.com/highcaliberrecs/scarexx-x-soul-valient-x-nghtklr-x-kenetic-kannibalz-punisher)
 
-**Artist**: xaev 
+**Artist**: High Caliber Records 
 
-**Track**: unironically100%music(002)
+**Track**: SCAREXX X SOUL VALIENT X NGHTKLR X Kenetic Kannibalz- Punisher
 
-Last updated at 6/10/2025, 8:13:45 PM
+Last updated at 6/10/2025, 8:14:11 PM
