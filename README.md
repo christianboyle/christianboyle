@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1mfFXpUJUli61j1-AeJClw-t500x500.png">](https://soundcloud.com/secr3tsounds/e659a0db-8f06-4868-b88f-436e4a0ab60a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZQZFvUOAy1Ir0Bc-ikMBKQ-t500x500.png">](https://soundcloud.com/jgsmakina/mk-feat-chrystal-dior-jgs)
 
-**Artist**: SECR3T 
+**Artist**: JGS 
 
-**Track**: JENGI - TAKE U (SECR3T REMIX)
+**Track**: MK Feat. Chrystal - Dior (JGS & INTENT Remix)
 
-Last updated at 6/11/2025, 9:48:52 AM
+Last updated at 6/11/2025, 9:50:47 AM
