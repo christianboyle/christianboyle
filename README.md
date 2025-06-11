@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SNXfyueBZaT5Wwj3-833CkQ-t500x500.jpg">](https://soundcloud.com/kalax/neverletyougo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZrKFsZHfMsPv1TN0-PZYB5Q-t500x500.png">](https://soundcloud.com/lookasmusic/roots)
 
-**Artist**: Kalax 
+**Artist**: Lookas 
 
-**Track**: Never Let You Go
+**Track**: Roots
 
-Last updated at 6/11/2025, 3:14:25 PM
+Last updated at 6/11/2025, 3:15:30 PM
