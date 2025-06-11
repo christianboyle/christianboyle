@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbAhWbkxjDXpYKz6-V4qpEg-t500x500.png">](https://soundcloud.com/mickjay67/mickjay-find-myself-sc-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCzGsheI0Hm7SSLu-HxVVWQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-time)
 
-**Artist**: MickJay 
+**Artist**: DRIFT 
 
-**Track**: MickJay - Find Myself (SC Sample)
+**Track**: DRIFT & IRWIIN - TIME
 
-Last updated at 6/11/2025, 10:03:23 AM
+Last updated at 6/11/2025, 10:04:28 AM
