@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CSxQCMNJfh0MY7fg-RoarVQ-t500x500.jpg">](https://soundcloud.com/whoiscpark/angels)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7WZeGyvomiz4lhJ-r2Hu4A-t500x500.jpg">](https://soundcloud.com/producedbythekids/nirvana-5)
 
-**Artist**: CPARK 
+**Artist**: The Kids 
 
-**Track**: ANGELS
+**Track**: NIRVANA (God In Designer)
 
-Last updated at 6/11/2025, 3:18:36 PM
+Last updated at 6/11/2025, 3:22:33 PM
