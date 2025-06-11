@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NaCpNbUpbE1smiNE-TPFSZw-t500x500.jpg">](https://soundcloud.com/noise_fleet/nf-x-badroom-gotta-do-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7WZeGyvomiz4lhJ-r2Hu4A-t500x500.jpg">](https://soundcloud.com/producedbythekids/nirvana-5)
 
-**Artist**: Noise Fleet, Badroom 
+**Artist**: The Kids 
 
-**Track**: Gotta Do It
+**Track**: NIRVANA (God In Designer)
 
-Last updated at 6/10/2025, 8:16:36 PM
+Last updated at 6/10/2025, 8:17:42 PM
