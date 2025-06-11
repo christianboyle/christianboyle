@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7WZeGyvomiz4lhJ-r2Hu4A-t500x500.jpg">](https://soundcloud.com/producedbythekids/nirvana-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzXgmZQdSNijCm6w-yK976A-t500x500.jpg">](https://soundcloud.com/mellow_bender/the-days-flip-final1)
 
-**Artist**: The Kids 
+**Artist**: Mellow Bender 
 
-**Track**: NIRVANA (God In Designer)
+**Track**: Chrystal - The Days (Mellow Bender Flip)
 
-Last updated at 6/11/2025, 9:45:41 AM
+Last updated at 6/11/2025, 9:46:41 AM
