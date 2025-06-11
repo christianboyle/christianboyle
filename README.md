@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jkr7s6VE7kuV8M43-N4yH3Q-t500x500.png">](https://soundcloud.com/phydrabass/thew-phydra-live-at-untz-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Py5V6mZ4LsAVbop-ZG8Lbw-t500x500.png">](https://soundcloud.com/l-a-t-c/mix005-citysproblem)
 
-**Artist**: Phydra, Thew 
+**Artist**: Leeds Ambient Trance Community 
 
-**Track**: Thew & Phydra live at Untz 2025
+**Track**: mix005 - CITYSPROBLEM
 
-Last updated at 6/10/2025, 8:26:52 AM
+Last updated at 6/10/2025, 8:11:55 PM
