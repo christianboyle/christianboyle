@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ICGapdG9Gfc1S7CG-wOkGCQ-t500x500.png">](https://soundcloud.com/dnzrecords/illintent-jayme-d-shiny-disco-balls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/moving-in-retrograde)
 
-**Artist**: Illintent & Jayme D 
+**Artist**: h3artch3rades 
 
-**Track**: Illintent & Jayme D - Shiny Disco Balls
+**Track**: moving in retrograde (prod.toemuro)
 
-Last updated at 6/11/2025, 3:37:31 PM
+Last updated at 6/11/2025, 3:40:12 PM
