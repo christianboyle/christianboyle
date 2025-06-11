@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msj2aQOYuFwb75Ls-lVlvYg-t500x500.png">](https://soundcloud.com/groupchatclub/jstjr-gimme-that-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NaCpNbUpbE1smiNE-TPFSZw-t500x500.jpg">](https://soundcloud.com/noise_fleet/nf-x-badroom-gotta-do-it)
 
-**Artist**: Group Chat, JSTJR 
+**Artist**: Noise Fleet, Badroom 
 
-**Track**: JSTJR - Gimme That (VIP)
+**Track**: Gotta Do It
 
-Last updated at 6/10/2025, 8:15:26 PM
+Last updated at 6/10/2025, 8:16:36 PM
