@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZQZFvUOAy1Ir0Bc-ikMBKQ-t500x500.png">](https://soundcloud.com/jgsmakina/mk-feat-chrystal-dior-jgs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O6QqwdgW3NdLY0HP-9mxWyw-t500x500.png">](https://soundcloud.com/hardcoreenergy/neekeetone-wicked-and-live?in=hardcoreenergy/sets/neekeetone-ecstatic-ep)
 
-**Artist**: JGS 
+**Artist**: Hardcore Energy 
 
-**Track**: MK Feat. Chrystal - Dior (JGS & INTENT Remix)
+**Track**: Neekeetone - Wicked And Live
 
-Last updated at 6/11/2025, 9:50:47 AM
+Last updated at 6/11/2025, 9:51:47 AM
