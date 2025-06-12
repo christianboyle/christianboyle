@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDB65X2bbQzD9pKZ-ITnzdA-t500x500.jpg">](https://soundcloud.com/technowereld/bukin-sneakster-twep010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZkrzSiTCy9siBxR5-sx71Tw-t500x500.png">](https://soundcloud.com/johnsummit/john-summit-gorgon-city-is-everybody-having-fun-ft-rhys-from-the-sticks)
 
-**Artist**: Techno Wereld, Bukin 
+**Artist**: John Summit, Gorgon City, rhys from the sticks 
 
-**Track**: Bukin - Sneakster [TWEP010]
+**Track**: John Summit & Gorgon City - Is Everybody Having Fun? (ft. rhys from the sticks) [Preview - Out 6/20]
 
-Last updated at 6/12/2025, 8:06:05 AM
+Last updated at 6/12/2025, 8:16:56 AM
