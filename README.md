@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0MjuYIqI3yBIz4c-t80xlg-t500x500.jpg">](https://soundcloud.com/lysrgix/nero-taiki-nulight-862584417)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCzGsheI0Hm7SSLu-HxVVWQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-time)
 
-**Artist**: Lysrgix 
+**Artist**: DRIFT 
 
-**Track**: Nero, Taiki Nulight - Innocence 2025 (lysrgix flip)
+**Track**: DRIFT & IRWIIN - TIME
 
-Last updated at 6/12/2025, 8:48:48 AM
+Last updated at 6/12/2025, 8:52:59 AM
