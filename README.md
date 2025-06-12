@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LqTUcOcmQYYYfGR-W1WMdA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/igda-ani-little-rave-planet-no-mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y0MjuYIqI3yBIz4c-t80xlg-t500x500.jpg">](https://soundcloud.com/lysrgix/nero-taiki-nulight-862584417)
 
-**Artist**: NO MERCY 
+**Artist**: Lysrgix 
 
-**Track**: IGDA & A.N.I. - Little Rave Planet [No Mercy]
+**Track**: Nero, Taiki Nulight - Innocence 2025 (lysrgix flip)
 
-Last updated at 6/12/2025, 8:42:23 AM
+Last updated at 6/12/2025, 8:48:48 AM
