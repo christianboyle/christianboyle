@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaO8ntDra0v1uRdv-ssJlug-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-we-aint-here-for-long)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LqTUcOcmQYYYfGR-W1WMdA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/igda-ani-little-rave-planet-no-mercy)
 
-**Artist**: CrazyHutz 
+**Artist**: NO MERCY 
 
-**Track**: CrazyHutz - We Ain't Here For Long
+**Track**: IGDA & A.N.I. - Little Rave Planet [No Mercy]
 
-Last updated at 6/12/2025, 8:38:48 AM
+Last updated at 6/12/2025, 8:42:23 AM
