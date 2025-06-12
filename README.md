@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bEUf7HYusFdQUZbL-78V20Q-t500x500.png">](https://soundcloud.com/dukezofficial/secret-recipe-the-chromatic-ribbon-dukez-remix-final-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTQnaemHUCsL2gCb-lFzpOw-t500x500.jpg">](https://soundcloud.com/carlokalu/tsunami-carlo-kalu-hard-2)
 
-**Artist**: Dukez 
+**Artist**: carlo kalu 
 
-**Track**: Secret Recipe - The Chromatic Ribbon (Dukez Remix)
+**Track**: DVBBS & Borgeous - TSUNAMI (carlo kalu "HARD TECHNO" EDIT)
 
-Last updated at 6/12/2025, 8:21:07 AM
+Last updated at 6/12/2025, 8:22:07 AM
