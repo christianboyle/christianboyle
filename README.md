@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkRtx2lA85FK-0-t500x500.jpg">](https://soundcloud.com/heyzmsc/feed-ya-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1PrLBvBwPtfC3I-sA8PvA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-the-saints-og-raver)
 
-**Artist**: Heyz 
+**Artist**: The Purge, The Saints 
 
-**Track**: Feed Ya Soul
+**Track**: The Purge & The Saints - OG RAVER
 
-Last updated at 6/12/2025, 8:26:32 AM
+Last updated at 6/12/2025, 8:32:22 AM
