@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZkrzSiTCy9siBxR5-sx71Tw-t500x500.png">](https://soundcloud.com/johnsummit/john-summit-gorgon-city-is-everybody-having-fun-ft-rhys-from-the-sticks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bEUf7HYusFdQUZbL-78V20Q-t500x500.png">](https://soundcloud.com/dukezofficial/secret-recipe-the-chromatic-ribbon-dukez-remix-final-master)
 
-**Artist**: John Summit, Gorgon City, rhys from the sticks 
+**Artist**: Dukez 
 
-**Track**: John Summit & Gorgon City - Is Everybody Having Fun? (ft. rhys from the sticks) [Preview - Out 6/20]
+**Track**: Secret Recipe - The Chromatic Ribbon (Dukez Remix)
 
-Last updated at 6/12/2025, 8:16:56 AM
+Last updated at 6/12/2025, 8:21:07 AM
