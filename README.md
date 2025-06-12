@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abyOifyzyboJwUMJ-lGT0GA-t500x500.png">](https://soundcloud.com/ezrahazardextra/ilikeit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7FHh6y7xoZiD1oP-mBMWsQ-t500x500.png">](https://soundcloud.com/groupchatclub/t-a-n-e-hotbox)
 
-**Artist**: Ezra Hazard, Blink, The Infamous 
+**Artist**: T A N E, Group Chat 
 
-**Track**: I LIKE IT
+**Track**: T A N E - HOTBOX
 
-Last updated at 6/12/2025, 8:00:20 AM
+Last updated at 6/12/2025, 8:01:45 AM
