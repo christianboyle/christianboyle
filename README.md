@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1PrLBvBwPtfC3I-sA8PvA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-the-saints-og-raver)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDB65X2bbQzD9pKZ-ITnzdA-t500x500.jpg">](https://soundcloud.com/technowereld/bukin-sneakster-twep010)
 
-**Artist**: The Purge, The Saints 
+**Artist**: Techno Wereld, Bukin 
 
-**Track**: The Purge & The Saints - OG RAVER
+**Track**: Bukin - Sneakster [TWEP010]
 
-Last updated at 6/12/2025, 8:05:05 AM
+Last updated at 6/12/2025, 8:06:05 AM
