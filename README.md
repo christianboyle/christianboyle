@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rbUFDgb5kBynZbl-nAf24g-t500x500.png">](https://soundcloud.com/promis3/yeahyeahvondutch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaO8ntDra0v1uRdv-ssJlug-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-we-aint-here-for-long)
 
-**Artist**: Promis3 
+**Artist**: CrazyHutz 
 
-**Track**: [FREE DL] Promis3 - Yeah Yeah Von Dutch
+**Track**: CrazyHutz - We Ain't Here For Long
 
-Last updated at 6/12/2025, 8:35:17 AM
+Last updated at 6/12/2025, 8:38:48 AM
