@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C72tohW5KsIVcFu3-jEL4BQ-t500x500.png">](https://soundcloud.com/l-a-t-c/006-moistbreezy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abyOifyzyboJwUMJ-lGT0GA-t500x500.png">](https://soundcloud.com/ezrahazardextra/ilikeit)
 
-**Artist**: moistbreezy 
+**Artist**: Ezra Hazard, Blink, The Infamous 
 
-**Track**: mix006 - moistbreezy
+**Track**: I LIKE IT
 
-Last updated at 6/12/2025, 6:48:38 AM
+Last updated at 6/12/2025, 8:00:20 AM
