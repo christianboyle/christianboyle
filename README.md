@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kAMhxhyuu32YvNLf-UlgA4w-t500x500.jpg">](https://soundcloud.com/h3artch3rades/moving-in-retrograde)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C72tohW5KsIVcFu3-jEL4BQ-t500x500.png">](https://soundcloud.com/l-a-t-c/006-moistbreezy)
 
-**Artist**: h3artch3rades 
+**Artist**: moistbreezy 
 
-**Track**: moving in retrograde (prod.toemuro)
+**Track**: mix006 - moistbreezy
 
-Last updated at 6/11/2025, 3:40:12 PM
+Last updated at 6/12/2025, 6:27:08 AM
