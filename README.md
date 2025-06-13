@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dLbcyfqZuqajMfba-x5v59A-t500x500.png">](https://soundcloud.com/bo0tyleak/diyl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twlChOBuCycPAa2Y-TnWPWA-t500x500.png">](https://soundcloud.com/itsedisoncole/skrillex-voltage-edison-cole)
 
-**Artist**: Elle Blue, Alosa, BOOTY LEAK 
+**Artist**: EDISON COLE 
 
-**Track**: Elle Blue + Alosa & Booty Leak - Deep In Your Love [ FREE DOWNLOAD ]
+**Track**: SKRILLEX - VOLTAGE (EDISON COLE REMIX)
 
-Last updated at 6/13/2025, 1:00:47 PM
+Last updated at 6/13/2025, 1:02:37 PM
