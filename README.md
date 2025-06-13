@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RwDw3CpQuJA7E3rj-hyKzzQ-t500x500.png">](https://soundcloud.com/kozmic-energy/evanescence-bring-me-to-life-kozmic-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UcrMy9IISY0gdv9z-vu0IDw-t500x500.png">](https://soundcloud.com/bassgazm/dont-slip-fip)
 
-**Artist**: Kozmic 
+**Artist**: BASSGAZM 
 
-**Track**: Evanescence- Bring Me To Life (Kozmic Remix)
+**Track**: Stinkahbell - Don't Slip (Bassgazm Flip)
 
-Last updated at 6/13/2025, 12:34:39 PM
+Last updated at 6/13/2025, 12:35:39 PM
