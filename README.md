@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5S6dbvGPvsXmRmsT-YxsVSg-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-jaxm-freestyler)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wC7urzSw7MGGU0z2-bUpTZA-t500x500.jpg">](https://soundcloud.com/irvzofficial/calvin-harris-x-the-weeknd)
 
-**Artist**: TRANSITION 
+**Artist**: irVz 
 
-**Track**: PREMIERE: JÄXM – Freestyler
+**Track**: Calvin Harris x The Weeknd - Blessing's Come Often (irVz Mashup)
 
-Last updated at 6/13/2025, 1:04:57 PM
+Last updated at 6/13/2025, 1:08:12 PM
