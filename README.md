@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9rbUFDgb5kBynZbl-nAf24g-t500x500.png">](https://soundcloud.com/promis3/yeahyeahvondutch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1PrLBvBwPtfC3I-sA8PvA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-the-saints-og-raver)
 
-**Artist**: Promis3 
+**Artist**: The Purge, The Saints 
 
-**Track**: [FREE DL] Promis3 - Yeah Yeah Von Dutch
+**Track**: The Purge & The Saints - OG RAVER
 
-Last updated at 6/12/2025, 8:44:19 PM
+Last updated at 6/13/2025, 6:30:54 AM
