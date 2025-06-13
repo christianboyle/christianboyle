@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlCZ1PeyfPkE8SsR-Q9CCOA-t500x500.png">](https://soundcloud.com/shedtheory/basket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CHPeq6xOSNC7Rxh6-oCOvZQ-t500x500.png">](https://soundcloud.com/jkjmetasco/no-sleep-cranes-luvpurp)
 
-**Artist**: Shed Theory 
+**Artist**: jkjmetasco 
 
-**Track**: BASKET
+**Track**: no sleep (cranes luvpurp)
 
-Last updated at 6/13/2025, 4:07:41 PM
+Last updated at 6/13/2025, 4:09:11 PM
