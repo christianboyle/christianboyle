@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CHPeq6xOSNC7Rxh6-oCOvZQ-t500x500.png">](https://soundcloud.com/jkjmetasco/no-sleep-cranes-luvpurp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdzaSeRO1dzizVgf-XQjGZA-t500x500.jpg">](https://soundcloud.com/hanamisounds/hirobbie-seah-oh-my-gosh)
 
-**Artist**: jkjmetasco 
+**Artist**: HANAMI 
 
-**Track**: no sleep (cranes luvpurp)
+**Track**: hiRobbie & Seah - Oh My Gosh Dub [FREE DOWNLOAD]
 
-Last updated at 6/13/2025, 4:09:11 PM
+Last updated at 6/13/2025, 4:10:11 PM
