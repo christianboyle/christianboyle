@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wSpEaBILdAiW33pU-ySfm0w-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/my-bubble-gum-sonorous-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q5CUedQHZ8HKqNWa-ks5ryQ-t500x500.jpg">](https://soundcloud.com/neo_trance/premiere-jane-genesis)
 
-**Artist**: Sonorous 
+**Artist**: Jane 
 
-**Track**: My Bubble Gum (Sonorous Flip)
+**Track**: JANE - Me & You
 
-Last updated at 6/13/2025, 1:11:32 PM
+Last updated at 6/13/2025, 3:11:16 PM
