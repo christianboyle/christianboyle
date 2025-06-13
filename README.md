@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TCzGsheI0Hm7SSLu-HxVVWQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1PrLBvBwPtfC3I-sA8PvA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-the-saints-og-raver)
 
-**Artist**: DRIFT 
+**Artist**: The Purge, The Saints 
 
-**Track**: DRIFT & IRWIIN - TIME
+**Track**: The Purge & The Saints - OG RAVER
 
-Last updated at 6/12/2025, 8:52:59 AM
+Last updated at 6/12/2025, 8:20:10 PM
