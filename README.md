@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kG7EQkCXR5Og8g0c-2bga2g-t500x500.png">](https://soundcloud.com/theelectricmovement/brainable-guest-mix-monday-movement-151)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RwDw3CpQuJA7E3rj-hyKzzQ-t500x500.png">](https://soundcloud.com/kozmic-energy/evanescence-bring-me-to-life-kozmic-remix)
 
-**Artist**: The Electric Movement, Brainable 
+**Artist**: Kozmic 
 
-**Track**: Brainable Guest Mix - Monday Movement (#151)
+**Track**: Evanescence- Bring Me To Life (Kozmic Remix)
 
-Last updated at 6/13/2025, 12:33:29 PM
+Last updated at 6/13/2025, 12:34:39 PM
