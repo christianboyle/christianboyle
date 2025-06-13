@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9pbvbMvlMnylkkj-iepYIA-t500x500.jpg">](https://soundcloud.com/justin-fallon12/discoland-sc-edit-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wSpEaBILdAiW33pU-ySfm0w-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/my-bubble-gum-sonorous-flip)
 
-**Artist**: Justin Fallon-vennootschap 
+**Artist**: Sonorous 
 
-**Track**: DISCOLAND SAMPLE
+**Track**: My Bubble Gum (Sonorous Flip)
 
-Last updated at 6/13/2025, 1:10:32 PM
+Last updated at 6/13/2025, 1:11:32 PM
