@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twlChOBuCycPAa2Y-TnWPWA-t500x500.png">](https://soundcloud.com/itsedisoncole/skrillex-voltage-edison-cole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uizMZL5lFD61t3ML-imnYnQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/psyko-punkz-holy-forever)
 
-**Artist**: EDISON COLE 
+**Artist**: Psyko Punkz 
 
-**Track**: SKRILLEX - VOLTAGE (EDISON COLE REMIX)
+**Track**: Psyko Punkz - Holy Forever
 
-Last updated at 6/13/2025, 1:02:37 PM
+Last updated at 6/13/2025, 1:03:37 PM
