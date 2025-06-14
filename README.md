@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V8luqGgHC2OrmDiw-zrE2lA-t500x500.jpg">](https://soundcloud.com/aceonearth/stay-in-the-moment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mp49Q4LiTXXjW19c-yYUBXQ-t500x500.png">](https://soundcloud.com/bignslim/firstofthemonth)
 
-**Artist**: Ace On Earth 
+**Artist**: BIG N SLIM 
 
-**Track**: Stay In The Moment
+**Track**: Bone Thugs N Harmony - First Of The Month (Big N Slim Suplex)
 
-Last updated at 6/14/2025, 10:50:02 AM
+Last updated at 6/14/2025, 10:51:03 AM
