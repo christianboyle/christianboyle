@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mp49Q4LiTXXjW19c-yYUBXQ-t500x500.png">](https://soundcloud.com/bignslim/firstofthemonth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8qFR2jmJGvWZvfMJ-YCuhgQ-t500x500.jpg">](https://soundcloud.com/clonememusic/billie-eilish-khalid-lovely-cloneme-remix)
 
-**Artist**: BIG N SLIM 
+**Artist**: Clone.Me 
 
-**Track**: Bone Thugs N Harmony - First Of The Month (Big N Slim Suplex)
+**Track**: Billie Eilish & Khalid - lovely (Clone.Me Remix)
 
-Last updated at 6/14/2025, 10:51:03 AM
+Last updated at 6/14/2025, 10:52:13 AM
