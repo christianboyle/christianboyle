@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6L4FDApNzReHtzz4-cN9tnA-t500x500.jpg">](https://soundcloud.com/psykeduk/charlie-shell-tyne-bridge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RMyQCsecPZhszeEr-hSf0Zg-t500x500.jpg">](https://soundcloud.com/nemo-roland-223880618/nmo-oiia-oiia-oiia-spinning)
 
-**Artist**: Psyked 
+**Artist**: NMO 
 
-**Track**: Charlie Shell - Tyne Bridge
+**Track**: NMO - OIIA OIIA OIIA (SPINNING CAT) (HT FLIP)
 
-Last updated at 6/14/2025, 11:00:04 AM
+Last updated at 6/14/2025, 3:07:07 PM
