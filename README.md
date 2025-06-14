@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lKzsKPiuYZyQnVES-CKdnkw-t500x500.jpg">](https://soundcloud.com/m8trx/dior-ftcu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8StXyg32OWz9hvGZ-ebUbnA-t500x500.jpg">](https://soundcloud.com/dayeoffer/darth-sidious)
 
-**Artist**: M8TRX 
+**Artist**: dayeoffer 
 
-**Track**: DIOR/FTCU
+**Track**: @dayeoffer - darth sidious + noonoffer #ME [1ner0un]
 
-Last updated at 6/14/2025, 10:53:13 AM
+Last updated at 6/14/2025, 10:54:13 AM
