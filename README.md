@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezLeYdp57NpYVK08-rO1sXQ-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-bounce-vol-73-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXg61PO3Q2JJgIdR-H2MBkA-t500x500.jpg">](https://soundcloud.com/dodgeyboy85/dodgyazzym-mp3)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: Dodge 
 
-**Track**: Dj Ainzi - Bounce Vol 73
+**Track**: Dodge&AzzyM-Hardbass Hooligans2
 
-Last updated at 6/14/2025, 9:32:33 AM
+Last updated at 6/14/2025, 10:28:50 AM
