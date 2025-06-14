@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPH9YHGmJvueObrR-r3WY7A-t500x500.jpg">](https://soundcloud.com/chroma-tone-records/flkn-she-said)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-39pzQzU8xMdVmzDe-aOefIA-t500x500.png">](https://soundcloud.com/advmbombmusic/skrillex-jugundra-advm-bomb-remix-19)
 
-**Artist**: FLKN 
+**Artist**: ADVM BOMB, SKRILLEX 
 
-**Track**: FLKN - She Said
+**Track**: SKRILLEX - JUGUNDRA [ADVM BOMB REMIX]
 
-Last updated at 6/14/2025, 9:28:13 AM
+Last updated at 6/14/2025, 9:30:53 AM
