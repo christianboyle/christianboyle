@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-39pzQzU8xMdVmzDe-aOefIA-t500x500.png">](https://soundcloud.com/advmbombmusic/skrillex-jugundra-advm-bomb-remix-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezLeYdp57NpYVK08-rO1sXQ-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-bounce-vol-73-1)
 
-**Artist**: ADVM BOMB, SKRILLEX 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: SKRILLEX - JUGUNDRA [ADVM BOMB REMIX]
+**Track**: Dj Ainzi - Bounce Vol 73
 
-Last updated at 6/14/2025, 9:30:53 AM
+Last updated at 6/14/2025, 9:32:33 AM
