@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlCZ1PeyfPkE8SsR-Q9CCOA-t500x500.png">](https://soundcloud.com/shedtheory/basket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CPH9YHGmJvueObrR-r3WY7A-t500x500.jpg">](https://soundcloud.com/chroma-tone-records/flkn-she-said)
 
-**Artist**: Shed Theory 
+**Artist**: FLKN 
 
-**Track**: BASKET
+**Track**: FLKN - She Said
 
-Last updated at 6/14/2025, 9:26:53 AM
+Last updated at 6/14/2025, 9:28:13 AM
