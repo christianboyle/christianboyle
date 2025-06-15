@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NBPSsL7E51JzvSbr-Fk8vzA-t500x500.png">](https://soundcloud.com/flomatik/the-other-side)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4RQdRM0zHL3mSyB4-kpAWSQ-t500x500.jpg">](https://soundcloud.com/theelectricmovement/tpiston-feelin-irie-feat)
 
-**Artist**: Flomatik 
+**Artist**: Tpiston, Taiwan MC 
 
-**Track**: The Other Side
+**Track**: Tpiston - Feelin Irie Feat. Taiwan MC
 
-Last updated at 6/15/2025, 4:15:52 PM
+Last updated at 6/15/2025, 4:18:38 PM
