@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4RQdRM0zHL3mSyB4-kpAWSQ-t500x500.jpg">](https://soundcloud.com/theelectricmovement/tpiston-feelin-irie-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IkI2YvAfelzXf7Gi-huEFpg-t500x500.jpg">](https://soundcloud.com/journey_dubz/war-face-dnb)
 
-**Artist**: Tpiston, Taiwan MC 
+**Artist**: journey. 
 
-**Track**: Tpiston - Feelin Irie Feat. Taiwan MC
+**Track**: WAR FACE
 
-Last updated at 6/15/2025, 4:18:38 PM
+Last updated at 6/15/2025, 4:19:43 PM
