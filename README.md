@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PKBgfFJrmdyLtGDW-uKaOYw-t500x500.png">](https://soundcloud.com/superrobekitty/idiottt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZKgAtqiHGtpW2jf-SdNCxQ-t500x500.jpg">](https://soundcloud.com/morflorecords/gardella-ag-dolce)
 
-**Artist**: Suroki 
+**Artist**: Gardella, AG 
 
-**Track**: IDIOTTT
+**Track**: Gardella & AG - DOLCE
 
-Last updated at 6/15/2025, 4:26:54 PM
+Last updated at 6/15/2025, 4:28:09 PM
