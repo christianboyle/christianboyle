@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8StXyg32OWz9hvGZ-ebUbnA-t500x500.jpg">](https://soundcloud.com/dayeoffer/darth-sidious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w0OxApz6MtzQZaj8-b8zhAQ-t500x500.jpg">](https://soundcloud.com/deepinparis2/rotten)
 
-**Artist**: dayeoffer 
+**Artist**: deepinparis, The legend, crvnchy, kurse11 
 
-**Track**: @dayeoffer - darth sidious + noonoffer #ME [1ner0un]
+**Track**: rotten
 
-Last updated at 6/15/2025, 3:21:22 PM
+Last updated at 6/15/2025, 4:12:37 PM
