@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w0OxApz6MtzQZaj8-b8zhAQ-t500x500.jpg">](https://soundcloud.com/deepinparis2/rotten)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NBPSsL7E51JzvSbr-Fk8vzA-t500x500.png">](https://soundcloud.com/flomatik/the-other-side)
 
-**Artist**: deepinparis, The legend, crvnchy, kurse11 
+**Artist**: Flomatik 
 
-**Track**: rotten
+**Track**: The Other Side
 
-Last updated at 6/15/2025, 4:12:37 PM
+Last updated at 6/15/2025, 4:15:52 PM
