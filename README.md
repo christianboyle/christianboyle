@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RMyQCsecPZhszeEr-hSf0Zg-t500x500.jpg">](https://soundcloud.com/nemo-roland-223880618/nmo-oiia-oiia-oiia-spinning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1PrLBvBwPtfC3I-sA8PvA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-the-saints-og-raver)
 
-**Artist**: NMO 
+**Artist**: The Purge, The Saints 
 
-**Track**: NMO - OIIA OIIA OIIA (SPINNING CAT) (HT FLIP)
+**Track**: The Purge & The Saints - OG RAVER
 
-Last updated at 6/16/2025, 9:23:36 AM
+Last updated at 6/16/2025, 9:28:06 AM
