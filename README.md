@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgzRVDSuSVVMSJN-w0bpFw-t500x500.png">](https://soundcloud.com/houseofhustle/skonka-theconnect-tokyo-t-shaka-extended-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iCnIfffyr4hTC1yd-UKNdyw-t500x500.jpg">](https://soundcloud.com/user-732083412/wait-he-said)
 
-**Artist**: Skonka, TheConnect, Tokyo T 
+**Artist**: bino's bin 
 
-**Track**: Skonka, TheConnect, Tokyo T - Shaka (Extended Mix)
+**Track**: windwoods
 
-Last updated at 6/16/2025, 11:05:18 AM
+Last updated at 6/16/2025, 11:06:18 AM
