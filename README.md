@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8Xz3n8HXYuyXrU9-ToZgMQ-t500x500.png">](https://soundcloud.com/sihk66/memphis-cult-9mm-ft-groove-dealers-splyxer-sihks-jumpstyle-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8Z8lsmQgpdULHFm-iY2bZQ-t500x500.png">](https://soundcloud.com/dnzrecords/ascenderz-feeling-high)
 
-**Artist**: SIHK 
+**Artist**: AscenderZ 
 
-**Track**: Memphis Cult - 9mm ft. Groove Dealers, SPLYXER (Sihk's Jumpstyle Edit) FREE DL
+**Track**: AscenderZ - Feeling High
 
-Last updated at 6/16/2025, 11:25:05 AM
+Last updated at 6/16/2025, 5:43:46 PM
