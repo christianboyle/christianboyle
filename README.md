@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iCnIfffyr4hTC1yd-UKNdyw-t500x500.jpg">](https://soundcloud.com/user-732083412/wait-he-said)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdMyKvwOEJAMLxBd-QYznsw-t500x500.png">](https://soundcloud.com/bo0tyleak/aomm)
 
-**Artist**: bino's bin 
+**Artist**: Alosa, BOOTY LEAK, Elle Blue 
 
-**Track**: windwoods
+**Track**: Alosa + Booty Leak & Elle Blue - Always On My Mind [ FREE DOWNLOAD ]
 
-Last updated at 6/16/2025, 11:06:18 AM
+Last updated at 6/16/2025, 11:07:18 AM
