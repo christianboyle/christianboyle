@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xb6wVETvRaLtPz1z-VulhWA-t500x500.png">](https://soundcloud.com/dnzrecords/chumari-dj-why-dont-you-get-a-job)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzDoZGoamTGnJN5w-9DEIiA-t500x500.jpg">](https://soundcloud.com/user-191809038/weist-du-was-ich-meine-kakuzi-free-dl)
 
-**Artist**: Chumari DJ 
+**Artist**: KAKUZI 
 
-**Track**: Chumari DJ - Why Don't You Get A Job
+**Track**: KAKUZI - weißt du was ich meine? (FREE DL)
 
-Last updated at 6/16/2025, 9:46:18 AM
+Last updated at 6/16/2025, 11:04:18 AM
