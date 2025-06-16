@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kzDoZGoamTGnJN5w-9DEIiA-t500x500.jpg">](https://soundcloud.com/user-191809038/weist-du-was-ich-meine-kakuzi-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twgzRVDSuSVVMSJN-w0bpFw-t500x500.png">](https://soundcloud.com/houseofhustle/skonka-theconnect-tokyo-t-shaka-extended-mix-1)
 
-**Artist**: KAKUZI 
+**Artist**: Skonka, TheConnect, Tokyo T 
 
-**Track**: KAKUZI - weißt du was ich meine? (FREE DL)
+**Track**: Skonka, TheConnect, Tokyo T - Shaka (Extended Mix)
 
-Last updated at 6/16/2025, 11:04:18 AM
+Last updated at 6/16/2025, 11:05:18 AM
