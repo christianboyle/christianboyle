@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LqTUcOcmQYYYfGR-W1WMdA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/igda-ani-little-rave-planet-no-mercy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FbAhWbkxjDXpYKz6-V4qpEg-t500x500.png">](https://soundcloud.com/mickjay67/mickjay-find-myself-sc-sample)
 
-**Artist**: NO MERCY 
+**Artist**: MickJay 
 
-**Track**: IGDA & A.N.I. - Little Rave Planet [No Mercy]
+**Track**: MickJay - Find Myself (SC Sample)
 
-Last updated at 6/16/2025, 9:38:07 AM
+Last updated at 6/16/2025, 9:42:18 AM
