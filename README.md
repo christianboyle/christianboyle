@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZKgAtqiHGtpW2jf-SdNCxQ-t500x500.jpg">](https://soundcloud.com/morflorecords/gardella-ag-dolce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8StXyg32OWz9hvGZ-ebUbnA-t500x500.jpg">](https://soundcloud.com/dayeoffer/darth-sidious)
 
-**Artist**: Gardella, AG 
+**Artist**: dayeoffer 
 
-**Track**: Gardella & AG - DOLCE
+**Track**: @dayeoffer - darth sidious + noonoffer #ME [1ner0un]
 
-Last updated at 6/16/2025, 6:35:47 AM
+Last updated at 6/16/2025, 8:55:38 AM
