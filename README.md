@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj6GSUTfRq2TtSio-kyFeLA-t500x500.png">](https://soundcloud.com/djstoker/daylight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mO9XleKzA6LB5Url-FRyWhA-t500x500.png">](https://soundcloud.com/noxxium/different-laika-contaminated)
 
-**Artist**: Dirty Donk DJs 
+**Artist**: Noxxium 
 
-**Track**: Daylight
+**Track**: Different - Laika (Contaminated by NOXXIUM)
 
-Last updated at 6/16/2025, 11:17:44 AM
+Last updated at 6/16/2025, 11:18:44 AM
