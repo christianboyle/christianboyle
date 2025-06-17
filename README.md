@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5PkGLgaZODMJriR7-26Ix8w-t500x500.jpg">](https://soundcloud.com/cuntryclub/013-p-r-i-n-c-e-s-s-e-l-f-b-a-r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDRFyPMNujn1UisV-JU4Shw-t500x500.png">](https://soundcloud.com/fervormusic/7dca0d16-ef9f-4a22-9ee1-b19c0524f23e)
 
-**Artist**: Cuntry Club 
+**Artist**: Fervor, aether 
 
-**Track**: ☊ 𝒞𝒞 ☊ ₘᵢₓ ₛₑᵣᵢₑ.013: P R I N C E S S      E L F   B A R
+**Track**: Fervor X aether - Gimmie That
 
-Last updated at 6/17/2025, 8:18:35 AM
+Last updated at 6/17/2025, 8:19:56 AM
