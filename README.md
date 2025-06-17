@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxO5DfqarIB9Gz1i-NzMrUg-t500x500.png">](https://soundcloud.com/utr2/aprd-crazy-kikker-free-download?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHqlGx1zeph36jbI-NGpuVA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/bite-back-kurei-remix?in=saxurn/sets/flavortown)
 
-**Artist**: APRD 
+**Artist**: Mantra Sounds, Glass Arrowhead 
 
-**Track**: APRD - Crazy Kikker [Free Download]
+**Track**: Bite Back (Kurei Remix)
 
-Last updated at 6/17/2025, 9:34:25 AM
+Last updated at 6/17/2025, 11:19:39 AM
