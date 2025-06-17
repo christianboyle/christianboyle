@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlCZ1PeyfPkE8SsR-Q9CCOA-t500x500.png">](https://soundcloud.com/shedtheory/basket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K8g7skh5Swpf0BZ-yFGkfA-t500x500.jpg">](https://soundcloud.com/jpky/turn-down-for-what-jpkyflip?in=saxurn/sets/flavortown)
 
-**Artist**: Shed Theory 
+**Artist**: JPKy 
 
-**Track**: BASKET
+**Track**: dj snake, lil jon - turn down for what (jpky flip)
 
-Last updated at 6/17/2025, 9:09:59 AM
+Last updated at 6/17/2025, 9:11:00 AM
