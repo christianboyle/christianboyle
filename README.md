@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9PTH83hTplkY38Y-WOp0zw-t500x500.png">](https://soundcloud.com/dnzrecords/jonny-p-edge-of-the-ocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYyyoeQjyzOJgVBe-1opvBg-t500x500.jpg">](https://soundcloud.com/djstoker/dirty-donk-djs-the-complete?in=djstoker/sets/dirty-donk-djs-usb)
 
-**Artist**: Jonny P 
+**Artist**: Stoker | Dirty Donk DJs 
 
-**Track**: Jonny P - Edge Of The Ocean
+**Track**: Dirty Donk DJs - The Complete Collection USB
 
-Last updated at 6/17/2025, 7:52:14 AM
+Last updated at 6/17/2025, 7:53:34 AM
