@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wSpEaBILdAiW33pU-ySfm0w-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/my-bubble-gum-sonorous-flip?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LqTUcOcmQYYYfGR-W1WMdA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/igda-ani-little-rave-planet-no-mercy?in=saxurn/sets/flavortown)
 
-**Artist**: Sonorous 
+**Artist**: NO MERCY 
 
-**Track**: My Bubble Gum (Sonorous Flip)
+**Track**: IGDA & A.N.I. - Little Rave Planet [No Mercy]
 
-Last updated at 6/17/2025, 9:26:54 AM
+Last updated at 6/17/2025, 9:30:14 AM
