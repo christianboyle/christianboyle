@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHqlGx1zeph36jbI-NGpuVA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/bite-back-kurei-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
 
-**Artist**: Mantra Sounds, Glass Arrowhead 
+**Artist**: DJ.Rossco 
 
-**Track**: Bite Back (Kurei Remix)
+**Track**: Summer 2025mix
 
-Last updated at 6/17/2025, 1:40:17 PM
+Last updated at 6/17/2025, 3:01:38 PM
