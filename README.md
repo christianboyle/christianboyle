@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mGIwXRyCPS3CWKpp-pP9ibg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-pulse-wings)
 
-**Artist**: DJ.Rossco 
+**Artist**: DJ Pulse 
 
-**Track**: Summer 2025mix
+**Track**: DJ Pulse - Wings
 
-Last updated at 6/17/2025, 3:01:38 PM
+Last updated at 6/17/2025, 3:17:23 PM
