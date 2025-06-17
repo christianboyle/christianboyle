@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K8g7skh5Swpf0BZ-yFGkfA-t500x500.jpg">](https://soundcloud.com/jpky/turn-down-for-what-jpkyflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6L4FDApNzReHtzz4-cN9tnA-t500x500.jpg">](https://soundcloud.com/psykeduk/charlie-shell-tyne-bridge)
 
-**Artist**: JPKy 
+**Artist**: Psyked 
 
-**Track**: dj snake, lil jon - turn down for what (jpky flip)
+**Track**: Charlie Shell - Tyne Bridge
 
-Last updated at 6/17/2025, 8:45:35 AM
+Last updated at 6/17/2025, 8:46:35 AM
