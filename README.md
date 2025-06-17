@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydHO7TysmzuqgMVR-aoDxnA-t500x500.jpg">](https://soundcloud.com/mahisound/sadeness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KFECiGskqewOHUgz-CaOz0Q-t500x500.png">](https://soundcloud.com/10xxmusic/letitrockbootleg)
 
-**Artist**: MAHI 
+**Artist**: 10xx 
 
-**Track**: sadeness unreleased
+**Track**: Kevin Rudolf - Let It Rock (10xx DnB Bootleg)
 
-Last updated at 6/17/2025, 7:54:34 AM
+Last updated at 6/17/2025, 7:58:10 AM
