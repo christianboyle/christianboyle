@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LqTUcOcmQYYYfGR-W1WMdA-t500x500.jpg">](https://soundcloud.com/no-mercy-label/igda-ani-little-rave-planet-no-mercy?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxO5DfqarIB9Gz1i-NzMrUg-t500x500.png">](https://soundcloud.com/utr2/aprd-crazy-kikker-free-download?in=saxurn/sets/flavortown)
 
-**Artist**: NO MERCY 
+**Artist**: APRD 
 
-**Track**: IGDA & A.N.I. - Little Rave Planet [No Mercy]
+**Track**: APRD - Crazy Kikker [Free Download]
 
-Last updated at 6/17/2025, 9:30:14 AM
+Last updated at 6/17/2025, 9:34:25 AM
