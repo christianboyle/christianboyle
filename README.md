@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6L4FDApNzReHtzz4-cN9tnA-t500x500.jpg">](https://soundcloud.com/psykeduk/charlie-shell-tyne-bridge?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DlCZ1PeyfPkE8SsR-Q9CCOA-t500x500.png">](https://soundcloud.com/shedtheory/basket?in=saxurn/sets/flavortown)
 
-**Artist**: Psyked 
+**Artist**: Shed Theory 
 
-**Track**: Charlie Shell - Tyne Bridge
+**Track**: BASKET
 
-Last updated at 6/17/2025, 9:00:05 AM
+Last updated at 6/17/2025, 9:07:50 AM
