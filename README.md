@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NcFNPSfcPRFEyDaX-0IV9kQ-t500x500.jpg">](https://soundcloud.com/justin-fallon12/lost-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
 
-**Artist**: Justin Fallon-vennootschap 
+**Artist**: DJ.Rossco 
 
-**Track**: LOST SAMPLE
+**Track**: Summer 2025mix
 
-Last updated at 6/17/2025, 5:08:16 PM
+Last updated at 6/17/2025, 5:38:04 PM
