@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KFECiGskqewOHUgz-CaOz0Q-t500x500.png">](https://soundcloud.com/10xxmusic/letitrockbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pra7I4WGPRzZl8A5-ezt4yA-t500x500.png">](https://soundcloud.com/thelogcabin/murkin-em)
 
-**Artist**: 10xx 
+**Artist**: The Log Cabin 
 
-**Track**: Kevin Rudolf - Let It Rock (10xx DnB Bootleg)
+**Track**: CCIV - MURKIN
 
-Last updated at 6/17/2025, 7:58:10 AM
+Last updated at 6/17/2025, 8:17:20 AM
