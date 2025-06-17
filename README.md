@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDRFyPMNujn1UisV-JU4Shw-t500x500.png">](https://soundcloud.com/fervormusic/7dca0d16-ef9f-4a22-9ee1-b19c0524f23e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1)
 
-**Artist**: Fervor, aether 
+**Artist**: minok0  
 
-**Track**: Fervor X aether - Gimmie That
+**Track**: day1 w/ lyn + deers
 
-Last updated at 6/17/2025, 8:19:56 AM
+Last updated at 6/17/2025, 8:21:08 AM
