@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SYyyoeQjyzOJgVBe-1opvBg-t500x500.jpg">](https://soundcloud.com/djstoker/dirty-donk-djs-the-complete?in=djstoker/sets/dirty-donk-djs-usb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydHO7TysmzuqgMVR-aoDxnA-t500x500.jpg">](https://soundcloud.com/mahisound/sadeness)
 
-**Artist**: Stoker | Dirty Donk DJs 
+**Artist**: MAHI 
 
-**Track**: Dirty Donk DJs - The Complete Collection USB
+**Track**: sadeness unreleased
 
-Last updated at 6/17/2025, 7:53:34 AM
+Last updated at 6/17/2025, 7:54:34 AM
