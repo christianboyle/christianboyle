@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxO5DfqarIB9Gz1i-NzMrUg-t500x500.png">](https://soundcloud.com/utr2/aprd-crazy-kikker-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6L4FDApNzReHtzz4-cN9tnA-t500x500.jpg">](https://soundcloud.com/psykeduk/charlie-shell-tyne-bridge?in=saxurn/sets/flavortown)
 
-**Artist**: APRD 
+**Artist**: Psyked 
 
-**Track**: APRD - Crazy Kikker [Free Download]
+**Track**: Charlie Shell - Tyne Bridge
 
-Last updated at 6/17/2025, 8:53:53 AM
+Last updated at 6/17/2025, 9:00:05 AM
