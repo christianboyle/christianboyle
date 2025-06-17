@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RMyQCsecPZhszeEr-hSf0Zg-t500x500.jpg">](https://soundcloud.com/nemo-roland-223880618/nmo-oiia-oiia-oiia-spinning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxO5DfqarIB9Gz1i-NzMrUg-t500x500.png">](https://soundcloud.com/utr2/aprd-crazy-kikker-free-download)
 
-**Artist**: NMO 
+**Artist**: APRD 
 
-**Track**: NMO - OIIA OIIA OIIA (SPINNING CAT) (HT FLIP)
+**Track**: APRD - Crazy Kikker [Free Download]
 
-Last updated at 6/17/2025, 8:52:42 AM
+Last updated at 6/17/2025, 8:53:53 AM
