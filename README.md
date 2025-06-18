@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5csKKPL5h1W2qsC-yvHKQQ-t500x500.png">](https://soundcloud.com/luhvmusic/outside-w-kurei-episcool?in=saxurn/sets/lavalamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8Z8lsmQgpdULHFm-iY2bZQ-t500x500.png">](https://soundcloud.com/dnzrecords/ascenderz-feeling-high?in=saxurn/sets/lavalamp)
 
-**Artist**: Luhv, Kurei, episcool 
+**Artist**: AscenderZ 
 
-**Track**: Outside w/ Kurei & episcool
+**Track**: AscenderZ - Feeling High
 
-Last updated at 6/18/2025, 10:10:09 AM
+Last updated at 6/18/2025, 10:13:44 AM
