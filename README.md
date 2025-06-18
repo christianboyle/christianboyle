@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fr4E6emPhDmcyrHH-bvEvDw-t500x500.jpg">](https://soundcloud.com/notsegan/wyha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I9AF78IXFytZeul2-084PUA-t500x500.jpg">](https://soundcloud.com/blossomdj/pretty-green-eyes)
 
-**Artist**: Segan's Selects 
+**Artist**: Blossom & Segan 
 
-**Track**: WHERE'S YOUR HEAD AT??
+**Track**: Ultrabeat - Pretty Green Eyes (Blossom & Segan Remix)
 
-Last updated at 6/18/2025, 9:18:31 AM
+Last updated at 6/18/2025, 9:19:51 AM
