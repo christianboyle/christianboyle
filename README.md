@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zj6GSUTfRq2TtSio-kyFeLA-t500x500.png">](https://soundcloud.com/djstoker/daylight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/relax)
 
-**Artist**: Dirty Donk DJs 
+**Artist**: minok0  
 
-**Track**: Daylight
+**Track**: day1 w/ lyn + deers
 
-Last updated at 6/18/2025, 10:28:50 AM
+Last updated at 6/18/2025, 10:33:47 AM
