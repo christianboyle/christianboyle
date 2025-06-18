@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxeQezKwVoZeY2Gx-KOr4ng-t500x500.png">](https://soundcloud.com/zaioni/9e04d52b-238f-4f00-95a9-88c04d294999)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYN5yPHH5BB50Eyd-rUU6jw-t500x500.jpg">](https://soundcloud.com/flexandstaticdnb/love-for-you)
 
-**Artist**: zai 
+**Artist**: FLEX AND STATIC 
 
-**Track**: Crashout
+**Track**: Marshmello, Ellie Goulding, AVAION - Save My Love (FLEX AND STATIC REMIX)
 
-Last updated at 6/18/2025, 9:16:31 AM
+Last updated at 6/18/2025, 9:17:31 AM
