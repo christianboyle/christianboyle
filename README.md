@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/lavalamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbJCFbndRr1pp4Xi-NNGn1Q-t500x500.png">](https://soundcloud.com/weewahofficial/dorrough-music-ice-cream-paint-job-weemix?in=saxurn/sets/lavalamp)
 
-**Artist**: minok0  
+**Artist**: Weewah 
 
-**Track**: day1 w/ lyn + deers
+**Track**: Dorrough Music - Ice Cream Paint Job ( Weemix )
 
-Last updated at 6/18/2025, 10:04:53 AM
+Last updated at 6/18/2025, 10:07:14 AM
