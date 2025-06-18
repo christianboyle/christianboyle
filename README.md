@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8Z8lsmQgpdULHFm-iY2bZQ-t500x500.png">](https://soundcloud.com/dnzrecords/ascenderz-feeling-high?in=saxurn/sets/lavalamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYN5yPHH5BB50Eyd-rUU6jw-t500x500.jpg">](https://soundcloud.com/flexandstaticdnb/love-for-you?in=saxurn/sets/lavalamp)
 
-**Artist**: AscenderZ 
+**Artist**: FLEX AND STATIC 
 
-**Track**: AscenderZ - Feeling High
+**Track**: Marshmello, Ellie Goulding, AVAION - Save My Love (FLEX AND STATIC REMIX)
 
-Last updated at 6/18/2025, 10:13:44 AM
+Last updated at 6/18/2025, 10:16:40 AM
