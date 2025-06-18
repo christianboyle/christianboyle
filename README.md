@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LaqdO93SDG8XRa8-kNqTyw-t500x500.png">](https://soundcloud.com/innergatetechno/premiere-fennx-333cxt-your-last-mistake?in=saxurn/sets/relax/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/relax/)
 
-**Artist**: INNERGATED 
+**Artist**: minok0  
 
-**Track**: Premiere: FennX & 333CXT - Your Last Mistake (FREE DL) [FREUL RECORDS]
+**Track**: day1 w/ lyn + deers
 
-Last updated at 6/18/2025, 11:07:28 AM
+Last updated at 6/18/2025, 5:55:35 PM
