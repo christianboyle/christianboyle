@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xb6wVETvRaLtPz1z-VulhWA-t500x500.png">](https://soundcloud.com/dnzrecords/chumari-dj-why-dont-you-get-a-job)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
 
-**Artist**: Chumari DJ 
+**Artist**: DJ.Rossco 
 
-**Track**: Chumari DJ - Why Don't You Get A Job
+**Track**: Summer 2025mix
 
-Last updated at 6/17/2025, 5:45:10 PM
+Last updated at 6/17/2025, 7:59:12 PM
