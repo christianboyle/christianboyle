@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JAX5KPzd9fXIwhdY-h2bM7w-t500x500.png">](https://soundcloud.com/dnzrecords/mapy-brothers-together-again)
 
-**Artist**: DJ.Rossco 
+**Artist**: Mapy Brothers 
 
-**Track**: Summer 2025mix
+**Track**: Mapy Brothers - Together Again
 
-Last updated at 6/18/2025, 8:52:41 AM
+Last updated at 6/18/2025, 8:53:43 AM
