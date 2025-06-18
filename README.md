@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9pbvbMvlMnylkkj-iepYIA-t500x500.jpg">](https://soundcloud.com/justin-fallon12/discoland-sc-edit-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/lavalamp)
 
-**Artist**: Justin Fallon-vennootschap 
+**Artist**: minok0  
 
-**Track**: DISCOLAND SAMPLE
+**Track**: day1 w/ lyn + deers
 
-Last updated at 6/18/2025, 9:44:14 AM
+Last updated at 6/18/2025, 10:04:53 AM
