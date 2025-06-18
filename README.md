@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hhRpugcQIxY1FWEL-UjvVrA-t500x500.png">](https://soundcloud.com/dnzrecords/donkinna-feel-the-vibration)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyTZ1UqZMYEmhzEg-2dqvug-t500x500.jpg">](https://soundcloud.com/dmtreemusic/dmtree-force-fields-2025)
 
-**Artist**: DNZ Records 
+**Artist**: Dmtree 
 
-**Track**: Donkinna - Feel The Vibration
+**Track**: Dmtree - Force Fields 2025 Full Set
 
-Last updated at 6/18/2025, 9:07:00 AM
+Last updated at 6/18/2025, 9:08:00 AM
