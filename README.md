@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFeEiYqCKO0truhw-myjrzQ-t500x500.jpg">](https://soundcloud.com/azassin/shakewaireloosh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RG2UPJKUcphTgZKc-MoGKJg-t500x500.png">](https://soundcloud.com/spaceyetimusic/promisesremix)
 
-**Artist**: AZASSIN , AIRELOOSH 
+**Artist**: SpaceYeti 
 
-**Track**: AZASSIN X AIRELOOSH - SHAKE (feat. William Slaughter)
+**Track**: Nero - Promises (SpaceYeti Remix)
 
-Last updated at 6/19/2025, 8:28:39 AM
+Last updated at 6/19/2025, 8:29:39 AM
