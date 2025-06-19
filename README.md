@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ddj8X5z2BFf2dacA-XsnOGA-t500x500.png">](https://soundcloud.com/whalesfm/no-money-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k167wTdrpzzSW7yB-MBYcvw-t500x500.png">](https://soundcloud.com/axel-boy/laidback-luke-henry-fong-mami-ab-remix)
 
-**Artist**: WHALES & VLCN 
+**Artist**: Axel Boy, Laidback Luke, Henry Fong 
 
-**Track**: GALANTIS - NO MONEY (WHALES & VLCN REMIX)
+**Track**: Laidback Luke & Henry Fong - MAMI (Axel Boy Remix)
 
-Last updated at 6/19/2025, 8:33:39 AM
+Last updated at 6/19/2025, 8:34:46 AM
