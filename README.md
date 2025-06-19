@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tNwK0ULGlNeXRJx8-n7miTw-t500x500.png">](https://soundcloud.com/digitalvibrationshq/split-twisted-thought)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6QyhhrmI2CkP5nv-h4w18g-t500x500.png">](https://soundcloud.com/skull-sprout/outkast-ms-jackson-skullsprout)
 
-**Artist**: Digital Vibrations, SPLiT 
+**Artist**: skullsprout. 
 
-**Track**: SPLiT - Twisted Thought
+**Track**: outkast - ms. jackson - [skullsprout propagation]
 
-Last updated at 6/19/2025, 8:37:07 AM
+Last updated at 6/19/2025, 8:38:07 AM
