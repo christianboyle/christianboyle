@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pNViHIafKEOvQHnU-eNbcXQ-t500x500.png">](https://soundcloud.com/ayyofree/sun-shi-makima-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UNFbCHcIpTwYSQJE-4ZxzRw-t500x500.png">](https://soundcloud.com/secrecymusic/2025showcase)
 
-**Artist**: SUN SHI 
+**Artist**: SECRECY 
 
-**Track**: SUN SHI - Makima VIP
+**Track**: SECRECY 2025 SHOWCASE
 
-Last updated at 6/19/2025, 8:31:39 AM
+Last updated at 6/19/2025, 8:32:39 AM
