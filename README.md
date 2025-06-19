@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5csKKPL5h1W2qsC-yvHKQQ-t500x500.png">](https://soundcloud.com/luhvmusic/outside-w-kurei-episcool?in=saxurn/sets/relax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/relax)
 
-**Artist**: Luhv, Kurei, episcool 
+**Artist**: minok0  
 
-**Track**: Outside w/ Kurei & episcool
+**Track**: day1 w/ lyn + deers
 
-Last updated at 6/19/2025, 9:14:02 AM
+Last updated at 6/19/2025, 9:22:30 AM
