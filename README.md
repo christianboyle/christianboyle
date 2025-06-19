@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y6QyhhrmI2CkP5nv-h4w18g-t500x500.png">](https://soundcloud.com/skull-sprout/outkast-ms-jackson-skullsprout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BcXsoolDsxbR6Axm-7L5uqA-t500x500.jpg">](https://soundcloud.com/cheensound/eptic-shadow-people-cheen-bootleg)
 
-**Artist**: skullsprout. 
+**Artist**: Cheen 
 
-**Track**: outkast - ms. jackson - [skullsprout propagation]
+**Track**: Eptic - Shadow People (Cheen Bootleg)
 
-Last updated at 6/19/2025, 8:38:07 AM
+Last updated at 6/19/2025, 8:39:17 AM
