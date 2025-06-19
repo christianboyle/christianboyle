@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziU9U7hdyfIZxd6W-thefRw-t500x500.jpg">](https://soundcloud.com/minok0/day1?in=saxurn/sets/relax)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYN5yPHH5BB50Eyd-rUU6jw-t500x500.jpg">](https://soundcloud.com/flexandstaticdnb/love-for-you?in=saxurn/sets/relax)
 
-**Artist**: minok0  
+**Artist**: FLEX AND STATIC 
 
-**Track**: day1 w/ lyn + deers
+**Track**: Marshmello, Ellie Goulding, AVAION - Save My Love (FLEX AND STATIC REMIX)
 
-Last updated at 6/19/2025, 9:22:30 AM
+Last updated at 6/19/2025, 9:25:25 AM
