@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0sCkyvMgBXV0zU7Z-j2CzCw-t500x500.jpg">](https://soundcloud.com/johnnyo666/bump-bump)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SjbChGqNgRy0-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/thunder-in-the-bass?in=mokumrecords/sets/happy-gabber-sounds-3)
 
-**Artist**: JOHNNY O 
+**Artist**: ALV3R 
 
-**Track**: BUMP BUMP
+**Track**: Thunder In The Bass
 
-Last updated at 6/19/2025, 6:57:19 AM
+Last updated at 6/19/2025, 6:58:23 AM
