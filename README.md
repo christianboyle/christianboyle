@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3u5F6fRtW8QJFNm0-k69XGQ-t500x500.jpg">](https://soundcloud.com/euphorizer/dont-you-worry-child-dj-mix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbJCFbndRr1pp4Xi-NNGn1Q-t500x500.png">](https://soundcloud.com/weewahofficial/dorrough-music-ice-cream-paint-job-weemix?in=saxurn/sets/relax/)
 
-**Artist**: Euphorizer 
+**Artist**: Weewah 
 
-**Track**: Don't You Worry Child (DJ Mix)
+**Track**: Dorrough Music - Ice Cream Paint Job ( Weemix )
 
-Last updated at 6/19/2025, 8:44:34 AM
+Last updated at 6/19/2025, 8:47:30 AM
