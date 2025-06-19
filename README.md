@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhmZmDoxjwiq-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/and-you-dont-stop?in=mokumrecords/sets/happy-gabber-sounds-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H27SW9P1ahQk-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/nightfire?in=mokumrecords/sets/happy-gabber-sounds-3)
 
-**Artist**: Shouta Arai 
+**Artist**: M-Project 
 
-**Track**: And You Dont Stop
+**Track**: Nightfire
 
-Last updated at 6/19/2025, 8:25:14 AM
+Last updated at 6/19/2025, 8:26:14 AM
