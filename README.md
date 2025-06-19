@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RG2UPJKUcphTgZKc-MoGKJg-t500x500.png">](https://soundcloud.com/spaceyetimusic/promisesremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TBzHIjO2y0miGEF-akHUSg-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-furtha-speed-it-up)
 
-**Artist**: SpaceYeti 
+**Artist**: Gallium, FURTHA 
 
-**Track**: Nero - Promises (SpaceYeti Remix)
+**Track**: Speed It Up!
 
-Last updated at 6/19/2025, 8:29:39 AM
+Last updated at 6/19/2025, 8:30:39 AM
