@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TBzHIjO2y0miGEF-akHUSg-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-furtha-speed-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pNViHIafKEOvQHnU-eNbcXQ-t500x500.png">](https://soundcloud.com/ayyofree/sun-shi-makima-vip)
 
-**Artist**: Gallium, FURTHA 
+**Artist**: SUN SHI 
 
-**Track**: Speed It Up!
+**Track**: SUN SHI - Makima VIP
 
-Last updated at 6/19/2025, 8:30:39 AM
+Last updated at 6/19/2025, 8:31:39 AM
