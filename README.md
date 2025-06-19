@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WpadoJU4vn0r-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/keep-moving-1?in=mokumrecords/sets/happy-gabber-sounds-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhmZmDoxjwiq-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/and-you-dont-stop?in=mokumrecords/sets/happy-gabber-sounds-3)
 
-**Artist**: Los Muñaños 
+**Artist**: Shouta Arai 
 
-**Track**: Keep Moving
+**Track**: And You Dont Stop
 
-Last updated at 6/19/2025, 7:03:24 AM
+Last updated at 6/19/2025, 8:25:14 AM
