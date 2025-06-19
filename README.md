@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K8g7skh5Swpf0BZ-yFGkfA-t500x500.jpg">](https://soundcloud.com/jpky/turn-down-for-what-jpkyflip?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wSpEaBILdAiW33pU-ySfm0w-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/my-bubble-gum-sonorous-flip?in=saxurn/sets/flavortown)
 
-**Artist**: JPKy 
+**Artist**: Sonorous 
 
-**Track**: dj snake, lil jon - turn down for what (jpky flip)
+**Track**: My Bubble Gum (Sonorous Flip)
 
-Last updated at 6/19/2025, 9:00:01 AM
+Last updated at 6/19/2025, 9:02:31 AM
