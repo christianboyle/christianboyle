@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wSpEaBILdAiW33pU-ySfm0w-t500x500.png">](https://soundcloud.com/sonoroussoundsofficial/my-bubble-gum-sonorous-flip?in=saxurn/sets/flavortown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YbJCFbndRr1pp4Xi-NNGn1Q-t500x500.png">](https://soundcloud.com/weewahofficial/dorrough-music-ice-cream-paint-job-weemix?in=saxurn/sets/relax/)
 
-**Artist**: Sonorous 
+**Artist**: Weewah 
 
-**Track**: My Bubble Gum (Sonorous Flip)
+**Track**: Dorrough Music - Ice Cream Paint Job ( Weemix )
 
-Last updated at 6/19/2025, 9:02:31 AM
+Last updated at 6/19/2025, 9:05:21 AM
