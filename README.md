@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6hrZcsxqjBJyfhj-Bp3HXw-t500x500.png">](https://soundcloud.com/aychofficial/e3d3eeb7-7de6-4ff2-8e5b-880d6940779b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1ZOf8qWlT8DSk6w-BYeagg-t500x500.png">](https://soundcloud.com/zzzoey808/zoey808-leftright)
 
-**Artist**: Disco Lines, Tinashe, AYCH, ANON 
+**Artist**: zoey808 
 
-**Track**: No Broke Boys (AYCH X ANON FLIP)
+**Track**: LEFTRIGHT
 
-Last updated at 6/20/2025, 9:34:09 AM
+Last updated at 6/20/2025, 9:37:44 AM
