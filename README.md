@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CXDPdUUQalbuZDAm-eSFUxA-t500x500.jpg">](https://soundcloud.com/remyheartmusic/dont-worry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oCnc7N0lRK1b0hyv-e6UcEQ-t500x500.png">](https://soundcloud.com/technowereld/tw-podcast-119-berfu)
 
-**Artist**: Remy Heart 
+**Artist**: Techno Wereld, Berfu  
 
-**Track**: Don't Worry
+**Track**: TW PODCAST 119 - Berfu
 
-Last updated at 6/20/2025, 7:32:15 AM
+Last updated at 6/20/2025, 7:35:50 AM
