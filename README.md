@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JlDRVb5HTQzyhyuS-ARd8Xw-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-right-here)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5kH0VrXzyEqxGzKm-j5cFHQ-t500x500.jpg">](https://soundcloud.com/chvos/anyma-pictures-of-you-chvos-remix)
 
-**Artist**: Bounce Jackerz 
+**Artist**: CHVOS 
 
-**Track**: Bounce Jackerz - Right here [Free Bounce Download]
+**Track**: Anyma - Pictures Of You (CHVOS Remix)
 
-Last updated at 6/20/2025, 8:14:34 AM
+Last updated at 6/20/2025, 8:15:34 AM
