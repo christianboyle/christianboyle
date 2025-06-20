@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukw2YxXxqDe9-0-t500x500.jpg">](https://soundcloud.com/absolute_records/the-devined-bass)
 
-**Artist**: HATE, DEAS, DJ Rush 
+**Artist**: 8 Ball 
 
-**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
+**Track**: THE DEVINED BASS
 
-Last updated at 6/20/2025, 9:53:26 AM
+Last updated at 6/20/2025, 9:59:26 AM
