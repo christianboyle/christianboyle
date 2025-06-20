@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ukw2YxXxqDe9-0-t500x500.jpg">](https://soundcloud.com/absolute_records/the-devined-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVU5kYokDdAqcWW7-TLBdkA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/coone-dum)
 
-**Artist**: 8 Ball 
+**Artist**: Coone 
 
-**Track**: THE DEVINED BASS
+**Track**: Coone - DUM
 
-Last updated at 6/20/2025, 10:41:45 AM
+Last updated at 6/20/2025, 10:44:20 AM
