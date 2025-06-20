@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yly3x66PJzBZ-0-t500x500.jpg">](https://soundcloud.com/subfocus/miracle?in=culture-shock/sets/miracle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052)
 
-**Artist**: Sub Focus, Culture Shock, Fragma 
+**Artist**: HATE, DEAS, DJ Rush 
 
-**Track**: Miracle
+**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
 
-Last updated at 6/20/2025, 8:10:59 AM
+Last updated at 6/20/2025, 8:11:59 AM
