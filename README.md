@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc5xpeC0EU3k8SPl-hB8BFQ-t500x500.jpg">](https://soundcloud.com/club-core/bodega-sessions-lilen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-j1fAzxviTwvsWVpW-1UqtYg-t500x500.jpg">](https://soundcloud.com/skrillex/golden-mummy-golden-bird-htb-vs-skrillex)
 
-**Artist**: lilen 
+**Artist**: Skrillex 
 
-**Track**: BODEGA SESSIONS LILEN
+**Track**: Golden Mummy Golden Bird Htb vs Skrillex
 
-Last updated at 6/20/2025, 8:25:40 AM
+Last updated at 6/20/2025, 8:26:40 AM
