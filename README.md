@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5csKKPL5h1W2qsC-yvHKQQ-t500x500.png">](https://soundcloud.com/luhvmusic/outside-w-kurei-episcool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
 
-**Artist**: Luhv, Kurei, episcool 
+**Artist**: DJ.Rossco 
 
-**Track**: Outside w/ Kurei & episcool
+**Track**: Summer 2025mix
 
-Last updated at 6/20/2025, 10:27:59 AM
+Last updated at 6/20/2025, 10:31:34 AM
