@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okQaKlGCrnyycKHi-RYAk1w-t500x500.png">](https://soundcloud.com/centellaculiao/waiting-til-the-sun-comes-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zc5xpeC0EU3k8SPl-hB8BFQ-t500x500.jpg">](https://soundcloud.com/club-core/bodega-sessions-lilen)
 
-**Artist**: C3NTELL4 
+**Artist**: lilen 
 
-**Track**: ☆ ⋆｡°✩waiting til the sun comes out ✩⋆｡°✩
+**Track**: BODEGA SESSIONS LILEN
 
-Last updated at 6/20/2025, 8:24:20 AM
+Last updated at 6/20/2025, 8:25:40 AM
