@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qq8IJIU5952XOLlf-yntZSA-t500x500.png">](https://soundcloud.com/endevie/taken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BKy52fSIzV2kXLI-Jyhzaw-t500x500.jpg">](https://soundcloud.com/donk-da-donk/alan-james-eggman-gamemaster)
 
-**Artist**: Endevie 
+**Artist**: Donk Da Donk 
 
-**Track**: Taken
+**Track**: Alan James & Eggman- Gamemaster  Vandalize- Gamemaster - Mashup
 
-Last updated at 6/20/2025, 8:20:15 AM
+Last updated at 6/20/2025, 8:23:20 AM
