@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pkLwQ5bk1NO5pA0n-Zy9ZxA-t500x500.png">](https://soundcloud.com/dieklar/baby-when-the-lights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLzza9uanIO3W4MF-hI42xA-t500x500.jpg">](https://soundcloud.com/mirageid/mirage-x-dr-g-two-step)
 
-**Artist**: Die Klar 
+**Artist**: Mirage 
 
-**Track**: Baby When The Lights [Free DL]
+**Track**: Mirage X Dr. G - Two Step
 
-Last updated at 6/20/2025, 8:08:14 AM
+Last updated at 6/20/2025, 8:09:19 AM
