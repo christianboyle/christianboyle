@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-j1fAzxviTwvsWVpW-1UqtYg-t500x500.jpg">](https://soundcloud.com/skrillex/golden-mummy-golden-bird-htb-vs-skrillex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K0kJAPKY2iKtpiNz-dzBdQQ-t500x500.jpg">](https://soundcloud.com/codraa/grasping-for-more)
 
-**Artist**: Skrillex 
+**Artist**: codra 
 
-**Track**: Golden Mummy Golden Bird Htb vs Skrillex
+**Track**: grasping for more
 
-Last updated at 6/20/2025, 8:26:40 AM
+Last updated at 6/20/2025, 8:27:40 AM
