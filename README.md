@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNugzP03lrt7zry7-DZoi7A-t500x500.png">](https://soundcloud.com/bkbeats/cool_tool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dcsaio13zxanO7yS-9y5F9Q-t500x500.jpg">](https://soundcloud.com/jrollthedj/taylor-swift-style-jroll-remix)
 
-**Artist**: bk beats 
+**Artist**: Jroll 
 
-**Track**: cool tool
+**Track**: Taylor Swift - Style (Jroll Remix)
 
-Last updated at 6/20/2025, 9:40:34 AM
+Last updated at 6/20/2025, 9:44:35 AM
