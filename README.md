@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e65auecxxQVWQxKE-svHGug-t500x500.jpg">](https://soundcloud.com/rgbeatssss/guess-row-e-dubstep-flip-v5)
 
-**Artist**: DJ.Rossco 
+**Artist**: Row E 
 
-**Track**: Summer 2025mix
+**Track**: Charli xcx - Guess (Row E Flip)
 
-Last updated at 6/20/2025, 9:17:40 AM
+Last updated at 6/20/2025, 9:26:11 AM
