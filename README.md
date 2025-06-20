@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e65auecxxQVWQxKE-svHGug-t500x500.jpg">](https://soundcloud.com/rgbeatssss/guess-row-e-dubstep-flip-v5?in=saxurn/sets/rerender/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052?in=saxurn/sets/rerender/)
 
-**Artist**: Row E 
+**Artist**: HATE, DEAS, DJ Rush 
 
-**Track**: Charli xcx - Guess (Row E Flip)
+**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
 
-Last updated at 6/20/2025, 2:26:38 PM
+Last updated at 6/20/2025, 2:28:43 PM
