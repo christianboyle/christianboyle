@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2g2k9kBnzhF6tQWu-SUAHFw-t500x500.png">](https://soundcloud.com/charcom16/08fda4ef-a3c1-4454-aef2-9aa7c4564fd6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jlYeN3SxFlgMt06e-QuxGlw-t500x500.png">](https://soundcloud.com/uniontrance/dj-reiz-system-d)
 
-**Artist**: Charcom 
+**Artist**: Union Trance Mission 
 
-**Track**: TOO LATE TO LOVE YOU
+**Track**: DJ Reiz - System D
 
-Last updated at 6/20/2025, 8:34:06 AM
+Last updated at 6/20/2025, 8:37:45 AM
