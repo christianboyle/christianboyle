@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLzza9uanIO3W4MF-hI42xA-t500x500.jpg">](https://soundcloud.com/mirageid/mirage-x-dr-g-two-step)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yly3x66PJzBZ-0-t500x500.jpg">](https://soundcloud.com/subfocus/miracle?in=culture-shock/sets/miracle)
 
-**Artist**: Mirage 
+**Artist**: Sub Focus, Culture Shock, Fragma 
 
-**Track**: Mirage X Dr. G - Two Step
+**Track**: Miracle
 
-Last updated at 6/20/2025, 8:09:19 AM
+Last updated at 6/20/2025, 8:10:59 AM
