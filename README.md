@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AKBwwEIcUmB71ozr-k1JQxg-t500x500.jpg">](https://soundcloud.com/riotvirtual/charli-color-bass-thing-for-still-kids-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6hrZcsxqjBJyfhj-Bp3HXw-t500x500.png">](https://soundcloud.com/aychofficial/e3d3eeb7-7de6-4ff2-8e5b-880d6940779b)
 
-**Artist**: RiotVirtual 
+**Artist**: Disco Lines, Tinashe, AYCH, ANON 
 
-**Track**: charli color bass thing for still kids set
+**Track**: No Broke Boys (AYCH X ANON FLIP)
 
-Last updated at 6/20/2025, 9:28:11 AM
+Last updated at 6/20/2025, 9:34:09 AM
