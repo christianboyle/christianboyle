@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5csKKPL5h1W2qsC-yvHKQQ-t500x500.png">](https://soundcloud.com/luhvmusic/outside-w-kurei-episcool)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oex1FBWRuaulZ2Ng-u6xV5w-t500x500.png">](https://soundcloud.com/mdprojectuk/md-project-this-is-bounce-x-pumpingland-2025-set)
 
-**Artist**: Luhv, Kurei, episcool 
+**Artist**: MD Project 
 
-**Track**: Outside w/ Kurei & episcool
+**Track**: MD Project || This is Bounce x Pumpingland 2025 Set
 
-Last updated at 6/20/2025, 7:05:06 AM
+Last updated at 6/20/2025, 7:24:04 AM
