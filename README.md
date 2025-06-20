@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BKy52fSIzV2kXLI-Jyhzaw-t500x500.jpg">](https://soundcloud.com/donk-da-donk/alan-james-eggman-gamemaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6hrZcsxqjBJyfhj-Bp3HXw-t500x500.png">](https://soundcloud.com/aychofficial/e3d3eeb7-7de6-4ff2-8e5b-880d6940779b?in=saxurn/sets/rerender/)
 
-**Artist**: Donk Da Donk 
+**Artist**: Disco Lines, Tinashe, AYCH, ANON 
 
-**Track**: Alan James & Eggman- Gamemaster  Vandalize- Gamemaster - Mashup
+**Track**: No Broke Boys (AYCH X ANON FLIP)
 
-Last updated at 6/20/2025, 11:01:27 AM
+Last updated at 6/20/2025, 11:02:29 AM
