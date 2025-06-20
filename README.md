@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BKy52fSIzV2kXLI-Jyhzaw-t500x500.jpg">](https://soundcloud.com/donk-da-donk/alan-james-eggman-gamemaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okQaKlGCrnyycKHi-RYAk1w-t500x500.png">](https://soundcloud.com/centellaculiao/waiting-til-the-sun-comes-out)
 
-**Artist**: Donk Da Donk 
+**Artist**: C3NTELL4 
 
-**Track**: Alan James & Eggman- Gamemaster  Vandalize- Gamemaster - Mashup
+**Track**: ☆ ⋆｡°✩waiting til the sun comes out ✩⋆｡°✩
 
-Last updated at 6/20/2025, 8:23:20 AM
+Last updated at 6/20/2025, 8:24:20 AM
