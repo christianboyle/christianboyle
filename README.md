@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052?in=saxurn/sets/rerender/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1ZOf8qWlT8DSk6w-BYeagg-t500x500.png">](https://soundcloud.com/zzzoey808/zoey808-leftright?in=saxurn/sets/rerender/)
 
-**Artist**: HATE, DEAS, DJ Rush 
+**Artist**: zoey808 
 
-**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
+**Track**: LEFTRIGHT
 
-Last updated at 6/20/2025, 2:28:43 PM
+Last updated at 6/20/2025, 2:34:39 PM
