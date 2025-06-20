@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e65auecxxQVWQxKE-svHGug-t500x500.jpg">](https://soundcloud.com/rgbeatssss/guess-row-e-dubstep-flip-v5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AKBwwEIcUmB71ozr-k1JQxg-t500x500.jpg">](https://soundcloud.com/riotvirtual/charli-color-bass-thing-for-still-kids-set)
 
-**Artist**: Row E 
+**Artist**: RiotVirtual 
 
-**Track**: Charli xcx - Guess (Row E Flip)
+**Track**: charli color bass thing for still kids set
 
-Last updated at 6/20/2025, 9:26:11 AM
+Last updated at 6/20/2025, 9:28:11 AM
