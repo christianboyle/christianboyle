@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oCnc7N0lRK1b0hyv-e6UcEQ-t500x500.png">](https://soundcloud.com/technowereld/tw-podcast-119-berfu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzgW7OI4j2ewjkv2-6gbqyA-t500x500.png">](https://soundcloud.com/dnbranger/fulltek-laser-fingers)
 
-**Artist**: Techno Wereld, Berfu  
+**Artist**: Fulltek 
 
-**Track**: TW PODCAST 119 - Berfu
+**Track**: Fulltek - Laser Fingers
 
-Last updated at 6/20/2025, 7:35:50 AM
+Last updated at 6/20/2025, 8:00:06 AM
