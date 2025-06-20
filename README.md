@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxbydDOlUjBJ5SEC-pnFpzA-t500x500.png">](https://soundcloud.com/zzzoey808/diamondzzz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ppzt2NzLxSV-0-t500x500.jpg">](https://soundcloud.com/mythmofficial/rough-jordnmoody-remix)
 
-**Artist**: zoey808 
+**Artist**: MYTHM, Rakjay 
 
-**Track**: DIAMONDzZz
+**Track**: Rough (jordnmoody Remix)
 
-Last updated at 6/20/2025, 8:16:49 AM
+Last updated at 6/20/2025, 8:18:10 AM
