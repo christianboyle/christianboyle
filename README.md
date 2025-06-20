@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BKy52fSIzV2kXLI-Jyhzaw-t500x500.jpg">](https://soundcloud.com/donk-da-donk/alan-james-eggman-gamemaster)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-3u5F6fRtW8QJFNm0-k69XGQ-t500x500.jpg">](https://soundcloud.com/euphorizer/dont-you-worry-child-dj-mix-3)
 
-**Artist**: Donk Da Donk 
+**Artist**: Euphorizer 
 
-**Track**: Alan James & Eggman- Gamemaster  Vandalize- Gamemaster - Mashup
+**Track**: Don't You Worry Child (DJ Mix)
 
-Last updated at 6/20/2025, 10:10:02 AM
+Last updated at 6/20/2025, 10:14:18 AM
