@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVU5kYokDdAqcWW7-TLBdkA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/coone-dum?in=saxurn/sets/rerender/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LaqdO93SDG8XRa8-kNqTyw-t500x500.png">](https://soundcloud.com/innergatetechno/premiere-fennx-333cxt-your-last-mistake)
 
-**Artist**: Coone 
+**Artist**: INNERGATED 
 
-**Track**: Coone - DUM
+**Track**: Premiere: FennX & 333CXT - Your Last Mistake (FREE DL) [FREUL RECORDS]
 
-Last updated at 6/20/2025, 5:20:47 PM
+Last updated at 6/21/2025, 7:19:49 AM
