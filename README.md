@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZG5WHBr0Th4keBM6-GYOyuA-t500x500.png">](https://soundcloud.com/bgzaudio/wwsrework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9582AzDzDWzPAXqP-GKthUg-t500x500.png">](https://soundcloud.com/schmuxmusic/mac-dre-feelin-myself-schmux-flip)
 
-**Artist**: BGZ 
+**Artist**: SCHMUX 
 
-**Track**: WHO WANT SMOKE? (BGZ REWORK)
+**Track**: Mac Dre - Feelin Myself (SCHMUX Flip)
 
-Last updated at 6/22/2025, 2:40:49 PM
+Last updated at 6/22/2025, 2:41:49 PM
