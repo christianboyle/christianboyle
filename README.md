@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAK0EU5VyA8zxDw8-Szml0w-t500x500.png">](https://soundcloud.com/atomtranceforce/atom-trance-vol-53-jake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mr92n74RyDZFxVzy-rTQ94g-t500x500.png">](https://soundcloud.com/mahisound/love-sick-remix)
 
-**Artist**: Atom Trance Force 
+**Artist**: MAHI 
 
-**Track**: Atom Trance Vol. 53 Jake Nicholls
+**Track**: Olbaid - Love Sick (MAHI RMX)
 
-Last updated at 6/22/2025, 8:58:11 AM
+Last updated at 6/22/2025, 12:18:29 PM
