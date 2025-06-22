@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mr92n74RyDZFxVzy-rTQ94g-t500x500.png">](https://soundcloud.com/mahisound/love-sick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aTAybnQYUnyfj8Hn-IgxryQ-t500x500.png">](https://soundcloud.com/wormhole-music-group/secret-recipe-familiar)
 
-**Artist**: MAHI 
+**Artist**: Secret Recipe 
 
-**Track**: Olbaid - Love Sick (MAHI RMX)
+**Track**: Secret Recipe - Familiar Patterns
 
-Last updated at 6/22/2025, 12:18:29 PM
+Last updated at 6/22/2025, 2:39:49 PM
