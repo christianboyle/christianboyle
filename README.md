@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Se3uUML6LjG4KBSG-uFQUTA-t500x500.png">](https://soundcloud.com/heklermusic/trickstar-x-marshmello-bad-boys-hekler-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052)
 
-**Artist**: HEKLER 
+**Artist**: HATE, DEAS, DJ Rush 
 
-**Track**: MARSHMELLO x TRICKSTAR  - BAD BOYS [HEKLER RMX]
+**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
 
-Last updated at 6/22/2025, 6:57:05 PM
+Last updated at 6/22/2025, 7:40:33 PM
