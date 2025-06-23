@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6hrZcsxqjBJyfhj-Bp3HXw-t500x500.png">](https://soundcloud.com/aychofficial/e3d3eeb7-7de6-4ff2-8e5b-880d6940779b?in=saxurn/sets/rerender/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cF4MEzcfMG8GBtF-soOszw-t500x500.png">](https://soundcloud.com/hi6chan/locked-in?in=saxurn/sets/rerender/)
 
-**Artist**: Disco Lines, Tinashe, AYCH, ANON 
+**Artist**: 6chan 
 
-**Track**: No Broke Boys (AYCH X ANON FLIP)
+**Track**: locked in (cr1sis + erdo)
 
-Last updated at 6/23/2025, 6:03:29 PM
+Last updated at 6/23/2025, 6:05:19 PM
