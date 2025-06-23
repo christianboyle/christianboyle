@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-06vC2Cnxezb45WNl-xR12zg-t500x500.png">](https://soundcloud.com/madjestickasual/pink-lung-who-cares-prod-mauler-mk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJHnN7LxxoOo7way-K98uKA-t500x500.jpg">](https://soundcloud.com/mirice/loveu)
 
-**Artist**: Madjestic Kasual 
+**Artist**: mirice 
 
-**Track**: Pink Lung - who cares (prod. Mauler) [MK PREMIERE]
+**Track**: LOVEU
 
-Last updated at 6/23/2025, 9:48:19 AM
+Last updated at 6/23/2025, 12:22:19 PM
