@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0L7XcIPgMOupOy0-OQIcBw-t500x500.png">](https://soundcloud.com/novascotia/lola-young-messy-jamie-b-nova-scotia-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAP8EmTRZTLkyMCj-soyQyw-t500x500.png">](https://soundcloud.com/matty-ralphmusic/watergate-x-dj-quicksilver-heart-of-asia-matty-ralph-rework)
 
-**Artist**: Nova Scotia 
+**Artist**: Matty Ralph 
 
-**Track**: Lola Young - Messy (Jamie B & Nova Scotia Remix) FREE DOWNLOAD
+**Track**: Watergate x DJ Quicksilver - Heart Of Asia (Matty Ralph Rework)
 
-Last updated at 6/23/2025, 2:31:05 PM
+Last updated at 6/23/2025, 2:32:25 PM
