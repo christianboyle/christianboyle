@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6hrZcsxqjBJyfhj-Bp3HXw-t500x500.png">](https://soundcloud.com/aychofficial/e3d3eeb7-7de6-4ff2-8e5b-880d6940779b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh?in=saxurn/sets/rerender)
 
-**Artist**: Disco Lines, Tinashe, AYCH, ANON 
+**Artist**: Hundaes 
 
-**Track**: No Broke Boys (AYCH X ANON FLIP)
+**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
 
-Last updated at 6/23/2025, 6:16:12 PM
+Last updated at 6/23/2025, 6:20:47 PM
