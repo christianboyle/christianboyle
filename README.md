@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cF4MEzcfMG8GBtF-soOszw-t500x500.png">](https://soundcloud.com/hi6chan/locked-in?in=saxurn/sets/rerender/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh)
 
-**Artist**: 6chan 
+**Artist**: Hundaes 
 
-**Track**: locked in (cr1sis + erdo)
+**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
 
-Last updated at 6/23/2025, 6:05:19 PM
+Last updated at 6/23/2025, 6:10:56 PM
