@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GzxydSEFi4DIxVQ-HudZkg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-deas-feat-dj-rush-geeks-on-hubbard-arts052)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7cF4MEzcfMG8GBtF-soOszw-t500x500.png">](https://soundcloud.com/hi6chan/locked-in)
 
-**Artist**: HATE, DEAS, DJ Rush 
+**Artist**: 6chan 
 
-**Track**: Premiere: DEAS feat. Dj Rush — Geeks On Hubbard [ARTS052]
+**Track**: locked in (cr1sis + erdo)
 
-Last updated at 6/23/2025, 6:21:15 AM
+Last updated at 6/23/2025, 7:14:50 AM
