@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l65SnsPNO8PtszPQ-sxyiYw-t500x500.jpg">](https://soundcloud.com/digicolrecords/90ba961e-e383-4000-a444-69e5447a98be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fPiSGcSganrQ5Q6t-k2FzgA-t500x500.jpg">](https://soundcloud.com/vienca/fatty-fatty-vienca-ukg-edit)
 
-**Artist**: RELLiK 
+**Artist**: VIENCΛ 
 
-**Track**: EAZYBAKED x DAGGZ - WYAWYS [RELLiK FLiP]
+**Track**: FATTY FATTY (VIENCA UKG EDIT)
 
-Last updated at 6/23/2025, 3:29:17 PM
+Last updated at 6/23/2025, 3:30:47 PM
