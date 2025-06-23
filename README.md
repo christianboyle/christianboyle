@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yhcz9kXiTgyvMESG-CrPyTA-t500x500.png">](https://soundcloud.com/chances-3/acounta-chance-daydream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbp0XPtkXxxeW440-4yJRww-t500x500.png">](https://soundcloud.com/dnzrecords/rob-ej-s2-love-somebody)
 
-**Artist**: acounta, chance 
+**Artist**: Rob EJ && S2 
 
-**Track**: acounta & chance - daydream
+**Track**: Rob EJ && S2 - Love Somebody
 
-Last updated at 6/23/2025, 3:35:12 PM
+Last updated at 6/23/2025, 3:37:17 PM
