@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-te4CfOwfWM7nPLLH-mryzJQ-t500x500.png">](https://soundcloud.com/badmouthrecs/tippin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0f3kHKkTdEBdjnQx-Jqk7Ow-t500x500.png">](https://soundcloud.com/sedamuzic/slop-em-up)
 
-**Artist**: TENZUH 
+**Artist**: Seda  
 
-**Track**: TIPPIN
+**Track**: Slop Em Up
 
-Last updated at 6/23/2025, 3:38:17 PM
+Last updated at 6/23/2025, 3:39:24 PM
