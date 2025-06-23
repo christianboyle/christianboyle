@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAP8EmTRZTLkyMCj-soyQyw-t500x500.png">](https://soundcloud.com/matty-ralphmusic/watergate-x-dj-quicksilver-heart-of-asia-matty-ralph-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOKq8r5u7BwVJkpp-40ceag-t500x500.jpg">](https://soundcloud.com/dj-garbie/garbie-project-sylenth1)
 
-**Artist**: Matty Ralph 
+**Artist**: GARBIE 
 
-**Track**: Watergate x DJ Quicksilver - Heart Of Asia (Matty Ralph Rework)
+**Track**: Garbie Project - Sylenth1 Presets & Sample Pack Preview
 
-Last updated at 6/23/2025, 2:32:25 PM
+Last updated at 6/23/2025, 2:57:54 PM
