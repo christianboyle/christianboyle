@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcF8rJVE4tnb6rb3-qMipbA-t500x500.png">](https://soundcloud.com/savagef80/ecstasy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/01-moistbreezy-get-ready-to-bounce-2025-1?in=soymakinero/sets/soy-makinero-100-bounce)
 
-**Artist**: SAVAGE 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: ATB - ECSTASY (SAVAGE REMIX)
+**Track**: 01 - moistbreezy - Get Ready to Bounce 2025
 
-Last updated at 6/23/2025, 3:09:25 PM
+Last updated at 6/23/2025, 3:10:35 PM
