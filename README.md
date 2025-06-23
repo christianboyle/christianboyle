@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9pbvbMvlMnylkkj-iepYIA-t500x500.jpg">](https://soundcloud.com/justin-fallon12/discoland-sc-edit-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcF8rJVE4tnb6rb3-qMipbA-t500x500.png">](https://soundcloud.com/savagef80/ecstasy)
 
-**Artist**: Justin Fallon-vennootschap 
+**Artist**: SAVAGE 
 
-**Track**: DISCOLAND SAMPLE
+**Track**: ATB - ECSTASY (SAVAGE REMIX)
 
-Last updated at 6/23/2025, 3:08:25 PM
+Last updated at 6/23/2025, 3:09:25 PM
