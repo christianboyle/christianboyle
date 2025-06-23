@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JwfzbJrtedPZwvXV-Q8ayZg-t500x500.png">](https://soundcloud.com/ayyofree/logg-metamorphosis-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3H7HaujC98DvylGI-aczJyA-t500x500.jpg">](https://soundcloud.com/flowstatemp3/sexy-bitch-free-dl)
 
-**Artist**: LOGG 
+**Artist**: FLØW STATE 
 
-**Track**: LOGG - Metamorphosis
+**Track**: FLØW STATE - Sexy Bitch [Free DL]
 
-Last updated at 6/23/2025, 1:44:09 PM
+Last updated at 6/23/2025, 1:45:19 PM
