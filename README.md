@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nodIOHTLAFKdEoae-RDf4XQ-t500x500.jpg">](https://soundcloud.com/dreamloader/hannah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HQyCeH4YzJu2Uy0H-eoy4ww-t500x500.png">](https://soundcloud.com/samxlamar/overworked)
 
-**Artist**: dreamloader 
+**Artist**: SAM LAMAR 
 
-**Track**: HANNAH
+**Track**: Overworked
 
-Last updated at 6/23/2025, 12:24:24 PM
+Last updated at 6/23/2025, 12:36:26 PM
