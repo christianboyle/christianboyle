@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0f3kHKkTdEBdjnQx-Jqk7Ow-t500x500.png">](https://soundcloud.com/sedamuzic/slop-em-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000056116640-9f6peg-t500x500.jpg">](https://soundcloud.com/whoisque/o-g-bobby-johnson-que)
 
-**Artist**: Seda  
+**Artist**: QUE. 
 
-**Track**: Slop Em Up
+**Track**: Que - O.G. Bobby Johnson (Prod. Bobby Johnson)
 
-Last updated at 6/23/2025, 3:39:24 PM
+Last updated at 6/23/2025, 5:07:20 PM
