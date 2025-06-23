@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JKIdfLcnWjl1WM96-jKPPiw-t500x500.png">](https://soundcloud.com/djpsytox/summersundays78-groove-theories-from-metropolis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-elYtoX4WshbZAHGv-FS8lnA-t500x500.png">](https://soundcloud.com/lahdjess/ebk-jaaybo-x-vonoff1700-exposing-sped-mixx?in=saxurn/sets/rerender/)
 
-**Artist**: Psytox 
+**Artist**: Dj ess 
 
-**Track**: Summer.Sundays.78 - Groove Theories from Metropolis
+**Track**: ebk jaaybo x vonoff1700 exposing me sped mixx
 
-Last updated at 6/23/2025, 5:14:15 PM
+Last updated at 6/23/2025, 6:00:44 PM
