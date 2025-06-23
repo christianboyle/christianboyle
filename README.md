@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PnYCGLy0LnIy4r4I-0PgdqA-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-valav-drift-slc004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JwfzbJrtedPZwvXV-Q8ayZg-t500x500.png">](https://soundcloud.com/ayyofree/logg-metamorphosis-1)
 
-**Artist**: TRANSITION 
+**Artist**: LOGG 
 
-**Track**: PREMIERE: ValaV – Drift [SLC004]
+**Track**: LOGG - Metamorphosis
 
-Last updated at 6/23/2025, 1:41:48 PM
+Last updated at 6/23/2025, 1:44:09 PM
