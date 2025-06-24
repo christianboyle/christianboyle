@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m8Hs1gDqHZcMJCJM-z28yoQ-t500x500.jpg">](https://soundcloud.com/guilbes-jules-635679714/poison-nola-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gzdcwn0Y1tcQmWnv-cypj3g-t500x500.png">](https://soundcloud.com/satoshijpn/kesha-tik-tok-satoshi-remix)
 
-**Artist**: Prodby.G_Unknown 
+**Artist**: SATOSHI 
 
-**Track**: Poison (Nola Bounce Mix)
+**Track**: Ke$ha - Tik Tok (SATOSHI Remix)
 
-Last updated at 6/24/2025, 9:31:31 AM
+Last updated at 6/24/2025, 9:49:03 AM
