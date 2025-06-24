@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHYKAvyektOzTGb9-3yOnSA-t500x500.jpg">](https://soundcloud.com/vipwrldd/get-down-on-it-nola-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m8Hs1gDqHZcMJCJM-z28yoQ-t500x500.jpg">](https://soundcloud.com/guilbes-jules-635679714/poison-nola-bounce-mix)
 
-**Artist**: VIP 
+**Artist**: Prodby.G_Unknown 
 
-**Track**: GET DOWN ON IT (NOLA BOUNCE REMIX) [PROD VIP]
+**Track**: Poison (Nola Bounce Mix)
 
-Last updated at 6/24/2025, 9:30:01 AM
+Last updated at 6/24/2025, 9:31:31 AM
