@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh?in=saxurn/sets/rerender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dcsaio13zxanO7yS-9y5F9Q-t500x500.jpg">](https://soundcloud.com/jrollthedj/taylor-swift-style-jroll-remix?in=saxurn/sets/rerender)
 
-**Artist**: Hundaes 
+**Artist**: Jroll 
 
-**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
+**Track**: Taylor Swift - Style (Jroll Remix)
 
-Last updated at 6/24/2025, 7:58:24 AM
+Last updated at 6/24/2025, 8:20:22 AM
