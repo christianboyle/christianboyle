@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-elYtoX4WshbZAHGv-FS8lnA-t500x500.png">](https://soundcloud.com/lahdjess/ebk-jaaybo-x-vonoff1700-exposing-sped-mixx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gzdcwn0Y1tcQmWnv-cypj3g-t500x500.png">](https://soundcloud.com/satoshijpn/kesha-tik-tok-satoshi-remix)
 
-**Artist**: Dj ess 
+**Artist**: SATOSHI 
 
-**Track**: ebk jaaybo x vonoff1700 exposing me sped mixx
+**Track**: Ke$ha - Tik Tok (SATOSHI Remix)
 
-Last updated at 6/24/2025, 11:34:28 AM
+Last updated at 6/24/2025, 11:35:53 AM
