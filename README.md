@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNugzP03lrt7zry7-DZoi7A-t500x500.png">](https://soundcloud.com/bkbeats/cool_tool?in=saxurn/sets/rerender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh?in=saxurn/sets/rerender)
 
-**Artist**: bk beats 
+**Artist**: Hundaes 
 
-**Track**: cool tool
+**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
 
-Last updated at 6/23/2025, 7:02:45 PM
+Last updated at 6/23/2025, 7:23:14 PM
