@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPbhPdIbKJa0Pulf-fZ1PLg-t500x500.jpg">](https://soundcloud.com/raesam/did-it-first-nola-bounce-prodbyraesam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHYKAvyektOzTGb9-3yOnSA-t500x500.jpg">](https://soundcloud.com/vipwrldd/get-down-on-it-nola-bounce)
 
-**Artist**: RaeSam 
+**Artist**: VIP 
 
-**Track**: Did It First (NOLA BOUNCE) [prodbyraesam]
+**Track**: GET DOWN ON IT (NOLA BOUNCE REMIX) [PROD VIP]
 
-Last updated at 6/24/2025, 9:28:31 AM
+Last updated at 6/24/2025, 9:30:01 AM
