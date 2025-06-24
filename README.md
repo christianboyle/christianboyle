@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/08-citysproblem-baby-tonight-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4q85zV5ObQBVyysq-OqaTUg-t500x500.png">](https://soundcloud.com/molekulpage/dj-physical-thelma-ftb-mlkl043)
 
-**Artist**: ¡SOY MAKINERO! 
+**Artist**: DJ Physical & Thelma 
 
-**Track**: 08 - CITYSPROBLEM - BABY TONIGHT
+**Track**: DJ Physical & Thelma - FTB [MLKL043]
 
-Last updated at 6/24/2025, 8:49:26 AM
+Last updated at 6/24/2025, 8:51:06 AM
