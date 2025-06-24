@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7XCQUSNW4WVsAxi6-0s7Q7A-t500x500.jpg">](https://soundcloud.com/muti/bran-richards-apple-for-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW6DM9whdJrsUoBX-Elxtlw-t500x500.png">](https://soundcloud.com/wearestudio/antilogic-dont-say-my-name-premiere)
 
-**Artist**: BRĀN Richards 
+**Artist**: STUDIO, Antilogic 
 
-**Track**: BRĀN Richards - Apple For One
+**Track**: Antilogic - Don’t say my name [Premiere]
 
-Last updated at 6/24/2025, 9:00:13 AM
+Last updated at 6/24/2025, 9:01:18 AM
