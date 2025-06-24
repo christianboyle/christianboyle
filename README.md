@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW6DM9whdJrsUoBX-Elxtlw-t500x500.png">](https://soundcloud.com/wearestudio/antilogic-dont-say-my-name-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFt2pq7YoylBwu5K-SR1FxA-t500x500.png">](https://soundcloud.com/wearestudio/redpill-nihilist-premiere)
 
-**Artist**: STUDIO, Antilogic 
+**Artist**: STUDIO, Redpill 
 
-**Track**: Antilogic - Don’t say my name [Premiere]
+**Track**: Redpill - Nihilist [Premiere]
 
-Last updated at 6/24/2025, 3:32:07 PM
+Last updated at 6/24/2025, 3:37:43 PM
