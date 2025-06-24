@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qIB2QZ4wWpIwSdKq-oFMx1w-t500x500.jpg">](https://soundcloud.com/djhershe/lights-out-hershe-jawnsin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW6DM9whdJrsUoBX-Elxtlw-t500x500.png">](https://soundcloud.com/wearestudio/antilogic-dont-say-my-name-premiere)
 
-**Artist**: HerShe, JAWNSIN 
+**Artist**: STUDIO, Antilogic 
 
-**Track**: Lights Out - HerShe x Jawnsin
+**Track**: Antilogic - Don’t say my name [Premiere]
 
-Last updated at 6/24/2025, 11:38:29 AM
+Last updated at 6/24/2025, 11:40:39 AM
