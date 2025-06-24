@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IIGRgTioqgR8teFC-55GyTg-t500x500.jpg">](https://soundcloud.com/zoniiworld/zonii-on-on-lookas-remix-alien)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHOS4hMCQJbrpZfV-nt6JMg-t500x500.png">](https://soundcloud.com/youasidepiece/cash-out-sidepiece-bobby-shmurda)
 
-**Artist**: Zonii, Lookas 
+**Artist**: SIDEPIECE 
 
-**Track**: On & On (Lookas Remix) Zonii Flp (Free Download)
+**Track**: CASH OUT - SIDEPIECE & Bobby Shmurda [OUT NOW]
 
-Last updated at 6/24/2025, 8:53:56 AM
+Last updated at 6/24/2025, 8:55:07 AM
