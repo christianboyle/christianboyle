@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvHXZfhI95eWKQMb-wyOZJA-t500x500.jpg">](https://soundcloud.com/thelitlords/beyondthegrail)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2AX9cQbXBDvs5yz-Rfbz6Q-t500x500.png">](https://soundcloud.com/biff-jones-0/bounce-fresh-155)
 
-**Artist**: Lit Lords 
+**Artist**: F.E.A.R. 
 
-**Track**: Beyond The Grail
+**Track**: Bounce Fresh 155
 
-Last updated at 6/24/2025, 9:02:18 AM
+Last updated at 6/24/2025, 9:03:23 AM
