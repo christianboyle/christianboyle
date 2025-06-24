@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y45zwCxiATlxWYHE-1MKByQ-t500x500.jpg">](https://soundcloud.com/raesam/transparent-soul-nola-bounce-prodbyraesam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AgFF3pbVOb25RO59-hQQDCg-t500x500.jpg">](https://soundcloud.com/ecofficial36zzz/ec-lifes-full-of-pain-sped-up)
 
-**Artist**: RaeSam 
+**Artist**: ECofficial36 
 
-**Track**: Transparent Soul (NOLA BOUNCE) [prodbyraesam]
+**Track**: EC - Life’s Full Of Pain (sped up version)
 
-Last updated at 6/24/2025, 9:20:15 AM
+Last updated at 6/24/2025, 9:22:10 AM
