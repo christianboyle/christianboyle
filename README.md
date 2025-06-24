@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gzdcwn0Y1tcQmWnv-cypj3g-t500x500.png">](https://soundcloud.com/satoshijpn/kesha-tik-tok-satoshi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW6DM9whdJrsUoBX-Elxtlw-t500x500.png">](https://soundcloud.com/wearestudio/antilogic-dont-say-my-name-premiere)
 
-**Artist**: SATOSHI 
+**Artist**: STUDIO, Antilogic 
 
-**Track**: Ke$ha - Tik Tok (SATOSHI Remix)
+**Track**: Antilogic - Don’t say my name [Premiere]
 
-Last updated at 6/24/2025, 1:03:00 PM
+Last updated at 6/24/2025, 2:42:59 PM
