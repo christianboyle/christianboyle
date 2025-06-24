@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dcsaio13zxanO7yS-9y5F9Q-t500x500.jpg">](https://soundcloud.com/jrollthedj/taylor-swift-style-jroll-remix?in=saxurn/sets/rerender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLzza9uanIO3W4MF-hI42xA-t500x500.jpg">](https://soundcloud.com/mirageid/mirage-x-dr-g-two-step?in=saxurn/sets/rerender)
 
-**Artist**: Jroll 
+**Artist**: Mirage 
 
-**Track**: Taylor Swift - Style (Jroll Remix)
+**Track**: Mirage X Dr. G - Two Step
 
-Last updated at 6/24/2025, 8:20:22 AM
+Last updated at 6/24/2025, 8:23:42 AM
