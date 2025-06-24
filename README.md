@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHmcYJSm5yU1EY46-J2yTdA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-mystery-land)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tlsRl1yybGvX11Do-ybxVsw-t500x500.png">](https://soundcloud.com/tynanofficial/still-into-you-tynan-flip)
 
-**Artist**: Bounce Jackerz 
+**Artist**: TYNAN 
 
-**Track**: Bounce Jackerz - Mystery Land
+**Track**: Paramore - Still Into You (TYNAN Flip)
 
-Last updated at 6/24/2025, 3:58:30 PM
+Last updated at 6/24/2025, 4:02:52 PM
