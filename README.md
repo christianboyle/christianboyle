@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/10-worldwidewolf-vs-dj-big-bonk-u-got-a-body-that-is-10)
 
-**Artist**: Hundaes 
+**Artist**: ¡SOY MAKINERO! 
 
-**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
+**Track**: 10 - WORLDWIDEWOLF vs. DJ BIG BONK - U GOT A BODY THAT IS
 
-Last updated at 6/24/2025, 4:14:48 PM
+Last updated at 6/24/2025, 4:17:49 PM
