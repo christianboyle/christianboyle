@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tlsRl1yybGvX11Do-ybxVsw-t500x500.png">](https://soundcloud.com/tynanofficial/still-into-you-tynan-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tD8t77I1QIcbMq24-Dzls3g-t500x500.png">](https://soundcloud.com/oddlanguage/anomaly)
 
-**Artist**: TYNAN 
+**Artist**: odd language 
 
-**Track**: Paramore - Still Into You (TYNAN Flip)
+**Track**: ANOMALY
 
-Last updated at 6/24/2025, 4:02:52 PM
+Last updated at 6/24/2025, 4:05:08 PM
