@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLzza9uanIO3W4MF-hI42xA-t500x500.jpg">](https://soundcloud.com/mirageid/mirage-x-dr-g-two-step?in=saxurn/sets/rerender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e65auecxxQVWQxKE-svHGug-t500x500.jpg">](https://soundcloud.com/rgbeatssss/guess-row-e-dubstep-flip-v5?in=saxurn/sets/rerender)
 
-**Artist**: Mirage 
+**Artist**: Row E 
 
-**Track**: Mirage X Dr. G - Two Step
+**Track**: Charli xcx - Guess (Row E Flip)
 
-Last updated at 6/23/2025, 7:26:39 PM
+Last updated at 6/23/2025, 7:30:29 PM
