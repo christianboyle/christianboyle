@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOGOxU05nqMl9UD7-UjALiA-t500x500.png">](https://soundcloud.com/sytrux/skrillex-space-laces-recovery-sytrux-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-prvmv2L6oszF6Wpz-coVM9A-t500x500.jpg">](https://soundcloud.com/hundaes/lady-gaga-eh-eh)
 
-**Artist**: Sytrux, Skrillex, Space Laces 
+**Artist**: Hundaes 
 
-**Track**: Skrillex & Space Laces - RECOVERY (Sytrux Remix)
+**Track**: Lady Gaga - Eh, Eh (Nothing Else I Can Say) (Hundaes Edit)
 
-Last updated at 6/24/2025, 4:11:33 PM
+Last updated at 6/24/2025, 4:14:48 PM
