@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW6DM9whdJrsUoBX-Elxtlw-t500x500.png">](https://soundcloud.com/wearestudio/antilogic-dont-say-my-name-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VvHXZfhI95eWKQMb-wyOZJA-t500x500.jpg">](https://soundcloud.com/thelitlords/beyondthegrail)
 
-**Artist**: STUDIO, Antilogic 
+**Artist**: Lit Lords 
 
-**Track**: Antilogic - Don’t say my name [Premiere]
+**Track**: Beyond The Grail
 
-Last updated at 6/24/2025, 9:01:18 AM
+Last updated at 6/24/2025, 9:02:18 AM
