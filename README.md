@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f55IwT4NduZ3xRVQ-ZhakaQ-t500x500.jpg">](https://soundcloud.com/its_mdl8/body-talk-mdl8-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7XCQUSNW4WVsAxi6-0s7Q7A-t500x500.jpg">](https://soundcloud.com/muti/bran-richards-apple-for-one)
 
-**Artist**: MDL8 
+**Artist**: BRĀN Richards 
 
-**Track**: Issey Cross - Body Talk [MDL8 Remix] FREE DOWNLOAD!
+**Track**: BRĀN Richards - Apple For One
 
-Last updated at 6/24/2025, 8:59:03 AM
+Last updated at 6/24/2025, 9:00:13 AM
