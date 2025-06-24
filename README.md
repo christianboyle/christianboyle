@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iX6VqUQbd6OGYy3z-DBgwxA-t500x500.png">](https://soundcloud.com/borgore/fixmeup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-elYtoX4WshbZAHGv-FS8lnA-t500x500.png">](https://soundcloud.com/lahdjess/ebk-jaaybo-x-vonoff1700-exposing-sped-mixx)
 
-**Artist**: Borgore 
+**Artist**: Dj ess 
 
-**Track**: Borgore - FIX ME UP
+**Track**: ebk jaaybo x vonoff1700 exposing me sped mixx
 
-Last updated at 6/24/2025, 11:32:13 AM
+Last updated at 6/24/2025, 11:34:28 AM
