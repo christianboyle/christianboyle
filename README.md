@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHOS4hMCQJbrpZfV-nt6JMg-t500x500.png">](https://soundcloud.com/youasidepiece/cash-out-sidepiece-bobby-shmurda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tD8t77I1QIcbMq24-Dzls3g-t500x500.png">](https://soundcloud.com/oddlanguage/anomaly)
 
-**Artist**: SIDEPIECE 
+**Artist**: odd language 
 
-**Track**: CASH OUT - SIDEPIECE & Bobby Shmurda [OUT NOW]
+**Track**: ANOMALY
 
-Last updated at 6/24/2025, 8:55:07 AM
+Last updated at 6/24/2025, 8:56:42 AM
