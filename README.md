@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73t5qrtBZVNz65Hc-0yodbA-t500x500.jpg">](https://soundcloud.com/prodbydavox/candy-rain-x-nola-bounce-prodbydavox)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vPbhPdIbKJa0Pulf-fZ1PLg-t500x500.jpg">](https://soundcloud.com/raesam/did-it-first-nola-bounce-prodbyraesam)
 
-**Artist**: prodbydavox 
+**Artist**: RaeSam 
 
-**Track**: Candy Rain (NOLA BOUNCE)
+**Track**: Did It First (NOLA BOUNCE) [prodbyraesam]
 
-Last updated at 6/24/2025, 9:27:21 AM
+Last updated at 6/24/2025, 9:28:31 AM
