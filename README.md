@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3Q8y7gB1p0u49br-IbqF0w-t500x500.jpg">](https://soundcloud.com/temcandoanything/temcandoanything-amygdala-icdamix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y45zwCxiATlxWYHE-1MKByQ-t500x500.jpg">](https://soundcloud.com/raesam/transparent-soul-nola-bounce-prodbyraesam)
 
-**Artist**: temcandoanything 
+**Artist**: RaeSam 
 
-**Track**: temcandoanything - amygdala +icdamix+ [ALL PLATFORMS]
+**Track**: Transparent Soul (NOLA BOUNCE) [prodbyraesam]
 
-Last updated at 6/24/2025, 9:14:20 AM
+Last updated at 6/24/2025, 9:20:15 AM
