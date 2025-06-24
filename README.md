@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WrEhoYYtlDPj3RcI-yDoJqw-t500x500.jpg">](https://soundcloud.com/marlon-dubois/feet-on-the-ground-ft-daine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YEYvhdRNJaztbSL3-n8nWlQ-t500x500.jpg">](https://soundcloud.com/birdthestella400/online-drug-2)
 
-**Artist**: Marlon DuBois 
+**Artist**: the bird 
 
-**Track**: feet on the ground ft daine & darcy baylis
+**Track**: online drug
 
-Last updated at 6/24/2025, 9:10:09 AM
+Last updated at 6/24/2025, 9:11:09 AM
