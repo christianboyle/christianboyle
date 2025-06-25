@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9I2S67Nyq0mOOEtd-rbL2rA-t500x500.png">](https://soundcloud.com/differentsoundofficial/ds-premiere-dj-plant-texture-echoes-mrx007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzAUnvTBcitOMzKD-EnsuPQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/vexxed-scream-in-silence-acid-reign)
 
-**Artist**: DifferentSound 
+**Artist**: Vexxed 
 
-**Track**: DS Premiere: DJ Plant Texture - Echoes [MRX007]
+**Track**: Vexxed - Scream In Silence (Acid Reign)
 
-Last updated at 6/25/2025, 8:57:11 AM
+Last updated at 6/25/2025, 8:59:52 AM
