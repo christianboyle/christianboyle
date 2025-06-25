@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMV4VVwrEowy3YK0-baELmw-t500x500.jpg">](https://soundcloud.com/mugensound/mugen-4-tha-nite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LaqdO93SDG8XRa8-kNqTyw-t500x500.png">](https://soundcloud.com/innergatetechno/premiere-fennx-333cxt-your-last-mistake)
 
-**Artist**: MUGEN 
+**Artist**: INNERGATED 
 
-**Track**: MUGEN - 4 Tha Nite
+**Track**: Premiere: FennX & 333CXT - Your Last Mistake (FREE DL) [FREUL RECORDS]
 
-Last updated at 6/24/2025, 9:01:03 PM
+Last updated at 6/24/2025, 9:03:28 PM
