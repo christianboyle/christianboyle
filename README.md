@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3LaqdO93SDG8XRa8-kNqTyw-t500x500.png">](https://soundcloud.com/innergatetechno/premiere-fennx-333cxt-your-last-mistake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-es5rOLOspqEBW9zh-HNkXag-t500x500.png">](https://soundcloud.com/socialkidmusic/night-raid)
 
-**Artist**: INNERGATED 
+**Artist**: SOCIAL KID x MAGiTEK 
 
-**Track**: Premiere: FennX & 333CXT - Your Last Mistake (FREE DL) [FREUL RECORDS]
+**Track**: Night Raid
 
-Last updated at 6/25/2025, 7:01:35 AM
+Last updated at 6/25/2025, 8:37:14 AM
