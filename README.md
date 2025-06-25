@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HQyCeH4YzJu2Uy0H-eoy4ww-t500x500.png">](https://soundcloud.com/samxlamar/overworked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g4QeCT0zJYtglZsr-GZH2GA-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-crazyhutz-all-together-now)
 
-**Artist**: SAM LAMAR 
+**Artist**: The Bounce Brothers & Crazyhutz 
 
-**Track**: Overworked
+**Track**: The Bounce Brothers & Crazyhutz - All Together Now
 
-Last updated at 6/25/2025, 8:53:21 AM
+Last updated at 6/25/2025, 8:55:06 AM
