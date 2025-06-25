@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RlzlYoriSPtTXwsZ-qeclyg-t500x500.png">](https://soundcloud.com/purapuragioiagioia/rider)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9I2S67Nyq0mOOEtd-rbL2rA-t500x500.png">](https://soundcloud.com/differentsoundofficial/ds-premiere-dj-plant-texture-echoes-mrx007)
 
-**Artist**: 1111111137137733111737173173131311137717311371737 
+**Artist**: DifferentSound 
 
-**Track**: DJ I LOVE F <-> DJ JUVE MERDA - Rider #CruiseControllerz
+**Track**: DS Premiere: DJ Plant Texture - Echoes [MRX007]
 
-Last updated at 6/25/2025, 8:56:11 AM
+Last updated at 6/25/2025, 8:57:11 AM
