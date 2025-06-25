@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTbYQMiyv7rkZmH6-taMjyw-t500x500.png">](https://soundcloud.com/hn_1/blessings-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQvCJtqvzmbZAqbN-IWhlEQ-t500x500.png">](https://soundcloud.com/oklou93/choke-enough-jamesjamesjames-remix-1)
 
-**Artist**: HN1, Calvin Harris, Clementine Douglas, Deadmau5 
+**Artist**: oklou 
 
-**Track**: Calvin Harris - Blessings x Deadmau5 - Strobe (HN1 Remix) [Free Download]
+**Track**: choke enough (jamesjamesjames remix)
 
-Last updated at 6/25/2025, 9:03:06 AM
+Last updated at 6/25/2025, 9:04:11 AM
