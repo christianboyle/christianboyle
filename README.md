@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMV4VVwrEowy3YK0-baELmw-t500x500.jpg">](https://soundcloud.com/mugensound/mugen-4-tha-nite)
 
-**Artist**: DJ.Rossco 
+**Artist**: MUGEN 
 
-**Track**: Summer 2025mix
+**Track**: MUGEN - 4 Tha Nite
 
-Last updated at 6/24/2025, 8:35:58 PM
+Last updated at 6/24/2025, 9:01:03 PM
