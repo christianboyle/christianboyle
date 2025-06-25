@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g4QeCT0zJYtglZsr-GZH2GA-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-crazyhutz-all-together-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RlzlYoriSPtTXwsZ-qeclyg-t500x500.png">](https://soundcloud.com/purapuragioiagioia/rider)
 
-**Artist**: The Bounce Brothers & Crazyhutz 
+**Artist**: 1111111137137733111737173173131311137717311371737 
 
-**Track**: The Bounce Brothers & Crazyhutz - All Together Now
+**Track**: DJ I LOVE F <-> DJ JUVE MERDA - Rider #CruiseControllerz
 
-Last updated at 6/25/2025, 8:55:06 AM
+Last updated at 6/25/2025, 8:56:11 AM
