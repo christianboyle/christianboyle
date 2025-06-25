@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzAUnvTBcitOMzKD-EnsuPQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/vexxed-scream-in-silence-acid-reign)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wIGSSr27VtAWC6m-gzh0gw-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-feelin-fine-mp3-1)
 
-**Artist**: Vexxed 
+**Artist**: DJ Pleasure 
 
-**Track**: Vexxed - Scream In Silence (Acid Reign)
+**Track**: Dj Pleasure - Feelin Fine.mp3
 
-Last updated at 6/25/2025, 8:59:52 AM
+Last updated at 6/25/2025, 9:02:07 AM
