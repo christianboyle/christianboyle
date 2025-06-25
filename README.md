@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N20STEHFJKZBpBxV-TNJzLw-t500x500.png">](https://soundcloud.com/travelermusic/remember-me-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wIGSSr27VtAWC6m-gzh0gw-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-feelin-fine-mp3-1)
 
-**Artist**: TRAVELER 
+**Artist**: DJ Pleasure 
 
-**Track**: Remember Me (Original Mix)
+**Track**: Dj Pleasure - Feelin Fine.mp3
 
-Last updated at 6/25/2025, 3:14:38 PM
+Last updated at 6/25/2025, 3:33:40 PM
