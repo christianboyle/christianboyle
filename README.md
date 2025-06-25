@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y7b5ikBuZekBUaMM-QahWZQ-t500x500.jpg">](https://soundcloud.com/soymakinero/10-worldwidewolf-vs-dj-big-bonk-u-got-a-body-that-is-10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wQmIFt4vIYyllQFH-3cGnOw-t500x500.jpg">](https://soundcloud.com/41rossco/summer-2025mix)
 
-**Artist**: ¡SOY MAKINERO! 
+**Artist**: DJ.Rossco 
 
-**Track**: 10 - WORLDWIDEWOLF vs. DJ BIG BONK - U GOT A BODY THAT IS
+**Track**: Summer 2025mix
 
-Last updated at 6/24/2025, 8:29:50 PM
+Last updated at 6/24/2025, 8:35:58 PM
