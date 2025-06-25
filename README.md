@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wIGSSr27VtAWC6m-gzh0gw-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-feelin-fine-mp3-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTbYQMiyv7rkZmH6-taMjyw-t500x500.png">](https://soundcloud.com/hn_1/blessings-2)
 
-**Artist**: DJ Pleasure 
+**Artist**: HN1, Calvin Harris, Clementine Douglas, Deadmau5 
 
-**Track**: Dj Pleasure - Feelin Fine.mp3
+**Track**: Calvin Harris - Blessings x Deadmau5 - Strobe (HN1 Remix) [Free Download]
 
-Last updated at 6/25/2025, 9:02:07 AM
+Last updated at 6/25/2025, 9:03:06 AM
