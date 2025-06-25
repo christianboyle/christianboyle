@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1bXSDxomyJhyH9N-JjM7CA-t500x500.png">](https://soundcloud.com/thiccfreqness/avenue-niteshade-breathe-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5hLNQiiyQ74v2a5c-qBxz3A-t500x500.png">](https://soundcloud.com/renegvde/see-u-around)
 
-**Artist**: Avenue, NITESHADE 
+**Artist**: RENEGVDE 
 
-**Track**: Avenue & NITESHADE - Breathe (Original Mix)
+**Track**: See u Around
 
-Last updated at 6/25/2025, 9:14:33 AM
+Last updated at 6/25/2025, 9:17:53 AM
