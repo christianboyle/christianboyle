@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzjhcgMjCxnlGrD5-amWoFA-t500x500.png">](https://soundcloud.com/aadysi/space-laces-this-way-aadysi-shift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XddVBMDkmeyAyppi-zHXkuw-t500x500.jpg">](https://soundcloud.com/hgods/fred-again-victory-lap-hgods)
 
-**Artist**: Aadysi 
+**Artist**: HGods 
 
-**Track**: SPACE LACES - THIS WAY (Aadysi Shift)
+**Track**: Fred Again.., Skepta, PlaqueBoyMax - Victory Lap (HGods Remix)
 
-Last updated at 6/25/2025, 8:50:09 AM
+Last updated at 6/25/2025, 8:51:15 AM
