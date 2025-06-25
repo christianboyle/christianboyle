@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k167wTdrpzzSW7yB-MBYcvw-t500x500.png">](https://soundcloud.com/axel-boy/laidback-luke-henry-fong-mami-ab-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzjhcgMjCxnlGrD5-amWoFA-t500x500.png">](https://soundcloud.com/aadysi/space-laces-this-way-aadysi-shift)
 
-**Artist**: Axel Boy, Laidback Luke, Henry Fong 
+**Artist**: Aadysi 
 
-**Track**: Laidback Luke & Henry Fong - MAMI (Axel Boy Remix)
+**Track**: SPACE LACES - THIS WAY (Aadysi Shift)
 
-Last updated at 6/25/2025, 8:48:55 AM
+Last updated at 6/25/2025, 8:50:09 AM
