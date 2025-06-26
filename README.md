@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zK7X7OXVozzCIsio-Myv4HQ-t500x500.png">](https://soundcloud.com/maadwest1/mike-sherm-100-hoes-maad-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnK8MlGdJBZn3MC-QMaMSQ-t500x500.png">](https://soundcloud.com/phonkunited/cvdmium-michael-myers-23)
 
-**Artist**: MAAD WEST 
+**Artist**: PhonkUnited 
 
-**Track**: Mike Sherm - 100 Hoes (MAAD WEST FLIP)
+**Track**: CVDMIUM - Michael Myers
 
-Last updated at 6/26/2025, 1:56:53 PM
+Last updated at 6/26/2025, 1:59:38 PM
