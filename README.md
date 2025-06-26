@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3yeGvEGFzRJHNsy-c9yDDg-t500x500.png">](https://soundcloud.com/wormhole-music-group/secret-recipe-inner-child-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbp0XPtkXxxeW440-4yJRww-t500x500.png">](https://soundcloud.com/dnzrecords/rob-ej-s2-love-somebody)
 
-**Artist**: Secret Recipe 
+**Artist**: Rob EJ && S2 
 
-**Track**: Secret Recipe - Inner Child
+**Track**: Rob EJ & S2 - Love Somebody
 
-Last updated at 6/25/2025, 7:50:36 PM
+Last updated at 6/25/2025, 7:57:56 PM
