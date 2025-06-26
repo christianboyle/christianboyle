@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yuyp9U5hRkimoVw-WzzDBw-t500x500.jpg">](https://soundcloud.com/djgg12/take-me-by-the-hand_rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70LLOSENBmxGLzSu-8TT9Qw-t500x500.jpg">](https://soundcloud.com/contagious-records/riko-james-k-alone)
 
-**Artist**: GG12 
+**Artist**: Riko & James K 
 
-**Track**: TAKE ME BY THE HAND_RMX
+**Track**: [CR261] Riko & James K - Alone (OUT NOW)
 
-Last updated at 6/25/2025, 8:21:03 PM
+Last updated at 6/25/2025, 8:25:58 PM
