@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F9NyE7OLHKNhysS0-deTmrg-t500x500.jpg">](https://soundcloud.com/zaioni/bob-marley-prod-me-ja66)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KxJgHLhVbzXXz18z-0HNHVQ-t500x500.jpg">](https://soundcloud.com/gseppmusic/espresso-macchiato-tommy-cash)
 
-**Artist**: zai 
+**Artist**: GSEPP 
 
-**Track**: Bob Marley (Prod Me & Ja66)
+**Track**: Espresso Macchiato - Tommy Cash ( GSEPP Remix )
 
-Last updated at 6/25/2025, 7:47:25 PM
+Last updated at 6/25/2025, 7:48:25 PM
