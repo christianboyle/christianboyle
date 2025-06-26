@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tlsRl1yybGvX11Do-ybxVsw-t500x500.png">](https://soundcloud.com/tynanofficial/still-into-you-tynan-flip?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iX6VqUQbd6OGYy3z-DBgwxA-t500x500.png">](https://soundcloud.com/borgore/fixmeup?in=saxurn/sets/very-obvi/)
 
-**Artist**: TYNAN 
+**Artist**: Borgore 
 
-**Track**: Paramore - Still Into You (TYNAN Flip)
+**Track**: Borgore - FIX ME UP
 
-Last updated at 6/26/2025, 2:42:28 PM
+Last updated at 6/26/2025, 2:44:43 PM
