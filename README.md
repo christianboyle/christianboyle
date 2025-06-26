@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000514387812-w6o8eq-t500x500.jpg">](https://soundcloud.com/jamiebdj/ron-ewens-x-elle-mariachi-breathe-again-jamie-b-remix-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9P9ViKR8xqXiY7WY-BOb69g-t500x500.png">](https://soundcloud.com/yerbownik/searching)
 
-**Artist**: Jamie B DJ/Producer (official) 
+**Artist**: yerbby 
 
-**Track**: Ron Ewens X Elle Mariachi - Breathe Again  (Jamie B Remix) Sample
+**Track**: searching for a better world
 
-Last updated at 6/25/2025, 8:06:14 PM
+Last updated at 6/25/2025, 8:07:14 PM
