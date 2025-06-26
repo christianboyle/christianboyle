@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOGOxU05nqMl9UD7-UjALiA-t500x500.png">](https://soundcloud.com/sytrux/skrillex-space-laces-recovery-sytrux-remix?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQvCJtqvzmbZAqbN-IWhlEQ-t500x500.png">](https://soundcloud.com/oklou93/blade-bird-nick-leon-broward-mix-3)
 
-**Artist**: Sytrux, Skrillex, Space Laces 
+**Artist**: oklou 
 
-**Track**: Skrillex & Space Laces - RECOVERY (Sytrux Remix)
+**Track**: blade bird (Nick León broward mix)
 
-Last updated at 6/26/2025, 2:07:13 PM
+Last updated at 6/26/2025, 2:08:19 PM
