@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rN5zncXYzJ5EIzMB-p37Xpw-t500x500.jpg">](https://soundcloud.com/dinkthepoof/xre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAW94tuI0JGxptTw-AcqZwA-t500x500.jpg">](https://soundcloud.com/bellorum/ground-shake)
 
-**Artist**: DJOTA, FUTSU 
+**Artist**: Crankdat 
 
-**Track**: XRE (Dink the Poof remix)
+**Track**: CRANKDAT & BANDLEZ - GROUND SHAKE [BELLORUM FLIP] FREE DOWNLOAD
 
-Last updated at 6/25/2025, 7:44:00 PM
+Last updated at 6/25/2025, 7:45:00 PM
