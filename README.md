@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JY4fZyp6uyVw7te-Z9JA9w-t500x500.jpg">](https://soundcloud.com/djmischkonsum/dj-mischkonsum-kushhunterdave-underneath-your-clothes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yuyp9U5hRkimoVw-WzzDBw-t500x500.jpg">](https://soundcloud.com/djgg12/take-me-by-the-hand_rmx)
 
-**Artist**: DJ Mischkonsum 
+**Artist**: GG12 
 
-**Track**: DJ MISCHKONSUM & KUSHHUNTERDAVE - UNDERNEATH YOUR CLOTHES(FREE DL!!)
+**Track**: TAKE ME BY THE HAND_RMX
 
-Last updated at 6/25/2025, 8:08:14 PM
+Last updated at 6/25/2025, 8:20:01 PM
