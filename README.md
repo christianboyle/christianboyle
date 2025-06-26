@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70LLOSENBmxGLzSu-8TT9Qw-t500x500.jpg">](https://soundcloud.com/contagious-records/riko-james-k-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQvCJtqvzmbZAqbN-IWhlEQ-t500x500.png">](https://soundcloud.com/oklou93/blade-bird-nick-leon-broward-mix-3?in=saxurn/sets/very-obvi/)
 
-**Artist**: Riko & James K 
+**Artist**: oklou 
 
-**Track**: [CR261] Riko & James K - Alone (OUT NOW)
+**Track**: blade bird (Nick León broward mix)
 
-Last updated at 6/26/2025, 6:27:24 AM
+Last updated at 6/26/2025, 8:22:24 AM
