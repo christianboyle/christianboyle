@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-z3tVo0fcR1Vu6yez-IORzGQ-t500x500.jpg">](https://soundcloud.com/karatecute08/upset)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3yeGvEGFzRJHNsy-c9yDDg-t500x500.png">](https://soundcloud.com/wormhole-music-group/secret-recipe-inner-child-1)
 
-**Artist**: KarateCute08 
+**Artist**: Secret Recipe 
 
-**Track**: upset
+**Track**: Secret Recipe - Inner Child
 
-Last updated at 6/25/2025, 7:49:36 PM
+Last updated at 6/25/2025, 7:50:36 PM
