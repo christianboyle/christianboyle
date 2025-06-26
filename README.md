@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iX6VqUQbd6OGYy3z-DBgwxA-t500x500.png">](https://soundcloud.com/borgore/fixmeup?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOGOxU05nqMl9UD7-UjALiA-t500x500.png">](https://soundcloud.com/sytrux/skrillex-space-laces-recovery-sytrux-remix?in=saxurn/sets/very-obvi/)
 
-**Artist**: Borgore 
+**Artist**: Sytrux, Skrillex, Space Laces 
 
-**Track**: Borgore - FIX ME UP
+**Track**: Skrillex & Space Laces - RECOVERY (Sytrux Remix)
 
-Last updated at 6/26/2025, 8:56:32 AM
+Last updated at 6/26/2025, 1:53:33 PM
