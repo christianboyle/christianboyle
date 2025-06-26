@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AEG9xxbPUmxl3ctM-x76pzg-t500x500.jpg">](https://soundcloud.com/peakdial/kuhlosul-hexed-hit-dem-wit-dat-peak-dial-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rN5zncXYzJ5EIzMB-p37Xpw-t500x500.jpg">](https://soundcloud.com/dinkthepoof/xre)
 
-**Artist**: PEAK DIAL 
+**Artist**: DJOTA, FUTSU 
 
-**Track**: KUHLOSUL & HEXED - Hit Dem Wit Dat [Peak Dial]
+**Track**: XRE (Dink the Poof remix)
 
-Last updated at 6/25/2025, 7:42:50 PM
+Last updated at 6/25/2025, 7:44:00 PM
