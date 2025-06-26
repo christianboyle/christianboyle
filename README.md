@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJnK8MlGdJBZn3MC-QMaMSQ-t500x500.png">](https://soundcloud.com/phonkunited/cvdmium-michael-myers-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOGOxU05nqMl9UD7-UjALiA-t500x500.png">](https://soundcloud.com/sytrux/skrillex-space-laces-recovery-sytrux-remix?in=saxurn/sets/very-obvi/)
 
-**Artist**: PhonkUnited 
+**Artist**: Sytrux, Skrillex, Space Laces 
 
-**Track**: CVDMIUM - Michael Myers
+**Track**: Skrillex & Space Laces - RECOVERY (Sytrux Remix)
 
-Last updated at 6/26/2025, 1:59:38 PM
+Last updated at 6/26/2025, 2:07:13 PM
