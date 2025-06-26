@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzfZjoXPJETQ4Hg8-L44WzQ-t500x500.png">](https://soundcloud.com/donatachi/madonna-hung-up-donatachi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IBfzF6D9ydTgpJhd-SkHryg-t500x500.png">](https://soundcloud.com/donatachi/a-night-with-sophie)
 
 **Artist**: Donatachi 
 
-**Track**: Madonna - Hung Up (Donatachi Remix)
+**Track**: A Night With SOPHIE
 
-Last updated at 6/25/2025, 8:02:10 PM
+Last updated at 6/25/2025, 8:03:10 PM
