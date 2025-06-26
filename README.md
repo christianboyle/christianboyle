@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9P9ViKR8xqXiY7WY-BOb69g-t500x500.png">](https://soundcloud.com/yerbownik/searching)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8JY4fZyp6uyVw7te-Z9JA9w-t500x500.jpg">](https://soundcloud.com/djmischkonsum/dj-mischkonsum-kushhunterdave-underneath-your-clothes)
 
-**Artist**: yerbby 
+**Artist**: DJ Mischkonsum 
 
-**Track**: searching for a better world
+**Track**: DJ MISCHKONSUM & KUSHHUNTERDAVE - UNDERNEATH YOUR CLOTHES(FREE DL!!)
 
-Last updated at 6/25/2025, 8:07:14 PM
+Last updated at 6/25/2025, 8:08:14 PM
