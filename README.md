@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Je8Lbe5uGtCoz8tx-eccQTg-t500x500.jpg">](https://soundcloud.com/1crusafix/righteous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F9NyE7OLHKNhysS0-deTmrg-t500x500.jpg">](https://soundcloud.com/zaioni/bob-marley-prod-me-ja66)
 
-**Artist**: crusafix 
+**Artist**: zai 
 
-**Track**: righteous ft deepinparis (advxrse + crusey)
+**Track**: Bob Marley (Prod Me & Ja66)
 
-Last updated at 6/25/2025, 7:46:00 PM
+Last updated at 6/25/2025, 7:47:25 PM
