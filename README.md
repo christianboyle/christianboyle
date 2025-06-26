@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQvCJtqvzmbZAqbN-IWhlEQ-t500x500.png">](https://soundcloud.com/oklou93/blade-bird-nick-leon-broward-mix-3?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gzdcwn0Y1tcQmWnv-cypj3g-t500x500.png">](https://soundcloud.com/satoshijpn/kesha-tik-tok-satoshi-remix?in=saxurn/sets/very-obvi/)
 
-**Artist**: oklou 
+**Artist**: SATOSHI 
 
-**Track**: blade bird (Nick León broward mix)
+**Track**: Ke$ha - Tik Tok (SATOSHI Remix)
 
-Last updated at 6/26/2025, 8:22:24 AM
+Last updated at 6/26/2025, 8:25:44 AM
