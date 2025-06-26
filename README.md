@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHmcYJSm5yU1EY46-J2yTdA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-mystery-land?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8mDYwH0oDTDwlDY-unQNyg-t500x500.png">](https://soundcloud.com/2sickpuppiez/wheredowego?in=saxurn/sets/very-obvi/)
 
-**Artist**: Bounce Jackerz 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Bounce Jackerz - Mystery Land
+**Track**: 2 Sick Puppiez - Where Do We Go
 
-Last updated at 6/26/2025, 2:35:07 PM
+Last updated at 6/26/2025, 2:39:22 PM
