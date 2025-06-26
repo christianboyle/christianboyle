@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOGOxU05nqMl9UD7-UjALiA-t500x500.png">](https://soundcloud.com/sytrux/skrillex-space-laces-recovery-sytrux-remix?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zK7X7OXVozzCIsio-Myv4HQ-t500x500.png">](https://soundcloud.com/maadwest1/mike-sherm-100-hoes-maad-6)
 
-**Artist**: Sytrux, Skrillex, Space Laces 
+**Artist**: MAAD WEST 
 
-**Track**: Skrillex & Space Laces - RECOVERY (Sytrux Remix)
+**Track**: Mike Sherm - 100 Hoes (MAAD WEST FLIP)
 
-Last updated at 6/26/2025, 1:53:33 PM
+Last updated at 6/26/2025, 1:56:53 PM
