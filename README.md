@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L8mDYwH0oDTDwlDY-unQNyg-t500x500.png">](https://soundcloud.com/2sickpuppiez/wheredowego?in=saxurn/sets/very-obvi/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tlsRl1yybGvX11Do-ybxVsw-t500x500.png">](https://soundcloud.com/tynanofficial/still-into-you-tynan-flip?in=saxurn/sets/very-obvi/)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: TYNAN 
 
-**Track**: 2 Sick Puppiez - Where Do We Go
+**Track**: Paramore - Still Into You (TYNAN Flip)
 
-Last updated at 6/26/2025, 8:51:17 AM
+Last updated at 6/26/2025, 8:54:17 AM
