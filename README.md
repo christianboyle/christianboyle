@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l65SnsPNO8PtszPQ-sxyiYw-t500x500.jpg">](https://soundcloud.com/digicolrecords/90ba961e-e383-4000-a444-69e5447a98be)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsmuGPDvlVkWaNnm-KysJBg-t500x500.png">](https://soundcloud.com/2kmagica/culprit)
 
-**Artist**: RELLiK 
+**Artist**: khel, confetti 
 
-**Track**: EAZYBAKED x DAGGZ - WYAWYS [RELLiK FLiP]
+**Track**: culprit
 
-Last updated at 6/27/2025, 4:55:39 PM
+Last updated at 6/27/2025, 4:56:44 PM
