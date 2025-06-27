@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INzvrAqyMXzrc20O-3ZcGlw-t500x500.png">](https://soundcloud.com/chromebodies/2hollis-crush-chromebodied)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVcpZduZRmlzm14f-m0rSLg-t500x500.png">](https://soundcloud.com/nobe_bass/nobe-truth)
 
-**Artist**: CHROMEBODIES 
+**Artist**: Nobe 
 
-**Track**: 2HOLLIS - CRUSH (CHROMEBODIED)
+**Track**: NOBE - Truth
 
-Last updated at 6/27/2025, 4:43:55 PM
+Last updated at 6/27/2025, 4:44:55 PM
