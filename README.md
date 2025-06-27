@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ESFEzG6zcyasYo9Y-OJFTRA-t500x500.jpg">](https://soundcloud.com/outfed/when-u-come-home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l65SnsPNO8PtszPQ-sxyiYw-t500x500.jpg">](https://soundcloud.com/digicolrecords/90ba961e-e383-4000-a444-69e5447a98be)
 
-**Artist**: alt0 
+**Artist**: RELLiK 
 
-**Track**: when u come home
+**Track**: EAZYBAKED x DAGGZ - WYAWYS [RELLiK FLiP]
 
-Last updated at 6/27/2025, 4:54:34 PM
+Last updated at 6/27/2025, 4:55:39 PM
