@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9w5PsKs7ak4ioiIz-uOntyA-t500x500.jpg">](https://soundcloud.com/grummelofficial/gata-only-grummel-bootleg-v2-100-bpm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iaz4z8w3xHalZFoz-xzpICw-t500x500.jpg">](https://soundcloud.com/formerhero/self-hard-edit-v2)
 
-**Artist**: Grummel 
+**Artist**: former hero 
 
-**Track**: Gata Only (Grummel Remix)
+**Track**: Self (hard edit v2)
 
-Last updated at 6/27/2025, 4:45:55 PM
+Last updated at 6/27/2025, 4:47:59 PM
