@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jqmPCW7MGL8FsuqM-p8KzNg-t500x500.png">](https://soundcloud.com/ender-peach/skai-isyourgod-ar-p1h-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3yeGvEGFzRJHNsy-c9yDDg-t500x500.png">](https://soundcloud.com/wormhole-music-group/secret-recipe-inner-child-1)
 
-**Artist**: P1H 
+**Artist**: Secret Recipe 
 
-**Track**: 攬佬SKAI ISYOURGOD, AR劉夫陽 - 大展鴻圖/大展鸿图 (P1H Dnb Remix)
+**Track**: Secret Recipe - Inner Child
 
-Last updated at 6/27/2025, 4:41:45 PM
+Last updated at 6/27/2025, 4:42:55 PM
