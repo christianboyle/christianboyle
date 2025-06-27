@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acWyUTVJn2cpul0Y-kcNzIQ-t500x500.png">](https://soundcloud.com/rawppl/premiere-groef-strapped-tight-trsn036?in=transition_ofc/sets/groef-moving-maniacs-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4ehYkf54jGYhwsd-i7Uo8w-t500x500.png">](https://soundcloud.com/technogermany/premiere-groef-flatser-trsn036?in=transition_ofc/sets/groef-moving-maniacs-ep)
 
-**Artist**: RAW 
+**Artist**: Techno Germany 
 
-**Track**: Premiere: Groef - Strapped Tight [TRSN036]
+**Track**: Premiere: Groef - Flatser [TRSN036]
 
-Last updated at 6/27/2025, 5:03:45 PM
+Last updated at 6/27/2025, 5:09:41 PM
