@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Uy5IrACzk9yjNbM-UTzc6w-t500x500.jpg">](https://soundcloud.com/peakdial/kuhlosul-thred-get-down-peak-dial-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKwd8rMmlby3PSa7-9CmzpA-t500x500.jpg">](https://soundcloud.com/dica-mkrksm/quench-dreams-dica-edit-1)
 
-**Artist**: PEAK DIAL 
+**Artist**: DICA 
 
-**Track**: KUHLOSUL & THRED - Get Down [Peak Dial]
+**Track**: Quench - Dreams (DICA Edit) [FREE DL]
 
-Last updated at 6/27/2025, 4:50:39 PM
+Last updated at 6/27/2025, 4:53:24 PM
