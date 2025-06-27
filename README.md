@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHmcYJSm5yU1EY46-J2yTdA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-mystery-land)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQvCJtqvzmbZAqbN-IWhlEQ-t500x500.png">](https://soundcloud.com/oklou93/blade-bird-nick-leon-broward-mix-3?in=saxurn/sets/very-obvi)
 
-**Artist**: Bounce Jackerz 
+**Artist**: oklou 
 
-**Track**: Bounce Jackerz - Mystery Land
+**Track**: blade bird (Nick León broward mix)
 
-Last updated at 6/27/2025, 6:11:00 AM
+Last updated at 6/27/2025, 10:35:57 AM
