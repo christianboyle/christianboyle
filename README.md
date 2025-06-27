@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k6nA4DcCX57YT0ed-K0DKNg-t500x500.png">](https://soundcloud.com/vlackon/vlackon-you-got-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjNnSxIFrHbUwon2-izvCAg-t500x500.png">](https://soundcloud.com/spira_me/everything-everywhere)
 
-**Artist**: Vlackon 
+**Artist**: Spira me 
 
-**Track**: Vlackon - You Got
+**Track**: Everything, Everywhere Ends (prod. Eera + with3r)
 
-Last updated at 6/27/2025, 5:38:18 PM
+Last updated at 6/27/2025, 5:41:04 PM
