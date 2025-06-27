@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hFnCISHN4o0yNa4R-dEVLGQ-t500x500.png">](https://soundcloud.com/rosario-sounds/6723fb17-16f7-4d57-9d6e-7e9550d262c7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople)
 
-**Artist**: Rosario 
+**Artist**: PUK 
 
-**Track**: Let's Dip
+**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
 
-Last updated at 6/27/2025, 4:59:20 PM
+Last updated at 6/27/2025, 5:00:25 PM
