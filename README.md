@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3yeGvEGFzRJHNsy-c9yDDg-t500x500.png">](https://soundcloud.com/wormhole-music-group/secret-recipe-inner-child-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INzvrAqyMXzrc20O-3ZcGlw-t500x500.png">](https://soundcloud.com/chromebodies/2hollis-crush-chromebodied)
 
-**Artist**: Secret Recipe 
+**Artist**: CHROMEBODIES 
 
-**Track**: Secret Recipe - Inner Child
+**Track**: 2HOLLIS - CRUSH (CHROMEBODIED)
 
-Last updated at 6/27/2025, 4:42:55 PM
+Last updated at 6/27/2025, 4:43:55 PM
