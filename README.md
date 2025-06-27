@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-angKvQ1yrCkXSXhj-7mjhoQ-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-jks-the-tribe-vinyl-version-bccomixed001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryFzLSwfTBz2XbQc-2LivLw-t500x500.jpg">](https://soundcloud.com/mybadmusic/no-broke-boys-my-bad-rmx)
 
-**Artist**: TRANSITION, JKS 
+**Artist**: Disco Lines, Tinashe 
 
-**Track**: PREMIERE: JKS – The Tribe (Vinyl Version) [BCCOMIXED001]
+**Track**: No Broke Boys (MY BAD Remix)
 
-Last updated at 6/27/2025, 5:31:23 PM
+Last updated at 6/27/2025, 5:36:13 PM
