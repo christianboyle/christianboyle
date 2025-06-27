@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAI0Y9sMBprQToWN-jDPLrw-t500x500.png">](https://soundcloud.com/disgo_music/disgo-jack-flora-think-fast-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Uy5IrACzk9yjNbM-UTzc6w-t500x500.jpg">](https://soundcloud.com/peakdial/kuhlosul-thred-get-down-peak-dial-1)
 
-**Artist**: DISGO & JACK FLORA 
+**Artist**: PEAK DIAL 
 
-**Track**: DISGO & JACK FLORA - THINK FAST
+**Track**: KUHLOSUL & THRED - Get Down [Peak Dial]
 
-Last updated at 6/27/2025, 4:49:24 PM
+Last updated at 6/27/2025, 4:50:39 PM
