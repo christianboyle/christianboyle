@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYLyGxfmA8i7hRNn-Y26iMg-t500x500.jpg">](https://soundcloud.com/thewiddfam/devstep-blips-jush-remix-all-mixed-up-vol-3-wddfmfd016-widdfam-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acWyUTVJn2cpul0Y-kcNzIQ-t500x500.png">](https://soundcloud.com/rawppl/premiere-groef-strapped-tight-trsn036?in=transition_ofc/sets/groef-moving-maniacs-ep)
 
-**Artist**: The WiddFam 
+**Artist**: RAW 
 
-**Track**: Devstep - Blips (JUSH REMIX) - All Mixed Up Vol. 3 WDDFMFD016 - WiddFam
+**Track**: Premiere: Groef - Strapped Tight [TRSN036]
 
-Last updated at 6/27/2025, 5:01:25 PM
+Last updated at 6/27/2025, 5:03:45 PM
