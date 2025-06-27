@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iaz4z8w3xHalZFoz-xzpICw-t500x500.jpg">](https://soundcloud.com/formerhero/self-hard-edit-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAI0Y9sMBprQToWN-jDPLrw-t500x500.png">](https://soundcloud.com/disgo_music/disgo-jack-flora-think-fast-1)
 
-**Artist**: former hero 
+**Artist**: DISGO & JACK FLORA 
 
-**Track**: Self (hard edit v2)
+**Track**: DISGO & JACK FLORA - THINK FAST
 
-Last updated at 6/27/2025, 4:47:59 PM
+Last updated at 6/27/2025, 4:49:24 PM
