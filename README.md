@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Byljoal2SaVkeOo1-Anrvbw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/acdc-demon-fire-nick-stevanson-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EAwLVMCXl9zQi49g-FZ5Row-t500x500.png">](https://soundcloud.com/epo_edm/tidalwave)
 
-**Artist**: Nick Stevanson 
+**Artist**: E.P.O, X-Ray, Nyukyung 
 
-**Track**: AC/DC - Demon Fire (Nick Stevanson Remix) [FREE DOWNLOAD]
+**Track**: E.P.O & X-Ray & Nyukyung - Tidal Wave
 
-Last updated at 6/28/2025, 8:17:21 AM
+Last updated at 6/28/2025, 8:31:23 AM
