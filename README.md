@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mbUQllFPWNPR3p0n-QZyFMA-t500x500.png">](https://soundcloud.com/juicygoose/freestylers-ruffneck-juicy-goose-4x4-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsdaDqQA7Qk3OfXh-0UuaDw-t500x500.png">](https://soundcloud.com/mayklflp/littletalks)
 
-**Artist**: Juicy Goose 
+**Artist**: Of Monsters & Men 
 
-**Track**: Freestylers - Ruffneck (Juicy Goose 4x4 Bootleg)[FREE DL]
+**Track**: LITTLE TALKS (MAYKL BOOTLEG)
 
-Last updated at 6/28/2025, 8:40:04 AM
+Last updated at 6/28/2025, 8:41:04 AM
