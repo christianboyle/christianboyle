@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z8cztO5qYkP9oicx-2fmkrQ-t500x500.jpg">](https://soundcloud.com/ely-oaks/all-i-know-ely-oaks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HsANegfktNiUAiN-FH7WoA-t500x500.jpg">](https://soundcloud.com/ducklandbristol/oscar-wallyn-on-my-own)
 
-**Artist**: Rudimental, Khalid, Ely Oaks 
+**Artist**: Oscar Wallyn 
 
-**Track**: All I Know (Ely Oaks Remix)
+**Track**: Oscar Wallyn - On My Own
 
-Last updated at 6/28/2025, 8:32:48 AM
+Last updated at 6/28/2025, 8:33:53 AM
