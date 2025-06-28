@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3HsANegfktNiUAiN-FH7WoA-t500x500.jpg">](https://soundcloud.com/ducklandbristol/oscar-wallyn-on-my-own)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c3y8iOgCHH1IV5QQ-zSwf2Q-t500x500.jpg">](https://soundcloud.com/gesesmusic/dontwakemeup)
 
-**Artist**: Oscar Wallyn 
+**Artist**: GESES 
 
-**Track**: Oscar Wallyn - On My Own
+**Track**: James Hype - Don't Wake Me Up (GESES Euro-Techno Remix) *SUPPORTED BY BASSJACKERS*
 
-Last updated at 6/28/2025, 8:33:53 AM
+Last updated at 6/28/2025, 8:34:58 AM
