@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjNnSxIFrHbUwon2-izvCAg-t500x500.png">](https://soundcloud.com/spira_me/everything-everywhere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeoUyUAqCb4tYNQw-20DPVw-t500x500.jpg">](https://soundcloud.com/johnnyo666/high-by-the-beach-remix)
 
-**Artist**: Spira me 
+**Artist**: Lana Del Rey 
 
-**Track**: Everything, Everywhere Ends (prod. Eera + with3r)
+**Track**: High by the Beach (JOHNNY O Remix)
 
-Last updated at 6/27/2025, 5:41:04 PM
+Last updated at 6/28/2025, 7:00:12 AM
