@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yuyp9U5hRkimoVw-WzzDBw-t500x500.jpg">](https://soundcloud.com/djgg12/take-me-by-the-hand_rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHARcdBIaVN-0-t500x500.jpg">](https://soundcloud.com/donatachi/dont-wait)
 
-**Artist**: GG12 
+**Artist**: Donatachi, D V D 
 
-**Track**: TAKE ME BY THE HAND_RMX
+**Track**: Don't Wait
 
-Last updated at 6/29/2025, 9:29:17 AM
+Last updated at 6/29/2025, 9:34:09 AM
