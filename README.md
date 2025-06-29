@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5H8D90xkrmyx-0-t500x500.jpg">](https://soundcloud.com/max-dean-music/cant-decide-pre-save-now-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxDONpt6swFu9zPA-ormPAQ-t500x500.png">](https://soundcloud.com/montarecs/reece-rose-sht-like-radio-edit-2)
 
-**Artist**: Max Dean, Luke Dean, Locky 
+**Artist**: Reece Rosé 
 
-**Track**: Can't Decide
+**Track**: Reece Rosé - Sh!t Like (Radio Edit)
 
-Last updated at 6/29/2025, 9:15:28 AM
+Last updated at 6/29/2025, 9:16:28 AM
