@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMp5gZw1TXuR-0-t500x500.jpg">](https://soundcloud.com/x-coast/neapolis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee?in=saxurn/sets/just-dew-it/)
 
-**Artist**: X-COAST 
+**Artist**: life 
 
-**Track**: Neapolis
+**Track**: white tee (hazel, saig)
 
-Last updated at 6/29/2025, 12:02:50 PM
+Last updated at 6/29/2025, 12:04:09 PM
