@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INzvrAqyMXzrc20O-3ZcGlw-t500x500.png">](https://soundcloud.com/chromebodies/2hollis-crush-chromebodied?in=saxurn/sets/just-dew-it/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee?in=saxurn/sets/just-dew-it/)
 
-**Artist**: CHROMEBODIES 
+**Artist**: life 
 
-**Track**: 2HOLLIS - CRUSH (CHROMEBODIED)
+**Track**: white tee (hazel, saig)
 
-Last updated at 6/29/2025, 4:16:00 PM
+Last updated at 6/29/2025, 4:51:10 PM
