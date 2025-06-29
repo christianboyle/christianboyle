@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xMp5gZw1TXuR-0-t500x500.jpg">](https://soundcloud.com/x-coast/neapolis)
 
-**Artist**: PUK 
+**Artist**: X-COAST 
 
-**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
+**Track**: Neapolis
 
-Last updated at 6/29/2025, 12:01:50 PM
+Last updated at 6/29/2025, 12:02:50 PM
