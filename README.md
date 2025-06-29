@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sZHARcdBIaVN-0-t500x500.jpg">](https://soundcloud.com/donatachi/dont-wait)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gNR3W5zWFZGUpFNj-aZPMGg-t500x500.jpg">](https://soundcloud.com/clear_cast/set-the-roof-clearcast-remix)
 
-**Artist**: Donatachi, D V D 
+**Artist**: Clearcast 
 
-**Track**: Don't Wait
+**Track**: Set The Roof (Clearcast Remix)
 
-Last updated at 6/29/2025, 9:34:09 AM
+Last updated at 6/29/2025, 9:36:50 AM
