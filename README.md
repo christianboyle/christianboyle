@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKwd8rMmlby3PSa7-9CmzpA-t500x500.jpg">](https://soundcloud.com/dica-mkrksm/quench-dreams-dica-edit-1?in=saxurn/sets/just-dew-it/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople)
 
-**Artist**: DICA 
+**Artist**: PUK 
 
-**Track**: Quench - Dreams (DICA Edit) [FREE DL]
+**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
 
-Last updated at 6/29/2025, 9:45:37 AM
+Last updated at 6/29/2025, 12:01:50 PM
