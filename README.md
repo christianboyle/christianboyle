@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKwd8rMmlby3PSa7-9CmzpA-t500x500.jpg">](https://soundcloud.com/dica-mkrksm/quench-dreams-dica-edit-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee)
 
-**Artist**: DICA 
+**Artist**: life 
 
-**Track**: Quench - Dreams (DICA Edit) [FREE DL]
+**Track**: white tee (hazel, saig)
 
-Last updated at 6/29/2025, 9:40:11 AM
+Last updated at 6/29/2025, 9:41:29 AM
