@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vINwUGAnsX2Mhyfz-rFeyyA-t500x500.png">](https://soundcloud.com/xternalz/here-we-go-again)
 
-**Artist**: life 
+**Artist**: xternalz, fabs, sensuku 
 
-**Track**: white tee (hazel, saig)
+**Track**: here we go again! + fabs & sensuku (wallflower)
 
-Last updated at 6/29/2025, 9:41:29 AM
+Last updated at 6/29/2025, 9:43:14 AM
