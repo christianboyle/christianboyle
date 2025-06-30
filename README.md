@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6eI0ICHZv8a8Gkj-vm5F2Q-t500x500.png">](https://soundcloud.com/virusmafiamusic/dreamin-kanaka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1mahmoYOGuu-0-t500x500.jpg">](https://soundcloud.com/onyxs_official/there-is-only-you-original-mix)
 
-**Artist**: Virus Mafia, Kanaka 
+**Artist**: ONYXS 
 
-**Track**: Dom Dolla - DREAMIN' (Virus Mafia x Kanaka remix)
+**Track**: There Is Only You (Original Mix)
 
-Last updated at 6/30/2025, 10:38:59 AM
+Last updated at 6/30/2025, 10:41:45 AM
