@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1HfqJlxIbKjCxLg-ufvzRQ-t500x500.jpg">](https://soundcloud.com/dings-rausch/lady-gaga-just-dance-dj-dings?in=saxurn/sets/just-dew-it/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYKbXIYztAKQij9E-4Cdd9Q-t500x500.png">](https://soundcloud.com/bbjuelz/the-days-juelz-ailow-flip?in=saxurn/sets/just-dew-it/)
 
-**Artist**: DJ Dings & Tim Rausch 
+**Artist**: Chrystal, Notion, Juelz, Ailow 
 
-**Track**: Lady Gaga - Just Dance (DJ Dings & Tim Rausch Rework)
+**Track**: The Days (Juelz & Ailow Flip)
 
-Last updated at 6/30/2025, 10:17:47 AM
+Last updated at 6/30/2025, 10:21:23 AM
