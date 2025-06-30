@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrrN8Dysev3pqBU0-cs5Rvw-t500x500.jpg">](https://soundcloud.com/hardlinesounds/a-for-alpha-dee-lite-hard24?in=saxurn/sets/just-dew-it/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vsdaDqQA7Qk3OfXh-0UuaDw-t500x500.png">](https://soundcloud.com/mayklflp/littletalks?in=saxurn/sets/just-dew-it/)
 
-**Artist**: A For Alpha 
+**Artist**: Of Monsters & Men 
 
-**Track**: A For Alpha - Dee Lite (HARD24)
+**Track**: LITTLE TALKS (MAYKL BOOTLEG)
 
-Last updated at 6/30/2025, 9:56:00 AM
+Last updated at 6/30/2025, 10:01:51 AM
