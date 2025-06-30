@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxDONpt6swFu9zPA-ormPAQ-t500x500.png">](https://soundcloud.com/montarecs/reece-rose-dont-stop-radio-edit-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J0M7EnhWjtV0Hzd6-f0Uh0Q-t500x500.png">](https://soundcloud.com/electronyze-me/scarexx-interlink-dopamine-4)
 
-**Artist**: Reece Rosé 
+**Artist**: Scarexx, Interlink 
 
-**Track**: Reece Rosé - Don't Stop (Radio Edit)
+**Track**: Scarexx & interlink -Dopamine
 
-Last updated at 6/30/2025, 8:05:15 AM
+Last updated at 6/30/2025, 8:06:15 AM
