@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrrN8Dysev3pqBU0-cs5Rvw-t500x500.jpg">](https://soundcloud.com/hardlinesounds/a-for-alpha-dee-lite-hard24)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUcrAEqjEmIHQo6X-XGsRiQ-t500x500.png">](https://soundcloud.com/weareriot/artikfest)
 
-**Artist**: A For Alpha 
+**Artist**: RIOT 
 
-**Track**: A For Alpha - Dee Lite (HARD24)
+**Track**: RIOT LIVE SET @ ARTIKFEST 2025
 
-Last updated at 6/30/2025, 8:02:12 AM
+Last updated at 6/30/2025, 8:04:15 AM
