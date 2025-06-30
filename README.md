@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFZKEJoBkHZeZ0Ue-2VnYoA-t500x500.jpg">](https://soundcloud.com/2soonmusic/victory-lap-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yuyp9U5hRkimoVw-WzzDBw-t500x500.jpg">](https://soundcloud.com/djgg12/take-me-by-the-hand_rmx?in=saxurn/sets/just-dew-it/)
 
-**Artist**: 2SOON 
+**Artist**: GG12 
 
-**Track**: Fred again.., Skepta, PlaqueBoyMax - Victory Lap (2SOON REMIX) [FREE DOWNLOAD]
+**Track**: TAKE ME BY THE HAND_RMX
 
-Last updated at 6/30/2025, 9:47:44 AM
+Last updated at 6/30/2025, 9:50:15 AM
