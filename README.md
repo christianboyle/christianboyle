@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZxWYXzk6RWyP65vZ-SoOPmQ-t500x500.png">](https://soundcloud.com/vincentmix/lfn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6eI0ICHZv8a8Gkj-vm5F2Q-t500x500.png">](https://soundcloud.com/virusmafiamusic/dreamin-kanaka)
 
-**Artist**: Vincent2 
+**Artist**: Virus Mafia, Kanaka 
 
-**Track**: Last Friday Night (Vincent Remix)
+**Track**: Dom Dolla - DREAMIN' (Virus Mafia x Kanaka remix)
 
-Last updated at 6/30/2025, 10:35:39 AM
+Last updated at 6/30/2025, 10:38:59 AM
