@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INzvrAqyMXzrc20O-3ZcGlw-t500x500.png">](https://soundcloud.com/chromebodies/2hollis-crush-chromebodied?in=saxurn/sets/just-dew-it/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g1HfqJlxIbKjCxLg-ufvzRQ-t500x500.jpg">](https://soundcloud.com/dings-rausch/lady-gaga-just-dance-dj-dings?in=saxurn/sets/just-dew-it/)
 
-**Artist**: CHROMEBODIES 
+**Artist**: DJ Dings & Tim Rausch 
 
-**Track**: 2HOLLIS - CRUSH (CHROMEBODIED)
+**Track**: Lady Gaga - Just Dance (DJ Dings & Tim Rausch Rework)
 
-Last updated at 6/30/2025, 10:14:57 AM
+Last updated at 6/30/2025, 10:17:47 AM
