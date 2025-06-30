@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QGctv8AarVbzw9gy-QbVYcQ-t500x500.jpg">](https://soundcloud.com/n-a-e-m-i/eat-it-foamy-drums)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YUJbypf0Kj4BaS7-TrwJaw-t500x500.jpg">](https://soundcloud.com/41rossco/july25mix)
 
-**Artist**: naemi 
+**Artist**: DJ.Rossco 
 
-**Track**: eat it (foamy drums)
+**Track**: July25mix
 
-Last updated at 6/30/2025, 8:07:15 AM
+Last updated at 6/30/2025, 8:08:25 AM
