@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wiFWGVM6LTHmxTy-rzEDvw-t500x500.jpg">](https://soundcloud.com/hassanfilename/lagged)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/tmbth)
 
-**Artist**: san 
+**Artist**: Gaszia 
 
-**Track**: lagged ft trustt, norémac
+**Track**: Oklou & Bladee - Take Me By The Hand (Gaszia Edit)
 
-Last updated at 7/1/2025, 6:46:52 PM
+Last updated at 7/1/2025, 6:49:11 PM
