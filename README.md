@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4p1xvxLu2qOs5sc-0lbVyg-t500x500.png">](https://soundcloud.com/dj-jas-l/bounce-addiction-klubb-efekt-tribute-mix-tracklist-in-description)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzFBSokpC3z2gu0N-yd1zRA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dj-plant-texture-mondo-nuovo-mrx007)
 
-**Artist**: DJ Jas L 
+**Artist**: HATE, DJ Plant Texture  
 
-**Track**: Bounce Addiction (Klubb Efekt Tribute Mix) TRACKLIST IN DESCRIPTION
+**Track**: Premiere: DJ Plant Texture — Mondo Nuovo [MRX007]
 
-Last updated at 7/1/2025, 8:10:44 AM
+Last updated at 7/1/2025, 8:11:44 AM
