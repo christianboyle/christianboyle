@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzFBSokpC3z2gu0N-yd1zRA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-dj-plant-texture-mondo-nuovo-mrx007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-mark-speed)
 
-**Artist**: HATE, DJ Plant Texture  
+**Artist**: JGS, INTENT, MARK SPEED 
 
-**Track**: Premiere: DJ Plant Texture — Mondo Nuovo [MRX007]
+**Track**: JGS, INTENT & MARK SPEED - NEVERLAND (Sample)
 
-Last updated at 7/1/2025, 8:11:44 AM
+Last updated at 7/1/2025, 8:13:09 AM
