@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lz2BzclU6nLZrE6j-EyKkZQ-t500x500.png">](https://soundcloud.com/lifegiverr/donttchange)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amgMCYdniXn40KzV-ugLAqg-t500x500.jpg">](https://soundcloud.com/cruseyyyy/party)
 
-**Artist**: life 
+**Artist**: crusey, akkiro 
 
-**Track**: donttchange +vesta (akura)
+**Track**: at the party prod me n lynU
 
-Last updated at 7/1/2025, 6:41:17 PM
+Last updated at 7/1/2025, 6:42:17 PM
