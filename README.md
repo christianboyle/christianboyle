@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uMYzdpR0fOpvzbrT-PD6fdA-t500x500.png">](https://soundcloud.com/hiimdryden/i-could-be-the-one-dryden-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rsi7O1b17cpYlySz-PcbwZg-t500x500.png">](https://soundcloud.com/yunglasso/linke-boulder-ratte-9)
 
-**Artist**: DRYDEN 
+**Artist**: yunglasso 
 
-**Track**: I COULD BE THE ONE (DRYDEN EDIT)
+**Track**: Linke Boulder Ratte
 
-Last updated at 7/1/2025, 9:50:22 AM
+Last updated at 7/1/2025, 9:52:32 AM
