@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gNR3W5zWFZGUpFNj-aZPMGg-t500x500.jpg">](https://soundcloud.com/clear_cast/set-the-roof-clearcast-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dMFDiKI1zDrv1eDh-RTSPfg-t500x500.png">](https://soundcloud.com/monstercat/sportmode-fly)
 
-**Artist**: Clearcast 
+**Artist**: SPORTMODE 
 
-**Track**: Set The Roof (Clearcast Remix)
+**Track**: SPORTMODE - FLY
 
-Last updated at 7/1/2025, 9:04:41 AM
+Last updated at 7/1/2025, 9:09:06 AM
