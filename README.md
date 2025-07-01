@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvhkoBRe7LFqAKKF-kgxFSA-t500x500.png">](https://soundcloud.com/shweezofficial/shut-down-name)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rN5zncXYzJ5EIzMB-p37Xpw-t500x500.jpg">](https://soundcloud.com/dinkthepoof/xre)
 
-**Artist**: SHWEEZ 
+**Artist**: DJOTA, FUTSU 
 
-**Track**: SVDDEN DEATH - FORGOTTEN NAME (SHWEEZ EDIT) vs SHUT EM' DOWN
+**Track**: XRE (Dink the Poof remix)
 
-Last updated at 7/1/2025, 8:16:59 AM
+Last updated at 7/1/2025, 8:18:00 AM
