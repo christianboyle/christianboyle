@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVcMhXazFLSUnkPz-LiO0iQ-t500x500.png">](https://soundcloud.com/whoistrickstar/trickstar-live-at-edc-las-vegas-jokes-on-you-vol4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4p1xvxLu2qOs5sc-0lbVyg-t500x500.png">](https://soundcloud.com/dj-jas-l/bounce-addiction-klubb-efekt-tribute-mix-tracklist-in-description)
 
-**Artist**: TRICKSTAR 
+**Artist**: DJ Jas L 
 
-**Track**: TRICKSTAR LIVE AT EDC LAS VEGAS [JOKES ON YOU VOL.4]
+**Track**: Bounce Addiction (Klubb Efekt Tribute Mix) TRACKLIST IN DESCRIPTION
 
-Last updated at 7/1/2025, 6:12:33 AM
+Last updated at 7/1/2025, 8:10:44 AM
