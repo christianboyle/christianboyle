@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyflyGf4yyn0Ddoe-45LmZw-t500x500.jpg">](https://soundcloud.com/elliemillss/hold-on?in=cruseyyyy/sets/music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zy0VEwlAQWMRtzd7-SOw6hw-t500x500.jpg">](https://soundcloud.com/laurel-572942456/3e5)
 
-**Artist**: ellie mills 
+**Artist**: laurel 
 
-**Track**: hold on
+**Track**: think again... {blow.my.mind}
 
-Last updated at 7/1/2025, 6:44:52 PM
+Last updated at 7/1/2025, 6:45:52 PM
