@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/somebodytocrush?in=gaszia/sets/bandcamp-edits-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvhkoBRe7LFqAKKF-kgxFSA-t500x500.png">](https://soundcloud.com/shweezofficial/shut-down-name)
 
-**Artist**: Gaszia 
+**Artist**: SHWEEZ 
 
-**Track**: AJ Tracey & Justin Bieber - Somebody to Crush On (Gaszia Love Mash)
+**Track**: SVDDEN DEATH - FORGOTTEN NAME (SHWEEZ EDIT) vs SHUT EM' DOWN
 
-Last updated at 7/1/2025, 8:15:49 AM
+Last updated at 7/1/2025, 8:16:59 AM
