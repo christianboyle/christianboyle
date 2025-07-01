@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/tmbth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople)
 
-**Artist**: Gaszia 
+**Artist**: PUK 
 
-**Track**: Oklou & Bladee - Take Me By The Hand (Gaszia Edit)
+**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
 
-Last updated at 7/1/2025, 6:49:11 PM
+Last updated at 7/1/2025, 6:58:03 PM
