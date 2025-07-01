@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYKbXIYztAKQij9E-4Cdd9Q-t500x500.png">](https://soundcloud.com/bbjuelz/the-days-juelz-ailow-flip?in=saxurn/sets/just-dew-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uMYzdpR0fOpvzbrT-PD6fdA-t500x500.png">](https://soundcloud.com/hiimdryden/i-could-be-the-one-dryden-1)
 
-**Artist**: Chrystal, Notion, Juelz, Ailow 
+**Artist**: DRYDEN 
 
-**Track**: The Days (Juelz & Ailow Flip)
+**Track**: I COULD BE THE ONE (DRYDEN EDIT)
 
-Last updated at 7/1/2025, 9:47:17 AM
+Last updated at 7/1/2025, 9:50:22 AM
