@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hx2vjy7YUGKHA995-5lvZtQ-t500x500.jpg">](https://soundcloud.com/dossyx/threesixty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee?in=saxurn/sets/just-dew-it)
 
-**Artist**: dossyx 
+**Artist**: life 
 
-**Track**: charli xcx - 360 (dossyx edit)
+**Track**: white tee (hazel, saig)
 
-Last updated at 7/1/2025, 9:12:16 AM
+Last updated at 7/1/2025, 9:13:53 AM
