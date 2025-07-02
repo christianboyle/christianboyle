@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xd7ZDmIO0S6lC6CR-ZcMlyw-t500x500.jpg">](https://soundcloud.com/cruseyyyy/life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/tmbth)
 
-**Artist**: crusey, deepinparis 
+**Artist**: Gaszia 
 
-**Track**: restart
+**Track**: Oklou & Bladee - Take Me By The Hand (Gaszia Edit)
 
-Last updated at 7/1/2025, 7:42:06 PM
+Last updated at 7/1/2025, 7:44:06 PM
