@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5LkrfT1lDtNVVJyo-kERZVw-t500x500.jpg">](https://soundcloud.com/dj4b/lets-go-4b-x-vrod-beatz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c4CwAKBQRA6pwt9f-Sv6BZg-t500x500.png">](https://soundcloud.com/codecrecs/previews-local-analyst-walking-through-dust-cdc019)
 
-**Artist**: 4B 
+**Artist**: Local Analyst 
 
-**Track**: LETS GO (4B x VROD BEATZ REMIX)
+**Track**: (PREVIEWS) Local Analyst - Walking Through Dust [CDC019]
 
-Last updated at 7/2/2025, 9:23:22 AM
+Last updated at 7/2/2025, 9:25:48 AM
