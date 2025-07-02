@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Veaekn9fwvuGJkm-0Es2Bg-t500x500.png">](https://soundcloud.com/aderbsound/premiere-hopdop-abrptn-gtgcomp001)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epNQhwBkAJkauHWy-Jp9fMA-t500x500.png">](https://soundcloud.com/hardlinesounds/jackard-bust-it-hardline10?in=hardlinesounds/sets/hardline10)
 
-**Artist**: aderb, Hopdop 
+**Artist**: JACKARD 
 
-**Track**: PREMIERE // Hopdop - Abrptn [GTGCOMP001]
+**Track**: JACKARD - Bust It (HARDLINE10)
 
-Last updated at 7/2/2025, 9:43:44 AM
+Last updated at 7/2/2025, 9:46:09 AM
