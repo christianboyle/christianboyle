@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kfnQlzAy1UYxumBn-kNvshQ-t500x500.jpg">](https://soundcloud.com/awfultop/awfultop-gunk-slumped-prod-7300)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xd7ZDmIO0S6lC6CR-ZcMlyw-t500x500.jpg">](https://soundcloud.com/cruseyyyy/life)
 
-**Artist**: awfultop, gunk 
+**Artist**: crusey, deepinparis 
 
-**Track**: awfultop gunk - slumped prod 7300
+**Track**: restart
 
-Last updated at 7/2/2025, 1:37:20 PM
+Last updated at 7/2/2025, 4:51:47 PM
