@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epNQhwBkAJkauHWy-Jp9fMA-t500x500.png">](https://soundcloud.com/hardlinesounds/jackard-ruff-riderz-hardline10?in=hardlinesounds/sets/hardline10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1yIfSC3J0wtnu35-gQprFA-t500x500.png">](https://soundcloud.com/bangeranghard/bnghrd018)
 
-**Artist**: JACKARD 
+**Artist**: JXR 
 
-**Track**: JACKARD - Ruff Riderz (HARDLINE10)
+**Track**: JXR - Orbit
 
-Last updated at 7/2/2025, 9:51:24 AM
+Last updated at 7/2/2025, 9:52:24 AM
