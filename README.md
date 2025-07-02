@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/tmbth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gNR3W5zWFZGUpFNj-aZPMGg-t500x500.jpg">](https://soundcloud.com/clear_cast/set-the-roof-clearcast-remix)
 
-**Artist**: Gaszia 
+**Artist**: Clearcast 
 
-**Track**: Oklou & Bladee - Take Me By The Hand (Gaszia Edit)
+**Track**: Set The Roof (Clearcast Remix)
 
-Last updated at 7/1/2025, 7:44:06 PM
+Last updated at 7/1/2025, 7:46:27 PM
