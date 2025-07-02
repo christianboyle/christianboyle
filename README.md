@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xd7ZDmIO0S6lC6CR-ZcMlyw-t500x500.jpg">](https://soundcloud.com/cruseyyyy/life)
 
-**Artist**: PUK 
+**Artist**: crusey, deepinparis 
 
-**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
+**Track**: restart
 
-Last updated at 7/1/2025, 6:58:03 PM
+Last updated at 7/1/2025, 7:42:06 PM
