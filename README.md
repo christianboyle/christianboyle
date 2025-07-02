@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8Z2qOXYuf8be4Qz-W4900g-t500x500.jpg">](https://soundcloud.com/whosbaclash/shella-verse-baclash-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2q8TF0Q8KpQ0cri-u4m7Cw-t500x500.png">](https://soundcloud.com/luhvmusic/with-u)
 
-**Artist**: Sammy Virgi, Flowdan, Baclash   
+**Artist**: Luhv 
 
-**Track**: Shella Verse (Baclash Flip)
+**Track**: With U
 
-Last updated at 7/2/2025, 9:19:02 AM
+Last updated at 7/2/2025, 9:20:02 AM
