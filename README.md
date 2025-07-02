@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c4CwAKBQRA6pwt9f-Sv6BZg-t500x500.png">](https://soundcloud.com/codecrecs/previews-local-analyst-walking-through-dust-cdc019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Veaekn9fwvuGJkm-0Es2Bg-t500x500.png">](https://soundcloud.com/aderbsound/premiere-hopdop-abrptn-gtgcomp001)
 
-**Artist**: Local Analyst 
+**Artist**: aderb, Hopdop 
 
-**Track**: (PREVIEWS) Local Analyst - Walking Through Dust [CDC019]
+**Track**: PREMIERE // Hopdop - Abrptn [GTGCOMP001]
 
-Last updated at 7/2/2025, 9:25:48 AM
+Last updated at 7/2/2025, 9:43:44 AM
