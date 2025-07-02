@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2q8TF0Q8KpQ0cri-u4m7Cw-t500x500.png">](https://soundcloud.com/luhvmusic/with-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1O5jJcPNgVDdaRK8-yhouqg-t500x500.jpg">](https://soundcloud.com/laiondatrack/megan-thee-stallion-ft-yuki)
 
-**Artist**: Luhv 
+**Artist**: LAIAN / Lai On Da Track 
 
-**Track**: With U
+**Track**: Megan Thee Stallion ft. Yuki Chiba - Mamushi (Lai On Da Track Jersey Club Edit)
 
-Last updated at 7/2/2025, 9:20:02 AM
+Last updated at 7/2/2025, 9:21:12 AM
