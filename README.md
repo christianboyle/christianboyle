@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xd7ZDmIO0S6lC6CR-ZcMlyw-t500x500.jpg">](https://soundcloud.com/cruseyyyy/life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYKbXIYztAKQij9E-4Cdd9Q-t500x500.png">](https://soundcloud.com/bbjuelz/the-days-juelz-ailow-flip)
 
-**Artist**: crusey, deepinparis 
+**Artist**: Chrystal, Notion, Juelz, Ailow 
 
-**Track**: restart
+**Track**: The Days (Juelz & Ailow Flip)
 
-Last updated at 7/3/2025, 6:37:54 AM
+Last updated at 7/6/2025, 12:12:24 PM
