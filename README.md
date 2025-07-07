@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jkwg4p3kN5E5RzTW-haazEA-t500x500.png">](https://soundcloud.com/madjestickasual/emeel-scratch-mk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ITh02uKBcc1vdwfR-j6wvfg-t500x500.jpg">](https://soundcloud.com/youraurelia/supernova)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Aurelia 
 
-**Track**: emeel - Scratch''' [MK PREMIERE]
+**Track**: SUPERNOVA (feat. Ehiorobo)
 
-Last updated at 7/6/2025, 8:00:48 PM
+Last updated at 7/6/2025, 8:02:58 PM
