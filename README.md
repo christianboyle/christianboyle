@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xd7ZDmIO0S6lC6CR-ZcMlyw-t500x500.jpg">](https://soundcloud.com/cruseyyyy/life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duVBDtxb9ViXn0yI-zNpqNw-t500x500.png">](https://soundcloud.com/sublabmusic/sublab-acrobatix)
 
-**Artist**: crusey, deepinparis 
+**Artist**: Sublab 
 
-**Track**: restart
+**Track**: ACROBATIX
 
-Last updated at 7/7/2025, 2:30:53 PM
+Last updated at 7/7/2025, 5:31:07 PM
