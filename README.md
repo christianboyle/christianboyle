@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2C5hf4KLdpnz7eA-N1Xvvg-t500x500.png">](https://soundcloud.com/tnt_ofc/premiere-bubs-is-this-a-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djAOmUyfddw7sUdr-QQIsLA-t500x500.jpg">](https://soundcloud.com/tnt_ofc/premiere-farayen-be-the-same)
 
-**Artist**: TNT, Bubs 
+**Artist**: TNT 
 
-**Track**: PREMIERE: Bubs – Is This A Dream
+**Track**: PREMIERE: Farayen – Be The Same
 
-Last updated at 7/7/2025, 6:34:25 AM
+Last updated at 7/7/2025, 6:35:20 AM
