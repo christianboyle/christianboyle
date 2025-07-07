@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiJ4tH5hZRI0-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/all-or-nothing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2C5hf4KLdpnz7eA-N1Xvvg-t500x500.png">](https://soundcloud.com/tnt_ofc/premiere-bubs-is-this-a-dream)
 
-**Artist**: KINN 
+**Artist**: TNT, Bubs 
 
-**Track**: All Or Nothing
+**Track**: PREMIERE: Bubs – Is This A Dream
 
-Last updated at 7/6/2025, 8:49:40 PM
+Last updated at 7/7/2025, 6:34:25 AM
