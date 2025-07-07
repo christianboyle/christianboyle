@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djAOmUyfddw7sUdr-QQIsLA-t500x500.jpg">](https://soundcloud.com/tnt_ofc/premiere-farayen-be-the-same)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqfbpXKmjvpifF6J-XwSvkw-t500x500.jpg">](https://soundcloud.com/darn84/mastervibe-ds-19-27-05-1995)
 
-**Artist**: TNT 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: PREMIERE: Farayen – Be The Same
+**Track**: Mastervibe @ DS 19 (27/05/1995)
 
-Last updated at 7/7/2025, 6:35:20 AM
+Last updated at 7/7/2025, 6:36:15 AM
