@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzQJL4963HsOotWz-OK4xkw-t500x500.png">](https://soundcloud.com/aspirehighermusic/snuffy-vices-ah-tune-tuesday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQKnv4jW4a3d3uGd-Rg1JJA-t500x500.png">](https://soundcloud.com/wasteurself/wasteurself-x-pinku-ecrush-2)
 
-**Artist**: Snuffy 
+**Artist**: wasteurself 
 
-**Track**: Snuffy - Vices (AH Tune Tuesday)
+**Track**: wasteurself x pinku - ecrush
 
-Last updated at 7/6/2025, 7:51:02 PM
+Last updated at 7/6/2025, 7:51:57 PM
