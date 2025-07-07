@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KH5z2Hgsk7BpFmvu-mb7nCA-t500x500.jpg">](https://soundcloud.com/altairdubs/keylog)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mys7HYZMu972kMU6-5dEmzQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-bev-e-i-wanna-dance)
 
-**Artist**: altair 
+**Artist**: Techno Wereld, BEV-E 
 
-**Track**: KEYLOG
+**Track**: Premiere: BEV-E - I Wanna Dance
 
-Last updated at 7/7/2025, 8:31:55 AM
+Last updated at 7/7/2025, 9:06:43 AM
