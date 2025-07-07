@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQKnv4jW4a3d3uGd-Rg1JJA-t500x500.png">](https://soundcloud.com/wasteurself/wasteurself-x-pinku-ecrush-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RVaI2hoC1ryWpxEL-wZmqQA-t500x500.jpg">](https://soundcloud.com/aleasounds/twisting-fingers)
 
-**Artist**: wasteurself 
+**Artist**: ALEA 
 
-**Track**: wasteurself x pinku - ecrush
+**Track**: thatmexicanot - Twisting Fingers (ALEA Flip)
 
-Last updated at 7/6/2025, 7:51:57 PM
+Last updated at 7/6/2025, 7:52:52 PM
