@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-196QeUMVFBNpgu2y-oyAKuQ-t500x500.png">](https://soundcloud.com/dotgavn/all-i-got)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiJ4tH5hZRI0-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/all-or-nothing)
 
-**Artist**: .gav 
+**Artist**: KINN 
 
-**Track**: all i got
+**Track**: All Or Nothing
 
-Last updated at 7/6/2025, 8:48:44 PM
+Last updated at 7/6/2025, 8:49:40 PM
