@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mys7HYZMu972kMU6-5dEmzQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-bev-e-i-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sYmLmduezeFAaffO-mleQEg-t500x500.png">](https://soundcloud.com/dnzrecords/crs-komodo)
 
-**Artist**: Techno Wereld, BEV-E 
+**Artist**: CRS 
 
-**Track**: Premiere: BEV-E - I Wanna Dance
+**Track**: CRS - Komodo
 
-Last updated at 7/7/2025, 2:28:48 PM
+Last updated at 7/7/2025, 2:29:53 PM
