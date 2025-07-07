@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYb3W8NceVs0tYJQ-3Takeg-t500x500.png">](https://soundcloud.com/da-bow/notype2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x9SyOYyzmXpsmsn4-XNmfHA-t500x500.png">](https://soundcloud.com/morecreativityrecords/lavier-watching-mcr)
 
-**Artist**: Dabow 
+**Artist**: more creativity 
 
-**Track**: NO TYPE (Dabow 2025 Flip)
+**Track**: Lavier - Watching
 
-Last updated at 7/7/2025, 6:50:32 AM
+Last updated at 7/7/2025, 8:31:05 AM
