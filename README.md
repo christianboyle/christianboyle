@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-521c6c0U0pLH-0-t500x500.jpg">](https://soundcloud.com/djprinsh/pump-up-quartzo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYb3W8NceVs0tYJQ-3Takeg-t500x500.png">](https://soundcloud.com/da-bow/notype2025)
 
-**Artist**: PRINSH, EBO Live, Malky Barros, Quartzo 
+**Artist**: Dabow 
 
-**Track**: Pump Up (Quartzo Remix)
+**Track**: NO TYPE (Dabow 2025 Flip)
 
-Last updated at 7/7/2025, 6:46:51 AM
+Last updated at 7/7/2025, 6:50:32 AM
