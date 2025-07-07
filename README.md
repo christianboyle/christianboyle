@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aMmUby23pL86na5V-KAJVCw-t500x500.jpg">](https://soundcloud.com/beansclub/daydreaming?in=underdotnet/sets/beansclub-figurines-and)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPl3z3hW8EmTDpmh-zmMuGA-t500x500.jpg">](https://soundcloud.com/kselity/memoria)
 
-**Artist**: beansclub 
+**Artist**: kselity 
 
-**Track**: daydreaming
+**Track**: ✦ MEMORIA
 
-Last updated at 7/6/2025, 8:13:00 PM
+Last updated at 7/6/2025, 8:40:12 PM
