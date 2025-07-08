@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WHhZc3KOR4zWsRxU-Rs7zIQ-t500x500.jpg">](https://soundcloud.com/steve-hicks-469427772/corrupted-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsS5pwGZb9uAnJPv-Rwsc6Q-t500x500.jpg">](https://soundcloud.com/tommyjonsounds/teach-me-how-to-dougie)
 
-**Artist**: HARDFIX 
+**Artist**: tommyjon 
 
-**Track**: Corrupted Mind
+**Track**: Teach Me How to Dougie (tommyjon flip) [FREE DL]
 
-Last updated at 7/8/2025, 9:22:42 AM
+Last updated at 7/8/2025, 9:26:03 AM
