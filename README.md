@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bvbPuAATsK53Bz3R-fEYKdg-t500x500.jpg">](https://soundcloud.com/brightviolet/freeak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ujsuE7h90LS6-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/paradise)
 
-**Artist**: brightviolet 
+**Artist**: Hypnotic Phase 
 
-**Track**: Freeak
+**Track**: Paradise
 
-Last updated at 7/8/2025, 8:49:43 AM
+Last updated at 7/8/2025, 8:50:33 AM
