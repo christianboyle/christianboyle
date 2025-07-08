@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SCQLBhpeG2VLzjaZ-yCrwsw-t500x500.png">](https://soundcloud.com/truetothesound/duper-stonk-sauce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L7q5dsUzIRroJGAI-x9yXSQ-t500x500.jpg">](https://soundcloud.com/elex_page/cantstop)
 
-**Artist**: True To The Sound 
+**Artist**: ELEX 
 
-**Track**: Duper - Stonk Sauce
+**Track**: I Can't Stop
 
-Last updated at 7/8/2025, 9:16:32 AM
+Last updated at 7/8/2025, 9:17:21 AM
