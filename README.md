@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J0M7EnhWjtV0Hzd6-f0Uh0Q-t500x500.png">](https://soundcloud.com/electronyze-me/highdruh-inner-evil-10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6s3HsUFfrS227yZ2-mL3zuA-t500x500.jpg">](https://soundcloud.com/darn84/rescue-mc-keyes-rr-raveland)
 
-**Artist**: Highdruh 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Highdruh - Inner Evil
+**Track**: Rescue & MC Keyes @ RR - Raveland 2021 (29/08/2021)
 
-Last updated at 7/8/2025, 8:56:04 AM
+Last updated at 7/8/2025, 8:58:15 AM
