@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmCiyyzGWCVakpKt-YZqkhw-t500x500.png">](https://soundcloud.com/deejaytonic11/atb-ecstasy-tonic-bootleg-2025-update)
 
-**Artist**: Jordan Irwin 
+**Artist**: Deejaytonic11 
 
-**Track**: Jordan Irwin - Bad Boy
+**Track**: ATB - Ecstasy (Tonic Bootleg)
 
-Last updated at 7/8/2025, 9:42:59 AM
+Last updated at 7/8/2025, 9:45:35 AM
