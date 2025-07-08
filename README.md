@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/louder)
 
-**Artist**: Joey G 
+**Artist**: SICKISH 
 
-**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
+**Track**: LOUDER
 
-Last updated at 7/8/2025, 9:33:08 AM
+Last updated at 7/8/2025, 9:36:09 AM
