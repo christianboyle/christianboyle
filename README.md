@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzjhcgMjCxnlGrD5-amWoFA-t500x500.png">](https://soundcloud.com/aadysi/space-laces-this-way-aadysi-shift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SxmoMVFijYhz9wjr-y01e9Q-t500x500.png">](https://soundcloud.com/kaiwachi/nonstop)
 
-**Artist**: Aadysi 
+**Artist**: KAI WACHI, Saint Miller 
 
-**Track**: SPACE LACES - THIS WAY (Aadysi Shift)
+**Track**: NONSTOP
 
-Last updated at 7/8/2025, 8:18:27 AM
+Last updated at 7/8/2025, 8:21:17 AM
