@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiJ4tH5hZRI0-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/all-or-nothing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy)
 
-**Artist**: KINN 
+**Artist**: Jordan Irwin 
 
-**Track**: All Or Nothing
+**Track**: Jordan Irwin - Bad Boy
 
-Last updated at 7/8/2025, 9:55:26 AM
+Last updated at 7/8/2025, 1:02:11 PM
