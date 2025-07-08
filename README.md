@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J0M7EnhWjtV0Hzd6-f0Uh0Q-t500x500.png">](https://soundcloud.com/electronyze-me/highdruh-inner-evil-10)
 
-**Artist**: Joey G 
+**Artist**: Highdruh 
 
-**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
+**Track**: Highdruh - Inner Evil
 
-Last updated at 7/8/2025, 8:54:24 AM
+Last updated at 7/8/2025, 8:56:04 AM
