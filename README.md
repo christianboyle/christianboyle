@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv9U9GxTjQvzxpEf-AwwXQQ-t500x500.jpg">](https://soundcloud.com/electronyze-me/get-lit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uAdh3dzY3VpzViH3-FJGLJw-t500x500.jpg">](https://soundcloud.com/ilyhallowed/pass-the-rock-prod-me)
 
-**Artist**: Nght Vision 
+**Artist**: hallowed 
 
-**Track**: Nght Vision - Get Lit
+**Track**: mike tyson
 
-Last updated at 7/8/2025, 8:48:03 AM
+Last updated at 7/8/2025, 8:48:53 AM
