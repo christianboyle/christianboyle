@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uAdh3dzY3VpzViH3-FJGLJw-t500x500.jpg">](https://soundcloud.com/ilyhallowed/pass-the-rock-prod-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bvbPuAATsK53Bz3R-fEYKdg-t500x500.jpg">](https://soundcloud.com/brightviolet/freeak)
 
-**Artist**: hallowed 
+**Artist**: brightviolet 
 
-**Track**: mike tyson
+**Track**: Freeak
 
-Last updated at 7/8/2025, 8:48:53 AM
+Last updated at 7/8/2025, 8:49:43 AM
