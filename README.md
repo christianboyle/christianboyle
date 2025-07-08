@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000023225252-qn5nbf-t500x500.jpg">](https://soundcloud.com/lady_dj/bass-bandits-loving-times-2007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fv9U9GxTjQvzxpEf-AwwXQQ-t500x500.jpg">](https://soundcloud.com/electronyze-me/get-lit)
 
-**Artist**: L@!)Y_1)J 
+**Artist**: Nght Vision 
 
-**Track**: Bass Bandits - Loving Times 2007 (DJ Greenie Remix)
+**Track**: Nght Vision - Get Lit
 
-Last updated at 7/8/2025, 8:47:13 AM
+Last updated at 7/8/2025, 8:48:03 AM
