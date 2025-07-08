@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CG7w4bzyDh1Jxp55-kbJIwg-t500x500.png">](https://soundcloud.com/bonkaofficial/einszweipolizei)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000023225252-qn5nbf-t500x500.jpg">](https://soundcloud.com/lady_dj/bass-bandits-loving-times-2007)
 
-**Artist**: BONKA, ACINA  
+**Artist**: L@!)Y_1)J 
 
-**Track**: Eins Zwei Polizei (ACINA & BONKA Mashup)
+**Track**: Bass Bandits - Loving Times 2007 (DJ Greenie Remix)
 
-Last updated at 7/8/2025, 8:46:23 AM
+Last updated at 7/8/2025, 8:47:13 AM
