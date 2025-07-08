@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pk0ZtuanCiJ4-0-t500x500.png">](https://soundcloud.com/samuel-l-session/vanguard-poetry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CG7w4bzyDh1Jxp55-kbJIwg-t500x500.png">](https://soundcloud.com/bonkaofficial/einszweipolizei)
 
-**Artist**: Samuel L Session 
+**Artist**: BONKA, ACINA  
 
-**Track**: Vanguard Poetry
+**Track**: Eins Zwei Polizei (ACINA & BONKA Mashup)
 
-Last updated at 7/8/2025, 8:45:18 AM
+Last updated at 7/8/2025, 8:46:23 AM
