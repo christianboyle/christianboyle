@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kE3CJALct8TIAwsM-CD3P3Q-t500x500.png">](https://soundcloud.com/hellgnar/fortune-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl)
 
-**Artist**: HellGnar 
+**Artist**: Joey G 
 
-**Track**: FORTUNE
+**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
 
-Last updated at 7/8/2025, 8:53:29 AM
+Last updated at 7/8/2025, 8:54:24 AM
