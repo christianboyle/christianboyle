@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9JKzJRx4Ib9u-0-t500x500.jpg">](https://soundcloud.com/djprinsh/your-skin-quartzo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzjhcgMjCxnlGrD5-amWoFA-t500x500.png">](https://soundcloud.com/aadysi/space-laces-this-way-aadysi-shift)
 
-**Artist**: PRINSH, Rodrigo Cerveira 
+**Artist**: Aadysi 
 
-**Track**: Your Skin (Quartzo Remix)
+**Track**: SPACE LACES - THIS WAY (Aadysi Shift)
 
-Last updated at 7/8/2025, 8:14:07 AM
+Last updated at 7/8/2025, 8:18:27 AM
