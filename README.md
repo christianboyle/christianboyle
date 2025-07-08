@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NycrD8LUszXRCVs3-jOD0mQ-t500x500.jpg">](https://soundcloud.com/darn84/red-jerry-deeper-euphoria-cd2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SCQLBhpeG2VLzjaZ-yCrwsw-t500x500.png">](https://soundcloud.com/truetothesound/duper-stonk-sauce)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: True To The Sound 
 
-**Track**: Red Jerry - Deeper Euphoria - CD2 (1999)
+**Track**: Duper - Stonk Sauce
 
-Last updated at 7/8/2025, 8:59:05 AM
+Last updated at 7/8/2025, 9:16:32 AM
