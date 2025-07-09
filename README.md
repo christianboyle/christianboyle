@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5z5qElmB9hQPxhIZ-pF9xZQ-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-dtah-sunrise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys?in=saxurn/sets/dino-wind/)
 
-**Artist**: Craigy B! & DTAH 
+**Artist**: onBRAND, SiGiL 
 
-**Track**: Craigy B! & DTAH - Sunrise
+**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
 
-Last updated at 7/9/2025, 8:45:54 AM
+Last updated at 7/9/2025, 8:47:25 AM
