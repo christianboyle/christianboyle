@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bf5W41CrGzLTOHV-zeVzVQ-t500x500.png">](https://soundcloud.com/festivaltrap/rvst-corrode)
 
-**Artist**: Jordan Irwin 
+**Artist**: RVST 
 
-**Track**: Jordan Irwin - Bad Boy
+**Track**: RVST - CORRODE
 
-Last updated at 7/9/2025, 7:22:46 AM
+Last updated at 7/9/2025, 7:23:46 AM
