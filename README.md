@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jkwg4p3kN5E5RzTW-haazEA-t500x500.png">](https://soundcloud.com/madjestickasual/emeel-scratch-mk-premiere?in=saxurn/sets/mutagen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RVaI2hoC1ryWpxEL-wZmqQA-t500x500.jpg">](https://soundcloud.com/aleasounds/twisting-fingers?in=saxurn/sets/mutagen)
 
-**Artist**: Madjestic Kasual 
+**Artist**: ALEA 
 
-**Track**: emeel - Scratch''' [MK PREMIERE]
+**Track**: thatmexicanot - Twisting Fingers (ALEA Flip)
 
-Last updated at 7/9/2025, 9:59:15 AM
+Last updated at 7/9/2025, 10:02:55 AM
