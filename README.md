@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lhHxi4sxzhjhyzF-0RjHxg-t500x500.png">](https://soundcloud.com/gaszia/tmbth?in=saxurn/sets/mutagen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee?in=saxurn/sets/just-dew-it)
 
-**Artist**: Gaszia 
+**Artist**: life 
 
-**Track**: Oklou & Bladee - Take Me By The Hand (Gaszia Edit)
+**Track**: white tee (hazel, saig)
 
-Last updated at 7/9/2025, 10:05:45 AM
+Last updated at 7/9/2025, 10:08:10 AM
