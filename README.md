@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqX263wsMxJNITSi-s2Cd1g-t500x500.png">](https://soundcloud.com/iammanada/nissanaltima)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8Bmvku3YBfl8lxk-GYJ5JA-t500x500.png">](https://soundcloud.com/angelothekid/techno-hard-dance-edit-pack-part-2)
 
-**Artist**: MANADA 
+**Artist**: Angelo The Kid, RAFAEL 
 
-**Track**: DOECHII - NISSAN ALTIMA (M?STIC & MANADA FLIP)
+**Track**: TECHNO & HARD DANCE EDIT PACK PART 2
 
-Last updated at 7/9/2025, 7:27:46 AM
+Last updated at 7/9/2025, 7:30:32 AM
