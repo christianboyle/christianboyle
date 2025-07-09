@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zArKgAXnx4hURta3-uXlnOw-t500x500.jpg">](https://soundcloud.com/stayprizzy/eeenie-meenie-priz-remix?in=saxurn/sets/dino-wind/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5z5qElmB9hQPxhIZ-pF9xZQ-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-dtah-sunrise?in=saxurn/sets/dino-wind/)
 
-**Artist**: Sean Kingston & Justin Bieber 
+**Artist**: Craigy B! & DTAH 
 
-**Track**: Eeenie Meenie (PRIZ Remix)
+**Track**: Craigy B! & DTAH - Sunrise
 
-Last updated at 7/9/2025, 8:39:53 AM
+Last updated at 7/9/2025, 8:43:50 AM
