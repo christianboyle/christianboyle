@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiJ4tH5hZRI0-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/all-or-nothing?in=saxurn/sets/mutagen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BINvE28ClE12L2Wp-eN28wQ-t500x500.png">](https://soundcloud.com/billykinn/kinn-cosmos-original-mix-radio-edit?in=saxurn/sets/mutagen)
 
 **Artist**: KINN 
 
-**Track**: All Or Nothing
+**Track**: KINN EP 3 - Cosmos - (Original Mix) Radio Edit
 
-Last updated at 7/9/2025, 9:48:34 AM
+Last updated at 7/9/2025, 9:51:24 AM
