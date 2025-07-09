@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2D7TCf5sDpNn7Gqn-p8y9cw-t500x500.jpg">](https://soundcloud.com/shojinmusic/tnt)
 
-**Artist**: onBRAND, SiGiL 
+**Artist**: Shojin 
 
-**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
+**Track**: AC/DC - TNT (Shojin Flip)
 
-Last updated at 7/9/2025, 8:06:16 AM
+Last updated at 7/9/2025, 8:09:42 AM
