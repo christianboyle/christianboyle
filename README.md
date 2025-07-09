@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mys7HYZMu972kMU6-5dEmzQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-bev-e-i-wanna-dance?in=saxurn/sets/mutagen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iiJ4tH5hZRI0-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/all-or-nothing?in=saxurn/sets/mutagen)
 
-**Artist**: Techno Wereld, BEV-E 
+**Artist**: KINN 
 
-**Track**: Premiere: BEV-E - I Wanna Dance
+**Track**: All Or Nothing
 
-Last updated at 7/9/2025, 9:19:47 AM
+Last updated at 7/9/2025, 9:48:34 AM
