@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2oeAU6LixoP3XCte-bs7xOw-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-dle-fight-for-this-love-sample?in=saxurn/sets/mutagen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jkwg4p3kN5E5RzTW-haazEA-t500x500.png">](https://soundcloud.com/madjestickasual/emeel-scratch-mk-premiere?in=saxurn/sets/mutagen)
 
-**Artist**: DJ MOFF-EL MOFF 
+**Artist**: Madjestic Kasual 
 
-**Track**: El Moff & D.L.E-Fight For This Love (Sample)
+**Track**: emeel - Scratch''' [MK PREMIERE]
 
-Last updated at 7/9/2025, 9:57:07 AM
+Last updated at 7/9/2025, 9:59:15 AM
