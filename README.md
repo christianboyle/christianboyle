@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EbdIdtcbFIhW3olY-8nIwKA-t500x500.png">](https://soundcloud.com/darren-styles/rooler-darren-styles-dreamer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DsS5pwGZb9uAnJPv-Rwsc6Q-t500x500.jpg">](https://soundcloud.com/tommyjonsounds/teach-me-how-to-dougie)
 
-**Artist**: Darren Styles 
+**Artist**: tommyjon 
 
-**Track**: Rooler & Darren Styles - DREAMER
+**Track**: Teach Me How to Dougie (tommyjon flip) [FREE DL]
 
-Last updated at 7/9/2025, 7:59:26 AM
+Last updated at 7/9/2025, 8:02:16 AM
