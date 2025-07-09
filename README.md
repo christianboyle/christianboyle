@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz0KGyhKoa3Pac5M-70zMcA-t500x500.jpg">](https://soundcloud.com/violetxx9/1up-ft-kuru-pop-gethosyne)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy?in=saxurn/sets/hunna/)
 
-**Artist**: violet 
+**Artist**: Jordan Irwin 
 
-**Track**: 1up ft. kuru (pop gethosyne sandy)
+**Track**: Jordan Irwin - Bad Boy
 
-Last updated at 7/9/2025, 8:12:17 AM
+Last updated at 7/9/2025, 8:13:35 AM
