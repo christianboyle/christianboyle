@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qvZAjWv6FsJJCGR3-DTHCpw-t500x500.jpg">](https://soundcloud.com/davesummermusic/fatboy-slim-right-here-right-now-dave-summer-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RvZzY3NxZziL-0-t500x500.jpg">](https://soundcloud.com/jakka-b/right-here-right-now)
 
-**Artist**: Fatboy Slim, DAVE SUMMER 
+**Artist**: Jakka-B, SPYRO 
 
-**Track**: Fatboy Slim - Right Here, Right Now (Dave Summer Edit)
+**Track**: Right Here Right Now
 
-Last updated at 7/9/2025, 7:38:48 AM
+Last updated at 7/9/2025, 7:40:03 AM
