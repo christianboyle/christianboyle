@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DayObOp3ObcZfypi-iysQjg-t500x500.png">](https://soundcloud.com/officialhonu/fred-again-skepta-victory-lap-honu-remix?in=saxurn/sets/dino-wind)
 
-**Artist**: onBRAND, SiGiL 
+**Artist**: HONÜ 
 
-**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
+**Track**: Fred again.. & Skepta - Victory Lap (HONÜ Remix)
 
-Last updated at 7/9/2025, 8:50:09 AM
+Last updated at 7/9/2025, 8:54:31 AM
