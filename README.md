@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RvZzY3NxZziL-0-t500x500.jpg">](https://soundcloud.com/jakka-b/right-here-right-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OcUI7Te9SzI17Uxm-oSZ6Gg-t500x500.jpg">](https://soundcloud.com/godyssey/shorty-wanna)
 
-**Artist**: Jakka-B, SPYRO 
+**Artist**: GODYSSEY 
 
-**Track**: Right Here Right Now
+**Track**: SHORTY WANNA (GODYSSEY FLIP)
 
-Last updated at 7/9/2025, 7:40:03 AM
+Last updated at 7/9/2025, 7:41:08 AM
