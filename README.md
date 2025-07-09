@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kcNLYgvQklklkM2P-ymMh1A-t500x500.jpg">](https://soundcloud.com/bangerangbass/bngbss010)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CqX263wsMxJNITSi-s2Cd1g-t500x500.png">](https://soundcloud.com/iammanada/nissanaltima)
 
-**Artist**: Kordex 
+**Artist**: MANADA 
 
-**Track**: Kordex - Don't Stop
+**Track**: DOECHII - NISSAN ALTIMA (M?STIC & MANADA FLIP)
 
-Last updated at 7/9/2025, 7:26:47 AM
+Last updated at 7/9/2025, 7:27:46 AM
