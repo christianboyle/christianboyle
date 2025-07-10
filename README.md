@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DayObOp3ObcZfypi-iysQjg-t500x500.png">](https://soundcloud.com/officialhonu/fred-again-skepta-victory-lap-honu-remix?in=saxurn/sets/dino-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/louder?in=saxurn/sets/dino-wind)
 
-**Artist**: HONÜ 
+**Artist**: SICKISH 
 
-**Track**: Fred again.. & Skepta - Victory Lap (HONÜ Remix)
+**Track**: LOUDER
 
-Last updated at 7/10/2025, 8:37:35 AM
+Last updated at 7/10/2025, 8:39:40 AM
