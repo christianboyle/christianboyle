@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/louder?in=saxurn/sets/dino-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EbdIdtcbFIhW3olY-8nIwKA-t500x500.png">](https://soundcloud.com/darren-styles/rooler-darren-styles-dreamer?in=saxurn/sets/dino-wind)
 
-**Artist**: SICKISH 
+**Artist**: Darren Styles 
 
-**Track**: LOUDER
+**Track**: Rooler & Darren Styles - DREAMER
 
-Last updated at 7/10/2025, 8:39:40 AM
+Last updated at 7/10/2025, 8:52:06 AM
