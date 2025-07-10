@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qbv8aqbMQ3Ns-0-t500x500.jpg">](https://soundcloud.com/boogaardmusic/deathgrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SczLMlXZ2o2rYBtN-n4bE8g-t500x500.png">](https://soundcloud.com/whoistrickstar/flosstradamus-x-viperactive-hita-dj-snake-the-outlaw-x-trickstar-remix)
 
-**Artist**: Boogaard, BVLVNCE 
+**Artist**: TRICKSTAR 
 
-**Track**: Deathgrip
+**Track**: FLOSSTRADAMUS x VIPERACTIVE - HITA (DJ SNAKE "THE OUTLAW" x TRICKSTAR REMIX)
 
-Last updated at 7/10/2025, 8:09:42 AM
+Last updated at 7/10/2025, 8:10:47 AM
