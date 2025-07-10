@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g52SRO5ERSAhGjUA-r8tDeA-t500x500.png">](https://soundcloud.com/mkevents/rossi-hodgson-big-summer-sesh-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mICUKT0uGE7GxgsO-lvbTfg-t500x500.jpg">](https://soundcloud.com/cheezedj/a-little-sound-override-cheeze-remix)
 
-**Artist**: Rossi Hodgson 
+**Artist**: DJ Cheeze 
 
-**Track**: Rossi Hodgson - BIG Summer Sesh Promo Mix
+**Track**: A Little Sound - Override (Cheeze Remix)
 
-Last updated at 7/10/2025, 8:11:48 AM
+Last updated at 7/10/2025, 8:13:01 AM
