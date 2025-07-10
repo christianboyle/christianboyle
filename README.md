@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8Z2qOXYuf8be4Qz-W4900g-t500x500.jpg">](https://soundcloud.com/baclash_wip/shella-verse-baclash-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qbv8aqbMQ3Ns-0-t500x500.jpg">](https://soundcloud.com/boogaardmusic/deathgrip)
 
-**Artist**: Flowdan, Sammy Virji, Baclash 
+**Artist**: Boogaard, BVLVNCE 
 
-**Track**: Shella Verse (Baclash Flip)
+**Track**: Deathgrip
 
-Last updated at 7/10/2025, 8:08:42 AM
+Last updated at 7/10/2025, 8:09:42 AM
