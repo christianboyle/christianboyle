@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EbdIdtcbFIhW3olY-8nIwKA-t500x500.png">](https://soundcloud.com/darren-styles/rooler-darren-styles-dreamer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmCiyyzGWCVakpKt-YZqkhw-t500x500.png">](https://soundcloud.com/deejaytonic11/atb-ecstasy-tonic-bootleg-2025-update)
 
-**Artist**: Darren Styles 
+**Artist**: Deejaytonic11 
 
-**Track**: Rooler & Darren Styles - DREAMER
+**Track**: ATB - Ecstasy (Tonic Bootleg)
 
-Last updated at 7/10/2025, 10:50:29 AM
+Last updated at 7/10/2025, 2:48:18 PM
