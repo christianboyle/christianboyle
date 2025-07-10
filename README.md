@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxQxUnbUHpZbsqOR-vzuc9Q-t500x500.png">](https://soundcloud.com/lifegiverr/whitetee?in=saxurn/sets/just-dew-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/louder)
 
-**Artist**: life 
+**Artist**: SICKISH 
 
-**Track**: white tee (hazel, saig)
+**Track**: LOUDER
 
-Last updated at 7/9/2025, 10:08:10 AM
+Last updated at 7/10/2025, 6:11:35 AM
