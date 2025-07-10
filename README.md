@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0FHqqyyhysVA73o4-nZcC0w-t500x500.jpg">](https://soundcloud.com/mitchidubz/dark-dangerous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8Z2qOXYuf8be4Qz-W4900g-t500x500.jpg">](https://soundcloud.com/baclash_wip/shella-verse-baclash-flip)
 
-**Artist**: MITCH 
+**Artist**: Flowdan, Sammy Virji, Baclash 
 
-**Track**: DARK & DANGEROUS
+**Track**: Shella Verse (Baclash Flip)
 
-Last updated at 7/10/2025, 8:07:42 AM
+Last updated at 7/10/2025, 8:08:42 AM
