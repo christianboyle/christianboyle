@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DDWyQfdwBl2SFeB5-s7k89g-t500x500.png">](https://soundcloud.com/luzcid/hush-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3hESlgy3h5sME329-8TtMDg-t500x500.png">](https://soundcloud.com/narkalixofc/skee-lo-i-wish-narkalix-edit)
 
-**Artist**: LUZCID 
+**Artist**: Narkalix 
 
-**Track**: HUSH Flip
+**Track**: Skee Lo - I Wish (Narkalix Edit)
 
-Last updated at 7/10/2025, 8:05:27 AM
+Last updated at 7/10/2025, 8:06:27 AM
