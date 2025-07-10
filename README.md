@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Xq2NYm7odLzja1w-NdP6zQ-t500x500.jpg">](https://soundcloud.com/copypassa/body-rock?in=saxurn/sets/dino-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DayObOp3ObcZfypi-iysQjg-t500x500.png">](https://soundcloud.com/officialhonu/fred-again-skepta-victory-lap-honu-remix?in=saxurn/sets/dino-wind)
 
-**Artist**: PASSA 
+**Artist**: HONÜ 
 
-**Track**: Body Rock
+**Track**: Fred again.. & Skepta - Victory Lap (HONÜ Remix)
 
-Last updated at 7/10/2025, 8:33:39 AM
+Last updated at 7/10/2025, 8:37:35 AM
