@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys?in=saxurn/sets/dino-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Xq2NYm7odLzja1w-NdP6zQ-t500x500.jpg">](https://soundcloud.com/copypassa/body-rock?in=saxurn/sets/dino-wind)
 
-**Artist**: onBRAND, SiGiL 
+**Artist**: PASSA 
 
-**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
+**Track**: Body Rock
 
-Last updated at 7/10/2025, 8:30:29 AM
+Last updated at 7/10/2025, 8:33:39 AM
