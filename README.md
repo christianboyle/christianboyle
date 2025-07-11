@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Xq2NYm7odLzja1w-NdP6zQ-t500x500.jpg">](https://soundcloud.com/copypassa/body-rock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EbdIdtcbFIhW3olY-8nIwKA-t500x500.png">](https://soundcloud.com/darren-styles/rooler-darren-styles-dreamer)
 
-**Artist**: PASSA 
+**Artist**: Darren Styles 
 
-**Track**: Body Rock
+**Track**: Rooler & Darren Styles - DREAMER
 
-Last updated at 7/11/2025, 10:42:48 AM
+Last updated at 7/11/2025, 10:46:44 AM
