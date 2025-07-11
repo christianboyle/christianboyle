@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ytkhzs9Ld6Q5-0-t500x500.jpg">](https://soundcloud.com/diplo/diplo-feat-morgan-wallen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEY1VwdbVcyWDxyt-pAWo9g-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-never-surrender)
 
-**Artist**: Diplo feat. Morgan Wallen 
+**Artist**: Sub Zero Project 
 
-**Track**: Heartless (feat. Morgan Wallen)
+**Track**: Sub Zero Project - Never Surrender
 
-Last updated at 7/11/2025, 7:18:48 AM
+Last updated at 7/11/2025, 7:19:49 AM
