@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DayObOp3ObcZfypi-iysQjg-t500x500.png">](https://soundcloud.com/officialhonu/fred-again-skepta-victory-lap-honu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zArKgAXnx4hURta3-uXlnOw-t500x500.jpg">](https://soundcloud.com/stayprizzy/eeenie-meenie-priz-remix)
 
-**Artist**: HONÜ 
+**Artist**: Sean Kingston & Justin Bieber 
 
-**Track**: Fred again.. & Skepta - Victory Lap (HONÜ Remix)
+**Track**: Eeenie Meenie (PRIZ Remix)
 
-Last updated at 7/11/2025, 10:36:38 AM
+Last updated at 7/11/2025, 10:38:43 AM
