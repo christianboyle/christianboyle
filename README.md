@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lGHlns5JoxqNPhU-0uMW1Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/biteback-ancestyrremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
 
-**Artist**: Mantra Sounds, Glass Arrowhead 
+**Artist**: DJ Hendy 
 
-**Track**: Bite Back (Ancestyr Remix)
+**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
 
-Last updated at 7/11/2025, 9:02:33 AM
+Last updated at 7/11/2025, 9:05:14 AM
