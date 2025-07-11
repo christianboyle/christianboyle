@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GmCiyyzGWCVakpKt-YZqkhw-t500x500.png">](https://soundcloud.com/deejaytonic11/atb-ecstasy-tonic-bootleg-2025-update)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ytkhzs9Ld6Q5-0-t500x500.jpg">](https://soundcloud.com/diplo/diplo-feat-morgan-wallen)
 
-**Artist**: Deejaytonic11 
+**Artist**: Diplo feat. Morgan Wallen 
 
-**Track**: ATB - Ecstasy (Tonic Bootleg)
+**Track**: Heartless (feat. Morgan Wallen)
 
-Last updated at 7/11/2025, 6:28:33 AM
+Last updated at 7/11/2025, 7:18:48 AM
