@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s1qLug3cWkq1C8al-4Z26Pg-t500x500.jpg">](https://soundcloud.com/hanheemusic/i-know-love-feat-the-kid-laroihanhee-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HcYkpOkeZ0G-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/the-awakening-remastered)
 
-**Artist**: HANHEE 
+**Artist**: Sharkey 
 
-**Track**: Tate McRae-I know love (feat. The Kid LAROI)(HANHEE REMIX)
+**Track**: The Awakening (Remastered)
 
-Last updated at 7/11/2025, 7:30:51 AM
+Last updated at 7/11/2025, 7:32:04 AM
