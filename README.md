@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jP0b7Ct7hDeRigv7-WCzUzg-t500x500.png">](https://soundcloud.com/frasathy-lab/el-roockie-ft-de-la-ghetto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lGHlns5JoxqNPhU-0uMW1Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/biteback-ancestyrremix)
 
-**Artist**: RX BY FRASATHY 
+**Artist**: Mantra Sounds, Glass Arrowhead 
 
-**Track**: El Roockie Ft De la Ghetto- Martes de Galería (FRASATHY EDIT)
+**Track**: Bite Back (Ancestyr Remix)
 
-Last updated at 7/11/2025, 7:24:31 AM
+Last updated at 7/11/2025, 7:25:31 AM
