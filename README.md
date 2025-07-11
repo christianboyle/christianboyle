@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/louder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7qpCgIN5zGEP06lx-X5MKtQ-t500x500.png">](https://soundcloud.com/tomfrane/tom-frane-dont-get-in-my-space)
 
-**Artist**: SICKISH 
+**Artist**: Tom Frane 
 
-**Track**: LOUDER
+**Track**: Tom Frane - Don't Get In My Space
 
-Last updated at 7/11/2025, 9:44:02 AM
+Last updated at 7/11/2025, 9:47:13 AM
