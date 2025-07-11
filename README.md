@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5z5qElmB9hQPxhIZ-pF9xZQ-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-dtah-sunrise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DayObOp3ObcZfypi-iysQjg-t500x500.png">](https://soundcloud.com/officialhonu/fred-again-skepta-victory-lap-honu-remix)
 
-**Artist**: Craigy B! & DTAH 
+**Artist**: HONÜ 
 
-**Track**: Craigy B! & DTAH - Sunrise
+**Track**: Fred again.. & Skepta - Victory Lap (HONÜ Remix)
 
-Last updated at 7/11/2025, 9:17:20 AM
+Last updated at 7/11/2025, 9:20:55 AM
