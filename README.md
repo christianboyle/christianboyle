@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl)
 
-**Artist**: onBRAND, SiGiL 
+**Artist**: Joey G 
 
-**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
+**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
 
-Last updated at 7/11/2025, 9:37:57 AM
+Last updated at 7/11/2025, 9:41:02 AM
