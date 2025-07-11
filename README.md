@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzQJL4963HsOotWz-OK4xkw-t500x500.png">](https://soundcloud.com/aspirehighermusic/snuffy-vices-ah-tune-tuesday)
 
-**Artist**: DJ Hendy 
+**Artist**: Snuffy 
 
-**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
+**Track**: Snuffy - Vices (AH Tune Tuesday)
 
-Last updated at 7/11/2025, 10:21:11 AM
+Last updated at 7/11/2025, 10:26:11 AM
