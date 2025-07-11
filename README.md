@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HcYkpOkeZ0G-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/the-awakening-remastered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind)
 
-**Artist**: Sharkey 
+**Artist**: Argy (UK) 
 
-**Track**: The Awakening (Remastered)
+**Track**: 4-MIND
 
-Last updated at 7/11/2025, 7:32:04 AM
+Last updated at 7/11/2025, 7:33:04 AM
