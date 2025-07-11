@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lGHlns5JoxqNPhU-0uMW1Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/biteback-ancestyrremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ypU25rSuZej0ZJO-SzBYBw-t500x500.png">](https://soundcloud.com/sub49records/myway-us-the-terrace)
 
-**Artist**: Mantra Sounds, Glass Arrowhead 
+**Artist**: Myway (US) 
 
-**Track**: Bite Back (Ancestyr Remix)
+**Track**: MYWAY (US) | THE TERRACE
 
-Last updated at 7/11/2025, 7:25:31 AM
+Last updated at 7/11/2025, 7:26:31 AM
