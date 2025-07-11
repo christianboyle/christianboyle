@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2F1hLjaYEZkb-0-t500x500.jpg">](https://soundcloud.com/hysteriarecords/dirty-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzoK5GcsF9JTxqdR-xoaI5w-t500x500.png">](https://soundcloud.com/ryan_t08/ryan-t-ft-mike-nicholls-tell)
 
-**Artist**: JustLuke 
+**Artist**: Ryan T Ft. Mike Nicholls 
 
-**Track**: Dirty B
+**Track**: Ryan T Ft. Mike Nicholls - Tell Me Why ( HardBass )
 
-Last updated at 7/11/2025, 7:27:51 AM
+Last updated at 7/11/2025, 7:28:51 AM
