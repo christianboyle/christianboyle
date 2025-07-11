@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mys7HYZMu972kMU6-5dEmzQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-bev-e-i-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind)
 
-**Artist**: Techno Wereld, BEV-E 
+**Artist**: Argy (UK) 
 
-**Track**: Premiere: BEV-E - I Wanna Dance
+**Track**: 4-MIND
 
-Last updated at 7/11/2025, 9:58:44 AM
+Last updated at 7/11/2025, 10:10:35 AM
