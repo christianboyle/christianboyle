@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ypU25rSuZej0ZJO-SzBYBw-t500x500.png">](https://soundcloud.com/sub49records/myway-us-the-terrace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2F1hLjaYEZkb-0-t500x500.jpg">](https://soundcloud.com/hysteriarecords/dirty-b)
 
-**Artist**: Myway (US) 
+**Artist**: JustLuke 
 
-**Track**: MYWAY (US) | THE TERRACE
+**Track**: Dirty B
 
-Last updated at 7/11/2025, 7:26:31 AM
+Last updated at 7/11/2025, 7:27:51 AM
