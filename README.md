@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7qpCgIN5zGEP06lx-X5MKtQ-t500x500.png">](https://soundcloud.com/tomfrane/tom-frane-dont-get-in-my-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz0KGyhKoa3Pac5M-70zMcA-t500x500.jpg">](https://soundcloud.com/violetxx9/1up-ft-kuru-pop-gethosyne)
 
-**Artist**: Tom Frane 
+**Artist**: violet 
 
-**Track**: Tom Frane - Don't Get In My Space
+**Track**: 1up ft. kuru (pop gethosyne sandy)
 
-Last updated at 7/11/2025, 9:47:13 AM
+Last updated at 7/11/2025, 9:49:28 AM
