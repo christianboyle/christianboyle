@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UEY1VwdbVcyWDxyt-pAWo9g-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/sub-zero-project-never-surrender)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kvjQwsEGAyOWBJAF-jpDtCQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/bawdy-real-star-monster-doechii-swamp-bitches-edit)
 
-**Artist**: Sub Zero Project 
+**Artist**: Star Monster 
 
-**Track**: Sub Zero Project - Never Surrender
+**Track**: Bawdy- Real {Star Monster Doechii- Swamp Bitches Edit}
 
-Last updated at 7/11/2025, 7:19:49 AM
+Last updated at 7/11/2025, 7:20:49 AM
