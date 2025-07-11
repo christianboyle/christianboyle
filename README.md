@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFPneEJ6z5hyGnBd-GHFipA-t500x500.jpg">](https://soundcloud.com/keepitonbrand/nobrokeboys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zArKgAXnx4hURta3-uXlnOw-t500x500.jpg">](https://soundcloud.com/stayprizzy/eeenie-meenie-priz-remix)
 
-**Artist**: onBRAND, SiGiL 
+**Artist**: Sean Kingston & Justin Bieber 
 
-**Track**: Disco Lines, Tinashe - No Broke Boys (onBRAND & SiGiL Edit)
+**Track**: Eeenie Meenie (PRIZ Remix)
 
-Last updated at 7/11/2025, 10:53:34 AM
+Last updated at 7/11/2025, 3:31:49 PM
