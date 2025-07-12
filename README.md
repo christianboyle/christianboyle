@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2AW7Bn49TKCaDD1v-sQdgoA-t500x500.jpg">](https://soundcloud.com/tttlyon/onlynumbers-euphoric-night-ft-lucifer)
 
-**Artist**: DJ Hendy 
+**Artist**: Onlynumbers 
 
-**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
+**Track**: Onlynumbers - Euphoric Night Ft. Lucifer / 𝐅𝐑𝐄𝐄 𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃
 
-Last updated at 7/12/2025, 8:06:02 AM
+Last updated at 7/12/2025, 8:41:45 AM
