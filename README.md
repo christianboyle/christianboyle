@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2AW7Bn49TKCaDD1v-sQdgoA-t500x500.jpg">](https://soundcloud.com/tttlyon/onlynumbers-euphoric-night-ft-lucifer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RJfXvu17OPsTuh7E-MUAUrg-t500x500.png">](https://soundcloud.com/emengy/power-ft-k-woozy-original-mix)
 
-**Artist**: Onlynumbers 
+**Artist**: DROPHOP, WILCO BEATS, SOUL VALIENT 
 
-**Track**: Onlynumbers - Euphoric Night Ft. Lucifer / 𝐅𝐑𝐄𝐄 𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃
+**Track**: POWER Ft. K-WOOZY (ORIGINAL MIX)
 
-Last updated at 7/12/2025, 8:41:45 AM
+Last updated at 7/12/2025, 8:42:45 AM
