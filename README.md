@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
 
-**Artist**: 00sev 
+**Artist**: DJ Hendy 
 
-**Track**: swaggedout w/ cluu + daikyu [#get]
+**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
 
-Last updated at 7/12/2025, 7:58:31 AM
+Last updated at 7/12/2025, 8:06:02 AM
