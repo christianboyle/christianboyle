@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RJfXvu17OPsTuh7E-MUAUrg-t500x500.png">](https://soundcloud.com/emengy/power-ft-k-woozy-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GF6uVRjzF5j6sl3y-2B7arg-t500x500.jpg">](https://soundcloud.com/scandinavianz/pineapple-free-download-tropical-house-music-flute-saxophone-beach-vibes-edm-music)
 
-**Artist**: DROPHOP, WILCO BEATS, SOUL VALIENT 
+**Artist**: Scandinavianz 
 
-**Track**: POWER Ft. K-WOOZY (ORIGINAL MIX)
+**Track**: Pineapple (Free download) Tropical House Music Flute & Saxophone (Beach Vibes) Edm music
 
-Last updated at 7/12/2025, 8:42:45 AM
+Last updated at 7/12/2025, 12:04:23 PM
