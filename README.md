@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kS5BfnjktsEc-0-t500x500.jpg">](https://soundcloud.com/sxmpra/fade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xkZjNw2aKqk4ePK4-BAv56g-t500x500.png">](https://soundcloud.com/billythekiddub/243eddbf-a29b-461e-9a11-61883b2de203)
 
-**Artist**: SXMPRA, Teddy Slugz 
+**Artist**: BILLYTHEKID 
 
-**Track**: FADE
+**Track**: BLAST
 
-Last updated at 7/12/2025, 7:27:15 PM
+Last updated at 7/12/2025, 8:49:21 PM
