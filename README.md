@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N22yz7PziucXEUhs-YmcgHg-t500x500.jpg">](https://soundcloud.com/user-91429077/dattrak-resurrection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Akhbu6RzLisDwvvf-7QxOYA-t500x500.png">](https://soundcloud.com/masta_plan/missile-launch)
 
-**Artist**: DatTrak 
+**Artist**: MASTA PLAN, SINATRA 
 
-**Track**: Resurrection
+**Track**: Missiles Launch
 
-Last updated at 7/13/2025, 9:08:58 AM
+Last updated at 7/13/2025, 12:34:55 PM
