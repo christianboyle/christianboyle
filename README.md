@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yM8VelU1picQsQPV-iORxag-t500x500.jpg">](https://soundcloud.com/lucceofficial/lucce-rule-in-2024)
 
-**Artist**: Argy (UK) 
+**Artist**: Lucce 
 
-**Track**: 4-MIND
+**Track**: Tears For Fears - Rule The World (Lucce Remix)
 
-Last updated at 7/13/2025, 12:42:39 PM
+Last updated at 7/13/2025, 12:46:44 PM
