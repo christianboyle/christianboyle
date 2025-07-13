@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDIVvrWN6fY1tPdX-hhSwpg-t500x500.jpg">](https://soundcloud.com/1nonlyy/step-back-ft-sxmpra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70ccHKriVNX4rrMw-7yZzyQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/amaru-strange-feeling-original-mix)
 
-**Artist**: 1nonly 
+**Artist**: Fatal Energy Records 
 
-**Track**: STEP BACK! FT. SXMPRA [prod. sxmpra] *OUT ON ALL PLATS*
+**Track**: Amaru - Strange Feeling (Original Mix)
 
-Last updated at 7/13/2025, 6:33:13 AM
+Last updated at 7/13/2025, 9:04:38 AM
