@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind)
 
-**Artist**: flirty800 
+**Artist**: Argy (UK) 
 
-**Track**: Garden of Eden (flirty800 Tribal Edit)
+**Track**: 4-MIND
 
-Last updated at 7/13/2025, 12:40:34 PM
+Last updated at 7/13/2025, 12:42:39 PM
