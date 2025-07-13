@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4h9mIrpPovN0pFg3-RB8cWA-t500x500.png">](https://soundcloud.com/drcr/drahcir-super-freak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kS5BfnjktsEc-0-t500x500.jpg">](https://soundcloud.com/sxmpra/fade)
 
-**Artist**: DRAHCIR 
+**Artist**: SXMPRA, Teddy Slugz 
 
-**Track**: DRAHCIR - Super Freak
+**Track**: FADE
 
-Last updated at 7/12/2025, 7:25:50 PM
+Last updated at 7/12/2025, 7:27:15 PM
