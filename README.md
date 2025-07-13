@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yM8VelU1picQsQPV-iORxag-t500x500.jpg">](https://soundcloud.com/lucceofficial/lucce-rule-in-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHexgzgqN51bK22z-8L0yhQ-t500x500.jpg">](https://soundcloud.com/2soonmusic/disco-lines-tinashe-no-broke-2)
 
-**Artist**: Lucce 
+**Artist**: 2SOON 
 
-**Track**: Tears For Fears - Rule The World (Lucce Remix)
+**Track**: Disco Lines & Tinashe - No Broke Boys (2SOON REMIX) [FREE DOWNLOAD]
 
-Last updated at 7/13/2025, 1:43:55 PM
+Last updated at 7/13/2025, 4:45:15 PM
