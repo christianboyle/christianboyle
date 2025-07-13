@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Akhbu6RzLisDwvvf-7QxOYA-t500x500.png">](https://soundcloud.com/masta_plan/missile-launch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit)
 
-**Artist**: MASTA PLAN, SINATRA 
+**Artist**: flirty800 
 
-**Track**: Missiles Launch
+**Track**: Garden of Eden (flirty800 Tribal Edit)
 
-Last updated at 7/13/2025, 12:34:55 PM
+Last updated at 7/13/2025, 12:40:34 PM
