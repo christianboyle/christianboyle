@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsmrXUDuVZZOeJTC-5WLs2w-t500x500.png">](https://soundcloud.com/mitomoro/i-love-to-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XddVBMDkmeyAyppi-zHXkuw-t500x500.jpg">](https://soundcloud.com/hgods/fred-again-victory-lap-hgods)
 
-**Artist**: MITOMORO 
+**Artist**: HGods 
 
-**Track**: I LOVE TO RAVE
+**Track**: Fred Again.., Skepta, PlaqueBoyMax - Victory Lap (HGods Remix)
 
-Last updated at 7/13/2025, 1:35:45 PM
+Last updated at 7/13/2025, 1:37:50 PM
