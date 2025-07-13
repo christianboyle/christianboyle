@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0P8HMXq5Wi8CET5u-xxEBYA-t500x500.jpg">](https://soundcloud.com/bpmbullyz/hardy-m-dj-carnage-bits-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R8Z2qOXYuf8be4Qz-W4900g-t500x500.jpg">](https://soundcloud.com/baclash_wip/shella-verse-baclash-flip)
 
-**Artist**: Hardy M/2wisted Bounce/BPM BULLYZ 
+**Artist**: Flowdan, Sammy Virji, Baclash 
 
-**Track**: Hardy M & Dj Carnage - Bits in Time
+**Track**: Shella Verse (Baclash Flip)
 
-Last updated at 7/13/2025, 9:05:38 AM
+Last updated at 7/13/2025, 9:06:48 AM
