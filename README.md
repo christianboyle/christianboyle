@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTy2aLwCTvRyh8rh-Y0anhw-t500x500.jpg">](https://soundcloud.com/frasathy-lab/filv-coca-cola-frasathy-rx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2CI8dnvNPLf0Qaq-ESI7zA-t500x500.png">](https://soundcloud.com/mark-smith-carnage/audioboyz-sunchyme-working)
 
-**Artist**: RX BY FRASATHY 
+**Artist**: Audioboyz 
 
-**Track**: FILV - Coca Cola (FRASATHY RX)
+**Track**: Audioboyz - Sunchyme Working (Radio)
 
-Last updated at 7/14/2025, 6:56:08 AM
+Last updated at 7/14/2025, 6:57:48 AM
