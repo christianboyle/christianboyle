@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Ay5CewFZz1ZUFrv-HMKXpg-t500x500.png">](https://soundcloud.com/rinsefm/fracture090725)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/auracle-just-breathe)
 
-**Artist**: Rinse FM 
+**Artist**: Auracle 
 
-**Track**: Fracture - 09 Juy 2025
+**Track**: Auracle - Just Breathe
 
-Last updated at 7/14/2025, 6:49:42 AM
+Last updated at 7/14/2025, 6:50:42 AM
