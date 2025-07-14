@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiEpyF0HSFzUgwd0-wtLsEQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/smitech-wesson-rhythm-of-acid-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWZx3xo5HYfiGglJ-3BQP0A-t500x500.png">](https://soundcloud.com/wormhole-music-group/xenotype-mantra)
 
-**Artist**: Smitech Wesson 
+**Artist**: Xenotype 
 
-**Track**: Smitech Wesson - Rhythm of Acid
+**Track**: Xenotype - Mantra
 
-Last updated at 7/14/2025, 7:10:44 AM
+Last updated at 7/14/2025, 7:14:55 AM
