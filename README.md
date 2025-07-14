@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SO31gg0UdnUJto25-ZcgMdA-t500x500.jpg">](https://soundcloud.com/ozztinmusic/illenium-crawl-out-of-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lh9p3sbcbvyuIuFW-ra0hEw-t500x500.jpg">](https://soundcloud.com/wubaholics/flozone-eater-racks)
 
-**Artist**: OZZTIN 
+**Artist**: Wubaholics 
 
-**Track**: ILLENIUM - CRAWL OUTTA LOVE (OZZTIN FLIP)
+**Track**: Flozone & Eater - Racks
 
-Last updated at 7/14/2025, 6:41:51 AM
+Last updated at 7/14/2025, 6:42:51 AM
