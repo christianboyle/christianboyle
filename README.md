@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lh9p3sbcbvyuIuFW-ra0hEw-t500x500.jpg">](https://soundcloud.com/wubaholics/flozone-eater-racks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGUkIdlzZ1LfCz6h-kZI3ow-t500x500.png">](https://soundcloud.com/malfunktionmusic/traphouse-koda-old-silverado-malfunktion-remix)
 
-**Artist**: Wubaholics 
+**Artist**: Malfunktion 
 
-**Track**: Flozone & Eater - Racks
+**Track**: Traphouse Koda - Old Silverado (MalFunktion Remix)
 
-Last updated at 7/14/2025, 6:42:51 AM
+Last updated at 7/14/2025, 6:43:51 AM
