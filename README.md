@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXTfaAxdvH1AM2dg-2zg6Eg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-kaltblume-fleshure-bdd039)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXTfaAxdvH1AM2dg-2zg6Eg-t500x500.jpg">](https://soundcloud.com/antidoteamsterdam/kaltblume-defective-memories-mython-remix-bdd039)
 
-**Artist**: HATE, Kaltblume  
+**Artist**: Mython 
 
-**Track**: Premiere: Kaltblume — Fleshure [BDd039]
+**Track**: ANTIDOTE Premiere: Kaltblume - Defective Memories (Mython Remix) [BDd039]
 
-Last updated at 7/14/2025, 6:36:41 AM
+Last updated at 7/14/2025, 6:40:51 AM
