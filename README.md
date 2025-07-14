@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yD2Iinqe2M2ojgY-7dNwvA-t500x500.jpg">](https://soundcloud.com/margwa/afraid-to-fall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiEpyF0HSFzUgwd0-wtLsEQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/smitech-wesson-rhythm-of-acid-1)
 
-**Artist**: Margwa 
+**Artist**: Smitech Wesson 
 
-**Track**: AFRAID TO FALL (FREE DOWNLOAD)
+**Track**: Smitech Wesson - Rhythm of Acid
 
-Last updated at 7/14/2025, 7:08:04 AM
+Last updated at 7/14/2025, 7:10:44 AM
