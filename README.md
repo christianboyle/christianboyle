@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5DOzorQ5BH13E7mG-kppLZA-t500x500.png">](https://soundcloud.com/dancingdeadrecords/wannabe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q0mxz32NWUkbtIyE-hkHuCQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/rotten-turbulance)
 
-**Artist**: Mac&Wester, Ylan 
+**Artist**: Rotten 
 
-**Track**: Mac&Wester & Ylan - WANNABE
+**Track**: Rotten - Turbulance
 
-Last updated at 7/14/2025, 6:44:51 AM
+Last updated at 7/14/2025, 6:45:56 AM
