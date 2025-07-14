@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/auracle-just-breathe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTy2aLwCTvRyh8rh-Y0anhw-t500x500.jpg">](https://soundcloud.com/frasathy-lab/filv-coca-cola-frasathy-rx)
 
-**Artist**: Auracle 
+**Artist**: RX BY FRASATHY 
 
-**Track**: Auracle - Just Breathe
+**Track**: FILV - Coca Cola (FRASATHY RX)
 
-Last updated at 7/14/2025, 6:50:42 AM
+Last updated at 7/14/2025, 6:56:08 AM
