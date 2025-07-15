@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDgQqQNdozwzxWPU-yushnA-t500x500.png">](https://soundcloud.com/bpmbullyz/hardy-m-semtex-more-than-words)
 
-**Artist**: Joey G 
+**Artist**: Hardy M 
 
-**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
+**Track**: Hardy M + Semtex - More Than Words Can Say [demo]
 
-Last updated at 7/15/2025, 9:56:34 AM
+Last updated at 7/15/2025, 9:59:14 AM
