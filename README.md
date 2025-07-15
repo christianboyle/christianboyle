@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDgQqQNdozwzxWPU-yushnA-t500x500.png">](https://soundcloud.com/bpmbullyz/hardy-m-semtex-more-than-words)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy?in=saxurn/sets/dino-wind)
 
-**Artist**: Hardy M 
+**Artist**: Jordan Irwin 
 
-**Track**: Hardy M + Semtex - More Than Words Can Say [demo]
+**Track**: Jordan Irwin - Bad Boy
 
-Last updated at 7/15/2025, 9:59:14 AM
+Last updated at 7/15/2025, 1:25:16 PM
