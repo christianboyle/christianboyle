@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCrgisEDKOvu2hl9-7y3e4A-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-bad-boy?in=saxurn/sets/dino-wind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhZMsN2dyJdpaLSb-yZdnjg-t500x500.jpg">](https://soundcloud.com/joeygdnb/arctic-monkeys-505-bootleg-free-dl?in=saxurn/sets/dino-wind)
 
-**Artist**: Jordan Irwin 
+**Artist**: Joey G 
 
-**Track**: Jordan Irwin - Bad Boy
+**Track**: Arctic Monkeys 505 Bootleg (FREE DL)
 
-Last updated at 7/15/2025, 1:25:16 PM
+Last updated at 7/15/2025, 1:28:07 PM
