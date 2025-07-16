@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B8FmwP0pIzsr1ILK-WAGeSA-t500x500.png">](https://soundcloud.com/ayeokah/ghost-breathing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzB6PcbVGHSppQo5-yNsdcg-t500x500.png">](https://soundcloud.com/shweezofficial/raw-power-final)
 
-**Artist**: Okah! 
+**Artist**: SHWEEZ 
 
-**Track**: GHOST BREATHING [気]
+**Track**: SHWEEZ - RAW POWER
 
-Last updated at 7/16/2025, 9:12:21 AM
+Last updated at 7/16/2025, 9:16:46 AM
