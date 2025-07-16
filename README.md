@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z526Dw8hueiqvYzX-MMdaAQ-t500x500.jpg">](https://soundcloud.com/noisy_music/noisyboy-umbrella-10172024-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2vV9UxMNqT44sLM-soYShw-t500x500.png">](https://soundcloud.com/boomboxcartel/boombox-cartel-a-par-wototo-ft-mc-bin-laden)
 
-**Artist**: NoisyBoy 
+**Artist**: Boombox Cartel, A-Par 
 
-**Track**: RIHANNA - UMBRELLA (NOISYBOY REMIX)
+**Track**: Boombox Cartel & A-Par - Wototo (ft. MC Bin Laden)
 
-Last updated at 7/16/2025, 9:48:16 AM
+Last updated at 7/16/2025, 9:49:26 AM
