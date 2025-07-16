@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout?in=saxurn/sets/clipart-that/)
 
 **Artist**: 00sev 
 
 **Track**: swaggedout w/ cluu + daikyu [#get]
 
-Last updated at 7/15/2025, 8:04:00 PM
+Last updated at 7/15/2025, 8:17:46 PM
