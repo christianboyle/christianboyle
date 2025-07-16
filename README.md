@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZPTAW4PRTPzynAeP-fNSu5A-t500x500.jpg">](https://soundcloud.com/oxyg3nesis/oxygen-riddle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hYklxEkSZzWzStJ6-JLY4IA-t500x500.jpg">](https://soundcloud.com/djsterfry/rinsed)
 
-**Artist**: Oxygen 
+**Artist**: Sterfry 
 
-**Track**: Oxygen - Riddle
+**Track**: RINSED
 
-Last updated at 7/16/2025, 8:25:52 AM
+Last updated at 7/16/2025, 8:28:27 AM
