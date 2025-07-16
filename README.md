@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzQJL4963HsOotWz-OK4xkw-t500x500.png">](https://soundcloud.com/aspirehighermusic/snuffy-vices-ah-tune-tuesday?in=saxurn/sets/chat-clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit?in=saxurn/sets/chat-clipart-that/)
 
-**Artist**: Snuffy 
+**Artist**: flirty800 
 
-**Track**: Snuffy - Vices (AH Tune Tuesday)
+**Track**: Garden of Eden (flirty800 Tribal Edit)
 
-Last updated at 7/15/2025, 9:05:10 PM
+Last updated at 7/15/2025, 9:07:55 PM
