@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zSO4WiqyZgvsL25O-vS8aig-t500x500.jpg">](https://soundcloud.com/raynbass/duck-trumpet-rayn-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/crazy)
 
-**Artist**: Rayn.. 
+**Artist**: SICKISH 
 
-**Track**: Bukez Finest - Duck Trumpet (Rayn.. Flip)
+**Track**: CRAZY
 
-Last updated at 7/16/2025, 9:44:18 AM
+Last updated at 7/16/2025, 9:45:19 AM
