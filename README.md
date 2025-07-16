@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout?in=saxurn/sets/clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz0KGyhKoa3Pac5M-70zMcA-t500x500.jpg">](https://soundcloud.com/violetxx9/1up-ft-kuru-pop-gethosyne?in=saxurn/sets/clipart-that/)
 
-**Artist**: 00sev 
+**Artist**: violet 
 
-**Track**: swaggedout w/ cluu + daikyu [#get]
+**Track**: 1up ft. kuru (pop gethosyne sandy)
 
-Last updated at 7/15/2025, 8:17:46 PM
+Last updated at 7/15/2025, 8:21:00 PM
