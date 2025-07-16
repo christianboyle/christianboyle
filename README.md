@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyEMdi35s6BSnh6X-yygADg-t500x500.jpg">](https://soundcloud.com/madonnina-sessions/81zaki-madonnina-sessions-05092025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WRleyd80XRCdJcyK-PgLO4A-t500x500.png">](https://soundcloud.com/iammendi/bringinthekatzswordedit)
 
-**Artist**: Madonnina Sessions 
+**Artist**: MENDI 
 
-**Track**: 81zaki | Madonnina Sessions Nagoya 05.09.2025
+**Track**: KW Griff - Bring in the Katz (Mendi swords edit)
 
-Last updated at 7/16/2025, 9:26:37 AM
+Last updated at 7/16/2025, 9:40:58 AM
