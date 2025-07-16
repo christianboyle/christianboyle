@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XddVBMDkmeyAyppi-zHXkuw-t500x500.jpg">](https://soundcloud.com/hgods/fred-again-victory-lap-hgods/s-11LpEvY6UaU?in=saxurn/sets/clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind/s-11LpEvY6UaU?in=saxurn/sets/clipart-that/)
 
-**Artist**: HGods 
+**Artist**: Argy (UK) 
 
-**Track**: Fred Again.., Skepta, PlaqueBoyMax - Victory Lap (HGods Remix)
+**Track**: 4-MIND
 
-Last updated at 7/15/2025, 8:54:23 PM
+Last updated at 7/15/2025, 8:56:29 PM
