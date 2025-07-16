@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4Rw3pPQFig4qadp-fDhPaA-t500x500.jpg">](https://soundcloud.com/alexhobson/know-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VdVD6AOg91yr4BoU-vp5JDg-t500x500.png">](https://soundcloud.com/voartyx-music/mersivfryar-in-motion-voartyx-flip)
 
-**Artist**: Alex Hobson, pwad 
+**Artist**: Voartyx 
 
-**Track**: Know U
+**Track**: Mersiv,Fryar - In Motion (Voartyx Flip)
 
-Last updated at 7/16/2025, 10:14:01 AM
+Last updated at 7/16/2025, 10:15:01 AM
