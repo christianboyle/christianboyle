@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzh6eFs6xmhSBFeS-wcu2Eg-t500x500.png">](https://soundcloud.com/dnzrecords/nova-scotia-stand-by-me)
 
-**Artist**: 00sev 
+**Artist**: Nova Scotia 
 
-**Track**: swaggedout w/ cluu + daikyu [#get]
+**Track**: Nova Scotia - Stand By Me
 
-Last updated at 7/16/2025, 8:00:52 AM
+Last updated at 7/16/2025, 8:02:20 AM
