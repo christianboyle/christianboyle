@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iy5C9wsp7sugwds3-TvsGDQ-t500x500.png">](https://soundcloud.com/theelectricmovement/crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0tfeGQwCWqAOXvQW-pzoIww-t500x500.jpg">](https://soundcloud.com/novembrmusic/alleycvt-strangers-novembr)
 
-**Artist**: SICKISH 
+**Artist**: NOVEMBR 
 
-**Track**: CRAZY
+**Track**: ALLEYCVT - STRANGERS (NOVEMBR FLIP)
 
-Last updated at 7/16/2025, 9:45:19 AM
+Last updated at 7/16/2025, 9:47:10 AM
