@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNHG1dCfcQOdUj3q-WHcO5A-t500x500.jpg">](https://soundcloud.com/sekizosan/full-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6eauik9yAC2EOOWs-4Nf60A-t500x500.png">](https://soundcloud.com/justluke-official/muhuuuuu-remix)
 
-**Artist**: Sekizo 
+**Artist**: Lazare, ADDAM, JustLuke 
 
-**Track**: URBAN MYTH 3
+**Track**: Lazare & ADDAM - Muhuuuuu (JustLuke Remix)
 
-Last updated at 7/16/2025, 8:32:22 AM
+Last updated at 7/16/2025, 8:33:26 AM
