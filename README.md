@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CflLR8utKSEAGuAn-SFZAnQ-t500x500.png">](https://soundcloud.com/rexv2/hit-yo-top)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4Rw3pPQFig4qadp-fDhPaA-t500x500.jpg">](https://soundcloud.com/alexhobson/know-u)
 
-**Artist**: rexv2 
+**Artist**: Alex Hobson, pwad 
 
-**Track**: Hit Yo Top
+**Track**: Know U
 
-Last updated at 7/16/2025, 10:13:01 AM
+Last updated at 7/16/2025, 10:14:01 AM
