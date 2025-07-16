@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-69X4Z1CnBjoyzew9-3862FQ-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/olly-james-live-hardstyle-superheroes-x-coloursfest-glasgow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBuc0bAAuwPPpZWi-Jk1nqA-t500x500.jpg">](https://soundcloud.com/jackdiamonddj/jack-diamond-jack-diamond-friends-at-vibe-nightclub-airdrie)
 
-**Artist**: Olly James 
+**Artist**: Jack Diamond 
 
-**Track**: Olly James Live @ Hardstyle Superheroes x Coloursfest [Glasgow]
+**Track**: JACK DIAMOND @ JACK DIAMOND & FRIENDS AT VIBE NIGHTCLUB AIRDRIE
 
-Last updated at 7/16/2025, 8:04:40 AM
+Last updated at 7/16/2025, 8:24:17 AM
