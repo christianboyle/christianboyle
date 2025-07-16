@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VouGGburKSYy-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/4-mind/s-11LpEvY6UaU?in=saxurn/sets/clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRtWJsvVIYXVkejz-FOjqEg-t500x500.png">](https://soundcloud.com/contagious-records/cr272-riko-time-2-burn-out-now)
 
-**Artist**: Argy (UK) 
+**Artist**: Riko 
 
-**Track**: 4-MIND
+**Track**: [CR272]  Riko - Time 2 Burn (OUT NOW)
 
-Last updated at 7/15/2025, 8:56:29 PM
+Last updated at 7/15/2025, 9:00:29 PM
