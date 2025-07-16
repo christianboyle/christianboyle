@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyOAcbXepbiYOYwV-21XoiQ-t500x500.png">](https://soundcloud.com/wormhole-music-group/xenotype-secret-recipe-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzB6PcbVGHSppQo5-yNsdcg-t500x500.png">](https://soundcloud.com/shweezofficial/raw-power-final)
 
-**Artist**: Xenotype & Secret Recipe 
+**Artist**: SHWEEZ 
 
-**Track**: Xenotype & Secret Recipe - Like That
+**Track**: SHWEEZ - RAW POWER
 
-Last updated at 7/16/2025, 9:20:51 AM
+Last updated at 7/16/2025, 9:23:57 AM
