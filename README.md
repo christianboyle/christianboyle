@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDALjGLq931KFjUO-jl2c8g-t500x500.png">](https://soundcloud.com/djslickmusic/crank-the-bass-play-the-muzik-slick-lucky-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KTzWaN9N7eJbDphT-zycnmQ-t500x500.png">](https://soundcloud.com/tom-lysar/echo)
 
-**Artist**: Knock2 
+**Artist**: Tom Lysar 
 
-**Track**: crank the bass, play the muzik (SLICK & LUCKY REMIX)
+**Track**: Echo
 
-Last updated at 7/16/2025, 9:06:10 AM
+Last updated at 7/16/2025, 9:08:55 AM
