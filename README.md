@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lBuc0bAAuwPPpZWi-Jk1nqA-t500x500.jpg">](https://soundcloud.com/jackdiamonddj/jack-diamond-jack-diamond-friends-at-vibe-nightclub-airdrie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZPTAW4PRTPzynAeP-fNSu5A-t500x500.jpg">](https://soundcloud.com/oxyg3nesis/oxygen-riddle)
 
-**Artist**: Jack Diamond 
+**Artist**: Oxygen 
 
-**Track**: JACK DIAMOND @ JACK DIAMOND & FRIENDS AT VIBE NIGHTCLUB AIRDRIE
+**Track**: Oxygen - Riddle
 
-Last updated at 7/16/2025, 8:24:17 AM
+Last updated at 7/16/2025, 8:25:52 AM
