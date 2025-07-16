@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lGHlns5JoxqNPhU-0uMW1Q-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/biteback-ancestyrremix?in=saxurn/sets/clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople?in=saxurn/sets/clipart-that/)
 
-**Artist**: Mantra Sounds, Glass Arrowhead 
+**Artist**: PUK 
 
-**Track**: Bite Back (Ancestyr Remix)
+**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
 
-Last updated at 7/15/2025, 8:42:52 PM
+Last updated at 7/15/2025, 8:45:38 PM
