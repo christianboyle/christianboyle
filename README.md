@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vtQ2zBoe2QnkM9h-qO9ygg-t500x500.jpg">](https://soundcloud.com/pukmusic/beautifulpeople?in=saxurn/sets/clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XddVBMDkmeyAyppi-zHXkuw-t500x500.jpg">](https://soundcloud.com/hgods/fred-again-victory-lap-hgods/s-11LpEvY6UaU?in=saxurn/sets/clipart-that/)
 
-**Artist**: PUK 
+**Artist**: HGods 
 
-**Track**: BEAUTIFUL PEOPLE - TRANCE REMIX
+**Track**: Fred Again.., Skepta, PlaqueBoyMax - Victory Lap (HGods Remix)
 
-Last updated at 7/15/2025, 8:45:38 PM
+Last updated at 7/15/2025, 8:54:23 PM
