@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRtWJsvVIYXVkejz-FOjqEg-t500x500.png">](https://soundcloud.com/contagious-records/cr272-riko-time-2-burn-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout)
 
-**Artist**: Riko 
+**Artist**: 00sev 
 
-**Track**: [CR272]  Riko - Time 2 Burn (OUT NOW)
+**Track**: swaggedout w/ cluu + daikyu [#get]
 
-Last updated at 7/15/2025, 9:00:29 PM
+Last updated at 7/15/2025, 9:02:02 PM
