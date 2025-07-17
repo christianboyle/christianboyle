@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FexyzzHtPdrf2f1d-vlOUXg-t500x500.png">](https://soundcloud.com/aylen-bootlegs/akon-bananza-aylen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0qJq9VCK5PFMYMmW-8JManw-t500x500.png">](https://soundcloud.com/hazeadj/mike-will-made-it-23-hazea)
 
-**Artist**: Aylen Extras 
+**Artist**: HAZEÄ 
 
-**Track**: Akon - Bananza (Aylen Remix)
+**Track**: MIKE WILL MADE IT, MILEY CYRUS - 23 (HAZEA REMIX)
 
-Last updated at 7/16/2025, 6:25:36 PM
+Last updated at 7/17/2025, 8:28:59 AM
