@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4v6Q31j65Rxr3PG7-Lhj8Dg-t500x500.jpg">](https://soundcloud.com/frasathy-lab/modjo-lady-frasathy-rx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R88GseaaPWT0dn0y-X9Aqxw-t500x500.png">](https://soundcloud.com/user-249121940/billie-eilish-vs-creeds-bad-guy-push-up-rino-sparacino-mash-boot-freedownload)
 
-**Artist**: RX BY FRASATHY 
+**Artist**: Billie Eilish vs Creeds 
 
-**Track**: Modjo - Lady (FRASATHY RX)
+**Track**: Billie Eilish vs Creeds - Bad Guy Push Up (Rino Sparacino Mash Boot) FREE DOWNLOAD
 
-Last updated at 7/17/2025, 2:28:49 PM
+Last updated at 7/17/2025, 2:29:49 PM
