@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdHePeEtTxrLC3kQ-jiosYQ-t500x500.png">](https://soundcloud.com/madoxnetwork/mxn067)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryAKAtBGNJIgcwGu-uOuOhQ-t500x500.jpg">](https://soundcloud.com/cutspace/moh-baretta-xang-rank-cutspace)
 
-**Artist**: Fresh Dom, Zyno, Camso 
+**Artist**: 𐎫𐎨𐎦𐎧𐏂 
 
-**Track**: Fresh Dom & Zyno feat. Camso - Lights On Me
+**Track**: moh baretta & xang - rank (cutspace)
 
-Last updated at 7/17/2025, 2:26:34 PM
+Last updated at 7/17/2025, 2:27:44 PM
