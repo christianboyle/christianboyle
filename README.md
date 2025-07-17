@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lb2iyDVSF7IPTcb7-APeiVA-t500x500.jpg">](https://soundcloud.com/uglylungs/fbf5046b-5c45-488e-bb42-63943e67eb6c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cGDDlTQq61QIRtr4-0slzcA-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/dj-moff-exclusives-more-0-7)
 
-**Artist**: UGLY LUNGS 
+**Artist**: DJ MOFF-EL MOFF 
 
-**Track**: DON TOLIVER - NO POLE (UGLY LUNGS FLIP)
+**Track**: Dj Moff-Exclusives & More 0.7
 
-Last updated at 7/17/2025, 2:30:49 PM
+Last updated at 7/17/2025, 4:29:47 PM
