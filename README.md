@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryAKAtBGNJIgcwGu-uOuOhQ-t500x500.jpg">](https://soundcloud.com/cutspace/moh-baretta-xang-rank-cutspace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4v6Q31j65Rxr3PG7-Lhj8Dg-t500x500.jpg">](https://soundcloud.com/frasathy-lab/modjo-lady-frasathy-rx)
 
-**Artist**: 𐎫𐎨𐎦𐎧𐏂 
+**Artist**: RX BY FRASATHY 
 
-**Track**: moh baretta & xang - rank (cutspace)
+**Track**: Modjo - Lady (FRASATHY RX)
 
-Last updated at 7/17/2025, 2:27:44 PM
+Last updated at 7/17/2025, 2:28:49 PM
