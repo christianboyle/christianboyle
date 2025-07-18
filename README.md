@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FexyzzHtPdrf2f1d-vlOUXg-t500x500.png">](https://soundcloud.com/aylen-bootlegs/akon-bananza-aylen-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lr5k7Ad96WAhUuOp-8oOyJQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/subraver-zhivina-dreaming-dwx-copyright-free)
 
-**Artist**: Aylen Extras 
+**Artist**: Subraver, Zhivina 
 
-**Track**: Akon - Bananza (Aylen Remix)
+**Track**: Subraver & Zhivina - Dreaming (DWX Copyright Free)
 
-Last updated at 7/18/2025, 11:03:22 AM
+Last updated at 7/18/2025, 11:06:37 AM
