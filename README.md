@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout?in=saxurn/sets/chat-clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzQJL4963HsOotWz-OK4xkw-t500x500.png">](https://soundcloud.com/aspirehighermusic/snuffy-vices-ah-tune-tuesday?in=saxurn/sets/chat-clipart-that/)
 
-**Artist**: 00sev 
+**Artist**: Snuffy 
 
-**Track**: swaggedout w/ cluu + daikyu [#get]
+**Track**: Snuffy - Vices (AH Tune Tuesday)
 
-Last updated at 7/18/2025, 10:33:13 AM
+Last updated at 7/18/2025, 10:35:43 AM
