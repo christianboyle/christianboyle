@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2L1V6tscjaP8D0U-jr71Kw-t500x500.png">](https://soundcloud.com/versezmusic/only-one)
 
-**Artist**: flirty800 
+**Artist**: VERSEZ 
 
-**Track**: Garden of Eden (flirty800 Tribal Edit)
+**Track**: VERSEZ - Only One
 
-Last updated at 7/18/2025, 11:13:23 AM
+Last updated at 7/18/2025, 12:45:20 PM
