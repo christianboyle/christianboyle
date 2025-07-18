@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit?in=saxurn/sets/chat-clipart-that/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idG1ftyzFSep2axg-rIS30w-t500x500.png">](https://soundcloud.com/levianth/fred-again-skepta-plaqueboy-1)
 
-**Artist**: flirty800 
+**Artist**: Levianth 
 
-**Track**: Garden of Eden (flirty800 Tribal Edit)
+**Track**: Fred again, Skepta, Plaqueboy Max - Victory Lap (Levianth Remix)
 
-Last updated at 7/18/2025, 10:38:28 AM
+Last updated at 7/18/2025, 10:55:16 AM
