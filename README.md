@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHexgzgqN51bK22z-8L0yhQ-t500x500.jpg">](https://soundcloud.com/2soonmusic/disco-lines-tinashe-no-broke-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VgV4MxRjLX6oQIhA-CaVxbQ-t500x500.jpg">](https://soundcloud.com/flirty800/garden-of-eden-flirty800-tribal-edit)
 
-**Artist**: 2SOON 
+**Artist**: flirty800 
 
-**Track**: Disco Lines & Tinashe - No Broke Boys (2SOON REMIX) [FREE DOWNLOAD]
+**Track**: Garden of Eden (flirty800 Tribal Edit)
 
-Last updated at 7/18/2025, 11:10:27 AM
+Last updated at 7/18/2025, 11:13:23 AM
