@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1E1zapZREbwrggs-twkpbQ-t500x500.png">](https://soundcloud.com/weirdgenius_music/blackpink-jump-weird-genius-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RzTzkR6JrybFvrkj-pgFalQ-t500x500.png">](https://soundcloud.com/mardudubz/ecfaeeab-9174-4de2-bece-dcee95e79165)
 
-**Artist**: Weird Genius 
+**Artist**: MARDU dubz 
 
-**Track**: BLACKPINK - JUMP (Weird Genius Edit) [FREE DOWNLOAD]
+**Track**: Revenant [FREE DL]
 
-Last updated at 7/19/2025, 3:15:47 PM
+Last updated at 7/19/2025, 3:17:07 PM
