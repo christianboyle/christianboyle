@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Q9jlJFabeZ8D0aJ-Lmq1Pw-t500x500.jpg">](https://soundcloud.com/am94official/flowdan-x-jammz-savage-am94-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vN9NVLno0dZyftlC-lS9eYw-t500x500.jpg">](https://soundcloud.com/djsterfry/saint-miller-block-sterfry-remix)
 
-**Artist**: AM94 
+**Artist**: Sterfry 
 
-**Track**: Flowdan X Jammz - Savage (AM94 Remix)
+**Track**: SAINT MILLER - BLOCK (STERFRY REMIX)
 
-Last updated at 7/19/2025, 12:43:43 PM
+Last updated at 7/19/2025, 12:44:58 PM
