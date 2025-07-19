@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fH5WX6ei8BMndXTJ-WtejMw-t500x500.png">](https://soundcloud.com/diakronik/apple-fm-diakronik-guest-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Q9jlJFabeZ8D0aJ-Lmq1Pw-t500x500.jpg">](https://soundcloud.com/am94official/flowdan-x-jammz-savage-am94-remix)
 
-**Artist**: Diakronik 
+**Artist**: AM94 
 
-**Track**: Apple FM - Diakronik Guest Mix
+**Track**: Flowdan X Jammz - Savage (AM94 Remix)
 
-Last updated at 7/19/2025, 12:42:43 PM
+Last updated at 7/19/2025, 12:43:43 PM
