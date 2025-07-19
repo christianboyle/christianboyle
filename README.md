@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hUdmE0VNcT7dkefy-DMLkQg-t500x500.png">](https://soundcloud.com/paul-gannon-2nd-account/paul-gannon-ill-fly-with-you-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fq37QfggWjOz4Pdb-8kh1Wg-t500x500.jpg">](https://soundcloud.com/billykinn/silver-water-kinn-bridgey-b-remix-free-download)
 
-**Artist**: Paul Gannon 
+**Artist**: KINN 
 
-**Track**: Paul Gannon - I'll Fly With You [Free Download]
+**Track**: Silver Water - (KINN & BRIDGEY-B Remix) *Free Download**
 
-Last updated at 7/19/2025, 5:30:19 PM
+Last updated at 7/19/2025, 5:33:25 PM
