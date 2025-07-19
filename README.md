@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQ5rgO9PKaDA-0-t500x500.png">](https://soundcloud.com/nickleon/broward-boyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DZQtUcouHyNfblOc-gFV3lg-t500x500.png">](https://soundcloud.com/7halsten7/pink-mist-prod-by-showmereal)
 
-**Artist**: Nick León 
+**Artist**: hal$ten 
 
-**Track**: Broward Boyy
+**Track**: PINK MIST! (Prod. by SHOWMEREAL)
 
-Last updated at 7/19/2025, 3:05:56 PM
+Last updated at 7/19/2025, 3:07:01 PM
