@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RzTzkR6JrybFvrkj-pgFalQ-t500x500.png">](https://soundcloud.com/mardudubz/ecfaeeab-9174-4de2-bece-dcee95e79165)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BpErtW7cNbgyf3M-oB4iTA-t500x500.jpg">](https://soundcloud.com/billykinn/doesnt-matter-kinn-remix-free-download)
 
-**Artist**: MARDU dubz 
+**Artist**: KINN 
 
-**Track**: Revenant [FREE DL]
+**Track**: Doesn't Matter - KINN Remix **FREE DOWNLOAD**
 
-Last updated at 7/19/2025, 3:17:07 PM
+Last updated at 7/19/2025, 5:24:49 PM
