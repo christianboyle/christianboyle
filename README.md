@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2L1V6tscjaP8D0U-jr71Kw-t500x500.png">](https://soundcloud.com/versezmusic/only-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idG1ftyzFSep2axg-rIS30w-t500x500.png">](https://soundcloud.com/levianth/fred-again-skepta-plaqueboy-1)
 
-**Artist**: VERSEZ 
+**Artist**: Levianth 
 
-**Track**: VERSEZ - Only One
+**Track**: Fred again, Skepta, Plaqueboy Max - Victory Lap (Levianth Remix)
 
-Last updated at 7/19/2025, 6:48:07 AM
+Last updated at 7/19/2025, 6:50:12 AM
