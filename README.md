@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4Rw3pPQFig4qadp-fDhPaA-t500x500.jpg">](https://soundcloud.com/alexhobson/know-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2L1V6tscjaP8D0U-jr71Kw-t500x500.png">](https://soundcloud.com/versezmusic/only-one)
 
-**Artist**: Alex Hobson, pwad 
+**Artist**: VERSEZ 
 
-**Track**: Know U
+**Track**: VERSEZ - Only One
 
-Last updated at 7/19/2025, 6:57:03 PM
+Last updated at 7/19/2025, 6:59:54 PM
