@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTSBISIDyGnSyhJH-RtHpHA-t500x500.jpg">](https://soundcloud.com/djstoker/lights-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mVSXnA3xknTFAx7m-H7OOjw-t500x500.png">](https://soundcloud.com/sachsentrance/cenan-holland-wanna-go-2)
 
-**Artist**: Dirty Donk DJs 
+**Artist**: Cenan Holland 
 
-**Track**: Lights Out
+**Track**: Cenan Holland - Wanna Go [ST019]
 
-Last updated at 7/19/2025, 3:11:36 PM
+Last updated at 7/19/2025, 3:14:42 PM
