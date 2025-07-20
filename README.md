@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idG1ftyzFSep2axg-rIS30w-t500x500.png">](https://soundcloud.com/levianth/fred-again-skepta-plaqueboy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4Rw3pPQFig4qadp-fDhPaA-t500x500.jpg">](https://soundcloud.com/alexhobson/know-u)
 
-**Artist**: Levianth 
+**Artist**: Alex Hobson, pwad 
 
-**Track**: Fred again, Skepta, Plaqueboy Max - Victory Lap (Levianth Remix)
+**Track**: Know U
 
-Last updated at 7/19/2025, 8:45:13 PM
+Last updated at 7/19/2025, 8:47:33 PM
