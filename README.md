@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jyZEsbv7VuWxwaVA-Zj1p0w-t500x500.jpg">](https://soundcloud.com/craigconnelly/feelit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vITNvWp7Nh4PWFQQ-oBpFzw-t500x500.png">](https://soundcloud.com/nexus-records-215753487/freebie-synthetik-be-your-only-special-station-mix-master)
 
-**Artist**: Craig Connelly 
+**Artist**: Synthetik 
 
-**Track**: Craig Connelly X Aimée - Feel It
+**Track**: [FREEBIE] Synthetik - Be Your Only [Special Station Mix]
 
-Last updated at 7/20/2025, 6:56:45 PM
+Last updated at 7/20/2025, 6:57:45 PM
