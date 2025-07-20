@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-snJAzSInzEGV-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/never-looking-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-idG1ftyzFSep2axg-rIS30w-t500x500.png">](https://soundcloud.com/levianth/fred-again-skepta-plaqueboy-1)
 
-**Artist**: Klubfiller 
+**Artist**: Levianth 
 
-**Track**: Never Looking Back
+**Track**: Fred again, Skepta, Plaqueboy Max - Victory Lap (Levianth Remix)
 
-Last updated at 7/19/2025, 8:39:02 PM
+Last updated at 7/19/2025, 8:45:13 PM
