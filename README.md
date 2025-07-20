@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eqV0ewnlj4myyNnd-5MpjMA-t500x500.png">](https://soundcloud.com/shanghaidoom/shanghai-doom-massive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-amIx5UCmfVHeFFeM-EsGTPw-t500x500.jpg">](https://soundcloud.com/jay-woody/bnb6)
 
-**Artist**: Shanghai Doom 
+**Artist**: 🅹🅰🆈 🆆🅾🅾🅳🆈 
 
-**Track**: Shanghai Doom - Massive
+**Track**: Get Ready to Bounce - Bits N Bobs Vol 6
 
-Last updated at 7/20/2025, 6:52:45 PM
+Last updated at 7/20/2025, 6:53:45 PM
