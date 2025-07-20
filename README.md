@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2L1V6tscjaP8D0U-jr71Kw-t500x500.png">](https://soundcloud.com/versezmusic/only-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BpErtW7cNbgyf3M-oB4iTA-t500x500.jpg">](https://soundcloud.com/billykinn/doesnt-matter-kinn-remix-free-download)
 
-**Artist**: VERSEZ 
+**Artist**: KINN 
 
-**Track**: VERSEZ - Only One
+**Track**: Doesn't Matter - KINN Remix **FREE DOWNLOAD**
 
-Last updated at 7/19/2025, 6:59:54 PM
+Last updated at 7/19/2025, 7:01:39 PM
