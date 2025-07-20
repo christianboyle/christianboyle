@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXWkG9lDV9Wl-0-t500x500.png">](https://soundcloud.com/bennicky/sober-david-rust-remix-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eqV0ewnlj4myyNnd-5MpjMA-t500x500.png">](https://soundcloud.com/shanghaidoom/shanghai-doom-massive)
 
-**Artist**: Ben Nicky, Hix 
+**Artist**: Shanghai Doom 
 
-**Track**: Sober (David Rust Remix) [feat. Tori Smith]
+**Track**: Shanghai Doom - Massive
 
-Last updated at 7/20/2025, 6:51:44 PM
+Last updated at 7/20/2025, 6:52:45 PM
