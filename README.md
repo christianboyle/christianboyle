@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4Rw3pPQFig4qadp-fDhPaA-t500x500.jpg">](https://soundcloud.com/alexhobson/know-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lr5k7Ad96WAhUuOp-8oOyJQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/subraver-zhivina-dreaming-dwx-copyright-free)
 
-**Artist**: Alex Hobson, pwad 
+**Artist**: Subraver, Zhivina 
 
-**Track**: Know U
+**Track**: Subraver & Zhivina - Dreaming (DWX Copyright Free)
 
-Last updated at 7/19/2025, 8:47:33 PM
+Last updated at 7/19/2025, 8:49:18 PM
