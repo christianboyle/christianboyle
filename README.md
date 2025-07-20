@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DqDlSvyZpjUK6sJA-fex1SQ-t500x500.jpg">](https://soundcloud.com/darn84/klubfiller-hh-awards-2012-o2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXWkG9lDV9Wl-0-t500x500.png">](https://soundcloud.com/bennicky/sober-david-rust-remix-feat)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Ben Nicky, Hix 
 
-**Track**: Klubfiller @ HH Awards    2012 - O2 Academy Birmingham (08/12/2012)
+**Track**: Sober (David Rust Remix) [feat. Tori Smith]
 
-Last updated at 7/20/2025, 6:50:45 PM
+Last updated at 7/20/2025, 6:51:44 PM
