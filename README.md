@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1K0n3qHPdWKOZxF-ep4gMg-t500x500.png">](https://soundcloud.com/c0ncernn/crowdkilling-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HD2Gbxm1WdzNT0MS-vP5yhA-t500x500.png">](https://soundcloud.com/hardlinesounds/auramatic-ignition-hardline11)
 
-**Artist**: leroy 
+**Artist**: Auramatic 
 
-**Track**: CROWDKILLING 101
+**Track**: Auramatic - Ignition (HARDLINE11)
 
-Last updated at 7/20/2025, 6:59:56 PM
+Last updated at 7/20/2025, 7:00:56 PM
