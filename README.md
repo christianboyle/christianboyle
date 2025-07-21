@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4vbzRoMAJqlPS3F-4B3eBQ-t500x500.png">](https://soundcloud.com/saint-baek/16c0c534-ceb4-429a-9f6a-ee60e6347c1d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ekRoFCnmnpXzRuty-i6yznA-t500x500.jpg">](https://soundcloud.com/cov3r1st/iaw)
 
-**Artist**: SAINT MILLER, SOPHIPLANET 
+**Artist**: CØV3R1st, HOMINID, Margad 
 
-**Track**: TASTY (LISTEN UP)
+**Track**: CØV3R1st + HOMINID & Margad - I Ain't Worried | FREE DOWNLOAD
 
-Last updated at 7/21/2025, 6:34:17 AM
+Last updated at 7/21/2025, 7:57:01 AM
