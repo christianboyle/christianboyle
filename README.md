@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ne3OMKblmCYc3VwX-ZFHvPg-t500x500.png">](https://soundcloud.com/ih8sev/swaggedout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O8kV7Flfl0SVXX9A-qbXCGw-t500x500.jpg">](https://soundcloud.com/spritzurofficial/fred-again-x-skepta-victory)
 
-**Artist**: 00sev 
+**Artist**: Spritzur 
 
-**Track**: swaggedout w/ cluu + daikyu [#get]
+**Track**: Fred again.. x Skepta - Victory Lap (Spritzur Remix)
 
-Last updated at 7/21/2025, 1:26:00 PM
+Last updated at 7/21/2025, 1:27:05 PM
