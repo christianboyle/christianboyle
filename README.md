@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bLnuTRqw0bbX3EGt-IHnPgA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/ushi-bop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClYFz2wFY2w3chXw-uu3X9g-t500x500.jpg">](https://soundcloud.com/trapicalmusic/in-your-eyes)
 
-**Artist**: Mikayli 
+**Artist**: Dakan & DaxNote 
 
-**Track**: Ushi Bop
+**Track**: Dakan & DaxNote - In Your Eyes
 
-Last updated at 7/21/2025, 4:00:14 PM
+Last updated at 7/21/2025, 4:01:21 PM
