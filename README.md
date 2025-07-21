@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ClYFz2wFY2w3chXw-uu3X9g-t500x500.jpg">](https://soundcloud.com/trapicalmusic/in-your-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ1WcHq3EA5vTa8K-LaP0qw-t500x500.jpg">](https://soundcloud.com/magila777/missing-link)
 
-**Artist**: Dakan & DaxNote 
+**Artist**: MaGila 
 
-**Track**: Dakan & DaxNote - In Your Eyes
+**Track**: Missing link
 
-Last updated at 7/21/2025, 4:01:21 PM
+Last updated at 7/21/2025, 4:02:21 PM
