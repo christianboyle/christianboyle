@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXrLwG653eOYO8yz-c7v8Cw-t500x500.jpg">](https://soundcloud.com/forgottenscousehouse/hodge-only-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CTCls8IzUdMUU4zj-UtJjyw-t500x500.png">](https://soundcloud.com/scantraxx/refreqx-fadin)
 
-**Artist**: Hodge 
+**Artist**: RefreqX 
 
-**Track**: Hodge - Only You
+**Track**: RefreqX - Fadin'
 
-Last updated at 7/22/2025, 8:46:25 AM
+Last updated at 7/22/2025, 8:59:36 AM
