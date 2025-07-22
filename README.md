@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNTHMz4shuNZWPtd-Ckg7zw-t500x500.png">](https://soundcloud.com/whoskid/88740ca6-a578-4f83-84b6-e65d6c92bfa6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCzt0U9Zv5n3x0y1-I7ApQA-t500x500.png">](https://soundcloud.com/deadlinerec/dlr-premiere-slv-jealous-mistress-trsn037)
 
-**Artist**: k?d, glitch boy 
+**Artist**: Deadline Records 
 
-**Track**: fly away
+**Track**: DLR Premiere: SLV - Jealous Mistress [TRSN037]
 
-Last updated at 7/22/2025, 9:16:08 AM
+Last updated at 7/22/2025, 9:19:13 AM
