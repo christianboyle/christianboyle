@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ulFY5ts9otBHJWbN-DSMtUA-t500x500.png">](https://soundcloud.com/groupchatclub/mugli-project-party-in-l-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OeIt8w08ibFYDIz4-zhfHiw-t500x500.jpg">](https://soundcloud.com/mistrrr/invisible-children-remix)
 
-**Artist**: MUGLI PROJECT, Group Chat 
+**Artist**: KSHMR & Tigerlily 
 
-**Track**: MUGLI PROJECT - Party In L.A.
+**Track**: Invisible Children (Mistrrr Remix)
 
-Last updated at 7/22/2025, 9:10:32 AM
+Last updated at 7/22/2025, 9:13:57 AM
