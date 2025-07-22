@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1m92AjWxLfNGm4z-unZfDg-t500x500.png">](https://soundcloud.com/marlonhoffstadt/walking-on-a-dream-extended-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ulFY5ts9otBHJWbN-DSMtUA-t500x500.png">](https://soundcloud.com/groupchatclub/mugli-project-party-in-l-a)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: MUGLI PROJECT, Group Chat 
 
-**Track**: Walking On a Dream (Extended Version)
+**Track**: MUGLI PROJECT - Party In L.A.
 
-Last updated at 7/22/2025, 9:05:21 AM
+Last updated at 7/22/2025, 9:10:32 AM
