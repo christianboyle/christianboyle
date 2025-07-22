@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1tNarbLXBWJKJYRG-hFGleA-t500x500.png">](https://soundcloud.com/perrywaynemusic/powerandorder)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rr2tTiNWFvqnIvWE-sNPHLw-t500x500.png">](https://soundcloud.com/soundsofmayhem/echoesofblood)
 
-**Artist**: Perry Wayne 
+**Artist**: INSIDIUS 
 
-**Track**: Perry Wayne - Power & Order
+**Track**: INSIDIUS - ECHOES OF BLOOD
 
-Last updated at 7/22/2025, 8:42:34 AM
+Last updated at 7/22/2025, 8:43:34 AM
