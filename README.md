@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCzt0U9Zv5n3x0y1-I7ApQA-t500x500.png">](https://soundcloud.com/deadlinerec/dlr-premiere-slv-jealous-mistress-trsn037)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Danolruz7AEPD4zM-jFG6Fg-t500x500.png">](https://soundcloud.com/unheard-of-records/so-high-2)
 
-**Artist**: Deadline Records 
+**Artist**: SINGULARTY 
 
-**Track**: DLR Premiere: SLV - Jealous Mistress [TRSN037]
+**Track**: SO HIGH!
 
-Last updated at 7/22/2025, 9:19:13 AM
+Last updated at 7/22/2025, 9:23:43 AM
