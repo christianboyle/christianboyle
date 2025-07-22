@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P2rLbI3TbSJgBdlD-F8AiPQ-t500x500.jpg">](https://soundcloud.com/forgottenscousehouse/cheeky-trax-cold-as-ice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JXrLwG653eOYO8yz-c7v8Cw-t500x500.jpg">](https://soundcloud.com/forgottenscousehouse/hodge-only-you)
 
-**Artist**: Forgotten Scouse House 
+**Artist**: Hodge 
 
-**Track**: Cheeky Trax - Cold As Ice
+**Track**: Hodge - Only You
 
-Last updated at 7/22/2025, 8:44:49 AM
+Last updated at 7/22/2025, 8:46:25 AM
