@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UKF9KKfiaqmXMuk6-Yx7dSg-t500x500.jpg">](https://soundcloud.com/user-482298203/vengeance-what-you-got-4-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZoGMRCbte1fLGbe-V9XvtA-t500x500.png">](https://soundcloud.com/gawmmusic/3d4f9c3f-9d40-4a2e-b139-92ffd0c0d146)
 
-**Artist**: Vengeance 
+**Artist**: Fred Again 
 
-**Track**: Signum - What Ya Got 4 Me (Vengeance Schranz edit) FREE DOWNLOAD
+**Track**: Victory Lap (GAWM FLIP)
 
-Last updated at 7/22/2025, 8:10:02 AM
+Last updated at 7/22/2025, 8:41:29 AM
