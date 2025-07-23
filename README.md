@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x2DH8vnIzpzTlUQF-VSGeHg-t500x500.png">](https://soundcloud.com/dnbranger/invert-era-intersect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tycEMnDcnCaU0wc-yoyGyQ-t500x500.png">](https://soundcloud.com/rave_alert/reblok-back-to-life-1)
 
-**Artist**: Invert Era 
+**Artist**: Rave Alert 
 
-**Track**: Invert Era - Intersect
+**Track**: Reblok - Back To Life
 
-Last updated at 7/23/2025, 9:17:02 AM
+Last updated at 7/23/2025, 9:18:02 AM
