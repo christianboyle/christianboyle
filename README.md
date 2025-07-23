@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zoGByKdsbQQdw4YN-MjPifQ-t500x500.png">](https://soundcloud.com/cloudstechno/clouds-x-club-rinse-fm-july-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yr91XYfkUrmcHtyc-sIscWA-t500x500.jpg">](https://soundcloud.com/zaioni/human-prod-immanuel)
 
-**Artist**: Clouds 
+**Artist**: zai 
 
-**Track**: Clouds - X CLUB Rinse FM - July 2025
+**Track**: what after
 
-Last updated at 7/22/2025, 7:05:50 PM
+Last updated at 7/22/2025, 7:24:16 PM
