@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-so0zbqwzqoUQ9GX9-51SGkA-t500x500.jpg">](https://soundcloud.com/ashezmusic/headway-1?in=saxurn/sets/zip-unzip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tycEMnDcnCaU0wc-yoyGyQ-t500x500.png">](https://soundcloud.com/rave_alert/reblok-energy-doesnt-lie-2?in=saxurn/sets/zip-unzip/)
 
-**Artist**: ASHEZ, Gallium 
+**Artist**: Rave Alert 
 
-**Track**: Headway
+**Track**: Reblok - Energy Doesn't Lie
 
-Last updated at 7/23/2025, 1:16:02 PM
+Last updated at 7/23/2025, 1:19:17 PM
