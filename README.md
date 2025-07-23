@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1vbpcioyDBlSCq4-ZRff5A-t500x500.png">](https://soundcloud.com/weloveiku/devotion-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hw5BF0p2foJ9aDXx-VrNwyw-t500x500.png">](https://soundcloud.com/joytimecollective/killmatter-balenciaga-barbie)
 
-**Artist**: IKU 
+**Artist**: KILLMATTER 
 
-**Track**: DEVOTION
+**Track**: KILLMATTER - BALENCIAGA BARBIE
 
-Last updated at 7/23/2025, 9:22:48 AM
+Last updated at 7/23/2025, 9:23:48 AM
