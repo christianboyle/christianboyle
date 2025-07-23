@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bk0srbDjYS3PAMXQ-f2mRuQ-t500x500.png">](https://soundcloud.com/lifeofrileyofficial/lions-of-albion-life-of-riley-rosey-mastered-original-mix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gO4zLvVwxspremwp-Mlef3g-t500x500.png">](https://soundcloud.com/wearestudio/casey-club-dj-set-ohlala-festival-2025?in=phydrabass/sets/mixes)
 
-**Artist**: Life of Riley & Rosey 
+**Artist**: STUDIO, Casey Club 
 
-**Track**: Lions Of Albion - Life Of Riley & Rosey - (Mastered) (Original Mix) (Free Download)
+**Track**: Casey Club DJ Set @ Ohlala Festival 2025
 
-Last updated at 7/23/2025, 9:19:02 AM
+Last updated at 7/23/2025, 9:20:02 AM
