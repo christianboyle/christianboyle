@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yr91XYfkUrmcHtyc-sIscWA-t500x500.jpg">](https://soundcloud.com/zaioni/human-prod-immanuel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M1VKaiz5f62FNyqv-KvEbnw-t500x500.png">](https://soundcloud.com/han_ari_kr/cheerleader-flip?in=saxurn/sets/zip-unzip/)
 
-**Artist**: zai 
+**Artist**: Ari , Porter Robinson 
 
-**Track**: what after
+**Track**: Cheerleader (Ari flip)💕
 
-Last updated at 7/23/2025, 11:25:11 AM
+Last updated at 7/23/2025, 11:31:29 AM
