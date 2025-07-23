@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-noTua65LwI8uhywK-7cgaVQ-t500x500.jpg">](https://soundcloud.com/lykwidbeats/meyo-x-lykwid-2-28-25-meyo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yD2Iinqe2M2ojgY-7dNwvA-t500x500.jpg">](https://soundcloud.com/margwa/gang-shii)
 
-**Artist**: Lykwid, Meyo 
+**Artist**: Margwa 
 
-**Track**: Blood Diamond (Ft. Me-Yo)
+**Track**: GANG SHII (FREE DOWNLOAD)
 
-Last updated at 7/23/2025, 9:29:43 AM
+Last updated at 7/23/2025, 9:30:58 AM
