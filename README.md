@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbtuoHR29kAjT7r8-eYT0Ug-t500x500.png">](https://soundcloud.com/ephexbass/digistep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-noTua65LwI8uhywK-7cgaVQ-t500x500.jpg">](https://soundcloud.com/lykwidbeats/meyo-x-lykwid-2-28-25-meyo)
 
-**Artist**: Ephex 
+**Artist**: Lykwid, Meyo 
 
-**Track**: DIGISTEP [FREE DOWNLOAD]
+**Track**: Blood Diamond (Ft. Me-Yo)
 
-Last updated at 7/23/2025, 9:28:43 AM
+Last updated at 7/23/2025, 9:29:43 AM
