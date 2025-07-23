@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryzKjgA0My7rgePx-dYKopA-t500x500.jpg">](https://soundcloud.com/butlerrrrrrr/on-again-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1vbpcioyDBlSCq4-ZRff5A-t500x500.png">](https://soundcloud.com/weloveiku/devotion-6)
 
-**Artist**: Mau P 
+**Artist**: IKU 
 
-**Track**: On Again (Butler Remix)
+**Track**: DEVOTION
 
-Last updated at 7/23/2025, 9:21:02 AM
+Last updated at 7/23/2025, 9:22:48 AM
