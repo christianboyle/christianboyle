@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XDjyZAgfnxzmVYhy-5lMvyg-t500x500.png">](https://soundcloud.com/hollmusic/fred-againskepta-victory-lap-hol-remix?in=saxurn/sets/zip-unzip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpJzRlSuFAQh5ipy-dY5XmA-t500x500.png">](https://soundcloud.com/starseedsound/sweetdisposition?in=saxurn/sets/zip-unzip/)
 
-**Artist**: HOL! 
+**Artist**: STAR SEED 
 
-**Track**: Fred again.. & Skepta - Victory Lap (HOL! REMIX)
+**Track**: The Temper Trap - Sweet Disposition (STAR SEED Remix)
 
-Last updated at 7/23/2025, 12:26:37 PM
+Last updated at 7/23/2025, 12:37:23 PM
