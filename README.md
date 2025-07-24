@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YPgH2Nn1U3V3YRxx-rPPpVA-t500x500.jpg">](https://soundcloud.com/corruptionbounce/dj-aj-mark-lee-corruption)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eX2Z4yIkl1WARWoj-yh1lgQ-t500x500.png">](https://soundcloud.com/disgo_music/disgo-oreilly)
 
-**Artist**: Corruption Bounce 
+**Artist**: DISGO 
 
-**Track**: Dj AJ & MARK LEE Corruption Bounce The Festival Down The Rabbit Hole Promo Mix 30th August 2025
+**Track**: DISGO - OREILLY (FREE DL)
 
-Last updated at 7/24/2025, 8:13:10 AM
+Last updated at 7/24/2025, 8:14:20 AM
