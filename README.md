@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-so0zbqwzqoUQ9GX9-51SGkA-t500x500.jpg">](https://soundcloud.com/ashezmusic/headway-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1vbpcioyDBlSCq4-ZRff5A-t500x500.png">](https://soundcloud.com/weloveiku/jukai-5/s-oUVzqTBpj5c)
 
-**Artist**: ASHEZ, Gallium 
+**Artist**: IKU, REXY=DEXY 
 
-**Track**: Headway
+**Track**: JUKAI
 
-Last updated at 7/24/2025, 1:17:29 PM
+Last updated at 7/24/2025, 1:20:44 PM
