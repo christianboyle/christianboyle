@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xUA9btfqYhpR-0-t500x500.jpg">](https://soundcloud.com/avalonemerson/sort-of-like-a-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FzvvooTdC8jDFJ18-AxZoYQ-t500x500.jpg">](https://soundcloud.com/user-540987709/youngwarchief-relate-to-me)
 
-**Artist**: Avalon Emerson, Anunaku, A+A 
+**Artist**: Youngwarchief 
 
-**Track**: Sort of Like a Dream
+**Track**: Youngwarchief- Relate to me
 
-Last updated at 7/24/2025, 8:20:21 AM
+Last updated at 7/24/2025, 8:21:21 AM
