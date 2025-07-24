@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vaHgMJYe1bP9w00q-io2Wiw-t500x500.png">](https://soundcloud.com/lofreqrecords/split-mind-drive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLMjOU3372C3tIB0-5Lr8MQ-t500x500.jpg">](https://soundcloud.com/ew_tunes/chefwamp-weary-vandull-beef-wellington-ew-remix)
 
-**Artist**: SPLiT 
+**Artist**: Ew 
 
-**Track**: SPLiT - Mind Drive
+**Track**: CHEFWAMP, WEARY & VANDULL - BEEF WELLINGTON (EW REMIX)
 
-Last updated at 7/24/2025, 8:25:21 AM
+Last updated at 7/24/2025, 8:27:07 AM
