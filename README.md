@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RWEdOav1ljz4RQLO-2PXewQ-t500x500.png">](https://soundcloud.com/gawmmusic/gawm-x-klown-boom-shaka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f968hGDsxYISzTho-qrRUTA-t500x500.png">](https://soundcloud.com/mistrrr/profezia)
 
-**Artist**: GAWM, KLOWN 
+**Artist**: Mistrrr, Lunai 
 
-**Track**: GAWM x KLOWN - Boom Shaka
+**Track**: Profezia
 
-Last updated at 7/24/2025, 9:11:11 AM
+Last updated at 7/24/2025, 9:13:26 AM
