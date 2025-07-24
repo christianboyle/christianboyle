@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673721692-0phzsq-t500x500.jpg">](https://soundcloud.com/spaceghostarchive/purple-potion-1?in=zaioni/sets/im-so-fried-rn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4zYauns3R6OSB3Z-pyS8IQ-t500x500.png">](https://soundcloud.com/scrambl/bruised-and-battered-1kayro)
 
-**Artist**: SpaceGhostPurrp 
+**Artist**: scrambl 
 
-**Track**: Purple Potion
+**Track**: bruised and battered @1kayro @scrambl
 
-Last updated at 7/24/2025, 8:36:38 AM
+Last updated at 7/24/2025, 9:04:20 AM
