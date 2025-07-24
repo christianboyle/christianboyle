@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kckkatftSbhV6p3g-hcl4LQ-t500x500.png">](https://soundcloud.com/aaron-major-962778813/azzy-m-dior-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000673721692-0phzsq-t500x500.jpg">](https://soundcloud.com/spaceghostarchive/purple-potion-1?in=zaioni/sets/im-so-fried-rn)
 
-**Artist**: Azzy M 
+**Artist**: SpaceGhostPurrp 
 
-**Track**: Azzy M - Dior ( Sample )
+**Track**: Purple Potion
 
-Last updated at 7/24/2025, 8:35:37 AM
+Last updated at 7/24/2025, 8:36:38 AM
