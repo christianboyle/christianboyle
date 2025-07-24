@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eX2Z4yIkl1WARWoj-yh1lgQ-t500x500.png">](https://soundcloud.com/disgo_music/disgo-oreilly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4HRRC6h1Bhn7n24-dHCGow-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-mtc-no-hero-remix)
 
-**Artist**: DISGO 
+**Artist**: S3RL 
 
-**Track**: DISGO - OREILLY (FREE DL)
+**Track**: MTC (No Hero Remix)
 
-Last updated at 7/24/2025, 8:14:20 AM
+Last updated at 7/24/2025, 8:16:11 AM
