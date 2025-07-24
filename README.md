@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLMjOU3372C3tIB0-5Lr8MQ-t500x500.jpg">](https://soundcloud.com/ew_tunes/chefwamp-weary-vandull-beef-wellington-ew-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qSmVg9YKtmjyJxq6-Z4Bmzw-t500x500.jpg">](https://soundcloud.com/mikesrevenge/flight-facilities-crave-you-1)
 
-**Artist**: Ew 
+**Artist**: Mikes Revenge 
 
-**Track**: CHEFWAMP, WEARY & VANDULL - BEEF WELLINGTON (EW REMIX)
+**Track**: Flight Facilities - Crave You (Mikes Revenge Remix) feat Giselle
 
-Last updated at 7/24/2025, 8:27:07 AM
+Last updated at 7/24/2025, 8:28:07 AM
