@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpJzRlSuFAQh5ipy-dY5XmA-t500x500.png">](https://soundcloud.com/starseedsound/sweetdisposition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-so0zbqwzqoUQ9GX9-51SGkA-t500x500.jpg">](https://soundcloud.com/ashezmusic/headway-1)
 
-**Artist**: STAR SEED 
+**Artist**: ASHEZ, Gallium 
 
-**Track**: The Temper Trap - Sweet Disposition (STAR SEED Remix)
+**Track**: Headway
 
-Last updated at 7/24/2025, 1:14:08 PM
+Last updated at 7/24/2025, 1:17:29 PM
