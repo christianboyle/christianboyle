@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GbLXiFBWTyzpPLmF-BOdFkw-t500x500.png">](https://soundcloud.com/kashmerik/essential-flex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kckkatftSbhV6p3g-hcl4LQ-t500x500.png">](https://soundcloud.com/aaron-major-962778813/azzy-m-dior-sample)
 
-**Artist**: KASHMERIK 
+**Artist**: Azzy M 
 
-**Track**: Essential Flex
+**Track**: Azzy M - Dior ( Sample )
 
-Last updated at 7/24/2025, 8:34:37 AM
+Last updated at 7/24/2025, 8:35:37 AM
