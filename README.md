@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-octdoziRGvV59trA-Je8S0Q-t500x500.png">](https://soundcloud.com/saint-baek/30af48dd-efdf-4861-9183-fdf5b6e6c430)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGy3FUt2xi4h7jFP-0rxjKw-t500x500.png">](https://soundcloud.com/ukf/synergy-i-want-you)
 
-**Artist**: SAINT MILLER, Imogen Heap 
+**Artist**: Synergy & Gracie Van Brunt 
 
-**Track**: HIDE AND SEEK
+**Track**: Synergy & Gracie Van Brunt - I Want You
 
-Last updated at 7/24/2025, 7:43:12 AM
+Last updated at 7/24/2025, 8:12:10 AM
