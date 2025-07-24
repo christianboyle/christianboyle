@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9klRMXkFsEDgsc5R-fJPgLQ-t500x500.png">](https://soundcloud.com/trxggx/bangarang/s-oUVzqTBpj5c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tycEMnDcnCaU0wc-yoyGyQ-t500x500.png">](https://soundcloud.com/rave_alert/reblok-energy-doesnt-lie-2/s-oUVzqTBpj5c)
 
-**Artist**: TRXGGX 
+**Artist**: Rave Alert 
 
-**Track**: Bangarang [TRXGGX Flip]
+**Track**: Reblok - Energy Doesn't Lie
 
-Last updated at 7/24/2025, 1:25:49 PM
+Last updated at 7/24/2025, 1:28:30 PM
