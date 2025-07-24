@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a7APG2eidpt5ffzy-vgnPAw-t500x500.jpg">](https://soundcloud.com/dj-tiny-t/free-download-slamma-never-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-l3EcRhVcNWvhzR8F-eJzJxg-t500x500.jpg">](https://soundcloud.com/geomcd/gonna-be-alright-geo-mcd-remix)
 
-**Artist**: Thirteen Productions(TinyT) 
+**Artist**: ♕ Geo Mcd ♕ 
 
-**Track**: FREE DOWNLOAD-Slamma-Never to late.wav
+**Track**: Gonna be alright - Geo McD Remix
 
-Last updated at 7/24/2025, 8:29:07 AM
+Last updated at 7/24/2025, 8:30:07 AM
