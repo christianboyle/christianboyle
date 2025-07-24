@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UT7fLdQBWh9uwzzY-TgNu2w-t500x500.png">](https://soundcloud.com/darren-styles/darren-styles-live-at-edc-lv-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T0lPDJ9g9ZJ3cH5c-A42VSA-t500x500.png">](https://soundcloud.com/dropwizz/copsandrobbers)
 
-**Artist**: Darren Styles 
+**Artist**: DROPWIZZ 
 
-**Track**: Darren Styles - Live at EDC LV 2025
+**Track**: Sammy Virji x Skepta - Cops & Robbers (DROPWIZZ flip)
 
-Last updated at 7/24/2025, 9:07:26 AM
+Last updated at 7/24/2025, 9:10:11 AM
