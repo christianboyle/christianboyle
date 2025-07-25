@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jI5YBS0PTZJJtOcF-7ZCOyw-t500x500.jpg">](https://soundcloud.com/gzmo-productions/clean-bandit-x-tiesto-x-leony)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFozbfjPUw8daMXU-3wjQoQ-t500x500.png">](https://soundcloud.com/txrecords/premeire-heerod-mellow-opr033)
 
-**Artist**: GZMO 
+**Artist**: Tx Records 
 
-**Track**: Clean Bandit x Tiësto x Leony - Tell Me Where U Go (GZMO Remix)
+**Track**: PREMEIRE: HEEROD -  MELLOW  [ØPR033]
 
-Last updated at 7/25/2025, 10:19:18 AM
+Last updated at 7/25/2025, 10:20:18 AM
