@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tycEMnDcnCaU0wc-yoyGyQ-t500x500.png">](https://soundcloud.com/rave_alert/reblok-energy-doesnt-lie-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7jCwNvfweIb-0-t500x500.png">](https://soundcloud.com/getterofficial/born-2-stunt-feat-sxmpra)
 
-**Artist**: Rave Alert 
+**Artist**: Getter 
 
-**Track**: Reblok - Energy Doesn't Lie
+**Track**: Born 2 Stunt (feat. SXMPRA)
 
-Last updated at 7/25/2025, 7:05:17 AM
+Last updated at 7/25/2025, 8:59:14 AM
