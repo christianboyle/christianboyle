@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7jCwNvfweIb-0-t500x500.png">](https://soundcloud.com/getterofficial/born-2-stunt-feat-sxmpra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tda0H1qzwGChhaLJ-QtjybA-t500x500.png">](https://soundcloud.com/arksoundproject/bloom-feat-offscale)
 
-**Artist**: Getter 
+**Artist**: A.R.K. 
 
-**Track**: Born 2 Stunt (feat. SXMPRA)
+**Track**: bloom (feat. Offscale)
 
-Last updated at 7/25/2025, 8:59:14 AM
+Last updated at 7/25/2025, 9:37:54 AM
