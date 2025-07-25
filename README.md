@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNCioGTfSHzC-0-t500x500.jpg">](https://soundcloud.com/nghtvision/get-lit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jI5YBS0PTZJJtOcF-7ZCOyw-t500x500.jpg">](https://soundcloud.com/gzmo-productions/clean-bandit-x-tiesto-x-leony)
 
-**Artist**: Nght Vision 
+**Artist**: GZMO 
 
-**Track**: Get Lit
+**Track**: Clean Bandit x Tiësto x Leony - Tell Me Where U Go (GZMO Remix)
 
-Last updated at 7/25/2025, 10:17:53 AM
+Last updated at 7/25/2025, 10:19:18 AM
