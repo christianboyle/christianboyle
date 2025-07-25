@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNCioGTfSHzC-0-t500x500.jpg">](https://soundcloud.com/nghtvision/get-lit)
 
-**Artist**: Dustin Hertz & Clayton Cash 
+**Artist**: Nght Vision 
 
-**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
+**Track**: Get Lit
 
-Last updated at 7/25/2025, 10:16:53 AM
+Last updated at 7/25/2025, 10:17:53 AM
