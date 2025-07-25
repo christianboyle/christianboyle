@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58zOg1myJyMTHNe5-10nAyA-t500x500.png">](https://soundcloud.com/pls-ty/takeachance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFsV5iR9wmdPfrhz-W1PIOg-t500x500.jpg">](https://soundcloud.com/user-494848732/jayme-d-how-would-they-sample)
 
-**Artist**: PLS&TY (ft. MOYA) 
+**Artist**: JaymeD 
 
-**Track**: PLS&TY - Take A Chance (ft. MOYA)
+**Track**: Jayme D - How Would They [sample].mp3
 
-Last updated at 7/25/2025, 10:21:18 AM
+Last updated at 7/25/2025, 10:22:18 AM
