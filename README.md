@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uRDCnB3zWhl81Sal-0ytDnA-t500x500.png">](https://soundcloud.com/cephasth/go-electrostep-network-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MWCJexCGtRXsO8Jm-VEiB9A-t500x500.png">](https://soundcloud.com/chendo-urcino-1/solar-system-milly-x)
 
-**Artist**: Cephas 
+**Artist**: Milly, Cacophonic  
 
-**Track**: Go! [Electrostep Network PREMIERE]
+**Track**: Solar System (Milly x Cacophonic Remix)
 
-Last updated at 7/25/2025, 10:24:43 AM
+Last updated at 7/25/2025, 1:52:40 PM
