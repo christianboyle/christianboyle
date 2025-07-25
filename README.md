@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jf6vvAuggh891kd6-UFyVpQ-t500x500.png">](https://soundcloud.com/dj-simmy-86/meltdown-6-dj-joe-d-vs-dj-simmy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
 
-**Artist**: Dj Simmy Dj joe D 
+**Artist**: Dustin Hertz & Clayton Cash 
 
-**Track**: MELTDOWN 6 - Dj Joe  D vs Dj Simmy
+**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
 
-Last updated at 7/25/2025, 10:15:38 AM
+Last updated at 7/25/2025, 10:16:53 AM
