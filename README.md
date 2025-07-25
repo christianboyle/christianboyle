@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEwIVn9y3c2OfVxw-AlxnqQ-t500x500.png">](https://soundcloud.com/wearestudio/teej-scotty-curse-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uRDCnB3zWhl81Sal-0ytDnA-t500x500.png">](https://soundcloud.com/cephasth/go-electrostep-network-premiere)
 
-**Artist**: STUDIO, Teej & Scotty 
+**Artist**: Cephas 
 
-**Track**: Teej & Scotty - Curse [Premiere]
+**Track**: Go! [Electrostep Network PREMIERE]
 
-Last updated at 7/25/2025, 10:23:28 AM
+Last updated at 7/25/2025, 10:24:43 AM
