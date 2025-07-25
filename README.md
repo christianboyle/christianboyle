@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3dcSS3zTx9sq4UuX-SV2CTw-t500x500.jpg">](https://soundcloud.com/officialpedromc/geo-mcd-family-matters-pedro-little-souter-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qATCK9ooyzdI6LhF-ke3syw-t500x500.jpg">](https://soundcloud.com/rashmika-ramanayake/martin-garrix-alesso-look-inside-our-hearts-id-new-version)
 
-**Artist**: OfficialPedro 
+**Artist**: IAMSRR 
 
-**Track**: Geo Mcd - Family Matters [ Pedro & Little Souter Remix ]
+**Track**: Martin Garrix & Alesso | Look Inside Our Hearts - ID (New Version)
 
-Last updated at 7/25/2025, 2:36:07 PM
+Last updated at 7/25/2025, 2:37:52 PM
