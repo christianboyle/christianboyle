@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wh75K5bEfDcVRzCJ-mh8FOg-t500x500.jpg">](https://soundcloud.com/hn_1/erin-lecount-godspeed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
 
-**Artist**: HN1 
+**Artist**: Dustin Hertz & Clayton Cash 
 
-**Track**: Erin Lecount - Godspeed (HN1 Remix)
+**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
 
-Last updated at 7/25/2025, 5:21:47 PM
+Last updated at 7/25/2025, 6:29:00 PM
