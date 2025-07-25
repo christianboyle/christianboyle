@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qATCK9ooyzdI6LhF-ke3syw-t500x500.jpg">](https://soundcloud.com/rashmika-ramanayake/martin-garrix-alesso-look-inside-our-hearts-id-new-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wh75K5bEfDcVRzCJ-mh8FOg-t500x500.jpg">](https://soundcloud.com/hn_1/erin-lecount-godspeed)
 
-**Artist**: IAMSRR 
+**Artist**: HN1 
 
-**Track**: Martin Garrix & Alesso | Look Inside Our Hearts - ID (New Version)
+**Track**: Erin Lecount - Godspeed (HN1 Remix)
 
-Last updated at 7/25/2025, 2:37:52 PM
+Last updated at 7/25/2025, 2:43:08 PM
