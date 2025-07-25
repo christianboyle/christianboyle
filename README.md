@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFsV5iR9wmdPfrhz-W1PIOg-t500x500.jpg">](https://soundcloud.com/user-494848732/jayme-d-how-would-they-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TEwIVn9y3c2OfVxw-AlxnqQ-t500x500.png">](https://soundcloud.com/wearestudio/teej-scotty-curse-premiere)
 
-**Artist**: JaymeD 
+**Artist**: STUDIO, Teej & Scotty 
 
-**Track**: Jayme D - How Would They [sample].mp3
+**Track**: Teej & Scotty - Curse [Premiere]
 
-Last updated at 7/25/2025, 10:22:18 AM
+Last updated at 7/25/2025, 10:23:28 AM
