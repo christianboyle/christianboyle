@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M1VKaiz5f62FNyqv-KvEbnw-t500x500.png">](https://soundcloud.com/han_ari_kr/cheerleader-flip?in=saxurn/sets/zip-unzip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-snJAzSInzEGV-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/never-looking-back?in=saxurn/sets/dont-rip-that-zip/)
 
-**Artist**: Ari , Porter Robinson 
+**Artist**: Klubfiller 
 
-**Track**: Cheerleader (Ari flip)💕
+**Track**: Never Looking Back
 
-Last updated at 7/27/2025, 10:32:42 AM
+Last updated at 7/27/2025, 11:06:31 AM
