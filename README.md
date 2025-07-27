@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9klRMXkFsEDgsc5R-fJPgLQ-t500x500.png">](https://soundcloud.com/trxggx/bangarang?in=saxurn/sets/dont-rip-that-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
 
-**Artist**: TRXGGX 
+**Artist**: Dustin Hertz & Clayton Cash 
 
-**Track**: Bangarang [TRXGGX Flip]
+**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
 
-Last updated at 7/27/2025, 11:29:24 AM
+Last updated at 7/27/2025, 11:39:30 AM
