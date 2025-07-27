@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M1VKaiz5f62FNyqv-KvEbnw-t500x500.png">](https://soundcloud.com/han_ari_kr/cheerleader-flip?in=saxurn/sets/zip-unzip/)
 
-**Artist**: Dustin Hertz & Clayton Cash 
+**Artist**: Ari , Porter Robinson 
 
-**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
+**Track**: Cheerleader (Ari flip)💕
 
-Last updated at 7/26/2025, 6:28:04 AM
+Last updated at 7/26/2025, 7:24:22 PM
