@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz3Kkgb7NmX0OQrx-otes4g-t500x500.png">](https://soundcloud.com/bkbeats/girlofyourdreamss)
 
-**Artist**: Dustin Hertz & Clayton Cash 
+**Artist**: Romo Weeks x bk beats 
 
-**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
+**Track**: Eli - Girl of Your Dreams (Romo Weeks x bk beats Remix)
 
-Last updated at 7/28/2025, 8:33:59 AM
+Last updated at 7/28/2025, 8:37:14 AM
