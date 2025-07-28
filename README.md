@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz3Kkgb7NmX0OQrx-otes4g-t500x500.png">](https://soundcloud.com/bkbeats/girlofyourdreamss?in=saxurn/sets/twinned/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f968hGDsxYISzTho-qrRUTA-t500x500.png">](https://soundcloud.com/mistrrr/profezia?in=saxurn/sets/twinned)
 
-**Artist**: Romo Weeks x bk beats 
+**Artist**: Mistrrr, Lunai 
 
-**Track**: Eli - Girl of Your Dreams (Romo Weeks x bk beats Remix)
+**Track**: Profezia
 
-Last updated at 7/28/2025, 8:53:45 AM
+Last updated at 7/28/2025, 8:54:50 AM
