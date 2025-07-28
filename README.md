@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tycEMnDcnCaU0wc-yoyGyQ-t500x500.png">](https://soundcloud.com/rave_alert/reblok-energy-doesnt-lie-2?in=saxurn/sets/dont-rip-that-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L1vbpcioyDBlSCq4-ZRff5A-t500x500.png">](https://soundcloud.com/weloveiku/jukai-5?in=saxurn/sets/dont-rip-that-zip)
 
-**Artist**: Rave Alert 
+**Artist**: IKU, REXY=DEXY 
 
-**Track**: Reblok - Energy Doesn't Lie
+**Track**: JUKAI
 
-Last updated at 7/28/2025, 9:23:58 AM
+Last updated at 7/28/2025, 9:29:08 AM
