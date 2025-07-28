@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz3Kkgb7NmX0OQrx-otes4g-t500x500.png">](https://soundcloud.com/bkbeats/girlofyourdreamss?in=saxurn/sets/twinned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h65A0ekDCYwGNYw6-4ROjww-t500x500.png">](https://soundcloud.com/travelermusic/abyssal-reef-original-mix?in=saxurn/sets/twinned)
 
-**Artist**: Romo Weeks x bk beats 
+**Artist**: TRAVELER 
 
-**Track**: Eli - Girl of Your Dreams (Romo Weeks x bk beats Remix)
+**Track**: Abyssal Reef (Original Mix)
 
-Last updated at 7/28/2025, 9:41:38 AM
+Last updated at 7/28/2025, 9:45:03 AM
