@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTFxOz2xnRa8h8NR-OJLVWg-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-aurora-d-all-night-sc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbcslT1a8RydwA5P-7WznyQ-t500x500.jpg">](https://soundcloud.com/sunroomstudio/whispers-in-silence)
 
-**Artist**: GZMO 
+**Artist**: Gerr Knauf 
 
-**Track**: GZMO & Aurora D - All Night
+**Track**: Whispers in Silence
 
-Last updated at 7/28/2025, 7:32:10 AM
+Last updated at 7/28/2025, 7:33:10 AM
