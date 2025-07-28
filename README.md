@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz3Kkgb7NmX0OQrx-otes4g-t500x500.png">](https://soundcloud.com/bkbeats/girlofyourdreamss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rmKy50eptdC-0-t500x500.png">](https://soundcloud.com/getterofficial/born-2-stunt-feat-sxmpra)
 
-**Artist**: Romo Weeks x bk beats 
+**Artist**: Getter, SXMPRA 
 
-**Track**: Eli - Girl of Your Dreams (Romo Weeks x bk beats Remix)
+**Track**: Born 2 Stunt
 
-Last updated at 7/28/2025, 8:37:14 AM
+Last updated at 7/28/2025, 8:40:39 AM
