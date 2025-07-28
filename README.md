@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I4u4fHYjdu5hZard-4yDR9A-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-talor-rainbow-samba-rys21)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4aSJh9NsBsym-0-t500x500.jpg">](https://soundcloud.com/boob7/lucki-feat-veeze-twin-flow)
 
-**Artist**: Techno Wereld, Tälor  
+**Artist**: LUCKI & Veeze 
 
-**Track**: Premiere: Tälor - Rainbow Samba [RYS21]
+**Track**: TWIN FLOW
 
-Last updated at 7/28/2025, 7:01:48 AM
+Last updated at 7/28/2025, 7:24:05 AM
