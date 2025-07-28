@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0mdokE5l16u-0-t500x500.jpg">](https://soundcloud.com/davidjackson-music/holding-me?in=david_jackson/sets/holding-me-fragrance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXHOB1I0er6WAKdi-Ab9t8g-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/calzo-sunshine-2)
 
-**Artist**: David Jackson 
+**Artist**: Rewired Records 
 
-**Track**: Holding Me
+**Track**: Calzo - Sunshine
 
-Last updated at 7/28/2025, 6:55:57 AM
+Last updated at 7/28/2025, 6:57:02 AM
