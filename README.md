@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOVwmAINSFdBEtqw-iPQUxg-t500x500.jpg">](https://soundcloud.com/eyes333/u-dont-know-me?in=saxurn/sets/twinned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f968hGDsxYISzTho-qrRUTA-t500x500.png">](https://soundcloud.com/mistrrr/profezia?in=saxurn/sets/twinned)
 
-**Artist**: eyes 
+**Artist**: Mistrrr, Lunai 
 
-**Track**: u dont know me (prod. AngelChrome + ‪@scrnnn‬ )
+**Track**: Profezia
 
-Last updated at 7/28/2025, 9:55:34 AM
+Last updated at 7/28/2025, 9:58:04 AM
