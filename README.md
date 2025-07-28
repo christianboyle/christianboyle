@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TnXSQZnRU6Yxwvs-1qXw7A-t500x500.png">](https://soundcloud.com/trey-pearce/linkin-park-in-the-end-trey?in=saxurn/sets/twinned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083?in=saxurn/sets/twinned)
 
-**Artist**: Trey Pearce 
+**Artist**: Dustin Hertz & Clayton Cash 
 
-**Track**: Linkin Park - In The End (Trey Pearce Remix)
+**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
 
-Last updated at 7/28/2025, 8:57:45 AM
+Last updated at 7/28/2025, 9:01:45 AM
