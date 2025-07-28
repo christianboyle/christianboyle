@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lbcslT1a8RydwA5P-7WznyQ-t500x500.jpg">](https://soundcloud.com/sunroomstudio/whispers-in-silence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHfTfE6QlGRozhz7-NL9AxQ-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-balaeric)
 
-**Artist**: Gerr Knauf 
+**Artist**: Rewired Records 
 
-**Track**: Whispers in Silence
+**Track**: Infinite - Balaeric
 
-Last updated at 7/28/2025, 7:39:31 AM
+Last updated at 7/28/2025, 7:49:42 AM
