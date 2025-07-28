@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6jX1AjmnZJz-0-t500x500.png">](https://soundcloud.com/willsparks/love-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I4u4fHYjdu5hZard-4yDR9A-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-talor-rainbow-samba-rys21)
 
-**Artist**: Will Sparks, Joel Fletcher 
+**Artist**: Techno Wereld, Tälor  
 
-**Track**: Love Like This
+**Track**: Premiere: Tälor - Rainbow Samba [RYS21]
 
-Last updated at 7/28/2025, 6:59:27 AM
+Last updated at 7/28/2025, 7:01:48 AM
