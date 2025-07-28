@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rmKy50eptdC-0-t500x500.png">](https://soundcloud.com/getterofficial/born-2-stunt-feat-sxmpra?in=saxurn/sets/twinned/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0S3hyITPZ3HrC1i-8ZfKxw-t500x500.jpg">](https://soundcloud.com/wizuhm/gucci-mane-whoppenheimer-wizuhm-flip-free-dl?in=saxurn/sets/twinned/)
 
-**Artist**: Getter, SXMPRA 
+**Artist**: WIZUHM 
 
-**Track**: Born 2 Stunt
+**Track**: Gucci Mane - Woppenheimer (WIZUHM FLIP)
 
-Last updated at 7/28/2025, 8:42:18 AM
+Last updated at 7/28/2025, 8:43:58 AM
