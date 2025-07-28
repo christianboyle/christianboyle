@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1j7y7fZetxSm-0-t500x500.jpg">](https://soundcloud.com/ilkeraydinmusic/mensch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dlSloz3gizGQK7Gx-qNQrLw-t500x500.png">](https://soundcloud.com/highsocietyofficial/nightride)
 
-**Artist**: Ilker Aydin 
+**Artist**: HIGHSOCIETY, Young Medicine 
 
-**Track**: Mensch
+**Track**: HIGHSOCIETY & Young Medicine - Night Ride
 
-Last updated at 7/28/2025, 7:27:10 AM
+Last updated at 7/28/2025, 7:28:10 AM
