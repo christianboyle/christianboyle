@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vpJzRlSuFAQh5ipy-dY5XmA-t500x500.png">](https://soundcloud.com/starseedsound/sweetdisposition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F0mdokE5l16u-0-t500x500.jpg">](https://soundcloud.com/davidjackson-music/holding-me?in=david_jackson/sets/holding-me-fragrance)
 
-**Artist**: STAR SEED 
+**Artist**: David Jackson 
 
-**Track**: The Temper Trap - Sweet Disposition (STAR SEED Remix)
+**Track**: Holding Me
 
-Last updated at 7/28/2025, 6:21:14 AM
+Last updated at 7/28/2025, 6:55:57 AM
