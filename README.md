@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i4cOdLLrtnOsxTk7-3srjOw-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/outkast-the-way-you-move-tucci-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ftkz1mksGoom5VE6-a1MSfQ-t500x500.png">](https://soundcloud.com/gonewallace/pay-them-people-2)
 
-**Artist**: TUCCI 
+**Artist**: Gone Wallace 
 
-**Track**: Outkast - The Way You Move (TUCCI Remix) [FREE DOWNLOAD]
+**Track**: PAY THEM PEOPLE
 
-Last updated at 7/28/2025, 7:25:05 AM
+Last updated at 7/28/2025, 7:26:10 AM
