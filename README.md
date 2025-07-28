@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0S3hyITPZ3HrC1i-8ZfKxw-t500x500.jpg">](https://soundcloud.com/wizuhm/gucci-mane-whoppenheimer-wizuhm-flip-free-dl?in=saxurn/sets/twinned/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0TnXSQZnRU6Yxwvs-1qXw7A-t500x500.png">](https://soundcloud.com/trey-pearce/linkin-park-in-the-end-trey?in=saxurn/sets/twinned/)
 
-**Artist**: WIZUHM 
+**Artist**: Trey Pearce 
 
-**Track**: Gucci Mane - Woppenheimer (WIZUHM FLIP)
+**Track**: Linkin Park - In The End (Trey Pearce Remix)
 
-Last updated at 7/28/2025, 8:43:58 AM
+Last updated at 7/28/2025, 8:46:13 AM
