@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-octdoziRGvV59trA-Je8S0Q-t500x500.png">](https://soundcloud.com/saint-baek/30af48dd-efdf-4861-9183-fdf5b6e6c430?in=saxurn/sets/dont-rip-that-zip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8rmKy50eptdC-0-t500x500.png">](https://soundcloud.com/getterofficial/born-2-stunt-feat-sxmpra?in=saxurn/sets/twinned)
 
-**Artist**: SAINT MILLER, Imogen Heap 
+**Artist**: Getter, SXMPRA 
 
-**Track**: HIDE AND SEEK
+**Track**: Born 2 Stunt
 
-Last updated at 7/28/2025, 9:34:14 AM
+Last updated at 7/28/2025, 9:36:02 AM
