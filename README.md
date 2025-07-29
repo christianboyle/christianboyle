@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2qJEhpbYMccQdr2-1Ayslg-t500x500.jpg">](https://soundcloud.com/audiosamplerz/audio-samplerz-mysteryland)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y841gyXy0hujLHFQ-KfDrzg-t500x500.png">](https://soundcloud.com/huskibass/juizzewentblank)
 
-**Artist**: AudioSamplerz 
+**Artist**: Juizze 
 
-**Track**: Y Traxx-MysteryLand - Audio-Samplerz
+**Track**: 𝑱𝑼𝑰𝒁𝒁𝑬 - 𝑾𝑬𝑵𝑻 𝑩𝑳𝑨𝑵𝑲 (𝑯𝑼𝑺𝑲𝑰 𝑩𝑨𝑺𝑺 021)
 
-Last updated at 7/29/2025, 8:36:23 AM
+Last updated at 7/29/2025, 8:37:22 AM
