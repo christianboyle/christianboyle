@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4vhZTO1wvPh3Kskg-RpU3eQ-t500x500.png">](https://soundcloud.com/djfinny1/lets-bounce-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O7zbu1x30BMSG9k8-LBCDbA-t500x500.jpg">](https://soundcloud.com/qbikmusik/victory-lap-remix)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: QB!K, Fred Again.., Skepta 
 
-**Track**: Let's Bounce 7 (Free Download)
+**Track**: Fred Again.. x Skepta - Victory Lap [QUBED BY QB!K] (FREE DL)
 
-Last updated at 7/29/2025, 8:44:03 AM
+Last updated at 7/29/2025, 9:09:53 AM
