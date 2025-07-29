@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLgFXjN6LlLImbxU-Byh1cw-t500x500.png">](https://soundcloud.com/enveakmusic/tsuki-take-off-enveak-hardtechno-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Nlx9jGG6OZaZSmK-3wV7GQ-t500x500.png">](https://soundcloud.com/richashley/tell-me-its-magic)
 
-**Artist**: EИVEΛK 
+**Artist**: Rich Ashley 
 
-**Track**: TSUKI - TAKE OFF (ENVEAK HARDTECHNO EDIT) [FREE DOWNLOAD]
+**Track**: tell me its magic
 
-Last updated at 7/29/2025, 9:12:13 AM
+Last updated at 7/29/2025, 9:13:13 AM
