@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BAWb76qtz2F8PpzL-JrMyXg-t500x500.jpg">](https://soundcloud.com/millirecs/amon-yedm-sonar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4vhZTO1wvPh3Kskg-RpU3eQ-t500x500.png">](https://soundcloud.com/djfinny1/lets-bounce-7)
 
-**Artist**: AMØN & YËDM 
+**Artist**: djfinny1 (Darren Finlayson) 
 
-**Track**: AMØN & YËDM - SOÑAR
+**Track**: Let's Bounce 7 (Free Download)
 
-Last updated at 7/29/2025, 8:41:48 AM
+Last updated at 7/29/2025, 8:44:03 AM
