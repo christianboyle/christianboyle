@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y841gyXy0hujLHFQ-KfDrzg-t500x500.png">](https://soundcloud.com/huskibass/juizzewentblank)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nOEGBF85zAncRxms-EczFPA-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-manex-x-el5-i-could-be-the-one-edit)
 
-**Artist**: Juizze 
+**Artist**: GEWOONRAVES 
 
-**Track**: 𝑱𝑼𝑰𝒁𝒁𝑬 - 𝑾𝑬𝑵𝑻 𝑩𝑳𝑨𝑵𝑲 (𝑯𝑼𝑺𝑲𝑰 𝑩𝑨𝑺𝑺 021)
+**Track**: [FREE DL] MANEX X EL5 - I COULD BE THE ONE (EDIT)
 
-Last updated at 7/29/2025, 8:37:22 AM
+Last updated at 7/29/2025, 8:38:42 AM
