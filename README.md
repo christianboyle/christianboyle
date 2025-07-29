@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YvQMAHHxHi6RneGz-4zY5GQ-t500x500.png">](https://soundcloud.com/wakaan/wink-runningaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-77pX2uhWvuLMQyMn-WxUCkA-t500x500.jpg">](https://soundcloud.com/lynyofficial/d70b353a-cfa8-4859-a15d-be4ef147c526)
 
-**Artist**: WINK 
+**Artist**: LYNY 
 
-**Track**: WINK - runningaway
+**Track**: Section
 
-Last updated at 7/29/2025, 9:15:18 AM
+Last updated at 7/29/2025, 9:16:29 AM
