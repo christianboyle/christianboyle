@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zzzmadLh35jB8A2-vtdjaw-t500x500.png">](https://soundcloud.com/tom-lysar/back-in-the-rhythm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Yvkd1sbGB42bjsa-ffm7Jw-t500x500.jpg">](https://soundcloud.com/dropkick/pulse-odyssey)
 
-**Artist**: Tom Lysar 
+**Artist**: Dropkick 
 
-**Track**: Back in the Rhythm
+**Track**: Pulse Odyssey
 
-Last updated at 7/29/2025, 9:19:04 AM
+Last updated at 7/29/2025, 9:20:24 AM
