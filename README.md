@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFq9RyrBa5yyK7Hq-yK6WOg-t500x500.jpg">](https://soundcloud.com/davecurtismusic/yourmyangeldavecurtis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tLgFXjN6LlLImbxU-Byh1cw-t500x500.png">](https://soundcloud.com/enveakmusic/tsuki-take-off-enveak-hardtechno-edit-free-download)
 
-**Artist**: Dave Curtis 
+**Artist**: EИVEΛK 
 
-**Track**: Styles & Breeze VS Avi8 & Cyber - Your My Angel (Emptyness) (Dave Curtis Bootleg)
+**Track**: TSUKI - TAKE OFF (ENVEAK HARDTECHNO EDIT) [FREE DOWNLOAD]
 
-Last updated at 7/29/2025, 9:11:03 AM
+Last updated at 7/29/2025, 9:12:13 AM
