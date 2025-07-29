@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Nlx9jGG6OZaZSmK-3wV7GQ-t500x500.png">](https://soundcloud.com/richashley/tell-me-its-magic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vktTtDIrU9xPOKbM-yZ1rKQ-t500x500.png">](https://soundcloud.com/vengmusic/hurt-you)
 
-**Artist**: Rich Ashley 
+**Artist**: veng 
 
-**Track**: tell me its magic
+**Track**: HURT YOU
 
-Last updated at 7/29/2025, 9:13:13 AM
+Last updated at 7/29/2025, 9:14:13 AM
