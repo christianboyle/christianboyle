@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vktTtDIrU9xPOKbM-yZ1rKQ-t500x500.png">](https://soundcloud.com/vengmusic/hurt-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YvQMAHHxHi6RneGz-4zY5GQ-t500x500.png">](https://soundcloud.com/wakaan/wink-runningaway)
 
-**Artist**: veng 
+**Artist**: WINK 
 
-**Track**: HURT YOU
+**Track**: WINK - runningaway
 
-Last updated at 7/29/2025, 9:14:13 AM
+Last updated at 7/29/2025, 9:15:18 AM
