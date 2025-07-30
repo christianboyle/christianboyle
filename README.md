@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8cebOMzeuBPyeMgk-TDSoAw-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-gecko-hard-techno-edit-roncero-x-tw1nzfaze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i0S3hyITPZ3HrC1i-8ZfKxw-t500x500.jpg">](https://soundcloud.com/wizuhm/gucci-mane-whoppenheimer-wizuhm-flip-free-dl)
 
-**Artist**: GEWOONRAVES 
+**Artist**: WIZUHM 
 
-**Track**: [FREE DL] Gecko (Hard Techno Edit ) - Roncero x Tw1nFaze
+**Track**: Gucci Mane - Woppenheimer (WIZUHM FLIP)
 
-Last updated at 7/30/2025, 12:27:51 PM
+Last updated at 7/30/2025, 12:31:41 PM
