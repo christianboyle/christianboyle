@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eLa4K3ogMmvJ-0-t500x500.jpg">](https://soundcloud.com/dustinlynch/small-town-boy-dirty-audio-and)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JuxE0mNznmdbzthg-1JxXrQ-t500x500.jpg">](https://soundcloud.com/groundscoredubz/hell-hounds)
 
-**Artist**: Dustin Lynch, Dirty Audio, Grant Fisher 
+**Artist**: ground score 
 
-**Track**: Small Town Boy (Dirty Audio and Grant Fisher Remix)
+**Track**: HELL HOUNDS
 
-Last updated at 7/30/2025, 12:18:15 PM
+Last updated at 7/30/2025, 12:21:45 PM
