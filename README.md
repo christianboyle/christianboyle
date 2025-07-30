@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHfTfE6QlGRozhz7-NL9AxQ-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/infinite-balaeric)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4w6SWDLl60oGu2pw-XlkuGw-t500x500.jpg">](https://soundcloud.com/deejaypatb/dustin-hertz-clayton-cash-keep-on-jumping-yellowfever083)
 
-**Artist**: Rewired Records 
+**Artist**: Dustin Hertz & Clayton Cash 
 
-**Track**: Infinite - Balaeric
+**Track**: Dustin Hertz & Clayton Cash - Keep On Jumping [YELLOWFEVER083]
 
-Last updated at 7/30/2025, 12:37:26 PM
+Last updated at 7/30/2025, 12:40:32 PM
