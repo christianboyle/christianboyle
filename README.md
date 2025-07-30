@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b1pZMFDDVCC7z48C-xvltWw-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-moxia-bring-me-to-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8cebOMzeuBPyeMgk-TDSoAw-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-gecko-hard-techno-edit-roncero-x-tw1nzfaze)
 
-**Artist**: Moxia 
+**Artist**: GEWOONRAVES 
 
-**Track**: [FREE DL] Moxia - Bring Me To Life
+**Track**: [FREE DL] Gecko (Hard Techno Edit ) - Roncero x Tw1nFaze
 
-Last updated at 7/30/2025, 12:24:35 PM
+Last updated at 7/30/2025, 12:27:51 PM
