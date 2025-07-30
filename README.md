@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQU3LBAXp0fDsG1h-1LEcJg-t500x500.png">](https://soundcloud.com/aftershockdj/higher-free-extended-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b1pZMFDDVCC7z48C-xvltWw-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-moxia-bring-me-to-life)
 
-**Artist**: Aftershock & Bass Modulators 
+**Artist**: Moxia 
 
-**Track**: Higher (Free Extended Download)
+**Track**: [FREE DL] Moxia - Bring Me To Life
 
-Last updated at 7/30/2025, 12:22:50 PM
+Last updated at 7/30/2025, 12:24:35 PM
