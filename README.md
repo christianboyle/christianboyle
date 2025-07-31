@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gGUI2MfLpB5z4Z1X-T49lsg-t500x500.jpg">](https://soundcloud.com/sabertvvth/sabertvvth-memories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BINvE28ClE12L2Wp-eN28wQ-t500x500.png">](https://soundcloud.com/billykinn/kinn-cosmos-original-mix-radio-edit)
 
-**Artist**: Sabertvvth 
+**Artist**: KINN 
 
-**Track**: Sabertvvth - Memories
+**Track**: KINN EP 3 - Cosmos - (Original Mix) Radio Edit
 
-Last updated at 7/31/2025, 8:03:17 AM
+Last updated at 7/31/2025, 8:06:37 AM
