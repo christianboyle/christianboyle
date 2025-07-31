@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7QqM31xwgZP0jGSO-Kc3kGg-t500x500.png">](https://soundcloud.com/huskibass/strangeforcesvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LoiVilu1zwONLYOC-a9uMYw-t500x500.png">](https://soundcloud.com/audiosamplerz/audio-samplerz-o-dinosaur)
 
-**Artist**: Sean Ziral 
+**Artist**: AudioSamplerz 
 
-**Track**: 𝑺𝒆𝒂𝒏 𝒁𝒊𝒓𝒂𝒍 - 𝑺𝒕𝒓𝒂𝒏𝒈𝒆 𝑭𝒐𝒓𝒄𝒆𝒔 𝑽𝑰𝑷 (𝑯𝑼𝑺𝑲𝑰 𝑩𝑨𝑺𝑺 020)
+**Track**: Audio Samplerz - Oi-Dinosaur
 
-Last updated at 7/31/2025, 2:41:28 PM
+Last updated at 7/31/2025, 2:51:19 PM
