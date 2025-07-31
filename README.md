@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eBOgfTAyY6v9kIi0-YnfJDw-t500x500.png">](https://soundcloud.com/sensateofficial/uicideboy-now-im-up-to-my-neck-with-offers-sensate-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dXXPxDo0061eZXSW-geyVXQ-t500x500.jpg">](https://soundcloud.com/jakelov/craybrook-volume-jakelov-remix)
 
-**Artist**: SENSATE 
+**Artist**: JAKELOV 
 
-**Track**: $UICIDEBOY$ - NOW I'M UP TO MY NECK WITH OFFERS (SENSATE BOOTLEG)
+**Track**: CLAYBROOK - Volume (JAKELOV Remix)
 
-Last updated at 7/31/2025, 6:14:00 PM
+Last updated at 7/31/2025, 6:50:58 PM
