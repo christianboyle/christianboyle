@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jk5ymjJ9ZhEJAwka-qFM3Ig-t500x500.png">](https://soundcloud.com/hardlinesounds/gabriel-mun-oz-lost-hard32)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rHpE57W7Synorjpt-Xp6n4A-t500x500.png">](https://soundcloud.com/transition_ofc/premiere-cult-ortofon-aktivv011)
 
-**Artist**: Gabriel Muñoz 
+**Artist**: TRANSITION, Cult 
 
-**Track**: Gabriel Muñoz - Lost (HARD32)
+**Track**: PREMIERE: Cult – Ortofon [AKTIVV011]
 
-Last updated at 7/31/2025, 8:12:28 AM
+Last updated at 7/31/2025, 9:21:40 AM
