@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DA4LEVbwSAr21hWM-CQtUow-t500x500.jpg">](https://soundcloud.com/liam-vasquez-486783388/dj-screw-keep-it-on-the-real)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97duXcJ8m9OG1IU8-0zsGLw-t500x500.jpg">](https://soundcloud.com/groove030/toushe-perdu-amoureux)
 
-**Artist**: GAPTOOTHMF 
+**Artist**: Toushe 
 
-**Track**: DJ Screw - Keep It On The Real
+**Track**: Toushe - Perdu Amoureux (Lost in Love)
 
-Last updated at 7/31/2025, 7:38:35 AM
+Last updated at 7/31/2025, 7:48:01 AM
