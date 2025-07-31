@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AAqKOzRC6wuI25z5-GBJM6w-t500x500.png">](https://soundcloud.com/psykeduk/vivace-now-or-never)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w8zsToKL4vEB0mdQ-gBs7uw-t500x500.jpg">](https://soundcloud.com/hollyhollys/sammy-virji-x-skepta-cops-n-robbers-holly-remix)
 
-**Artist**: Vivace 
+**Artist**: HOLLY, Sammy Virji, Skepta 
 
-**Track**: Vivace - Now Or Never
+**Track**: Sammy Virji x Skepta - Cops & Robbers (HOLLY remix)
 
-Last updated at 7/31/2025, 6:04:08 PM
+Last updated at 7/31/2025, 6:05:08 PM
