@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtZzifToP0PvMf0h-OZHqgg-t500x500.jpg">](https://soundcloud.com/darrenaftermusic/the-bomb)
 
-**Artist**: Glover 
+**Artist**: Darren After 
 
-**Track**: Glover - I Feel Silence, Love (Radio Edit)
+**Track**: The Bomb (Darren After Rework)
 
-Last updated at 7/31/2025, 6:52:58 PM
+Last updated at 7/31/2025, 6:53:58 PM
