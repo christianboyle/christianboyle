@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yt0zfxjNIZxSjiB3-ff5qDw-t500x500.png">](https://soundcloud.com/tom-lysar/between-the-claps)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jk5ymjJ9ZhEJAwka-qFM3Ig-t500x500.png">](https://soundcloud.com/hardlinesounds/gabriel-mun-oz-lost-hard32)
 
-**Artist**: Tom Lysar 
+**Artist**: Gabriel Muñoz 
 
-**Track**: Between the Claps
+**Track**: Gabriel Muñoz - Lost (HARD32)
 
-Last updated at 7/31/2025, 8:08:43 AM
+Last updated at 7/31/2025, 8:12:28 AM
