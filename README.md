@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jG7SAJESY3AviZb2-V1n4Dg-t500x500.png">](https://soundcloud.com/badtips/401-povoa-ok-99cts-rcrds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DA4LEVbwSAr21hWM-CQtUow-t500x500.jpg">](https://soundcloud.com/liam-vasquez-486783388/dj-screw-keep-it-on-the-real)
 
-**Artist**: Bad Tips 
+**Artist**: GAPTOOTHMF 
 
-**Track**: 𝖕𝖗𝖊𝖒𝖎𝖊𝖗𝖊#401 📢 Povoa - OK [99CTS RCRDS]
+**Track**: DJ Screw - Keep It On The Real
 
-Last updated at 7/31/2025, 7:37:20 AM
+Last updated at 7/31/2025, 7:38:35 AM
