@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f4VgLMWoOiQ5KvjQ-0q3r3g-t500x500.png">](https://soundcloud.com/deemzoo/deemzoo-tipper-friends-at-the-gorge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mEHzj1Z8Gz5mSURS-W2PyDg-t500x500.png">](https://soundcloud.com/thatfoxdub/breezeblocks-alt-j-fox-coverflip)
 
-**Artist**: DeemZoo 
+**Artist**: F.o.x 
 
-**Track**: DeemZoo - Tipper & Friends at The Gorge
+**Track**: Breezeblocks - alt- J ( F.o.x cover/flip)
 
-Last updated at 8/1/2025, 5:59:34 PM
+Last updated at 8/1/2025, 6:00:44 PM
