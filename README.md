@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiDZFC6YTiz9x4Ga-Sdr35A-t500x500.png">](https://soundcloud.com/miindsmiinds/not-in-love-miinds-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wow4TtFWvrs6ykBP-P6oOEw-t500x500.jpg">](https://soundcloud.com/skiyemusic/clams-casino-im-god-skiye-remix)
 
-**Artist**: MiiNDS 
+**Artist**: SKIYE 
 
-**Track**: Crystal Castles - Not In Love (MiiNDS Flip)
+**Track**: Clams Casino - I'm God (SKIYE DnB Remix)
 
-Last updated at 7/31/2025, 7:08:06 PM
+Last updated at 7/31/2025, 7:09:51 PM
