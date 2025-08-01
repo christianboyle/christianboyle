@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mEHzj1Z8Gz5mSURS-W2PyDg-t500x500.png">](https://soundcloud.com/thatfoxdub/breezeblocks-alt-j-fox-coverflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOME0Xlh8zfNCHRV-e3rIiA-t500x500.jpg">](https://soundcloud.com/prettysweet2/mikes-way)
 
-**Artist**: F.o.x 
+**Artist**: Pretty Sweet 
 
-**Track**: Breezeblocks - alt- J ( F.o.x cover/flip)
+**Track**: Mike's Way
 
-Last updated at 8/1/2025, 6:00:44 PM
+Last updated at 8/1/2025, 6:26:57 PM
