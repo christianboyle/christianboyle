@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RH9SBVoPzwm8rSCk-QXXfyg-t500x500.jpg">](https://soundcloud.com/yerbownik2/tictoc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
 
-**Artist**: yerbby dj 
+**Artist**: Glover 
 
-**Track**: Klea - Tic Toc (yerbby rework of Paul van Dyk + Magik Muzik remix)
+**Track**: Glover - I Feel Silence, Love (Radio Edit)
 
-Last updated at 7/31/2025, 7:12:31 PM
+Last updated at 7/31/2025, 7:18:12 PM
