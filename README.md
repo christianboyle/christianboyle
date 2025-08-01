@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BiDZFC6YTiz9x4Ga-Sdr35A-t500x500.png">](https://soundcloud.com/miindsmiinds/not-in-love-miinds-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hrHmNF4g0uoJ1ilR-hXhkBw-t500x500.png">](https://soundcloud.com/murlockholms/criminal)
 
-**Artist**: MiiNDS 
+**Artist**: MurlockHolms 
 
-**Track**: Crystal Castles - Not In Love (MiiNDS Flip)
+**Track**: Criminal
 
-Last updated at 8/1/2025, 6:53:22 AM
+Last updated at 8/1/2025, 9:41:17 AM
