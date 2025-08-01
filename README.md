@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLPEYVd3QHs7zTor-JyegXw-t500x500.jpg">](https://soundcloud.com/northernlinkz/hell-for-leather-vol3-mc-busy-x-daz-rapid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsSwWymzX4kqi9Q9-LyvNtQ-t500x500.png">](https://soundcloud.com/djactiv8/acctivate-da-bbounce-66)
 
-**Artist**: MC Busy 
+**Artist**: DJ ACTiV8 
 
-**Track**: HELL FOR LEATHER VOL3: Beyond the Metrozone | MC Busy x Daz Rapid
+**Track**: Activate the Bounce 66
 
-Last updated at 8/1/2025, 4:55:42 PM
+Last updated at 8/1/2025, 4:56:52 PM
