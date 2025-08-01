@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jOME0Xlh8zfNCHRV-e3rIiA-t500x500.jpg">](https://soundcloud.com/prettysweet2/mikes-way)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OEZYQbVMCZyZymx6-OBMgmg-t500x500.png">](https://soundcloud.com/dugidugi/renaissance)
 
-**Artist**: Pretty Sweet 
+**Artist**: Dugi 
 
-**Track**: Mike's Way
+**Track**: Renaissance (Free DL)
 
-Last updated at 8/1/2025, 6:26:57 PM
+Last updated at 8/1/2025, 6:27:57 PM
