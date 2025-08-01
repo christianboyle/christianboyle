@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpcCZkj5TW1NpP2L-6NmPDw-t500x500.png">](https://soundcloud.com/clubsp33d/emislay-levantate?in=clubsp33d/sets/all-vas-at-half-price-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPkbQz868i6Iawan-TEEUZw-t500x500.png">](https://soundcloud.com/buzzjunior/show-love)
 
-**Artist**: CLUB SP33D 
+**Artist**: Buzz Junior 
 
-**Track**: EMISLAY - LEVANTATE
+**Track**: show love
 
-Last updated at 8/1/2025, 6:36:47 PM
+Last updated at 8/1/2025, 6:37:47 PM
