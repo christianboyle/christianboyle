@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TxoyM3Ttpyzebybd-9fETFA-t500x500.png">](https://soundcloud.com/zzzoey808/likeit)
 
-**Artist**: Glover 
+**Artist**: Mau P 
 
-**Track**: Glover - I Feel Silence, Love (Radio Edit)
+**Track**: LIKE I LIKE IT (ZOEY808 REMIX)
 
-Last updated at 7/31/2025, 7:18:12 PM
+Last updated at 7/31/2025, 7:47:00 PM
