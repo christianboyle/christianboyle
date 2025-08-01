@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HdK02s9FEpGNl6Cs-i5K4Sw-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/jgs-intent-cyclone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfVEYdNyxLsY-0-t500x500.png">](https://soundcloud.com/soultight/love-no-more)
 
-**Artist**: Rewired Records 
+**Artist**: Soultight, Frank Zozky 
 
-**Track**: JGS & INTENT - Cyclone
+**Track**: Love Me No More
 
-Last updated at 8/1/2025, 4:49:32 PM
+Last updated at 8/1/2025, 4:51:52 PM
