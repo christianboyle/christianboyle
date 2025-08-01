@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzIpBmY5YqRonTEt-ymYpXg-t500x500.jpg">](https://soundcloud.com/makina-exposure/dj-brucey-summer-dream-of-love-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wow4TtFWvrs6ykBP-P6oOEw-t500x500.jpg">](https://soundcloud.com/skiyemusic/clams-casino-im-god-skiye-remix)
 
-**Artist**: MAKINA EXPOSURE 
+**Artist**: SKIYE 
 
-**Track**: Dj Brucey - Summer Dream Of Love [FREE DOWNLOAD]
+**Track**: Clams Casino - I'm God (SKIYE DnB Remix)
 
-Last updated at 7/31/2025, 6:57:33 PM
+Last updated at 7/31/2025, 7:00:11 PM
