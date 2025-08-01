@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KZcbMYGOjLW405FG-QNa9ig-t500x500.png">](https://soundcloud.com/djrikshaw/friskbounce38)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpcCZkj5TW1NpP2L-6NmPDw-t500x500.png">](https://soundcloud.com/clubsp33d/emislay-levantate?in=clubsp33d/sets/all-vas-at-half-price-for)
 
-**Artist**: Rik Shaw 
+**Artist**: CLUB SP33D 
 
-**Track**: FRISK BOUNCE - Show #38 -1st August 2025
+**Track**: EMISLAY - LEVANTATE
 
-Last updated at 8/1/2025, 6:35:47 PM
+Last updated at 8/1/2025, 6:36:47 PM
