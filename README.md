@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyrDHw8bX8bFYxf7-mW8RyQ-t500x500.jpg">](https://soundcloud.com/4uraofficial/rmx/s-F532HsVJ1un)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wow4TtFWvrs6ykBP-P6oOEw-t500x500.jpg">](https://soundcloud.com/skiyemusic/clams-casino-im-god-skiye-remix?in=saxurn/sets/liquid/)
 
-**Artist**: 4URA, BLACKPINK 
+**Artist**: SKIYE 
 
-**Track**: 뛰어(JUMP) [4URA RMX]
+**Track**: Clams Casino - I'm God (SKIYE DnB Remix)
 
-Last updated at 8/1/2025, 7:12:26 PM
+Last updated at 8/1/2025, 7:13:38 PM
