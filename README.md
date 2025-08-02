@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove?in=saxurn/sets/liquid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dXXPxDo0061eZXSW-geyVXQ-t500x500.jpg">](https://soundcloud.com/jakelov/craybrook-volume-jakelov-remix?in=saxurn/sets/liquid)
 
-**Artist**: Glover 
+**Artist**: JAKELOV 
 
-**Track**: Glover - I Feel Silence, Love (Radio Edit)
+**Track**: CLAYBROOK - Volume (JAKELOV Remix)
 
-Last updated at 8/1/2025, 8:11:34 PM
+Last updated at 8/1/2025, 8:22:40 PM
