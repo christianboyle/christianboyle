@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyrDHw8bX8bFYxf7-mW8RyQ-t500x500.jpg">](https://soundcloud.com/4uraofficial/rmx?in=saxurn/sets/liquid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LztO0q3cFJFkj5QO-Qzs5ew-t500x500.jpg">](https://soundcloud.com/esca_kassel/super-bouncy-heat?in=saxurn/sets/liquid/)
 
-**Artist**: 4URA, BLACKPINK 
+**Artist**: ESCA 
 
-**Track**: 뛰어(JUMP) [4URA RMX]
+**Track**: SUPER BOUNCY HEAT
 
-Last updated at 8/1/2025, 7:53:58 PM
+Last updated at 8/1/2025, 7:56:13 PM
