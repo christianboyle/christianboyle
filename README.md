@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R2KFX8WP9xzXBGMy-myWlbw-t500x500.png">](https://soundcloud.com/sublabmusic/break-my-soul?in=saxurn/sets/liquid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyrDHw8bX8bFYxf7-mW8RyQ-t500x500.jpg">](https://soundcloud.com/4uraofficial/rmx?in=saxurn/sets/liquid)
 
-**Artist**: Sublab & Teneki 
+**Artist**: 4URA, BLACKPINK 
 
-**Track**: BREAK MY SOUL
+**Track**: 뛰어(JUMP) [4URA RMX]
 
-Last updated at 8/1/2025, 8:51:06 PM
+Last updated at 8/1/2025, 8:59:56 PM
