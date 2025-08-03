@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RpwenEqbzGHUrudv-6vdZKA-t500x500.jpg">](https://soundcloud.com/st3v3n_music/pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GA4AjcjwcaewzRN2-6bVmMw-t500x500.png">](https://soundcloud.com/tom-lysar/bassline-ritual)
 
-**Artist**: ST3V3N 
+**Artist**: Tom Lysar 
 
-**Track**: Pressure | FREE DOWNLOAD |
+**Track**: Bassline Ritual
 
-Last updated at 8/3/2025, 8:44:35 AM
+Last updated at 8/3/2025, 8:45:35 AM
