@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgSm6ErerxbcRnSG-sGCNiQ-t500x500.png">](https://soundcloud.com/noiseprn/zovah-niteshade-still-here)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bLnuTRqw0bbX3EGt-IHnPgA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/ushi-bop)
 
-**Artist**: Zovah, NITESHADE 
+**Artist**: Mikayli 
 
-**Track**: Zovah, NITESHADE - Still Here
+**Track**: Ushi Bop
 
-Last updated at 8/3/2025, 8:49:35 AM
+Last updated at 8/3/2025, 8:50:36 AM
