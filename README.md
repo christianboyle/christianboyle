@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDSp0tLV6gPAnq34-3FJNZg-t500x500.png">](https://soundcloud.com/severetunes/severe-throat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yzzz4J9ZyukMAowF-yGEyVg-t500x500.png">](https://soundcloud.com/gingerninja2022/dj-dgn-sops-promo)
 
-**Artist**: SEVERE 
+**Artist**: DJ DGN Promo Mix Sops 
 
-**Track**: SEVERE - THROAT
+**Track**: DJ DGN Sops Promo
 
-Last updated at 8/3/2025, 8:41:10 AM
+Last updated at 8/3/2025, 8:42:15 AM
