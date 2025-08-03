@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yzzz4J9ZyukMAowF-yGEyVg-t500x500.png">](https://soundcloud.com/gingerninja2022/dj-dgn-sops-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lwb5DCjkyCqNrPIO-SmA9XA-t500x500.jpg">](https://soundcloud.com/mikaheggemann/disclosure-you-me-flume-remix-heggemann-edit)
 
-**Artist**: DJ DGN Promo Mix Sops 
+**Artist**: Disclosure 
 
-**Track**: DJ DGN Sops Promo
+**Track**: You & Me (Flume Remix) (Mika Heggemann Edit)
 
-Last updated at 8/3/2025, 8:42:15 AM
+Last updated at 8/3/2025, 8:43:15 AM
