@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQUloRIJrwqUwUo2-iXkK5w-t500x500.png">](https://soundcloud.com/beatsbyrederick/one-more-time-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgSm6ErerxbcRnSG-sGCNiQ-t500x500.png">](https://soundcloud.com/noiseprn/zovah-niteshade-still-here)
 
-**Artist**: Rederick 
+**Artist**: Zovah, NITESHADE 
 
-**Track**: One More Time
+**Track**: Zovah, NITESHADE - Still Here
 
-Last updated at 8/3/2025, 8:48:16 AM
+Last updated at 8/3/2025, 8:49:35 AM
