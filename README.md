@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t8qB8SNFZykxiHAx-Tzy3Uw-t500x500.png">](https://soundcloud.com/biff-jones-0/l2gxn-k4y0-i-let-you-go-teaser)
 
-**Artist**: Glover 
+**Artist**: F.E.A.R.™ - K4Y0 - PROJECT HAVOC - PARAGON - S.B.L 
 
-**Track**: Glover - I Feel Silence, Love (Radio Edit)
+**Track**: L2GXN & K4Y0 - I Let You Go [TEASER]
 
-Last updated at 8/3/2025, 7:46:06 AM
+Last updated at 8/3/2025, 8:39:10 AM
