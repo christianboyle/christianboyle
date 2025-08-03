@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1HaUgnnUWu3VeerK-3QP3uA-t500x500.png">](https://soundcloud.com/boogaardmusic/tove-lo-habits-boogard-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IQUloRIJrwqUwUo2-iXkK5w-t500x500.png">](https://soundcloud.com/beatsbyrederick/one-more-time-2)
 
-**Artist**: Boogaard 
+**Artist**: Rederick 
 
-**Track**: Tove Lo - Habits (Boogaard Flip) [FREE DOWNLOAD]
+**Track**: One More Time
 
-Last updated at 8/3/2025, 8:47:01 AM
+Last updated at 8/3/2025, 8:48:16 AM
