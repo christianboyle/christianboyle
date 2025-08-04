@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UhJZOTG0VdLm0KbP-hwrIgA-t500x500.png">](https://soundcloud.com/maadwest1/dj-snake-x-j-balvin-noventa-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YOJsQECdI3ztnZiI-K8rmSQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-ft-stu-c-got-2-b-love)
 
-**Artist**: DJ SNAKE, J BALVIN, MAAD WEST 
+**Artist**: DJ MOFF-EL MOFF 
 
-**Track**: DJ SNAKE X J BALVIN - NOVENTA(MAAD WEST REMIX)
+**Track**: El Moff ft Stu C - Got 2 B Love (FREE DOWNLOAD)
 
-Last updated at 8/4/2025, 12:53:11 PM
+Last updated at 8/4/2025, 12:54:11 PM
