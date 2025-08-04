@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M4yXsFLkwGFtfKjd-F8F6tw-t500x500.png">](https://soundcloud.com/dubplates-and-dragons/247f4c3b-1577-40e7-977c-ac23c70555d1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FRQ6FlKgAi0FWPEI-2Iwnbg-t500x500.png">](https://soundcloud.com/festivaltrap/sizz-why)
 
-**Artist**: Randolph 
+**Artist**: SiZZ 
 
-**Track**: Randolph - In the Trap
+**Track**: SiZZ - Why
 
-Last updated at 8/4/2025, 12:44:25 PM
+Last updated at 8/4/2025, 12:45:25 PM
