@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-05sMc4n4svVtoilX-S09ieg-t500x500.jpg">](https://soundcloud.com/samwilletts10/born-messy-pjanoo-sam-willetts-mashup-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxIgUEyDZnLcWOI4-Flpx6A-t500x500.jpg">](https://soundcloud.com/leandro-da-silva-372366315/gracie-abrams-thats-so-true)
 
-**Artist**: Sam Willetts 
+**Artist**: Leandro Da Silva 
 
-**Track**: Born Messy Pjanoo (Sam Willetts Mashup) (FREE DL)
+**Track**: Gracie Abrams - That’s So True (Leandro Da Silva Remix)
 
-Last updated at 8/4/2025, 12:59:47 PM
+Last updated at 8/4/2025, 1:13:23 PM
