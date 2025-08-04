@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgSm6ErerxbcRnSG-sGCNiQ-t500x500.png">](https://soundcloud.com/noiseprn/zovah-niteshade-still-here)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M4yXsFLkwGFtfKjd-F8F6tw-t500x500.png">](https://soundcloud.com/dubplates-and-dragons/66a5aca2-072d-4619-b8ac-6079749e7c8b)
 
-**Artist**: Zovah, NITESHADE 
+**Artist**: Randolph 
 
-**Track**: Zovah, NITESHADE - Still Here
+**Track**: Randolph - Move Ya Body Beat
 
-Last updated at 8/4/2025, 6:31:00 AM
+Last updated at 8/4/2025, 9:51:10 AM
