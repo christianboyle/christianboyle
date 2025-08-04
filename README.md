@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxIgUEyDZnLcWOI4-Flpx6A-t500x500.jpg">](https://soundcloud.com/leandro-da-silva-372366315/gracie-abrams-thats-so-true)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U0mjWJPK1Eni-0-t500x500.jpg">](https://soundcloud.com/4d4m-music/hold-onto)
 
-**Artist**: Leandro Da Silva 
+**Artist**: 4D4M 
 
-**Track**: Gracie Abrams - That’s So True (Leandro Da Silva Remix)
+**Track**: HOLD ONTO
 
-Last updated at 8/4/2025, 1:13:23 PM
+Last updated at 8/4/2025, 1:14:23 PM
