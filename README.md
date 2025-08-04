@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M4yXsFLkwGFtfKjd-F8F6tw-t500x500.png">](https://soundcloud.com/dubplates-and-dragons/66a5aca2-072d-4619-b8ac-6079749e7c8b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpbKL6UY4ffF1DAg-1SdVpA-t500x500.png">](https://soundcloud.com/iamnateband/falling)
 
-**Artist**: Randolph 
+**Artist**: nate band 
 
-**Track**: Randolph - Move Ya Body Beat
+**Track**: Falling
 
-Last updated at 8/4/2025, 9:51:10 AM
+Last updated at 8/4/2025, 9:54:21 AM
