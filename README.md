@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c8ay4nJEeQ3Y0xIb-szNdjA-t500x500.jpg">](https://soundcloud.com/2gone2gone/touch-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgSm6ErerxbcRnSG-sGCNiQ-t500x500.png">](https://soundcloud.com/noiseprn/zovah-niteshade-still-here)
 
-**Artist**: 2gone 
+**Artist**: Zovah, NITESHADE 
 
-**Track**: TOUCH IT
+**Track**: Zovah, NITESHADE - Still Here
 
-Last updated at 8/3/2025, 8:31:30 PM
+Last updated at 8/4/2025, 6:31:00 AM
