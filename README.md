@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YOJsQECdI3ztnZiI-K8rmSQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-ft-stu-c-got-2-b-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FK2KfqCPZLMhRyf-i1pOfA-t500x500.jpg">](https://soundcloud.com/thnderz/ti-live-your-life-ft-rihanna-emvn-thnderz-ravetok-remix)
 
-**Artist**: DJ MOFF-EL MOFF 
+**Artist**: THNDERZ 
 
-**Track**: El Moff ft Stu C - Got 2 B Love (FREE DOWNLOAD)
+**Track**: T.I. - Live Your Life Ft. Rihanna (EMVN & THNDERZ RAVETOK REMIX)
 
-Last updated at 8/4/2025, 12:54:11 PM
+Last updated at 8/4/2025, 12:55:11 PM
