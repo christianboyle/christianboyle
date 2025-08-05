@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-51BSgn3OzwiFrWIr-b4uRDA-t500x500.png">](https://soundcloud.com/1rynn/tell-me-why-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtIyfmXtf5E6y3fi-WJVYEA-t500x500.png">](https://soundcloud.com/rgmusicrecords/steve-bates-rosey-love-donk-mix-single-coming-on-fridayaugust-22nd)
 
-**Artist**: ryn 
+**Artist**: Steve Bates & Rosey 
 
-**Track**: tell me whyy cover @mental
+**Track**: Steve Bates & Rosey - Love (DONK MIX) [SINGLE] 🎉COMING ON FRIDAY,AUGUST 22nd ★ 🤩👍
 
-Last updated at 8/5/2025, 5:21:16 PM
+Last updated at 8/5/2025, 5:22:16 PM
