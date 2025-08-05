@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjLyYbpL37R8xMqi-W4FyOQ-t500x500.jpg">](https://soundcloud.com/killthenoise/damager_ktn_remix_140)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jk5ymjJ9ZhEJAwka-qFM3Ig-t500x500.png">](https://soundcloud.com/hardlinesounds/gabriel-mun-oz-lost-hard32?in=hardlinesounds/sets/hard32)
 
-**Artist**: Kill The Noise 
+**Artist**: Gabriel Muñoz 
 
-**Track**: DAMAGER [Kill The Noise FLIP] (FREE DL)
+**Track**: Gabriel Muñoz - Lost (HARD32)
 
-Last updated at 8/5/2025, 8:33:51 AM
+Last updated at 8/5/2025, 8:34:51 AM
