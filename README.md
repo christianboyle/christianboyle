@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4Pm5YEPjFoF0gfi-ha3E3w-t500x500.png">](https://soundcloud.com/davecurtismusic/dave-curtis-i-want-your-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxIgUEyDZnLcWOI4-Flpx6A-t500x500.jpg">](https://soundcloud.com/leandro-da-silva-372366315/gracie-abrams-thats-so-true)
 
-**Artist**: Dave Curtis 
+**Artist**: Leandro Da Silva 
 
-**Track**: Dave Curtis - I Want Your Love (OUT NOW ON ACCELERATION DIGITAL)
+**Track**: Gracie Abrams - That’s So True (Leandro Da Silva Remix)
 
-Last updated at 8/5/2025, 9:07:39 AM
+Last updated at 8/5/2025, 9:10:39 AM
