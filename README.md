@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kz3Kkgb7NmX0OQrx-otes4g-t500x500.png">](https://soundcloud.com/bkbeats/girlofyourdreamss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bjLyYbpL37R8xMqi-W4FyOQ-t500x500.jpg">](https://soundcloud.com/killthenoise/damager_ktn_remix_140)
 
-**Artist**: Romo Weeks x bk beats 
+**Artist**: Kill The Noise 
 
-**Track**: Eli - Girl of Your Dreams (Romo Weeks x bk beats Remix)
+**Track**: DAMAGER [Kill The Noise FLIP] (FREE DL)
 
-Last updated at 8/5/2025, 6:51:45 AM
+Last updated at 8/5/2025, 8:33:51 AM
