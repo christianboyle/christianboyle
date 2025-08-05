@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zgxiPIDbKlTAwip7-qeTP9w-t500x500.png">](https://soundcloud.com/wearestudio/trail-tenebris-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fo7G1zrW5ea2jyVU-ZrzmVQ-t500x500.png">](https://soundcloud.com/beaconftp/motion)
 
-**Artist**: STUDIO, Trail 
+**Artist**: REAPER & Oliverse 
 
-**Track**: Trail - Tenebris [Premiere]
+**Track**: MOTION
 
-Last updated at 8/5/2025, 9:00:38 AM
+Last updated at 8/5/2025, 9:04:23 AM
