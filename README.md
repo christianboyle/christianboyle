@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wxMIME6GKPiVlzJ-0m5Wpw-t500x500.png">](https://soundcloud.com/shindi-256977223/akolyte-blurry-vision)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SbstwvdEvnp-0-t500x500.jpg">](https://soundcloud.com/ryanleahan/light)
 
-**Artist**: Akolyte 
+**Artist**: Ryan Leahan 
 
-**Track**: AKOLYTE - Blurry Vision
+**Track**: Light
 
-Last updated at 8/5/2025, 9:19:40 AM
+Last updated at 8/5/2025, 3:18:29 PM
