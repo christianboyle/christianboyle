@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SbstwvdEvnp-0-t500x500.jpg">](https://soundcloud.com/ryanleahan/light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDFWOCyGSvJBUPxe-6mHyjA-t500x500.png">](https://soundcloud.com/satoshijpn/partyrockanthem)
 
-**Artist**: Ryan Leahan 
+**Artist**: SATOSHI 
 
-**Track**: Light
+**Track**: LMFAO - Party Rock Anthem (SATOSHI Remix)
 
-Last updated at 8/5/2025, 3:18:29 PM
+Last updated at 8/5/2025, 3:21:34 PM
