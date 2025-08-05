@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fo7G1zrW5ea2jyVU-ZrzmVQ-t500x500.png">](https://soundcloud.com/beaconftp/motion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4Pm5YEPjFoF0gfi-ha3E3w-t500x500.png">](https://soundcloud.com/davecurtismusic/dave-curtis-i-want-your-love)
 
-**Artist**: REAPER & Oliverse 
+**Artist**: Dave Curtis 
 
-**Track**: MOTION
+**Track**: Dave Curtis - I Want Your Love (OUT NOW ON ACCELERATION DIGITAL)
 
-Last updated at 8/5/2025, 9:04:23 AM
+Last updated at 8/5/2025, 9:07:39 AM
