@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1RrzzJh9OW7TlCnS-F52wCA-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcast-129-cathedral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQyzV14vQjGHktW0-zOgXzA-t500x500.png">](https://soundcloud.com/future-bassnet/hevian-alone-future-bass-release)
 
-**Artist**: Techno Wereld, Cathédral  
+**Artist**: Hevian 
 
-**Track**: TW PODCAST 129 - Cathédral
+**Track**: Hevian - Alone [Future Bass Release]
 
-Last updated at 8/6/2025, 1:14:20 PM
+Last updated at 8/6/2025, 2:09:41 PM
