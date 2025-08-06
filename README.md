@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58eLP5nmkdaScRUo-zd3pjQ-t500x500.png">](https://soundcloud.com/wileoutmusic/luny-putaria-lpfj2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7tKzaILyLhX86MD-ISnKFQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-disguised-reflected-iht021)
 
-**Artist**: LUNY 
+**Artist**: HATE, Disguised  
 
-**Track**: LUNY - PUTARIA (LPFJ2)
+**Track**: Premiere: Disguised — Reflected [IHT021]
 
-Last updated at 8/6/2025, 12:18:40 PM
+Last updated at 8/6/2025, 12:20:40 PM
