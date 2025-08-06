@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAjox7gRpLFXXI8i-qmtn6w-t500x500.png">](https://soundcloud.com/meladyne/ohh-yeah-loompaskettee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qwg6FGsJWBniFXTr-6mNGew-t500x500.jpg">](https://soundcloud.com/mothmanebass/teabag-sonata)
 
-**Artist**: MELADYNE 
+**Artist**: MØTHMANE 
 
-**Track**: Ohh Yeah - Loompaskettee & Explorers of the Internet (Meladyne Flip)
+**Track**: Teabag Sonata
 
-Last updated at 8/6/2025, 1:08:20 PM
+Last updated at 8/6/2025, 1:10:20 PM
