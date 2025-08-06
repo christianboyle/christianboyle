@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7tKzaILyLhX86MD-ISnKFQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-disguised-reflected-iht021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IysLqZbbLdekA0yZ-ZZrrEQ-t500x500.png">](https://soundcloud.com/spike_m/beks-birthday-bash-comp-entry)
 
-**Artist**: HATE, Disguised  
+**Artist**: SP1K3 
 
-**Track**: Premiere: Disguised — Reflected [IHT021]
+**Track**: Beks Birthday Bash Comp Entry
 
-Last updated at 8/6/2025, 12:20:40 PM
+Last updated at 8/6/2025, 12:25:11 PM
