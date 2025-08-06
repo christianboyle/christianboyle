@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUJONU1dsWclrOE7-r11GKw-t500x500.png">](https://soundcloud.com/club909music/play)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nbtCn7Zlog34kW9m-m2vN2A-t500x500.jpg">](https://soundcloud.com/iamisobe/iamisobe-non-compliant)
 
-**Artist**: CLUB 909 
+**Artist**: IAMISOBE 
 
-**Track**: CLUB 909 - Play
+**Track**: IAMISOBE - NON-COMPLIANT
 
-Last updated at 8/6/2025, 12:57:59 PM
+Last updated at 8/6/2025, 1:01:19 PM
