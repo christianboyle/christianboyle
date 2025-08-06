@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ny1kduH0buANCYof-Tv7C4Q-t500x500.png">](https://soundcloud.com/align_music/jigitz-tell-you-straight-align)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4isgNl3XCkIyuLL-DM7Oyg-t500x500.png">](https://soundcloud.com/lucuna-dubstep/lucuna-hurt)
 
-**Artist**: ALIGN 
+**Artist**: LUCUNA 
 
-**Track**: Jigitz - Tell You Straight (ALIGN Flip)
+**Track**: LUCUNA - HURT
 
-Last updated at 8/6/2025, 1:03:29 PM
+Last updated at 8/6/2025, 1:05:19 PM
