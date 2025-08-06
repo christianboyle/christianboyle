@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgjO8CHqCZWxYAzu-j3uXsA-t500x500.jpg">](https://soundcloud.com/antnymarsd123/antny-oh-baby-sample-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JOwSnO6KMtadKLcV-t4tbqQ-t500x500.png">](https://soundcloud.com/jaybryanbounce/bounce-with-bryan-12-1)
 
-**Artist**: ANTNY 
+**Artist**: Jay Bryan 
 
-**Track**: ANTNY - OH BABY [SAMPLE].wav
+**Track**: Bounce With Bryan - Episode 12
 
-Last updated at 8/6/2025, 2:10:51 PM
+Last updated at 8/6/2025, 3:48:51 PM
