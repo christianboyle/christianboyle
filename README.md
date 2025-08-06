@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IysLqZbbLdekA0yZ-ZZrrEQ-t500x500.png">](https://soundcloud.com/spike_m/beks-birthday-bash-comp-entry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUJONU1dsWclrOE7-r11GKw-t500x500.png">](https://soundcloud.com/club909music/play)
 
-**Artist**: SP1K3 
+**Artist**: CLUB 909 
 
-**Track**: Beks Birthday Bash Comp Entry
+**Track**: CLUB 909 - Play
 
-Last updated at 8/6/2025, 12:25:11 PM
+Last updated at 8/6/2025, 12:57:59 PM
