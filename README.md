@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtIyfmXtf5E6y3fi-WJVYEA-t500x500.png">](https://soundcloud.com/rgmusicrecords/steve-bates-rosey-love-donk-mix-single-coming-on-fridayaugust-22nd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ObxihJzs7MzSHTNy-JXKDyg-t500x500.png">](https://soundcloud.com/btmsound702/blessings-dub)
 
-**Artist**: Steve Bates & Rosey 
+**Artist**: @BTMSOUND908 
 
-**Track**: Steve Bates & Rosey - Love (DONK MIX) [SINGLE] 🎉COMING ON FRIDAY,AUGUST 22nd ★ 🤩👍
+**Track**: CALVIN HARRIS - BLESSINGS (BTM DUB) [Free DL]
 
-Last updated at 8/6/2025, 6:38:07 AM
+Last updated at 8/6/2025, 10:16:06 AM
