@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IolT11CoY6grzcCL-k0lImA-t500x500.jpg">](https://soundcloud.com/nigel-moffett-943984113/el-moff-klubb-efect-i-want)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DXjgBe59fVHlLpzw-R8OBsg-t500x500.png">](https://soundcloud.com/steelcitydancediscs/ma-sha-pelagik)
 
-**Artist**: DJ MOFF-EL MOFF 
+**Artist**: Ma Sha 
 
-**Track**: El Moff & Klubb Efect - I Want What U Got 4 Me(Sample)
+**Track**: Ma Sha - Pelagik
 
-Last updated at 8/7/2025, 9:07:33 AM
+Last updated at 8/7/2025, 9:09:38 AM
