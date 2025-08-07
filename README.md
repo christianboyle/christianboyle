@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DXjgBe59fVHlLpzw-R8OBsg-t500x500.png">](https://soundcloud.com/steelcitydancediscs/ma-sha-pelagik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90VxiGuwgRAqY4WN-uL0jPg-t500x500.png">](https://soundcloud.com/starseedsound/prada)
 
-**Artist**: Ma Sha 
+**Artist**: STAR SEED, PIERCE 
 
-**Track**: Ma Sha - Pelagik
+**Track**: cassö, RAYE, D-Block Europe - Prada (STAR SEED & PIERCE Remix)
 
-Last updated at 8/7/2025, 6:35:55 PM
+Last updated at 8/7/2025, 6:57:18 PM
