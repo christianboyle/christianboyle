@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IaBrARyaWZD6wluv-0E1YSA-t500x500.jpg">](https://soundcloud.com/skyr0h_dbz/skyr0h-mechaneural)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90VxiGuwgRAqY4WN-uL0jPg-t500x500.png">](https://soundcloud.com/starseedsound/prada)
 
-**Artist**: SKYR0H 
+**Artist**: STAR SEED, PIERCE 
 
-**Track**: SKYR0H - MECHANEURAL (FREE DOWNLOAD)
+**Track**: cassö, RAYE, D-Block Europe - Prada (STAR SEED & PIERCE Remix)
 
-Last updated at 8/7/2025, 6:09:31 AM
+Last updated at 8/7/2025, 7:32:45 AM
