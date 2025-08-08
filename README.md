@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AxIAVcE1IYMXMqSf-zbRXFQ-t500x500.png">](https://soundcloud.com/fresh22stuff/hugel-diplo-forever-fresh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MKzafz9o5Adiy9bp-c2VODg-t500x500.png">](https://soundcloud.com/jaxonwild/xtra1)
 
-**Artist**: FRESH STUFF 
+**Artist**: Jaxon Wild 
 
-**Track**: HUGEL, Diplo - Forever (Fresh Stuff Edit)
+**Track**: XTRA
 
-Last updated at 8/8/2025, 10:37:09 AM
+Last updated at 8/8/2025, 10:39:19 AM
