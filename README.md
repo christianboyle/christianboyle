@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iakEBxyUkwbqWTDu-NEVHPA-t500x500.png">](https://soundcloud.com/above_the_surface/zvlian-reflection-methods)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIdc8SQZpYGnqSlT-IGk3ZA-t500x500.png">](https://soundcloud.com/c2ncollvn/drug-bubbling-piccolo-3)
 
-**Artist**: ZVLIAN 
+**Artist**: Various Artists 
 
-**Track**: ZVLIAN - Reflection Methods
+**Track**: Drug Bubbling - pìccolo
 
-Last updated at 8/8/2025, 8:25:46 AM
+Last updated at 8/8/2025, 8:26:46 AM
