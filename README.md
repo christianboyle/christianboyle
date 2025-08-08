@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MTvcvoN7W2mOOq6u-6LkloA-t500x500.png">](https://soundcloud.com/synovamusic/harlem-shake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AxIAVcE1IYMXMqSf-zbRXFQ-t500x500.png">](https://soundcloud.com/fresh22stuff/hugel-diplo-forever-fresh)
 
-**Artist**: Synova 
+**Artist**: FRESH STUFF 
 
-**Track**: Baauer - Harlem Shake (Synova & EJM Flip)
+**Track**: HUGEL, Diplo - Forever (Fresh Stuff Edit)
 
-Last updated at 8/8/2025, 10:35:24 AM
+Last updated at 8/8/2025, 10:37:09 AM
