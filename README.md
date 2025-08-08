@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vO3sAw0NV59Z-0-t500x500.jpg">](https://soundcloud.com/kineticnrg/warning-signs-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IOTazxOxpuTsO22F-QGJThA-t500x500.png">](https://soundcloud.com/ricdelarge/james-hype-dont-wake-me-up-remix-drum-and-bass)
 
-**Artist**: Danny Gibson 
+**Artist**: James Hype, Ric de Large 
 
-**Track**: Warning Signs (Radio Edit)
+**Track**: James Hype - Don't Wake Me Up (Ric de Large DnB Remix)
 
-Last updated at 8/8/2025, 8:23:36 AM
+Last updated at 8/8/2025, 8:24:41 AM
