@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1tB9WSeYyBuSyxj-LE14xw-t500x500.jpg">](https://soundcloud.com/arya51/betterbreakoff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4K8g7skh5Swpf0BZ-yFGkfA-t500x500.jpg">](https://soundcloud.com/jpky/turn-down-for-what-jpkyflip)
 
-**Artist**: Arya 
+**Artist**: JPKy 
 
-**Track**: BETTER BREAK OFF
+**Track**: dj snake, lil jon - turn down for what (jpky flip)
 
-Last updated at 8/8/2025, 10:27:28 AM
+Last updated at 8/8/2025, 10:29:28 AM
