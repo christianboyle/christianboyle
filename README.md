@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIdc8SQZpYGnqSlT-IGk3ZA-t500x500.png">](https://soundcloud.com/c2ncollvn/drug-bubbling-piccolo-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hugHy0Kxa2hnhEEG-rqswsw-t500x500.png">](https://soundcloud.com/winksounds/waymi3)
 
-**Artist**: Various Artists 
+**Artist**: WINK 
 
-**Track**: Drug Bubbling - pìccolo
+**Track**: WINK AND YOULL MISS IT! VOL. III
 
-Last updated at 8/8/2025, 8:26:46 AM
+Last updated at 8/8/2025, 9:47:04 AM
