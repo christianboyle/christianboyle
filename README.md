@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hugHy0Kxa2hnhEEG-rqswsw-t500x500.png">](https://soundcloud.com/winksounds/waymi3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2IKs0gBmdDVQiju-Es6cTw-t500x500.png">](https://soundcloud.com/bloomedm/autumn-flyz-lucilda-lofi-pet-records)
 
-**Artist**: WINK 
+**Artist**: Autumn Flyz 
 
-**Track**: WINK AND YOULL MISS IT! VOL. III
+**Track**: Autumn Flyz -  Lucilda [Lofi Pet Records]
 
-Last updated at 8/8/2025, 12:12:23 PM
+Last updated at 8/8/2025, 12:13:34 PM
