@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90VxiGuwgRAqY4WN-uL0jPg-t500x500.png">](https://soundcloud.com/starseedsound/prada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7tKzaILyLhX86MD-ISnKFQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-disguised-reflected-iht021)
 
-**Artist**: STAR SEED, PIERCE 
+**Artist**: HATE, Disguised  
 
-**Track**: cassö, RAYE, D-Block Europe - Prada (STAR SEED & PIERCE Remix)
+**Track**: Premiere: Disguised — Reflected [IHT021]
 
-Last updated at 8/7/2025, 6:57:18 PM
+Last updated at 8/7/2025, 7:34:18 PM
