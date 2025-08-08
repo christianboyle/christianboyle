@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2IKs0gBmdDVQiju-Es6cTw-t500x500.png">](https://soundcloud.com/bloomedm/autumn-flyz-lucilda-lofi-pet-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ChSryubM2tbUW2zv-AUgLVg-t500x500.png">](https://soundcloud.com/tunk_404/run)
 
-**Artist**: Autumn Flyz 
+**Artist**: TUNK 
 
-**Track**: Autumn Flyz -  Lucilda [Lofi Pet Records]
+**Track**: RUN
 
-Last updated at 8/8/2025, 12:13:34 PM
+Last updated at 8/8/2025, 12:14:33 PM
