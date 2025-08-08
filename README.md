@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQiesxc3VlaY45aT-F9zUVA-t500x500.png">](https://soundcloud.com/montarecs/tiaro-alxi-hype)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zzyqkJF50TFxyizN-jlVYhw-t500x500.jpg">](https://soundcloud.com/jpky/kyotoflip)
 
-**Artist**: TIARO, ALXi 
+**Artist**: JPKy 
 
-**Track**: TIARO & ALXi - HYPE
+**Track**: skrillex - kyoto (jpky flip)
 
-Last updated at 8/8/2025, 10:18:47 AM
+Last updated at 8/8/2025, 10:22:08 AM
