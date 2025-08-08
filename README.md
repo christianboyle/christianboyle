@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ChSryubM2tbUW2zv-AUgLVg-t500x500.png">](https://soundcloud.com/tunk_404/run)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LFTC6tYVIjgUasU9-A2whDg-t500x500.jpg">](https://soundcloud.com/iloveallmydogs/without-trustt-sydneyrunner)
 
-**Artist**: TUNK 
+**Artist**: gunk 
 
-**Track**: RUN
+**Track**: without? @trustt @sydneyrunner
 
-Last updated at 8/8/2025, 12:14:33 PM
+Last updated at 8/8/2025, 12:15:29 PM
