@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFuyU5qhJsogmizP-M9oo9Q-t500x500.png">](https://soundcloud.com/ih8sev/bleedout?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNwh1mfH4tJ8kfIy-ATZQ4g-t500x500.jpg">](https://soundcloud.com/dubvmusicofficial/dubv-flip-final-copy?in=saxurn/sets/holomaxxing)
 
-**Artist**: 00sev, Global Reset 
+**Artist**: DUBV 
 
-**Track**: bleed out
+**Track**: The Neighborhood - Sweater Weather (DUBV Flip)
 
-Last updated at 8/9/2025, 2:31:38 PM
+Last updated at 8/9/2025, 2:33:08 PM
