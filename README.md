@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90VxiGuwgRAqY4WN-uL0jPg-t500x500.png">](https://soundcloud.com/starseedsound/prada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup?in=saxurn/sets/holomaxxing/)
 
-**Artist**: STAR SEED, PIERCE 
+**Artist**: trustt, lynU, crusafix, isai 
 
-**Track**: cassö, RAYE, D-Block Europe - Prada (STAR SEED & PIERCE Remix)
+**Track**: packedd
 
-Last updated at 8/9/2025, 2:21:05 PM
+Last updated at 8/9/2025, 2:22:06 PM
