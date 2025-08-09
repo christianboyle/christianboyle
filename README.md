@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yx8QPqrS9pKopylS-5h2FvA-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-i-dont-deserve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L2Ty74dTQ4ce9JyE-is3syQ-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-amazed-wav)
 
-**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
+**Artist**: GZMO 
 
-**Track**: DMB-DONNELLY - I Dont Deserve You
+**Track**: GZMO - Amazed
 
-Last updated at 8/9/2025, 10:08:37 AM
+Last updated at 8/9/2025, 10:09:42 AM
