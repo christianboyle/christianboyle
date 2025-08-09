@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bSVOXFt1cIeL26DA-yU1KNQ-t500x500.png">](https://soundcloud.com/itsartisan/bayou-thetaleofabountyhunter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CyBwboFyJaCrPXWR-z23kcw-t500x500.jpg">](https://soundcloud.com/jawnsin/radar)
 
-**Artist**: Artisan 
+**Artist**: JAWNSIN 
 
-**Track**: BAYOU: The Tale Of A Bounty Hunter ➡ OUT NOW ⬅
+**Track**: RADAR [FREE DL]
 
-Last updated at 8/9/2025, 10:31:44 AM
+Last updated at 8/9/2025, 10:32:44 AM
