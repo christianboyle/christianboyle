@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SbstwvdEvnp-0-t500x500.jpg">](https://soundcloud.com/ryanleahan/light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/erewhon-silverlake/s-gNAgWvSFHHI)
 
-**Artist**: Ryan Leahan 
+**Artist**: beverly hills mom 
 
-**Track**: Light
+**Track**: erewhon silverlake
 
-Last updated at 8/9/2025, 10:36:55 AM
+Last updated at 8/9/2025, 10:39:10 AM
