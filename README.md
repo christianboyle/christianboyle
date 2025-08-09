@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AFJTvxA6CeZhPbRi-GBhtAg-t500x500.jpg">](https://soundcloud.com/disentr/a58deaea-6b25-434e-bf43-dc9466945cf6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bSVOXFt1cIeL26DA-yU1KNQ-t500x500.png">](https://soundcloud.com/itsartisan/bayou-thetaleofabountyhunter)
 
-**Artist**: DISENTR 
+**Artist**: Artisan 
 
-**Track**: Disentr- Get Out Of Here
+**Track**: BAYOU: The Tale Of A Bounty Hunter ➡ OUT NOW ⬅
 
-Last updated at 8/9/2025, 10:11:07 AM
+Last updated at 8/9/2025, 10:31:44 AM
