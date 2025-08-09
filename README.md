@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L2Ty74dTQ4ce9JyE-is3syQ-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-amazed-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AFJTvxA6CeZhPbRi-GBhtAg-t500x500.jpg">](https://soundcloud.com/disentr/a58deaea-6b25-434e-bf43-dc9466945cf6)
 
-**Artist**: GZMO 
+**Artist**: DISENTR 
 
-**Track**: GZMO - Amazed
+**Track**: Disentr- Get Out Of Here
 
-Last updated at 8/9/2025, 10:09:42 AM
+Last updated at 8/9/2025, 10:11:07 AM
