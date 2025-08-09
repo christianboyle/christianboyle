@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PLpSAoxtknoT1FjP-Ad4CkA-t500x500.png">](https://soundcloud.com/waterjon/portal-vladimir-remix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EWyKFSBrtsQlwzRk-ViqRnw-t500x500.jpg">](https://soundcloud.com/whzly/money-muela-x-whzly-fred)
 
-**Artist**: Vladimir, waterjon⚓, SHATODOOR 
+**Artist**: WHZLY, MUELA. 
 
-**Track**: PORTAL (Vladimir Remix)
+**Track**: Fred again.. & Skepta - Victory Lap (WHZLY x MUELA. REMIX) [FREE DL]
 
-Last updated at 8/9/2025, 10:33:44 AM
+Last updated at 8/9/2025, 10:34:44 AM
