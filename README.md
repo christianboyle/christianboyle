@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY7puZORzoT37Dds-PfYjFg-t500x500.jpg">](https://soundcloud.com/darren-styles/tnt-x-darren-styles-hard-beat-1?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup?in=saxurn/sets/holomaxxing)
 
-**Artist**: Darren Styles 
+**Artist**: trustt, lynU, crusafix, isai 
 
-**Track**: TNT X DARREN STYLES - HARD BEAT
+**Track**: packedd
 
-Last updated at 8/9/2025, 2:26:17 PM
+Last updated at 8/9/2025, 2:29:27 PM
