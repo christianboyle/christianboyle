@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EWyKFSBrtsQlwzRk-ViqRnw-t500x500.jpg">](https://soundcloud.com/whzly/money-muela-x-whzly-fred)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SbstwvdEvnp-0-t500x500.jpg">](https://soundcloud.com/ryanleahan/light)
 
-**Artist**: WHZLY, MUELA. 
+**Artist**: Ryan Leahan 
 
-**Track**: Fred again.. & Skepta - Victory Lap (WHZLY x MUELA. REMIX) [FREE DL]
+**Track**: Light
 
-Last updated at 8/9/2025, 10:34:44 AM
+Last updated at 8/9/2025, 10:36:55 AM
