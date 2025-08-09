@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/erewhon-silverlake?in=saxurn/sets/holomaxxing/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-90VxiGuwgRAqY4WN-uL0jPg-t500x500.png">](https://soundcloud.com/starseedsound/prada)
 
-**Artist**: beverly hills mom 
+**Artist**: STAR SEED, PIERCE 
 
-**Track**: erewhon silverlake
+**Track**: cassö, RAYE, D-Block Europe - Prada (STAR SEED & PIERCE Remix)
 
-Last updated at 8/9/2025, 2:20:02 PM
+Last updated at 8/9/2025, 2:21:05 PM
