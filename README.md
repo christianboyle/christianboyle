@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C9bPShdwhmqTevxr-vz8r9Q-t500x500.jpg">](https://soundcloud.com/user-14337291/love-in-this-club-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FqpurRiWlyTALhkD-yV4LbA-t500x500.png">](https://soundcloud.com/darren-glancy-213424437/darren-glancy-slip-away-work-in-progress)
 
-**Artist**: Usher x Olivia Rodrigo & MAZ 
+**Artist**: Darren Glancy 
 
-**Track**: Love In This Club mashup
+**Track**: Darren Glancy - Slip Away (Work In Progress)
 
-Last updated at 8/9/2025, 10:04:46 AM
+Last updated at 8/9/2025, 10:05:51 AM
