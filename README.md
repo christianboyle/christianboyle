@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5mx6C2ZtmYag-0-t500x500.png">](https://soundcloud.com/entasiaaa/do-it-to-me-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/erewhon-silverlake)
 
-**Artist**: Entasia 
+**Artist**: beverly hills mom 
 
-**Track**: Do It To Me
+**Track**: erewhon silverlake
 
-Last updated at 8/9/2025, 9:30:14 AM
+Last updated at 8/9/2025, 10:02:56 AM
