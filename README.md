@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SDEUuoXEQhwPVn6G-ouDVeA-t500x500.png">](https://soundcloud.com/wakaan/tvboo-knock-knock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hsb0buyWxuksoMZu-yH9C2w-t500x500.png">](https://soundcloud.com/aelysy2k/ipsiom-tales-of-the-sea)
 
-**Artist**: TVBOO 
+**Artist**: Ipsiom 
 
-**Track**: TVBOO - Knock Knock
+**Track**: Ipsiom - Tales of the Sea
 
-Last updated at 8/10/2025, 10:14:48 AM
+Last updated at 8/10/2025, 10:15:48 AM
