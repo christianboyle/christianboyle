@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j86zOqYKV17cntsz-R6KK0A-t500x500.png">](https://soundcloud.com/djdxrty/crusadedxrtyedit1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
 
-**Artist**: DXRTY 
+**Artist**: Glover 
 
-**Track**: MARSHMELLO & SVDDEN DEATH - CRUSADE [DXRTY EDIT](FREE DOWNLOAD)
+**Track**: Glover - I Feel Silence, Love (Radio Edit)
 
-Last updated at 8/10/2025, 10:30:40 AM
+Last updated at 8/10/2025, 3:14:15 PM
