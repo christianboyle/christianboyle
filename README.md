@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zI6yOoMj0o8XLXEO-kJcKqg-t500x500.png">](https://soundcloud.com/user-341394321/joe-rainah-relapse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkGYRENNVptsMrfc-GFqH5A-t500x500.png">](https://soundcloud.com/tripbmusicc/trip-b-social)
 
-**Artist**: Joe Rainah - North East 
+**Artist**: Trip B 
 
-**Track**: Joe Rainah - Relapse
+**Track**: TRiP B - SOCIAL
 
-Last updated at 8/9/2025, 8:00:10 PM
+Last updated at 8/9/2025, 8:01:30 PM
