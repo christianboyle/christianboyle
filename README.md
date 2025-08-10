@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzaDT7YzHZOgAhy6-6rbQ8A-t500x500.jpg">](https://soundcloud.com/itzkeylo614/barely-alive-shutdown-keylo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtIyfmXtf5E6y3fi-WJVYEA-t500x500.png">](https://soundcloud.com/rgmusicrecords/steve-bates-rosey-love-donk-mix-single-coming-on-fridayaugust-22nd)
 
-**Artist**: Keylo 
+**Artist**: Steve Bates & Rosey 
 
-**Track**: Barely Alive - Shutdown (Keylo Flip)
+**Track**: Steve Bates & Rosey - Love (DONK MIX) [SINGLE] 🎉COMING ON FRIDAY,AUGUST 22nd ★ 🤩👍
 
-Last updated at 8/10/2025, 9:12:42 AM
+Last updated at 8/10/2025, 10:11:22 AM
