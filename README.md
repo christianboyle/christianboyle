@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-G8dYvIduWzrszWWj-UyIHLA-t500x500.jpg">](https://soundcloud.com/michael-glover-bounce/feellove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup?in=saxurn/sets/holomaxxing)
 
-**Artist**: Glover 
+**Artist**: trustt, lynU, crusafix, isai 
 
-**Track**: Glover - I Feel Silence, Love (Radio Edit)
+**Track**: packedd
 
-Last updated at 8/10/2025, 3:25:46 PM
+Last updated at 8/10/2025, 4:02:20 PM
