@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jRnCwye12SjgJ785-5jQ1zw-t500x500.jpg">](https://soundcloud.com/skinnylimbs/peak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j86zOqYKV17cntsz-R6KK0A-t500x500.png">](https://soundcloud.com/djdxrty/crusadedxrtyedit1)
 
-**Artist**: Skinny Limbs 
+**Artist**: DXRTY 
 
-**Track**: Peak
+**Track**: MARSHMELLO & SVDDEN DEATH - CRUSADE [DXRTY EDIT](FREE DOWNLOAD)
 
-Last updated at 8/10/2025, 10:27:24 AM
+Last updated at 8/10/2025, 10:30:40 AM
