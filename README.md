@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGXSGeyBU5Sy0CLj-uzFkHg-t500x500.png">](https://soundcloud.com/korruptormusik/saja-boys-your-idol-korruptor-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vaHgMJYe1bP9w00q-io2Wiw-t500x500.png">](https://soundcloud.com/lofreqrecords/split-mind-drive)
 
-**Artist**: KORRUPTOR 
+**Artist**: SPLiT 
 
-**Track**: SAJA BOYS - YOUR IDOL (KORRUPTOR REMIX) | FREE DOWNLOAD
+**Track**: SPLiT - Mind Drive
 
-Last updated at 8/10/2025, 10:20:18 AM
+Last updated at 8/10/2025, 10:23:39 AM
