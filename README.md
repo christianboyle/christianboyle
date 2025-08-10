@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKSz6XkCZSNn1RsL-k6i37g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/the-star?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xEvISAJUzGpy8kxk-zb987g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/2d4ab54b-75e7-45a8-ad31-f88f9f5fe6e2)
 
 **Artist**: DRIFT 
 
-**Track**: THE STAR
+**Track**: LEMONADE (FREE DOWNLOAD)
 
-Last updated at 8/9/2025, 6:40:09 PM
+Last updated at 8/9/2025, 7:58:00 PM
