@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL8hy3swm33JMbOL-Mc2UyQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-bumble-bee-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzaDT7YzHZOgAhy6-6rbQ8A-t500x500.jpg">](https://soundcloud.com/itzkeylo614/barely-alive-shutdown-keylo-flip)
 
-**Artist**: Tatsunoshin 
+**Artist**: Keylo 
 
-**Track**: Tatsunoshin - Bumble Bee (Extended Mix)
+**Track**: Barely Alive - Shutdown (Keylo Flip)
 
-Last updated at 8/10/2025, 9:11:42 AM
+Last updated at 8/10/2025, 9:12:42 AM
