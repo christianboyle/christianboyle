@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSTm3v8OzhJu2T7y-GwhQ3A-t500x500.jpg">](https://soundcloud.com/dnzrecords/kritikal-mass-garbie-project-never-stop-that-feeling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ktPytARtQV5Duab6-bgRHjw-t500x500.png">](https://soundcloud.com/kritikalmassmusic/kritikal-mass-super-ted)
 
-**Artist**: Kritikal Mass & Garbie Project 
+**Artist**: Kritikal Mass Music 
 
-**Track**: Kritikal Mass & Garbie Project - Never Stop That Feeling
+**Track**: Kritikal Mass - Super Ted
 
-Last updated at 8/11/2025, 9:57:11 AM
+Last updated at 8/11/2025, 10:17:10 AM
