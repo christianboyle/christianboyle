@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnSerHoNzjCzXbzR-v5x9Vg-t500x500.png">](https://soundcloud.com/growlz_music/feel-it-all-growlz-remix)
 
-**Artist**: trustt, lynU, crusafix, isai 
+**Artist**: Growlz 
 
-**Track**: packedd
+**Track**: FEEL IT ALL (GROWLZ REMIX) x ONLY WANT U x UNISON
 
-Last updated at 8/11/2025, 6:39:34 AM
+Last updated at 8/11/2025, 9:04:58 AM
