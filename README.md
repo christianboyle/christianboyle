@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/est-1995-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIxi5E2u9aZMzPHW-0MRknQ-t500x500.jpg">](https://soundcloud.com/4cys/real-rave-angelz)
 
-**Artist**: blu 
+**Artist**: 4CYS 
 
-**Track**: Est. 1995
+**Track**: Hexacube & 4CYS - Real Rave Angelz 【for Vietnam National Mania Cup 4K 2025 / VNMC4K2025】
 
-Last updated at 8/11/2025, 9:16:29 AM
+Last updated at 8/11/2025, 9:17:32 AM
