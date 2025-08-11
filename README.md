@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKSz6XkCZSNn1RsL-k6i37g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/the-star?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fo7G1zrW5ea2jyVU-ZrzmVQ-t500x500.png">](https://soundcloud.com/beaconftp/motion?in=saxurn/sets/holomaxxing)
 
-**Artist**: DRIFT 
+**Artist**: REAPER & Oliverse 
 
-**Track**: THE STAR
+**Track**: MOTION
 
-Last updated at 8/11/2025, 9:33:59 AM
+Last updated at 8/11/2025, 9:37:34 AM
