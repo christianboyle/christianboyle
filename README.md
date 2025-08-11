@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jnSerHoNzjCzXbzR-v5x9Vg-t500x500.png">](https://soundcloud.com/growlz_music/feel-it-all-growlz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GwVv4IkjyGm2-0-t500x500.jpg">](https://soundcloud.com/fsoe-recordings/summer-bliss)
 
-**Artist**: Growlz 
+**Artist**: Andrea Ribeca 
 
-**Track**: FEEL IT ALL (GROWLZ REMIX) x ONLY WANT U x UNISON
+**Track**: Summer Bliss
 
-Last updated at 8/11/2025, 9:04:58 AM
+Last updated at 8/11/2025, 9:06:08 AM
