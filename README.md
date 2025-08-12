@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNwh1mfH4tJ8kfIy-ATZQ4g-t500x500.jpg">](https://soundcloud.com/dubvmusicofficial/dubv-flip-final-copy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pMiJXE3BZ8SaUPvq-kYEslA-t500x500.png">](https://soundcloud.com/jordanirwin/no-broke-boys-jordan-irwin-remix)
 
-**Artist**: DUBV 
+**Artist**: Jordan Irwin 
 
-**Track**: The Neighborhood - Sweater Weather (DUBV Flip)
+**Track**: No Broke Boys ( Jordan Irwin Remix )
 
-Last updated at 8/12/2025, 2:58:14 PM
+Last updated at 8/12/2025, 6:34:04 PM
