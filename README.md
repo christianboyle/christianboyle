@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uzFT2yye0HFIXBP7-byTREg-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/feeling-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nLwc4yx7CzySNtNr-vYreoQ-t500x500.png">](https://soundcloud.com/marc69-1/c-s-u-clubbing-scene-uk-mix)
 
-**Artist**: Infinite 
+**Artist**: marc.k.b 
 
-**Track**: Infinite - Feeling (Radio Edit)
+**Track**: C.S.U CLUBBING SCENE UK MIX
 
-Last updated at 8/12/2025, 2:24:53 PM
+Last updated at 8/12/2025, 2:25:58 PM
