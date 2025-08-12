@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uQwFGxfoglGaJj6G-jol5cQ-t500x500.jpg">](https://soundcloud.com/thraxdubz/raidxn-x-thrax-im-fine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup)
 
-**Artist**: THRAXDUBZ 
+**Artist**: trustt, lynU, crusafix, isai 
 
-**Track**: RAIDXN x THRAX - I'M FINE
+**Track**: packedd
 
-Last updated at 8/12/2025, 2:28:10 PM
+Last updated at 8/12/2025, 2:54:04 PM
