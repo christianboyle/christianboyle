@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1javuqOS92iQg1l0-dE8AWA-t500x500.png">](https://soundcloud.com/housechart1-music/avicii-feat-rihanna-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6yUy80WVe3N7tnu-9d9KoQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/2peng-original-raver?in=hardcoreenergy/sets/2peng-original-raver-here-for)
 
-**Artist**: Avicii feat. Rihanna 
+**Artist**: Hardcore Energy 
 
-**Track**: Avicii feat. Rihanna - The Monster (ASIL Mashup)
+**Track**: 2Peng - Original Raver
 
-Last updated at 8/13/2025, 8:20:44 AM
+Last updated at 8/13/2025, 8:21:46 AM
