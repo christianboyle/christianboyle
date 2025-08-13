@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fo7G1zrW5ea2jyVU-ZrzmVQ-t500x500.png">](https://soundcloud.com/beaconftp/motion?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY7puZORzoT37Dds-PfYjFg-t500x500.jpg">](https://soundcloud.com/darren-styles/tnt-x-darren-styles-hard-beat-1?in=saxurn/sets/holomaxxing)
 
-**Artist**: REAPER & Oliverse 
+**Artist**: Darren Styles 
 
-**Track**: MOTION
+**Track**: TNT X DARREN STYLES - HARD BEAT
 
-Last updated at 8/13/2025, 11:28:58 AM
+Last updated at 8/13/2025, 6:07:15 PM
