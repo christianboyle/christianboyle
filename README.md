@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fenhrW2JNkRlkk1h-XYlSuA-t500x500.png">](https://soundcloud.com/stratisbambam/maxi-inf3rnus-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1javuqOS92iQg1l0-dE8AWA-t500x500.png">](https://soundcloud.com/housechart1-music/avicii-feat-rihanna-the)
 
-**Artist**: INFERNUS & MAXI 
+**Artist**: Avicii feat. Rihanna 
 
-**Track**: Maxi & INF3RNUS v2
+**Track**: Avicii feat. Rihanna - The Monster (ASIL Mashup)
 
-Last updated at 8/13/2025, 6:39:22 AM
+Last updated at 8/13/2025, 8:20:44 AM
