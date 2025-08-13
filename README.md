@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY7puZORzoT37Dds-PfYjFg-t500x500.jpg">](https://soundcloud.com/darren-styles/tnt-x-darren-styles-hard-beat-1?in=saxurn/sets/holomaxxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4WP6Xf72rNt-0-t500x500.png">](https://soundcloud.com/djtechnoboy/hard-beat)
 
-**Artist**: Darren Styles 
+**Artist**: TNT, Darren Styles and Technoboy 
 
-**Track**: TNT X DARREN STYLES - HARD BEAT
+**Track**: Hard Beat
 
-Last updated at 8/13/2025, 6:07:15 PM
+Last updated at 8/13/2025, 6:10:26 PM
