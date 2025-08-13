@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6yUy80WVe3N7tnu-9d9KoQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/2peng-original-raver?in=hardcoreenergy/sets/2peng-original-raver-here-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FrjG4jCVIIzhdvbc-8q4mVA-t500x500.png">](https://soundcloud.com/lifeofrileyofficial/life-of-riley-lions-gate-dance-mix-2025)
 
-**Artist**: Hardcore Energy 
+**Artist**: Life of Riley Official 
 
-**Track**: 2Peng - Original Raver
+**Track**: Life of Riley - Lion's Gate Dance Mix 2025
 
-Last updated at 8/13/2025, 8:21:46 AM
+Last updated at 8/13/2025, 8:22:46 AM
