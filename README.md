@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFZnUEbU4E5Eb6Gw-KGOOnA-t500x500.jpg">](https://soundcloud.com/glenwestt/68e778d4-7b62-4fee-af14-3c5ac66a0f77)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz8qUSR8M64Vznlg-y2kfwA-t500x500.jpg">](https://soundcloud.com/interspaeti/armin-hermann-get-down)
 
-**Artist**: glenwest 
+**Artist**: interspäti, Armin Hermann 
 
-**Track**: Glen West - At Night (EDIT)
+**Track**: Armin Hermann - Get Down
 
-Last updated at 8/14/2025, 8:56:07 AM
+Last updated at 8/14/2025, 8:57:23 AM
