@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYKGkrLwqGAvzDee-XvOAqQ-t500x500.png">](https://soundcloud.com/speedworldrecs/jfaice-take-me-back-daryl-di-kar-remix-1?in=speedworldrecs/sets/takemebackep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMfJsKJHK5MfHXLN-zXwktQ-t500x500.jpg">](https://soundcloud.com/esca_kassel/takethat)
 
-**Artist**: SPEED WORLD RECS 
+**Artist**: ESCA 
 
-**Track**: JFAICE - Take Me Back (Daryl Di-Kar Remix)
+**Track**: TAKE THAT
 
-Last updated at 8/14/2025, 8:48:42 AM
+Last updated at 8/14/2025, 8:49:42 AM
