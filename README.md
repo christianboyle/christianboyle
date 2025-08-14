@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ltvoqymUedKmnDou-RvqkkQ-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/breathing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ta32UlalKULbU347-AgGeMw-t500x500.jpg">](https://soundcloud.com/money_muela/cora-de-hielo-muela-remix)
 
-**Artist**: ADAME 
+**Artist**: RØZ, Natt Calma, Mau Moctezuma, MUELA. 
 
-**Track**: Breathing
+**Track**: CORA DE HIELO - MUELA. REMIX
 
-Last updated at 8/14/2025, 9:30:46 AM
+Last updated at 8/14/2025, 9:34:16 AM
