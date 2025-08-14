@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFVXxUV6aNdU60jD-zOsw2A-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/harder-better-faster-island-nation-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGBh6MalLpPxu8Tp-LaigMw-t500x500.png">](https://soundcloud.com/user-854879664/agm-tricky-d-screwdriver-remix)
 
-**Artist**: Island Nation 
+**Artist**: dj delta aka tricky-d 
 
-**Track**: Harder, Better, Faster, Stronger (Island Nation Remix) [FREE DOWNLOAD] Supported by Hardwell!
+**Track**: AGM & Tricky-D - Screwdriver Remix 2025
 
-Last updated at 8/14/2025, 8:50:42 AM
+Last updated at 8/14/2025, 8:52:07 AM
