@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rA9dFmurUzL7Azo-iruWAQ-t500x500.jpg">](https://soundcloud.com/rxflxct/what-if-it-works-out-full-memory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA35DKD6BaWkRoSS-hyMk9g-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/ynel-arch-in-ya-back-adc003)
 
-**Artist**: rxflxct 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: what, if it works out? (Full Memory Edit)
+**Track**: YNEL - Arch In Ya Back [ADC003]
 
-Last updated at 8/14/2025, 1:27:36 PM
+Last updated at 8/14/2025, 1:31:02 PM
