@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz8qUSR8M64Vznlg-y2kfwA-t500x500.jpg">](https://soundcloud.com/interspaeti/armin-hermann-get-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0lOmelj0c58HcTSA-3hf5CA-t500x500.jpg">](https://soundcloud.com/kxchr/kx-chr-yasuo-free-dl-extended)
 
-**Artist**: interspäti, Armin Hermann 
+**Artist**: KX CHR 
 
-**Track**: Armin Hermann - Get Down
+**Track**: KX CHR - YASUO (FREE DL EXTENDED)
 
-Last updated at 8/14/2025, 8:57:23 AM
+Last updated at 8/14/2025, 8:58:23 AM
