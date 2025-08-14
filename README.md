@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybn4VtDzINv5GuyN-89Ennw-t500x500.jpg">](https://soundcloud.com/paulsirrell/paul-sirrell-tonight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oPhb4nFBAjKbbqu8-V3icUg-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-supergloss-defrost-rave-x-ize01)
 
-**Artist**: Paul Sirrell 
+**Artist**: HATE, Supergloss  
 
-**Track**: Paul Sirrell - Tonight
+**Track**: Premiere: Supergloss — Defrost Rave [X-IZE01]
 
-Last updated at 8/14/2025, 8:53:07 AM
+Last updated at 8/14/2025, 8:54:07 AM
