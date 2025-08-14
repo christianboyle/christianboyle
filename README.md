@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WTDfy2rgPNCy3HBl-5PofyA-t500x500.png">](https://soundcloud.com/bolingersupersounds/mary-j-blige-x-melsen-just-fine-bolinger-super-sounds-edit-preview-pitched)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6d0cEfsGQk1BzzH-zu6uvQ-t500x500.png">](https://soundcloud.com/wubaholics/prettysweetpayslip)
 
-**Artist**: Mary J Blige, Melsen, BOLINGER SUPER SOUNDS 
+**Artist**: Wubaholics 
 
-**Track**: Mary J Blige x Melsen - Just Fine (Bolinger Super Sounds Edit) *preview pitched*
+**Track**: Pretty Sweet - Payslip
 
-Last updated at 8/14/2025, 8:32:45 AM
+Last updated at 8/14/2025, 8:34:16 AM
