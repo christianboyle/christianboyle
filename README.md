@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA35DKD6BaWkRoSS-hyMk9g-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/ynel-arch-in-ya-back-adc003?in=saxurn/sets/youv/)
 
-**Artist**: Ninajirachi 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: Sing Good
+**Track**: YNEL - Arch In Ya Back [ADC003]
 
-Last updated at 8/14/2025, 1:36:13 PM
+Last updated at 8/14/2025, 1:37:39 PM
