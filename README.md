@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3a33SDeJsBZE9MXq-4jQzzg-t500x500.png">](https://soundcloud.com/p3pper/247-i-should-be-extended-mix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bFZnUEbU4E5Eb6Gw-KGOOnA-t500x500.jpg">](https://soundcloud.com/glenwestt/68e778d4-7b62-4fee-af14-3c5ac66a0f77)
 
-**Artist**: anu, P3PPER, Jibaan 
+**Artist**: glenwest 
 
-**Track**: 247 (I Should Be) [Extended Mix]
+**Track**: Glen West - At Night (EDIT)
 
-Last updated at 8/14/2025, 8:55:07 AM
+Last updated at 8/14/2025, 8:56:07 AM
