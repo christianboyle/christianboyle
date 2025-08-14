@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ta32UlalKULbU347-AgGeMw-t500x500.jpg">](https://soundcloud.com/money_muela/cora-de-hielo-muela-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hdcOivcIQK3Oj95z-6m6BZw-t500x500.png">](https://soundcloud.com/christmasglasses/billie-eilish-ocean-eyes-flip)
 
-**Artist**: RØZ, Natt Calma, Mau Moctezuma, MUELA. 
+**Artist**: christmas 
 
-**Track**: CORA DE HIELO - MUELA. REMIX
+**Track**: Billie Eilish - OCEAN EYES FLIP
 
-Last updated at 8/14/2025, 9:34:16 AM
+Last updated at 8/14/2025, 9:37:21 AM
