@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGBh6MalLpPxu8Tp-LaigMw-t500x500.png">](https://soundcloud.com/user-854879664/agm-tricky-d-screwdriver-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybn4VtDzINv5GuyN-89Ennw-t500x500.jpg">](https://soundcloud.com/paulsirrell/paul-sirrell-tonight)
 
-**Artist**: dj delta aka tricky-d 
+**Artist**: Paul Sirrell 
 
-**Track**: AGM & Tricky-D - Screwdriver Remix 2025
+**Track**: Paul Sirrell - Tonight
 
-Last updated at 8/14/2025, 8:52:07 AM
+Last updated at 8/14/2025, 8:53:07 AM
