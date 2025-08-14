@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QToHYVY59OGU9IP7-hGsZiw-t500x500.png">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-luvstruck-x-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pMiJXE3BZ8SaUPvq-kYEslA-t500x500.png">](https://soundcloud.com/jordanirwin/no-broke-boys-jordan-irwin-remix)
 
-**Artist**: Charlie Bosh 
+**Artist**: Jordan Irwin 
 
-**Track**: Charlie Bosh - Luvstruck X Forever
+**Track**: No Broke Boys ( Jordan Irwin Remix )
 
-Last updated at 8/14/2025, 1:20:15 PM
+Last updated at 8/14/2025, 1:24:51 PM
