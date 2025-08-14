@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wBOAhnQzjPyzcKXF-OzDorg-t500x500.jpg">](https://soundcloud.com/saint-baek/thrash-saint-miller-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RvTVq7eO7vaEs9Ab-Zhhzvg-t500x500.jpg">](https://soundcloud.com/spritzurofficial/crankdat-nghtmre-type-shit)
 
-**Artist**: ISOXO , KNOCK2 , ISOKNOCK 
+**Artist**: Spritzur 
 
-**Track**: THRASH (SAINT MILLER FLIP)
+**Track**: Crankdat & NGHTMRE - TYPE SH*T (feat. Duke Deuce) (Spritzur Edit)
 
-Last updated at 8/14/2025, 9:26:10 AM
+Last updated at 8/14/2025, 9:27:25 AM
