@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27tnzGzapczpqlJD-FvDOFg-t500x500.png">](https://soundcloud.com/jarvisuk/patreon-exclusive-down-with-the-sickness-jarvis-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QToHYVY59OGU9IP7-hGsZiw-t500x500.png">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-luvstruck-x-forever)
 
-**Artist**: Jarvis 
+**Artist**: Charlie Bosh 
 
-**Track**: [Patreon Exclusive] Down with the Sickness (Jarvis Bootleg)
+**Track**: Charlie Bosh - Luvstruck X Forever
 
-Last updated at 8/14/2025, 1:19:15 PM
+Last updated at 8/14/2025, 1:20:15 PM
