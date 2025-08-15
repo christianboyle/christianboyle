@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA35DKD6BaWkRoSS-hyMk9g-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/ynel-arch-in-ya-back-adc003?in=saxurn/sets/youv/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTDIPj0tfbPaTsws-fIiKMQ-t500x500.png">](https://soundcloud.com/geomcd/i-miss-you-geo-mcd-remix?in=saxurn/sets/youv/)
 
-**Artist**: AMSTERDAM DANCE CAPITAL 
+**Artist**: ♕ Geo Mcd ♕ 
 
-**Track**: YNEL - Arch In Ya Back [ADC003]
+**Track**: I Miss You - Geo McD Remix
 
-Last updated at 8/15/2025, 8:30:17 AM
+Last updated at 8/15/2025, 8:34:58 AM
