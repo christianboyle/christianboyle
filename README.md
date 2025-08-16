@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4kzxCV4St5rYbjXG-b0HSzA-t500x500.png">](https://soundcloud.com/remkmusic/aintnojoke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
 
-**Artist**: RemK 
+**Artist**: DJ Hendy 
 
-**Track**: RemK - Ain't No Joke
+**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
 
-Last updated at 8/15/2025, 2:59:08 PM
+Last updated at 8/16/2025, 1:34:36 PM
