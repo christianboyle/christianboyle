@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4HzR37MzKZz3Buef-0fgRHQ-t500x500.png">](https://soundcloud.com/cure97/nocomments)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RE0xSmytgTbI12Ie-r1oqug-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-old-skool-room-hh-vs)
 
-**Artist**: Don Toliver, CURE97 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Don Toliver - NO COMMENTS (CURED  BY CURE97)
+**Track**: Hixxy (Old Skool Room) @ HH vs Slinky Round 2 - Opera House Bournemouth (08/07/2005)
 
-Last updated at 8/17/2025, 8:47:52 AM
+Last updated at 8/17/2025, 9:01:38 AM
