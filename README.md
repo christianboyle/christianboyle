@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DBVXqk92Lb5d4ZYF-Mnr8Ag-t500x500.jpg">](https://soundcloud.com/letmekissofficial/feel-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-koLR8UjJUMW2wdZK-NNESzw-t500x500.png">](https://soundcloud.com/hemi-wav/for-a-second-4)
 
-**Artist**: Letmekiss 
+**Artist**: Muted Diagram 
 
-**Track**: FEEL THAT
+**Track**: For A Second
 
-Last updated at 8/17/2025, 9:59:26 AM
+Last updated at 8/17/2025, 10:00:31 AM
