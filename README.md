@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNl4RSLZmnRNpILB-ae0HSA-t500x500.jpg">](https://soundcloud.com/rarapids/zai-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFCKKjBFnPNTs3Ck-1hGZkw-t500x500.png">](https://soundcloud.com/xenotypebass/bigxthaplug-change-me-xenotype-flip)
 
-**Artist**: zai, rapids, anngls 
+**Artist**: Xenotype 
 
-**Track**: zai - 4
+**Track**: BigXthaPlug - Change Me (Xenotype Flip)
 
-Last updated at 8/17/2025, 9:07:19 AM
+Last updated at 8/17/2025, 9:08:39 AM
