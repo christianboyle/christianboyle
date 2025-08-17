@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fem3ga1I06fbTSJ2-OyeaQg-t500x500.jpg">](https://soundcloud.com/bollmannx/alpha-twins-smack-my-derb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wKiLc431cjCIG7y-6TnGkg-t500x500.jpg">](https://soundcloud.com/oscar-arrobi/xtasyoscar-arrobi)
 
-**Artist**: Bollmann 
+**Artist**: OscarArrobi 
 
-**Track**: Alpha Twins - Smack My Derb (Bollmann Schranz Edit) [FREEDL01]
+**Track**: xtasy//oscar arrobi
 
-Last updated at 8/17/2025, 10:17:49 AM
+Last updated at 8/17/2025, 10:18:52 AM
