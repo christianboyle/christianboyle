@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzmBZhIFowa0REEA-vlEtgA-t500x500.png">](https://soundcloud.com/hendy2017/lewis-capaldi-survive-cover-hendy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood?in=saxurn/sets/youv/)
 
-**Artist**: DJ Hendy 
+**Artist**: Ninajirachi 
 
-**Track**: Lewis Capaldi - Survive - (Cover) Hendy Remix
+**Track**: Sing Good
 
-Last updated at 8/17/2025, 6:51:49 AM
+Last updated at 8/17/2025, 8:28:43 AM
