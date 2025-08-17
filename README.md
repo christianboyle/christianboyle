@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RE0xSmytgTbI12Ie-r1oqug-t500x500.jpg">](https://soundcloud.com/darn84/hixxy-old-skool-room-hh-vs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-swOSeBcEsqvZCwwo-sTFZzw-t500x500.png">](https://soundcloud.com/peakdial/gettingmoney)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: PEAK DIAL 
 
-**Track**: Hixxy (Old Skool Room) @ HH vs Slinky Round 2 - Opera House Bournemouth (08/07/2005)
+**Track**: ZOVAH - GETTING MONEY [Peak Dial]
 
-Last updated at 8/17/2025, 9:01:38 AM
+Last updated at 8/17/2025, 9:02:38 AM
