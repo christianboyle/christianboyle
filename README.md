@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mzMLMJ4DF1gCZcyn-AbMjvg-t500x500.png">](https://soundcloud.com/ariaveil/in-the-air)
 
-**Artist**: Ninajirachi 
+**Artist**: ARIA VEIL 
 
-**Track**: Sing Good
+**Track**: in the air
 
-Last updated at 8/17/2025, 8:30:55 AM
+Last updated at 8/17/2025, 8:35:01 AM
