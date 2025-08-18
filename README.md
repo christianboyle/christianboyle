@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UVT05DkT1bywslu9-C64aKg-t500x500.png">](https://soundcloud.com/sachsentrance/eskha-dj-caline-looking-at-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ar4boeOsfLTykkEj-j5TVaQ-t500x500.png">](https://soundcloud.com/scalezuk/cinema-scalez-bootleg-free-download)
 
-**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: SCALEZ  
 
-**Track**: [PREMIERE] Eskha, DJ Caline - Looking at me
+**Track**: Skrillex - Cinema (SCALEZ Bootleg) [FREE DOWNLOAD]
 
-Last updated at 8/18/2025, 9:32:42 AM
+Last updated at 8/18/2025, 9:34:52 AM
