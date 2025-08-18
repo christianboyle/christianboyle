@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yx8QPqrS9pKopylS-5h2FvA-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-i-dont-deserve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKSz6XkCZSNn1RsL-k6i37g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/the-star)
 
-**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
+**Artist**: DRIFT 
 
-**Track**: DMB-DONNELLY - I Dont Deserve You
+**Track**: THE STAR
 
-Last updated at 8/18/2025, 10:07:55 AM
+Last updated at 8/18/2025, 10:12:21 AM
