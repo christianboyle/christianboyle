@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHy46hYXeqcjUs9w-KroKSQ-t500x500.jpg">](https://soundcloud.com/wippenberg/tag-team-whoomp-there-it-is-wippenberg-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz8qUSR8M64Vznlg-y2kfwA-t500x500.jpg">](https://soundcloud.com/interspaeti/armin-hermann-get-down)
 
-**Artist**: wippenberg 
+**Artist**: interspäti, Armin Hermann 
 
-**Track**: Tag Team - Whoomp! There It Is (WIPPENBERG REMIX) [free DL]
+**Track**: Armin Hermann - Get Down
 
-Last updated at 8/18/2025, 12:35:24 PM
+Last updated at 8/18/2025, 12:38:09 PM
