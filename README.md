@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7tKzaILyLhX86MD-ISnKFQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-disguised-reflected-iht021)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zME3BBfQ5LImNW7-IFs2tg-t500x500.png">](https://soundcloud.com/highdruhdub/uicideboy-2nd-hand-highdruh-remix)
 
-**Artist**: HATE, Disguised  
+**Artist**: HighdruH 
 
-**Track**: Premiere: Disguised — Reflected [IHT021]
+**Track**: $uicideboy$ - 2nd Hand (Highdruh Remix)
 
-Last updated at 8/18/2025, 10:30:52 AM
+Last updated at 8/18/2025, 10:35:23 AM
