@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zME3BBfQ5LImNW7-IFs2tg-t500x500.png">](https://soundcloud.com/highdruhdub/uicideboy-2nd-hand-highdruh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8SbstwvdEvnp-0-t500x500.jpg">](https://soundcloud.com/ryanleahan/light)
 
-**Artist**: HighdruH 
+**Artist**: Ryan Leahan 
 
-**Track**: $uicideboy$ - 2nd Hand (Highdruh Remix)
+**Track**: Light
 
-Last updated at 8/18/2025, 10:35:23 AM
+Last updated at 8/18/2025, 10:37:53 AM
