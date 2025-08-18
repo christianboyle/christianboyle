@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7wrQdekiWI4Fc3yu-ye6ebA-t500x500.jpg">](https://soundcloud.com/naemsofficial/8d2ced79-9cdd-4013-88f1-833952746f16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C0RQYyLuE6TLtbuw-vuG9fg-t500x500.jpg">](https://soundcloud.com/rickyremedy/temptation)
 
-**Artist**: NAEMS 
+**Artist**: Remedy 
 
-**Track**: Limp Bizkit - Rollin' (NAEMS Remix)
+**Track**: TEMPTATION
 
-Last updated at 8/18/2025, 10:23:42 AM
+Last updated at 8/18/2025, 10:26:22 AM
