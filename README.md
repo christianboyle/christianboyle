@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY7puZORzoT37Dds-PfYjFg-t500x500.jpg">](https://soundcloud.com/darren-styles/tnt-x-darren-styles-hard-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNwh1mfH4tJ8kfIy-ATZQ4g-t500x500.jpg">](https://soundcloud.com/dubvmusicofficial/dubv-flip-final-copy)
 
-**Artist**: Darren Styles 
+**Artist**: DUBV 
 
-**Track**: TNT X DARREN STYLES - HARD BEAT
+**Track**: The Neighborhood - Sweater Weather (DUBV Flip)
 
-Last updated at 8/18/2025, 9:57:19 AM
+Last updated at 8/18/2025, 10:00:29 AM
