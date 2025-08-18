@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfyVALIWiGY2DZsp-7m8wSw-t500x500.jpg">](https://soundcloud.com/joytimecollective/viperactive-one-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood)
 
-**Artist**: Viperactive, Strobez, Vel Nine 
+**Artist**: Ninajirachi 
 
-**Track**: Viperactive, Strobez, Vel Nine - One Time
+**Track**: Sing Good
 
-Last updated at 8/18/2025, 8:47:26 AM
+Last updated at 8/18/2025, 8:50:31 AM
