@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wxMIME6GKPiVlzJ-0m5Wpw-t500x500.png">](https://soundcloud.com/shindi-256977223/akolyte-blurry-vision)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IolT11CoY6grzcCL-k0lImA-t500x500.jpg">](https://soundcloud.com/nigel-moffett-943984113/el-moff-klubb-efect-i-want)
 
-**Artist**: Akolyte 
+**Artist**: DJ MOFF-EL MOFF 
 
-**Track**: AKOLYTE - Blurry Vision
+**Track**: El Moff & Klubb Efect - I Want What U Got 4 Me(Sample)
 
-Last updated at 8/18/2025, 10:59:30 AM
+Last updated at 8/18/2025, 11:04:41 AM
