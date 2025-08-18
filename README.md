@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKSz6XkCZSNn1RsL-k6i37g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/the-star)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/packedup)
 
-**Artist**: DRIFT 
+**Artist**: trustt, lynU, crusafix, isai 
 
-**Track**: THE STAR
+**Track**: packedd
 
-Last updated at 8/18/2025, 10:12:21 AM
+Last updated at 8/18/2025, 10:15:56 AM
