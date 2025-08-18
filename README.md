@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA35DKD6BaWkRoSS-hyMk9g-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/ynel-arch-in-ya-back-adc003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6gKLbwpcipz98Eb-KTMuDQ-t500x500.png">](https://soundcloud.com/chozenofficial/migos-versace-azassin-x-chozen-flip)
 
-**Artist**: AMSTERDAM DANCE CAPITAL 
+**Artist**: CHOZEN, AZASSIN 
 
-**Track**: YNEL - Arch In Ya Back [ADC003]
+**Track**: Migos - Versace (AZASSIN X CHOZEN FLIP) [FREE DL]
 
-Last updated at 8/18/2025, 9:45:08 AM
+Last updated at 8/18/2025, 9:49:49 AM
