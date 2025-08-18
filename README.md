@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNPCymyRykZV5dak-w0Z42Q-t500x500.jpg">](https://soundcloud.com/vannaroth-samol-719782534/young-ma-stephanie-ooouuu-bouncy-hard-techno-remix-dantronix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
 
-**Artist**: Young M.A  
+**Artist**: BERNZIKIAL 
 
-**Track**: Young M.A & Cloonee  - Stephanie OOOUUU - Bouncy Hard Techno Remix - Dantronix - Radio Edit
+**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
 
-Last updated at 8/18/2025, 8:40:50 AM
+Last updated at 8/18/2025, 8:41:50 AM
