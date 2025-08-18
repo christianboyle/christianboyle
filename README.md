@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p0fIBV1erxqmyvun-6Fmgeg-t500x500.jpg">](https://soundcloud.com/macca-88-1/you-got-the-darkness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FK2KfqCPZLMhRyf-i1pOfA-t500x500.jpg">](https://soundcloud.com/thnderz/ti-live-your-life-ft-rihanna-emvn-thnderz-ravetok-remix)
 
-**Artist**: Macca™ 
+**Artist**: THNDERZ 
 
-**Track**: Macca - You Got The Darkness
+**Track**: T.I. - Live Your Life Ft. Rihanna (EMVN & THNDERZ RAVETOK REMIX)
 
-Last updated at 8/18/2025, 10:53:54 AM
+Last updated at 8/18/2025, 10:57:20 AM
