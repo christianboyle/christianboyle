@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xEvISAJUzGpy8kxk-zb987g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/2d4ab54b-75e7-45a8-ad31-f88f9f5fe6e2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DY7puZORzoT37Dds-PfYjFg-t500x500.jpg">](https://soundcloud.com/darren-styles/tnt-x-darren-styles-hard-beat-1)
 
-**Artist**: DRIFT 
+**Artist**: Darren Styles 
 
-**Track**: LEMONADE (FREE DOWNLOAD)
+**Track**: TNT X DARREN STYLES - HARD BEAT
 
-Last updated at 8/18/2025, 9:51:59 AM
+Last updated at 8/18/2025, 9:57:19 AM
