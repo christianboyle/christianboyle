@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27tnzGzapczpqlJD-FvDOFg-t500x500.png">](https://soundcloud.com/jarvisuk/patreon-exclusive-down-with-the-sickness-jarvis-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-548mWhQytWwVTOoS-bwAnfA-t500x500.png">](https://soundcloud.com/suitsidemusic/suitside-fck-off)
 
-**Artist**: Jarvis 
+**Artist**: SUITSIDE 
 
-**Track**: [Patreon Exclusive] Down with the Sickness (Jarvis Bootleg)
+**Track**: F*CK OFF!
 
-Last updated at 8/18/2025, 9:05:37 AM
+Last updated at 8/18/2025, 9:08:28 AM
