@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tFuyU5qhJsogmizP-M9oo9Q-t500x500.png">](https://soundcloud.com/ih8sev/bleedout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L2Ty74dTQ4ce9JyE-is3syQ-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-amazed-wav)
 
-**Artist**: 00sev, Global Reset 
+**Artist**: GZMO 
 
-**Track**: bleed out
+**Track**: GZMO - Amazed
 
-Last updated at 8/18/2025, 10:04:00 AM
+Last updated at 8/18/2025, 10:05:30 AM
