@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6gKLbwpcipz98Eb-KTMuDQ-t500x500.png">](https://soundcloud.com/chozenofficial/migos-versace-azassin-x-chozen-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xEvISAJUzGpy8kxk-zb987g-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/2d4ab54b-75e7-45a8-ad31-f88f9f5fe6e2)
 
-**Artist**: CHOZEN, AZASSIN 
+**Artist**: DRIFT 
 
-**Track**: Migos - Versace (AZASSIN X CHOZEN FLIP) [FREE DL]
+**Track**: LEMONADE (FREE DOWNLOAD)
 
-Last updated at 8/18/2025, 9:49:49 AM
+Last updated at 8/18/2025, 9:51:59 AM
