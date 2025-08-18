@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eTDIPj0tfbPaTsws-fIiKMQ-t500x500.png">](https://soundcloud.com/geomcd/i-miss-you-geo-mcd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZOiGeyVu2qojEis-2ssMOg-t500x500.png">](https://soundcloud.com/djjayg-1/sickmode-rooler-too-hot-jay-g-hard-techno-edit-click-buy-for-full-free-dl)
 
-**Artist**: ♕ Geo Mcd ♕ 
+**Artist**: Jay G 
 
-**Track**: I Miss You - Geo McD Remix
+**Track**: Sickmode & Rooler - Too Hot ( Jay G Hard Techno Edit )free dl
 
-Last updated at 8/18/2025, 8:58:17 AM
+Last updated at 8/18/2025, 9:01:47 AM
