@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-548mWhQytWwVTOoS-bwAnfA-t500x500.png">](https://soundcloud.com/suitsidemusic/suitside-fck-off)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMfJsKJHK5MfHXLN-zXwktQ-t500x500.jpg">](https://soundcloud.com/esca_kassel/takethat)
 
-**Artist**: SUITSIDE 
+**Artist**: ESCA 
 
-**Track**: F*CK OFF!
+**Track**: TAKE THAT
 
-Last updated at 8/18/2025, 9:08:28 AM
+Last updated at 8/18/2025, 9:13:08 AM
