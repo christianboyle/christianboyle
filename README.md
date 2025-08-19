@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fB0M6CzKQvLAafbc-6mE3bg-t500x500.png">](https://soundcloud.com/suitsandsnares/stealthsentry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhynD00VDr6KkHo4-M8dJrw-t500x500.png">](https://soundcloud.com/xaebor/gunfingersvip)
 
-**Artist**: Suits & Snares 
+**Artist**: XAEBOR 
 
-**Track**: STEALTH ~ SENTRY
+**Track**: XAEBOR - GUNFINGERS (VIP)
 
-Last updated at 8/19/2025, 8:24:25 AM
+Last updated at 8/19/2025, 8:25:25 AM
