@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz8qUSR8M64Vznlg-y2kfwA-t500x500.jpg">](https://soundcloud.com/interspaeti/armin-hermann-get-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzgsivtac1V91Byx-MDmyZA-t500x500.png">](https://soundcloud.com/lussomusicx/blackpink-jump-lusso-remix)
 
-**Artist**: interspäti, Armin Hermann 
+**Artist**: LUSSO 
 
-**Track**: Armin Hermann - Get Down
+**Track**: BLACKPINK - JUMP (LUSSO Remix)
 
-Last updated at 8/19/2025, 6:58:06 AM
+Last updated at 8/19/2025, 7:39:20 AM
