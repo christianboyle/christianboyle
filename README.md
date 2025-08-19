@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KA6ec1pLksezHtLd-RjzPAA-t500x500.jpg">](https://soundcloud.com/bias-nyc/iu-celebrity-broken-spear-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b0uNzVAMO69TZgN7-AT6CBA-t500x500.png">](https://soundcloud.com/psychocybinrec/lostinthemoment)
 
-**Artist**: bias.nyc 
+**Artist**: Psyoptic 
 
-**Track**: Broken Spear - IU Celebrity (Broken Spear Remix)
+**Track**: Psyoptic - Lost In The Moment
 
-Last updated at 8/19/2025, 8:52:41 AM
+Last updated at 8/19/2025, 8:55:21 AM
