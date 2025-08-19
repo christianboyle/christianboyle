@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YhynD00VDr6KkHo4-M8dJrw-t500x500.png">](https://soundcloud.com/xaebor/gunfingersvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r4QtTRayzDFEdCHZ-hty4jw-t500x500.jpg">](https://soundcloud.com/hardcoreaurora/hardcore-flavaz-event-aurora-d)
 
-**Artist**: XAEBOR 
+**Artist**: Aurora-D 
 
-**Track**: XAEBOR - GUNFINGERS (VIP)
+**Track**: Hardcore Flavaz Event - Aurora-D  b2b Flava-C Mc Device Mc Duwkins
 
-Last updated at 8/19/2025, 8:25:25 AM
+Last updated at 8/19/2025, 8:26:25 AM
