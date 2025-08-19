@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lld0UOqJriToz4t-fGgU9Q-t500x500.png">](https://soundcloud.com/oaks6198/oaks-mad-as-hell-radio-edit-rob-oakley-song-writer-engineered-by-rob-tissera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
 
-**Artist**: Oaks - Rob Oakley 
+**Artist**: BERNZIKIAL 
 
-**Track**: Oaks - Mad As Hell (Radio Edit) Rob Oakley Song writer, Engineered by Rob Tissera
+**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
 
-Last updated at 8/19/2025, 9:44:27 AM
+Last updated at 8/19/2025, 9:46:38 AM
