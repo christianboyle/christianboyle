@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfyVALIWiGY2DZsp-7m8wSw-t500x500.jpg">](https://soundcloud.com/joytimecollective/viperactive-one-time)
 
-**Artist**: BERNZIKIAL 
+**Artist**: Viperactive, Strobez, Vel Nine 
 
-**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
+**Track**: Viperactive, Strobez, Vel Nine - One Time
 
-Last updated at 8/19/2025, 9:46:38 AM
+Last updated at 8/19/2025, 9:48:48 AM
