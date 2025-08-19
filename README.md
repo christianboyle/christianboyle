@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzgsivtac1V91Byx-MDmyZA-t500x500.png">](https://soundcloud.com/lussomusicx/blackpink-jump-lusso-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTL7zzFYr5YeGxkM-ChEZtg-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-surrender)
 
-**Artist**: LUSSO 
+**Artist**: The Bounce Brothers 
 
-**Track**: BLACKPINK - JUMP (LUSSO Remix)
+**Track**: The Bounce Brothers - Surrender
 
-Last updated at 8/19/2025, 7:39:20 AM
+Last updated at 8/19/2025, 7:40:20 AM
