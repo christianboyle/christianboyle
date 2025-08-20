@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V3Yz52ye2JZXyFlx-yGmyzw-t500x500.png">](https://soundcloud.com/wormhole-music-group/swomp-first-light)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1dxmz4NDUbuCY72-27pPmg-t500x500.jpg">](https://soundcloud.com/monsoonseasonus/lovestack-electric-funk)
 
-**Artist**: Swomp 
+**Artist**: Lovestack 
 
-**Track**: Swomp - First Light
+**Track**: Love.stack - Electric Funk (ft. Tiamatrah) [Monsoon Season Exclusive]
 
-Last updated at 8/20/2025, 9:38:36 AM
+Last updated at 8/20/2025, 9:42:06 AM
