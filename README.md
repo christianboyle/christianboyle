@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6SGf9vUi0TdKazv4-ygyFUA-t500x500.png">](https://soundcloud.com/psychocybinrec/highdruhthoughts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TkMvG9TB3GrkoSB3-rdl1jQ-t500x500.jpg">](https://soundcloud.com/strobez-music/pressurepoints)
 
-**Artist**: HighdruH 
+**Artist**: Strobez 
 
-**Track**: HighdruH - Thoughts
+**Track**: Pressure Points
 
-Last updated at 8/20/2025, 10:39:46 AM
+Last updated at 8/20/2025, 10:43:22 AM
