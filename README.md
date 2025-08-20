@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU2u4rgg9jFA74B2-wQczlA-t500x500.png">](https://soundcloud.com/manifestdnb/justin-bieber-ghost-doshi-dimod-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nA35DKD6BaWkRoSS-hyMk9g-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/ynel-arch-in-ya-back-adc003?in=saxurn/sets/youv/)
 
-**Artist**: Justin Bieber 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: Justin Bieber - Ghost (DØSHI, DIMOD Bootleg) [FREE DOWNLOAD]
+**Track**: YNEL - Arch In Ya Back [ADC003]
 
-Last updated at 8/20/2025, 2:17:42 PM
+Last updated at 8/20/2025, 2:21:13 PM
