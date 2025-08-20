@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dDVKwAvyZuvHB0CT-cGAD2A-t500x500.png">](https://soundcloud.com/david-cruickshanks/james-hype-waterfalls-shanks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LJ7asmEZoWemCZqL-eLUf9Q-t500x500.png">](https://soundcloud.com/dnzrecords/paul-norval-the-finest)
 
-**Artist**: JAMES HYPE, SHANKS 
+**Artist**: Paul Norval 
 
-**Track**: JAMES HYPE - WATERFALLS [SHANKS REMIX]
+**Track**: Paul Norval - The Finest
 
-Last updated at 8/20/2025, 10:31:01 AM
+Last updated at 8/20/2025, 10:32:36 AM
