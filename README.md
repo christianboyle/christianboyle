@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yISo2HkhvvL6S6xw-gzXMrQ-t500x500.png">](https://soundcloud.com/togekidub/togeki-skulk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6SGf9vUi0TdKazv4-ygyFUA-t500x500.png">](https://soundcloud.com/psychocybinrec/highdruhthoughts)
 
-**Artist**: togeki 
+**Artist**: HighdruH 
 
-**Track**: togeki - Skulk
+**Track**: HighdruH - Thoughts
 
-Last updated at 8/20/2025, 10:36:46 AM
+Last updated at 8/20/2025, 10:39:46 AM
