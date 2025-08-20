@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/erewhon-silverlake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s1vvLBQQGtwQVzzT-kVligQ-t500x500.png">](https://soundcloud.com/lysrgix/blackpink-jump-lysrgix-remix-final)
 
-**Artist**: beverly hills mom 
+**Artist**: Lysrgix 
 
-**Track**: erewhon silverlake
+**Track**: BLACKPINK - 뛰어(JUMP) (lysrgix flip)
 
-Last updated at 8/20/2025, 9:12:26 AM
+Last updated at 8/20/2025, 9:13:25 AM
