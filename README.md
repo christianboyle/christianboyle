@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T09E7Nd1OLyjOgyR-Et7fbA-t500x500.jpg">](https://soundcloud.com/hanconscious/blackberries-hanconsciousremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dDVKwAvyZuvHB0CT-cGAD2A-t500x500.png">](https://soundcloud.com/david-cruickshanks/james-hype-waterfalls-shanks-remix)
 
-**Artist**: Han Conscious 
+**Artist**: JAMES HYPE, SHANKS 
 
-**Track**: FISHER X bbyclose - Blackberries (Han Conscious Remix)
+**Track**: JAMES HYPE - WATERFALLS [SHANKS REMIX]
 
-Last updated at 8/20/2025, 9:43:52 AM
+Last updated at 8/20/2025, 10:31:01 AM
