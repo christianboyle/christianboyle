@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/poplar-street-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVEy5pnkD7BC-0-t500x500.jpg">](https://soundcloud.com/bodo-dendron/ilkay-guendogan)
 
-**Artist**: blu 
+**Artist**: Bodo Dendron 
 
-**Track**: Poplar Street
+**Track**: Ilkay Gündogan
 
-Last updated at 8/20/2025, 10:46:42 AM
+Last updated at 8/20/2025, 10:48:52 AM
