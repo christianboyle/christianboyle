@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5smK7ImVtzvU-0-t500x500.png">](https://soundcloud.com/axel-boy/no-toxicity-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsToFyb5g6FPpiTo-eWipGQ-t500x500.jpg">](https://soundcloud.com/theo-roger/se-miimii-feat-dj-skycee)
 
-**Artist**: Axel Boy 
+**Artist**: Miimii KDS 
 
-**Track**: No Toxicity Dub
+**Track**: Sé Miimii (feat. Dj Skycee)
 
-Last updated at 8/21/2025, 7:16:45 AM
+Last updated at 8/21/2025, 7:20:51 AM
