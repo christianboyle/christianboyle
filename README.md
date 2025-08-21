@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNPCymyRykZV5dak-w0Z42Q-t500x500.jpg">](https://soundcloud.com/vannaroth-samol-719782534/young-ma-stephanie-ooouuu-bouncy-hard-techno-remix-dantronix-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N8yHjSl8JebneiY8-ykPI1A-t500x500.jpg">](https://soundcloud.com/pintoojr/lorde-tennis-court-pinto-remix-v1)
 
-**Artist**: Young M.A  
+**Artist**: Pinto 
 
-**Track**: Young M.A & Cloonee  - Stephanie OOOUUU - Bouncy Hard Techno Remix - Dantronix - Radio Edit
+**Track**: Lorde - Tennis Court (Pinto Remix)
 
-Last updated at 8/21/2025, 7:39:51 AM
+Last updated at 8/21/2025, 8:15:25 AM
