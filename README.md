@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wsToFyb5g6FPpiTo-eWipGQ-t500x500.jpg">](https://soundcloud.com/theo-roger/se-miimii-feat-dj-skycee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvXLzHPPXIXY9yQX-dU7uzQ-t500x500.png">](https://soundcloud.com/dj-farran-954587444/dj-farran-at-night)
 
-**Artist**: Miimii KDS 
+**Artist**: DJ FARRAN 
 
-**Track**: Sé Miimii (feat. Dj Skycee)
+**Track**: DJ FARRAN - AT NIGHT
 
-Last updated at 8/21/2025, 7:20:51 AM
+Last updated at 8/21/2025, 7:22:51 AM
