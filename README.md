@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvXLzHPPXIXY9yQX-dU7uzQ-t500x500.png">](https://soundcloud.com/dj-farran-954587444/dj-farran-at-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K35UoLYzaPJ2Suru-ADhzVg-t500x500.jpg">](https://soundcloud.com/lukasoppenheimer/light-verstehs-nich)
 
-**Artist**: DJ FARRAN 
+**Artist**: light 
 
-**Track**: DJ FARRAN - AT NIGHT
+**Track**: verstehs nich
 
-Last updated at 8/21/2025, 7:22:51 AM
+Last updated at 8/21/2025, 7:38:41 AM
