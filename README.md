@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B9fWxFToV6iIJk0K-jAQ6kQ-t500x500.png">](https://soundcloud.com/skyvak/infinite-power?in=circuselectric/sets/skyvak-x-keliza-infinite-power)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfL22kqMofLm5HcH-zvf6vA-t500x500.jpg">](https://soundcloud.com/davidchouman/free-david-chouman-ozdmr-1)
 
-**Artist**: Skyvak, Keliza 
+**Artist**: David Chouman 
 
-**Track**: Infinite Power
+**Track**: KPOP DEMON HUNTERS - FREE (DAVID CHOUMAN & OZDMR REMIX)
 
-Last updated at 8/21/2025, 7:03:56 AM
+Last updated at 8/21/2025, 7:05:11 AM
