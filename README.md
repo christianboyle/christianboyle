@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hAIislRm3v9IwaXT-4KlDtQ-t500x500.png">](https://soundcloud.com/dnbranger/failover-acris-uprise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZYyHnN3nARLjzuu-PQFs1Q-t500x500.png">](https://soundcloud.com/hardlinesounds/stipp-alec-dienaar-u-tool-01)
 
-**Artist**: Failøver, Acris 
+**Artist**: STIPP & Alec Dienaar 
 
-**Track**: Failøver & Acris - Uprise
+**Track**: STIPP & Alec Dienaar - U-Tool 01 (HARD33)
 
-Last updated at 8/21/2025, 6:56:10 AM
+Last updated at 8/21/2025, 6:58:21 AM
