@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ye8Wz1l3m11DgmeV-40TvXA-t500x500.png">](https://soundcloud.com/geckonl/summer-night-fever-dream-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RrAQYh8i11kkuU8o-6ogm6Q-t500x500.png">](https://soundcloud.com/scantraxx/afterlight)
 
-**Artist**: Geck-o 
+**Artist**: Level One, Nightcraft 
 
-**Track**: Summer Night Fever Dream - set 3 (Tuesday)
+**Track**: Afterlight
 
-Last updated at 8/21/2025, 7:13:40 AM
+Last updated at 8/21/2025, 7:14:40 AM
