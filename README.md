@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QToHYVY59OGU9IP7-hGsZiw-t500x500.png">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-luvstruck-x-forever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-akamvoEmhdQ6hpuF-OBfylw-t500x500.png">](https://soundcloud.com/opaskvip/ne-yo-closer-opask-bootleg)
 
-**Artist**: Charlie Bosh 
+**Artist**: OpasK VIP 
 
-**Track**: Charlie Bosh - Luvstruck X Forever
+**Track**: N£-¥0 - ¢L053R (OpasK B007L3G) [BUY = FREE DOWNLOAD]
 
-Last updated at 8/21/2025, 6:50:05 AM
+Last updated at 8/21/2025, 6:54:55 AM
