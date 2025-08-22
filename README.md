@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iiwy5TJalzzWU1VQ-vH1lKQ-t500x500.png">](https://soundcloud.com/sweb16/no-broke-boys-tinashe-ab-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZg4M07du90vhjnv-ZG1z7A-t500x500.png">](https://soundcloud.com/highsynth1/solitude-out-now)
 
-**Artist**: Sam Weber 
+**Artist**: DRIFT 
 
-**Track**: No broke boys Tinashe [AB edit]
+**Track**: SOLITUDE (OUT NOW)
 
-Last updated at 8/22/2025, 9:27:57 AM
+Last updated at 8/22/2025, 9:28:57 AM
