@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ye8Wz1l3m11DgmeV-40TvXA-t500x500.png">](https://soundcloud.com/geckonl/summer-night-fever-dream-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDXRGS4KOzt53y2i-CRYBPg-t500x500.png">](https://soundcloud.com/tttlyon/onlynumbers-only-you)
 
-**Artist**: Geck-o 
+**Artist**: Ҳ̸ Onlynumbers  Ҳ̸ 
 
-**Track**: Summer Night Fever Dream - set 3 (Tuesday)
+**Track**: Onlynumbers - Only You / 𝐅𝐑𝐄𝐄 𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃
 
-Last updated at 8/22/2025, 6:16:36 AM
+Last updated at 8/22/2025, 8:08:20 AM
