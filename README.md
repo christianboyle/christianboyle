@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5hOX6UzEWAfWOSLf-n7NobA-t500x500.jpg">](https://soundcloud.com/galactic-harmony-records/dj-kinner-back-to-the-90s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNtA1Z44VosF-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/drop-to-the-sound-radio-edit)
 
-**Artist**: DJ KINNER 
+**Artist**: Dave Curtis 
 
-**Track**: DJ KINNER - Back To The 90's (Original Mix)
+**Track**: Drop To The Sound (Radio Edit)
 
-Last updated at 8/22/2025, 9:33:02 AM
+Last updated at 8/22/2025, 9:39:13 AM
