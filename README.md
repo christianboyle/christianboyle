@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P19R64FO25oEXcYk-yX9fdQ-t500x500.jpg">](https://soundcloud.com/twistedmelodiez/whatitsoundslike)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/poplar-street-3)
 
-**Artist**: Twisted Melodiez & Xenopulse 
+**Artist**: blu 
 
-**Track**: HUNTR/X - What It Sounds Like (Twisted Melodiez & Xenopulse Hardstyle Remix)
+**Track**: Poplar Street
 
-Last updated at 8/22/2025, 8:18:51 AM
+Last updated at 8/22/2025, 8:22:41 AM
