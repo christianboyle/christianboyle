@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/poplar-street-3?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNPCymyRykZV5dak-w0Z42Q-t500x500.jpg">](https://soundcloud.com/vannaroth-samol-719782534/young-ma-stephanie-ooouuu-bouncy-hard-techno-remix-dantronix-radio-edit?in=saxurn/sets/oscillating-reaction)
 
-**Artist**: blu 
+**Artist**: Young M.A  
 
-**Track**: Poplar Street
+**Track**: Young M.A & Cloonee  - Stephanie OOOUUU - Bouncy Hard Techno Remix - Dantronix - Radio Edit
 
-Last updated at 8/22/2025, 1:03:13 PM
+Last updated at 8/22/2025, 1:06:24 PM
