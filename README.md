@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Ly9aivi0ZyL8tWs-uQO1Aw-t500x500.png">](https://soundcloud.com/no-mercy-label/sonsofcharlie-space)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNtA1Z44VosF-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/drop-to-the-sound-radio-edit)
 
-**Artist**: Sons Of Charlie 
+**Artist**: Dave Curtis 
 
-**Track**: Sons Of Charlie - Space [No Mercy]
+**Track**: Drop To The Sound (Radio Edit)
 
-Last updated at 8/22/2025, 9:44:29 AM
+Last updated at 8/22/2025, 9:51:14 AM
