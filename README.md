@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rQe7Zi5NEGSvFtVc-4rTOSw-t500x500.png">](https://soundcloud.com/nikmc211/boy-why-you-lying)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FLx98eo4atYQyR9J-T0oNIw-t500x500.jpg">](https://soundcloud.com/bitbird/klaxx-yetep-starlight)
 
-**Artist**: DJ Nickiee 
+**Artist**: KLAXX, yetep, Aviella 
 
-**Track**: Boy, why you Lying
+**Track**: KLAXX, yetep - STARLIGHT (feat. Aviella)
 
-Last updated at 8/22/2025, 9:22:51 AM
+Last updated at 8/22/2025, 9:23:51 AM
