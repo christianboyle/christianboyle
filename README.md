@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5lld0UOqJriToz4t-fGgU9Q-t500x500.png">](https://soundcloud.com/oaks6198/oaks-mad-as-hell-radio-edit-rob-oakley-song-writer-engineered-by-rob-tissera?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU2u4rgg9jFA74B2-wQczlA-t500x500.png">](https://soundcloud.com/manifestdnb/justin-bieber-ghost-doshi-dimod-bootleg?in=saxurn/sets/oscillating-reaction/)
 
-**Artist**: Oaks - Rob Oakley 
+**Artist**: Justin Bieber 
 
-**Track**: Oaks - Mad As Hell (Radio Edit) Rob Oakley Song writer, Engineered by Rob Tissera
+**Track**: Justin Bieber - Ghost (DØSHI, DIMOD Bootleg) [FREE DOWNLOAD]
 
-Last updated at 8/22/2025, 1:08:59 PM
+Last updated at 8/22/2025, 1:10:38 PM
