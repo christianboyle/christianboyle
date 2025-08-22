@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU2u4rgg9jFA74B2-wQczlA-t500x500.png">](https://soundcloud.com/manifestdnb/justin-bieber-ghost-doshi-dimod-bootleg?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZg4M07du90vhjnv-ZG1z7A-t500x500.png">](https://soundcloud.com/highsynth1/solitude-out-now?in=saxurn/sets/oscillating-reaction)
 
-**Artist**: Justin Bieber 
+**Artist**: DRIFT 
 
-**Track**: Justin Bieber - Ghost (DØSHI, DIMOD Bootleg) [FREE DOWNLOAD]
+**Track**: SOLITUDE (OUT NOW)
 
-Last updated at 8/22/2025, 12:37:06 PM
+Last updated at 8/22/2025, 12:40:02 PM
