@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHy46hYXeqcjUs9w-KroKSQ-t500x500.jpg">](https://soundcloud.com/wippenberg/tag-team-whoomp-there-it-is-wippenberg-remix-free-dl?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfL22kqMofLm5HcH-zvf6vA-t500x500.jpg">](https://soundcloud.com/davidchouman/free-david-chouman-ozdmr-1?in=saxurn/sets/oscillating-reaction)
 
-**Artist**: wippenberg 
+**Artist**: David Chouman 
 
-**Track**: Tag Team - Whoomp! There It Is (WIPPENBERG REMIX) [free DL]
+**Track**: KPOP DEMON HUNTERS - FREE (DAVID CHOUMAN & OZDMR REMIX)
 
-Last updated at 8/22/2025, 12:47:52 PM
+Last updated at 8/22/2025, 12:52:33 PM
