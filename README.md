@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MucEc1GtX1eFaluT-zVRo5A-t500x500.jpg">](https://soundcloud.com/galactic-harmony-records/rihanna-sos-zwilling-dj-achim-feuervogel-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJ6v32QLZAmWjHq2-ykGb3Q-t500x500.png">](https://soundcloud.com/dutchmasterworks/eternate-beats-that-makes-you-sick-feat-mc-novy-loner-remix)
 
-**Artist**: zwilling. x DJ Achim Feuervogel 
+**Artist**: Eternate, MC Novy, Loner 
 
-**Track**: Rihanna - SOS (zwilling. x DJ Achim Feuervogel Edit) FREE DL
+**Track**: Eternate - Beats That Makes You Sick (feat. MC Novy) [Loner Remix]
 
-Last updated at 8/22/2025, 9:24:51 AM
+Last updated at 8/22/2025, 9:25:51 AM
