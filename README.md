@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZg4M07du90vhjnv-ZG1z7A-t500x500.png">](https://soundcloud.com/highsynth1/solitude-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5hOX6UzEWAfWOSLf-n7NobA-t500x500.jpg">](https://soundcloud.com/galactic-harmony-records/dj-kinner-back-to-the-90s)
 
-**Artist**: DRIFT 
+**Artist**: DJ KINNER 
 
-**Track**: SOLITUDE (OUT NOW)
+**Track**: DJ KINNER - Back To The 90's (Original Mix)
 
-Last updated at 8/22/2025, 9:28:57 AM
+Last updated at 8/22/2025, 9:33:02 AM
