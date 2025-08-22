@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ye8Wz1l3m11DgmeV-40TvXA-t500x500.png">](https://soundcloud.com/geckonl/summer-night-fever-dream-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8M6NXADbB6TWpio-iJB98A-t500x500.png">](https://soundcloud.com/djkelcore/hoodie)
 
-**Artist**: Geck-o 
+**Artist**: DJ KELSEY, yx2 
 
-**Track**: Summer Night Fever Dream - set 3 (Tuesday)
+**Track**: Effie - put my hoodie on (DJ KELSEY x yx2 Remix)
 
-Last updated at 8/21/2025, 8:20:13 PM
+Last updated at 8/21/2025, 8:21:13 PM
