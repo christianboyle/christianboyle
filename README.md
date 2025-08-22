@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZg4M07du90vhjnv-ZG1z7A-t500x500.png">](https://soundcloud.com/highsynth1/solitude-out-now?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zNtA1Z44VosF-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/drop-to-the-sound-radio-edit?in=saxurn/sets/oscillating-reaction)
 
-**Artist**: DRIFT 
+**Artist**: Dave Curtis 
 
-**Track**: SOLITUDE (OUT NOW)
+**Track**: Drop To The Sound (Radio Edit)
 
-Last updated at 8/22/2025, 2:46:13 PM
+Last updated at 8/22/2025, 2:50:18 PM
