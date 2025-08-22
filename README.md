@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfL22kqMofLm5HcH-zvf6vA-t500x500.jpg">](https://soundcloud.com/davidchouman/free-david-chouman-ozdmr-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P19R64FO25oEXcYk-yX9fdQ-t500x500.jpg">](https://soundcloud.com/twistedmelodiez/whatitsoundslike)
 
-**Artist**: David Chouman 
+**Artist**: Twisted Melodiez & Xenopulse 
 
-**Track**: KPOP DEMON HUNTERS - FREE (DAVID CHOUMAN & OZDMR REMIX)
+**Track**: HUNTR/X - What It Sounds Like (Twisted Melodiez & Xenopulse Hardstyle Remix)
 
-Last updated at 8/22/2025, 8:16:36 AM
+Last updated at 8/22/2025, 8:18:51 AM
