@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sj0zAms7HEcpPwcl-VwznUw-t500x500.png">](https://soundcloud.com/callmemacon/macon-slay-extended-mix?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/poplar-street-3?in=saxurn/sets/oscillating-reaction)
 
-**Artist**: Macon 
+**Artist**: blu 
 
-**Track**: Macon - Slay (Extended Mix)
+**Track**: Poplar Street
 
-Last updated at 8/22/2025, 12:58:43 PM
+Last updated at 8/22/2025, 1:03:13 PM
