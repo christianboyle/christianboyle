@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wH1Vhy7fvEync0Yf-ynwQhA-t500x500.jpg">](https://soundcloud.com/blu_beats/poplar-street-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Am0TPAbSStBWorDZ-6A0xPg-t500x500.png">](https://soundcloud.com/nrgtrax/blessed-madonna-feat-clementine-douglas-happier-nrg-trax-remix-free-download)
 
-**Artist**: blu 
+**Artist**: NRG Trax 
 
-**Track**: Poplar Street
+**Track**: Blessed Madonna feat. Clementine Douglas - Happier (NRG Trax Remix) (Free Download)
 
-Last updated at 8/22/2025, 8:22:41 AM
+Last updated at 8/22/2025, 9:17:41 AM
