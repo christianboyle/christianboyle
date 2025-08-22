@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDXRGS4KOzt53y2i-CRYBPg-t500x500.png">](https://soundcloud.com/tttlyon/onlynumbers-only-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Ly9aivi0ZyL8tWs-uQO1Aw-t500x500.png">](https://soundcloud.com/no-mercy-label/sonsofcharlie-space)
 
-**Artist**: Ҳ̸ Onlynumbers  Ҳ̸ 
+**Artist**: Sons Of Charlie 
 
-**Track**: Onlynumbers - Only You / 𝐅𝐑𝐄𝐄 𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃
+**Track**: Sons Of Charlie - Space [No Mercy]
 
-Last updated at 8/22/2025, 8:08:20 AM
+Last updated at 8/22/2025, 8:13:00 AM
