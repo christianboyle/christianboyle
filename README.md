@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-anFzUTEUbwe6x2Gk-kyv27g-t500x500.png">](https://soundcloud.com/dance_party_time_machine/bill-nye-the-science-guy-dance-party-time-machine-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6d0cEfsGQk1BzzH-zu6uvQ-t500x500.png">](https://soundcloud.com/wubaholics/prettysweetpayslip)
 
-**Artist**: DANCE PARTY TIME MACHINE 
+**Artist**: Pretty Sweet 
 
-**Track**: Bill Nye The Science Guy (Dance Party Time Machine Remix)
+**Track**: Pretty Sweet - Payslip
 
-Last updated at 8/23/2025, 9:12:16 AM
+Last updated at 8/23/2025, 9:13:16 AM
