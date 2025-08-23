@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fgsZXA2fDMI7qkUH-ADIvLA-t500x500.jpg">](https://soundcloud.com/taziaus/im-not-alone-tazi-revibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vl24iqeKdoN0hcpz-oEfYlA-t500x500.png">](https://soundcloud.com/ukf/camoufly-msft-higher)
 
-**Artist**: Tazi 
+**Artist**: camoufly & msft 
 
-**Track**: I'm Not Alone (TAZI Revibe)
+**Track**: camoufly & msft - Higher
 
-Last updated at 8/23/2025, 12:53:04 PM
+Last updated at 8/23/2025, 12:54:35 PM
