@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PkkermKOQQnPD9ZB-W4CPhA-t500x500.jpg">](https://soundcloud.com/hestermusic/4d08da8c-a36b-4dc8-8fcb-6ce1546c283a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBs2RtEBSWlbk6W-PNoPIA-t500x500.jpg">](https://soundcloud.com/jpky/acyan-nuteeth-jpky-emix?in=acyanmusic/sets/nuteeth-jpky-acyan-remix)
 
-**Artist**: HESTER 
+**Artist**: jpky 
 
-**Track**: Ruffneck Bass
+**Track**: acyan - nuteeth (jpky & acyan remix)
 
-Last updated at 8/23/2025, 12:49:49 PM
+Last updated at 8/23/2025, 12:51:04 PM
