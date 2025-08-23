@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvE0m5DyEybueGwV-TXwZBA-t500x500.png">](https://soundcloud.com/dramaclubrecs/honu-block-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E5jjyECoDwpSVKBV-XF1cMw-t500x500.png">](https://soundcloud.com/eyelander_music/disco-lines-tinashe-no-broke)
 
-**Artist**: HONÜ 
+**Artist**: EYELANDER, DISCO LINES, TINASHE 
 
-**Track**: HONÜ - Block
+**Track**: Disco Lines, Tinashe - No Broke Boys (EYELANDER REMIX)
 
-Last updated at 8/23/2025, 9:01:35 AM
+Last updated at 8/23/2025, 9:06:45 AM
