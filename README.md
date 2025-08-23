@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP4rz8ne7Zgb-0-t500x500.jpg">](https://soundcloud.com/iamdnmo/dna?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ruGakSvzUn6c5gK-qJKnag-t500x500.jpg">](https://soundcloud.com/2summusic/underground-anthem-2sumflip?in=saxurn/sets/domestic/)
 
-**Artist**: DNMO, Hanne Mjøen 
+**Artist**: 2SUM 
 
-**Track**: DNA
+**Track**: FLOSSTRADAMUS - UNDERGROUND ANTHEM (2SUM FLIP)
 
-Last updated at 8/23/2025, 1:00:26 PM
+Last updated at 8/23/2025, 1:03:17 PM
