@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BXKKakUwFejym7r8-InXOhg-t500x500.jpg">](https://soundcloud.com/itzkeylo614/chris-brown-look-at-me-now-keylo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-anFzUTEUbwe6x2Gk-kyv27g-t500x500.png">](https://soundcloud.com/dance_party_time_machine/bill-nye-the-science-guy-dance-party-time-machine-remix)
 
-**Artist**: Keylo 
+**Artist**: DANCE PARTY TIME MACHINE 
 
-**Track**: Chris Brown - Look at Me Now (Keylo Flip)
+**Track**: Bill Nye The Science Guy (Dance Party Time Machine Remix)
 
-Last updated at 8/23/2025, 9:10:31 AM
+Last updated at 8/23/2025, 9:12:16 AM
