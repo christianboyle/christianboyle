@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hktj4zQMP8N3BLOc-7dbzPA-t500x500.png">](https://soundcloud.com/heavn0nevaeh/what-it-mean-nielyoung?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP4rz8ne7Zgb-0-t500x500.jpg">](https://soundcloud.com/iamdnmo/dna?in=saxurn/sets/domestic/)
 
-**Artist**: heavn0nevaeh 
+**Artist**: DNMO, Hanne Mjøen 
 
-**Track**: what it mean @nielyoung
+**Track**: DNA
 
-Last updated at 8/23/2025, 12:58:16 PM
+Last updated at 8/23/2025, 1:00:26 PM
