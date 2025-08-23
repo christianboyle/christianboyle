@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z6d0cEfsGQk1BzzH-zu6uvQ-t500x500.png">](https://soundcloud.com/wubaholics/prettysweetpayslip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lsatrVMaLQVsL8dp-UboyHg-t500x500.png">](https://soundcloud.com/ben-bailey-924397865/blend-i-like-big-butts-sample)
 
-**Artist**: Pretty Sweet 
+**Artist**: Blend 
 
-**Track**: Pretty Sweet - Payslip
+**Track**: Blend - I Like Big Butts (Sample)
 
-Last updated at 8/23/2025, 9:13:16 AM
+Last updated at 8/23/2025, 9:15:06 AM
