@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ruGakSvzUn6c5gK-qJKnag-t500x500.jpg">](https://soundcloud.com/2summusic/underground-anthem-2sumflip?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MOu8UixkZc3HnWsE-Xfx3Fg-t500x500.jpg">](https://soundcloud.com/bridgeyb14/bridgey-b-weve-made-itfree-download?in=saxurn/sets/domestic/)
 
-**Artist**: 2SUM 
+**Artist**: BRIDGEY-B 
 
-**Track**: FLOSSTRADAMUS - UNDERGROUND ANTHEM (2SUM FLIP)
+**Track**: BRIDGEY-B WEVE MADE IT(FREE DOWNLOAD)
 
-Last updated at 8/23/2025, 1:03:17 PM
+Last updated at 8/23/2025, 1:05:42 PM
