@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dffByAoWa2SXVsyi-sNNQsA-t500x500.jpg">](https://soundcloud.com/prtytrax/snap-rhythm-is-a-dancer?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3loeLH4DgAbrAV4Z-g0WVeg-t500x500.jpg">](https://soundcloud.com/psychodrums-official/instigator-psychodrums-party-starting?in=saxurn/sets/domestic/)
 
-**Artist**: PRTY TRAX 
+**Artist**: Psychodrums OFFICIAL 
 
-**Track**: BEN TECHY - Rhythm Is A Dancer (Schranz Edit) [PRTYTRAXVA03]
+**Track**: INSTIGATOR & PSYCHODRUMS - Party Starting (FREE DOWNLOAD)
 
-Last updated at 8/23/2025, 6:07:28 PM
+Last updated at 8/23/2025, 6:12:53 PM
