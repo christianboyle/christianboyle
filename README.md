@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBs2RtEBSWlbk6W-PNoPIA-t500x500.jpg">](https://soundcloud.com/jpky/acyan-nuteeth-jpky-emix?in=acyanmusic/sets/nuteeth-jpky-acyan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-04ivWzTTEszMjnVZ-KCbEQQ-t500x500.png">](https://soundcloud.com/vibralocitymusic/get-busy)
 
-**Artist**: jpky 
+**Artist**: Vibralocity 
 
-**Track**: acyan - nuteeth (jpky & acyan remix)
+**Track**: Get Busy
 
-Last updated at 8/23/2025, 12:51:04 PM
+Last updated at 8/23/2025, 12:52:04 PM
