@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP4rz8ne7Zgb-0-t500x500.jpg">](https://soundcloud.com/iamdnmo/dna?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MOu8UixkZc3HnWsE-Xfx3Fg-t500x500.jpg">](https://soundcloud.com/bridgeyb14/bridgey-b-weve-made-itfree-download?in=saxurn/sets/domestic/)
 
-**Artist**: DNMO, Hanne Mjøen 
+**Artist**: BRIDGEY-B 
 
-**Track**: DNA
+**Track**: BRIDGEY-B WEVE MADE IT(FREE DOWNLOAD)
 
-Last updated at 8/24/2025, 12:23:39 PM
+Last updated at 8/24/2025, 12:26:04 PM
