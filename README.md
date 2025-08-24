@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3qUGMWq7k2LZLcFd-yrJtgA-t500x500.jpg">](https://soundcloud.com/fish_dj/afterlife-zachary-fish-ht-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHRTfMp4nrDA1oKG-dTlwCg-t500x500.jpg">](https://soundcloud.com/sunrizen/live-from-the-portal-sharps-island)
 
-**Artist**: fish!, Zachary, Drezo 
+**Artist**: Sunrizen 
 
-**Track**: Drezo - Afterlife (Zachary x fish! HT Edit) [FREE DL]
+**Track**: Live from the Portal — Sharp’s Island (07.26.2025)
 
-Last updated at 8/24/2025, 7:59:07 AM
+Last updated at 8/24/2025, 8:04:28 AM
