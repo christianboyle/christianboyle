@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0FyGQy95gJ1sMuvR-zrkJeA-t500x500.png">](https://soundcloud.com/matthiasgeerts/alice-deejay-better-off-alone-matthias-geerts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UP4rz8ne7Zgb-0-t500x500.jpg">](https://soundcloud.com/iamdnmo/dna?in=saxurn/sets/domestic/)
 
-**Artist**: Matthias Geerts 
+**Artist**: DNMO, Hanne Mjøen 
 
-**Track**: Alice Deejay - Better Off Alone (Matthias Geerts Re-Work) Free DL
+**Track**: DNA
 
-Last updated at 8/24/2025, 9:28:42 AM
+Last updated at 8/24/2025, 12:23:39 PM
