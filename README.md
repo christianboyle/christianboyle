@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N5HAuWucwen7qBfF-COBtBA-t500x500.png">](https://soundcloud.com/soundsbyanon/savana-anon-x-azassin-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPxAFluyR5Ct930i-pAEzYQ-t500x500.jpg">](https://soundcloud.com/jakelov/tactics-remix)
 
-**Artist**: ANON, AZASSIN, Chris Lake 
+**Artist**: JAKELOV 
 
-**Track**: Savana (ANON X AZASSIN BOOTLEG)
+**Track**: Wraz, Hypho, ft. Hypes - Tactics (JAKELOV Remix)
 
-Last updated at 8/24/2025, 8:15:44 AM
+Last updated at 8/24/2025, 8:16:44 AM
