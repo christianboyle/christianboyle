@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/so-sus-singularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtqK2iGfW36mZc4h-W7OwSQ-t500x500.png">](https://soundcloud.com/boogaardmusic/tear-me-down-flip)
 
-**Artist**: So Sus 
+**Artist**: Boogaard 
 
-**Track**: So Sus - Singularity
+**Track**: Joyner Lucas & Ava Max - Tear Me Down (Boogaard Flip)
 
-Last updated at 8/24/2025, 8:12:38 AM
+Last updated at 8/24/2025, 8:13:43 AM
