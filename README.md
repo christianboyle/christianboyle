@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RyrDHw8bX8bFYxf7-mW8RyQ-t500x500.jpg">](https://soundcloud.com/4uraofficial/rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/so-sus-singularity)
 
-**Artist**: 4URA, BLACKPINK 
+**Artist**: So Sus 
 
-**Track**: 뛰어(JUMP) [4URA RMX]
+**Track**: So Sus - Singularity
 
-Last updated at 8/24/2025, 8:11:38 AM
+Last updated at 8/24/2025, 8:12:38 AM
