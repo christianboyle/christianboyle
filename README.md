@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZZwz2XkIRrGjlTU-lrtN8g-t500x500.png">](https://soundcloud.com/dnbranger/mineral-shiden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RvZzY3NxZziL-0-t500x500.jpg">](https://soundcloud.com/jakka-b/right-here-right-now)
 
-**Artist**: Mineral 
+**Artist**: Jakka-B, SPYRO 
 
-**Track**: Mineral - Shiden
+**Track**: Right Here Right Now
 
-Last updated at 8/24/2025, 8:06:43 AM
+Last updated at 8/24/2025, 8:07:43 AM
