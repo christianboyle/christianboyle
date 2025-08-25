@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1hCGBHc3YmeI-0-t500x500.jpg">](https://soundcloud.com/cltxx/music-is-my-life?in=cltxx/sets/cltx-dugi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wtVK2q3c4PdcHlYJ-9gcnNQ-t500x500.png">](https://soundcloud.com/majjjjjja/playboi-carti-crush-flip-maja-okte-edit)
 
-**Artist**: CLTX, Dugi 
+**Artist**: MAJA, OKTE 
 
-**Track**: Music Is My Life
+**Track**: PLAYBOI CARTI - CRUSH FLIP [MAJA + OKTE EDIT]
 
-Last updated at 8/25/2025, 6:46:37 AM
+Last updated at 8/25/2025, 6:47:37 AM
