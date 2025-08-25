@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wtVK2q3c4PdcHlYJ-9gcnNQ-t500x500.png">](https://soundcloud.com/majjjjjja/playboi-carti-crush-flip-maja-okte-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3dj9qft0msSZZgr-RDNEtQ-t500x500.jpg">](https://soundcloud.com/logan-17222564/bouncy-streams-3-live)
 
-**Artist**: MAJA, OKTE 
+**Artist**: L2GXN (LOGY-B) - S.B.L - PROJECT HAVOC 
 
-**Track**: PLAYBOI CARTI - CRUSH FLIP [MAJA + OKTE EDIT]
+**Track**: Bouncy Streams 3 (FB-Live)
 
-Last updated at 8/25/2025, 6:47:37 AM
+Last updated at 8/25/2025, 6:48:37 AM
