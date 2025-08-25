@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3dj9qft0msSZZgr-RDNEtQ-t500x500.jpg">](https://soundcloud.com/logan-17222564/bouncy-streams-3-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1jQbAUL7Xm4smVLP-kBn1Kw-t500x500.png">](https://soundcloud.com/blues-in-the-net/016-yx2-memories-forever)
 
-**Artist**: L2GXN (LOGY-B) - S.B.L - PROJECT HAVOC 
+**Artist**: yx2 
 
-**Track**: Bouncy Streams 3 (FB-Live)
+**Track**: 016: yx2 - memories forever
 
-Last updated at 8/25/2025, 6:48:37 AM
+Last updated at 8/25/2025, 7:06:51 AM
