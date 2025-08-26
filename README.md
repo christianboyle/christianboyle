@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJGtqkZbDS5M-0-t500x500.jpg">](https://soundcloud.com/so_ta/no-surrender-no-retreat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXHUA1wgVbWRscFS-AnzAUA-t500x500.png">](https://soundcloud.com/ziimba/bring-me-2-life)
 
-**Artist**: SOTA, Pirapus 
+**Artist**: ZIIMBA 
 
-**Track**: NO SURRENDER (No Retreat)
+**Track**: EVAN3SC3NCE - BRING ME 2 LIFE | ZIIMBA KEYTAR FLIP
 
-Last updated at 8/26/2025, 7:38:23 AM
+Last updated at 8/26/2025, 8:12:31 AM
