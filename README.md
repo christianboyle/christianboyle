@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15CMLHlInPy06rTG-9ykVvQ-t500x500.png">](https://soundcloud.com/dnzrecords/ascenderz-i-feel-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gSgXZ5sp7SjmUX2V-PwYMhA-t500x500.jpg">](https://soundcloud.com/gordon-martin-7/raver-baby)
 
-**Artist**: AscenderZ 
+**Artist**: Gopher 
 
-**Track**: AscenderZ - I Feel Alive
+**Track**: raver baby
 
-Last updated at 8/26/2025, 6:59:34 AM
+Last updated at 8/26/2025, 7:22:37 AM
