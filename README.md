@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjANr8Oe2gGIjEfC-YWic2w-t500x500.jpg">](https://soundcloud.com/ag-audio/mac-miller-yeah-ag-reboot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptqGb79rXuwJA217-dXrw9g-t500x500.png">](https://soundcloud.com/speckz_yeetz/bigxthaplug-the-largest-1)
 
-**Artist**: AG 
+**Artist**: Speckz 
 
-**Track**: Mac Miller - Yeah (AG Reboot)
+**Track**: BIGXTHAPLUG - THE LARGEST (SPECKZ FLIP)
 
-Last updated at 8/26/2025, 7:31:18 AM
+Last updated at 8/26/2025, 7:32:18 AM
