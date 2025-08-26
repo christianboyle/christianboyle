@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9x8k3GKsfyfw5EW-BOpwsA-t500x500.jpg">](https://soundcloud.com/hiseph/brother)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJGtqkZbDS5M-0-t500x500.jpg">](https://soundcloud.com/so_ta/no-surrender-no-retreat)
 
-**Artist**: seph 
+**Artist**: SOTA, Pirapus 
 
-**Track**: брат w/ rimeren & slafter (seph & lovebites)
+**Track**: NO SURRENDER (No Retreat)
 
-Last updated at 8/26/2025, 7:36:02 AM
+Last updated at 8/26/2025, 7:38:23 AM
