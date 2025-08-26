@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58lBkzLvwqYILQMu-8c7ekA-t500x500.png">](https://soundcloud.com/wubaholics/pretty-sweet-future-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eU0HQGadJRMKfOhy-IYyb9w-t500x500.jpg">](https://soundcloud.com/net_run/cured)
 
-**Artist**: Pretty Sweet 
+**Artist**: .NET RUN 
 
-**Track**: Pretty Sweet - Future
+**Track**: New World Order
 
-Last updated at 8/26/2025, 7:29:18 AM
+Last updated at 8/26/2025, 7:30:17 AM
