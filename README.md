@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXHUA1wgVbWRscFS-AnzAUA-t500x500.png">](https://soundcloud.com/ziimba/bring-me-2-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7yYIIesU7Kstgec-3iqweA-t500x500.png">](https://soundcloud.com/rngrdj/all-of-the-lights-rngr-edit)
 
-**Artist**: ZIIMBA 
+**Artist**: RNGR, JOSHWA 
 
-**Track**: EVAN3SC3NCE - BRING ME 2 LIFE | ZIIMBA KEYTAR FLIP
+**Track**: ALL OF THE LIGHTS (RNGR EDIT)
 
-Last updated at 8/26/2025, 8:12:31 AM
+Last updated at 8/26/2025, 8:15:31 AM
