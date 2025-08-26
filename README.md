@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gGobk7rzfQiW-0-t500x500.png">](https://soundcloud.com/bennicky/voicemail)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15CMLHlInPy06rTG-9ykVvQ-t500x500.png">](https://soundcloud.com/dnzrecords/ascenderz-i-feel-alive)
 
-**Artist**: Ben Nicky, Paul Gannon 
+**Artist**: AscenderZ 
 
-**Track**: Voicemail
+**Track**: AscenderZ - I Feel Alive
 
-Last updated at 8/26/2025, 6:58:04 AM
+Last updated at 8/26/2025, 6:59:34 AM
