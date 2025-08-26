@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eU0HQGadJRMKfOhy-IYyb9w-t500x500.jpg">](https://soundcloud.com/net_run/cured)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mjANr8Oe2gGIjEfC-YWic2w-t500x500.jpg">](https://soundcloud.com/ag-audio/mac-miller-yeah-ag-reboot)
 
-**Artist**: .NET RUN 
+**Artist**: AG 
 
-**Track**: New World Order
+**Track**: Mac Miller - Yeah (AG Reboot)
 
-Last updated at 8/26/2025, 7:30:17 AM
+Last updated at 8/26/2025, 7:31:18 AM
