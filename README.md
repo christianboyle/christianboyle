@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpChgFGIpEMfCnkF-sTBIyg-t500x500.jpg">](https://soundcloud.com/trapmichigan/krispylife-kidd-jibber-jabber)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8MTxm1rjTQXJB4uL-Iyxsjg-t500x500.png">](https://soundcloud.com/dnbranger/gui-funky-st)
 
-**Artist**: TrapMichigan 
+**Artist**: Gui 
 
-**Track**: Krispylife Kidd - Jibber Jabber
+**Track**: Gui - Funky S#!T
 
-Last updated at 8/26/2025, 7:23:37 AM
+Last updated at 8/26/2025, 7:26:37 AM
