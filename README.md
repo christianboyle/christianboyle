@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000379335737-2hbo05-t500x500.jpg">](https://soundcloud.com/herrokkin/m-flo-all-i-want-is-you-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7yYIIesU7Kstgec-3iqweA-t500x500.png">](https://soundcloud.com/rngrdj/all-of-the-lights-rngr-edit)
 
-**Artist**: Herrokkin (MarginalRec.) 
+**Artist**: RNGR, JOSHWA 
 
-**Track**: m-flo - All I Want Is You (Herrokkin Remix)
+**Track**: ALL OF THE LIGHTS (RNGR EDIT)
 
-Last updated at 8/25/2025, 7:35:23 PM
+Last updated at 8/25/2025, 7:36:58 PM
