@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfyVALIWiGY2DZsp-7m8wSw-t500x500.jpg">](https://soundcloud.com/joytimecollective/viperactive-one-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlCc5tGsL1zefXDT-reD2Fg-t500x500.png">](https://soundcloud.com/djshimamura/mixtape-summer-daze-2025-icewater-hardcore)
 
-**Artist**: Viperactive, Strobez, Vel Nine 
+**Artist**: DJ Shimamura 
 
-**Track**: Viperactive, Strobez, Vel Nine - One Time
+**Track**: Summer Daze 2025 “Icewater Hardcore”
 
-Last updated at 8/27/2025, 5:48:39 AM
+Last updated at 8/27/2025, 8:05:06 AM
