@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlCc5tGsL1zefXDT-reD2Fg-t500x500.png">](https://soundcloud.com/djshimamura/mixtape-summer-daze-2025-icewater-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dffByAoWa2SXVsyi-sNNQsA-t500x500.jpg">](https://soundcloud.com/prtytrax/snap-rhythm-is-a-dancer)
 
-**Artist**: DJ Shimamura 
+**Artist**: PRTY TRAX 
 
-**Track**: Summer Daze 2025 “Icewater Hardcore”
+**Track**: BEN TECHY - Rhythm Is A Dancer (Schranz Edit) [PRTYTRAXVA03]
 
-Last updated at 8/27/2025, 8:36:11 AM
+Last updated at 8/27/2025, 12:42:09 PM
