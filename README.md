@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WPe35mBwnYAF-0-t500x500.jpg">](https://soundcloud.com/jigitz/say-youll-never-leave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9N0hdckQf1T2kRgj-BdFBwg-t500x500.png">](https://soundcloud.com/lewisarlo/neverleaveyou)
 
-**Artist**: jigitz 
+**Artist**: Lewis Arlo 
 
-**Track**: say you'll never leave
+**Track**: never leave you
 
-Last updated at 8/27/2025, 12:44:27 PM
+Last updated at 8/27/2025, 12:45:27 PM
