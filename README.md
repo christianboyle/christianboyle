@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dffByAoWa2SXVsyi-sNNQsA-t500x500.jpg">](https://soundcloud.com/prtytrax/snap-rhythm-is-a-dancer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UL77a7OExwMI-0-t500x500.jpg">](https://soundcloud.com/grum/never-leave-u)
 
-**Artist**: PRTY TRAX 
+**Artist**: Grum 
 
-**Track**: BEN TECHY - Rhythm Is A Dancer (Schranz Edit) [PRTYTRAXVA03]
+**Track**: Never Leave U
 
-Last updated at 8/27/2025, 12:42:09 PM
+Last updated at 8/27/2025, 12:43:27 PM
