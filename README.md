@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7yYIIesU7Kstgec-3iqweA-t500x500.png">](https://soundcloud.com/rngrdj/all-of-the-lights-rngr-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfyVALIWiGY2DZsp-7m8wSw-t500x500.jpg">](https://soundcloud.com/joytimecollective/viperactive-one-time)
 
-**Artist**: RNGR, JOSHWA 
+**Artist**: Viperactive, Strobez, Vel Nine 
 
-**Track**: ALL OF THE LIGHTS (RNGR EDIT)
+**Track**: Viperactive, Strobez, Vel Nine - One Time
 
-Last updated at 8/26/2025, 8:15:31 AM
+Last updated at 8/27/2025, 5:48:39 AM
