@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9x8k3GKsfyfw5EW-BOpwsA-t500x500.jpg">](https://soundcloud.com/hiseph/brother)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WlCc5tGsL1zefXDT-reD2Fg-t500x500.png">](https://soundcloud.com/djshimamura/mixtape-summer-daze-2025-icewater-hardcore)
 
-**Artist**: seph 
+**Artist**: DJ Shimamura 
 
-**Track**: брат w/ rimeren & slafter (seph & lovebites)
+**Track**: Summer Daze 2025 “Icewater Hardcore”
 
-Last updated at 8/27/2025, 8:31:49 AM
+Last updated at 8/27/2025, 8:36:11 AM
