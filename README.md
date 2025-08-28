@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Xv7x6uFC1RuMo2ks-0nNkKQ-t500x500.jpg">](https://soundcloud.com/user-941328657/boo-goes-hard-vol-5-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7rWiCvKyA446ubMJ-LgLeDQ-t500x500.jpg">](https://soundcloud.com/leeroy71official/uplifting-trance-mix-2)
 
-**Artist**: DJ BOO 
+**Artist**: PIONEER DJ REC 
 
-**Track**: BOO GOES HARD VOL 5 ( HARDCORE )
+**Track**: uplifting trance mix 2
 
-Last updated at 8/28/2025, 7:40:33 AM
+Last updated at 8/28/2025, 8:10:46 AM
