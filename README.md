@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmhrjpH24u9Ah0Vz-GZCgtA-t500x500.png">](https://soundcloud.com/dnzrecords/jo-e-dex-tocas-miracle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PGHj3MFzZw9nK04u-7WYyEQ-t500x500.jpg">](https://soundcloud.com/anthonysangera/pianoman-dont-call-me-baby-anthony-sangera-remix-1)
 
-**Artist**: Jo E Dex 
+**Artist**: Anthonysangera 
 
-**Track**: Jo E Dex - Toca's Miracle
+**Track**: Pianoman - Don't Call Me Baby (Anthony Sangera Remix) (Competition Winner)
 
-Last updated at 8/28/2025, 7:37:18 AM
+Last updated at 8/28/2025, 7:38:43 AM
