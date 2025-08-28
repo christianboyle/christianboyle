@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q7W5qm7jsQh3JrUk-oDpyfg-t500x500.jpg">](https://soundcloud.com/djshimamura/mixtape-summer-daze-2025-icewater-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgIMXdHMuEnW-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/get-down)
 
-**Artist**: DJ Shimamura 
+**Artist**: Klubfiller 
 
-**Track**: Summer Daze 2025 Mix “Icewater Hardcore”
+**Track**: Get Down
 
-Last updated at 8/28/2025, 6:11:00 AM
+Last updated at 8/28/2025, 7:27:17 AM
