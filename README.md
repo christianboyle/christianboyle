@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skPZqiGzJzwbBFc7-IgvmBg-t500x500.jpg">](https://soundcloud.com/viskus/47b61769-7883-435b-8b7e-9c89058805b0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmhrjpH24u9Ah0Vz-GZCgtA-t500x500.png">](https://soundcloud.com/dnzrecords/jo-e-dex-tocas-miracle)
 
-**Artist**: VISKUS 
+**Artist**: Jo E Dex 
 
-**Track**: Gravy Train
+**Track**: Jo E Dex - Toca's Miracle
 
-Last updated at 8/28/2025, 7:31:12 AM
+Last updated at 8/28/2025, 7:37:18 AM
