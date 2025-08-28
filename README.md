@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RaZxsxhoDYowgP7Z-BflliQ-t500x500.jpg">](https://soundcloud.com/offtherackjack/reboundxrhythmgashremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxQwNZ8u68bPVAwM-XzYuPg-t500x500.png">](https://soundcloud.com/bouncefx2/the-return-of-big-tommy-d-bounce-fx-mix-series-season-1)
 
-**Artist**: Off The Rack Jack 
+**Artist**: Tommy Davies  
 
-**Track**: Rebound X - Rhythm N Gash (Off The Rack Jack Remix) FREE DOWNLOAD
+**Track**: The Return of big Tommy D - BOUNCE FX MIX SERIES season 1
 
-Last updated at 8/28/2025, 8:11:51 AM
+Last updated at 8/28/2025, 9:08:29 AM
