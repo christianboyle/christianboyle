@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gW8n8YyuNYZKyC1A-8pCPkw-t500x500.png">](https://soundcloud.com/darren-glancy-213424437/nathan-evans-x-saint-phnx-arabelladarren-glancy-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4SIJnvZ7rhZsAppg-q2JjEA-t500x500.png">](https://soundcloud.com/adamkalibass/charli-xcx-guess-adam-kali-2)
 
-**Artist**: Darren Glancy 
+**Artist**: Charli xcx, Billie Eilish 
 
-**Track**: Nathan Evans x SAINT PHNX - Arabella(Darren Glancy Remix) Free Download
+**Track**: Charli xcx - Guess (ADAM KALI REMIX)
 
-Last updated at 8/29/2025, 5:27:58 PM
+Last updated at 8/29/2025, 5:28:58 PM
