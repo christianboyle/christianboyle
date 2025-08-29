@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32mCSJZ9jWS6C9d6-4W0ECA-t500x500.png">](https://soundcloud.com/txrecords/sekular-give-er-my-digits-tx059)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gW8n8YyuNYZKyC1A-8pCPkw-t500x500.png">](https://soundcloud.com/darren-glancy-213424437/nathan-evans-x-saint-phnx-arabelladarren-glancy-remix-free-download)
 
-**Artist**: Tx Records 
+**Artist**: Darren Glancy 
 
-**Track**: Sekular - Give Er My Digits [TX059]
+**Track**: Nathan Evans x SAINT PHNX - Arabella(Darren Glancy Remix) Free Download
 
-Last updated at 8/29/2025, 2:27:44 PM
+Last updated at 8/29/2025, 5:27:58 PM
