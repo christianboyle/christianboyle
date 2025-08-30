@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YEtfhN8z0ZbCyRK8-uTCmjQ-t500x500.png">](https://soundcloud.com/nght_vzn/fred-again-skepta-victory-lap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAoUuPNv2flrDNtP-2pmzXA-t500x500.jpg">](https://soundcloud.com/balaram-music/crazy-remix)
 
-**Artist**: NGHT VZN 
+**Artist**: BALARAM 
 
-**Track**: Fred again.. & Skepta - Victory Lap (NGHT VZN Flip)
+**Track**: Doechii - Crazy [BALARAM Remix]
 
-Last updated at 8/30/2025, 7:44:33 AM
+Last updated at 8/30/2025, 7:45:33 AM
