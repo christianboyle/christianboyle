@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4SIJnvZ7rhZsAppg-q2JjEA-t500x500.png">](https://soundcloud.com/adamkalibass/charli-xcx-guess-adam-kali-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32mCSJZ9jWS6C9d6-4W0ECA-t500x500.png">](https://soundcloud.com/txrecords/sekular-give-er-my-digits-tx059)
 
-**Artist**: Charli xcx, Billie Eilish 
+**Artist**: Tx Records 
 
-**Track**: Charli xcx - Guess (ADAM KALI REMIX)
+**Track**: Sekular - Give Er My Digits [TX059]
 
-Last updated at 8/29/2025, 5:28:58 PM
+Last updated at 8/30/2025, 7:39:06 AM
