@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAoUuPNv2flrDNtP-2pmzXA-t500x500.jpg">](https://soundcloud.com/balaram-music/crazy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EG4Zt8rUOlkRM60A-8bcXXQ-t500x500.png">](https://soundcloud.com/ovtplay/voices-in-my-head-ovtplay-rmx)
 
-**Artist**: BALARAM 
+**Artist**: OVTPLAY 
 
-**Track**: Doechii - Crazy [BALARAM Remix]
+**Track**: VOICES IN MY HEAD (OVTPLAY RMX)
 
-Last updated at 8/30/2025, 7:45:33 AM
+Last updated at 8/30/2025, 7:46:38 AM
