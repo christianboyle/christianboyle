@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EG4Zt8rUOlkRM60A-8bcXXQ-t500x500.png">](https://soundcloud.com/ovtplay/voices-in-my-head-ovtplay-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nUnrNfVKkesJB9R5-tUGuQw-t500x500.png">](https://soundcloud.com/flora-noise-official/valve-regulator)
 
-**Artist**: OVTPLAY 
+**Artist**: Flora.noise 
 
-**Track**: VOICES IN MY HEAD (OVTPLAY RMX)
+**Track**: Valve Regulator
 
-Last updated at 8/30/2025, 7:46:38 AM
+Last updated at 8/30/2025, 8:02:49 AM
