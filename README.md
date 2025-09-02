@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eFAqtguAsY88TcWq-NvlZ7A-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/d-venn-drowning-in-your-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HgSRLJ6NfWF5cQu-NEddEA-t500x500.png">](https://soundcloud.com/revolution-records-uk/ishy-chris-brown-feat-roylance-shooting-star)
 
-**Artist**: D-Venn 
+**Artist**: Revolution-Records UK 
 
-**Track**: D-Venn - Drowning In Your Love
+**Track**: ISHY & CHRIS BROWN FEAT ROYLANCE - SHOOTING STAR
 
-Last updated at 9/2/2025, 8:40:24 AM
+Last updated at 9/2/2025, 8:41:24 AM
