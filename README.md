@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xm2D9CNZqvFik3D-znbVog-t500x500.png">](https://soundcloud.com/joshuarsm/still-awake-bm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgbNhYv9KAJ9v0D1-3O88Kw-t500x500.png">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip)
 
-**Artist**: JUSH 
+**Artist**: SHIZZ LO 
 
-**Track**: Still Awake
+**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
 
-Last updated at 9/2/2025, 6:19:56 PM
+Last updated at 9/2/2025, 6:22:02 PM
