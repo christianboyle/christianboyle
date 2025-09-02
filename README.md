@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TzTlSCOH3joqpFxK-40IyRw-t500x500.png">](https://soundcloud.com/magpie303/dj-paul-rave-satellite-01041995)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LKz36T5DtuCWmK1p-zYuzLw-t500x500.png">](https://soundcloud.com/carmelodubs/wowzerz)
 
-**Artist**: DJ Paul 
+**Artist**: CARMELO 
 
-**Track**: DJ Paul - Rave Satellite - 1995
+**Track**: WOWZERZ
 
-Last updated at 9/2/2025, 8:47:42 AM
+Last updated at 9/2/2025, 6:18:56 PM
