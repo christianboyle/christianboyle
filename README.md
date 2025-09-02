@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eT577rWiBftyFRuR-0pHecg-t500x500.png">](https://soundcloud.com/mousaitherealest/john-summit-x-gorgon-city-is-everybody-having-fun-mousai-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xGT8PYIskWzygUzU-k4fspg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-pulse-ill-be-missing-you)
 
-**Artist**: MOUSAI 
+**Artist**: DJ Pulse 
 
-**Track**: John Summit x Gorgon City - Is Everybody Having Fun (Mousai Flip)
+**Track**: DJ Pulse - I'll Be Missing You
 
-Last updated at 9/2/2025, 8:34:49 AM
+Last updated at 9/2/2025, 8:36:49 AM
