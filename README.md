@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GPvGNTeipBBP8krw-DoA1Bg-t500x500.jpg">](https://soundcloud.com/davie-rae-810600984/gbx-2025-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pry5qJaSfUxtqyRC-LLPUQQ-t500x500.jpg">](https://soundcloud.com/roberto-monti-470662993/ryzul-robertomonti-part-3-lisas-tune)
 
-**Artist**: Davie Rae, GBX, GBX 2025 
+**Artist**: RobertoMonti 
 
-**Track**: GBX 2025
+**Track**: Ryzul & RobertoMonti - Part 3      . . . [ Lisa's Tune ]
 
-Last updated at 9/2/2025, 8:42:24 AM
+Last updated at 9/2/2025, 8:44:00 AM
