@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgbNhYv9KAJ9v0D1-3O88Kw-t500x500.png">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-miMkOYzqiLAektps-K0jsyA-t500x500.jpg">](https://soundcloud.com/dask-music/vain)
 
-**Artist**: SHIZZ LO 
+**Artist**: DASK 
 
-**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
+**Track**: VAIN (DASK EDIT)
 
-Last updated at 9/3/2025, 8:46:57 AM
+Last updated at 9/3/2025, 8:49:17 AM
