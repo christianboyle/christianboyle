@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQB9eWEgWpe9fBvZ-cGZQ9A-t500x500.png">](https://soundcloud.com/mickystardust/go-hard-or-go-home-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTpjlJkKgTyz4umn-36ea9A-t500x500.jpg">](https://soundcloud.com/avello_music/light-years)
 
-**Artist**: Micky Stardust 
+**Artist**: AVELLO 
 
-**Track**: GO HARD, OR GO HOME (Extended Mix)
+**Track**: JOHN SUMMIT, INÉZ - LIGHT YEARS (AVELLO REMIX) [FREE DOWNLOAD]
 
-Last updated at 9/3/2025, 8:52:32 AM
+Last updated at 9/3/2025, 8:55:17 AM
