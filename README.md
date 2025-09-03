@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8dVMNL21hudB6mxE-sLQEig-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-presents-the-bounce-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgbNhYv9KAJ9v0D1-3O88Kw-t500x500.png">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip)
 
-**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
+**Artist**: SHIZZ LO 
 
-**Track**: Yes ii presents The Bounce Generation vol 75 feat Dj Scope 💥💥💥💥
+**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
 
-Last updated at 9/3/2025, 9:11:44 AM
+Last updated at 9/3/2025, 12:46:13 PM
