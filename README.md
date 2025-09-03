@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJV7czcmmdHQ3f3Q-TXIrkg-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/nanobii-fk-tatsunoshin-remix-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8dVMNL21hudB6mxE-sLQEig-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-presents-the-bounce-7)
 
-**Artist**: nanobii x Tatsunoshin 
+**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
 
-**Track**: nanobii - F**K (Tatsunoshin Remix) [Extended Mix]
+**Track**: Yes ii presents The Bounce Generation vol 75 feat Dj Scope 💥💥💥💥
 
-Last updated at 9/3/2025, 9:08:54 AM
+Last updated at 9/3/2025, 9:11:44 AM
