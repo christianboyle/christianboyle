@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTpjlJkKgTyz4umn-36ea9A-t500x500.jpg">](https://soundcloud.com/avello_music/light-years)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GdffHgg7u0WyjcjO-EgATBA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/heppy-stay-with-me-original-mix)
 
-**Artist**: AVELLO 
+**Artist**: Fatal Energy Records 
 
-**Track**: JOHN SUMMIT, INÉZ - LIGHT YEARS (AVELLO REMIX) [FREE DOWNLOAD]
+**Track**: Heppy - Stay With Me (Original Mix)
 
-Last updated at 9/3/2025, 8:55:17 AM
+Last updated at 9/3/2025, 8:57:38 AM
