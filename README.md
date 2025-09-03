@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-miMkOYzqiLAektps-K0jsyA-t500x500.jpg">](https://soundcloud.com/dask-music/vain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cQB9eWEgWpe9fBvZ-cGZQ9A-t500x500.png">](https://soundcloud.com/mickystardust/go-hard-or-go-home-extended-mix)
 
-**Artist**: DASK 
+**Artist**: Micky Stardust 
 
-**Track**: VAIN (DASK EDIT)
+**Track**: GO HARD, OR GO HOME (Extended Mix)
 
-Last updated at 9/3/2025, 8:49:17 AM
+Last updated at 9/3/2025, 8:52:32 AM
