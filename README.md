@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GdffHgg7u0WyjcjO-EgATBA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/heppy-stay-with-me-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiTOpCjf7fomE3NM-v6ohfw-t500x500.png">](https://soundcloud.com/sandsconnection/gaz-summers-paul-dreamz)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Dancing in the sky 
 
-**Track**: Heppy - Stay With Me (Original Mix)
+**Track**: Gaz Summers & Paul Dreamz - Dancing in the sky- (Radio edit) OUT NOW !!!!!!!!!!
 
-Last updated at 9/3/2025, 8:57:38 AM
+Last updated at 9/3/2025, 9:02:18 AM
