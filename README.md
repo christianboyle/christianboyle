@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rl8kQwdDQxFA8UPC-H042yA-t500x500.jpg">](https://soundcloud.com/bronzehardware/bronze56k-radio-i-hope-u-hate-this-shit-vol-2)
 
-**Artist**: BERNZIKIAL 
+**Artist**: bronze56k 
 
-**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
+**Track**: BRONZE56K RADIO: i hope u hate this shit vol 2
 
-Last updated at 9/3/2025, 1:03:14 PM
+Last updated at 9/3/2025, 1:04:25 PM
