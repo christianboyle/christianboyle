@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgbNhYv9KAJ9v0D1-3O88Kw-t500x500.png">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
 
-**Artist**: SHIZZ LO 
+**Artist**: BERNZIKIAL 
 
-**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
+**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
 
-Last updated at 9/3/2025, 12:46:13 PM
+Last updated at 9/3/2025, 12:48:33 PM
