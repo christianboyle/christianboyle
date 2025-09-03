@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiTOpCjf7fomE3NM-v6ohfw-t500x500.png">](https://soundcloud.com/sandsconnection/gaz-summers-paul-dreamz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4SIJnvZ7rhZsAppg-q2JjEA-t500x500.png">](https://soundcloud.com/adamkalibass/charli-xcx-guess-adam-kali-2)
 
-**Artist**: Dancing in the sky 
+**Artist**: Charli xcx, Billie Eilish 
 
-**Track**: Gaz Summers & Paul Dreamz - Dancing in the sky- (Radio edit) OUT NOW !!!!!!!!!!
+**Track**: Charli xcx - Guess (ADAM KALI REMIX)
 
-Last updated at 9/3/2025, 9:02:18 AM
+Last updated at 9/3/2025, 9:06:14 AM
