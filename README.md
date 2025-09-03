@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jgbNhYv9KAJ9v0D1-3O88Kw-t500x500.png">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oon1DBUeniRkGHyJ-CFQ6Qw-t500x500.jpg">](https://soundcloud.com/threshdubs/radiohead-everything-in-its-right-place-thresh-remix)
 
-**Artist**: SHIZZ LO 
+**Artist**: THRESH 
 
-**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
+**Track**: Radiohead - Everything in its Right Place (THRESH REMIX)
 
-Last updated at 9/2/2025, 6:22:02 PM
+Last updated at 9/2/2025, 7:09:45 PM
