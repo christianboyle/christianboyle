@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oon1DBUeniRkGHyJ-CFQ6Qw-t500x500.jpg">](https://soundcloud.com/threshdubs/radiohead-everything-in-its-right-place-thresh-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpdBqYg2Ugw1KGsx-rPirMA-t500x500.png">](https://soundcloud.com/huskibass/tonez-alright)
 
-**Artist**: THRESH 
+**Artist**: Tonez 
 
-**Track**: Radiohead - Everything in its Right Place (THRESH REMIX)
+**Track**: TONEZ - ALRIGHT (HUSKI BASS 022)
 
-Last updated at 9/2/2025, 7:09:45 PM
+Last updated at 9/2/2025, 8:46:40 PM
