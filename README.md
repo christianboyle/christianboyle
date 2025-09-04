@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQdgyQL64l4ymuji-wCSfIA-t500x500.png">](https://soundcloud.com/dnbranger/bleach-impatient)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VYYcdhPQXyFykUno-cLPNVg-t500x500.png">](https://soundcloud.com/elliottsboutique/valley-serpent-ear)
 
-**Artist**: Bleach 
+**Artist**: elliott 
 
-**Track**: Bleach - Impatient
+**Track**: Valley Serpent  -  ear
 
-Last updated at 9/4/2025, 8:55:36 AM
+Last updated at 9/4/2025, 8:57:17 AM
