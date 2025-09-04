@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSnWIDZ2RqkHQt7e-oHSQ1w-t500x500.jpg">](https://soundcloud.com/bernzikial/key-glock-6ix-bernzikial-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6Khyc2lNQ3RPM7v-rffSMg-t500x500.jpg">](https://soundcloud.com/august-kind/call-on-me-august-kind-trance-edit-master)
 
-**Artist**: BERNZIKIAL 
+**Artist**: August Kind 
 
-**Track**: Key Glock - 6ix (BERNZIKIAL Remix)
+**Track**: Call On Me (August Kind Trance Edit)
 
-Last updated at 9/4/2025, 6:55:05 AM
+Last updated at 9/4/2025, 8:49:51 AM
