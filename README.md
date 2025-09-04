@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/id-like-to-acknowledge-this-hard-groove-track-was-made-on-stolen-land)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShgUZOE5tNzPffM1-aSVyRA-t500x500.png">](https://soundcloud.com/lucuna-dubstep/lucuna-x-ruiiin-ur-mine-final)
 
-**Artist**: beverly hills mom 
+**Artist**: LUCUNA, RUiIIN 
 
-**Track**: id like to acknowledge this hard groove track was made on stolen land
+**Track**: LUCUNA X RUiIIN - UR MINE
 
-Last updated at 9/4/2025, 8:51:16 AM
+Last updated at 9/4/2025, 8:53:26 AM
