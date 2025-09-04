@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShgUZOE5tNzPffM1-aSVyRA-t500x500.png">](https://soundcloud.com/lucuna-dubstep/lucuna-x-ruiiin-ur-mine-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJNhVDXBLzKN7ZgQ-jHeJYA-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-rude-boy)
 
-**Artist**: LUCUNA, RUiIIN 
+**Artist**: The Bounce Brothers 
 
-**Track**: LUCUNA X RUiIIN - UR MINE
+**Track**: The Bounce Brothers - Rude Boy
 
-Last updated at 9/4/2025, 8:53:26 AM
+Last updated at 9/4/2025, 8:54:31 AM
