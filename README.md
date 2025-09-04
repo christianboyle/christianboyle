@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6Khyc2lNQ3RPM7v-rffSMg-t500x500.jpg">](https://soundcloud.com/august-kind/call-on-me-august-kind-trance-edit-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/id-like-to-acknowledge-this-hard-groove-track-was-made-on-stolen-land)
 
-**Artist**: August Kind 
+**Artist**: beverly hills mom 
 
-**Track**: Call On Me (August Kind Trance Edit)
+**Track**: id like to acknowledge this hard groove track was made on stolen land
 
-Last updated at 9/4/2025, 8:49:51 AM
+Last updated at 9/4/2025, 8:51:16 AM
