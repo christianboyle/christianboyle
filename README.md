@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VYYcdhPQXyFykUno-cLPNVg-t500x500.png">](https://soundcloud.com/elliottsboutique/valley-serpent-ear)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbdoFMaZwZ9LBqpx-Me5SYw-t500x500.png">](https://soundcloud.com/officialsnails/bass)
 
-**Artist**: elliott 
+**Artist**: SNAILS 
 
-**Track**: Valley Serpent  -  ear
+**Track**: PIERCE X SNAILS x SLUGZ - B.A.S.S. (feat. Ella Eve)
 
-Last updated at 9/4/2025, 8:57:17 AM
+Last updated at 9/4/2025, 8:58:22 AM
