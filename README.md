@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPFCmrfyb8JEBsE9-0ueX0Q-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/free-dl-shimza-arco-kasango-fire-fire-berat-oz-orhan-aydin-remix-mdm024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uv2NFzYpXt4ln35i-z8iSdQ-t500x500.jpg">](https://soundcloud.com/tomdamage/love-story-tom-damage-remix)
 
-**Artist**: Berat OZ & Orhan Aydin 
+**Artist**: Tom Damage 
 
-**Track**: FREE DL: Shimza, AR/CO & Kasango - Fire Fire (Berat OZ & Orhan Aydin Remix) [MDM024]
+**Track**: Love Story (Tom Damage Remix)
 
-Last updated at 9/4/2025, 9:05:43 AM
+Last updated at 9/4/2025, 9:11:44 AM
