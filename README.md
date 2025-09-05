@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s5voW733uqc9MYXa-SwSCxA-t500x500.png">](https://soundcloud.com/bassjackers/dior)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eN6yC7jUtxPGOi3d-kP00Sg-t500x500.jpg">](https://soundcloud.com/iamblvcksmith/soupkoola-hoochie-daddy-1)
 
-**Artist**: BASSJACKERS 
+**Artist**: BLVCKSMITH 
 
-**Track**: MK - Dior (Bassjackers Remix)
+**Track**: Soupkoola - Hoochie Daddy Season (BLVCKSMITH ReForge)
 
-Last updated at 9/5/2025, 7:13:46 AM
+Last updated at 9/5/2025, 7:14:46 AM
