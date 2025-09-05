@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HxmpOdU7xzAok1C-1cnJ4Q-t500x500.png">](https://soundcloud.com/doof_music/olly-james-i-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s5voW733uqc9MYXa-SwSCxA-t500x500.png">](https://soundcloud.com/bassjackers/dior)
 
-**Artist**: doof 
+**Artist**: BASSJACKERS 
 
-**Track**: Olly James - I Wanna Dance (Preview)
+**Track**: MK - Dior (Bassjackers Remix)
 
-Last updated at 9/5/2025, 7:12:21 AM
+Last updated at 9/5/2025, 7:13:46 AM
