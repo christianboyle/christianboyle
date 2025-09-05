@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhZtQ6zVHeaAQ0jz-aG4yzg-t500x500.jpg">](https://soundcloud.com/user-643553014/united-in-flames-w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2HxmpOdU7xzAok1C-1cnJ4Q-t500x500.png">](https://soundcloud.com/doof_music/olly-james-i-wanna-dance)
 
-**Artist**: NTS Latest 
+**Artist**: doof 
 
-**Track**: United In Flames w/ JAMESJAMESJAMES & MALIBU 280825
+**Track**: Olly James - I Wanna Dance (Preview)
 
-Last updated at 9/5/2025, 7:03:45 AM
+Last updated at 9/5/2025, 7:12:21 AM
