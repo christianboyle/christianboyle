@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yejnrJFrsrWDfwdw-aFRyLw-t500x500.png">](https://soundcloud.com/mart-x-dj/eli-brown-wavey-mart-x-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abW5UIjUGEpTafC1-B2HtSQ-t500x500.png">](https://soundcloud.com/azellaofficial/azella-domination)
 
-**Artist**: Mart!x 
+**Artist**: AZELLA 
 
-**Track**: Eli Brown - Wavey (Mart!x Remix)
+**Track**: AZELLA - DOMINATION
 
-Last updated at 9/5/2025, 8:30:56 PM
+Last updated at 9/5/2025, 8:31:56 PM
