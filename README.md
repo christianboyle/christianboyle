@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTpjlJkKgTyz4umn-36ea9A-t500x500.jpg">](https://soundcloud.com/avello_music/light-years)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9gPTeHgHVEb0jrh3-i6xJtw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-cornflakes)
 
-**Artist**: AVELLO 
+**Artist**: TNT, Darren Styles 
 
-**Track**: JOHN SUMMIT, INÉZ - LIGHT YEARS (AVELLO REMIX) [FREE DOWNLOAD]
+**Track**: TNT & Darren Styles - Cornflakes
 
-Last updated at 9/5/2025, 8:35:01 PM
+Last updated at 9/5/2025, 8:37:18 PM
