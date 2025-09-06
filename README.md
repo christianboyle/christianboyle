@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m81AlHxxKpaC07rt-w5ra2Q-t500x500.jpg">](https://soundcloud.com/rethred/gryffin-glitch-in-the-simulation-rethred-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2uy20A7xlE9yFI2x-6j67sQ-t500x500.jpg">](https://soundcloud.com/itzkeylo614/play-time-keylo)
 
-**Artist**: rethred: 
+**Artist**: Keylo 
 
-**Track**: Gryffin - Glitch In The Simulation (Rethred Remix)
+**Track**: PLAY TIME - KEYLO
 
-Last updated at 9/5/2025, 8:24:10 PM
+Last updated at 9/5/2025, 8:25:10 PM
