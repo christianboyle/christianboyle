@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abW5UIjUGEpTafC1-B2HtSQ-t500x500.png">](https://soundcloud.com/azellaofficial/azella-domination)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHULmquaIV94N5dE-gT9lkQ-t500x500.jpg">](https://soundcloud.com/cosmosrecordsfr/stirex-toxic-twins-shinobi)
 
-**Artist**: AZELLA 
+**Artist**: Toxic Twins 
 
-**Track**: AZELLA - DOMINATION
+**Track**: STIREX & TOXIC TWINS - SHINOBI [Free DL]
 
-Last updated at 9/5/2025, 8:31:56 PM
+Last updated at 9/5/2025, 8:33:01 PM
