@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OXcd0xIL4VYs0Fzd-6UOm4A-t500x500.png">](https://soundcloud.com/napoleon_dj/a-sky-of-full-stars-napoleon-inside-our-hearts-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTpjlJkKgTyz4umn-36ea9A-t500x500.jpg">](https://soundcloud.com/avello_music/light-years)
 
-**Artist**: NAPOLEON 
+**Artist**: AVELLO 
 
-**Track**: A Sky Of Full Stars (Napoleon 'Inside Our Hearts' Edit)
+**Track**: JOHN SUMMIT, INÉZ - LIGHT YEARS (AVELLO REMIX) [FREE DOWNLOAD]
 
-Last updated at 9/5/2025, 8:34:01 PM
+Last updated at 9/5/2025, 8:35:01 PM
