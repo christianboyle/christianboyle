@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9gPTeHgHVEb0jrh3-i6xJtw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-cornflakes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0AlrrfTJ8UHANzoZ-4StnDQ-t500x500.jpg">](https://soundcloud.com/nachtigaller_techno/3703a498-bb63-4054-87f0-25fdc5a16f05)
 
-**Artist**: TNT, Darren Styles 
+**Artist**: Nachtigaller 
 
-**Track**: TNT & Darren Styles - Cornflakes
+**Track**: OnlyNumbers - Euphoric Night (Nachtigaller Schranz Edit)
 
-Last updated at 9/5/2025, 8:37:18 PM
+Last updated at 9/6/2025, 6:15:45 AM
