@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/party-rock-anthem-rexy-dexy?in=saxurn/sets/new2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rLahLohcMPtLVYtq-DBniag-t500x500.jpg">](https://soundcloud.com/underdotnet/beansclub-hanshin)
 
-**Artist**: REXY=DEXY 
+**Artist**: under.net 
 
-**Track**: Party Rock Anthem(REXY=DEXY REMIX)
+**Track**: beansclub - hanshin
 
-Last updated at 9/7/2025, 9:42:15 AM
+Last updated at 9/7/2025, 1:45:04 PM
