@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ff4KrQLRMZNJqte3-a0fDZg-t500x500.png">](https://soundcloud.com/unison/better-off-deceived)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-25b9ch70ycHoz81w-S6MV7g-t500x500.png">](https://soundcloud.com/kushfaceleanin/flashing-pints)
 
-**Artist**: Unison 
+**Artist**: kushface ☤ 
 
-**Track**: Better Off Deceived (Single Version)
+**Track**: FLASHING PINTS
 
-Last updated at 9/7/2025, 9:27:32 AM
+Last updated at 9/7/2025, 9:28:32 AM
