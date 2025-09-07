@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aMmUby23pL86na5V-KAJVCw-t500x500.jpg">](https://soundcloud.com/beansclub/myfakeplasticlove?in=beansclub/sets/10-of-my-best-tracks-ever)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ff4KrQLRMZNJqte3-a0fDZg-t500x500.png">](https://soundcloud.com/unison/better-off-deceived)
 
-**Artist**: beansclub 
+**Artist**: Unison 
 
-**Track**: my fake plastic love
+**Track**: Better Off Deceived (Single Version)
 
-Last updated at 9/7/2025, 9:26:27 AM
+Last updated at 9/7/2025, 9:27:32 AM
