@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBdl8x1OMVnwbKSs-aPpuew-t500x500.png">](https://soundcloud.com/maylayy/maylay-dup?in=bass-n-babes/sets/bass-baddies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5xzVyt3LkRylp5Y-qvxx1g-t500x500.jpg">](https://soundcloud.com/ferrand_ferrari/get-the-party-started-ferrand-x-mrgnstrn-edit)
 
-**Artist**: MAYLAY 
+**Artist**: Ferrand, mrgnstrn 
 
-**Track**: MAYLAY - DUP (FREE DL)
+**Track**: Get The Party Started (Edit)
 
-Last updated at 9/7/2025, 9:31:38 AM
+Last updated at 9/7/2025, 9:32:43 AM
