@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5xzVyt3LkRylp5Y-qvxx1g-t500x500.jpg">](https://soundcloud.com/ferrand_ferrari/get-the-party-started-ferrand-x-mrgnstrn-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jJQoEtnZy4QFFSxH-ZjeZPg-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/party-rock-anthem-rexy-dexy?in=saxurn/sets/new2)
 
-**Artist**: Ferrand, mrgnstrn 
+**Artist**: REXY=DEXY 
 
-**Track**: Get The Party Started (Edit)
+**Track**: Party Rock Anthem(REXY=DEXY REMIX)
 
-Last updated at 9/7/2025, 9:32:43 AM
+Last updated at 9/7/2025, 9:42:15 AM
