@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZNBcEyl0yjZ8yFxn-WQMmQQ-t500x500.png">](https://soundcloud.com/immoyo/kendrick-lamar-squabble-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Btta5NHHqGxNByp9-C1jiQA-t500x500.png">](https://soundcloud.com/mistrrr/stabilize)
 
-**Artist**: Moyo 
+**Artist**: Mistrrr 
 
-**Track**: Kendrick Lamar - Squabble up (Moyo remix)
+**Track**: Stabilize
 
-Last updated at 9/7/2025, 9:19:57 AM
+Last updated at 9/7/2025, 9:20:57 AM
