@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Btta5NHHqGxNByp9-C1jiQA-t500x500.png">](https://soundcloud.com/mistrrr/stabilize)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lQYh4fMs76dWfh9n-Xvnw5w-t500x500.png">](https://soundcloud.com/joelcorry/clothesoff)
 
-**Artist**: Mistrrr 
+**Artist**: Joel Corry 
 
-**Track**: Stabilize
+**Track**: We Don’t Have To (Clothes Off) (Joel Corry Remix) [FREE DOWNLOAD]
 
-Last updated at 9/7/2025, 9:20:57 AM
+Last updated at 9/7/2025, 9:21:57 AM
