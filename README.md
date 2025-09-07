@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXKyw4SEWgA3maIM-Ezh9rQ-t500x500.png">](https://soundcloud.com/scottattrill/vinylgroover-drifting-in-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oZybIGzTCmOPlpHw-p1g8PQ-t500x500.png">](https://soundcloud.com/rhekdens/clips)
 
-**Artist**: Vinylgroover 
+**Artist**: rhekdens 
 
-**Track**: Vinylgroover - Drifting In The Dark (Hell Fire) KINN Remix - Radio Edit
+**Track**: CLIPS+ @2rel @lynyou @northernscence @singmeasymphony @kylanonline
 
-Last updated at 9/7/2025, 9:15:21 AM
+Last updated at 9/7/2025, 9:16:27 AM
