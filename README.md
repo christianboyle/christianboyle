@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0AlrrfTJ8UHANzoZ-4StnDQ-t500x500.jpg">](https://soundcloud.com/nachtigaller_techno/3703a498-bb63-4054-87f0-25fdc5a16f05)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WWixcWmqqp2VKP54-lAfrUQ-t500x500.jpg">](https://soundcloud.com/scafettamusic/nghtmre-x-slander-feelinggud)
 
-**Artist**: Nachtigaller 
+**Artist**: ScAℲeTtA_Music 
 
-**Track**: OnlyNumbers - Euphoric Night (Nachtigaller Schranz Edit)
+**Track**: NGHTMRE x SLANDER- FEELINGGUD (SCAFETTA REMIX)
 
-Last updated at 9/7/2025, 7:52:43 AM
+Last updated at 9/7/2025, 9:14:21 AM
