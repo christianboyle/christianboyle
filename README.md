@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXWkG9lDV9Wl-0-t500x500.png">](https://soundcloud.com/bennicky/sober-david-rust-remix-feat?in=saxurn/sets/one-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DOUlT6ZEek3mwXB-GdHc5A-t500x500.jpg">](https://soundcloud.com/shizzlomusic/justin-bieber-yukon-shizz-lo-flip?in=saxurn/sets/one-milk)
 
-**Artist**: Ben Nicky, Hix 
+**Artist**: SHIZZ LO 
 
-**Track**: Sober (David Rust Remix) [feat. Tori Smith]
+**Track**: JUSTIN BIEBER - YUKON [SHIZZ LO FLIP]
 
-Last updated at 9/8/2025, 10:18:42 AM
+Last updated at 9/8/2025, 10:21:57 AM
