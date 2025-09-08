@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZCMJskOnpLnOqI9W-RsNCNQ-t500x500.png">](https://soundcloud.com/viperactive/snakebite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzzWAHa3y1pZgxJH-eYxoeA-t500x500.png">](https://soundcloud.com/gothlit/ashes-of-the-abyss)
 
-**Artist**: Viperactive 
+**Artist**: GothLit 
 
-**Track**: Snakebite
+**Track**: Ashes Of The Abyss
 
-Last updated at 9/8/2025, 4:15:15 PM
+Last updated at 9/8/2025, 4:18:25 PM
