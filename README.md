@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ruGakSvzUn6c5gK-qJKnag-t500x500.jpg">](https://soundcloud.com/2summusic/underground-anthem-2sumflip?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/so-sus-singularity?in=saxurn/sets/domestic/)
 
-**Artist**: 2SUM 
+**Artist**: So Sus 
 
-**Track**: FLOSSTRADAMUS - UNDERGROUND ANTHEM (2SUM FLIP)
+**Track**: So Sus - Singularity
 
-Last updated at 9/8/2025, 9:20:10 AM
+Last updated at 9/8/2025, 9:22:30 AM
