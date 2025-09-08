@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood?in=saxurn/sets/3a2/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-etWmq0yV7A1yF1ro-styLqA-t500x500.png">](https://soundcloud.com/kellarmusic/castles-in-the-sky?in=saxurn/sets/1a1/)
 
-**Artist**: Ninajirachi 
+**Artist**: ANDATA & KELLAR 
 
-**Track**: Sing Good
+**Track**: ANDATA & KELLAR - Castles In The Sky
 
-Last updated at 9/8/2025, 9:33:23 AM
+Last updated at 9/8/2025, 9:37:58 AM
