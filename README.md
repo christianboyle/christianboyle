@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7yYIIesU7Kstgec-3iqweA-t500x500.png">](https://soundcloud.com/rngrdj/all-of-the-lights-rngr-edit?in=saxurn/sets/two-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aDD3KpDrVFPJ0KDD-z5dYCQ-t500x500.jpg">](https://soundcloud.com/furymc/wilson-left-in-the-shadow-radio-edit-sample?in=saxurn/sets/two-milk)
 
-**Artist**: RNGR, JOSHWA 
+**Artist**: Wilson 
 
-**Track**: ALL OF THE LIGHTS (RNGR EDIT)
+**Track**: Wilson - Left In The Shadow (Radio Edit Sample)
 
-Last updated at 9/8/2025, 10:49:35 AM
+Last updated at 9/8/2025, 10:53:25 AM
